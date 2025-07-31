@@ -1,0 +1,11 @@
+CAPÍTULO V
+DE LAS POLÍTICAS DE ADMINISTRACION DE LAS INVERSIONES
+Artículo 15. Políticas para la administración de las inversiones financieras
+a. El programa anual de inversiones debe estar alineado con la realidad financiera institucional y el entorno económico nacional con el fin de satisfacer las necesidades del Gobierno Local de Naranjo producto del flujo normal de actividades institucionales.
+b. La colocación de los recursos financieros, bajo las modalidades señaladas en el capítulo anterior, sólo podrá realizarse en el ámbito de mercado primario, en forma directa o a través de contratos suscritos entre el Gobierno Local de Naranjo y los puestos de bolsa o sociedades administradoras de fondos de inversión debidamente registrados y regulados por la SUGEVAL.
+c. El Comité de Inversiones deberá solicitar a las diferentes entidades públicas o autorizadas, las respectivas ofertas y prospectos de los instrumentos disponibles en el mercado, con el propósito de llevar a cabo el análisis técnico para formular la decisión y recomendación al Alcalde(sa) de donde y en cuál instrumento financiero o título valor debe invertirse.
+d. La Tesorería y la Contabilidad Municipal mensualmente deberán llevar el detalle de las inversiones del periodo económico que se trate debidamente conciliado en sus registros e informes mensuales.
+e. Los recursos correspondientes a partidas específicas que se encuentren invertidos deben mantenerse en cuentas separadas identificándose claramente en el detalle, el monto de la inversión y los intereses que se han generado de las mismas.
+f. El Comité de Inversiones velará porque los archivos de portafolios de inversión que se posean con los puestos de bolsa, sociedades administradoras de fondos, bancos públicos contengan como mínimo la siguiente información por cada inversión: monto de la inversión, porcentaje de riesgo de la cartera, rendimiento, plazo y liquidez.
+g. El Comité de Inversiones podrá solicitar a los diferentes Puestos de Bolsa, asesoría en el campo financiero, que coadyuven en la toma de decisiones para recomendar al Alcalde(sa) una inversión financiera.
+h. El Gobierno Local de Naranjo podrá realizar contrataciones, de servicios bursátiles u otros, cuando así lo considere necesario. Respetando en todo momento lo establecido en la Ley de Contratación Administrativa y su Reglamento.

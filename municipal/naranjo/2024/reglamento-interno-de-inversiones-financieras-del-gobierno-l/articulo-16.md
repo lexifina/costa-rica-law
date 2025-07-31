@@ -1,0 +1,4 @@
+Artículo 16. Registro y control de las inversiones
+Los registros financieros y contables se efectuarán, de acuerdo con la normativa vigente en materia de inversiones, las Normas Internacionales de Contabilidad para el Sector Público (NICSP) y la Ley de la Administración Financiera de la República y Presupuestos Públicos. Para tales efectos, el Contador y el Tesorero Municipal deberán velar y cumplir con las regulaciones dictadas en la Ley General de Control Interno, el Manual de Normas Generales de Control Interno y la Ley Reguladora del Mercado de Valores, así como toda normativa vigente que regule la materia.
+Las inversiones deben de registrarse a nombre del Gobierno Local de Naranjo y debe existir un detalle de las mismas, identificando el nombre de la entidad financiera donde se mantiene custodiado el dinero invertido.
+Los títulos valores que sean materializados serán custodiados por la Tesorería Municipal.
