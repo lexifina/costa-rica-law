@@ -1,0 +1,1 @@
+Artículo 69. El trámite de comisión podrá se dispensado ante moción de orden y votación de al menos mayoría calificada. Dicha dispensa deberá estar justificada en criterios de urgencia e impostergabilidad debidamente acreditados con determinación de los daños o perjuicios que se generarían al gobierno local de no aprobarse la dispensa.

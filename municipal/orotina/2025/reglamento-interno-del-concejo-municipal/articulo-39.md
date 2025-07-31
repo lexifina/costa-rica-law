@@ -1,0 +1,1 @@
+Artículo 39. Número de sesiones. El Concejo Municipal deberá efectuar, al menos, una sesión ordinaria semanal. De conformidad con lo establecido en el Código Municipal, al Concejo podrá celebrar las sesiones extraordinarias que sean necesarias.

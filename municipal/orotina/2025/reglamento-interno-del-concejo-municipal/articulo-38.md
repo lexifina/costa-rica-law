@@ -1,0 +1,1 @@
+Artículo 38. Calendario. El Concejo Municipal mediante acuerdo dispondrá sobre la hora y el día de sus sesiones ordinarias, debiendo mantener el calendario vigente mientras no disponga de una modificación publicada en La Gaceta.

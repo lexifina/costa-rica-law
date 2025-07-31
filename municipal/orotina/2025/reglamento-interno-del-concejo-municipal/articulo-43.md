@@ -1,0 +1,1 @@
+Artículo 43. Remuneración. La municipalidad podrá remunerar a los regidores y síndicos no más de una sesión ordinaria por semana. También podrá remunerar dos sesiones extraordinarias máximo por mes, siempre que reúnan los requisitos que para tal efecto establezca el Código Municipal.

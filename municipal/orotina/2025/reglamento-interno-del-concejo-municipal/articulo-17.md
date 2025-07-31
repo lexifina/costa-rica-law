@@ -1,0 +1,1 @@
+Artículo 17. Comisiones Permanentes. Se integrarán con un mínimo de tres y un máximo de cinco regidores propietarios y/o suplentes. Las comisiones permanentes son las contempladas en el Código Municipal.

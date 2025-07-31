@@ -1,0 +1,1 @@
+Artículo 79. Del proceso a seguir cuando se produzca un empate en votación: Cuando en una votación se produzca un empate, ésta se hará de nuevo inmediatamente; si el empate persiste, se traerá el asunto en la sesión ordinaria siguiente. En caso de que se produzca de nuevo el empate el asunto se tendrá por desechado.

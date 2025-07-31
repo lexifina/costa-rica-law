@@ -1,0 +1,1 @@
+Artículo 71. Del orden de los dictámenes de comisión. Los dictámenes de las comisiones serán conocidos en sesión de acuerdo con el orden en que fueron presentados a la Secretaría. Para ese efecto la Secretaría, al recibir los dictámenes, consignará al pie de ellos la hora y fecha de presentación.

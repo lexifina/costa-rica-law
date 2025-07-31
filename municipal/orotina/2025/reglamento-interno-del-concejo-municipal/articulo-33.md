@@ -1,0 +1,1 @@
+Artículo 33. Régimen sancionatorio. El titular de la Secretaría del Concejo sólo podrá ser suspendido o destituido de su cargo si existiera justa causa, la cual debe ser demostrada mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa. Para los efectos del debido proceso, deberán atenderse los Reglamentos Internos de la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 19. Comisiones especiales permanentes. Dichas comisiones se crearán por acuerdo del Concejo Municipal. Las mismas pueden ser creadas para analizar temáticas o asuntos que por su complejidad y continuidad requieran permanecer en un plazo que abarque el periodo constitucional completo.
+Se integrarán por un mínimo de tres miembros, pueden participar con potestades plenas los regidores y síndicos; propietarios y suplentes.

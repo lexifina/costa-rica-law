@@ -1,0 +1,1 @@
+Artículo 32. Nombramiento. El nombramiento del titular de la Secretaría del Concejo lo realizará el Concejo siguiendo, en lo conducente, los procedimientos contemplados en el Código Municipal para el nombramiento del personal en general, según los manuales técnicos vigentes y las competencias técnicas de la Unidad de Recursos Humanos.

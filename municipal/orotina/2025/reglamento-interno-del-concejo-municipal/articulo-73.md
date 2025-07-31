@@ -1,0 +1,1 @@
+Artículo 73. Los dictámenes de comisión deberán de ser conocidos y aprobados por el Concejo Municipal. En caso de que el Concejo en pleno no esté de acuerdo con lo dictaminado, podrá resolver por su propia cuenta; además, la decisión deberá de ser justificada y fundamentada debidamente.

@@ -1,0 +1,2 @@
+Artículo 21. De la participación de asesores en las comisiones. Los funcionarios municipales, la Alcaldía y los vecinos del cantón podrán participar, en calidad de asesores, en las comisiones del Concejo Municipal.
+Dicha participación se limitará a rendir los criterios que se les soliciten sobre las materias de su especialidad o conocimiento. Por tanto, no tendrán derecho a voto ni podrán asumir ningún cargo dentro de la comisión.

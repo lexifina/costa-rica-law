@@ -1,0 +1,8 @@
+Sección Tercera
+De la Alcaldía
+Artículo 12. De los deberes de la Alcaldía Municipal. Además de las atribuciones y obligaciones establecidas por ley, la Alcaldía Municipal tendrá, en relación con el Concejo Municipal, los siguientes deberes:
+a) Asistir, con voz, pero sin voto, a todas las sesiones del Concejo Municipal, salvo que deba atender otras obligaciones municipales, señaladas para la misma hora de la sesión, lo que en cada caso justificará por escrito ante el Concejo Municipal. En su lugar participará el Vicealcalde Primero, quien, en todo caso, por disposición de la Alcaldía, podrá asistir a las sesiones del Concejo e intervenir en asuntos de interés para la Administración.
+b) Sancionar y promulgar las resoluciones y acuerdos aprobados por el Concejo o en su defecto interponer el veto en atención a lo dispuesto por el Código Municipal.
+c) Rendir ante el Concejo, a más tardar en una de las sesiones de febrero y agosto de cada año, un informe de los ingresos y egresos que haya autorizado en el semestre inmediato anterior.
+d) Rendir ante el Concejo, cada año, en una de las sesiones de la segunda quincena de febrero un informe de labores, el cual debe ser discutido y aprobado por el Concejo antes de su presentación al pueblo, en la primera quincena de marzo.
+e) Presentar cada año al Concejo Municipal, a más tardar en la última semana del mes de agosto, para su análisis y posterior aprobación, el proyecto de presupuesto para el ejercicio fiscal del año siguiente, el cual debe guardar coherencia con los planes superiores, el Plan Operativo Anual y el Plan de Gobierno de la Alcaldía.

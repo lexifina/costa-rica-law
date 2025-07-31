@@ -1,0 +1,1 @@
+Artículo 59. Plazo. Toda correspondencia será incorporada a la agenda u orden del día, en tanto se hubiere presentado a más tardar a las doce horas del día hábil anterior, salvo excepciones de urgencia a criterio de la Presidencia.

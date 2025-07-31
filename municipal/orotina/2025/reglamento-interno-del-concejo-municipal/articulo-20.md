@@ -1,0 +1,1 @@
+Artículo 20. De los temas a conocer por cada Comisión. Corresponderá a la Presidencia definir la comisión a las que se remita cada asunto, debiendo procurar la asignación conforme con la temática que atañe a cada una.

@@ -1,0 +1,5 @@
+Artículo 47. Del quórum de las sesiones.
+El quórum para las sesiones será de la mitad más uno de los miembros del Concejo.
+De no alcanzarse el quórum con los regidores propietarios a la hora de inicio de la sesión o durante los siguiente quince minutos, la Presidencia procurará alcanzarlo con los regidores suplentes siguiendo el procedimiento de ley. De no contarse con quórum una vez transcurridos esos quince minutos, la Presidencia instruirá a la Secretaría Municipal que levante una nómina de los presentes, para acreditar el pago de dietas y dará por suspendida la sesión.
+Para efectos de quórum y sustituciones, los regidores propietarios deben encontrarse en sus respectivas curules y los suplentes ubicarse dentro del salón de sesiones.
+Si en el curso de la sesión se rompiera el quórum, la Presidencia por medio de la Secretaría, instará a las regidurías que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos diez minutos sin que pueda restablecerse el quórum, se levantará la sesión. Las personas regidoras remisas perderán el derecho a devengar la dieta correspondiente.
