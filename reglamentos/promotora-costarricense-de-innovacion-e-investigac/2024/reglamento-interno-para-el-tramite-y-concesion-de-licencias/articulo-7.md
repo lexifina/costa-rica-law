@@ -1,1 +1,0 @@
-Artículo 7º-Los funcionarios de la Promotora, se deben a la función estratégica de la institución, siendo que, ante la necesidad institucional de contar con el servicio laboral extraordinario dentro de la institución, deberán reorganizar su función docente y atender de manera prioritaria los asuntos relacionados a su trabajo cuando así se requiera.
