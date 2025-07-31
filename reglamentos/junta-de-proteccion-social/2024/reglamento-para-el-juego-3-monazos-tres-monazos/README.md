@@ -14,3 +14,4 @@ Reglamento para el juego 3 monazos (tres monazos)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-31 | la propia norma |
+| 2 | 2025-07-31 | Reglamento 38 (2025-07-31) |
