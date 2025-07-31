@@ -1,0 +1,1 @@
+Artículo 16° Indicación de pagado. Toda factura, tiquete o comprobante y otros documentos relativos a la compra de bienes y servicios deberán contar con una indicación que señale que se procedió con el pago o cancelación respectiva y la fecha del pago.

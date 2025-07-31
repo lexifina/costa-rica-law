@@ -1,0 +1,1 @@
+Artículo 5° Establecimiento del monto. El monto del Fondo Fijo de Caja Chica y el monto del pago máximo a incurrir por medio de este fondo será autorizado y establecido por el Concejo Municipal a través de acuerdo respectivo, conforme a los limites económicos emitidos por la Contraloría General de la República para cada periodo presupuestario.

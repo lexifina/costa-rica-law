@@ -1,0 +1,2 @@
+Artículo 19° Devoluciones por adelantos de viáticos. Todo reintegro de dinero ocasionado por sobrantes en adelantos de viáticos tanto al interior como al exterior del país o por cancelación de giras, deberá ser depositado por el funcionario(a) en la cuenta bancaria de la Municipalidad de Naranjo que para tal efecto establezca la Tesorería Municipal.
+El comprobante de la transferencia o depósito debe ser remitido a la Tesorera Municipal a más tardar el día hábil siguiente de hacerse efectivo el depósito.

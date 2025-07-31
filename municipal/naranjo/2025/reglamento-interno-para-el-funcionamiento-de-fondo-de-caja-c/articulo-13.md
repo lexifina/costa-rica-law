@@ -1,0 +1,1 @@
+Artículo 13° Límite del gasto. Los desembolsos se deberán ajustar al monto de pago máximo establecido por el Concejo Municipal, excepto los correspondientes a gastos por viáticos, transportes y conexos, que se ajustarán a lo dispuesto al efecto por la Contraloría General de la República.

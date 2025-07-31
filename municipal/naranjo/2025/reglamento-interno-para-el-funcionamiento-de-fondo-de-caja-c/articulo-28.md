@@ -1,0 +1,2 @@
+Artículo 28° Plazo perentorio para efectuar los reintegros. Los reintegros del Fondo de Caja Chica deben ser efectuados por la Tesorería de la Municipalidad de Naranjo quien contará con un plazo no mayor a dos días hábiles para hacer efectivo el reintegro.
+En caso de que por algún motivo la compra no se lleva a cabo, la tesorería deberá hacer el reintegro de forma inmediata debiendo la Unidad Solicitante justificar las razones por las cuales no se ejecuta el dinero.

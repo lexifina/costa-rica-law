@@ -1,0 +1,1 @@
+Artículo 37° Disposición Transitoria. Por un plazo de hasta tres meses después de la entrada en vigencia del presente reglamento, podrán utilizarse cheques mientras se realizan las acciones requeridas para consolidar la utilización de medios de pago electrónicos para pagos y desembolsos con cargo al Fondo de Caja Chica.

@@ -1,0 +1,2 @@
+Artículo 9° Visto bueno. Los documentos de ejecución señalados en este Reglamento: pedido por Fondo Fijo de Caja Chica, factura, reserva de recursos y liquidaciones de gastos deberán ser revisados por la Tesorera Municipal, dejando constancia de su revisión y visto bueno.
+La Proveeduría por su parte, deberá realizar las gestiones para la autorización de gasto o pedido por Fondo Fijo de Caja Chica, verificando las existencias de bienes, la necesidad, el procedimiento de elección y posteriormente registrando la factura e ingreso al inventario respectivo.

@@ -1,0 +1,1 @@
+Artículo 8° Póliza de fidelidad. El personal de la Dirección Financiera, Tesorería y Proveeduría como participes en el manejo del Fondo, incluyendo la Subcaja Chica de efectivo, deberán rendir póliza de fidelidad, con cargo a su propio peculio, de conformidad con lo dispuesto en la legislación.

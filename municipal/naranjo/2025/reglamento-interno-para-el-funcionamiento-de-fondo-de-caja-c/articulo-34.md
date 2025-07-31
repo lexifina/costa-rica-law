@@ -1,0 +1,1 @@
+Artículo 34° Manual Institucional de Operación. Los responsables de la administración del Fondo Fijo Caja Chica, deberán gestionar lo correspondiente a efectos de disponer de un Manual Institucional de Operación del fondo, en el que se incorporen procedimientos, requisitos de control y demás aspectos operativos de interés.

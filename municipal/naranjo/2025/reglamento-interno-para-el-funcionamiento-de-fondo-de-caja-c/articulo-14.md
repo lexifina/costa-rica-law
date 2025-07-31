@@ -1,0 +1,2 @@
+Artículo 14° Contenido presupuestario. Los desembolsos que se realicen con cargo al Fondo deberán contar con el correspondiente contenido presupuestario y se respaldarán con el justificante o comprobante originales.
+El área de presupuesto verificará la existencia del contenido presupuestario requerido para la adquisición de bienes y servicios y Proveeduría validará la procedencia conforme a los supuestos que establece la Ley General de Contratación Pública y su reglamento.

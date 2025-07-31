@@ -1,0 +1,4 @@
+Artículo 20° Respaldo de los gastos. Toda compra por el Fondo Fijo de Caja Chica deberá quedar respaldada por lo siguiente: una reserva de recursos presupuestarios, la autorización respectiva o el pedido de compra por Fondo Fijo de Caja Chica y la factura comercial emitida por el proveedor respectivo.
+En los casos de viáticos al interior del país se debe tener el respaldo de la autorización de adelantos, las liquidaciones de gastos de viaje respectivas y los comprobantes que se requieran, de conformidad con lo que al efecto establezca el respectivo reglamento.
+Para viajes al exterior se debe tener el respaldo del acuerdo de viaje y la liquidación, con los comprobantes que se requieran.
+Tales documentos son responsabilidad de la Tesorería Municipal en cuanto a recibo, emisión, registro, según corresponda, sea en formato físico o electrónico.
