@@ -1,0 +1,1 @@
+ARTÍCULO 17º.- La valoración de los elementos y documentos tendientes para acreditar los méritos de los candidatos se sujetarán al instrumento confeccionado para tal efecto y deberá superar la nota mínima de 80 puntos.

@@ -1,0 +1,1 @@
+ARTÍCULO 14º.- La ceremonia para la entrega del Premio se realizará en un acto que se registrará dentro de la agenda de la Asamblea General Ordinaria en correspondencia al año que se brinde. En dicha ceremonia los integrantes del Tribunal de Honor estarán en la mesa principal, se hará de conocimiento público los méritos de la persona a quien se otorgue el premio.
