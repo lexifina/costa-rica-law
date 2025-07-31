@@ -1,0 +1,1 @@
+Artículo 18. Solicitud de colaboración para la institución. Las personas servidoras de la Municipalidad de Belén no deberán solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.

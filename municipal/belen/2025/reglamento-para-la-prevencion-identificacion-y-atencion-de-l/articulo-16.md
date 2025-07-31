@@ -1,0 +1,1 @@
+Artículo 16. Prestación de servicios a terceros. Ninguna persona servidora de la Municipalidad de Belén deberá patrocinar, representar o prestar servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a estos o cualquier otro tipo de asunto.

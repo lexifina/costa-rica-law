@@ -1,0 +1,1 @@
+Artículo 10. Deber de denunciar. Todo el personal de la Municipalidad de Belén deberá estar atento y denunciar, ante el nivel superior jerárquico o ante la autoridad competente, las situaciones de conflictos de interés que afecten a otras personas servidoras de la Municipalidad, de las que tengan conocimiento con motivo o en ocasión del ejercicio del cargo.

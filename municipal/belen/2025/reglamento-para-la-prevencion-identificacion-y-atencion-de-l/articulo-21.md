@@ -1,0 +1,1 @@
+Artículo 21. Uso de los bienes, materiales y útiles de la oficina. El personal de la Municipalidad de Belén no deberá utilizar las instalaciones físicas, el equipo de oficina, vehículos o demás bienes públicos a que tengan acceso, para propósitos ajenos al fin para el que están destinados.

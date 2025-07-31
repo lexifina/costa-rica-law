@@ -1,0 +1,1 @@
+Artículo 22. Emisión de cartas de recomendación. Las personas que presten servicios a la Municipalidad de Belén no deberán aceptar o emitir cartas de recomendación, haciendo uso de su cargo, en beneficio de personas o grupos específicos para procurar nombramientos, ascensos u otros beneficios.

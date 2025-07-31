@@ -1,0 +1,9 @@
+Artículo 6. Principios esenciales para el manejo de los conflictos de interés. El personal de la Municipalidad de Belén, frente a los problemas de este tipo, deben observar los siguientes principios:
+a. Probidad: El personal que presta los servicios a la Municipalidad de Belén, debe ser íntegro, honrado y recto en su conciencia, es decir, probo, con autoridad moral para merecer la confianza de quienes le encargan tareas.
+b. Prohibición e incompatibilidad: La persona que presta servicios a la Municipalidad de Belén, debe abstenerse de actuaciones legalmente prohibidas o incompatibles.
+c. Asesoría: Cuando corresponda la persona profesional, que presta servicios a la Municipalidad de Belén deberá asesorar de manera objetiva, imparcial y transparente, velando por los intereses municipales, pero de modo que las personas usuarias internas puedan satisfacer su interés dentro marco jurídico correspondiente.
+d. Decoro: La actuación de los funcionarios de la Municipalidad de Belén, deberá ser discreta, mesurada y honorable.
+e. Transparencia: Cuando corresponda el personal de la Municipalidad de Belén está obligado a brindar la información que le soliciten en forma que no se reserve para sí, elementos que podrían afectar los intereses institucionales de la Municipalidad de Belén.
+f. Firmeza: El personal de la Municipalidad de Belén debe tener la fortaleza para ser firme, ante los abusos de poder, a las amenazas de daños contra la institucionalidad de la Municipalidad.
+g. Diligencia: Los funcionarios de la Municipalidad de Belén deben en todo momento proceder con celo en todas sus actuaciones en forma oportuna, eficiente y eficaz, conforme al ordenamiento jurídico aplicable.
+h. Sentido Humano: El personal de la Municipalidad de Belén está obligado a adentrarse en la viva realidad de lo humano; a sopesar situaciones, antecedentes, para poder conocer y comprender las motivaciones de una conducta y los fines que se pretenden alcanzar por medio de esta.
