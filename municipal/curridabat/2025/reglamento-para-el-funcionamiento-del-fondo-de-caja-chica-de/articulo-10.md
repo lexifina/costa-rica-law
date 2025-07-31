@@ -1,0 +1,5 @@
+Artículo 10
+De la legitimación para solicitar el uso del Fondo de Caja Chica
+Se entenderá como legitimados para solicitar el uso del Fondo de Caja Chica a las unidades internas del Comité Cantonal de Deportes y Recreación de Curridabat (CCDRC) que, en atención a sus funciones operativas, requieran adquirir bienes o servicios en condiciones que califiquen como indispensables e impostergables, conforme a lo establecido en el artículo 3 de la Ley General de Contratación Pública y el artículo 10 del presente Reglamento.
+Cada solicitud deberá ser tramitada por medio de la unidad solicitante ante el Jefe General del CCDRC, quien será responsable de autorizar y validar, de previo a su aprobación, que la solicitud cumple con los criterios de excepcionalidad legalmente establecidos y con el contenido presupuestario disponible. El Jefe General también podrá anular vales que no hayan sido utilizados dentro del plazo reglamentario.
+Corresponde a la persona que ocupe la Asistencia Administrativa custodiar y administrar el Fondo, conforme a lo dispuesto en este Reglamento, sin que ello implique autoridad para autorizar su uso.
