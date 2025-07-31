@@ -1,0 +1,1 @@
+Artículo 8º-Intervenciones del fiscal. El fiscal podrá intervenir en cualquier momento del debate si considera que se está incurriendo en una falta al reglamento, y su observación deberá ser atendida con prioridad por la Presidencia.

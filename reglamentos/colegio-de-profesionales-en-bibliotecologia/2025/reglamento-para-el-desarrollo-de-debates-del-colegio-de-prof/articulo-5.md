@@ -1,0 +1,1 @@
+Artículo 5º-Réplicas. Finalizada la exposición inicial, se permitirá un máximo de tres réplicas, cada una con un tiempo de intervención de un (1) minuto. Las réplicas deberán ser autorizadas por la Presidencia del órgano o la persona moderadora. No se permitirá la cesión de palabra ni la acumulación de réplicas entre participantes.

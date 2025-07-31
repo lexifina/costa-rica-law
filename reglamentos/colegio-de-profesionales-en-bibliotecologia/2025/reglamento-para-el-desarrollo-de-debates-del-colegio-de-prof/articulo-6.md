@@ -1,0 +1,1 @@
+Artículo 6º-Uso de la palabra. Los turnos para uso de la palabra deberán ser solicitados de forma ordenada. La interrupción de otro participante no está permitida salvo por motivo de orden, lo cual será resuelto por la Presidencia.
