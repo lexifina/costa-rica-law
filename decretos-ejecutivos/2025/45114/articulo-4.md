@@ -1,0 +1,1 @@
+Artículo 4. Consulta a MIV AH. El Despacho del Presidente de la República podrá remitir la consulta al jerarca del Ministerio de Vivienda y Asentamientos Humanos, a efectos de que se revise si en el inventario de bienes inmuebles del Estado, se cuenta con un bien que cumpla con las necesidades de la administración promovente del concurso.

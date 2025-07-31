@@ -1,0 +1,1 @@
+Artículo 5. Derogatorias. Deróguese el Decreto N. 42561-H del 28 de julio de 2020, denominado "Disposiciones dirigidas al Gobierno Central sobre la necesidad de renegociar a la baja los contratos de arrendamiento de edificios, locales y terrenos".
