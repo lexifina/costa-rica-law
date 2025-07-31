@@ -1,0 +1,1 @@
+ARTÍCULO 41: Justificación del voto salvado: En caso de que un edil salve su voto ante una decisión adoptada por la mayoría del Concejo Municipal deberá justificar razonadamente los motivos de su voto disidente de forma inmediatamente posterior a la votación y dicha justificación se hará constar íntegramente en el acta.

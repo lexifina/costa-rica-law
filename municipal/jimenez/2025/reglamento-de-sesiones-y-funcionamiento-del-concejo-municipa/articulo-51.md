@@ -1,0 +1,1 @@
+ARTÍCULO 51: Asuntos pendientes de un período a otro: Cuando en el intervalo de clausura y apertura de sesiones ordinarias, queden asuntos pendientes de un período a otro, deberán conocerse en el siguiente período, en el mismo orden que traían.

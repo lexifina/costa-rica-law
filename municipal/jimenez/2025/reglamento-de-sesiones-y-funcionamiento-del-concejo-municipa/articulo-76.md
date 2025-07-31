@@ -1,0 +1,1 @@
+ARTÍCULO 76: Notificación de acuerdos municipales: La Secretaría del Concejo deberá velar porque sean debidamente notificados a quien corresponda, los acuerdos municipales, devolviendo luego de ello los expedientes respectivos a la Sección de Archivo del Departamento, añadiendo el respectivo acuerdo y su constancia de notificación.

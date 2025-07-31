@@ -1,0 +1,1 @@
+ARTÍCULO 99: Aplicabilidad de las mismas reglas para el funcionamiento del Concejo Municipal: En las disposiciones no previstas respecto al funcionamiento de las comisiones, se aplicará lo dispuesto en este reglamento para el Concejo Municipal y todas aquellas normas conexas del ordenamiento jurídico.

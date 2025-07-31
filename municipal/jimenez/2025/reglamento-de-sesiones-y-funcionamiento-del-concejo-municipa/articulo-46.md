@@ -1,0 +1,1 @@
+ARTÍCULO 46: Votación para la alteración del orden del día: La posición o decisión sobre un asunto incluido en el orden del día, se debe aprobar mediante una moción de alteración de ese orden con el voto afirmativo de al menos las dos terceras partes de los miembros presentes.

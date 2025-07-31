@@ -1,0 +1,1 @@
+ARTÍCULO 70: Presentación programa de gobierno: Para dar cumplimiento al inciso e-), del artículo 17 del Código Municipal, el Alcalde debe realizar la presentación ante el Concejo Municipal entrante, de su programa de gobierno y coordinar su difusión pública a las diferentes organizaciones y a las personas vecinas del Cantón.

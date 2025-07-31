@@ -1,0 +1,2 @@
+ARTÍCULO 78: Revisión previo a aprobar el acta: Antes de la aprobación del acta, cualquier Regidor podrá plantear la revisión de acuerdos, salvo respecto de los acuerdos definitivamente aprobados. Para acordar la revisión se requiere la misma mayoría que fue requerida para aprobar el acuerdo.
+Se podrá solicitar la modificación en las intervenciones dichas en el acta únicamente cuando se trate de la misma persona que las manifestó, siendo absolutamente improcedente que un edil solicite modificar lo dicho por otra

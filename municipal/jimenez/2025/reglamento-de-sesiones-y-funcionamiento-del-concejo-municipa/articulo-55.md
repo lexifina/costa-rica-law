@@ -1,0 +1,1 @@
+ARTÍCULO 55: Constancia de las intervenciones: El total de votos emitidos, el número de positivos y el número de negativos, así como las intervenciones solicitadas por los regidores, se consignarán, junto con el acuerdo tomado, en el acta respectiva, salvo para el caso de nombramiento o elección en que solo se hará constar el acuerdo tomado

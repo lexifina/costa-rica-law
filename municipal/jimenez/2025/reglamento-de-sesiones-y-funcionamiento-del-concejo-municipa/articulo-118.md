@@ -1,0 +1,1 @@
+ARTÍCULO 118: Relación con otras normas: En lo no contemplado por este Reglamento, el Concejo se regirá por las disposiciones del Código Municipal, Ley de Administración Financiera, Código Procesal Contencioso Administrativo, Ley de Control Interno y demás normativa conexa.

@@ -1,0 +1,2 @@
+ARTÍCULO 12: Periodo de nombramiento del directorio definitivo: Los miembros del Directorio ejercerán sus cargos por un período de dos años y podrán ser reelectos. (Artículo 33 Código Municipal).
+A la sesión solemne que corresponda a la elección del Directorio Provisional dos años después de la toma de posesión de los cargos se aplicarán en lo que resultare procedente las mismas reglas descritas en este capítulo y el Directorio Provisional estará conformado en este caso por los dos regidores de mayor edad.

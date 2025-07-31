@@ -1,0 +1,1 @@
+ARTÍCULO 24: Ubicación de los regidores al inicio de las sesiones y para emitir su voto: Los regidores deben encontrarse ocupando sus respectivas curules, para que al iniciar la sesión y para que se le reciba el voto, cuando se someta a votación cualquier asunto. De no encontrarse en su sitio, el señor Presidente deberá llamar al orden y hacer pasar su curul a los ausentes.

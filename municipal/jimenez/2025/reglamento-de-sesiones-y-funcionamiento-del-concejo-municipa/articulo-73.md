@@ -1,0 +1,2 @@
+ARTÍCULO 73: Procedimiento para el nombramiento del secretario (a) del Concejo Municipal: El nombramiento del titular de la Secretaría Municipal lo realizará el Concejo previo proceso administrativo interno de nombramiento o, en caso de inopia, por concurso externo. Los requisitos profesionales, académicos y personales que debe cumplir un postulante al cargo, serán fijados por el Concejo, previo análisis y dictamen de una comisión especial nombrada al efecto, la que se hará asesorar por la Dirección de Recursos Humanos
+de la Municipalidad.

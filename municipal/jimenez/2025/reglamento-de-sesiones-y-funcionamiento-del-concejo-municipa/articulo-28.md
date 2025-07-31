@@ -1,0 +1,1 @@
+ARTÍCULO 28: Elaboración del orden del día: El orden del día será elaborado por el Presidente del Concejo Municipal, quien lo comunicará a la Secretaría del Concejo Municipal, quien deberá colocarlo en las curules, previo al inicio de la sesión de la que se trate.

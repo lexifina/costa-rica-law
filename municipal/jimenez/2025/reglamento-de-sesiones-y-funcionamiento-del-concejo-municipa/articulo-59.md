@@ -1,0 +1,1 @@
+ARTÍCULO 59: Uso por terceros del edificio municipal: La Presidencia Municipal podrá conceder permiso a personas u organizaciones privadas o públicas, nacionales o extranjeras, para que realicen actividades, en cumplimiento de sus objetivos, en las instalaciones.
