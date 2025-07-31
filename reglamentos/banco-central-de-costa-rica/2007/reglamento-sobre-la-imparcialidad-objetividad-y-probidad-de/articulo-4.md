@@ -1,1 +1,0 @@
-Artículo 4º—Deber de probidad. Los miembros de los órganos superiores y los funcionarios de la Institución, deberán actuar con honradez, en especial cuando hagan uso de los recursos públicos que le son confiados para el cumplimiento de los fines institucionales, o cuando participen en actividades o negocios de la administración que comprometen recursos
