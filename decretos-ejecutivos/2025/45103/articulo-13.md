@@ -1,0 +1,2 @@
+Artículo 13°. - Objetivos del Departamento de Control de la Navegación: Garantizar la seguridad, eficiencia y control de la navegación acuática, transporte y tráfico, velar porque las actividades relacionadas con la navegación y el transporte marítimo se desarrollen de acuerdo con la normativa vigente así como emitir y/o registrar los permisos y autorizaciones administrativas relacionadas con la actividad marítima.
+Para cumplir con su objetivo, procesos y funciones este departamento contará con Capitanías de Puerto.

@@ -1,0 +1,1 @@
+Artículo 24°.- Derogatoria: Deróguense el artículo 13 del Decreto Ejecutivo Nº 42454-MP-MOPT del 18 de junio de 2020, Creación y Reglamento del Consejo Portuario Nacional; y el Decreto Ejecutivo Nº 40803-MOPT del 12 de diciembre de 2017, Reforma Organizativa y Funcional de La División Marítimo Po1tuaria del Ministerio de Obras Públicas y Transportes.

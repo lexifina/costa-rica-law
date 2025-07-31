@@ -1,0 +1,1 @@
+Artículo 21°. Zona Portuaria Reservada: La zona portuaria reservada de Caldera se encuentra bajo administración del Ministerio de Obras Públicas y Transportes, en su calidad de autoridad competente, la cual será ejercida por intermedio de la División Marítimo Portuaria.

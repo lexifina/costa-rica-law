@@ -1,0 +1,3 @@
+Artículo 23°. - Grado e insignia de los Capitanes de Puerto: Los funcionarios designados con el cargo de Capitán de Puerto se les otorgará por medio de Acuerdo Ejecutivo firmado por el Ministro del Ramo y el Presidente de la República el grado de Capitán.
+El Capitán de Puerto utilizará dos charreteras de color negro, cada una de 5 centímetros de ancho por 13.5 centímetros de largo, en su camisa oficial y exhibirán, en la parte superior la nomenclatura MOPT, en el medio un ancla color dorado de 2 centímetros de ancho por 3 centímetros de largo, y en la parte inferior el nombre Costa Rica, como se muestra en la siguiente imagen:
+[imagen]

@@ -1,0 +1,1 @@
+Artículo 14° - Objetivos de las Capitanías de Puerto: Asegurar que las operaciones marítimas se lleven a cabo de manera segura y eficiente, estableciendo y haciendo cumplir las normas y regulaciones relacionadas con la navegación acuática, el tráfico marítimo, la protección del medio marino y la prevención de accidentes.
