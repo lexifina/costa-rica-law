@@ -1,0 +1,1 @@
+Artículo 5.- Registro. La Secretaría del Concejo Municipal llevará un registro de las distinciones honoríficas y declaratorias de interés cantonal otorgadas por el Concejo Municipal, con la fecha de otorgamiento y el número de acuerdo, así como un extracto de los considerandos en donde se indiquen las circunstancias que dieron mérito a dicha distinción.

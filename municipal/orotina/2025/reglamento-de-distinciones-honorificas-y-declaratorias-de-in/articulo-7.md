@@ -1,0 +1,1 @@
+Artículo 7.- Dictamen. La Presidencia del Concejo Municipal remitirá la moción o proyecto a la Comisión de Asuntos Sociales. Dicha comisión se encargará de verificar, estudiar y valorar cada uno de los legajos de las personas propuestas y emitirá el dictamen respectivo en un plazo máximo de quince días hábiles.

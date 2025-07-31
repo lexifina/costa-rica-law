@@ -1,0 +1,1 @@
+Artículo 9.- Reconocimiento. La Municipalidad contará con medallas u otros insumos con el fin de reconocer las personas declaradas y resaltar sus actos o labores. La Municipalidad incluirá una partida presupuestaria para la confección de medallas o reconocimientos.

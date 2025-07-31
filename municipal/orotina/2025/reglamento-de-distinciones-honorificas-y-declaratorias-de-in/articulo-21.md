@@ -1,0 +1,1 @@
+Artículo 21.- Derogatorias. Se derogan los siguientes reglamentos: Reglamento para el Otorgamiento e Imposición de la "Orden Primo Vargas Valverde" publicado en La Gaceta No. 114 del 16 de junio de 2003, y el Reglamento para el Otorgamiento del Máximo Premio del cantón de Orotina Denominado Galardón de las Frutas publicado en La Gaceta No. 114 del 16 de junio de 2003.

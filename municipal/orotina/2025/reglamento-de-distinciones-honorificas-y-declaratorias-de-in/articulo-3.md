@@ -1,0 +1,1 @@
+Artículo 3.- No podrán otorgarse distinciones a personas físicas o jurídicas que mantengan relaciones directas o indirectas con la Municipalidad de Orotina, ni a ningún funcionario público por el ejercicio de sus labores.

@@ -1,0 +1,3 @@
+Artículo 13.- Trámite. Una vez recibida la solicitud, el Concejo Municipal la remitirá a la Comisión de Asuntos Sociales. Esta comisión procederá a la revisión de admisibilidad, a efecto de corroborar que cumple con los requisitos establecidos. Si no los cumpliese, prevendrá al solicitante el subsane de los requisitos incompletos o inexactos, otorgándole un plazo de diez días hábiles para aportar lo requerido, contados a partir del primer día hábil siguiente a la notificación de la prevención.
+En caso de que el solicitante no subsane lo requerido, la comisión recomendará al Concejo Municipal el archivo de la solicitud.
+En caso de que el solicitante cumpla con lo apercibido, la comisión continuará con el trámite de la gestión.

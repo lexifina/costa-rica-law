@@ -1,0 +1,1 @@
+Artículo 20.- Revocación. En caso de que, en las actividades, proyectos o productos declarados de interés cantonal, se incurran o propicien las conductas descritas en los incisos del b) al i) del artículo 4 del presente reglamento, la Municipalidad revocará de inmediato la declaratoria.

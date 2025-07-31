@@ -1,0 +1,3 @@
+Artículo 11.- Persona predilecta. Se establece como una distinción honorífica especial la figura del hijo predilecto o la hija predilecta del Cantón de Orotina, el cual será otorgado a aquellas personas que hayan brindado un aporte extraordinario en el campo de la cultura, la ciencia, la política o la economía, del medio ambiente, o en los ámbitos social, deportivo, educativo, artes, literatura, tecnología y salud, en beneficio directo de la comunidad de Orotina o del país en
+general, siempre y cuando tenga su domicilio dentro del cantón de Orotina. En caso de menores de edad, bastará que el padre o la madre o su tutor tenga domicilio en el Cantón de Orotina.
+Para el otorgamiento de esta distinción se deberá contar en la votación respectiva con mayoría calificada.

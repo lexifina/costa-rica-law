@@ -1,0 +1,1 @@
+Artículo 15.- Dictamen y acuerdo. La comisión remitirá su dictamen al Concejo Municipal con el fin de que resuelva en definitiva. Dicho acuerdo será notificado al solicitante y, en caso de la declaratoria sea aprobada, será divulgada por los medios a disposición de la Municipalidad.
