@@ -1,0 +1,1 @@
+Transitorio I.- Los servicios de atención extrahospitalaria públicos, privados y mixtos cuentan con un plazo de doce meses a partir de la publicación del presente Decreto Ejecutivo, para la implementación del protocolo señalado en el punto 5.3.1. de la presente norma.

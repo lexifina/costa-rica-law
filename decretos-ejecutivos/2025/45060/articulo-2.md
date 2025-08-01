@@ -1,0 +1,1 @@
+Artículo 2.- Oficialícese para efectos de aplicación obligatoria en los servicios de salud públicos, privados y mixtos, la "Norma nacional para la atención de los accidentes cerebrovasculares agudos", según legajo anexo, el cual forma parte integral del presente Decreto Ejecutivo.

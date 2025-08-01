@@ -1,0 +1,1 @@
+Transitorio III.- La Dirección de Vigilancia de la Salud del Ministerio de Salud cuenta con un plazo de doce meses a partir de la publicación del presente Decreto Ejecutivo, para la implementación del apartado 6.3. de la presente norma.

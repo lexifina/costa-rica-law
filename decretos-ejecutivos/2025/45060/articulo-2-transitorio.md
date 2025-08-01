@@ -1,0 +1,1 @@
+Transitorio II.- Los servicios hospitalarios públicos, privados y mixtos cuentan con un plazo de seis meses a partir de la publicación del presente Decreto Ejecutivo, para la implementación de protocolos señalados en el apartado 5.4. de la presente norma.
