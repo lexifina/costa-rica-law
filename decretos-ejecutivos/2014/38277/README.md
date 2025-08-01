@@ -20,3 +20,4 @@ Reglamento de Procedimiento Tributario
 | 5 | 2016-10-18 | Decreto Ejecutivo 40181 (2016-10-18) |
 | 6 | 2018-07-06 | Decreto Ejecutivo 41330 (2018-07-06) |
 | 7 | 2024-07-12 | Decreto Ejecutivo 44597 (2024-07-12) |
+| 8 | 2025-08-01 | Decreto Ejecutivo 45211 (2025-08-01) |
