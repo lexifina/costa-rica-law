@@ -1,0 +1,2 @@
+Artículo 11. Difusión de los índices de precios por parte del INEC, BCCR y cualquier otro ente público competente.
+El INEC, el BCCR y cualquier otro ente público competente en materia de índices de precios que disponga el ordenamiento jurídico, divulgarán los índices de precios en sus páginas webs con una periodicidad por mes calendario, y excepcionalmente, en un periodo mayor, por razones debidamente motivadas, lo anterior con el fin de facilitar el acceso a la información estadística a las instituciones, empresas y personas.

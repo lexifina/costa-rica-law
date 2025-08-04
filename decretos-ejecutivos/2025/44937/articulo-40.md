@@ -1,0 +1,9 @@
+Artículo 40. Revisión de precios en compras consolidadas mediante el modelo con precio desde la oferta.
+En caso de que la Administración implemente el modelo con precio desde la oferta, los oferentes deberán aportar la siguiente información en su oferta, de conformidad con lo regulado en el presente reglamento:
+a) La estructura de precio, tanto en valores absolutos como porcentuales de conformidad con lo regulado en el artículo 15 del presente reglamento.
+b) Los índices de precios propuestos para la revisión de los costos directos e indirectos de conformidad con lo regulado en el Capítulo II del presente reglamento.
+c) La documentación probatoria (factura proforma o documento equivalente) para sustentar el costo, ello en caso de que se aplique el método analítico-documental de conformidad con lo establecido en
+los artículos 14, 58 y 60 del presente reglamento.
+El adjudicatario deberá presentar el presupuesto detallado acorde con la estructura de precio de la oferta, así como la vinculación de los índices de precios y/o la documentación probatoria aportada en su oferta, asociada a cada uno de los costos directos e indirectos de dicho presupuesto; todo lo anterior, dentro del plazo de ocho días hábiles posteriores a la firmeza de la adjudicación y antes de la suscripción de la formalización contractual.
+La "no objeción" de la pertinencia de los índices de precios y/o de la documentación probatoria deberá ser emitida por la Administración que promueve la compra consolidada, de conformidad con el artículo 13 y/o 59 del presente reglamento, según corresponda.
+Para efectos del cálculo de la revisión de precios se determinará con base en las fórmulas matemáticas establecidas en los artículos 51, 53 o 54 y 57 del presente reglamento, según corresponda, y de acuerdo con los valores de los índices del mes calendario de la presentación de la oferta y del mes calendario de las fechas pactadas en la contratación.

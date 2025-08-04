@@ -1,0 +1,13 @@
+SECCIÓN IV
+Revisión de precios en las valoraciones de pago por la entrega de bienes o por la prestación de
+servicios.
+Artículo 57. Revisión de precios en las valoraciones de pago por la entrega de bienes o por la prestación de servicios.
+Para el cálculo de la revisión de precios de una valoración de pago por la entrega de los bienes o por la prestación de servicios, para un determinada línea o renglón de pago, se deben tomar en cuenta las siguientes condiciones de ejecución:
+a) Aquella cantidad ejecutada acorde o adelantada a lo dispuesto en el cronograma vigente o a las fechas acordadas por las partes en caso de entrega única. El cálculo de la revisión de esa cantidad se determinará con base en la revisión del precio unitario (R pc, Rpca o Rp cae), según corresponda, calculado a partir de los valores de los índices de precios correspondientes al mes calendario de la ejecución de dicha cantidad.
+b) Aquella cantidad ejecutada que no es acorde con lo dispuesto en el cronograma vigente o a las fechas acordadas por las partes en caso de entrega única, porque su entrega o prestación fue atrasada por causas imputables al contratista. El cálculo de la revisión de esa cantidad se determinará con base en la revisión del precio unitario (R pc, R pca o Rpcae), según corresponda, calculado a partir de los valores de los índices de precios correspondiente al mes calendario en que originalmente se consignó la entrega o prestación de tal cantidad.
+Para el cálculo de la revisión de precios de la valoración de pago por la entrega de los bienes o por la prestación de servicios, se aplicará la siguiente fórmula:
+[imagen]
+En donde,
+R re : Representa el monto de la revisión del precio de las cantidades aprobadas en la valoración de pago por la entrega de los bienes o por la prestación de servicios para las líneas o los renglones de pago correspondientes.
+Rpcc : Representa el monto de la revisión del precio unitario contractual de la línea o del renglón de pago, (Rpc , Rpca o RPcae ), según corresponda, para el mes calendario específico de acuerdo con la condición de ejecución conforme a lo regulado en los incisos a) y b) del presente artículo. Dicho monto será determinado de conformidad con la fórmula establecida en los artículos 51, 53 o 54 del presente reglamento, según corresponda.
+C, : Cantidad aprobada en la valoración de pago por la entrega de los bienes o por la prestación de servicios, de las líneas o los renglones de pago, de acuerdo con las condiciones de su ejecución, ya sea acorde, adelantada o atrasada con respecto al mes calendario dispuesto en el cronograma vigente o al correspondiente de las fechas acordadas por las partes en caso de entrega única.

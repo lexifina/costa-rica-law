@@ -1,0 +1,9 @@
+Artículo 55. Fórmula de revisión de precios del pago anticipado de los costos directos de los insumos.
+Cuando la Administración haya efectuado el pago anticipado de los costos directos de los insumos, de conformidad con lo establecido en el artículo 52 del presente reglamento, la revisión de precios del pago anticipado se determinará por una única vez, según se demuestre la variación de los costos directos de los insumos, de conformidad con la siguiente fórmula:
+[imagen]
+En donde,
+RA : Representa el monto de la revisión del pago anticipado para cada línea o renglón de pago.
+a : Representa el valor porcentual del pago anticipado, para cubrir exclusivamente los costos directos de los insumos, con respecto al monto contractual conforme a la moneda ofertada. Dicho porcentaje se determinará dividiendo el monto del pago anticipado otorgado para cubrir exclusivamente los costos directos de los insumos entre el monto contractual.
+Mrp: Representa el monto total de cada línea o renglón de pago. Dicho monto es determinado a partir de la multiplicación del precio unitario por la cantidad total de la línea o del renglón de pago.
+[imagen] Representa la sumatoria de cada ponderac1on en valor porcentual de los costos directos de insumos con respecto al monto total de los costos directos de insumos, que serán revisados mediante índices, multiplicada por la variación de los índices de precios de insumos, cuya sumatoria de estos valores porcentuales será de un 100% ( cien por ciento). Dicha variación se obtiene de dividir el índice del mes calendario en que se otorgó el pago anticipado entre el índice del mes calendario de la presentación de la oferta y restarle la unidad.
+A efectos de determinar la revisión de precios del pago anticipado otorgado, se requiere que la fórmula matemática del presente artículo sea aplicada para todas las líneas o los renglones de pago que conforman el monto contractual.

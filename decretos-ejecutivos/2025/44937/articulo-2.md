@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento resulta aplicable para los contratos que se ejecuten con base en la Ley General de Contratación Pública, Ley Nº9986, y el Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo Nº43808-H.

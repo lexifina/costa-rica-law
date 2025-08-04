@@ -1,0 +1,9 @@
+CAPITULO V
+Reajustes y revisión de precios en compras consolidadas
+SECCIÓNI
+Reajustes en compras consolidadas de obra pública estandarizada.
+Artículo 36. Regulaciones especiales para el reajuste de precios en un contrato de obra con características estandarizadas.
+Para efectos del reajuste de precios en las contrataciones promovidas mediante una compra consolidada de obra pública con características y especificaciones técnicas fácilmente estandarizadas, la Administración que promueva esta modalidad, deberá cumplir con las regulaciones del presente reglamento para cada una de las etapas del procedimiento, independientemente si se utiliza un sistema abierto o cerrado. Dichas regulaciones deberán ser concordantes con las características propias del sistema (abierto o cerrado) y el modelo establecido ( con precio desde la oferta o con cotización).
+Las regulaciones del presente reglamento serán obligatorias tanto para la Administración que promueve el procedimiento, como para las administraciones usuarias del mismo. Ello con el fin de que las partes dispongan de la información necesaria a efectos de asegurar la adecuada determinación del reajuste de precios, según lo regulado en el artículo 43 de la Ley General de Contratación Pública y los artículos 107 y 108 del Reglamento a la Ley General de Contratación Pública.
+Para el caso de la inclusión de una nueva opción de negocio, no contratada originalmente en la compra consolidada, los cálculos del reajuste de precios se determinarán con base en la estructura de precio de conformidad con los índices del mes calendario de la fecha de presentación de la oferta de esa nueva opción de negocio, aplicando para ello todo lo regulado en el presente reglamento.
+En el caso de mejoras o descuentos de precios en las opciones de negocio durante la ejecución contractual, ya sea de manera temporal o definitiva, el precio no podrá ser objeto de reajuste durante el período de la mejora y/o descuento.

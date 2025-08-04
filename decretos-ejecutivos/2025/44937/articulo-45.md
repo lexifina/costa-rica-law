@@ -1,0 +1,9 @@
+Artículo 45. Documentos anexos del cronograma para contratos de bienes y servicios.
+Para efectos de la determinación de la revisión de precios y para la correcta trazabilidad de la ejecución contractual, todo cronograma elaborado por el contratista deberá acompañarse de un informe de apoyo que incluya, cuando corresponda, al menos lo siguiente:
+a) Las jornadas laborales diarias ( diurnas, nocturnas, mixta u otras que el ordenamiento jurídico faculte) y semanales de trabajo que prevé adoptar el contratista, conforme a las regulaciones del pliego de condiciones y el contrato o documento equivalente.
+b) Recursos y costos asignados por entrega de bienes y prestación de servicios, tales como cantidades y tipo de personal, maquinaria y equipo a utilizar y sus respectivos rendimientos.
+c) Una descripción general de los procedimientos operativos que prevé adoptar el contratista para la ejecución del contrato.
+d) Descripción de las actividades planificadas para la entrega de los bienes o prestación de los servicios, vinculadas a las líneas o los renglones de pago del contrato. Cada actividad debe especificar la línea o el renglón de pago asociado, identificando su respectivo código, todo ello con el fin de dar trazabilidad a la determinación objetiva del pago y de la revisión de los precios.
+e) Cantidades planificadas de la entrega de los bienes o la prestación de los servicios en cada mes calendario, especificando la línea o el renglón de pago contractual asociado a dicha entrega o prestación, todo de conformidad con el cronograma.
+f) Avance físico proyectado por mes calendario, tanto del objeto contractual como de las entregas de los bienes o la prestación de servicios.
+g) Programa de los desembolsos de los pagos proyectados por mes calendario que determinará la línea base del avance financiero del contrato, en función a las cantidades planificadas de la entrega de los bienes o la prestación de los servicios.

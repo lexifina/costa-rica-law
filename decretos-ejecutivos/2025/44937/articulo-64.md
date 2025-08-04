@@ -1,0 +1,3 @@
+Artículo 64. Prescripción del derecho a reclamar y caducidad ante la inactividad de las partes.
+La prescripción del derecho a reclamar el reajuste o la revisión de precios de un contrato será conforme al plazo establecido en el artículo 107 de la Ley General de Contratación Pública, salvo finiquito, según lo establecido en el artículo 190 y 291 del Reglamento a la Ley General de Contratación Pública.
+Cuando el procedimiento se paralice por más de seis meses, debido a la inactividad imputable a la administración o al contratista, operará la caducidad, conforme a lo regulado en el artículo 112 de la Ley General de Contratación Pública y artículo 292 de su reglamento.
