@@ -1,0 +1,1 @@
+Artículo 9º-Para ser encargado de centro de votación, se requiere, como mínimo, cumplir los requisitos establecidos para la persona auxiliar electoral. En su designación se preferirá a quienes sean docentes o personas funcionarias de la institución o lugar que se utilizará como centro de votación.
