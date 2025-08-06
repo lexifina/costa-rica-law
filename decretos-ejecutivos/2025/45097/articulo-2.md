@@ -1,0 +1,9 @@
+Artículo 2.- Adiciónense los artículos 7 bis y 20 bis al "Reglamento de Organización y Funcionamiento de los Comités Locales de FacWtación del Comercio y Creación de la Figura del Coordinador de Frontera", Decreto Ejecutivo Nº 43054-H-COMEX del 10 de marzo de 2021, cuyos textos dirán:
+"Artículo 7 bis.- Suplencia
+Los representantes propietarios del sector público, privado y del sector productivo de conformidad con el artículo 7, tendrán su respectivo suplente, quien podrá asistir a las sesiones del Comité Local, con voz y voto, cuando el miembro propietario no pueda asistir.
+Los representantes suplentes del sector público serán designados por el ente público respectivo.
+Los representantes suplentes del sector privado y del sector productivo serán designados en cada Comité por las mismas organizaciones encargadas de nombrar los representantes propietarios de conformidad con el artículo 13, deberán cumplir con los mismos requerimientos establecidos para los propietarios, y serán designados por un período de cuatro años. "
+"Artículo 20 bis.-Invitados permanentes.
+Podrán participar en todas las sesiones de los Comités Locales, un representante de los operadores y/o concesionarios, y/o gestores interesados de los puertos, aeropuertos y puestos fronterizos terrestres, quienes participarán en calidad de invitados permanentes, solo con derecho a voz.
+El coordinador de frontera o cualquier otro representante del Ministerio de Comercio Exterior participará en las sesiones de los Comités Locales en calidad de invitado permanente, solo con derecho a voz.
+En las sesiones del Comité Local de Puertos del Atlántico participará un representante de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) y en las sesiones del Comité Local de Caldera un representante del Instituto Costarricense de Puertos del Pacifico (INCOP), quienes participarán en calidad de invitados permanentes, solo con derecho a voz. "
