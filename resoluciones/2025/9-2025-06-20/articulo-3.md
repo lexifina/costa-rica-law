@@ -1,0 +1,1 @@
+Artículo 3°—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta y hasta la fecha en que la Administración Tributaria comunique oficialmente en su sitio web www.hacienda.go.cr el inicio de operaciones del sistema TRIBU-CR.
