@@ -1,0 +1,2 @@
+Artículo 40.- Sobre el reconocimiento. El galardón consistirá en una medalla de cuatro centímetros de diámetro cuyo material será en plata 925, mismo que, llevará la leyenda "RECONOCIMIENTO TERESITA RODRÍGUEZ ARROYO A LA EFICIENCIA Y EFICACIA EN LA LABOR JURISDICCIONAL", el logo de la Diosa de la Justicia y las demás indicaciones estipuladas por la Corte Plena".
+(Así adicionado mediante circular N° 01-2025 del 6 de agosto de 2025)
