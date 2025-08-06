@@ -20,3 +20,4 @@ Reglamento del concejo municipal de Moravia
 | 5 | 2022-08-03 | Reglamento municipal 118 (2022-08-03) |
 | 6 | 2022-12-26 | Reglamento municipal 139 (2022-12-26) |
 | 7 | 2024-04-08 | Reglamento municipal 0 (2024-04-08) |
+| 8 | 2025-08-06 | Reglamento municipal 0 (2025-08-06) |
