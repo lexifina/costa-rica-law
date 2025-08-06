@@ -1,0 +1,1 @@
+Artículo 9.- Prohibición de publicidad. Se prohíbe la realización de todo tipo de publicidad, por cualquier medio de comunicación y/o plataformas digitales, sobre las terapias convencionales con células madre adultas y/o plasma rico en plaquetas de uso autólogo.

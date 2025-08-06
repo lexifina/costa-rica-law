@@ -1,0 +1,5 @@
+Artículo 6.- Personas profesionales facultadas para el uso y aplicación de terapias convencionales con células madre adultas y/o plasma rico en plaquetas de uso autólogo. El uso y la administración de terapias convencionales con células madre adultas y/o plasma rico en plaquetas de uso autólogo, deberán ser realizados por los siguientes profesionales, quienes deberán encontrarse inscritos y activos en el colegio profesional correspondiente, por lo cual no deberán de gestionar una autorización adicional, quedando sujetos a verificación en el marco de las inspecciones ordinarias de vigilancia y control, conforme a lo dispuesto en el artículo 10 del presente reglamento:
+a) Medicina y Cirugía.
+b) Cirujano Dentista.
+Estos profesionales deberán aplicar dichas terapias dentro del marco de las competencias establecidas por su respectivo colegio profesional.
+Por otro lado, el personal profesional de enfermería podrá administrar células madre adultas para uso autólogo y/o PRP de uso autólogo, únicamente bajo indicación y supervisión médica, dentro del ámbito de las competencias delegadas y en cumplimiento de la normativa vigente que regula la práctica de la enfermería.

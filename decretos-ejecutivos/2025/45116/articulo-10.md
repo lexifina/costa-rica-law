@@ -1,0 +1,1 @@
+Artículo 10.- Vigilancia y control. Las autoridades de salud están facultadas para realizar en cualquier momento inspecciones de vigilancia y control ya sea de oficio, en seguimiento a actos administrativos o en atención a denuncias.

@@ -1,0 +1,1 @@
+Artículo 12.- Derogatoria. Se deroga el Decreto Ejecutivo Nº 39986-S del 14 de setiembre del 2016 "Autorización para las Terapias Regenerativas con Células Madre Adultas", publicado en el Alcance N° 250 a La Gaceta N° 214 del 8 de noviembre del 2016.
