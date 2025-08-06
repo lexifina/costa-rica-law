@@ -1,0 +1,19 @@
+Artículo 9.- Del Delegado Principal.
+1.- Cada institución, órgano o ente público deberá designar para cada foro, comité u otro órgano de la OCDE en el que participe, un Delegado Principal quien representará a Costa Rica ante estos.
+2.- La designación de un Delegado Principal no excluye la posibilidad de que la institución, órgano o ente público nombre otros delegados adicionales que participen y representen al país en foros, comités sustantivos u otros órganos de la OCDE.
+3.- Las funciones del Delegado Principal serán:
+a.- Revisar periódicamente y mantener actualizado el calendario anual de reuniones de los foros, comités u otros órganos de la OCDE en los que participe.
+b.- Realizar las previsiones y gestiones administrativas necesarias para asegurar su participación en las actividades de los foros, comités u otros órganos de la OCDE donde ejerce representación.
+c.- Participar activamente en los foros, comités u otros órganos de la OCDE donde ejerce representación.
+d.- Mantener activa y actualizada cualquier herramienta tecnológica que la OCDE ponga a disposición de los delegados nacionales y sus pares internacionales, para coadyuvar en el desempeño de sus funciones.
+e.- Posicionar los intereses nacionales en las agendas de trabajo y en los procesos de consulta y de construcción de los "Programas de Trabajo y Presupuesto" (Programme of Work and Budget PWB) de los foros, comités u otros órganos de la OCDE en los que participe.
+f.- Revisar y analizar los documentos generados por la OCDE de previo a que sean discutidos en las reuniones o sesiones de los foros, comités u otros órganos de la OCDE, así como gestionar las consultas requeridas por éstos.
+g.- Contribuir y brindar retroalimentación cuando lo soliciten los foros, comités u otros órganos en los que participe, dentro de los plazos establecidos, respecto de los documentos generados por la OCDE.
+h.- Coordinar y preparar las posiciones y las intervenciones que serán utilizadas en las reuniones y/o eventos de los foros, comités u otros órganos de la OCDE, en conjunto con otras instituciones, órganos y entes públicos de ser requerido.
+i.- Brindar seguimiento directo y oportuno a las labores de los foros, comités u otros órganos de la OCDE y coordinar con el enlace institucional para asuntos de la OCDE, otros funcionarios de su institución o de otras instituciones, órganos y entes públicos, cuando sea necesario, para la construcción de posiciones, encuestas, estudios u otras iniciativas que se deriven de esta participación, entre otras acciones y actividades requeridas en el descargo de sus funciones.
+j.- Preparar informes de los resultados de las reuniones de los foros, comités u otros órganos de la OCDE en las que participe y compartirlos con su enlace institucional para asuntos de la OCDE, así como con los jerarcas y equipos que correspondan.
+k.- Asegurar la recopilación, organización, resguardo y accesibilidad de la documentación relacionada con la participación del país en la OCDE, con el fin de optimizar la gestión y el seguimiento las labores relacionadas con dicha Organización.
+l.- Explorar y generar oportunidades de trabajo conjunto con otros delegados nacionales, pares internacionales y la OCDE, que permitan aprovechar la labor de la organización de acuerdo con las prioridades del país.
+m.-Brindar al enlace institucional para asuntos de la OCDE los insumos que permitan la alimentación oportuna del mecanismo interno de seguimiento de las recomendaciones y los compromisos derivados de la membresía del país a la OCDE.
+n.- Participar en los talleres de capacitación para los delegados que se organicen para fortalecer las habilidades que permitan su buen desempeño.
+o.- Cualquier otra que le sea encomendada por el Jerarca o requerida para el ejercicio de la función de enlace, coordinación y representación.
