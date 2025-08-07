@@ -22,3 +22,4 @@ Suministro general de la información previsiblemente pertinente, derivada de la
 | 7 | 2021-02-25 | Resolución 11 (2021-02-25) |
 | 8 | 2021-11-10 | Resolución 31 (2021-11-10) |
 | 9 | 2025-06-27 | Resolución 11 (2025-06-27) |
+| 10 | 2025-08-07 | Resolución 41 (2025-08-07) |

@@ -39,7 +39,9 @@ c. D-152 "Declaración anual resumen de retenciones impuestos únicos y definiti
 d. D-153 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas".
 e. D-155 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas e impuesto sobre la renta"
 f. D-157 "Declaración trimestral resumen de impuesto de salida del territorio nacional".
+(Así derogado el inciso anterior por el artículo 11 de la resolución N° MH-DGT-RES-0041-2025 del 7 de agosto del 2025 "Resolución sobre el uso de los Formularios de Declaraciones Informativas denominadas: "Informativa Resumen de Impuesto de Salida del Territorio Nacional por vía aérea" e "Informativa de Compras y Ventas en Subastas Agropecuarias")
 g. D-158 "Declaración anual, compras y ventas subastas agropecuarias".
+(Así derogado el inciso anterior por el artículo 11 de la resolución N° MH-DGT-RES-0041-2025 del 7 de agosto del 2025 "Resolución sobre el uso de los Formularios de Declaraciones Informativas denominadas: "Informativa Resumen de Impuesto de Salida del Territorio Nacional por vía aérea" e "Informativa de Compras y Ventas en Subastas Agropecuarias")
 h. D-160 "Declaración trimestral resumen de impresión de facturas y otros documentos".
 i. D-161 "Declaración trimestral resumen de cajas registradoras".
 Cada uno de los modelos de declaración informativa, en adelante "declaración", debe incluir la información de todas sus oficinas, agencias y sucursales de forma consolidada, según corresponda.
