@@ -1,0 +1,10 @@
+Artículo 9- Reubicación de infraestructura de soporte dentro de propiedad privada. Para toda solicitud de reubicación o retiro de infraestructura de soporte (postes o retenidas), es necesario que el interesado tramite un estudio de ingeniería, cumpliendo los requisitos técnicos y administrativos establecidos para tal fin según el reglamento de servicios vigente.
+La reubicación de infraestructura de soporte dentro de propiedad privada, lo definirá el resultado del estudio de ingeniería y su ejecución por parte de JASEC estará sujeta a la inclusión de las obras en los planes de inversión correspondientes y su respectiva asignación presupuestaria.
+Cada solicitud se analizará desde el ámbito técnico y legal, tomando como base el plano de catastro, la certificación literal de la propiedad, alineamiento municipal y vial, en caso de las vías nacionales, el alineamiento emitido por el MOPT.
+La reubicación de infraestructura de soporte dentro de propiedad privada correrá por cuenta y costo de JASEC bajo los siguientes escenarios:
+a. Cuando dentro de propiedad privada exista infraestructura de soporte pertenecientes a JASEC que afecte, obstaculice o impidan el accionar personal o comercial del propietario afectado.
+b. Cuando se evidencia que la infraestructura de soporte propiedad de JASEC represente un riesgo inminente para la seguridad de la vida y la propiedad.
+c. En atención a un convenio entre empresas públicas previamente acordado.
+La reubicación de infraestructura de soporte dentro de propiedad privada correrá por cuenta y costo de interesado bajo los siguientes escenarios:
+a. Cuando la infraestructura de soporte no sea propiedad de JASEC.
+b. Cuando la infraestructura de soporte representa un riesgo inminente para la infraestructura de JASEC, seguridad de la vida y la propiedad, se procederá a coordinar con el dueño de inmueble para la desconexión de la infraestructura eléctrica, con la finalidad de que el interesado proceda con la reparación respectiva, según artículo 65 de la normativa SUCOM.
