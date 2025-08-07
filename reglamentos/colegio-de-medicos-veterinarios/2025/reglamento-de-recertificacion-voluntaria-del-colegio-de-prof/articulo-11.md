@@ -1,0 +1,2 @@
+Artículo 11.- Los miembros de la Comisión durarán en sus funciones dos años y podrán ser reelectos en forma sucesiva. Se renovarán anualmente de la siguiente manera: un año la mitad de sus miembros y el año siguiente la otra mitad.
+En caso de renuncia o incapacidad del representante elegido por la Asamblea, la Junta Directiva nombrará un sustituto de forma temporal hasta que la siguiente Asamblea General nombre a un nuevo representante por lo que resta del período.

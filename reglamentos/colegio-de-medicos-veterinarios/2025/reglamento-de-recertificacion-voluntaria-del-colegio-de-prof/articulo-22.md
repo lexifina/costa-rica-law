@@ -1,0 +1,1 @@
+Artículo 22.- La solicitud de créditos por parte de la EPEC debe ser presentada ante la Comisión en el formato aprobado y designado por el Colegio con anterioridad al evento e inclusive hasta 3 meses después.

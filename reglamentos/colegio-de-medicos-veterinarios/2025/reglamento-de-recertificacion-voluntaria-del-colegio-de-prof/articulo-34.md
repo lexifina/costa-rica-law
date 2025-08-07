@@ -1,0 +1,1 @@
+Artículo 34.- Todas las actividades organizadas por el Departamento de Asuntos Académicos del Colegio de Profesionales en Medicina Veterinaria obtendrán automáticamente los créditos según corresponda cada actividad.

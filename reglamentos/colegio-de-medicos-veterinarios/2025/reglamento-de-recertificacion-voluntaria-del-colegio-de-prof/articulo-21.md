@@ -1,0 +1,2 @@
+CAPÍTULO 5: ENTIDAD PRESTADORA DE EDUCACIÓN CONTINUA
+Artículo 21.- En caso de que una o más EPEC se unan para realizar una actividad de educación continua, una de estas debe asumir la responsabilidad por la misma y así debe indicarse en los materiales. El prestador responsable, debe exigir que los demás prestadores cumplan con los requisitos que igualen o excedan el mínimo de los lineamientos incluidos en este reglamento.

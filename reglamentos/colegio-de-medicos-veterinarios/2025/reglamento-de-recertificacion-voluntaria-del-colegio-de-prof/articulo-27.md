@@ -1,0 +1,1 @@
+Artículo 27.- La EPEC debe entregar el certificado de participación a cada asistente con la leyenda: "Esta actividad educativa cuenta con (N°) créditos otorgados por la Comisión de Recertificación del Colegio de Profesionales en Medicina Veterinaria.
