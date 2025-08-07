@@ -1,0 +1,3 @@
+Artículo 20. Pronunciamiento sobre la admisibilidad de las candidaturas inscritas. El Tribunal de Elecciones Internas (TEI) deberá emitir su resolución sobre la admisibilidad de las candidaturas inscritas el mismo día en que venza el plazo de inscripción.
+Si alguna candidatura hubiera sido objeto de prevención por errores materiales, el pronunciamiento oficial se comunicará una vez vencido el plazo otorgado para subsanar dichos errores y resueltas las observaciones correspondientes.
+El pronunciamiento deberá ser divulgado de forma inmediata a través de los medios oficiales de comunicación del Colegio, tales como redes sociales institucionales, boletines informativos, correo electrónico u otros canales que habitualmente se utilicen para informar a los agremiados.

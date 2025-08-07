@@ -1,0 +1,4 @@
+Artículo 16.- Procedimiento en caso de empate. En caso de empate entre dos o más papeletas con el mayor número de votos válidos en una elección ordinaria, la decisión final se tomará en una segunda ronda de votación, que se llevará a cabo en la Asamblea General Ordinaria en la que se conocerían los resultados de las elecciones.
+En esta segunda ronda, únicamente participarán las papeletas que hayan resultado empatadas en el primer lugar. El Tribunal de Elecciones Internas adoptará las medidas administrativas y logísticas que considere necesarias para garantizar la correcta realización del proceso de desempate.
+Para esta elección no será necesaria la publicación en medios externos; bastará con la comunicación mediante los canales institucionales del Colegio.
+Si persistiere el empate en esta segunda ronda, se declarará electo el postulante de mayor edad entre los empatados.

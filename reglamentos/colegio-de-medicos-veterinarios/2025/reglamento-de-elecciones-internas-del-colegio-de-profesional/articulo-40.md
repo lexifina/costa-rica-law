@@ -1,0 +1,1 @@
+Artículo 40. Generación y comunicación de resultados. Una vez cerrado el sistema de votación electrónica, se generarán los informes necesarios para determinar los resultados. Estos serán entregados al Tribunal de Elecciones Internas, el cual los comunicará por medio del Boletín Interno del Colegio y cualquier otro medio oficial de comunicación institucional.

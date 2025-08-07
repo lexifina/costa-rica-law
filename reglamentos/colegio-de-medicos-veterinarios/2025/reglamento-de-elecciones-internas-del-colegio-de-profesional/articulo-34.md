@@ -1,0 +1,1 @@
+Artículo 34. Participación electoral y votos válidos. En el proceso electoral podrán participar todos los miembros activos del Colegio. Se entiende por miembro activo aquel colegiado que se encuentra debidamente incorporado, con su colegiatura al día y sin sanciones vigentes que limiten sus derechos como agremiado.

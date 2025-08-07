@@ -1,0 +1,2 @@
+Artículo 23. Derecho al voto en elecciones extraordinarias. En las elecciones extraordinarias del Colegio, podrán ejercer su derecho al voto todos los colegiados que cuenten con los requisitos establecidos para integrar la Asamblea General, conforme a la normativa interna vigente.
+Este derecho corresponde exclusivamente a quienes se encuentren activos y al día con sus obligaciones colegiales al momento de la elección.

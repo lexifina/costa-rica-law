@@ -1,0 +1,1 @@
+Artículo 39. Cierre del sistema de votación electrónica. La votación electrónica concluirá en el horario previamente establecido en la convocatoria del proceso electoral. Los usuarios que hayan ingresado al sistema antes de la hora de cierre podrán mantener activa su sesión hasta completar el voto. Vencido el plazo, el sistema deshabilitará automáticamente la opción de votar.

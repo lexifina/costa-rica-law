@@ -1,0 +1,1 @@
+Artículo 41. Constancia de voto. Si la votación se realiza de forma presencial, una vez emitido el sufragio, el presidente o el Auxiliar del Tribunal de Elecciones Internas escribirá, de su puño y letra, en el margen derecho del padrón electoral junto al nombre del votante, la leyenda: "sí votó".

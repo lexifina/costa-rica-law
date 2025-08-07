@@ -1,0 +1,3 @@
+Artículo 9.- De la elección general. La elección general de la Junta Directiva y de la Fiscalía del Colegio de Profesionales en Medicina Veterinaria de Costa Rica se realizará mediante elección abierta, a celebrarse en la segunda semana del mes de noviembre de cada año.
+Serán electores todos los colegiados activos, de conformidad con lo que disponga el padrón electoral correspondiente.
+Corresponderá al Tribunal de Elecciones Internas establecer, en la convocatoria respectiva, el día específico dentro de dicha semana en que se llevarán a cabo las votaciones, así como el horario en que estas se desarrollarán.

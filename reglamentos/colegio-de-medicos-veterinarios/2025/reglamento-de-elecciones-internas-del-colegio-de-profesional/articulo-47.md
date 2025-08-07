@@ -1,0 +1,1 @@
+Artículo 47. Derogatoria y entrada en vigor. El presente Reglamento deroga el Reglamento Interno de Elecciones previamente aprobado por la Asamblea General del Colegio de Profesionales en Medicina Veterinaria de Costa Rica, así como cualquier otra disposición normativa de igual rango que regule la materia electoral dentro del Colegio.
