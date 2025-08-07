@@ -1,2 +1,0 @@
-Artículo 67.-Las instalaciones mecánicas como ascensores, bombas elevadoras de agua y afines, que produzcan ruidos que sean molestos para los moradores de la edificación, deberán contar con el aislamiento acústico necesario para que el ruido quede confinado y se instalarán en condiciones que impidan la transmisión de trepidaciones. Su ubicación e instalación deberá hacerse en áreas comunes.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 57 al 67)

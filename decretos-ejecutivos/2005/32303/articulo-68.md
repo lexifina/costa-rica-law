@@ -1,3 +1,0 @@
-Artículo 68.-Los sistemas de agua potable, aguas residuales, aguas pluviales, instalaciones eléctricas, telecomunicaciones y cualquier otro sistema de servicios, deberán conducirse, cuando se trate de edificaciones a nivel de terreno, a través de áreas comunes; cuando se trate de condominios verticales deberán instalarse en ductos que pueden ser horizontales o verticales.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 58 al 68)

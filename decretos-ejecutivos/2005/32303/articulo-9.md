@@ -1,1 +1,0 @@
-Artículo 9º—Las áreas comunes incluirán los espacios de circulación, aquellas áreas destinadas para la administración, a la infraestructura de servicios públicos, almacenamiento, proceso, esparcimiento y cualquier otro uso necesario para su adecuado o mejor aprovechamiento.

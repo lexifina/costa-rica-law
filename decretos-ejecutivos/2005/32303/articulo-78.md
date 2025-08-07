@@ -1,2 +1,0 @@
-Artículo 78.-Los planos que se elaboren para la desafectación deberán ser confeccionados y firmados por un profesional en agrimensura y ser presentados al INVU, Ministerio de Salud y Municipalidad respectiva, a fin de obtener la aprobación de estas instituciones, conforme a sus respectivas competencias.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 68 al 78)

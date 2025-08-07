@@ -1,2 +1,0 @@
-Artículo 62.-En condominios mayores de sesenta fincas filiales o de tres mil quinientos metros cuadrados incluyendo el área de estacionamientos, que estén destinados a vivienda, comercio, oficinas, bodegas o cualquier otro uso lícito, se deberá construir un espacio común de dieciséis metros cuadrados como mínimo, que servirá como taller de mantenimiento que incluya un servicio sanitario.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 52 al 62)

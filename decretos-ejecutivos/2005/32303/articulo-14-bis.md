@@ -1,2 +1,0 @@
-Artículo 14 BIS.—Sin detrimento de la privacidad requerida por el condominio, el mismo deberá integrarse con la vialidad existente, para lo cual realizará todas las coordinaciones pertinentes con la Municipalidad o el Ministerio de Obras Públicas y Transportes, según corresponda. En el caso de la vialidad oficial proyectada, se deberá coordinar con la Municipalidad a efectos de que el condominio procure alinearse con esas propuestas.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)

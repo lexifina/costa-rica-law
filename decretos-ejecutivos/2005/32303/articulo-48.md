@@ -1,2 +1,0 @@
-Artículo 48.-En todos los condominios las áreas comunes pueden ser restringidas o de uso general. Asimismo, dentro de esas áreas comunes se podrán asignar espacios o instalaciones a determinadas fincas filiales, siempre y cuando las áreas comunes excedan el área indicada en este Reglamento.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 38 al 48)

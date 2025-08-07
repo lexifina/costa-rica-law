@@ -1,2 +1,0 @@
-Artículo 38. Terminación. En el caso de terminación de una concesión filial, el concesionario original de la Marina o Atracadero, asumirá en forma plena los derechos y obligaciones que corresponden al respectivo condómino. Si todos los derechos de concesiones filiales fueren cancelados, incluido el derecho del concesionario original, la concesión volverá a la Municipalidad, o al Instituto Costarricense de Turismo para el caso del Proyecto Turístico Golfo de Papagayo.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022)

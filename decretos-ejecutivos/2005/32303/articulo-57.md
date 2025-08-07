@@ -1,2 +1,0 @@
-Artículo 57.-La estructura de las escaleras comunes, los pasillos y los vestíbulos de acceso o distribución deben ser de concreto armado o con materiales resistentes al fuego de dos horas como mínimo. Dichos elementos no podrán revestirse con materiales combustibles.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 47 al 57)

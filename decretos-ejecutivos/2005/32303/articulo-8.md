@@ -1,1 +1,0 @@
-Artículo 8º—Los condominios horizontales con edificaciones podrán incluir áreas destinadas a patios de luz, patios de tendido o similares, que pueden ser parte del área privativa de la finca filial o áreas comunes de uso restringido a la filial que corresponda.

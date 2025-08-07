@@ -1,2 +1,0 @@
-Artículo 84.-La aprobación mencionada en el artículo anterior debe indicar además a nombre de quién o quienes se inscribirá la o las concesiones resultantes, así como cualquier modificación al contrato original de otorgamiento. Para su plena validez, dicho acuerdo deberá protocolizarse e inscribirse en la Sección de Concesiones del Registro Público.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 74 al 84)

@@ -1,1 +1,0 @@
-Artículo 21.—Una vez obtenidas las autorizaciones previstas en el artículo anterior, el concesionario deberá someter a trámite los planos ante las entidades respectivas, presentando los planos del anteproyecto o proyecto del condominio ante la ventanilla única ubicada en la Dirección de Urbanismo del INVU, a fin de obtener su aprobación.

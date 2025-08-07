@@ -1,2 +1,0 @@
-Artículo 41.-Cuando se constituyan condohoteles bajo el régimen de concesión, las densidades establecidas en los planes reguladores para los lotes hoteleros, se aplicarán a la finca matriz respectiva, en el caso del condominio construido. Para condominio de lotes, a falta de regulación especí.ca, se aplicará a cada finca filial las áreas y dimensiones mínimas para lotes, que establezca el plan regulador respectivo.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 31 al 41)

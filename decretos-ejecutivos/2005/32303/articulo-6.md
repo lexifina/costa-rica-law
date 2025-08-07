@@ -1,2 +1,0 @@
-Artículo 6º—Para obtener la aprobación de los planos de un condominio que se vaya a desarrollar en etapas, es necesario realizar el trámite del Anteproyecto ante la Municipalidad respectiva y las instituciones competentes de conformidad con lo establecido en el decreto ejecutivo N° 36550-MP-MIVAH-S-1VIEIC Reglamento para el Trámite de Revisión de los Planos para la Construcción y sus reformas.
-(Así reformado por el artículo 1° del decreto ejecutivo N°41152 del 3 de mayo de 2018)

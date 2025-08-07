@@ -1,2 +1,0 @@
-Artículo 72.-Los sistemas eléctricos en un condominio, deberán tener tableros de control independiente, tanto para las áreas de uso común y de los servicios generales, como para cada unidad del condominio. De ser necesaria una subestación eléctrica, ésta deberá ubicarse en un área común, y su diseño, características y dimensiones deberán cumplir con la normativa vigente en la materia.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 62 al 72)

@@ -1,2 +1,0 @@
-Artículo 58.-No se podrán colocar muros, verjas o setos que segreguen una porción del área común para el uso exclusivo de algún propietario, salvo cuando el proyecto del complejo contemple espacios de terreno para uso exclusivo de uno o más propietarios. Estas áreas mantendrán su calidad de bienes comunes de uso restringido.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 48 al 58)

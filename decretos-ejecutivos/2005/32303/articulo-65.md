@@ -1,2 +1,0 @@
-Artículo 65.-En los condominios a desarrollarse por etapas, el área destinada a zona verde, juegos infantiles, parques y áreas recreativas se calculará independientemente para cada etapa, de tal forma que no podrá exigirse que la misma sea mayor al 10% de la superficie de cada una de ellas, o veinte metros cuadrados por cada lote, cualquiera que sea mayor.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 55 al 65)

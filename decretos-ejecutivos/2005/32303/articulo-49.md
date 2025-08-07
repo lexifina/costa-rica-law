@@ -1,2 +1,0 @@
-Artículo 49.-La finca matriz de cada condominio deberá respetar los retiros frontales que estipulen la Ley y el Reglamento de Construcciones o el Plan regulador Vigente. En cuanto a las fincas filiales o unidades privativas en condominios horizontales deberán respetar los retiros laterales y posteriores que estipulen el Reglamento del Condominio y Administración y el Plan regulador del cantón.
-(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 39 al 49)
