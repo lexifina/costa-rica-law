@@ -1163,6 +1163,77 @@ Anexo 60. Estados Financieros de Centrales de Valores.xlsx.")
 (Nota de Sinalevi: Mediante el acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025, se reformó el anexo N° 31. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma: B.- Modificar el Anexo 31 "Reporte de Superávit o déficit patrimonial" para que en adelante se lea de la forma que se indica en el archivo siguiente:
 ")
 (Nota de Sinalevi: Mediante el acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025, se acordó derogar la periodicidad, contenido y medios de remisión de los siguientes anexos: Anexo 44. Informe de participaciones significativas, Anexo 48. Información sobre Ofertas y Transacciones y Anexo 37. Reporte trimestral de inversiones en títulos internacionales)
+(Nota de Sinalevi: Mediante el literal a) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modificar el anexo 10 -Reporte de inversiones propias- y el plazo para la entrega del -Reporte cartera de inversiones propias Puestos de Bolsa- señalado en el Cuadro de información periódica del artículo 2 del acuerdo. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma. Esta modificación rige a partir de la información con corte al 31 de enero de 2026.
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+PUESTOS DE BOLSA
+6 | Reporte cartera de inversiones propias Puestos de Bolsa | Mensual | 3 días hábiles después del cierre mensual | Anexo 10 | Sistema Ingresador
+| | | | |
+")
+(Nota de Sinalevi: Mediante el literal b) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modifica el anexo 18 -Reporte de inversiones propias- y el plazo de entrega del Reporte de inversiones propias de la SFI- señalado en el Cuadro de información periódica del artículo 2 del acuerdo. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma. Esta modificación rige a partir de la información con corte al 31 de enero de 2026.
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+SOCIEDADES ADMINISTRADORAS DE FONDOS DE INVERSIÓN
+6 | Reporte de inversiones propias de la SFI | Mensual | 3 días hábiles después del cierre mensual | Anexo 18 | Sistema Ingresador
+| | | | |
+")
+(Nota de Sinalevi: Mediante el literal c) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modifica Anexo 65, el cual detalla el contenido de la información sobre inversiones propias de las empresas que conforman los grupos financieros. Asimismo, se adiciona, en el Cuadro de información periódica del artículo 2 del acuerdo, el medio y la periodicidad con la que dicha información debe presentarse a Sugeval.. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma. Esta modificación rige a partir de marzo de 2026.
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+GRUPOS FINANCIEROS
+6 | Reporte de inversiones propias de empresas integrantes de grupos financieros | Trimestral | Un mes después del cierre trimestral | Anexo 65 | Sistema Ingresador
+| | | | |
+")
+(Nota de Sinalevi: Mediante el literal d) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modificar el anexo 42, así como el plazo para la remisión y el medio para el envío a la Sugeval, del reporte de Traspasos de valores, señalado en el Cuadro de información periódica del artículo 2 del acuerdo. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma. Esta modificación rige a partir de la información con corte al 30 de setiembre 2026.
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+PUESTOS DE BOLSA / CUSTODIOS / CENTRAL DE VALORES
+7 | Traspasos de valores | Mensual | 5 días hábiles después del cierre mensual | Anexo 42 | Sistema Ingresador
+")
+(Nota de Sinalevi: Mediante el literal e) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modificar la referencia al número de anexo, el medio de envío a la Sugeval y el plazo máximo de entrega del reporte de inversiones propias de Bolsas de Valores, señalado en el Cuadro de información periódica del artículo 2 del acuerdo. Esta modificación rige con corte al 30 de setiembre 2026.
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+BOLSAS DE VALORES Y CENTRALES DE VALORES
+5 | Reporte de inversiones propias de bolsas de valores | Mensual | 3 días hábiles después del cierre mensual | Anexo 10 | Sistema Ingresador
+| | | | |
+")
+(Nota de Sinalevi: Mediante el literal f) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó derogar el anexo 41 -Reporte de inversiones propias de bolsas de valores. Al no contener esta norma dicho anexo ya que no fueron publicados no se realiza la derogación de dicho anexo. Esta modificación rige a partir de la información con corte al 30 de setiembre 2026.)
+(Nota de Sinalevi: Mediante el literal g) del acuerdo N° SGV-A-6-2025 del 7 de agosto del 2025, se acordó modificar los plazos máximos de entrega de los informes y reportes que se señalan a continuación, en el Cuadro de información periódica del artículo 2 del acuerdo de la siguiente manera:
+INFORME O REPORTE | Periodicida d | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío
+PUESTOS DE BOLSA
+8 | Estados financieros no auditados mensuales | Mensual | 3 días hábiles después del cierre mensual | Anexo 14 | Sistema Ingresador
+11 | Reporte de Superávit o déficit patrimonial /3 | Mensual | 3 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador
+BOLSAS DE VALORES Y CENTRALES DE VALORES
+4 | Estados financieros no auditados /2 | Mensual | 3 días hábiles después del cierre mensual | Anexos 50, 51 y 60 | Sistema Ingresador
+10 | Reporte de Superávit o déficit patrimonial /1 | Mensual | 3 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador
+EMISIONES QUE CALIFIQUEN COMO VERDES SOCIALES O SOSTENIBLES 1/
+15 | Opinión del verificador externo sobre el cumplimiento de estándares nacionales o internacionales para fondos de inversión que califiquen como verdes, sociales o sostenibles | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. | SGV-A-252 Lineamiento s para emisiones verdes, sociales y sostenibles de oferta pública. | Sistema Ingresador
+16 | "Informes del uso de los fondos para fondos de inversión que califiquen como verdes, sociales y sostenibles | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. Si la verificación externa cumple con el contenido mínimo solicitado en el Anexo 3 de los | SGV-A-252 Lineamiento s para emisiones verdes, sociales y sostenibles de oferta pública | Sistema Ingresador
+| | | Lineamientos para la autorización y registro de emisiones verdes sociales y sostenibles de oferta pública, se podrá presentar únicamente la verificación externa en sustitución del informe del uso de fondos. | |
+SOCIEDADES ADMINISTRADORAS DE FONDOS DE INVERSIÓN
+5 | Estados financieros no auditados mensuales de la SFI | Mensual | 3 días hábiles después del cierre mensual | Anexo 14 | Sistema Ingresador
+8 | Reporte de Superávit o déficit patrimonial /2 | Mensual | 3 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador
+FONDOS DE INVERSIÓN
+13 | Estados financieros no auditados mensuales | Mensual | 1 día hábil después del cierre mensual | Anexo 15 | Sistema Ingresador
+14 | Reporte mensual de composición de las carteras de los fondos inmobiliarios | Mensual | 1 día hábil después del cierre mensual | Anexo 22 | Sistema Ingresador
+15 | Reporte de composición de cartera de inversionistas | Quincenal | 1 día hábil después del cierre | Anexo 17 | Sistema Ingresador
+FONDOS DE INVERSIÓN QUE CALIFIQUEN COMO VERDES, SOCIALES O SOSTENIBLES 1/
+24 | Opinión del verificador externo sobre el cumplimiento de estándares nacionales o internacionales para fondos de inversión que califiquen como verdes, sociales o sostenibles. | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. | SGV-A-252 Lineamien- tos para emisiones verdes, sociales y sostenibles de oferta pública. | Sistema Ingresador
+25 | "Informes del uso de los fondos para fondos de inversión que califiquen como verdes, sociales y sostenibles. | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. Si la verificación externa cumple con el contenido mínimo solicitado en el Anexo 3 de los Lineamientos para la autorización y registro de emisiones verdes sociales y sostenibles de oferta pública, se podrá presentar únicamente la verificación externa en sustitución del informe | SGV-A-252 Lineamien- tos para emisiones verdes, sociales y sostenibles de oferta pública. | Sistema Ingresador
+| | | del uso de fondos. | |
+SOCIEDADES TITULARIZADORAS Y FIDUCIARIAS
+5 | Estados financieros no auditados mensuales | Mensual | 3 días hábiles después del cierre mensual | Anexo 52 Titularizado- ras Y 53 Fiduciarias | Sistema Ingresador
+6 | Reporte de inversiones propias | Mensual | 3 días hábiles después del cierre mensual | Anexo 18 | Sistema Ingresador
+7 | Reporte de Superávit o déficit patrimonial /2 | Mensual | 3 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador
+UNIVERSALIDADES QUE CALIFIQUEN COMO VERDES, SOCIALES O SOSTENIBLES 1/
+15 | Opinión del verificador externo sobre el cumplimiento de estándares nacionales o internacionales para fondos de inversión que califiquen como verdes, sociales o sostenibles | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. | SGV-A-252 Lineamien- tos para emisiones verdes, sociales y sostenibles de oferta pública. | Sistema Ingresador
+16 | "Informes del uso de los fondos para fondos de inversión que califiquen como verdes, sociales y sostenibles | Anual | 3 días hábiles contados a partir de la fecha de cada aniversario de la primera verificación externa. Si la verificación externa cumple con el contenido mínimo solicitado en el Anexo 3 de los Lineamientos | SGV-A-252 Lineamien- tos para emisiones verdes, sociales y sostenibles de oferta pública. | Sistema Ingresador
+| | | para la autorización y registro de emisiones verdes sociales y sostenibles de oferta pública, se podrá presentar únicamente la verificación externa en sustitución del informe del uso de fondos. | |
+ENTIDADES DE REGISTRO CENTRALIZADO
+4 | Estados financieros no auditados | Mensual | 3 días hábiles después del cierre mensual | Anexos 63 | Sistema Ingresador
+5 | Reporte de Superávit o déficit patrimonial /2 | Mensual | 3 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador
+El plazo para el envío de la información sobre fondos indicada en el literal G anterior , será el que se indica a continuación.
+INFORME O REPORTE | Información con corte hasta el 31/julio/2026 | A partir de la información con corte al 31/agosto/2026 | A partir de la información con corte al 31/enero/2027
+FONDOS DE INVERSIÓN
+13 | Estados financieros no auditados mensuales | 5 días hábiles después del cierre mensual | 3 días hábiles después del cierre mensual | 1 días hábil después del cierre mensual
+14 | Reporte mensual de composición de las carteras de los fondos inmobiliarios
+15 | Reporte de composición de cartera de inversionistas
+")
 SGV-A-75.-Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
