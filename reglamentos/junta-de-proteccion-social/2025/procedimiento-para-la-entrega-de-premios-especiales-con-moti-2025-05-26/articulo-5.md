@@ -1,0 +1,5 @@
+Artículo 5°- Mecánicas de los Sorteos. El sorteo de esta promoción se realizará el miércoles 17 de setiembre del 2025 a partir de las 7:00 am entre todas las personas mayores de 18 años, nacionales y extranjeros que hayan completado al menos un coleccionable físico. La selección de los ganadores se efectuará mediante la extracción aleatoria de cupones físicos previamente depositados por los participantes en los buzones oficiales, ubicados en los puntos de validación del coleccionable.
+Cada coleccionable físico correctamente completado, validado y con cupón depositado representa una participación individual en el sorteo.
+No se permitirá que una misma persona resulte favorecida de más de un premio en esta promoción. En caso de que al momento de extraer un cupón se repita el número de documento de identificación, se procederá a extraer un nuevo cupón hasta obtener otro ganador.
+Los resultados de esta promoción serán publicados en el perfil oficial de Facebook de la Junta de Protección Social.
+Se aclara que la Junta no llamará a las personas favorecidas.
