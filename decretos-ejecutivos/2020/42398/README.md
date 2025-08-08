@@ -14,3 +14,4 @@ Oficializa estrategia para identificar actividades mínimas con la adquisición 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-01 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
