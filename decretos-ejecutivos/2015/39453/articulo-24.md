@@ -1,1 +1,0 @@
-Artículo 24.—Secretaría Técnica del Consejo Consultivo Nacional de Desarrollo Regional. El Consejo Consultivo Nacional de Desarrollo Regional tendrá una Secretaría Técnica a cargo del MIDEPLAN. La que le corresponderá la elaboración de metodologías e instrumentos para el cumplimiento de las funciones asignadas al Consejo Consultivo Nacional.

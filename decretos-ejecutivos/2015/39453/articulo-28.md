@@ -1,1 +1,0 @@
-Artículo 28.—Programación de la inversión pública regional. Las instituciones ejercerán el proceso de programación de la inversión pública regional e informarán al Directorio de COREDES de los avances de acuerdo con la inscripción de sus proyectos regionales en el BPIP.

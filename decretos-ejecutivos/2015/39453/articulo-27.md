@@ -1,1 +1,0 @@
-Artículo 27.—Seguimiento de los programas y proyectos de alcance regional contenidos en el POI. En el seguimiento de los programas y proyectos estratégicos de alcance regional, las instituciones, por medio de sus direcciones o representantes regionales, semestralmente entregaran al COREDES el informe de avance de la ejecución física y presupuestaria.
