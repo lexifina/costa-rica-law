@@ -31,28 +31,29 @@ Solidaridad. Del valor de la Solidaridad se desprende el deber de procurar que e
 Productividad. Del valor de la Productividad se desprende que todo el accionar de la plantilla y los procesos institucionales, se orientarán a lograr la eficiencia y eficacia a fin de alcanzar los objetivos establecidos en el modelo de desarrollo turístico costarricense.
 IV. CONDUCTAS O ACCIONES ETICAS
 Para cada uno de los valores, mencionados y definidos en el apartado anterior, se establecen a continuación las principales acciones, actitudes o conductas a seguir:
-1. Según la definición del valor “Justicia” quienes laboran en el ICT actuarán de manera recta, imparcial e íntegra, para lo cual deberán:
+1. Según la definición del valor "Justicia" quienes laboran en el ICT actuarán de manera recta, imparcial e íntegra, para lo cual deberán:
 a. Desempeñar las funciones correctamente en todo momento; sin distinciones, con discernimiento, exactitud y objetividad en la toma de decisiones.
 b. Tratar con cordialidad, atención, respeto, e igualdad a cada persona con la que se relacionen, procurando identificar y comprender la situación y las necesidades para brindarles una atención debida y oportuna.
 c. Actuar siempre con la verdad, lo que implica el trabajar a conciencia y con voluntad, prestos para la ayuda desinteresada y solidaria.
-2. De conformidad con el concepto del valor “Probidad” el personal del ICT actuará con, equidad lealtad, confidencialidad y compromiso con la institución, por lo que deberá:
+2. De conformidad con el concepto del valor "Probidad" el personal del ICT actuará con, equidad lealtad, confidencialidad y compromiso con la institución, por lo que deberá:
 a. Utilizar la información a la que se tiene acceso para las funciones asignadas, de manera responsable y correcta, de conformidad con la normativa y regulaciones correspondientes. En ningún caso, se utilizará esa información en beneficio propio o de cualquier otra persona no idónea dentro y fuera de la institución.
 b. Administrar, utilizar y cuidar responsablemente y racionalmente los recursos y bienes asignados, únicamente para el beneficio e interés institucional, y cumpliendo con las normas de control, con las políticas y procedimientos establecidos.
 c. Rechazar invitaciones, dádivas o comisiones que influyan e incidan sobre decisiones que afecten su independencia e integridad, actuando siempre sin obtener provecho de los servicios que presta el Instituto en beneficio propio, de familiares o amigos, salvo aquellas que constituyen la participación institucional (oficial) en consideración al cargo que se desempeña y aquellos reconocimientos oficialmente recibidos en nombre del ICT.
-3. En correspondencia al valor “Solidaridad”, quienes laboran en el ICT contribuirán al bien común de la ciudadanía, reflejando su responsabilidad ante la sociedad,
+3. En correspondencia al valor "Solidaridad", quienes laboran en el ICT contribuirán al bien común de la ciudadanía, reflejando su responsabilidad ante la sociedad,
 comprometiéndose a:
 a. Brindar a la ciudadanía servicios y productos institucionales con un elevado nivel de eficiencia y calidad, con atención especial a los grupos más vulnerables.
 b. Ejercer responsable y transparentemente las labores asignadas de modo que coadyuve a mantener y fortalecer la confianza y credibilidad que la sociedad costarricense ha depositado en la institución.
 c. Implementar acciones de mejora continua que contribuyan a fortalecer la ejecución y promoción de estrategias, planes, programas y proyectos en el ámbito del sector turístico, para el bien común de todo el pueblo costarricense.
-4. Según la descripción del valor “Productividad”, la plantilla del ICT se orientará a lograr la eficiencia y eficacia, por lo que deberá:
+4. Según la descripción del valor "Productividad", la plantilla del ICT se orientará a lograr la eficiencia y eficacia, por lo que deberá:
 a. Utilizar el tiempo laboral responsablemente, optimizándolo y ejecutando las tareas con el esmero, la intensidad y el cuidado apropiado, planificando las actividades, identificando prioridades y ejerciendo control sobre las tareas por realizar.
 b. Evitar distracciones que impidan o que interfieran en las labores propias o en las del resto del personal.
 c. Emplear todas sus competencias: conocimientos, destrezas, habilidades, valores individuales para el desarrollo de las tareas logrando resultados efectivos y de calidad.
 V. COMPROMISOS ÉTICOS
 En el ejercicio de sus funciones todas las actuaciones o conductas de las personas funcionarias, deben apoyarse en compromisos asumidos con los grupos de interés institucionales.
 Marco institucional
-a. Conocer y aplicar el Plan Nacional de Desarrollo (PND) en lo concerniente al ICT, el Plan Nacional de Desarrollo Turístico Sostenible (PNDTS) y el Plan Estratégico Institucional (PEI).
+a. Conocer y aplicar el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*) en lo concerniente al ICT, el Plan Nacional de Desarrollo Turístico Sostenible (PNDTS) y el Plan Estratégico Institucional (PEI).
 b. Conocer y cumplir a cabalidad el Reglamento Autónomo de Trabajo Institucional y demás normativa vinculante.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 c. Conocer y cumplir los Manuales de Procedimientos y demás directrices vigentes, actuando con competencia, laboriosidad y fidelidad hacia la Institución.
 d. Procurar el interés constante en el desarrollo o autodesarrollo y procurar los más altos desempeños y las mejores prácticas.
 e. Ejercer el cargo con los conocimientos y capacidades necesarias, para el desempeño de las responsabilidades que se le asignen y contar con las autorizaciones legales que el ordenamiento jurídico le obligue para ostentar el puesto respectivo.
@@ -89,5 +90,5 @@ a. La toma de decisiones y acciones, correspondiéndole a toda la población tra
 b. La inducción del personal de la institución, con el fin de promover las mejores prácticas, fortalecer una cultura organizacional sustentada por valores y adquirir el compromiso de cumplimiento.
 c. Como insumo para la divulgación y promoción permanente de los valores institucionales interna y externamente.
 La Gerencia General, designará una unidad que fungirá como encargada de verificar todo lo relativo a la implementación, gestión, aplicación, consultas, mantenimiento y proceso de mejora de este Manual.
-El Instituto Costarricense de Turismo (ICT), comunica que queda sin efecto el Acuerdo NªSJD-071-2011, tomado en sesión ordinaria Nº 5676, Articulo 5, inciso II, celebrada el 8 de febrero de 2011, dado que el presente Manual sustituirá el actual “Código de Ética de los funcionarios del Instituto Costarricense de Turismo”
-Aprobado en Sesión Ordinaria de Junta Directiva número 6005 Artículo 5, inciso VI, celebrada el 6ª de noviembre 2017, acuerdo aprueba el “Manual de Ética ICT” se instruye a la Gerencia General y a la Comisión de Ética su divulgación y publicación, según oficio NªG-1751-2017 y NªG-1039-2017.
+El Instituto Costarricense de Turismo (ICT), comunica que queda sin efecto el Acuerdo NªSJD-071-2011, tomado en sesión ordinaria Nº 5676, Articulo 5, inciso II, celebrada el 8 de febrero de 2011, dado que el presente Manual sustituirá el actual "Código de Ética de los funcionarios del Instituto Costarricense de Turismo"
+Aprobado en Sesión Ordinaria de Junta Directiva número 6005 Artículo 5, inciso VI, celebrada el 6ª de noviembre 2017, acuerdo aprueba el "Manual de Ética ICT" se instruye a la Gerencia General y a la Comisión de Ética su divulgación y publicación, según oficio NªG-1751-2017 y NªG-1039-2017.
