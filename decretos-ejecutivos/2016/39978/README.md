@@ -14,3 +14,4 @@ Declara de Conveniencia Nacional el proyecto de obra pública denominado "Diseñ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-09 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
