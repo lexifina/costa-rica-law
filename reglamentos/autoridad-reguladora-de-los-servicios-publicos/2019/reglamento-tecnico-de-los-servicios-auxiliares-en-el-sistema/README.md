@@ -14,3 +14,4 @@ Reglamento técnico de los servicios auxiliares en el sistema eléctrico naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-13 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
