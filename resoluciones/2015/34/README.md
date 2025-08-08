@@ -15,3 +15,4 @@ Metodología para la determinación de las tarifas de referencia para plantas de
 | --- | --- | --- |
 | 1 | 2015-03-26 | la propia norma |
 | 2 | 2023-11-15 | Resolución 110 (2023-11-15) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
