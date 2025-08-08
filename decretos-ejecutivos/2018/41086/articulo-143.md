@@ -1,2 +1,0 @@
-Artículo 143°- Refrendo
-Acto por el que se autorizada el traspaso o la segregación, los interesados deberán presentar a la Instancia Regional, el primer testimonio (original y una copia), a fin de obtener el refrendo respectivo para los efectos del Decreto Ejecutivo 5820-G, del 24 de febrero de 1976. Dicho refrendo, será revisado por la asesoría legal regional y firmado por el jefe regional, única persona autorizada para tales fines.

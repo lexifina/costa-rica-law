@@ -1,2 +1,0 @@
-Artículo 32°- Unidades responsables del Inder
-El Fondo de Desarrollo Rural a través de la Unidad de Gestión de Capacidades y Plataformas Territoriales, en coordinación con la Seteder y las Oficinas de Desarrollo Territorial que correspondan, serán las unidades responsables de apoyar y asesorar a esas instancias de coordinación, todo en función de la relevancia de sus actuaciones para el desarrollo rural.

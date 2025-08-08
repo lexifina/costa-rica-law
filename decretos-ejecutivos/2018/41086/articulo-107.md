@@ -1,2 +1,0 @@
-Artículo 107°- Tipos de predios en los centros de población
-En los centros de población se podrán generar predios para diferentes tipos de uso de la tierra, tales como, vivienda, comercio, servicios, comunales, deportivos y de cualquier otro tipo que promueva el desarrollo rural. Esta sección es de aplicación únicamente a los predios de uso para vivienda y los demás tipos deberán seguir los requisitos y procedimientos de dotación de tierra establecidos en la Sección anterior dependiendo del tipo de proyecto que se trate.

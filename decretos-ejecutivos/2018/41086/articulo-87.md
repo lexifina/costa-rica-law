@@ -1,5 +1,0 @@
-Artículo 87°- De las poblaciones prioritarias para la dotación de tierra
-Conforme lo establecen los artículos 5 e), 41 e) y 61 de la Ley 9036, el Inder debe priorizarse la atención de los siguientes grupos de población: adultos mayores, población con discapacidad, mujeres, minorías étnicas, jóvenes, entre ellos egresados de colegios técnicos profesionales y cooperativas. La prioridad señalada previamente se aplicará de la siguiente forma:
-a) Cuando exista un proyecto viable de participación abierta y se proceda con la dotación de tierra, tendrán prioridad para ser electas como beneficiarias las personas pertenecientes a estos grupos. Dentro de todas las personas consideradas como prioritarias, el orden en el que serán elegidas será de mayor a menor según su calificación de idoneidad;
-b) Mediante la creación de proyectos específicos para atender a personas pertenecientes a estos grupos;
-c) Definiendo metas y recursos en los PDRT y presupuestos de la Institución para los proyectos orientados a atender las necesidades de estas poblaciones.

@@ -1,4 +1,0 @@
-Artículo 124°- Resolución final
-Instruido el proceso se elevará ante la autoridad competente junto con un informe recomendativo elaborado por el órgano director, para que proceda a tomar la decisión final.
-La resolución que declare el incumplimiento del contrato de dotación de tierras en cualquiera de sus modalidades, además de revocar o invalidar el acuerdo de dotación, declarará la resolución del contrato y extinción de los derechos que de él se deriven y anulará el título de propiedad sobre el inmueble a favor de la persona asignataria, si la hubiera.
-También ordenará el desalojo administrativo del revocado y de cualquier tercero no autorizado que ilegalmente ocupe el inmueble y ordenará el inicio del proceso de liquidación establecido en los artículos 123, 127 y137 del presente reglamento.

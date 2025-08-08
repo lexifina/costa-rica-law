@@ -1,4 +1,0 @@
-Artículo 173°- Decisión inicial de compra
-En el procedimiento ordinario de compra, una vez aprobado un proyecto con componente de tierra, el FDR solicitará al FT indicar si cuenta con tierra disponible para satisfacer el proyecto, o bien, dictaminar el inicio del proceso de compra de inmueble si no hubiere tierra disponible.
-El FT emitirá el acto administrativo de inicio del procedimiento ordinario de compra que debe contener la justificación y motivación que establece la Ley 9036, la cual, deberá al menos incluir la declaratoria de viabilidad del proyecto a satisfacer y que el proceso haya sido recomendado previamente por la Instancia Regional correspondiente.
-El acto de inicio del procedimiento extraordinario de compra deberá contar con los antecedentes y estudios que demuestren la existencia de un criterio de oportunidad, conveniencia, interés público, conflicto de ocupación precaria y cualquier otro que justifique la compra de la propiedad.

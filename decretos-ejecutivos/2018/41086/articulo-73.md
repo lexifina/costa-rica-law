@@ -1,3 +1,0 @@
-Artículo 73°- Verificación de Legalidad
-Una vez terminado el análisis de idoneidad, el expediente administrativo, será trasladado a la asesoría legal correspondiente para que verifique la legalidad del proceso y del cumplimiento de los requisitos. Si la asesoría legal determina el incumplimiento de requisitos, la invalidez de documentos o la inconsistencia de uno o varios de los pasos del proceso lo consignarán en resolución detallada que se agregará al expediente. De no encontrar ninguna objeción así lo consignará en resolución fundamentada.
-Terminado este proceso la asesoría legal correspondiente elevará, para su análisis, el expediente ante la Comisión Resolutoria Regional, que definirá su composición y procedimiento la Gerencia General.

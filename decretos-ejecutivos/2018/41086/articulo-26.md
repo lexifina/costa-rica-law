@@ -1,2 +1,0 @@
-Artículo 26°-Fiscalía
-La AG nombrará una persona para ocupará el cargo de Fiscal que será un órgano de vigilancia de la labor del CD y que tendrá voz, pero sin voto en todas las sesiones de dicho órgano. Será nombrado por un período igual al CD y rendirá un informe anual a la AG en su reunión ordinaria. Tendrá acceso a todos los expedientes, documentos y sesiones del CD, de las comisiones y mesas de trabajo, estando obligados todos los miembros del CTDR a entregarle toda la información que este requiera.

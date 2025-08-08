@@ -1,3 +1,0 @@
-Artículo 135°- Extinción de las causas que motivaron el permiso temporal
-El beneficiario deberá reintegrarse a la ejecución del proyecto inmediatamente después del vencimiento del plazo del permiso o la denegatoria del mismo. En caso de no hacerlo, sin que exista una justificación válida, la OT procederá a iniciar el respectivo procedimiento de resolución del contrato de dotación de tierra.
-En caso de que la causa justa que motivó el permiso sea muy prolongado o permanente, el beneficiario deberá proponer una persona o personas, preferiblemente de su grupo familiar, que continúen con el proyecto y que reúna los requisitos básicos propuestos por el Instituto.

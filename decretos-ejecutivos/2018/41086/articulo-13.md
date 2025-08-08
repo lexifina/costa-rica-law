@@ -1,3 +1,0 @@
-Artículo 13°- Plan Nacional de Desarrollo Rural Territorial
-La PEDRT establecerá el marco institucional que orientará la formulación, ejecución y evaluación del PNDRT, estableciendo los compromisos y responsabilidades de la Administración Pública de conformidad con los principios orientadores, propósitos y objetivos establecidos en los artículos 3, 4 y 5 de la Ley 9036.
-El Inder en conjunto con SEPSA y MIDEPLAN, coordinará inter-institucionalmente para la elaboración del Plan Nacional en lo atinente al DRT, debiendo articular la PEDRT con los planes regionales, territoriales, sectoriales, así como los compromisos y responsabilidades de la Administración Pública.

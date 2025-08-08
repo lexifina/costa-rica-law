@@ -1,4 +1,0 @@
-Artículo 162°- Análisis de la Oficina Territorial
-Revisada y valorada preliminarmente la documentación y demás requisitos, la OT procederá a conformar un expediente debidamente foliado y a realizar un estudio pormenorizado de la documentación presentada, así como, los antecedentes del respectivo asentamiento y hacer la inspección del predio y rendir un informe detallado.
-Si el plano catastrado aportado al expediente fue realizado por un particular o a solicitud del mismo y no por el Instituto, la OT deberá verificar si la información contenida en el mismo es correcta, así como, la vigencia actual del mismo.
-La OT, antes de continuar con el procedimiento, deberá verificar que para el área en la que se ubica el plano catastrado ya se ha cumplido con lo prescrito por el artículo 159 de este reglamento, de lo contrario deberá procederse con dicho trámite antes de continuar quedando en suspenso el mismo hasta que se cumpla con lo prescrito en dicha norma.

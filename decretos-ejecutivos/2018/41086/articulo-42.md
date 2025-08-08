@@ -1,4 +1,0 @@
-CAPÍTULO II - DE LOS PROYECTOS
-Artículo 42°- De los proyectos
-Para la dotación de tierra ordinaria contemplada en los artículos 45 y 72 de la Ley 9036 se requiere la existencia de un proyecto declarado como viable en los términos del artículo 46 de este reglamento, sin embargo, para las dotaciones extraordinarias contempladas en el artículo 85 inciso c) de la Ley 9036 y artículos 92 y siguientes de la Ley 2825 no se requiere obligatoriamente la existencia de un proyecto declarado viable.
-Para poder acceder a los diferentes beneficios, servicios y programas del Inder, que no impliquen dotación de tierra, deberá cumplirse con los requisitos establecidos en la ley, este reglamento y otras normas propias que regulan al Instituto, pudiéndose establecer el requerimiento de contar con proyectos de desarrollo declarados viables.

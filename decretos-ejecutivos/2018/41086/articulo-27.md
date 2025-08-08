@@ -1,2 +1,0 @@
-Artículo 27°- Asesoría Territorial
-Todo CTDR tendrá un órgano denominado Asesor Territorial que estará ocupado por un funcionario(a) del Inder y que tendrá las funciones, competencias y responsabilidades que determine el manual de puestos del Instituto o cualquier otra normativa en esa materia que le sea aplicable. Este órgano podrá participar, con voz, pero sin voto, en todas las sesiones del CD, de las comisiones y mesas de trabajo que se nombren en los CTDR.

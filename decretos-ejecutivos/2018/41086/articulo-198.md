@@ -1,2 +1,0 @@
-Artículo 198°- Intermediación
-Una vez declarada la existencia de un conflicto de ocupación precaria el Instituto realizará un proceso de intermediación, que será definido a lo interno del Instituto, y que incluirá como mínimo la realización de una o más comparecencias privadas entre las partes en conflicto en procura de la solución del conflicto a través de la promoción de acuerdos de compraventa directas entre los propietarios y los ocupantes.

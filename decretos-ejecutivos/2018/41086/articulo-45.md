@@ -1,3 +1,0 @@
-Artículo 45°- Iniciativa de los proyectos
-Podrán presentar iniciativas de proyectos ante el Inder, las personas físicas o personas jurídicas sin fines de lucro, los CTDR, organizaciones sociales o comunales, instituciones del Estado, universidades públicas y privadas, y cualquier agrupación localizada en los territorios rurales, aunque no formen parte del CTDR.
-El propio Inder podrá gestar, formular, financiar, ejecutar, coordinar y fiscalizar cualquier proyecto de interés territorial, regional o nacional en cumplimiento de los objetivos establecidos en las leyes 9036 y 2825, en el marco del desarrollo rural territorial.

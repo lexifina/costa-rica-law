@@ -1,3 +1,0 @@
-Artículo 20°- Modalidades de acreditación
-Podrán acreditarse como miembros del CTDR: a) personas físicas; b) personas jurídicas; c) instituciones públicas y d) gobiernos locales.
-Conforme lo establece el artículo 4 inciso e) de la Ley 9036, la participación ciudadana debe gobernarse bajo el principio de la representatividad de diversos sectores de la sociedad civil, por lo que, la cantidad de personas físicas acreditadas en la AG no podrá exceder del 20% de la totalidad de miembros inscritos en la AG. En los casos en los que existan CTDR en los que se haya sobrepasado este límite, no se acreditarán más personas físicas hasta tanto la acreditación de personas físicas sea menor, por cualquier causa, al 20% de la totalidad.

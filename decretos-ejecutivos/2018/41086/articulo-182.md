@@ -1,3 +1,0 @@
-Artículo 182°- Comprobación de cabida
-En un plazo máximo de treinta (30) días hábiles, el Instituto deberá hacer la verificación de medida de la finca comprada mediante el levantamiento topográfico correspondiente con el propósito de determinar si el área real de la finca concuerda con la establecida en el plano aportado para la venta. Dicho informe deberá incluir un plano que muestre el área medida y demás características de ley, debidamente refrendado por la persona responsable.
-Si de la verificación de medida se determina que el área real comprada es menor a la indicada en los planos aportados para la compra, el área faltante será rebajada automáticamente del 30% del precio de venta que fue retenido con ese propósito.

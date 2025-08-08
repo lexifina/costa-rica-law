@@ -1,5 +1,0 @@
-Artículo 23°- Comité Directivo del CTDR
-El CD deberá reunirse al menos una vez al mes y el quórum para sesionar, en primera convocatoria; será de dos tercios de los representantes que la conforman pudiendo sesionar válidamente en segunda convocatoria, transcurridos treinta minutos, con la mitad más uno de los miembros que la conforman.
-Las decisiones del CD se tomarán por la mitad más uno de los presentes, teniendo el presidente voto doble en caso de empate.
-Los miembros del CD durarán en su cargo el periodo que fije el estatuto aprobado por la AG que en ningún caso podrá ser inferior a dos años. Podrán ser reelectos por una única vez de forma consecutiva, e indefinidamente de forma alterna. En caso de las instituciones públicas, aplicará la representación que la propia institución defina o la elección popular en los casos en que aplique, ya que, la representación es institucional y no personal.
-Los miembros del Comité Directivo no pueden ser nombrados simultáneamente en más de un Comité Directivo de CTDR.

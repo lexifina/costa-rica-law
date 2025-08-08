@@ -1,5 +1,0 @@
-Artículo 232°- De las pólizas de saldos deudores
-Con el propósito de poder dotar del servicio de financiamiento sin restricciones a las personas mayores de 65 años y a la vez cumplir con el artículo 49 de la Ley 9036, en cuanto a la necesidad de establecer pólizas de saldos deudores, se permite al SCR, financiar a estas personas aun cuando no se cuente con la póliza de saldos deudores respectiva y en caso de fallecimiento u otras situaciones acá estipuladas, dichas deudas se puedan dar por canceladas al amparo de la “Cuenta de Estimación para Incobrables”, misma a la que se aumentará el monto de ser necesario, trasladando recursos de la cuenta de intereses por cobrar para poder cubrir los saldos. Esto se aplicará, también, en los siguientes casos:
-a) Cuando las entidades aseguradoras no realicen las indemnizaciones por razones legales de no cobertura del caso en particular.
-b) Cuando el monto de los créditos de un deudor con el Inder, aun cuando sea mayor al monto máximo establecido por la aseguradora para la póliza colectiva de saldos deudores.
-c) Cuando existan saldos al descubierto por atrasos en el pago de la indemnización.

@@ -1,2 +1,0 @@
-Artículo 113°- Procedimiento de Selección de Beneficiarios
-Para la selección de beneficiarios se utilizará el procedimiento establecido en el Título II, Capítulo II, Sección II del presente Reglamento. Los requisitos de admisibilidad serán los establecidos en los artículos 54 y 55 de este reglamento. En el caso de los lotes de vivienda la idoneidad consistirá en determinar si los posibles beneficiarios cumplen con los requisitos acá establecidos.

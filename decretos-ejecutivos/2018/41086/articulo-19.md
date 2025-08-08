@@ -1,4 +1,0 @@
-Artículo 19°- Acreditación de actores sociales
-La Asamblea General Constitutiva estará conformada por todos los actores sociales, físicos o jurídicos, que se acrediten para participar en la misma. La acreditación se realizará al menos con dos semanas de anticipación a la realización de la sesión de Asamblea, ante la oficina correspondiente del Inder, presentando para ello los documentos que solicite en la convocatoria.
-Los miembros de la Asamblea Constitutiva formarán parte de la AG del CTDR sin necesidad de que deban acreditarse nuevamente.
-Las personas que deseen formar parte de las AG, y no fueron acreditados en la Constitutiva, deberán acreditarse ante la Secretaria Ejecutiva del CTDR, aportando los requisitos establecidos en los estatutos, reglamentos y las respectivas convocatorias a AG.

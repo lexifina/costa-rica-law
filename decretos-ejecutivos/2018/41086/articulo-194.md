@@ -1,4 +1,0 @@
-Artículo 194°- Investigación sumaria de conflicto
-A través del inicio de una investigación sumaria, la OT realizará todos los estudios técnicos, sociológicos y legales necesarios para determinar si existe o no un conflicto de ocupación precaria. La declaratoria deberá realizarse en el plazo máximo de tres meses a partir de la recepción de solicitud.
-En este estudio se realizará un censo de los ocupantes, el cual incluirá además una determinación preliminar del tiempo de posesión de cada uno de los ocupantes. Si todos los ocupantes tienen una posesión superior a los diez años se declarará que no existe conflicto de ocupación precaria dando por agotada la vía administrativa de intermediación.
-La investigación sumaria deberá determinar fehacientemente el cumplimiento de los requisitos mínimos para considerar que existe un conflicto de ocupación precaria, siendo la carga de la prueba en este sentido primordialmente de los interesados.
