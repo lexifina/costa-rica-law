@@ -14,3 +14,4 @@ Reglamento de la Comisión de Formulación, Ejecución y Evaluación del Plan-Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-02 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
