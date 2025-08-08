@@ -1,0 +1,1 @@
+Artículo 31. Revisión y mejora. La presente política deberá ser revisada al menos cada dos años por la Dirección de Desarrollo Institucional, en coordinación con las demás unidades competentes. También podrá ser actualizada antes de ese plazo si ocurren reformas legales, reglamentarias o cambios en la estructura organizativa o tecnológica que así lo requieran.

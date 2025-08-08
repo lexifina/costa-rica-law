@@ -1,0 +1,1 @@
+Artículo 13. Control y mejora. Las Direcciones Sustantivas, la Dirección de Desarrollo Institucional, y las Jefaturas de Departamento deberán velar por el cumplimiento de estos lineamientos y proponer acciones de mejora continua en la comunicación institucional.

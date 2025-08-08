@@ -1,0 +1,2 @@
+Artículo 19. Sesiones de órganos colegiados. Las grabaciones en audio y video, así como, el acta levantada de las sesiones de los órganos colegiados, deberán suprimir la información confidencial, los datos privados de acceso restringido y los datos sensibles, antes de ser suministradas a terceros.
+La confidencialidad de la información o del dato, no convierten en confidencial la totalidad del acta ni de la sesión, por lo que debe darse acceso público eliminando únicamente lo que corresponda.

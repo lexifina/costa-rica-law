@@ -1,0 +1,5 @@
+Artículo 23. Procedimiento de anonimización u ocultamiento. En el caso de solicitudes de acceso a documentación que contenga información confidencial, datos sensibles o datos personales de acceso restringido, el funcionario a cargo deberá aplicar un procedimiento de ocultamiento antes de entregar copia del expediente o la información solicitada. Este procedimiento consistirá en:
+a. Cubrir físicamente la información con papel u hoja blanca adherida con cinta transparente o papel adhesivo removible.
+b. Garantizar que los datos ocultos no puedan ser reproducidos por medios electrónicos o impresos.
+c. Utilizar herramientas tecnológicas disponibles para reforzar el proceso de protección, sin sustituir la supervisión humana.
+El Departamento de Tecnología de Información (TI) de la Procuraduría General de la República impulsará la adopción progresiva de soluciones de inteligencia artificial y otras herramientas tecnológicas. El objetivo es automatizar la anonimización y eliminación de datos personales de acceso restringido, sensibles y otra información confidencial en todas sus direcciones y unidades.

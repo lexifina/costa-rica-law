@@ -1,0 +1,1 @@
+Artículo 33. Derogatorias. La presente política deroga la "Política para garantizar contenidos confidenciales de información de manejo institucional" y la "Política para la comunicación de la información institucional".

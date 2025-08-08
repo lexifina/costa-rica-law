@@ -1,0 +1,1 @@
+Artículo 32. Vigencia. Esta política rige a partir de su aprobación por la Jerarquía Institucional. Deberá ser publicada en el sitio web oficial de la Procuraduría General de la República y difundida a todo el personal para su conocimiento y aplicación.
