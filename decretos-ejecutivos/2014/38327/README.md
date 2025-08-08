@@ -14,3 +14,4 @@ Oficializa Plan de Manejo del Área Marina de Manejo Montes Submarinos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-26 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
