@@ -15,3 +15,4 @@ Reglamento de organización y servicios del Archivo Nacional
 | --- | --- | --- |
 | 1 | 2017-12-08 | la propia norma |
 | 2 | 2020-08-06 | Decreto Ejecutivo 42553 (2020-08-06) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
