@@ -158,7 +158,8 @@ PEA | Población Económicamente Activa
 PEM | Plan Estratégico Municipal
 PEROT | Plan Estratégico Regional de Ordenamiento Territorial
 PN | Parque Nacional
-PND | Plan Nacional de Desarrollo
+PNDIP | Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)") | (*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 PNT | Plan Nacional de Transporte
 PRC | Plan Regulador Cantonal
 PRVC | Programa Red Vial cantonal
