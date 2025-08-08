@@ -14,3 +14,4 @@ Elaboración del Plan Nacional de Desarrollo y del Plan Nacional de Inversión P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-12 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
