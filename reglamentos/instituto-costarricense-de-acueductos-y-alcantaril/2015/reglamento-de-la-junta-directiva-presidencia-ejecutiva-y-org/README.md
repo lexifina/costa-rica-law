@@ -23,3 +23,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva y Órgano Gerencial de A
 | 8 | 2022-06-30 | Reglamento 31 (2022-06-30) |
 | 9 | 2022-06-30 | Reglamento 31 (2022-06-30) |
 | 10 | 2022-11-08 | Reglamento 55 (2022-11-08) |
+| 11 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
