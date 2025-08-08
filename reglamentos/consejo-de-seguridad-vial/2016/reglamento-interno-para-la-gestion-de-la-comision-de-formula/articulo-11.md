@@ -1,3 +1,0 @@
-CAPÍTULO II
-FORMULACIÓN DEL PLAN OPERATIVO – PRESUPUESTO INSTITUCIONAL
-Artículo 11.- Guía Formulación, Seguimiento, Control y Evaluación del Plan Operativo – Presupuesto Institucional. Mediante la Guía denominada “Formulación, Seguimiento, Control y Evaluación del Plan Operativo – Presupuesto Institucional, que se replantea cada año presupuestario por parte de los miembros de la Comisión, se facilitará a los funcionarios el cumplimiento de la tarea de elaborar el Plan Operativo y Presupuesto de cada unidad ejecutora. Asimismo, deberán hacer uso de los formularios elaborados para tal propósito.

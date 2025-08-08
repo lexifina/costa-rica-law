@@ -1,1 +1,0 @@
-Artículo 37.- Solicitudes de Ajustes al Plan Operativo Institucional. El Departamento de Presupuesto y el Área de Planificación y Evaluación una vez recibidas las solicitudes, procederán a su revisión y análisis, verificándose su contenido y valorando las justificaciones que plantea la unidad en función a lo programado y/o a programar para el cumplimiento de metas y objetivos.

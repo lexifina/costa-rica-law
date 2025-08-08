@@ -1,1 +1,0 @@
-Artículo 26.- Redistribución del Presupuesto. El monto máximo de recursos que se redistribuya sumando todas las modificaciones presupuestarias, no podrá exceder el 25% del monto total del presupuesto inicial más los presupuestos extraordinarios aprobados.

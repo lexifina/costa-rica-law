@@ -1,1 +1,0 @@
-Artículo 30.- Presentación de presupuestos extraordinarios. Los presupuestos extraordinarios deberán presentarse a la Contraloría General de la República, en el período comprendido entre el 1° de enero y el último día hábil del mes de setiembre del año que rige el presupuesto y en este último mes únicamente podrá presentarse un documento presupuestario.

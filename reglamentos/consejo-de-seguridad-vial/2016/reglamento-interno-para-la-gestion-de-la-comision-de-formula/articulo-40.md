@@ -1,1 +1,0 @@
-Artículo 40.- Alteración del Plan Operativo Institucional. Los traslados en ningún momento alterarán el monto global del Plan Operativo – Presupuesto Institucional aprobado por la Contraloría General de la República.

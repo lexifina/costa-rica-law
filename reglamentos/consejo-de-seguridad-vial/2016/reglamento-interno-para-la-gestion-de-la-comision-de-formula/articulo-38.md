@@ -1,1 +1,0 @@
-Artículo 38.- Movimientos presupuestarios en el Plan Operativo Institucional. Se deberá justificar suficientemente los efectos que tienen esos movimientos presupuestarios sobre el cumplimiento de los objetivos y las metas definidos en el Plan Operativo Institucional.

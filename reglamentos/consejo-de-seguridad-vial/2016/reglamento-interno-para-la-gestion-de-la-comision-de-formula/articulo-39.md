@@ -1,1 +1,0 @@
-Artículo 39.- Contenido Presupuestario. Los traslados presupuestarios podrán efectuarse siempre y cuando el programa, subprogramas, servicios, metas, proyectos, obras, partidas o subpartidas contenidas en un mismo programa, tengan el contenido presupuestario necesario y no podrán utilizarse esos recursos para cubrir gastos ejecutados.

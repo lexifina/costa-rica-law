@@ -1,4 +1,0 @@
-Artículo 44.- Solicitud de cambios. Pasos que deben seguir las unidades ejecutoras para gestionar una solicitud de cambios:
-1) Remitir oficio al Coordinador de la Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo – Presupuesto Institucional que recae en la persona que es el Director Ejecutivo, con copia al Departamento de Presupuesto y Área de Planificación.
-2) La solicitud deberá contener la descripción de la justificación del cambio, con la descripción del problema lo suficientemente detallada, propuesta de cambio y su impacto a nivel de proyecto, meta y/o acción.
-3) Luego de recibida la solicitud, la Dirección Ejecutiva solicitará sea incluida como parte de agenda de una sesión de trabajo de la Comisión, donde se analizará la propuesta de control de cambio y será emitido un oficio de respuesta sea con la aprobación, rechazo y/o solicitando mayores criterios de análisis para valoración.

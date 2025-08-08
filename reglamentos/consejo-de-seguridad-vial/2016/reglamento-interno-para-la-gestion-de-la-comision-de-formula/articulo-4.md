@@ -1,6 +1,0 @@
-Artículo 4.- Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo – Presupuesto Institucional. Esta Comisión será la responsable de analizar toda propuesta presentada por las unidades ejecutoras del Consejo de Seguridad Vial, realizar recomendaciones y definir con criterios técnicos los movimientos financieros y físicos, que son aprobados por esta Comisión, los cuales se detallan a continuación:
-· Traslados de fondos que no sean superiores a los ¢ 20.000.000,00.
-· Control de cambios que se generen a nivel de Perfil de proyecto, meta, cartel de licitación, entre otros.
-· Modificaciones Presupuestarias cuyo monto no superen los ¢ 50.000.000,00; las cuales deben ser elaboradas por el Departamento de Presupuesto y remitidas posteriormente para aprobación de la Dirección Ejecutiva.
-· Modificaciones Presupuestarias que superen los ¢ 50.000.000,00, Presupuestos Extraordinarios y otros propios de sus competencias, los cuales deben ser elaborados por el Departamento de Presupuesto y remitidas posteriormente para conocimiento y aprobación de la Junta Directiva.
-Los montos indicados en el presente artículo son los vigentes en este momento, no obstante los mismos pueden ser modificados mediante Acuerdo Firme tomado por la Junta Directiva de este Consejo.

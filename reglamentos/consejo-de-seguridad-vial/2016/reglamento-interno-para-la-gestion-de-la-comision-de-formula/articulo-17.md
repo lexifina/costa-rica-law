@@ -1,1 +1,0 @@
-Artículo 17.- Contenido presupuestario para modificaciones. Las modificaciones presupuestarias podrán efectuarse siempre y cuando los programas, subprogramas, servicios, metas, proyectos, obras, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario y no podrán utilizarse esos recursos para cubrir gastos ejecutados.
