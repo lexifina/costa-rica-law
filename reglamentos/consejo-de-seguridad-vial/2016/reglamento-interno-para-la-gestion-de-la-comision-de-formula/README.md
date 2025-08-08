@@ -15,3 +15,4 @@ Reglamento Interno para la Gestión de la Comisión de Formulación, Control y E
 | --- | --- | --- |
 | 1 | 2016-09-02 | la propia norma |
 | 2 | 2024-08-28 | Reglamento 30 (2024-08-28) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
