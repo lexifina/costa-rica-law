@@ -1,0 +1,1 @@
+Artículo 18. Divulgación. La Municipalidad deberá publicar este beneficio en su sitio web y redes sociales institucionales y por todos los medios que considere necesarios, asegurando acceso claro e inclusivo a la población beneficiaria.

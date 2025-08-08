@@ -1,0 +1,1 @@
+Artículo 13. Renovación del beneficio. Las solicitudes de renovación deberán presentarse durante los dos primeros meses del segundo trimestre del año calendario, con el fin de comprobar que la situación de amparo económico inmediato se mantiene. Las solicitudes fuera de este plazo se rechazarán de oficio. La Municipalidad resolverá dentro los dos meses siguientes.
