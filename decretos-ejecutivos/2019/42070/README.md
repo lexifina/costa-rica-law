@@ -15,3 +15,4 @@ Reforma Reglamento para la Constitución y Funcionamiento del Sistema Nacional d
 | --- | --- | --- |
 | 1 | 2019-12-02 | la propia norma |
 | 2 | 2024-09-18 | Ley 10524 |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
