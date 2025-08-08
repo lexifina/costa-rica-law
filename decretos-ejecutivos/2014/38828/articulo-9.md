@@ -1,5 +1,5 @@
-Artículo 9º—Se presenta el listado de los proyectos que constituyen el programa “Costa Rica desde el Caribe”, sin perjuicio de la inclusión posterior de otros proyectos, conforme se vayan dando las condiciones fácticas y legales necesarias para su ejecución. Las nuevas inclusiones serán coordinadas entre el Ministerio de la Presidencia, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), la Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) y el COREDES-PROLI, las cuales serán presentadas ante la Presidencia de la República para su respectiva comunicación al Sector Público y la ciudadanía en general. Un listado permanente de los proyectos del programa estará publicado en el sitio electrónico de COREDES-PROLI, JAPDEVA y el MIDEPLAN.
-El listado que, a continuación se presenta, comprende en primer lugar los proyectos que están incluidos en el Plan Nacional de Desarrollo 2015-2018 “Alberto Cañas Escalante” y, en segundo lugar, se enlistan los proyectos registrados en el Banco de Proyectos de Inversión Pública del Ministerio de Planificación Nacional y Política Económica:
+Artículo 9º-Se presenta el listado de los proyectos que constituyen el programa "Costa Rica desde el Caribe", sin perjuicio de la inclusión posterior de otros proyectos, conforme se vayan dando las condiciones fácticas y legales necesarias para su ejecución. Las nuevas inclusiones serán coordinadas entre el Ministerio de la Presidencia, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), la Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) y el COREDES-PROLI, las cuales serán presentadas ante la Presidencia de la República para su respectiva comunicación al Sector Público y la ciudadanía en general. Un listado permanente de los proyectos del programa estará publicado en el sitio electrónico de COREDES-PROLI, JAPDEVA y el MIDEPLAN.
+El listado que, a continuación se presenta, comprende en primer lugar los proyectos que están incluidos en el Plan Nacional de Desarrollo 2015-2018 "Alberto Cañas Escalante" y, en segundo lugar, se enlistan los proyectos registrados en el Banco de Proyectos de Inversión Pública del Ministerio de Planificación Nacional y Política Económica:
 PROYECTOS CONTENIDOS EN EL PLAN NACIONAL DE DESARROLLO
 | Sector/Código PND | Proyecto | Responsables |
 | Transporte e Infraestructura 1.1.2.2. | Tramo Puerto Viejo Limón Ampliado en un 30% de Avance (Ruta 32) durante el 2017-2018. | MOPT-CONAVI |
@@ -60,7 +60,7 @@ Mejoras al alcantarillado sanitario en Batán (000461), Limón (000466), Urbaniz
 001343 | Construcción de ramal para abastecimiento de agua potable para Santa María de Río Jiménez de Guácimo.
 001509 | Mejoras al acueducto de Guácimo, Limón.
 001533 | Ampliación de la cobertura del sistema de abastecimiento de agua potable de Madre de Dios en Siquirres (001551), Matina (001553).
-001557 | Mejoras al sistema de abastecimiento de agua potable en Cahuita (000417), Guápiles – Guácimo (000418), Siquirres (000419), Estrada – Matina (000422), Pocora (000423), 28 Millas de Matina (000424), Los Ángeles de Guápiles (001552), Búfalo de Limón (001556), Limón Etapa II (001558), Luzón, Santa Marta y Matina (001597). | AYA
+001557 | Mejoras al sistema de abastecimiento de agua potable en Cahuita (000417), Guápiles - Guácimo (000418), Siquirres (000419), Estrada - Matina (000422), Pocora (000423), 28 Millas de Matina (000424), Los Ángeles de Guápiles (001552), Búfalo de Limón (001556), Limón Etapa II (001558), Luzón, Santa Marta y Matina (001597). | AYA
 001509 | Mejoras en el acueducto de Guácimo | AyA
 001464 | Construcción, Equipamiento y Desarrollo de la Gestión Curricular de la Academia Nacional de Policía en Pococí. | MSP
 001681 | Dotación de Equipos de Tomografía Computarizada para Servicios de Radiología del Hospital Regional Dr. Tony Facio de Limón. | CCSS
@@ -133,7 +133,8 @@ MUSEO JUAN SANTAMARÍA: Museo Histórico Cultural Juan Santamaría;
 MUSEO NACIONAL: Museo Nacional de Costa Rica;
 PARQUE LA LIBERTAD: Fundación Parque La Libertad;
 PIMA: Programa Integral de Mercadeo Agropecuario;
-PND: Plan Nacional de Desarrollo 2015-2018 “Alberto Cañas Escalante”
+PNDIP: Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 PRESIDENCIA: Ministerio de la Presidencia;
 PROCOMER: Promotora de Comercio Exterior de Costa Rica;
 RECOPE: Refinadora Costarricense de Petróleo S. A.;

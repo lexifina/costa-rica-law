@@ -14,3 +14,4 @@ Implementación del Programa "Costa Rica desde el Caribe"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-20 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
