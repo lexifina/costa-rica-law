@@ -14,3 +14,4 @@ Deroga decreto ejecutivo N° 36122 "Declaratoria de Interés Público y Organiza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-25 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
