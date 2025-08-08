@@ -17,3 +17,4 @@ Reglamento de Financiamiento del Instituto de Fomento y Asesoría Municipal
 | 2 | 2019-12-02 | Reglamento 49 (2019-12-02) |
 | 3 | 2020-06-25 | Reglamento 23 (2020-06-25) |
 | 4 | 2021-08-26 | Reglamento 26 (2021-08-26) |
+| 5 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
