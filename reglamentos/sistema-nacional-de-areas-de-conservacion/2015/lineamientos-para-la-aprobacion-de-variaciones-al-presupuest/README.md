@@ -14,3 +14,4 @@ Lineamientos para la aprobación de variaciones al presupuesto del Sistema Nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-11 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
