@@ -49,3 +49,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 34 | 2016-10-31 | Decreto Ejecutivo 40000 (2016-10-31) |
 | 35 | 2016-10-31 | Decreto Ejecutivo 39999 (2016-10-31) |
 | 36 | 2024-09-18 | Ley 10524 |
+| 37 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
