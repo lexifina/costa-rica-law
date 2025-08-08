@@ -15,3 +15,4 @@ Nombramiento del Comisionado de la Presidencia de la República para Afrodescend
 | --- | --- | --- |
 | 1 | 2015-03-10 | la propia norma |
 | 2 | 2018-07-13 | Decreto Ejecutivo 41215 (2018-07-13) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
