@@ -14,3 +14,4 @@ Emite norma sobre valoración documental, cuyo cumplimiento resulta obligatorio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-30 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
