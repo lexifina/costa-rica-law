@@ -9,7 +9,8 @@ En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y
 CONSIDERANDO:
 l.-Que la Administración Pública debe garantizar la unidad, visión y acción del Estado, para alcanzar el modelo de país configurado en la Constitución Política y que garantiza los derechos de sus habitantes, de manera que los objetivos, programas y proyectos gubernamentales y los recursos públicos se canalicen hacia las prioridades del desarrollo nacional, según los compromisos del Gobierno con la ciudadanía.
 II.-Que es prioridad para el Poder Ejecutivo, definir, coordinar y ejecutar los lineamientos prioritarios de acción que permitan desarrollar el potencial económico, productivo y social del país, mediante aumentos continuos en sus niveles de productividad y competitividad internacional y lograr una oportuna y beneficiosa internacionalización de la economía.
-III.-Que el Plan Nacional de Desarrollo (PND) 2015-2018, establece como prioridades los siguientes pilares:
+III.-Que el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*), establece como prioridades los siguientes pilares:
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 a) Luchar contra la corrupción y fortalecer un Estado transparente y eficiente;
 b) Impulsar el crecimiento económico del país y generar más y mejores empleos; y
 c) Reducir la desigualdad y eliminar la pobreza extrema.

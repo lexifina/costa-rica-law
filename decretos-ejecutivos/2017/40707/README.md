@@ -14,3 +14,4 @@ Declara el Día Nacional de la Competitividad durante el mes de noviembre de cad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-30 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
