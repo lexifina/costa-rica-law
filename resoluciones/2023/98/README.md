@@ -14,3 +14,4 @@ Reforma Metodología tarifaria para la protección del recurso hídrico (MTPRH)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-23 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
