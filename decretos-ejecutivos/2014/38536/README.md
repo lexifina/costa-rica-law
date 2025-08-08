@@ -18,3 +18,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 3 | 2017-07-31 | Decreto Ejecutivo 40682 (2017-07-31) |
 | 4 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
 | 5 | 2018-06-20 | Decreto Ejecutivo 41187 (2018-06-20) |
+| 6 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
