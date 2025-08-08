@@ -14,3 +14,4 @@ Reglamento del título II de la ley N° 7169 Ley Promoción del Desarrollo Cient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-23 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
