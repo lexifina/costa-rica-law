@@ -14,3 +14,4 @@ Derogación de varios decretos ejecutivos referentes a comisiones de las funcion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-20 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |

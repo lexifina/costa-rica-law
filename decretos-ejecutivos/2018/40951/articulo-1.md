@@ -5,14 +5,15 @@ Y LA MINISTRA DE LA PLANIFICACIÓN NACIONAL
 Y POLÍTICA ECONÓMICA
 Con fundamento en lo dispuesto en los artículos 140 incisos 3) y 8 de la Constitución Política; 27, inciso 1) de la Ley General de la Administración Pública.
 Considerando:
-I.—Que la organización sectorial del Poder Ejecutivo es definida al amparo del Sistema Nacional de Planificación por mandato del Reglamento Orgánico del Poder Ejecutivo N° 38536-MP-PLAN; lo que representa para el MIDEPLAN el ejercicio de su rectoría sobre la organización sectorial.
-II.—Que el Reglamento General del Sistema Nacional de Planificación N° 37735-PLAN ordena al Ministerio de Planificación Nacional y Política Económica la rectoría técnica del Sistema Nacional de Planificación, así como la rectoría técnica y política de sus Subsistemas, dentro de los cuales se encuentra el de Gestión Pública; el cual comprende proponer proyectos de reformas normativas que faciliten la gobernabilidad del país.
-III.—Que la auditoría interna del Ministerio de Planificación y Política Económica mediante informe EE-019-2016 propuso verificar si las funciones ejecutadas y los controles internos utilizados por los funcionarios que participan en comisiones por el MIDEPLAN, se están realizando conforme a los objetivos del MIDEPLAN, el Plan Nacional de Desarrollo PND, Ley de Planificación Nacional y sus reformas y demás normativa aplicable.
-IV.—Que el informe EE-019-2016 de la auditoría interna del Ministerio de Planificación y Política Económica recomendó derogar vía Decreto, las
-V.—comisiones que no están en funcionamiento, donde preside el Ministro(a), Vice Ministro(a) y/o Representante de MIDEPLAN; además, todas aquellas Comisiones que ya no están activas que le corresponden al Ministerio. Por tanto,
+I.-Que la organización sectorial del Poder Ejecutivo es definida al amparo del Sistema Nacional de Planificación por mandato del Reglamento Orgánico del Poder Ejecutivo N° 38536-MP-PLAN; lo que representa para el MIDEPLAN el ejercicio de su rectoría sobre la organización sectorial.
+II.-Que el Reglamento General del Sistema Nacional de Planificación N° 37735-PLAN ordena al Ministerio de Planificación Nacional y Política Económica la rectoría técnica del Sistema Nacional de Planificación, así como la rectoría técnica y política de sus Subsistemas, dentro de los cuales se encuentra el de Gestión Pública; el cual comprende proponer proyectos de reformas normativas que faciliten la gobernabilidad del país.
+III.-Que la auditoría interna del Ministerio de Planificación y Política Económica mediante informe EE-019-2016 propuso verificar si las funciones ejecutadas y los controles internos utilizados por los funcionarios que participan en comisiones por el MIDEPLAN, se están realizando conforme a los objetivos del MIDEPLAN, el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*), Ley de Planificación Nacional y sus reformas y demás normativa aplicable.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
+IV.-Que el informe EE-019-2016 de la auditoría interna del Ministerio de Planificación y Política Económica recomendó derogar vía Decreto, las
+V.-comisiones que no están en funcionamiento, donde preside el Ministro(a), Vice Ministro(a) y/o Representante de MIDEPLAN; además, todas aquellas Comisiones que ya no están activas que le corresponden al Ministerio. Por tanto,
 Decretan:
 CIERRE DE COMISIONES INACTIVAS
-Artículo 1º—Derogatorias. Deróguense las siguientes disposiciones normativas:
+Artículo 1º-Derogatorias. Deróguense las siguientes disposiciones normativas:
 a) Decreto Ejecutivo N° 13073-P, Crea Consejo Administrativo Interministerial, de 30 de octubre de 1981.
 b) Decreto Ejecutivo N° 18108-P, Comisión Convenio General Ayuda Económica y Tecnológica con Estados Unidos, de 29 de abril de 1988.
 c) Decreto Ejecutivo N° 20984-RE-E, Reglamento Comisión Costarricense Cooperación con UNESCO, de 10 de enero de 1992.
