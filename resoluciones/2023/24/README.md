@@ -14,3 +14,4 @@ Guía básica para la formulación y seguimiento del plan estratégico de la Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-01 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |

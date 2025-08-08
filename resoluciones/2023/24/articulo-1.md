@@ -16,17 +16,17 @@ Aprobado por
 Alcalde Norman E. Hidalgo Gamboa.
 Acosta, 2022
 Tabla de contenido
-Introducción......................................................................................................................... 3
-Pasos para la elaboración del plan estratégico....................................................................... 4
-Componentes básicos del Plan estratégico Institucional.......................................................... 7
-Elaboración del Contexto Estratégico..................................................................................... 8
-Elaboración del Marco Estratégico....................................................................................... 16
-Fase de implementación de la estrategia.............................................................................. 21
-Fase de Seguimiento y evaluación del PEI........................................................................... 24
-Bibliografía consultada........................................................................................................ 26
-Anexos.............................................................................................................................. 27
-Tabla 1: Plan de trabajo de la comisión.................................................................................. 5
-Tabla 2: Instrumentos de planificación................................................................................... 5
+Introducción................................................................................................................................ 3
+Pasos para la elaboración del plan estratégico............................................................................... 4
+Componentes básicos del Plan estratégico Institucional................................................................. 7
+Elaboración del Contexto Estratégico............................................................................................ 8
+Elaboración del Marco Estratégico.............................................................................................. 16
+Fase de implementación de la estrategia..................................................................................... 21
+Fase de Seguimiento y evaluación del PEI................................................................................... 24
+Bibliografía consultada............................................................................................................... 26
+Anexos...................................................................................................................................... 27
+Tabla 1: Plan de trabajo de la comisión......................................................................................... 5
+Tabla 2: Instrumentos de planificación........................................................................................... 5
 Guía básica para la formulación y seguimiento del plan estratégico de la Municipalidad de Acosta
 El siguiente instrumento tiene la finalidad de ser una guía para la elaboración de la planificación estratégica de la Municipalidad de Acosta.
 La planificación estratégica esta a cargo del departamento de planificación de la Municipalidad de Acosta o en su defecto de la alcaldía municipal o la persona que el Alcaldía designe para coordinar y dar seguimiento al proceso de planificación estratégica.
@@ -58,7 +58,7 @@ Instrumento | Definición
 Plan Estratégico Nacional (PEN) | Es el instrumento de largo plazo para períodos no menor de 20 años, formulado bajo la coordinación técnica de MIDEPLAN con el apoyo de las diferentes instituciones, sectores y subsistemas del SNP y la participación ciudadana, donde se expresan los objetivos, políticas, metas y lineamientos que se requieren implementar para alcanzar la visión de futuro sobre el desarrollo del país.
 Plan Nacional Sectorial (PNS) | Son instrumentos de dirección y planificación sectorial de mediano plazo, para períodos no menores de 5 años, que precisan responsabilidades institucionales en congruencia con el PEN y el PND. Los PNS contendrán la dimensión regional.
 Plan Estratégico Institucional (PEI) | Son instrumentos de planificación institucional basados en el mediano y largo plazo, no menor de cinco años, donde se deben concretar las políticas, objetivos y proyectos, nacionales, regionales y sectoriales de las instituciones en congruencia con los instrumentos de planificación de mayor rango. Los PEI deben reflejarse en los POA, así como en los presupuestos institucionales. Revisión y actualización de la Misión y visión.
-Plan Nacional de Desarrollo (PND) | Es el marco orientador de las políticas del Gobierno de la Republica para un periodo de cuatro años, elaborado bajo la coordinación de MIDEPLAN con las demás instituciones del Sistema Nacional de Planificación y la participación ciudadana, que en congruencia con el Plan Estratégico Nacional (PEM) y considerando los Planes Nacionales Sectoriales y los Planes Regionales de Desarrollo, define los objetivos, políticas, metas, los programas y las estrategias para el desarrollo del país, así como las prioridades presupuestarias públicas.
+Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*) (*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)") | Es el marco orientador de las políticas del Gobierno de la Republica para un periodo de cuatro años, elaborado bajo la coordinación de MIDEPLAN con las demás instituciones del Sistema Nacional de Planificación y la participación ciudadana, que en congruencia con el Plan Estratégico Nacional (PEM) y considerando los Planes Nacionales Sectoriales y los Planes Regionales de Desarrollo, define los objetivos, políticas, metas, los programas y las estrategias para el desarrollo del país, así como las prioridades presupuestarias públicas.
 Planes Operativos Anual (POA). Institucional | Es el instrumento de planificación institucional anual formulado en concordancia con el PEI, PND y PNS, donde se concretan las políticas y funciones de la entidad en objetivos, metas e indicadores institucionales, traduciéndose en los programas y proyectos para la prestación de los productos (bienes y servicios) que se deberán ejecutar en el período anual. Se precisan los recursos humanos, materiales y financieros necesarios para obtener los resultados (productos, efectos e impactos), expresados en el presupuesto institucional. Nota: en este apartado se pueden incluir todos los planes municipales.
 Otros instrumentos | Otros instrumentos sujetos a revisión son la normativa vigente, así como, los Plan de Municipal de Gestión Integral de Residuos Sólido, Plan de Gestión Ambiental Institucional , Plan de Conservación, Desarrollo y Seguridad Vial Cantonal, entre otros.
 [imagen] Componentes básicos del Plan estratégico Institucional
