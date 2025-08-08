@@ -1,3 +1,0 @@
-Artículo 49-. Del plazo de las operaciones de financiamiento. Los financiamientos podrán ser a corto, mediano y largo plazo. Estos se determinarán en función del tipo de financiamiento, del plan de inversión, del plazo de agotamiento, de la amortización de intangibles y de la depreciación (vida útil, uso, función, obsolescencia, entre otros) del bien a financiar.
-El fin último será que el plazo establecido garantice la ejecución, el repago del proyecto y la recuperación de la inversión.
-El plazo será hasta un máximo de 20 años. En el caso de que las leyes especiales, creadoras de los fondos de recursos que integran la cartera de financiamiento, establezcan plazos mínimos o máximos, deben privilegiarse esos sobre los establecidos reglamentariamente.

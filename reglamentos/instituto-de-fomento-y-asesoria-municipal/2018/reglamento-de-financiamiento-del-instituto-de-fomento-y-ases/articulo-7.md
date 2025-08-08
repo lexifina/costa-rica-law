@@ -1,1 +1,0 @@
-Artículo 7-. De la aprobación de la actualización de la estratificación municipal. La actualización de la estratificación municipal debe ser aprobada por la Junta Directiva del IFAM, antes de su entrada en vigencia.

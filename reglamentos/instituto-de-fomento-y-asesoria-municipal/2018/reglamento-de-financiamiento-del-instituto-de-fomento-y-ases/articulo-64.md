@@ -1,6 +1,0 @@
-Artículo 64-. Del cronograma de ejecución de los proyectos y de la programación de desembolsos. Los desembolsos se girarán directamente al prestatario a solicitud de su representante legal, previa autorización técnica de la unidad respectiva del IFAM. Los desembolsos de un proyecto se ejecutarán en el plazo estimado de ejecución de éste y se procederá conforme el siguiente procedimiento:
-El personal municipal responsable del proyecto, en coordinación con las dependencias administradoras del préstamo del IFAM, elaborarán un cronograma de actividades del proyecto, para fijar las sumas a desembolsar de acuerdo con el plazo estipulado para su ejecución y sus actividades, dentro de períodos anuales.
-Para cada monto anual, el personal municipal a cargo del proyecto hará una estimación mensual de desembolsos, acorde con el avance físico estimado del proyecto.
-De forma mensual se revisará lo programado y lo ejecutado, con el fin de implementar las medidas que correspondan.
-Se mantendrá un registro y expediente en el cual se documentará el proceso de desembolsos, incluyendo las causas y justificantes del estado de éstos.
-En el indicado registro se anotará el avance físico periódico del proyecto, contrastado con el avance financiero.

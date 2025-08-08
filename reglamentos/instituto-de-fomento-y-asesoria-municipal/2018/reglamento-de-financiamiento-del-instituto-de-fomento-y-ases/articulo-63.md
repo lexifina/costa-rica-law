@@ -1,1 +1,0 @@
-Artículo 63-. De la sujeción de los desembolsos a la disponibilidad de recursos del IFAM. En todos los casos, el desembolso de las sumas comprometidas mediante préstamos queda sujeto a la disponibilidad y liquidez de los recursos del IFAM, condición que debe quedar expresamente consignada en los contratos.

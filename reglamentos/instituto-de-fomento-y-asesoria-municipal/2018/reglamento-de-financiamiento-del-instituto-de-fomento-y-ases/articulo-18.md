@@ -1,2 +1,0 @@
-Artículo 18-. Sujetos de Financiamiento. Serán sujetos de financiamiento las municipalidades y los concejos municipales de distrito, que dispongan del aval de la municipalidad a la que está adscrito, exclusivamente.
-En adelante, cuando en un artículo se mencione “sujeto(s) de financiamiento”, “prestatario(s)” o “deudor(es)”, se debe entender que se hace referencia a las corporaciones municipales y a los concejos municipales de distrito.

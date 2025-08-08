@@ -1,3 +1,0 @@
-Artículo 78-. De las condiciones para la readecuación del plazo de amortización del financiamiento. Las readecuaciones sobre los términos de un préstamo que se encuentre en la etapa de pago se otorgarán bajo las siguientes condiciones:
-a) El período de ampliación del plazo de pago se determinará mediante un análisis técnico financiero de la propuesta que al respecto debe presentar el prestatario. El nuevo período de pago deberá ser aprobado por la Junta Directiva del IFAM.
-b) Para un préstamo determinado, se autorizará una readecuación de este tipo por una única vez, salvo en casos muy especiales, debidamente justificados a criterio de la Junta Directiva del IFAM, con fundamento en el criterio de la Asesoría Jurídica y el dictamen de la Comisión Técnica.

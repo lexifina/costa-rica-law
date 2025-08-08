@@ -1,1 +1,0 @@
-Transitorio 2-. Se otorga el plazo de un año al Departamento de Gestión para el fortalecimiento Municipal para el desarrollo de las “Guías para la Formulación de Proyectos de Inversión Financiables y de Solicitudes de Financiamiento”.

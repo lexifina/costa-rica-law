@@ -1,4 +1,0 @@
-Artículo 77-. De los requisitos para la tramitación de la readecuación del plazo de amortización del financiamiento. Para toda readecuación, el prestatario interesado deberá cumplir con los siguientes requisitos mínimos:
-a) Formalizar la solicitud adjuntando un acuerdo del máximo órgano superior jerárquico de la entidad solicitante, el cual deberá ser dirigido a la Dirección Ejecutiva del IFAM.
-b) Presentar las razones administrativas y financieras que justifican la petición de la readecuación del préstamo. Se debe indicar en la justificación el número de operación de que se trata y adjuntar una certificación emitida por los Departamentos o Secciones de Contabilidad o por la Tesorería Municipal, según corresponda, en la que se muestre la disponibilidad existente de recursos en el presupuesto municipal, para atender la deuda en el plazo extendido.
-c) Presentar una propuesta del nuevo período de pago.

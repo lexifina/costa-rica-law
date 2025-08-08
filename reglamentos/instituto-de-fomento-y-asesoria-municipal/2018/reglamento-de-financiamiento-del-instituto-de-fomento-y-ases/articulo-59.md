@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Control de ejecución y administración del financiamiento
-Artículo 59-. De la obligación de la municipalidad de aceptar formalmente el financiamiento otorgado. A partir de la fecha en que el prestatario reciba el documento de préstamo y el acuerdo de aprobación de la Junta Directiva del Instituto, se le concederá un plazo máximo de 30 días naturales para aceptar el financiamiento y comunicarlo formalmente al IFAM, mediante el acuerdo del órgano colegiado respectivo. Vencido ese período, si el IFAM no ha recibido el acuerdo de aprobación, el acuerdo del préstamo podrá ser revocado por la Junta Directiva previo informe de las dependencias del financiamiento.

@@ -1,1 +1,0 @@
-Artículo 89: De la obligatoriedad de incorporar oportunamente las reformas que sufra el presente reglamento. Corresponde a la Dirección Ejecutiva incorporar toda reforma o adición que se aplique al presente reglamento, previa aprobación de la Junta Directiva del IFAM, una vez que sean debidamente publicadas en el Diario Oficial La Gaceta.
