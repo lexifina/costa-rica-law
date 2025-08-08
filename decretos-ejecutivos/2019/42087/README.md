@@ -16,3 +16,4 @@ Lineamientos generales de gestión de desempeño de las personas servidoras púb
 | 1 | 2019-12-10 | la propia norma |
 | 2 | 2022-04-18 | Decreto Ejecutivo 43476 (2022-04-18) |
 | 3 | 2023-02-28 | Decreto Ejecutivo 43952 (2023-02-28) |
+| 4 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
