@@ -14,3 +14,4 @@ Elaboración, aprobación y modificación del Plan Nacional de Desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-30 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
