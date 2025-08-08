@@ -13,7 +13,7 @@ REFORMA AL REGLAMENTO DEL ESTATUTO DE SERVICIO CIVIL DECRETO
 EJECUTIVO N° 21 Y REFORMA DEL REGLAMENTO A LA LEY DE LICENCIAS
 ADIESTRAMIENTO SERVIDORES PÚBLICOS DECRETO EJECUTIVO N° 17339-P
 Artículo 1. Adiciónese un capítulo denominado «CAPÍTULO XIII: CAPACITACIÓN Y DESARROLLO», al Reglamento del Estatuto de Servicio Civil, Decreto Ejecutivo N° 21 del 14 de diciembre de 1954, el cual dirá lo siguiente:
-“CAPÍTULO XIII
+"CAPÍTULO XIII
 CAPACITACIÓN Y DESARROLLO
 Sección I
 Naturaleza y propósito
@@ -87,7 +87,8 @@ Sección III
 Planificación y Desarrollo de la Capacitación
 Artículo 163. Las distintas acciones de capacitación por realizar en las instituciones del SUCADES, deberán contar con la autorización previa del CECADES, requiriéndose para ello su inclusión en un Plan Institucional de Capacitación (PIC). Dicho plan será flexible y susceptible de ajustarse e incorporar de ser necesarias aquellas acciones de capacitación no previstas puntualmente en su formulación original, o bien, aprovechar oportunidades que contribuyan a superar necesidades o situaciones laborales que surjan luego de su entrada en vigencia. Su periodicidad y las fechas de presentación al CECADES, para su respectiva revisión y aprobación, serán definidas por éste.
 Artículo 164. Para el cumplimiento de las disposiciones del artículo anterior, las unidades de capacitación o dependencias responsables de la capacitación institucional, procederán a realizar la investigación y la aplicación de instrumentos técnicos, que permitan identificar las áreas deficitarias en las que las personas servidoras requieren adquirir, actualizar o perfeccionar conocimientos, actitudes, habilidades y destrezas para su desarrollo humano y el mejor desempeño de sus cargos, actuales y futuros. Para ello considerará como elementos medulares los siguientes:
-a. Los objetivos y metas del Plan Nacional de Desarrollo (PND) relacionados con su respectivo sector institucional.
+a. Los objetivos y metas del Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*) relacionados con su respectivo sector institucional.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 b. Los objetivos y metas del Plan Estratégico institucional.
 c. Los resultados de la evaluación individual del desempeño, considerando las opciones de capacitación dirigidas a superar las bajas calificaciones.
 d. Las necesidades relacionadas con el fortalecimiento de las capacidades de las personas servidoras en puestos directivos o con probabilidades de ascenso a dichos puestos.
@@ -133,4 +134,4 @@ a) Que las actividades del puesto desempeñado puedan ser atendidas eficientemen
 b) Que la persona servidora devengue solamente el salario proporcional al tiempo efectivo de trabajo.
 c) Que la licencia se conceda mediante un contrato suscrito entre el o la Jerarca y la persona servidora.
 Artículo 177. Con excepción de las situaciones reguladas por motivos de capacitación, estudios formales y el ejercicio de la docencia en instituciones de educación superior, no podrán concederse permisos para trabajar menos horas de la jornada ordinaria diaria o semanal.
-Artículo 178. Se exceptúan de las restricciones estipuladas en este capítulo, las licencias que se concedan sin goce de salario, salvo cuando se trate del aprovechamiento de becas o facilidades, en cuyo caso se aplicará lo dispuesto en el artículo 7° de la Ley de Licencias para Adiestramiento de Servidores Públicos No. 3009 .”
+Artículo 178. Se exceptúan de las restricciones estipuladas en este capítulo, las licencias que se concedan sin goce de salario, salvo cuando se trate del aprovechamiento de becas o facilidades, en cuyo caso se aplicará lo dispuesto en el artículo 7° de la Ley de Licencias para Adiestramiento de Servidores Públicos No. 3009 ."
