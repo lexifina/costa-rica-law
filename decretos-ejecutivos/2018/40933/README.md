@@ -14,3 +14,4 @@ Reglamento para el desarrollo, fomento y gestión de las alianzas público priva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-30 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
