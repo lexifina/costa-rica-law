@@ -7,7 +7,8 @@ c) MS: Ministerio de Salud.
 d) ONG: Organización No-Gubernamental.
 e) OPS: Organización Panamericana de la Salud.
 f) PEI: Plan Estratégico Institucional.
-g) PND: Plan Nacional de Desarrollo.
+g) PNDIP: Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*).
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 h) PNS: Plan Nacional de Salud.
 i) POI: Plan Operativo Institucional.
 j) SINA VIS: Sistema Nacional de Información para la Vigilancia de la Salud.
@@ -34,13 +35,13 @@ r) Sistema Nacional de Salud. Conjunto de entes públicos y privados, interrelac
 Además de los entes nacionales, se consideran parte de este sistema los organismos que, siendo de carácter internacional, realizan actividades en el país relacionadas con la provisión de ese tipo de servicios.
 s) Unidad organizativa. Unidad básica de la estructura organizacional de la institución a la que se le confieren competencias propias, atribuciones y responsabilidades específicas.
 Artículo 2.- De las Funciones de Rectoría en Salud. Para ejercer la Rectoría, el Ministerio ejecuta, de manera continua, sistemática, proactiva, multidisciplinaria, sectorial, intersectorial y participativa, las Funciones de Rectoría. Las Funciones Rectoras son siete, no excluyentes entre sí:
-• Dirección y Conducción Política de la Salud.
-• Promoción de la Salud.
-• Vigilancia de la Salud.
-• Planificación de la Salud.
-• Modulación del Financiamiento de los Servicios de Salud.
-• Armonización de la Provisión de los Servicios de Salud.
-• Regulación de la Salud."
+. Dirección y Conducción Política de la Salud.
+. Promoción de la Salud.
+. Vigilancia de la Salud.
+. Planificación de la Salud.
+. Modulación del Financiamiento de los Servicios de Salud.
+. Armonización de la Provisión de los Servicios de Salud.
+. Regulación de la Salud."
 ( ... )
 "Artículo 4.-De la estructura organizacional. La estructura organizacional que se describe a continuación permite al Ministerio de Salud ejecutar, eficaz y eficientemente, los procesos necesarios para cumplir con las Funciones Rectoras en Salud, la provisión de servicios de salud y la gestión institucional.
 Artículo 5.- De los niveles de jerarquía institucional. Con la finalidad de determinar los niveles de responsabilidad y distribuir los procesos entre las unidades organizativas del Ministerio de Salud se identifican dos niveles de jerarquía:

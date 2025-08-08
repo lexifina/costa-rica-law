@@ -14,3 +14,4 @@ Reforma Reglamento Orgánico del Ministerio de Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-30 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
