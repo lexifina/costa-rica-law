@@ -15,3 +15,4 @@ Metodología tarifaria ordinaria para el servicio de distribución de energía e
 | --- | --- | --- |
 | 1 | 2015-08-10 | la propia norma |
 | 2 | 2018-07-09 | Resolución 119 (2018-07-09) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
