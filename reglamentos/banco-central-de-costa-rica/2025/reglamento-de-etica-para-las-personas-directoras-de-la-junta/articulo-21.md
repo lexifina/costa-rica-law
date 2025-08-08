@@ -1,0 +1,6 @@
+Artículo 21. -Admisión y efectos de la excusa, recusación y conflicto de interés En caso de que se admita la excusa o la recusación o se confirme la existencia de un conflicto de interés, la persona superior inmediata deberá adoptar las siguientes medidas:
+a) Comunicar esta circunstancia al Departamento de Gestión del Talento Humano.
+b) Instruir por escrito a la persona funcionaria afectada para que se abstenga de conocer, consultar, obtener información y, en general, de interesarse por el estado del asunto que motivó la excusa, recusación o conflicto de interés.
+c) Establecer límites a la accesibilidad de expedientes y archivos físicos y digitales al personal afectado por el conflicto de intereses, la excusa o la recusación.
+d) Advertir al personal encargado de conocer el asunto que generó el conflicto de interés, la excusa o recusación, que tiene prohibido dar información a la persona afectada por el conflicto de interés, la excusa o la recusación.
+e) Cuando un conflicto de interés, excusa o recusación, a juicio de la entidad, comprometa gravemente la consecución del fin público, o su existencia sea permanente y prolongada en el tiempo, además de las medidas que resulten de la aplicación de los incisos anteriores, se podrá reubicar al personal, de forma temporal o permanente, en una plaza de iguales condiciones a la que ocupa.

@@ -1,0 +1,1 @@
+Artículo 8. -Uso indebido del cargo o investidura. Ninguna persona funcionaria se encuentra autorizada para utilizar su cargo o investidura, ni los recursos, bienes o servicios que brinda la Administración en la que se desempeña, para la obtención de un provecho o beneficio propio o de un tercero, de forma directa o indirecta.

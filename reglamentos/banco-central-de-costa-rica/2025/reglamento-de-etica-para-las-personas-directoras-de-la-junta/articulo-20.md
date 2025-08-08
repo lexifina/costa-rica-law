@@ -1,0 +1,8 @@
+Artículo 20. -Del recusante. En los casos en que un tercero considere legítimo recusar a una persona funcionaria mientras esta se encuentra en conocimiento de un determinado asunto, el recusante deberá cumplir con lo siguiente:
+a) Solo tendrá el derecho de recusar la parte o el interviniente que pueda ser perjudicado con la causal.
+b) Exponer su solicitud por escrito o de forma oral ante el órgano o persona funcionaria que conoce del asunto, donde exprese los argumentos del caso y aportar las pruebas pertinentes.
+c) Únicamente la persona superior inmediata del órgano o persona funcionaria que conoce el asunto, podrá tramitar y resolver la recusación correspondiente. No serán recusables el Gerente, el Subgerente, el Superintendente o Intendente, para conocer de una recusación que estén llamados a resolver, salvo que sean directamente las personas recusadas, en cuyo caso, la recusación será resuelta por la Junta Directiva del Banco Central de Costa Rica o el Conassif, según corresponda.
+d) Si la recusación recae sobre una persona integrante de la Junta Directiva del Banco Central de Costa Rica o del CONASSIF, será ese órgano colegiado, en ausencia de la persona recusada, el encargado de resolverla.
+e) La persona funcionaria recusada tendrá tres días a partir de la notificación de la gestión, para decidir si se abstiene o si la considera infundada, y deberá responder por escrito los argumentos planteados.
+f) Lo resuelto por la persona funcionaria recusada se pondrá en conocimiento de la parte interesada, quien dispondrá de 24 horas para pronunciarse, luego de lo cual, la persona funcionaria u órgano competente resolverá lo pertinente en el plazo de cinco días.
+g) Interpuesta la recusación, no podrá ser retirada.

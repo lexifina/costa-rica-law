@@ -1,0 +1,1 @@
+Artículo 10. -Uso de recursos. Las personas funcionarias están obligadas a garantizar que los recursos institucionales, incluidos los fondos públicos y las instalaciones, se utilicen exclusivamente para los fines autorizados y conforme a las disposiciones legales y reglamentarias aplicables.

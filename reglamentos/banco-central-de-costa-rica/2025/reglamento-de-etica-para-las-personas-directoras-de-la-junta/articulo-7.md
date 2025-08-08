@@ -1,0 +1,1 @@
+Artículo 7. - Trabajo responsable. Las personas funcionarias están obligadas a dedicar su jornada laboral exclusivamente al desempeño de sus labores asignadas. Específicamente, queda prohibido realizar actividades de índole personal o privada, durante su horario laboral que puedan interferir con el cumplimiento de las responsabilidades y funciones de su puesto.

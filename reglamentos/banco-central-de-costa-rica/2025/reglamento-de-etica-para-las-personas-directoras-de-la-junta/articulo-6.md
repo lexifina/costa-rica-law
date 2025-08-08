@@ -1,0 +1,3 @@
+Capítulo III
+Normas generales de comportamiento
+Artículo 6. -Trato respetuoso y cortés. Todas las personas funcionarias deben tratarse mutuamente con respeto y cortesía y observarán este mismo trato con los usuarios de sus servicios, proveedores y personas externas a la entidad. Se consideran antiéticas, y se rechaza en forma absoluta, las conductas de hostigamiento sexual o laboral, así como cualquier expresión de odio, prejuicio o discriminación basada en criterios de discapacidad, raza, religión, orientación sexual o cualquier otro tipo de condición o preferencia de carácter estrictamente personal.

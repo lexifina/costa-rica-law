@@ -1,0 +1,1 @@
+Artículo 26. -Tratamiento de la denuncia. Las denuncias serán tramitadas conforme a lo establecido en el Reglamento para el Trámite de Denuncias e Investigaciones Preliminares en el Banco Central de Costa Rica y sus Órganos de Desconcentración Máxima para garantizar su debido proceso.

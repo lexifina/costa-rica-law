@@ -1,0 +1,1 @@
+Artículo 18. -De la excusa, abstención o recusación Toda persona funcionaria debe excusarse cuando recaiga sobre ella un motivo de abstención que pueda afectar su imparcialidad, objetividad, independencia o criterio, según lo dispuesto en este Reglamento y en el resto del ordenamiento jurídico aplicable.

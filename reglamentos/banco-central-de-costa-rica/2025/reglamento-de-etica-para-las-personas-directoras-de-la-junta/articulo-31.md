@@ -1,0 +1,1 @@
+Artículo 31. -Actualización. Este Reglamento deberá revisarse al menos cada tres años y someterse a aprobación de la Junta Directiva, en caso de requerirse alguna modificación. La revisión será responsabilidad del Departamento Calidad y Mejora Continua de conformidad con lo dispuesto en el artículo anterior.

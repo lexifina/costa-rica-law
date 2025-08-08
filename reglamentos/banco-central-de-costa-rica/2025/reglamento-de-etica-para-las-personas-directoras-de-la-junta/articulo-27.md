@@ -1,0 +1,1 @@
+Artículo 27. -Resguardo de la identidad de la persona denunciante. La identidad de la persona denunciante será resguardada con carácter confidencial durante todo el trámite de la denuncia y después de concluido, excepto requerimiento expreso de una autoridad judicial ante la posible existencia de un delito contra el honor de la persona denunciada.

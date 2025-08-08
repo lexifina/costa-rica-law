@@ -1,0 +1,1 @@
+Artículo 22. -Abstención de desacreditar. Todo el personal debe abstenerse de desacreditar a la entidad o a sus compañeros y compañeras de trabajo, tanto durante el ejercicio de sus funciones como en sus actividades privadas. Esto no impide la expresión de opiniones distintas.
