@@ -14,3 +14,4 @@ Oficialización y declaratoria de interés público y nacional el modelo de arti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-21 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
