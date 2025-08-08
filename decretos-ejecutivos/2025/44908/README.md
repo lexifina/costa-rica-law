@@ -14,3 +14,4 @@ Reglamento a los capítulo I y II, Sección I del capítulo V de la Ley del Sist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-27 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |

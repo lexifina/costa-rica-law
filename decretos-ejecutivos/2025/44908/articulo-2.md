@@ -31,7 +31,8 @@ bb) ONG: Organización no gubernamental.
 ce) OPS: Organización Panamericana de la Salud.
 dd) OTC: Obstáculos Técnicos al Comercio.
 ee) PNCAL: Política Nacional de Calidad.
-ff) PND: Plan Nacional de Desarrollo.
+ff) PNDIP: Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 gg) PNC: Plan Nacional de Calidad.
 hh) PNRT: Plan Nacional de Reglamentación Técnica
 ii) PEC: Procedimiento para la evaluación de la conformidad.
