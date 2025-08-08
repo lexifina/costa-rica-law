@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PURISCAL
+II Reforma al reglamento para la gestión del cobro administrativo y judicial de la Municipalidad de Puriscal
+Artículo 1º-Deróguese completo el Capítulo IV "Del Cobro Administrativo Externo", del Reglamento para la Gestión del Cobro Administrativo y Judicial de la Municipalidad de Puriscal, incluyendo sus artículos 18, 19, 20, 21, 22, 23 y 24, así como la reforma al artículo 20 del mismo Reglamento, aprobada por el Concejo Municipal de Puriscal, mediante el acuerdo 07-256-2023 y publicada en la Imprenta Nacional en la edición Nº154 de La Gaceta del 24 de agosto del año 2023.
