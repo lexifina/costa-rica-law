@@ -16,3 +16,4 @@ Metodología tarifaria para la protección del recurso hídrico
 | 1 | 2018-12-18 | la propia norma |
 | 2 | 2019-04-23 | Resolución 85 (2019-04-23) |
 | 3 | 2023-10-04 | Resolución 98 (2023-10-04) |
+| 4 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
