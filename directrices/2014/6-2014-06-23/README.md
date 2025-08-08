@@ -14,3 +14,4 @@ Elaboración del Plan Nacional de Desarrollo 2015-2018
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-23 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
