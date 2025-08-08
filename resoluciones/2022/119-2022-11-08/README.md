@@ -14,3 +14,4 @@ Reforma Establece el Modelo para la Determinación de Tarifas de Referencia para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-18 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
