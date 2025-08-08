@@ -15,3 +15,4 @@ Reglamento operativo de la Secretaría de Planificación Sectorial de Ambiente, 
 | --- | --- | --- |
 | 1 | 2017-11-02 | la propia norma |
 | 2 | 2018-04-09 | Decreto Ejecutivo 41135 (2018-04-09) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
