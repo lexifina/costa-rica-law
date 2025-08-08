@@ -51,7 +51,8 @@ kWh Kilovatio hora
 Mideplan Ministerio de Planificación Nacional y Política Económica
 MINAE Ministerio de Ambiente y Energía
 NIIF Normas Internaciones de Información Financiera
-PND Plan Nacional de Desarrollo
+Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)" (*)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 PNE Plan Nacional de Energía
 SNE Servicio Nacional de Electricidad
 WACC Modelo de costo promedio ponderado del capital
@@ -186,8 +187,9 @@ La Junta Directiva, el regulador general, el regulador general adjunto y los mie
 De conformidad con lo anteriormente expuesto, resulta claro que la Junta Directiva de la Autoridad Reguladora, es la competente para emitir las metodologías tarifarias de los servicios públicos regulados incluyendo el de suministro de energía eléctrica en sus etapas de generación, transmisión, distribución y comercialización; para lo cual deberá seguir el procedimiento de audiencia pública en el garantice la participación ciudadana y para la emisión de las mismas deberá observar el principio de servicio al costo, las reglas de la ciencia y la técnica y las disposiciones generales emitidas en el Plan Nacional de Desarrollo, relativas al sector eléctrico.
 Una vez que se ha determinado el marco jurídico que respalda el ejercicio de la función regulatoria por parte de la Aresep y de su facultad para emitir metodologías que le permitan la fijación de tarifas, es preciso observar el servicio público cuya metodología nos ocupa.
 3. Regulación del servicio de suministro de energía eléctrica en Costa Rica
-Tratándose del sector eléctrico en Costa Rica, se observa que éste se caracteriza por una amplia participación del Estado en los ámbitos de políticas, planificación, regulación y operación. La definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Dirección Sectorial de Energía (DSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VI Plan Nacional de Energía 2012-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo (PND). Asimismo, la labor de regulación (incluida la fijación de tarifas) del servicio de suministro de energía eléctrica en todas sus etapas, está a cargo de la Autoridad Reguladora de los Servicios Públicos (Aresep), según el artículo 5 inciso a) la Ley N° 7593.
+Tratándose del sector eléctrico en Costa Rica, se observa que éste se caracteriza por una amplia participación del Estado en los ámbitos de políticas, planificación, regulación y operación. La definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Dirección Sectorial de Energía (DSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VI Plan Nacional de Energía 2012-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)"(*). Asimismo, la labor de regulación (incluida la fijación de tarifas) del servicio de suministro de energía eléctrica en todas sus etapas, está a cargo de la Autoridad Reguladora de los Servicios Públicos (Aresep), según el artículo 5 inciso a) la Ley N° 7593.
 La prestación de dicho servicio público, como cualquier otro, amerita por parte de la Aresep, la fijación de tarifas en sus diversas etapas, ello de conformidad con la normativa aplicable y las metodologías que se establezcan al efecto.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 En cuanto al servicio de suministro de energía eléctrica, la Aresep debe realizar su labor también con vista en el Reglamento Sectorial de Servicios Eléctricos (Decreto Nº 29847-MP-MINAE-MEIC del 19 de noviembre de 2001), que dispone lo siguiente:
 "Artículo 1º. Campo de aplicación. Este Reglamento define y describe las condiciones principales en que debe suministrarse el servicio eléctrico, en condiciones normales de explotación.
 Su aplicación es obligatoria para las empresas eléctricas que se encuentren establecidas en el país o que llegaren a establecerse bajo régimen de concesión, de conformidad con las leyes correspondientes.
@@ -944,10 +946,9 @@ IRL = Índice de revaluación de activos local.
 IPCRt = Índice de precios de Costa Rica representativo del activo al mes de diciembre del período t.
 IPCRt+1 = Índice de precios de Costa Rica representativo del activo al mes de diciembre del período t+1.
 L = Local.
-[imagen] = Porcentaje de componente del gasto local.
+= Porcentaje de componente del gasto local.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor se considerará la expectativa de inflación publicada por el Banco Central de Costa Rica en su Programa Macroeconómico (más actualizado). Mientras que la información real del índice se obtiene del Instituto Nacional de Estadística y Censos (INEC). Para la proyección se utiliza la variación interanual del índice al último mes disponible de información.
 Índice de revaluación para activos de origen externo
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
@@ -956,11 +957,10 @@ IPUSAt = Índice de precios de Estados Unidos representativo del activo al mes d
 IPUSAt+1 = Índice de precios de Estados Unidos representativo del activo al mes de diciembre del período t+1.
 Tcvet+1 = Tipo de cambio de Venta (CRC/USD) estimado. Estimaciones de la IE correspondiente a diciembre del periodo t+1.
 Tcvt = Tipo de cambio de Venta (CRC/USD) establecido por el Banco Central de Costa Rica (BCCR). Calculado como la media aritmética diaria de los meses disponibles al año anterior para el cual se está realizando la fijación tarifaria.
-[imagen] = Porcentaje de componente del gasto externo.
+= Porcentaje de componente del gasto externo.
 E = Externo.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor de Estados Unidos o el Índice de Precios al Productor de Estados Unidos se utiliza como fuente para la información real el Bureau of Labor Statistics de USA. Para la proyección se utilizará la variación interanual del índice al último mes disponible de información o las estimaciones de la IE si se tienen.
 Índice compuesto de revaluación para activos:
-[imagen]
 Donde:
 IR = Índice de revaluación compuesto.
 IRL = Índice de revaluación de activos local.
@@ -968,8 +968,7 @@ IRE = Índice de revaluación de activos externo.
 L = Local.
 E = Externo.
 com = Compuesto.
-Depreciación al costo [imagen]
-[imagen]
+Depreciación al costo
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con laContabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último EstadoFinanciero auditado o disponible para el servicio regulado (El valor disponibleal 31 de diciembre utilizado como saldo final) o lo que disponga laIntendencia con la Contabilidad Regulatoria.
@@ -979,7 +978,6 @@ RDc = Retiro de activos depreciados al costo.
 Dep = Depreciación. (ver fórmula 34)
 TDcto = Traslados depreciados al costo.
 cto = Al costo
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 Dep = Depreciación.
@@ -991,13 +989,11 @@ TActo = Traslado de activos al costo.
 cto = Al costo
 Tanto las adiciones de activos como los retiros se ponderan por 0,5 dado que se desconoce en qué momento del año se realizarán.
 La tasa de depreciación de cada activo se calcula de la siguiente forma:
-[imagen]
 Donde:
 TDA = Tasa de depreciación del activo
 VAR = Valor de rescate
 VU = Vida útil
-Depreciación acumulada revaluada [imagen]
-[imagen]
+Depreciación acumulada revaluada
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la
@@ -1010,7 +1006,6 @@ Revdr = Revaluación de la depreciación revaluada.
 TAdr = Traslado de activos depreciados revaluados.
 r = Revaluado.
 Cálculo de la depreciación revaluada
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 TDac = Tasa de depreciación.
@@ -1020,7 +1015,6 @@ TAr = Traslado de activos revaluados.
 r = Revaluado.
 Los retiros se ponderan por 0,5 dado que se desconoce en qué momento del año se realizarán éstas.
 Cálculo de la revaluación de la depreciación revaluada
-[imagen]
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 𝑅𝑒𝑣𝑑𝑟 = = Revaluación de la depreciación revaluada.
 IR = Índice de revaluación de activos local, externo o compuesto según corresponda.
@@ -1038,7 +1032,6 @@ El financiamiento aprobado para las inversiones y adiciones programadas en el Pl
 Los activos deben responder a dos criterios: útiles para la prestación del servicio y efectivamente se utilicen en la misma (utilizable).
 5.2. Capital de trabajo
 El capital de trabajo se estima como el período medio de cobro multiplicado por el efectivo requerido de operación por día (gastos de operación, mantenimiento y administración menos las depreciaciones, las partidas amortizables, los gastos por pérdidas de retiros de activos, todo eso dividido entre 360), de la siguiente manera:
-[imagen]
 Donde:
 CT = Capital de trabajo.
 CxC = Promedio de las cuentas por cobrar de los últimos 3 períodos anuales auditados de los estados financieros.
@@ -1049,13 +1042,13 @@ Pa = Gastos por partidas amortizables.
 GPer = Gastos por pérdidas de retiros de activos.
 El período medio de cobro es el resultado del cociente entre las cuentas por cobrar y los ingresos por venta, el número de días a utilizar no debe ser superior al promedio de la industria. En aquellas empresas que dispongan de un número de días menor al promedio, este será utilizado.
 5.3 Inversiones
-El Plan de Inversiones debe ser presentado según el formato de clasificación de activos establecido por la Intendencia de Energía y clasificadas en micro y macro inversiones y las sub-clasificaciones correspondientes. Adicionalmente, se debe justificar la concordancia del Plan de Inversiones con el Plan Nacional de Desarrollo (PND) y el Plan Nacional de Energía (PNE), cuando corresponda.
+El Plan de Inversiones debe ser presentado según el formato de clasificación de activos establecido por la Intendencia de Energía y clasificadas en micro y macro inversiones y las sub-clasificaciones correspondientes. Adicionalmente, se debe justificar la concordancia del Plan de Inversiones con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)"(*) y el Plan Nacional de Energía (PNE), cuando corresponda.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 Se analiza que las inversiones solicitadas tengan una justificación técnica y financiera razonable y que éstas tengan un impacto positivo en la calidad y continuidad del servicio.
 También se analiza la razonabilidad de los precios de cada una de las obras incluidas.
 Los montos de inversión avalados por Aresep serán los montos de adición de activos utilizados para calcular el activo fijo neto. Se podrá adicionar la totalidad de los activos reconocidos en las inversiones en cada año, si el promedio del porcentaje de ejecución es un 100%.
 5.3.1 Determinación de las adiciones.
 La cantidad de adiciones se calcula como la proporción del porcentaje de ejecución de las inversiones reconocidas por la Aresep:
-[imagen]
 Determinación del Porcentaje de ejecución
 1. En cada estudio tarifario, las empresas deben reportar la cantidad de obras que construyó o bien la cantidad de equipos que instaló durante el año.
 2. Se determina el porcentaje de ejecución anual de inversiones, como el cociente entre las obras construidas o equipos instalados por la empresa, y la cantidad de obras o de equipos reconocidos por la Intendencia para ese año.
