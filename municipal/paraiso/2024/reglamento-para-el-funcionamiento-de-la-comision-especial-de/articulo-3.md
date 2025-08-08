@@ -1,0 +1,1 @@
+Artículo 3.- La Comisión será nombrada por el mismo período de los miembros de la corporación que los designe, o lo que reste de él. Sus integrantes podrán ser reelegidos y desempeñarán sus cargos ad honorem.

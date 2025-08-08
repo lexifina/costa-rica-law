@@ -1,0 +1,1 @@
+Artículo 14.- Los Estudios técnicos deberán ser dirigidas al Presidente o a la Secretaría del Concejo Municipal, quien debe consignar la fecha y hora de recibido, y deben ser analizados por la Comisión según el orden de presentación.

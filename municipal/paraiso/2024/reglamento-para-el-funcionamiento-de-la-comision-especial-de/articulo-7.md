@@ -1,0 +1,1 @@
+Artículo 7.- Se podrá terminar la sesión sin que sea necesario analizar todos los puntos de la agenda, mediante acuerdo tomado por mayoría simple de sus integrantes, quedando los pendientes para la próxima sesión.

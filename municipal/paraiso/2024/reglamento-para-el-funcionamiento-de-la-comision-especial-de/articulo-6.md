@@ -1,0 +1,1 @@
+Artículo 6.- Podrán celebrarse sesiones ordinarias o extraordinarias en otros lugares del cantón, cuando se vaya a tratar asuntos relativos a los intereses de los vecinos(as) de la localidad, o cuando la índole de los asuntos a tratar así lo requieran, siempre y cuando se indique así en la convocatoria.

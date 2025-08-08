@@ -1,0 +1,1 @@
+Artículo 2.- La Comisión Especial del Plan Regulador podrá contar con un número no mayor de cinco asesores(as), los(as) cuales deberán ser nombrados(as) por el presidente Municipal en la sesión del Concejo Municipal inmediata al conocimiento de alguno de los supuestos indicados anteriormente.
