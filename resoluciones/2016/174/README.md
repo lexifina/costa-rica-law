@@ -14,3 +14,4 @@ Reforma Metodología para la Fijación Ordinaria de Tarifas para el Servicio Rem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-12 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
