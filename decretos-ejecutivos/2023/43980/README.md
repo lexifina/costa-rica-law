@@ -15,3 +15,4 @@ Reglamento a la Ley N° 8634, Ley Sistema de Banca para el Desarrollo
 | --- | --- | --- |
 | 1 | 2023-04-25 | la propia norma |
 | 2 | 2024-10-04 | Decreto Ejecutivo 44757 (2024-10-04) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
