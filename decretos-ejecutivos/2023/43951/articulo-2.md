@@ -31,7 +31,8 @@ l) DCI: Dirección de Cooperación Internacional del MRREE.
 m) MIDEPLAN: Ministerio de Planificación Nacional y Política Económica.
 n) OCDE: Organización para la Cooperación y el Desarrollo Económico.
 o) ONG`s: Organizaciones no Gubernamentales.
-p) PND: Plan Nacional de Desarrollo.
+p) PNDIP: Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 q) PEN: Plan Estratégico Nacional.
 r) POLCI: Política de Cooperación Internacional de Costa Rica.
 s) MRREE: Ministerio de Relaciones Exteriores y Culto.

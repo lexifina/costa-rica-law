@@ -14,3 +14,4 @@ Reglamento del artículo 11 de la Ley de Planificación Nacional Nº 5525 del 2 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-21 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
