@@ -1,0 +1,1 @@
+Artículo 31. De costo de la prueba. Cuando la práctica de una prueba, solicitada por alguna de las partes, implique gastos que no corresponda asumir al Colegio, el Tribunal de Honor podrá exigir, bajo pena de inadmisibilidad, el depósito previo del monto correspondiente.

@@ -1,0 +1,3 @@
+Artículo 16. Inhibitoria. La solicitud de inhibitoria por parte de un integrante de la Fiscalía deberá presentarse por escrito, de manera debidamente fundamentada y con base en alguna de las causales establecidas en el artículo anterior. Ningún miembro de la Fiscalía podrá inhibirse sin invocar una causal previamente justificada.
+La solicitud será resuelta por la persona que ejerza el cargo de Fiscal Ejecutiva, en un plazo máximo de cinco días hábiles. En caso de que la causal de inhibitoria recaiga sobre la persona titular de la Fiscalía Ejecutiva, la resolución corresponderá a quien ostente el cargo de Fiscal del Colegio.
+Contra lo resuelto en materia de inhibitoria no cabrá recurso alguno.

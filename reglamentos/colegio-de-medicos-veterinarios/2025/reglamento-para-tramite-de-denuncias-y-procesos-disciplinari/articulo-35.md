@@ -1,0 +1,3 @@
+Artículo 35. Desistimiento tácito. Es obligación de las partes asistir a las audiencias a las que sean convocadas durante el curso del procedimiento. En caso de ausencia, sin justa causa, de cualquiera de las partes, la audiencia se celebrará sin su presencia.
+Se tendrá por desistida tácitamente la denuncia cuando la parte que la interpuso no comparezca a la audiencia sin justa causa. Dicha justificación deberá acreditarse dentro de las veinticuatro horas siguientes a la realización de la audiencia, por medios legalmente reconocidos.
+Transcurrido dicho plazo, o bien cuando la justificación no fuere válida, se ordenará el archivo del expediente.

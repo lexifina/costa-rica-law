@@ -1,0 +1,1 @@
+Artículo 9. De las Deliberaciones. El Tribunal deberá contar con asesoría un profesional en derecho. Tanto las deliberaciones como las votaciones serán secretas y durante su desarrollo solo podrán estar presentes quienes integran el Tribunal, la persona asesora legal y el personal de apoyo.

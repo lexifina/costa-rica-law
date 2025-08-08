@@ -1,0 +1,1 @@
+Artículo 3. Competencia. El cumplimiento de la función encomendada al Tribunal de Honor tendente a declarar la responsabilidad disciplinaria de las personas profesionales en medicina veterinaria por violaciones al Código de Ética.

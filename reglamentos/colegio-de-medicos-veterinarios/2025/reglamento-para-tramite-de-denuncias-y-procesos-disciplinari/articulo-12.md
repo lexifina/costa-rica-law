@@ -1,0 +1,4 @@
+Artículo 12. De rechazo de plano. La Fiscalía rechazará de plano, mediante resolución debidamente razonada, las denuncias que fueran improcedentes, que no estén sustentadas en prueba suficiente que permita continuar con la investigación o que los hechos denunciados no constituyan falta ética.
+Asimismo, se considerarán improcedentes aquellas denuncias que se refieran exclusivamente a aspectos patrimoniales, sin perjuicio de los eventuales acuerdos conciliatorios que las partes puedan alcanzar en relación con el expediente en análisis.
+Contra la resolución que rechace de plano una denuncia, únicamente procederá el recurso de revocatoria.
+Este recurso deberá ser interpuesto por escrito ante la misma Fiscalía dentro del plazo de tres días hábiles contados a partir de la notificación de la resolución impugnada. La Fiscalía deberá resolverlo en un plazo no mayor a diez días hábiles.

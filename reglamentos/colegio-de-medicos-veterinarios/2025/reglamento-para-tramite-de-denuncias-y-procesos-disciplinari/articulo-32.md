@@ -1,0 +1,3 @@
+Artículo 32. De los dictámenes y peritajes. Los dictámenes y peritajes requeridos por el Colegio serán, por regla general, encomendados a sus órganos, funcionarias o funcionarios, o a personas colegiadas con experiencia en la materia correspondiente.
+Únicamente en casos de falta de personas expertas dentro del Colegio, o cuando la prueba requiera conocimientos de especial complejidad o importancia, podrán contratarse servicios técnicos externos.
+Las partes podrán presentar testigos periciales, cuyas declaraciones se regirán por las normas aplicables a la prueba testimonial. No obstante, podrán ser interrogados sobre aspectos técnicos y de apreciación.

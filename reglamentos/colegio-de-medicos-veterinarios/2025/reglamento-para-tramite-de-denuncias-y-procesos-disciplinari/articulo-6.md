@@ -1,0 +1,1 @@
+Artículo 6. De la asesoría del Tribunal de Honor. El Tribunal deberá contar con asesoría profesional en derecho. El Tribunal de Honor deberá de contar con el personal administrativo necesario para el cumplimiento de sus funciones y podrá solicitar a la Administración del Colegio el apoyo para las diligencias de notificación, publicaciones y demás labores.

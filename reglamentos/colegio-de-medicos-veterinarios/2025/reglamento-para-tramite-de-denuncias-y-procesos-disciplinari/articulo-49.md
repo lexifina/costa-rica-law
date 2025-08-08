@@ -1,0 +1,1 @@
+Artículo 49. De la forma del desistimiento. El desistimiento deberá presentarse por escrito y surtirá efectos únicamente respecto de quien lo formule, sin perjuicio de la continuidad del procedimiento si subsisten otros elementos que lo justifiquen.

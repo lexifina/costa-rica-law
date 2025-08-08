@@ -1,0 +1,4 @@
+Artículo 41. Procedimiento para la interposición de recursos. El recurso de revocatoria deberá interponerse dentro de los tres días hábiles siguientes a la notificación del acto impugnado y será resuelto por el propio Tribunal de Honor.
+En los casos en que corresponda el recurso de apelación, este deberá presentarse dentro de los ocho días hábiles posteriores a la comunicación del acto impugnado. Todos los recursos se presentarán ante el Tribunal de Honor.
+Si se interponen ambos recursos de manera simultánea, la apelación se tramitará únicamente si primero se declara sin lugar la revocatoria. En tal caso, el Tribunal emplazará a las partes ante la Junta Directiva y remitirá el expediente para su conocimiento y resolución.
+Contra lo resuelto por la Junta Directiva solo cabrá recurso de revocatoria, que será resuelto por la misma Junta.

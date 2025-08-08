@@ -1,0 +1,2 @@
+Artículo 30. De la prueba. El Tribunal ordenará y practicará todas las diligencias probatorias necesarias para determinar la verdad real de los hechos, ya sea de oficio o a solicitud de parte.
+Las pruebas que no puedan ser recibidas por causa imputable a las partes se declararán inevacuables. La presentación de los medios probatorios deberá realizarse dentro de los plazos establecidos en la Ley General de la Administración Pública.

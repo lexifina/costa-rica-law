@@ -1,0 +1,1 @@
+Artículo 46. Delegación de funciones. La Junta Directiva delegará en la Fiscalía la responsabilidad del seguimiento de la ejecución de las sanciones impuestas por el Tribunal de Honor, incluyendo los acuerdos de conciliación. La Fiscalía deberá informar oportunamente al Tribunal de Honor sobre su ejecución.

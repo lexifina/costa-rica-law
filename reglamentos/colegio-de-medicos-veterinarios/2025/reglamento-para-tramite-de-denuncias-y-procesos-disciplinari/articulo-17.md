@@ -1,0 +1,1 @@
+Artículo 17. De la instrucción. La investigación preliminar será dirigida por la Fiscalía mediante un procedimiento sumario, el cual será reglamentado por la propia Fiscalía. Esta etapa tendrá carácter sumario, confidencial e informal; por lo tanto, no será exigible la aplicación estricta de las reglas del debido proceso ni del derecho de defensa al denunciado.

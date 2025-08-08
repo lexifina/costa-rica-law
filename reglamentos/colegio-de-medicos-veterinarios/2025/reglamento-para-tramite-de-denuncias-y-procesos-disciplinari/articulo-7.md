@@ -1,0 +1,4 @@
+Artículo 7. Del deber de investigar. Las violaciones al Código de Ética deberán ser investigadas por la Fiscalía y de encontrarse mérito se elevarán al Tribunal de Honor, para que este proceda con lo que corresponda, según se establece la Ley N.º 3455, Reglamento y el Código.
+En todas las etapas del procedimiento deberán prevalecer los principios generales de presunción de inocencia y el derecho al debido proceso.
+El trámite establecido en este Reglamento se aplicará, complementariamente con todo el proceso disciplinario que se tramite con motivo de las violaciones a la Ley N.º 3455, a su Reglamento o al Código y demás denuncias que se presenten contra la actividad de las personas colegiadas.
+El Tribunal, la Fiscalía y la Junta Directiva deberán, en lo que a cada uno de estos órganos le competa, adoptar sus resoluciones y recomendaciones dentro del procedimiento, con estricto apego al ordenamiento jurídico y a este Reglamento.

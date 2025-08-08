@@ -1,0 +1,1 @@
+Artículo 44. Cumplimiento de la sanción. Una vez constatado el fiel cumplimiento de la sanción impuesta, la Fiscalía deberá informar al Tribunal de Honor y a la Junta Directiva, según corresponda, para que se ordene el archivo del expediente.

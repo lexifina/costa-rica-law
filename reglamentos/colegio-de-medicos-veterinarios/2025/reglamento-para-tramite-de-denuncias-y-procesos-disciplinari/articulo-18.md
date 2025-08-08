@@ -1,0 +1,1 @@
+Artículo 18. Colaboración interinstitucional. Durante el trámite de la investigación, la Fiscalía podrá requerir la colaboración de otras áreas, instituciones o entidades, sean estas públicas o privadas, en todo lo relacionado con los aspectos que sean de su competencia.

@@ -1,0 +1,1 @@
+Artículo 36. De las conclusiones. Una vez finalizada la audiencia oral y privada, el Tribunal pondrá a disposición de las partes la grabación correspondiente y les concederá un plazo para la presentación de sus conclusiones. Vencido dicho plazo, el expediente se considerará listo para el dictado de la resolución final.
