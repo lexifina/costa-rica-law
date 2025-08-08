@@ -15,3 +15,4 @@ Reglamento a la Ley N° 10096 del 24 de noviembre de 2021, Ley de Desarrollo Reg
 | --- | --- | --- |
 | 1 | 2023-02-20 | la propia norma |
 | 2 | 2023-08-25 | Decreto Ejecutivo 44204 (2023-08-25) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
