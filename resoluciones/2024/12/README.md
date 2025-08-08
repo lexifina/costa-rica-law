@@ -14,3 +14,4 @@ Reforma Metodología tarifaria ordinaria para el servicio de generación de ener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-17 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
