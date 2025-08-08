@@ -15,3 +15,4 @@ Reglamento para el trámite por parte del sector público del dictamen del Banco
 | --- | --- | --- |
 | 1 | 2022-07-05 | la propia norma |
 | 2 | 2024-09-18 | Ley 10524 |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
