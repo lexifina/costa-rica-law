@@ -15,3 +15,4 @@ Reglamento a la Ley N° 9036 Transforma el Instituto de Desarrollo Agrario (IDA)
 | --- | --- | --- |
 | 1 | 2018-05-04 | la propia norma |
 | 2 | 2021-06-29 | Decreto Ejecutivo 43102 (2021-06-29) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
