@@ -1,6 +1,7 @@
 POLÍTICA NO. 3: SOBRE LOS PROCESOS DE PLANIFICACIÓN Y CONTROL PARA LA EJECUCIÓN DE LOS RECURSOS QUE DEBE ASIGNAR EL INA.
 El INA junto con la Secretaría Técnica del SBD, definirán las acciones estratégicas que luego serán incorporadas en el Plan Estratégico institucional, donde se establecerán indicadores específicos para la gestión de los recursos que deben asignarse a los propósitos del SBD, según lo dispone la Ley 9274. Dichas acciones estratégicas deberán ser aprobadas por el Concejo Rector y alineadas con el Plan Estratégico de la Secretaría Técnica del SBD.
-Para el cumplimiento de lo establecido en Ley 9274, artículo No. 41, inciso a), y en el Reglamento, artículo No. 52; las actividades, servicios y programas que planifique e implemente el INA se deberán ejecutar con base en el Plan Nacional de Desarrollo (PND), las políticas públicas y los lineamientos que emita el Consejo Rector.
+Para el cumplimiento de lo establecido en Ley 9274, artículo No. 41, inciso a), y en el Reglamento, artículo No. 52; las actividades, servicios y programas que planifique e implemente el INA se deberán ejecutar con base en el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*), las políticas públicas y los lineamientos que emita el Consejo Rector.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 Para operativizar las acciones estratégicas definidas se establecerá un plan de trabajo bianual el cual se le dará seguimiento con el fin de realimentar los procesos y realizar ajustes en caso de que se considera necesario.
 El INA debe establecer una estrategia de seguimiento al Plan Estratégico, al POIA y al presupuesto de los recursos indicados, remitirá copia al Consejo Rector de los reportes de avance trimestral respectivos.
 Directriz 3.1: Calendarización formal de fechas límites en los procesos de planificación, ejecución y control de los recursos a asignar por el INA al SBD, según la Ley 9274
@@ -42,8 +43,8 @@ p. Sector prioritario.
 q. Sector productivo.
 r. Estado (finalizó, desertó).
 s. Tamaño empresa (micro, pequeña y mediana) según sector:
-• Sector comercio, industria y servicio.
-• Sector agropecuario.
+. Sector comercio, industria y servicio.
+. Sector agropecuario.
 t. Actividad económica.
 u. Años de experiencia en la actividad económica.
 v. Fecha nacimiento del beneficiario/ o persona jurídica

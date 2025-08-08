@@ -15,3 +15,4 @@ Políticas y lineamientos para la ejecución de los recursos del Instituto Nacio
 | --- | --- | --- |
 | 1 | 2015-11-25 | la propia norma |
 | 2 | 2016-10-04 | Reglamento 0 (2016-10-04) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
