@@ -14,3 +14,4 @@ Declara de Conveniencia Nacional el Proyecto denominado "Componente A: Puente so
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-05 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
