@@ -14,3 +14,4 @@ Reforma Reglamento para la transición a la Televisión Digital Terrestre en Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-16 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
