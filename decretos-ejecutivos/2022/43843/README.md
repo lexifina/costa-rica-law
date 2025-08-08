@@ -14,3 +14,4 @@ Plan Nacional de Desarrollo de las Telecomunicaciones (PNDT) 2022-2027: "Costa R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-13 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
