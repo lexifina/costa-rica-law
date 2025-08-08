@@ -15,3 +15,4 @@ Reglamento para la operación del sistema de planificación del Instituto Mixto 
 | --- | --- | --- |
 | 1 | 2017-05-30 | la propia norma |
 | 2 | 2025-04-24 | Reglamento 0 (2025-04-24) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
