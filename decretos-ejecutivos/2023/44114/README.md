@@ -15,3 +15,4 @@ Reforma Reglamento a la Ley de la Administración Financiera de la República y 
 | --- | --- | --- |
 | 1 | 2023-08-21 | la propia norma |
 | 2 | 2024-09-18 | Ley 10524 |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
