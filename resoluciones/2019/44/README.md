@@ -15,3 +15,4 @@ Metodología tarifaria para los servicios de acueducto, alcantarillado e hidrant
 | --- | --- | --- |
 | 1 | 2019-03-18 | la propia norma |
 | 2 | 2023-05-11 | Resolución 77 (2023-05-11) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
