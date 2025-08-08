@@ -16,3 +16,4 @@ Reglamento de financiamiento del Instituto de Fomento y Asesoría Municipal (IFA
 | 1 | 2021-10-08 | la propia norma |
 | 2 | 2022-12-12 | Reglamento 27 (2022-12-12) |
 | 3 | 2023-08-16 | Reglamento 29 (2023-08-16) |
+| 4 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
