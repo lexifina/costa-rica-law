@@ -14,3 +14,4 @@ Insta a la Autoridad Reguladora de los Servicios Públicos pueda establecer los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-15 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
