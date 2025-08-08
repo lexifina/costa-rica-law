@@ -15,3 +15,4 @@ Reforma Establece normas de acatamiento obligatorio para las Instituciones que c
 | --- | --- | --- |
 | 1 | 2022-12-21 | la propia norma |
 | 2 | 2024-09-12 | Resolución 1 (2024-09-12) |
+| 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
