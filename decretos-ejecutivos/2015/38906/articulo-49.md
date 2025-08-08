@@ -1,5 +1,0 @@
-CAPÍTULO II
-Operaciones de Titularización por Entidades Microfinancieras
-Artículo 49.—De la titularización de carteras de crédito de microfinancieras. Las microfinancieras con un patrimonio mayor a doscientos cincuenta millones de colones (¢250.000.000), independientemente de la figura jurídica bajo la cual estén organizadas, podrán realizar operaciones de titularización de sus carteras de crédito. Estas operaciones estarán dirigidas a portafolios de inversionistas institucionales, conforme a la definición que adopte la Superintendencia General de Valores. El monto requerido del patrimonio se ajustará anualmente, de acuerdo con el índice de precios al consumidor, calculado por el Instituto Nacional de Estadística y Censos.
-La oferta pública de los valores producto de la titularización, deberá cumplir con los requisitos que al efecto dispone la Ley del Mercado de Valores y la normativa aplicable por la Superintendencia General de Valores.
-Los integrantes del SBD y los fondos establecidos en la Ley Nº 9274, podrán adquirir valores producto de titularización.

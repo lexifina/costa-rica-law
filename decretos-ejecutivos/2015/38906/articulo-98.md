@@ -1,1 +1,0 @@
-Artículo 98.—Apoyo a los programas de financiamiento. Como apoyo a los programas de financiamiento, cada banco público podrá utilizar todas las herramientas de soporte desarrolladas por el SBD, con el fin de darles acceso a los beneficiarios de la Ley Nº 9274.

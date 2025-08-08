@@ -1,4 +1,0 @@
-Artículo 93.—De la firma de convenios para acceder a los recursos de capital de riesgo y capital semilla. Para la inversión de estos recursos, el Consejo Rector y el FINADE -representado por su fiduciario-, podrán firmar convenios o alianzas estratégicas con organizaciones públicas o privadas, nacionales o extranjeras, que presenten metodologías para la selección, aceptación y seguimiento de los proyectos.
-En los respectivos convenios se establecerán las condiciones bajo las cuales participará cada una de las partes, así como los mecanismos de canalización de los recursos del FINADE a los diferentes proyectos.
-Las condiciones particulares de los programas de acceso a estos recursos, se definirán en el reglamento operativo respectivo.
-Tendrán una especial atención, en las distintas etapas de desarrollo de la actividad productiva, los procesos que acompañen los emprendimientos de mujeres y sectores prioritarios.

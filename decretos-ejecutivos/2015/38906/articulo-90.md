@@ -1,1 +1,0 @@
-Artículo 90.—De las directrices del Consejo Rector para estos recursos. El Consejo Rector establecerá las condiciones que se aplicarán para el acceso a los servicios de desarrollo empresarial con recursos del FINADE.

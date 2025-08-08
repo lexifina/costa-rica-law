@@ -1,3 +1,0 @@
-CAPÍTULO III
-Supervisión para operadores financieros no regulados
-Artículo 129.—De la supervisión para los Operadores Financieros del SBD que no realizan intermediación financiera. La Secretaría Técnica del Consejo Rector del SBD, contará con un área especializada para supervisar la gestión de los operadores del SBD que no realizan intermediación financiera, así como para los mecanismos de acceso a recursos que promueve la Ley Nº 9274. El Consejo Rector del Sistema de Banca para el Desarrollo delimitará los lineamientos de supervisión aplicables; los datos recopilados serán de carácter informativo para que el Consejo Rector oriente sus políticas.

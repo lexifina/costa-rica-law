@@ -1,1 +1,0 @@
-Artículo 47.—De la actualización de información de los programas aprobados. En cualquier momento, los Operadores Financieros podrán solicitar ante el Consejo Rector, la incorporación de nuevos productos y servicios asociados, o bien, la modificación de los vigentes, toda vez que cumpla con los requisitos y las condiciones específicas establecidas en el presente Reglamento.

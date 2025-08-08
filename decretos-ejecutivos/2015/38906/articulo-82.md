@@ -1,1 +1,0 @@
-Artículo 82.—De la cobertura de pago de las garantías y avales. Se entiende que las garantías y los avales cubren exclusivamente el pago de la proporción respaldada del crédito, aplicable al saldo del principal; de manera que, se deberá respetar el porcentaje de garantía establecido en el documento legal que respalda el aval.

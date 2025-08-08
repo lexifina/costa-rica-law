@@ -1,4 +1,0 @@
-TÍTULO XV
-Incumplimientos de obligaciones dispuestas en la Ley 9274
-Artículo 142.—De los incumplimientos de obligaciones impuestas en la Ley y este Reglamento. Los integrantes del SBD que incumplan con cualquiera de las obligaciones establecidas en la Ley Nº 9274, “el presente Reglamento o las demás disposiciones y directrices emanadas del Consejo Rector, no podrán obtener la autorización o acreditación como Operador Financiero y, en el caso que la tengan, la autorización podrá ser revocada.
-Al tratarse de los bancos privados que opten por el inciso ii) del artículo 59 de la Ley N° 1644, y los bancos administradores del FCD, la revocación eventual no afectará las obligaciones adquiridas, sea en función del inciso ii) o del contrato de administración respectivo, sin perjuicio de la aplicabilidad de sanciones previstas para estos casos.

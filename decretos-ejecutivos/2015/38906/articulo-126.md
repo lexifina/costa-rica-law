@@ -1,3 +1,0 @@
-CAPÍTULO II
-Fiscalización del Sistema de Banca para el Desarrollo
-Artículo 126.—De la fiscalización del FINADE. Con el propósito de velar por la solidez, la estabilidad y el eficiente funcionamiento del FINADE, la Contraloría General de la República ejercerá sus actividades de fiscalización sobre las operaciones que se realicen con los recursos que formen parte del Fondo. El FINADE, además, será fiscalizado por medio de la auditoría interna del fiduciario. También, para estos efectos, el Consejo Rector podrá utilizar la auditoría interna de la Secretaría Técnica; así como contratar auditorías externas, cuyos costos se cubrirán con los recursos a cargo del Consejo Rector.

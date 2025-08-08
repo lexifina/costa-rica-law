@@ -1,1 +1,0 @@
-Artículo 63.—De las líneas de crédito para el FINADE. La Secretaría Técnica del Consejo Rector podrá gestionar líneas de crédito con bancos estatales, bancos multilaterales, bancos bilaterales, bancos de desarrollo, bancos de exportación y cualquier organismo internacional, las que deberá someter para aprobación del Consejo Rector.

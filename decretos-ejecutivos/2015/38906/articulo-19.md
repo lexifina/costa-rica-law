@@ -1,2 +1,0 @@
-Artículo 19.—Del nombramiento de Presidente y Vicepresidente. La presidencia y la vicepresidencia del Consejo Rector las ocuparán los Ministros, por un periodo de un año; estos cargos los definirá la mayoría simple de los miembros del Consejo Rector.
-En caso de ausencia del Presidente, cuando concurra alguna causa justa, lo sustituirá el Vicepresidente del Consejo y, en estos eventos, tendrá las mismas funciones y gozará de las mismas atribuciones indicadas en la Ley Nº 9274 y el presente Reglamento.
