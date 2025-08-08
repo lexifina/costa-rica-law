@@ -14,3 +14,4 @@ Reglamento técnico de supervisión de la instalación y equipamiento de acometi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-10 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
