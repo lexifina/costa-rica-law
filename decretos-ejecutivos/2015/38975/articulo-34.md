@@ -1,1 +1,0 @@
-Artículo 34°.- Proyecto productivo o de servicios: El estudio de idoneidad contemplará un proyecto productivo o de servicios, atendiendo los fines y objetivos de la ley 9036 y las prioridades establecidas en el PDRT, analizado y recomendado por la Dirección Territorial, y del Fondo de Tierras o de Fondo de Desarrollo Rural, según sea el caso.

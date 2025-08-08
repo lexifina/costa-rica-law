@@ -1,1 +1,0 @@
-Artículo 63°.- Desalojo por ejecución de resolución: Cuando los procesos de desalojo sean consecuencia del resultado del proceso de resolución del contrato de dotación de tierras, bastará que la notificación de la resolución final del procedimiento, se encuentre en firme para proceder con el lanzamiento de quienes ocupen el inmueble.

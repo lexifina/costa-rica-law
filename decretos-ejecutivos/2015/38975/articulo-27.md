@@ -1,5 +1,0 @@
-CAPITULO II
-PROCEDIMIENTOS GENERALES PARA LA SELECCIÓN DE PERSONAS BENEFICIARIAS
-Artículo 27°.- De la idoneidad de los beneficiarios: La idoneidad de los sujetos que puedan ser beneficiarios de los alcances de la Ley 9036, en los fondos de Tierras y de Desarrollo Rural, con fundamento en el Artículo 2 en relación con el Artículo 46, inciso c) de la Ley 9036, se determinará mediante un estudio técnico de selección que realizarán las instancias especializadas del Inder, compuestas por funcionarios acreditados y capacitados por los Fondos de Tierras y de Desarrollo Rural según corresponda y de conformidad con lo que se establece en el presente Reglamento.
-Para tal efecto en aplicación de la Ley 8220, se confeccionará un único expediente administrativo con toda la documentación pertinente, debidamente identificada, foliada, completo y en estricto orden cronológico.
-Los requisitos para el proceso del estudio técnico de selección, indicados en el artículo 29 del presente Reglamento, deberán ser divulgados y estar disponibles para consulta en los medios que la Institución disponga.

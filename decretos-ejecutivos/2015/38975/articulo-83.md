@@ -1,1 +1,0 @@
-Artículo 83°.- De las diligencias y actos preparatorios para otorgar los títulos de propiedad: En los supuestos de los dos artículos anteriores, como lo establece el Artículo 85 de la Ley 9036, el Inder podrá medir, catastrar, segregar y realizar las diligencias y actos preparatorios necesarios para otorgar los respectivos títulos de propiedad.

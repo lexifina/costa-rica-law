@@ -1,1 +1,0 @@
-Artículo 112°.- De la Declaratoria De Vencimiento: El incumplimiento de alguna de las obligaciones indicadas en el artículo anterior, contraídas por los deudores, dará derecho al Instituto a dar por vencida la operación y exigir en su totalidad el pago de dicha deuda, y proceder con lo que estipula, el artículo 67, inciso e) de la Ley 9036 o el respectivo cobro judicial.

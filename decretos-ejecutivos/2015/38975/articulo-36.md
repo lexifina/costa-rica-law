@@ -1,1 +1,0 @@
-Artículo 36°.- Posposición del proyecto: En caso que el proyecto aprobado sea pospuesto por una causa debidamente justificada, una vez reactivado, se podrá verificar en caso de duda, que los sujetos con declaratoria de idoneidad no hayan cambiado su situación a un estado que no le haga mantener esa condición, cuando han transcurrido más de dos años desde la suspensión.

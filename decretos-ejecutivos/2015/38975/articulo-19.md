@@ -1,1 +1,0 @@
-Artículo 19°.- Apoyo de la Secretaría a otras oficinas del Inder: Para el efectivo cumplimiento de sus funciones, la Secretaría Técnica coordinará los procesos a su cargo con el Fondo de Desarrollo Rural, Fondo de Tierras y cualquier otra instancia del Inder según sea el caso.

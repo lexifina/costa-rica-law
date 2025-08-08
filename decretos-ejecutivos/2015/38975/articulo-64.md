@@ -1,1 +1,0 @@
-Artículo 64°.- Ocupaciones menores a 3 meses: No será necesario el procedimiento establecido en este capítulo cuando en inmuebles propiedad del Instituto la ocupación ilegal sea menor de 3 meses, caso en el cual se deberá de proceder a solicitar de inmediato el lanzamiento con la Fuerza Pública.

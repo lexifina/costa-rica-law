@@ -1,1 +1,0 @@
-Artículo 93°- Limitaciones: El traspaso se hará libre de limitaciones al dominio salvo las que por ley deba soportar el inmueble, tales como la Ley general de caminos, la Ley de Aguas, y en general las leyes de protección al ambiente que señalan la Ley 2825 y la Ley 9036.

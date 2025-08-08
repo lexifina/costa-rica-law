@@ -1,6 +1,0 @@
-Artículo 109°.- Requisitos para Personas Jurídicas: Cuando se trate de personas jurídicas, además de los requisitos estipulados, para garantía fiduciaria o hipotecaria, según corresponda, se exigirá lo siguiente:
-a) Firma de la solicitud de crédito, por parte del representante legal de la organización.
-b) Certificación de la personería jurídica al día y con no más de 30 días naturales de emitida al momento del llenado de la solicitud.
-c) Nombre completo, domicilio y demás calidades de representante legal y de todos los miembros de la organización, dispuestos a ser fiadores, cuando se trate de garantía fiduciaria.
-d) Copia del acuerdo de la asamblea general, firmada por el secretario y el presidente, donde se autoriza al (la) representante legal, a la formalización del crédito; indicando tipo de crédito (operación única o línea de crédito), actividad, unidad de medida, cantidad, monto, plazo, tipo de garantía, monto y plazo de la misma, si esta fuese hipotecaria para créditos o líneas abiertas; o en su defecto fotocopia o transcripción de acuerdo autenticado por abogado, en donde se indique lo anotado arriba.
-e) Cualquier otro requisito, que exijan leyes o normativas de otras instituciones.

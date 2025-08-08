@@ -1,1 +1,0 @@
-Artículo 88°.- Terrenos afectados al Patrimonio Natural del Estado: Si del estudio de la prueba aportada se desprende que el terreno forma parte total o parcialmente del patrimonio natural del Estado, se procederá de conformidad a los artículos 13 y hasta el 18 de la Ley Forestal, Ley 7575, según corresponda.

@@ -1,1 +1,0 @@
-Artículo 11°.- Coordinación con las Municipalidades: Cada vez que el Inder inicie actividades en un territorio, para la promoción, formulación y ejecución de un PDRT, deberá coordinarlo previamente con los gobiernos municipales de los respectivos cantones.

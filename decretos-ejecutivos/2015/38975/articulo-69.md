@@ -1,3 +1,0 @@
-Artículo 69°.- Reconocimiento de mejoras: Para los efectos del artículo anterior, se procederá de la siguiente manera:
-a) Si se trata de una deuda con el Inder, y lo adeudado supera el monto a pagar por mejoras, la certificación del saldo será título ejecutivo para su respectivo cobro, de conformidad con el Artículo 17 inciso b) de la Ley 9036.
-b) En el caso de que la deuda sea con un tercero, y que la misma haya sido debidamente autorizada por el Instituto, la parte respectiva del pago de las mejoras se hará a favor del acreedor, y de quedar un saldo en esa deuda, el Inder buscará un convenio con éste a fin de liberar el inmueble o la prenda de la garantía, sin perjuicio de aplicar lo expuesto en el párrafo final del Artículo 67 de la Ley Inder.

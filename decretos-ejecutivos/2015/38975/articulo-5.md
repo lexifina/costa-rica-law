@@ -1,3 +1,0 @@
-CAPITULO II
-POLÍTICAS PÚBLICAS Y COORDINACIÓN INTERINSTITUCIONAL E INTERSECTORIAL PARA EL DESARROLLO RURAL TERRITORIAL
-Artículo 5°.- Formulación de la Política de Estado de Desarrollo Rural Territorial: La formulación de la PEDRT es competencia del MAG, Rector del Sector Agropecuario, en concordancia con los principios orientadores, propósitos y los objetivos del desarrollo rural establecidos en La Ley. Dicha Política debe respetar e incorporar la participación de los diversos actores sociales dentro de los territorios, como elemento sustancial para suscitar los cambios organizativos y productivos necesarios para dinamizar las economías territoriales con sostenibilidad.

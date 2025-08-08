@@ -1,1 +1,0 @@
-Artículo 104°.- De la dirección, alcance y armonización del SCR: La Junta Directiva, será la encargada de aprobar las políticas de crédito y los recursos, por medio del presupuesto ordinario institucional, que se destinarán al efecto y los procedimientos aplicables a los trámites pertinentes al crédito.
