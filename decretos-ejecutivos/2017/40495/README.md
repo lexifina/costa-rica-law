@@ -14,3 +14,4 @@ Reforma integral Reglamento de Organización del Subsector Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-09 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
