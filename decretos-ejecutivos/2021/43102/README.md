@@ -14,3 +14,4 @@ Reglamento de la Ley N° 9036 Transformación del Instituto de Desarrollo Agrari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-25 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
