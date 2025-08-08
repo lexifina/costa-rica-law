@@ -14,3 +14,4 @@ Oficializa el Plan Intersectorial para el establecimiento de una tarifa eléctri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-16 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
