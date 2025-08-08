@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley del Instituto Nacional de Innovación y Transferenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-10 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
