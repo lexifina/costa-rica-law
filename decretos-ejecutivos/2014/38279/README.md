@@ -43,3 +43,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 28 | 2015-10-09 | Decreto Ejecutivo 39270 (2015-10-09) |
 | 29 | 2015-11-10 | Decreto Ejecutivo 39375 (2015-11-10) |
 | 30 | 2024-09-18 | Ley 10524 |
+| 31 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
