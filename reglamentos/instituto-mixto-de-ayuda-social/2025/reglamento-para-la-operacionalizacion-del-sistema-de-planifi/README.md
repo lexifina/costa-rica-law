@@ -14,3 +14,4 @@ Reglamento para la operacionalización del Sistema de Planificación del Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-14 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
