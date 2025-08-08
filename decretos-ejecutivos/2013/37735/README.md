@@ -19,3 +19,4 @@ Reglamento general del Sistema Nacional de Planificación
 | 4 | 2018-11-14 | Decreto Ejecutivo 41483 (2018-11-14) |
 | 5 | 2019-11-11 | Decreto Ejecutivo 42069 (2019-11-11) |
 | 6 | 2021-09-15 | Decreto Ejecutivo 43251 (2021-09-15) |
+| 7 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
