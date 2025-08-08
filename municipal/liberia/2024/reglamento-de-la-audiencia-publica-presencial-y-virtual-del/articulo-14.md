@@ -1,0 +1,1 @@
+Artículo 14.-Aforo. Cuando el aforo del local se haya completado; se cerrará el ingreso para más personas. No se permitirá la presencia de personas fuera del local, ya que la sesión puede ser vista en las redes sociales indicadas en el artículo 8°.

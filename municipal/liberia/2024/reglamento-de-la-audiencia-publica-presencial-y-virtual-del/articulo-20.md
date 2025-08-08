@@ -1,0 +1,1 @@
+Artículo 20.-Periodo de respuestas. El equipo consultor responderá, las preguntas que se requieran para facilitar la comprensión del proyecto. Pero aquellas preguntas de contenido técnico serán contestadas en el informe final de la audiencia.

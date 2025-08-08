@@ -1,0 +1,1 @@
+Artículo 17.-Exposición del proyecto. El equipo consultor expondrá el proyecto de elaboración del plan regulador, compartiendo la pantalla de su computadora, la cual será proyectada para que los asistentes puedan observarla. En la modalidad virtual y en las redes sociales, en el video se mostrará la pantalla compartida.
