@@ -14,3 +14,4 @@ Reforma Políticas y lineamientos del Consejo Rector para la ejecución del 15% 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-25 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
