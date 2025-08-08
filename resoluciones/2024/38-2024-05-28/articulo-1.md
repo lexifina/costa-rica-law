@@ -148,7 +148,8 @@ Al respecto, la Sala Primera, ha reconocido esa discrecionalidad de la Aresep, e
 "No existe duda de que la ARESEP puede determinar los modelos de evaluación de solicitudes tarifarias, con base en las estructuras productivas modelo para cada servicio público, según el desarrollo del conocimiento, la tecnología, las posibilidades del servicio, la actividad de que se trate y el tamaño de las empresas prestadoras (parámetros del principio del servicio al costo). Para ello la Ley Nº7593 le otorga un marco de acción bastante amplio (cardinales 6 inciso d) y 29 al 37). No obstante, debe recordarse que la discrecionalidad lo es para elegir en una primera etapa entre uno o varios métodos técnicos que serán los que se aplicarán en un segundo momento después de su formalización (en el procedimiento en sí)."
 Así las cosas, en aplicación del principio de legalidad (artículos 11 de la LGAP y 11 de la Constitución Política), las tarifas deben establecerse a tono con los mecanismos debidamente, establecidos por la Aresep para tal efecto, mediante el procedimiento que contiene la Ley Nº7593 y su reglamento (audiencia pública).
 6.2. Sobre la regulación del servicio de suministro de energía eléctrica en Costa Rica como servicio público.
-Tratándose del sector eléctrico en Costa Rica, la definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Secretaría de Planificación Subsectorial de Energía (SEPSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), ente que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VII Plan Nacional de Energía 2015-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo (PND), a los cuales está sujeta la Aresep, según dispone el artículo 1º párrafo segundo, de la Ley N°7593.
+Tratándose del sector eléctrico en Costa Rica, la definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Secretaría de Planificación Subsectorial de Energía (SEPSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), ente que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VII Plan Nacional de Energía 2015-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*), a los cuales está sujeta la Aresep, según dispone el artículo 1º párrafo segundo, de la Ley N°7593.
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 Por otro lado, la labor de regulación del servicio de suministro de energía eléctrica en todas sus etapas (generación, transmisión, distribución y comercialización) está a cargo de la Aresep, según se indica, en el artículo 5.a) la Ley Nº7593, en el cual, se dispone su función de fijar precios y tarifas, además de velar por el cumplimiento de las normas de calidad, cantidad, confiabilidad, continuidad, oportunidad y prestación óptima, en la prestación tanto de dicho servicio público, como de los demás regulados.
 A las funciones anteriores se suman, los objetivos y las obligaciones establecidas en los artículos 4 y 6 de la Ley N°7593, respectivamente, cuyo cumplimiento, enmarca el ejercicio de las competencias y potestades de la Aresep, en relación con la regulación de los servicios públicos.
 Dichas potestades implican la fijación tarifaria, la definición de normativa técnica y de metodologías tarifarias (entre otras), sancionar ante la comisión de alguna falta, y fiscalizar la prestación de los servicios públicos.
@@ -396,7 +397,8 @@ LGAP: Ley General de la Administración Pública
 MINAE: Ministerio de Ambiente y Energía
 OS: Operador del Sistema
 PGR: Procuraduría General de la República
-PND: Plan Nacional de Desarrollo
+PNDIP: Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)
+(*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 PNE: Plan Nacional de Energía
 RIOF: Reglamento Interno de Organización y Funciones de la Autoridad Reguladora y su órgano desconcentrado
 SEN: Sistema Eléctrico Nacional
@@ -575,14 +577,12 @@ En relación con la actualización al presente del valor de la inversión, la em
 En caso de que los Estados Financieros Auditados contengan salvedades, sea adversa (negativa) o presente abstención de opinión por parte del auditor, y que los hallazgos de éstos contemplen que la valoración de activos no se apega a las normas indicadas o la empresa no cuenta con políticas contables de valoración de activos apegadas a las NIIF (o en su efecto la norma internacional que se llegue a acoger a nivel nacional), en el cálculo tarifario se considerará como valor de la inversión, el valor de adquisición de la misma.
 8.8.3. Inversión por kW contratado (Ikw)
 El costo de la inversión unitaria por kW contratado para cada prestador se obtiene del cociente entre la inversión total y la cantidad de kW contratados.
-[imagen]
 Donde:
 Ikw = Inversión unitaria por kW contratado.
 I = Monto de la inversión de la planta para la venta de energía según la potencia contrada por el ICE.
 Pcon = Potencia contratada en kW de la planta al momento del estudio tarifario.
 8.9.Factor remanente de utilización (Fu)
 El factor remanente de utilización de cada planta cogeneradora representa el restante de vida del activo para un momento puntual de la vida útil en función de la edad total del activo principal. El factor remanente de utilización es el siguiente:
-[imagen]
 Sujeto a la siguiente condición
 Fu ≥ 10%
 Donde:
