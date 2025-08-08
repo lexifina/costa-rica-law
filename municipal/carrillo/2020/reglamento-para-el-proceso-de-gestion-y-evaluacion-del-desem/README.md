@@ -14,3 +14,4 @@ Reglamento para el proceso de gestión y evaluación del desempeño de los servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-24 | la propia norma |
+| 2 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
