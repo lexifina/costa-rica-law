@@ -14,3 +14,4 @@ Ajuste tarifario presentada por Correos de Costa Rica S.A., para el servicio soc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-09 | la propia norma |
+| 2 | 2025-08-09 | Resolución 44 (2025-07-24) |

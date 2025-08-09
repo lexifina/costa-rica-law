@@ -7,10 +7,10 @@ PARA EL SERVICIO SOCIAL DE COMUNICACIÓN POSTAL.
 EXPEDIENTE ET-026-2025
 RESULTANDOS:
 I. Mediante la Ley 7768 del 24 de abril de 1998, (Ley de Correos) se establece que la empresa Correos de Costa Rica S.A. es la sociedad que ejerce la prestación de los servicios postales en el país.
-II. El 5 de octubre de 2021, por medio de la resolución RE-0206-JD-2021 publicada en el Alcance N°209 a La Gaceta N°199 del 15 de octubre de 2021, la Junta Directiva de la Autoridad Reguladora emitió la “Política regulatoria de la Autoridad Reguladora de los Servicios Públicos”.
-III. El 8 de noviembre de 2021, por medio de la resolución RE-0211-JD-2021 publicada en el Alcance N°238 a La Gaceta N°225 del 22 de noviembre de 2021, la Junta Directiva de la Autoridad Reguladora emitió la “Política regulatoria de los servicios de movilidad de personas, infraestructura y otros servicios de transporte”.
-IV. El 23 de octubre de 2023, por medio de la resolución RE-0100-JD-2023 publicada en el Alcance N°217 a La Gaceta N°206 del 7 de noviembre de 2023, la Junta Directiva de la Aresep estableció los “Requisitos de admisibilidad para toda solicitud de fijación de tarifas que se presente en la Autoridad Reguladora de los Servicios Públicos y revisión del cumplimiento de las obligaciones legales de los prestadores de los servicios públicos en las fijaciones tarifarias de oficio ordinarias y extraordinarias”.
-V. El 10 de abril de 2025, mediante oficio GAF-0130-2025, la empresa Correos de Costa Rica S.A., por medio del señor Mauricio Rojas Cartín, en su condición de apoderado generalísimo sin límite de su suma (folios 222 al 223) presentó ante la Aresep el “Estudio económico requerido para la actualización de las tarifas existentes sobre los servicios postales” (folios 1 al 334).
+II. El 5 de octubre de 2021, por medio de la resolución RE-0206-JD-2021 publicada en el Alcance N°209 a La Gaceta N°199 del 15 de octubre de 2021, la Junta Directiva de la Autoridad Reguladora emitió la "Política regulatoria de la Autoridad Reguladora de los Servicios Públicos".
+III. El 8 de noviembre de 2021, por medio de la resolución RE-0211-JD-2021 publicada en el Alcance N°238 a La Gaceta N°225 del 22 de noviembre de 2021, la Junta Directiva de la Autoridad Reguladora emitió la "Política regulatoria de los servicios de movilidad de personas, infraestructura y otros servicios de transporte".
+IV. El 23 de octubre de 2023, por medio de la resolución RE-0100-JD-2023 publicada en el Alcance N°217 a La Gaceta N°206 del 7 de noviembre de 2023, la Junta Directiva de la Aresep estableció los "Requisitos de admisibilidad para toda solicitud de fijación de tarifas que se presente en la Autoridad Reguladora de los Servicios Públicos y revisión del cumplimiento de las obligaciones legales de los prestadores de los servicios públicos en las fijaciones tarifarias de oficio ordinarias y extraordinarias".
+V. El 10 de abril de 2025, mediante oficio GAF-0130-2025, la empresa Correos de Costa Rica S.A., por medio del señor Mauricio Rojas Cartín, en su condición de apoderado generalísimo sin límite de su suma (folios 222 al 223) presentó ante la Aresep el "Estudio económico requerido para la actualización de las tarifas existentes sobre los servicios postales" (folios 1 al 334).
 VI. La Intendencia de Transporte, mediante Auto de Prevención AP-0021-IT- 2025 del 23 de abril de 2025, previno a la empresa sobre información faltante que resultaba necesaria para la admisibilidad del estudio tarifario, esto de conformidad con los requisitos de admisibilidad establecidos en la resolución RE-0100-JD-2023 (folios 338 al 343).
 VII. El Auto de Prevención AP-0021-IT-2025 se notificó a la petente el 23 de abril de 2025, otorgándole un plazo de 10 días hábiles contados a partir del día siguiente de la notificación, el cual feneció el 8 de mayo de 2025 (folio 349).
 VIII. El 8 de mayo de 2025, mediante oficio GAF-160-2025, Correos de Costa Rica S.A. remitió la información requerida en el Auto de Prevención AP- 0021-IT-2025 (folios 350 a 351).
@@ -29,35 +29,35 @@ XVIII. De conformidad con el acuerdo de Junta Directiva Nº 06-83-2021, del acta
 XIX. En los procedimientos se han observado los plazos y las prescripciones de ley.
 CONSIDERANDOS:
 I. Analizado el informe técnico IN-0168-IT-2025 del 09 de julio de 2025, el mismo es acogido en todos sus extremos y como tal servirá de base para el dictado de la presente resolución, y por ende conviene extraer del mismo lo siguiente:
-“(…)
+"(.)
 B. ÚLTIMA FIJACIÓN TARIFARIA ORDINARIA
 Mediante las fijaciones tarifarias ordinarias se actualiza toda la estructura de costos que debe ser reconocida tarifariamente en el servicio público, considerando la cantidad de unidades atendidas, los costos operativos, las variables de inversión y la rentabilidad correspondiente.
 En este caso particular, se tiene que la última fijación tarifaria ordinaria realizada por la Aresep para el servicio social de comunicación postal, que conforme a la Ley de Correos (Ley 7768) brinda Correos de Costa Rica S.A., se aprobó mediante la resolución RE-0004-IT-2020 del 6 de febrero de 2020, publicada en el Alcance N°20 a La Gaceta N°29 del 13 de febrero de 2020 (visible a folio 923 del expediente ET-089-2019).
 Como se puede observar, por más de 5 años estos servicios no han sido objeto de una revisión en sus costos operativos por medio de una fijación tarifaria ordinaria, a pesar de que el artículo 30 de la Ley 7593 establece la posibilidad a los prestadores del servicio, las organizaciones de consumidores legalmente constituidas y los entes y órganos públicos con atribución legal para ello, de presentar solicitudes de fijación o cambios de tarifas. Así también, establece el párrafo segundo del mismo numeral la obligatoriedad para los prestadores del servicio de presentar al menos una vez al año una solicitud de ajuste ordinario de tarifas. Por lo que al ajustar la estructura de costos con datos más actualizados y realizando los cálculos para el ajuste tarifario, conforme a la normativa vigente, existe la posibilidad que se obtenga como resultado una variación significativa de las tarifas vigentes (debido al rezago tarifario).
 Por lo tanto, la presente actualización de tarifas cobra mayor relevancia en este escenario, propiciando que se brinde un servicio continuo, respetando los principios de servicio al costo y equilibrio financiero.
-Aunado a lo anterior, la “Política Regulatoria de los Servicios de Movilidad de Personas, Infraestructura y otros Servicios de Transporte” establecida por la Junta Directiva de la Aresep en su resolución RE-0211-JD-2021 del
+Aunado a lo anterior, la "Política Regulatoria de los Servicios de Movilidad de Personas, Infraestructura y otros Servicios de Transporte" establecida por la Junta Directiva de la Aresep en su resolución RE-0211-JD-2021 del
 8 de noviembre de 2021, establece dentro de sus objetivos tarifarios- económicos lo siguiente:
-“(…)
+"(.)
 1. Elaborar instrumentos regulatorios para procurar la accesibilidad de los usuarios a los servicios públicos de transporte.
 2. Garantizar a los operadores del servicio público, tarifas que le permitan contar con recursos suficientes para la prestación óptima del servicio según las estructuras productivas modelo o la metodología correspondiente que resulten aplicables.
 3. Garantizar a los operadores del servicio de transporte público tarifas para cubrir únicamente los costos necesarios para prestar el servicio incluyendo, los costos eficientes de las inversiones necesarias y una retribución competitiva que garantice el desarrollo de la actividad, (cumplimiento del artículo 32 de la Ley 7593), en un contexto de eficiencia en la ejecución de las inversiones, que logren satisfacer la demanda.
-(…)” (el original no está resaltado)
+(.)" (el original no está resaltado)
 Asimismo, de la Política Regulatoria de la Aresep (RE-0206-JD-2021), es importante resaltar lo siguiente de manera atinente con esta fijación tarifaria:
-“(…)
+"(.)
 E. Pilares de la política
 La política regulatoria define los pilares que orientarán las acciones regulatorias que debe emprender la Autoridad Reguladora de los Servicios Públicos en los próximos años. A continuación, se presentan los pilares:
-(…)
+(.)
 1. Regulación que promueva la eficiencia:
 La Autoridad Reguladora velará por que los servicios públicos se presten de manera eficiente y eficaz, procurando que la regulación sea capaz de adaptarse de forma oportuna a los cambios del entorno y a eventos de fuerza mayor. La regulación buscará la asequibilidad de los servicios públicos para la población y contribuirá con la competitividad del país.
-(…)
+(.)
 2. Regulación con propósito:
 La regulación de los servicios públicos es un proceso complejo que debe confirmar constantemente su valor público para la sociedad. La complejidad de esta tarea se profundiza en el marco de una realidad en constante evolución impulsada por los avances tecnológicos, de las necesidades de la población y de los modelos de prestación de los servicios públicos.
 Para mantener su valor público, la regulación debe entonces considerar esos cambios y adaptarse para mantener su relevancia y contribuir de manera proactiva a alcanzar los objetivos sociales y económicos bajo su responsabilidad.
-(…)
+(.)
 6. Regulación independiente y coordinada con su entorno
 Este pilar refiere a los elementos requeridos por el ente regulador para velar por la independencia en el ejercicio de sus competencias, respecto de los prestadores de los servicios públicos, organizaciones de personas usuarias y del Estado, así como velar por la autonomía técnica y administrativa de sus decisiones.
 Aresep trabajará porque las decisiones regulatorias estén basadas en evidencia, sean objetivas y apegadas a criterios técnicos y legales que generen confianza en las partes interesadas, evitando cualquier influencia indebida que pudiera generar la captura del regulador.
-(…)”
+(.)"
 C. REVISIÓN DE OBLIGACIONES DEL OPERADOR
 Cumpliendo con lo establecido en el artículo 6, inciso c), artículo 14, incisos a, c, d y artículo 82 de la Ley 7593, así como lo dispuesto en el apartado
 I.B.2 del Por Tanto I de la resolución RE-0100-JD-2023, se verificó el cumplimiento de obligaciones legales por parte de Correos de Costa Rica
@@ -65,7 +65,7 @@ S.A. al momento de la revisión de admisibilidad. En esa fase se constató que l
 El cumplimiento de la presentación del informe de quejas y denuncias y la remisión de información regulatoria a la Aresep, según lo dispuesto en los apartados I.B2 y I.B.6 del Por Tanto I de la resolución RE-0100-JD-2023, se verificó al momento de la revisión de admisibilidad. De modo que Correos de Costa Rica S.A. se encuentra al día con todas sus obligaciones legales.
 D. ANÁLISIS TARIFARIO
 D.1. Procedimiento tarifario
-En el caso específico de los servicios postales, la Autoridad Reguladora ha utilizado tradicionalmente el método basado en “tasa de retorno”. Este procedimiento se basa en calcular un costo promedio contable, al cual se le adiciona un monto de excedentes, llamado tasa de rentabilidad.
+En el caso específico de los servicios postales, la Autoridad Reguladora ha utilizado tradicionalmente el método basado en "tasa de retorno". Este procedimiento se basa en calcular un costo promedio contable, al cual se le adiciona un monto de excedentes, llamado tasa de rentabilidad.
 En términos económicos se busca igualar los ingresos totales con los costos totales, donde estos últimos incluyen un pago al factor capital, que corresponde al excedente. Ese excedente se calcula como un porcentaje sobre el capital invertido (activos fijos y capital de trabajo) por la empresa encargada de la prestación del servicio público.
 Los costos totales, por su parte, comprenden además los gastos de operación y mantenimiento, el gasto por depreciación (al costo y revaluada), los gastos administrativos y cualquier otro gasto asociado con la prestación efectiva del servicio público
 El modelo matemático mediante el cual se calculan las tarifas se representa de la siguiente forma:
@@ -76,15 +76,15 @@ GOMA = Gastos de Operación, Mantenimiento y Administración AFNORP = Activo Fij
 R = Tasa de Rentabilidad
 Si:
 BT = Base Tarifaria = AFNORP + KT
-INO = Ingreso Neto de Operación = I – GOMA
+INO = Ingreso Neto de Operación = I - GOMA
 entonces:
 INO
 [imagen] R =
 BT
 D.2. Servicios brindados por Correos de Costa Rica S.A.
 Mediante el artículo 2 de la Ley de Correos (Ley 7768) del 24 de abril de 1998, se creó Correos de Costa Rica S.A. a fin de que dicha sociedad ejerza la prestación de los servicios postales.
-Dicha ley diferencia como servicio público el “servicio social postal” que conforme al artículo 71 del Convenio Postal Universal comprende la correspondencia “LC” (cartas, aerogramas, tarjetas postales, giros postales, giros de reembolso, giros de depósito, efectos a cobrar, cartas con valor declarado, avisos de pago, avisos de inscripción y avisos de recibo) hasta un peso de 2 kilogramos.
-Por otra parte, el Decreto N°27238-G, que es el Reglamento a la Ley 7768, en su artículo 5, prescribe lo que la normativa nacional reconoce como correspondencia “LC”, ajustándose de esta forma a la definición descrita por la Unión Postal Universal (UPU). Las tarifas para el servicio social
+Dicha ley diferencia como servicio público el "servicio social postal" que conforme al artículo 71 del Convenio Postal Universal comprende la correspondencia "LC" (cartas, aerogramas, tarjetas postales, giros postales, giros de reembolso, giros de depósito, efectos a cobrar, cartas con valor declarado, avisos de pago, avisos de inscripción y avisos de recibo) hasta un peso de 2 kilogramos.
+Por otra parte, el Decreto N°27238-G, que es el Reglamento a la Ley 7768, en su artículo 5, prescribe lo que la normativa nacional reconoce como correspondencia "LC", ajustándose de esta forma a la definición descrita por la Unión Postal Universal (UPU). Las tarifas para el servicio social
 postal están reguladas por la Autoridad Reguladora, de conformidad con el artículo 6 de la Ley 7768 anteriormente señalada. De forma adicional el operador postal también brinda una serie de servicios postales no regulados.
 A continuación, se describen los servicios brindados por Correos de Costa Rica S.A.:
 A. Servicios regulados
@@ -93,7 +93,7 @@ Para el servicio AO se incluyen modalidades diferentes a la estampilla; además 
 B. Servicios no regulados
 1) Sacas M: servicio internacional para envío de libros y otros documentos de un mismo remitente a un mismo destinatario en otro país, por medio de una sola saca de correos, con un peso límite de 30 kilogramos.
 2) Apartados postales: casilla postal en la que se puede recibir cualquier tipo de objeto postal y al que puede accederse dentro del horario de oficina, con el fin de que sea posible recibir la correspondencia.
-3) Encomiendas postales: envíos de paquetes postales que pesan más de 2 kilogramos, pero menos de 30 kilogramos y pueden contener cualquier tipo de mercadería, objeto o materia –siempre y cuando no se encuentren dentro de la lista de objetos prohibidos por la legislación actual-, que puede estar destinada a su distribución dentro del ámbito nacional (no tienen distribución a domicilio, solo se entregan en la sucursal de destino) o internacional.
+3) Encomiendas postales: envíos de paquetes postales que pesan más de 2 kilogramos, pero menos de 30 kilogramos y pueden contener cualquier tipo de mercadería, objeto o materia -siempre y cuando no se encuentren dentro de la lista de objetos prohibidos por la legislación actual-, que puede estar destinada a su distribución dentro del ámbito nacional (no tienen distribución a domicilio, solo se entregan en la sucursal de destino) o internacional.
 4) Servicios EMS: servicio puerta a puerta para envíos de documentos o paquetes con un peso límite de 30 kilogramos, que puede estar destinada a su distribución dentro del ámbito nacional o internacional. Dentro de la gama de servicios incluidos en este tipo de servicio se encuentra: pasaportes, pasaportes a consulados, cédulas de residencia, marchamos, citologías, tamizajes, tarjetas de crédito y débito, tarjetas
 urgentes Banco Nacional, valijas, placas, visas, EMS doble vía.
 5) Box correos: servicio para compras por internet, permite un casillero en Miami de forma gratuita, donde se dirigirán todas las compras para ser distribuidas en Costa Rica, los trámites aduaneros los realiza Correos de Costa Rica.
@@ -131,13 +131,13 @@ D.4. Análisis financiero de la solicitud tarifaria
 D.4.1 Información presentada por la empresa
 La solicitud tarifaria presentada por Correos de Costa Rica S.A. ante esta Autoridad Reguladora, incorpora un desglose de los diferentes costos asociados para cada uno de los servicios postales que se brindan, que incluyen los costos fijos, costos variables, gastos por impuesto de renta y el diferencial cambiario que la empresa tendría a partir de una estimación en
 los gastos para el periodo comprendido de enero a diciembre de 2022. Los costos totales corresponden a ¢28.469.365.955 de los cuales ¢ 5.354.675.688 corresponden al servicio regulado. Dicha estimación ha sido explicada por Correos de Costa Rica S.A. mediante el oficio CARTA-GAF- 0220-2025 (folio 391) de la siguiente manera:
-“(…)
+"(.)
 2. Sobre su segunda consulta puedo indicar que los gastos ajustados se les aplicó el factor de variación que se produce por incremento global de los volúmenes postales (servicios regulados y no regulados). Principalmente los gastos que tienen que ver con costos variables como los grupos de Servicios no personales; y, los Materiales y suministros. Para de esta forma sensibilizar los costos al comportamiento que han venido teniendo los servicios postales.
 En los que se pueden considera como costos fijos como los salarios y las depreciaciones no se les aplicó este factor de sensibilización por precisamente considerarse fijos.
-(…)”
+(.)"
 Ahora bien, conforme al Estado de resultados de los Estados Financieros auditados para el año 2022 (Anexo 1), se tiene que dicha entidad mantuvo un total de egresos operativos (costo fijos y variables sin incluir los gastos por impuesto de renta y diferencial cambiario) por ¢27.441.114.842, reflejando un crecimiento del 3,27% aproximadamente con respecto al año 2021, que registró un total de gasto por ¢26.570.097.401.
-El total de costos de Correos de Costa Rica S.A. se encuentra distribuido entre costos fijos y variables. Una parte de los costos fijos son asignados a ciertos procesos específicos de la actividad postal (admisión, tratamiento, transporte y distribución, tanto en apartados como a domicilio). La asignación de esos costos definida por la empresa se observa en la página 39 del “Estudio Económico Requerido para la Actualización de las Tarifas Existentes Sobre los Servicios Postales”, visible a folio 350. La asignación de los costos se realiza según el siguiente detalle:
-“(...)
+El total de costos de Correos de Costa Rica S.A. se encuentra distribuido entre costos fijos y variables. Una parte de los costos fijos son asignados a ciertos procesos específicos de la actividad postal (admisión, tratamiento, transporte y distribución, tanto en apartados como a domicilio). La asignación de esos costos definida por la empresa se observa en la página 39 del "Estudio Económico Requerido para la Actualización de las Tarifas Existentes Sobre los Servicios Postales", visible a folio 350. La asignación de los costos se realiza según el siguiente detalle:
+"(...)
 Concepto Porcentaje
 Admisión 21.00%
 Tratamiento 18.00%
@@ -149,8 +149,8 @@ En cuanto a los ingresos operacionales registrados en los Estados Financieros pa
 Por otra parte, se tiene que Correos de Costa Rica S.A. experimentó un déficit de operación de ¢936.580.053 en el periodo 2022.
 D.4.1.2. Información financiera de los servicios postales regulados
 Se puede observar de la información remitida por Correos de Costa Rica
-S.A. (Hoja “Costos proyectados” del archivo “Calculo tarifas de Correos 2022 9) visible a folio 350, que los costos operacionales proyectados del servicio regulado conformado por: servicios personales, servicios no personales, materiales y suministros, gastos por correo internacional, transferencias corrientes, provisión para contingencias, depreciaciones y amortizaciones, corresponden a ¢5.212.919.083 sin considerar los gastos por impuestos S/Renta Fiscal y diferencial cambiario.
-Por otra parte, la información que se muestra en el archivo “Ingresos y gastos separados por grupo.pdf”, aportado por la empresa visible a folio 351, indica que los costos operativos del servicio postal regulado para el periodo 2022 es de ¢4.865.163.130, mientras que los ingresos por la misma actividad fueron de ¢856.538.048. A partir de esa información se observa que la empresa tuvo un déficit de alrededor de ¢3.999.625.082 en los servicios regulados.
+S.A. (Hoja "Costos proyectados" del archivo "Calculo tarifas de Correos 2022 9) visible a folio 350, que los costos operacionales proyectados del servicio regulado conformado por: servicios personales, servicios no personales, materiales y suministros, gastos por correo internacional, transferencias corrientes, provisión para contingencias, depreciaciones y amortizaciones, corresponden a ¢5.212.919.083 sin considerar los gastos por impuestos S/Renta Fiscal y diferencial cambiario.
+Por otra parte, la información que se muestra en el archivo "Ingresos y gastos separados por grupo.pdf", aportado por la empresa visible a folio 351, indica que los costos operativos del servicio postal regulado para el periodo 2022 es de ¢4.865.163.130, mientras que los ingresos por la misma actividad fueron de ¢856.538.048. A partir de esa información se observa que la empresa tuvo un déficit de alrededor de ¢3.999.625.082 en los servicios regulados.
 Los resultados obtenidos evidencian que Correos de Costa Rica S.A., requiere de un ajuste tarifario para hacerle frente a los gastos generados por la prestación de los servicios postales regulados.
 Ahora bien, para las estimaciones tarifarias del presente estudio se utilizó el detalle de los gastos registrados en los Estados Financieros auditados para el periodo de análisis (año 2022), así como la asignación de los costos y gastos de manera separada suministrada por Correos de Costa Rica S.A. para los servicios postales regulados y los no regulados para el mismo periodo 2022, esto debido a que se dispone de datos reales debidamente comprobados por auditores externos a la empresa. Los gastos por la actividad regulada para el presente estudio corresponden a ¢4.847.991.966, según se observa en la hoja 5. Asignación costos del Anexo 2.
 A partir de lo anterior y del análisis realizado por la Intendencia de Transporte a las tarifas propuestas por Correos de Costa Rica S.A. en la solicitud tarifaria y los volúmenes postales observados por Aresep, se tiene que los nuevos ingresos que percibiría la empresa corresponderían a ¢2.095.074.150, lo que continuaría generando un desequilibrio por ¢2.752.917.816, equivalente al 56,78% de gastos de la actividad regulada sin recuperar.
@@ -195,25 +195,25 @@ Tasas Especiales de Correo Internacional | 213,80%
 Tasas de Certificado | 532,70%
 D.5.1. Establecimiento de tarifas máximas
 Es menester iniciar este acápite puntualizando que conforme a lo estipulado en los artículos 188 y 189 ambos de la Constitución Política relacionado con el artículo 1 de la Ley N° 7593, la Aresep es una institución autónoma con personalidad jurídica y patrimonio propio, así como con autonomía técnica y administrativa, que ejerce la regulación de los servicios públicos establecidos en el artículo 5 de dicha Ley, o bien, de aquellos servicios a los cuales el legislador defina como tal.
-Así conforme a lo establecido en el artículo 4 inciso f) de la Ley 7593 uno de los objetivos primordiales de la Aresep es “(…) ejercer conforme lo dispuesto en esta Ley, la regulación de los servicios públicos definidos en ella”.
+Así conforme a lo establecido en el artículo 4 inciso f) de la Ley 7593 uno de los objetivos primordiales de la Aresep es "(.) ejercer conforme lo dispuesto en esta Ley, la regulación de los servicios públicos definidos en ella".
 Asimismo, el artículo 11 de la Ley 7768 confiere a la Autoridad Reguladora la competencia y facultades legales para ejercer dicha regulación sobre el servicio social de comunicación postal.
 Ahora bien, conforme al artículo 6 de la citada Ley 7593, se establecen las obligaciones de la Autoridad Reguladora, para ejercer dichas competencias, encontrándonos en el inciso d) de este artículo la obligación de fijar las tarifas y los precios de conformidad con los estudios técnicos.
 También y bajo ese pensamiento, es necesario señalar que esas fijaciones tarifarias deben obedecer al marco regulatorio estipulado en los artículos 3 inciso b) (servicio al costo) 31 (fijaciones de tarifas y precios) y 35 (acceso a estudios técnicos), acompañados también del artículo 4 inciso a) punto 2 del Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos (funciones y obligaciones de la Aresep), pues en ellos se asientan los parámetros, criterios y elementos centrales de las fijaciones de tarifas.
 Es decir, la Aresep cuenta por ley con competencias exclusivas y excluyentes para fijar tarifas, siendo que, para realizar su fin, debe definir los elementos necesarios conforme a la ley para cumplir a cabalidad con la determinación de la tarifa adecuada bajo el principio del servicio al costo, el respeto al equilibrio financiero y el equilibrio entre las necesidades de los usuarios y los intereses de los operadores.
 Esto anterior ya ha sido reconocido en muchos dictámenes por la Procuraduría General de la República, siendo uno de esos dictámenes el C-003-2002 del 7 de enero de 2002, que en lo que interesa resaltó:
-“comprende el control de precios o tarifas de los servicios”, que esa función “es exclusiva y excluyente de cualquier intervención respecto de los servicios que enumera el artículo 5 antes citado. Lo cual significa que ningún otro organismo, público o privado, puede intervenir en la fijación de las citadas tarifas” y además señaló que “la Autoridad no sólo fija cuál es la tarifa concreta del servicio público y, por ende, la retribución que recibirá el prestatario de parte de los usuarios del servicio, sino que define los elementos que, conforme a la ley, considerará para la fijación de las tarifas.
-Tiene un poder normador sobre su propia competencia, que le permite imponer a los concesionarios del servicio las reglas que deben seguir para la fijación de la tarifa o, en su caso, para el ajuste tarifario.”
-Igualmente, en ese mismo sentido la Sala Primera de la Corte Suprema de Justicia, mediante la resolución 577-2007 del 10 de agosto de 2007, resolvió en cuanto a las atribuciones legales de la Aresep que “sus potestades excluyentes y exclusivas le permiten establecer los parámetros económicos que regularan (sic) el contrato, equilibrando el interés del operador y de los usuarios”.
+"comprende el control de precios o tarifas de los servicios", que esa función "es exclusiva y excluyente de cualquier intervención respecto de los servicios que enumera el artículo 5 antes citado. Lo cual significa que ningún otro organismo, público o privado, puede intervenir en la fijación de las citadas tarifas" y además señaló que "la Autoridad no sólo fija cuál es la tarifa concreta del servicio público y, por ende, la retribución que recibirá el prestatario de parte de los usuarios del servicio, sino que define los elementos que, conforme a la ley, considerará para la fijación de las tarifas.
+Tiene un poder normador sobre su propia competencia, que le permite imponer a los concesionarios del servicio las reglas que deben seguir para la fijación de la tarifa o, en su caso, para el ajuste tarifario."
+Igualmente, en ese mismo sentido la Sala Primera de la Corte Suprema de Justicia, mediante la resolución 577-2007 del 10 de agosto de 2007, resolvió en cuanto a las atribuciones legales de la Aresep que "sus potestades excluyentes y exclusivas le permiten establecer los parámetros económicos que regularan (sic) el contrato, equilibrando el interés del operador y de los usuarios".
 No hay duda y se tiene claridad entonces y así lo acuerpa lo desarrollado en los párrafos que anteceden, que la definición técnica de la fijación tarifaria, le compete única y exclusivamente a la Aresep; potestad que se configura por principio de legalidad, en un poder-deber exclusivo y excluyente, que no puede ni debe ser desconocido, según lo dispone el artículo 11 de la Constitución Política y los numerales 11, 66 y 129 de la Ley General de la Administración Pública, ley 6227.
 Con base en lo anterior, la presente propuesta tarifaria consiste en establecer tarifas máximas para los servicios postales regulados, considerando lo siguiente:
 1) Según el pilar 3 de la resolución RE-0206-JD-2021, la regulación debe ser una regulación que promueva la eficiencia, de modo que debe ser capaz de adaptarse a los cambios del entorno, buscar la asequibilidad de los servicios públicos y contribuir con la competitividad del país.
-2) Según la resolución RE-0211-JD-2021, dentro del objetivo general de política regulatoria para los servicios de transporte que la Autoridad Reguladora de los Servicios Públicos tiene, se puede señalar lo siguiente: “(…) Coadyuvar, a través de instrumentos regulatorios, a fortalecer la política nacional de los servicios de movilidad de personas, infraestructura y otros servicios de transporte, realizada por los medios y modos de transporte público establecidos en el país, mediante leyes, planes, políticas sectoriales y tratados internacionales vigentes, asegurando la disponibilidad del parque de transporte necesario, mediante la prestación óptima del servicio, en cantidad y oportunidad adecuadas, en condiciones de economía, ambiente, calidad, confiabilidad y continuidad suficientes y utilizando de manera óptima para ello, el acceso a la infraestructura desarrollada y regulando las técnicas de desarrollo y financiamiento de obras y servicios que le han sido encomendadas a la institución, en el cumplimiento de los objetivos y funciones otorgados por ley y reglamentos, a la Autoridad Reguladora (…)”.
+2) Según la resolución RE-0211-JD-2021, dentro del objetivo general de política regulatoria para los servicios de transporte que la Autoridad Reguladora de los Servicios Públicos tiene, se puede señalar lo siguiente: "(.) Coadyuvar, a través de instrumentos regulatorios, a fortalecer la política nacional de los servicios de movilidad de personas, infraestructura y otros servicios de transporte, realizada por los medios y modos de transporte público establecidos en el país, mediante leyes, planes, políticas sectoriales y tratados internacionales vigentes, asegurando la disponibilidad del parque de transporte necesario, mediante la prestación óptima del servicio, en cantidad y oportunidad adecuadas, en condiciones de economía, ambiente, calidad, confiabilidad y continuidad suficientes y utilizando de manera óptima para ello, el acceso a la infraestructura desarrollada y regulando las técnicas de desarrollo y financiamiento de obras y servicios que le han sido encomendadas a la institución, en el cumplimiento de los objetivos y funciones otorgados por ley y reglamentos, a la Autoridad Reguladora (.)".
 3) Que la Autoridad Reguladora de los Servicios Públicos debe considerar en el ejercicio de sus funciones, actuar bajo el principio de servicio al costo para fijar tarifas, considerar también, las estructuras productivas modelo para cada servicio público, las reglas unívocas de la ciencia y la técnica, así como concordar con lo establecido en el Plan Nacional de Desarrollo sobre los servicios públicos regulados, debiéndose entender el mismo como la forma en que el Estado determina sus objetivos para contribuir con el fortalecimiento de la capacidad del mismo y con ello establecer prioridades, formular metas y asignar recursos, así como dar seguimiento y evaluar las políticas, planes, programas o proyectos que se vayan a ejecutar.
 4) La aplicación del concepto de precio máximo en servicios públicos no es ajena al quehacer de esta Autoridad Reguladora de los Servicios Públicos, ya que este se encuentra enmarcado entre las potestades excluyentes y exclusivas que el marco legal le permite establecer para equilibrar el interés del operador y de los usuarios en la fijación de precios y tarifas. Es importante indicar que este enfoque regulatorio es utilizado en otros servicios regulados por la Aresep.
 En concordancia a lo anterior, esta propuesta tarifaria define las tarifas como máximas con base en el cálculo de la tarifa y el principio servicio al costo, tal y como corresponde mediante la utilización de las potestades exclusivas y excluyentes que le permite el marco legal a la Aresep y considerando las políticas regulatorias y la estructura productiva, así como los criterios de asignación de costos que fueron planteados por Correos de Costa Rica S.A. en su propuesta.
 El establecimiento de las tarifas máximas le permitirá además al prestador cierto grado de flexibilidad de acuerdo con comportamientos propios de la dinámica del servicio postal regulado y con los objetivos del mismo prestador. Además, esta alternativa de tarifas máximas le permitirá a Correos de Costa Rica S.A. cobrar tarifas inferiores a las tarifas máximas establecidas por la Aresep con base en el manejo eficiente de los recursos y así percibir una reducción en los costos asociados al servicio.
 En razón de que Correos de Costa Rica S.A. deberá definir cuáles tarifas cobrará a partir de las tarifas máximas que establezca la Aresep, es conveniente que el plazo de vigencia de las nuevas tarifas considere un tiempo prudencial luego de su publicación oficial para permitir a la empresa realizar las gestiones o procesos internos que requiera y comunicar a la Aresep y los usuarios según lo explicado en el párrafo previo.
-(…)”
+(.)"
 II. Conforme con los resultandos y considerandos que preceden y de acuerdo con el mérito de los autos, lo procedente es ajustar las tarifas de los servicios postales que presta Correos de Costa Rica S.A., tal como se dispone.
 POR TANTO:
 Fundamentado en las facultades conferidas en la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley 7593 y sus reformas, en la Ley General de la Administración Pública, Ley 6227, (en adelante LGAP), en el Reglamento a la Ley 7593, Decreto Ejecutivo 29732-MP, Reglamento a la Ley 7593 y el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados, RIOF.
@@ -221,13 +221,14 @@ EL INTENDENTE DE TRANSPORTE A.Í.
 RESUELVE:
 I. Acoger el informe IN-0168-IT-2025 del 09 de julio de 2025 y proceder a fijar las tarifas de los servicios postales que presta Correos de Costa Rica S.A., según el siguiente detalle:
 CUADRO N°1 SERVICIO NACIONAL
-ESCALÓN DE PESO | TARIFA MÁXIMA (colones)
-DE 0 A 20 GRAMOS | 3 100,00
-DE 21 A 100 GRAMOS | 4 300,00
-DE 101 A 250 GRAMOS | 6 500,00
-DE 251 A 500 GRAMOS | 9 740,00
-DE 501 A 1000 GRAMOS | 14 600,00
-KG ADICIONAL | 13 000,00
+ESCALÓN DE PESO | TARIFA MÁXIMA (COLONES)
+DE 0 A 20 GRAMOS | 2 900,00
+DE 21 A 100 GRAMOS | 4 100,00
+DE 101 A 250 GRAMOS | 6 300,00
+DE 251 A 500 GRAMOS | 9 550,00
+DE 501 A 1000 GRAMOS | 14 400,00
+KG ADICIONAL | 12 800,00
+(Así reformado el cuadro anterior mediante resolución N° RE-0044-IT-2025 del 24 de julio de 2025)
 CUADRO N°2
 PORTE PAGO CON PRECLASIFICACIÓN
 ESCALÓN DE VOLUMEN (unidades) | ESCALÓN DE PESO (gramos) | TARIFA MÁXIMA (colones)
@@ -366,8 +367,9 @@ Las tarifas de los cuadros N° 2,3,4 5, 6 y 7 se aplican bajo las siguientes con
 5. A excepción de la preclasificación las tarifas son excluyentes, esto implica acogerse a una sola modalidad.
 CUADRO N°8 TASAS DE CERTIFICADO
 ÁMBITO | TARIFA MÁXIMA (colones)
-NACIONAL | 4 340,00
-INTERNACIONAL | 5 760,00
+NACIONAL | 4 260,00
+INTERNACIONAL | 5 720,00
+(Así reformado el cuadro anterior mediante resolución N° RE-0044-IT-2025 del 24 de julio de 2025)
 II. Las tarifas máximas establecidas en el Por Tanto I rigen a partir de los quince días naturales siguientes a su publicación en el Diario Oficial La Gaceta.
 III. Indicar a Correos de Costa Rica S.A. que al ser tarifas máximas las establecidas en el Por Tanto I, tiene la posibilidad de cobrar tarifas iguales o inferiores a las establecidas por esta Autoridad Reguladora, para lo cual deberá comunicar las tarifas que aplicará a cada servicio por los medios adecuados a los usuarios y a la Aresep, así como cualquier cambio futuro en las tarifas que se cobren, al menos 8 días naturales antes de aplicar el cambio.
 IV. Ordenar a Correos de Costa Rica S.A. lo siguiente:
