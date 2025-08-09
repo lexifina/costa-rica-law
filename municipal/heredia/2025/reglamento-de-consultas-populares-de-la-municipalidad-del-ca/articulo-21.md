@@ -1,0 +1,3 @@
+CAPÍTULO 3
+Plebiscitos de revocatoria del mandato del Alcalde Municipal
+Artículo 21.-Convocatoria. Por moción presentada ante el Concejo Municipal, que deberá ser firmada por la tercera parte del total de los regidores y aprobada por el mínimo de tres cuartas partes de los regidores integrantes, se convocará a los electores del cantón de Heredia a un plebiscito, donde se decidirá destituir o no al Alcalde o Alcaldesa Municipal. Tal decisión no podrá ser vetada. Para la destitución de las personas vicealcaldesas, se aplicará, la misma norma aquí descrita. En tal caso, la pregunta sobre la destitución de los suplentes será independiente de la del titular de la Alcaldía.

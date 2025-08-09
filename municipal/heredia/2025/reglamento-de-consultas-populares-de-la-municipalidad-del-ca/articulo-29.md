@@ -1,0 +1,2 @@
+Artículo 29.-De la dirección del Cabildo. El Concejo Municipal dispondrá las normas en cuanto al derecho de voz de las personas que asistan al Cabildo, con el fin de dar la mayor participación a los ciudadanos, con un tiempo no mayor de diez minutos, el cual podrá ser ampliado si fuera requerido.
+La dirección del Cabildo corresponde al Presidente del Concejo Municipal, debiendo tomar las medidas necesarias para mantener el orden del acto.

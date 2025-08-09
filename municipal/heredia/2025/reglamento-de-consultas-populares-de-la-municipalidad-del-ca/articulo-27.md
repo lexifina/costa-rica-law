@@ -1,0 +1,1 @@
+Artículo 27.-De la convocatoria y el lugar. El Concejo Municipal hará la convocatoria al Cabildo por los medios idóneos que garanticen su conocimiento, por parte de la población, en un tiempo prudencial, que no podrá ser menor a un mes anterior a la celebración del mismo. Dicha actividad deberá realizarse en un lugar público, ubicado en la jurisdicción del Cantón de Heredia.

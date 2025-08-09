@@ -1,0 +1,1 @@
+Artículo 18.-Votación y su horario. El proceso de votación se llevará a cabo en lo conducente, según lo establecido en el Código Electoral y los mecanismos que al efecto a dispuesto el Tribunal Supremo de Elecciones para los comicios nacionales. El horario de la votación será de las siete a las quince horas.

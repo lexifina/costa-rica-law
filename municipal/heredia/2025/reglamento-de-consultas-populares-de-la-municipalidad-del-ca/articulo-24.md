@@ -1,0 +1,2 @@
+Artículo 24.-Reposición de suplentes. Si también fueran destituidos o renunciaren las personas vicealcaldesas, el Tribunal Supremo de Elecciones deberá convocar a nuevas elecciones en el Cantón Central de Heredia en un plazo máximo de seis meses y el nombramiento será por el resto del período.
+En dicho caso y mientras se lleve a cabo la elección del nuevo titular de la Alcaldía, el Presidente del Concejo Municipal asumirá como recargo ese puesto con todas las atribuciones y responsabilidades que le otorga el Código Municipal.
