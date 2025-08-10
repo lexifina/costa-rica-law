@@ -1,0 +1,2 @@
+ARTÍCULO 77: Sanciones para quien incurra en encubrimiento o favorecimiento
+Incurrirá en falta grave la persona funcionaria o estudiante que, conociendo de una denuncia por hostigamiento sexual, no le dé el trámite previsto en este reglamento o intente propiciar una conciliación. También será sancionada aquella que entorpezca o atrase injustificadamente la investigación. Se aplicará lo dispuesto en el régimen disciplinario de la UNED cuando se trate de personas funcionarias y si se tratara de estudiantes, aplicará lo relativo al Reglamento General Estudiantil.

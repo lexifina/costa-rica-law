@@ -1,0 +1,2 @@
+ARTÍCULO 29. Regla de interpretación
+Al interpretar este Reglamento y las normas relativas al procedimiento, se debe tener presente que su finalidad es aplicar las normas de fondo y el derecho de las personas a vivir libres de violencia. En caso de duda al interpretar este Reglamento, en cualquier etapa del procedimiento y al momento del dictado de la recomendación final, se deberá resolver en aplicación al principio "províctima".

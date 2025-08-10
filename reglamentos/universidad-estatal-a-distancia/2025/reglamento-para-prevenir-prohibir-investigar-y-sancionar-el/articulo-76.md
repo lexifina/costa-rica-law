@@ -1,0 +1,2 @@
+ARTÍCULO 76: Sanciones para las personas instigadoras y cómplices
+Las personas instigadoras y las personas cómplices, previo proceso podrán ser sancionadas y su actuación como instigadoras o cómplices será considerada como falta grave, de acuerdo con el régimen disciplinario de la UNED, sin perjuicio de lo que proceda, según el Código de Trabajo. Si se tratara de estudiantes, aplicará lo relativo a las faltas graves del Reglamento General Estudiantil.

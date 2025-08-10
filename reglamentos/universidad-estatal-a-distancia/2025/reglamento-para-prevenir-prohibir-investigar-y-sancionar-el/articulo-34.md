@@ -1,0 +1,3 @@
+ARTÍCULO 34: Nombramiento
+El Consejo Universitario nombrará a las personas que ocuparán los cargos de la fiscalía y asesora especializada, por un periodo de tres años con posibilidad de prórroga por una única vez en forma consecutiva, previa valoración en aplicación del instrumento que facilite la unidad correspondiente de la Dirección de Gestión del Talento Humano. Seis meses antes del vencimiento del plazo, la Dirección de Gestión del Talento Humano iniciará el proceso de reclutamiento contando con la asesoría del IEG para la definición del perfil correspondiente.
+En caso de considerarlo necesario la Dirección de Gestión del Talento Humano, o el Consejo Universitario podrán solicitar un criterio técnico al IEG sobre las personas postulantes.

@@ -1,0 +1,2 @@
+ARTÍCULO 27: Prohibición de conciliación
+Al constituir el hostigamiento sexual un tipo específico de violencia de género caracterizada por relaciones asimétricas de poder, que aumentan los factores de riesgo y revictimización de la persona hostigada, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento o antes de este. El incumplimiento de esta prohibición se sancionará como una falta grave según lo establecido en el Estatuto de Personal.

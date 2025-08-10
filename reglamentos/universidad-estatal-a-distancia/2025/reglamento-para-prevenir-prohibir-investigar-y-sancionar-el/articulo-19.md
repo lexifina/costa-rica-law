@@ -1,0 +1,5 @@
+ARTÍCULO 19: Derechos de las víctimas
+La persona que se considere víctima de alguna conducta de hostigamiento sexual tendrá derecho a interponer la denuncia por sí misma o por medio de su representante legal debidamente acreditado, a ser informada, a ser parte en el procedimiento y a no ser revictimizada. En ningún caso se podrán considerar los antecedentes de la persona denunciante, particularmente en lo relativo al ejercicio de su sexualidad.
+La víctima podrá hacerse acompañar por alguien de su confianza que la asista emocional y psicológicamente, o si así lo solicita, por la persona asesora especializada de la FIHS. En ambos casos, quien la acompañe, no tendrá participación en el procedimiento, pero podrá asistir a las comparecencias.
+Cuando la presunta víctima lo solicite, podrá rendir su declaración sin la presencia de la persona denunciada.
+Ni la presunta víctima ni quienes rindan testimonio podrán sufrir menoscabo o perjuicio en las condiciones de empleo o educación o en el estado general del bienestar personal. Si esto ocurriere podrá denunciar la situación ante la JECHS a fin de que se adopten las medidas pertinentes.

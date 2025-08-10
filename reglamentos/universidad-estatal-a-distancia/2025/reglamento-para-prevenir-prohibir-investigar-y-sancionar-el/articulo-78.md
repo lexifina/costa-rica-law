@@ -1,0 +1,2 @@
+ARTÍCULO 78: Denuncia falsa
+Quien denuncie hostigamiento sexual falso podrá incurrir en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal, sin perjuicio de las sanciones disciplinarias y estudiantiles que, según la normativa de la UNED, le sean aplicables. La sola ausencia de medios probatorios en ningún caso determina la existencia de una denuncia falsa.

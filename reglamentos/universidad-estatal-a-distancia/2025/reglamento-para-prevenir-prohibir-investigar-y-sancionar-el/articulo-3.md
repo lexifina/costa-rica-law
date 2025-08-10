@@ -1,0 +1,3 @@
+ARTÍCULO 3: Personas legitimadas para denunciar
+Cualquier integrante que forme parte de la comunidad universitaria, independientemente de la modalidad bajo la que se encuentre, así como todas aquellas personas que estén vinculadas, permanente o transitoriamente con la UNED o con Fundación de la Universidad Estatal a Distancia (FUNDEPREDI), podrán utilizar este reglamento para denunciar las conductas de hostigamiento sexual de las cuales sean objeto o tengan conocimiento.
+También podrán formular denuncias, únicamente en calidad de denunciantes, quienes, no teniendo un vínculo con la UNED, hayan tenido conocimiento de hechos presuntamente constitutivos de acoso sexual de personas vinculadas con la UNED.

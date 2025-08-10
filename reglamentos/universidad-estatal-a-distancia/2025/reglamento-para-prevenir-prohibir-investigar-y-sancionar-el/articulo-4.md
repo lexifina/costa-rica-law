@@ -1,0 +1,3 @@
+ARTÍCULO 4: Personas menores de edad
+Cuando quien denuncie sea menor de edad, la denuncia se tramitará de acuerdo con este Reglamento. Podrá ser interpuesta directamente por la misma víctima sin necesidad de que cuente con el acompañamiento de una representación legal. También podrá ser formulada por quien ostente la autoridad parental, por sus representantes legales o por el Patronato Nacional de la Infancia (PANI). Si la denuncia se interpone en contra de una persona menor de edad, se seguirá el trámite establecido por la legislación correspondiente para menores de edad.
+En todos los casos en que intervenga una persona menor de edad, el caso deberá ponerse en conocimiento de la Oficina del Patronato Nacional de la Infancia que corresponda.

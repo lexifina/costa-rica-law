@@ -1,0 +1,1 @@
+Transitorio II. Los nombramientos actuales de la Junta mantendrán su vigencia por un plazo máximo de tres meses a partir de la entrada en vigencia de este reglamento. Dentro de dicho plazo, las autoridades competentes deberán realizar los nuevos nombramientos.

@@ -1,0 +1,2 @@
+ARTÍCULO 22: Principio de especialidad
+La aplicación de este Reglamento, así como el conocimiento, atención y tramitación de las denuncias por actos presuntamente constitutivos de hostigamiento sexual, deberá estar a cargo de personas con capacitación especializada en materia de hostigamiento sexual y violencia de género. En razón de lo anterior, quienes integren la JECHS, la FIHS y los demás órganos que conozcan en alzada, deberán recibir capacitación frecuente y actualizada, así como participar de programas de sensibilización que al efecto se convoquen en esta materia.

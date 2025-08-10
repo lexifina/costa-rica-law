@@ -1,0 +1,8 @@
+ARTÍCULO 74: Sanciones para las personas hostigadoras
+La persona funcionaria a quien se le compruebe haber incurrido en una conducta de hostigamiento sexual será sancionada en los términos establecidos en el Estatuto Orgánico, de acuerdo con la gravedad de la falta, con cualquiera de las siguientes sanciones:
+1. Amonestación escrita
+2. Suspensión hasta por un mes calendario
+3. Destitución o despido sin responsabilidad patronal
+Cabrá la amonestación escrita, únicamente como sanción de conductas que hayan sucedido una vez y se hayan manifestado a través del uso de palabras, símbolos, obscenidades, gestos, bromas, piropos o sonidos, de naturaleza sexual, que hayan resultado ofensivas, hostiles y humillantes para quien las recibió. Para determinar la aplicación de las demás sanciones, se utilizarán los criterios de valoración determinados en el artículo 73 del presente reglamento.
+La persona que haya sido sancionada por haber incurrido en hostigamiento sexual no podrá ser nombrada o contratada, bajo cualquier modalidad, ni participar como integrante del Consejo Universitario. Tampoco se le podrá nombrar, contratar o designar por un periodo de diez años como persona profesora emérita, jubilada, catedrática ni en un puesto administrativo de la Universidad.
+Los procesos administrativos por hostigamiento sexual, tal y como lo establece el Código de Trabajo, que se encuentren pendientes contra una persona funcionaria que renuncie o se jubile deberán continuar y se suspenderá el pago de la cesantía si correspondiera, la cual solo se hará efectiva cuando se declare la improcedencia del despido sin responsabilidad para la parte empleadora.

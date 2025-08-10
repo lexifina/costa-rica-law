@@ -1,0 +1,2 @@
+ARTÍCULO 25: Plazo para interponer la denuncia
+El plazo para interponer la denuncia será de 8 años de conformidad con lo establecido por la Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia y sus reformas y se computará a partir del último hecho constitutivo del supuesto hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar. En el caso de las personas menores de edad, este plazo se computará a partir del momento en el que alcancen la mayoría de edad.

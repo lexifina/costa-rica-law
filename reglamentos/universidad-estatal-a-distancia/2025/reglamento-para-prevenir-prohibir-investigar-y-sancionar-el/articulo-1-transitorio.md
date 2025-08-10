@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I. La "Política de la Universidad Estatal a Distancia (UNED) contra el hostigamiento sexual en el empleo y la docencia" aprobada por el Consejo Universitario en la sesión n°2618-2017 celebrada el 21 de septiembre del 2017 artículo II inciso 1ª y en la sesión n°2626-2017, artículo IV inciso 26 celebrada el 19 de octubre del 2017, continuará vigente hasta tanto el Consejo Universitario apruebe la nueva política establecida en este reglamento. La instancia competente para realizar esta propuesta es el Instituto de Estudios de Género.

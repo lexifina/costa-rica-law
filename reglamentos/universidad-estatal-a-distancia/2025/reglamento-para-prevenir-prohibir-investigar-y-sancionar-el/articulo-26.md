@@ -1,0 +1,4 @@
+ARTÍCULO 26: Incompatibilidad
+Cuando la persona denunciada sea integrante de la FIHS, de la JECHS o del IEG, la denuncia deberá ser interpuesta ante la Rectoría. En el caso de personas denunciadas que laboren para la Fiscalía Institucional o el IEG, la Rectoría trasladará el caso directamente para su tramitación de conformidad con este reglamento.
+En el caso de personas denunciadas de la Junta, la Rectoría cuenta con un plazo de diez días hábiles para integrar una comisión investigadora con suplentes de la Junta para que conozcan y tramiten la denuncia siguiendo lo establecido en este Reglamento.
+En el caso de que una persona suplente de la JECHS se inhiba o deba ser recusada del procedimiento deberá ser sustituida por otra nombrada por la Rectoría, la que deberá contar con experiencia y capacitaciones en la materia.
