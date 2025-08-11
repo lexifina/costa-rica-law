@@ -14,3 +14,4 @@ Régimen de tributación simplificada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-01 | la propia norma |
+| 2 | 2025-08-11 | Decreto Ejecutivo 45209 (2025-08-11) |
