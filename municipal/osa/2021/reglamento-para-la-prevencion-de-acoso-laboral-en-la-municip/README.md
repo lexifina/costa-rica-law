@@ -14,3 +14,4 @@ Reglamento para la prevención de acoso laboral en la Municipalidad de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-23 | la propia norma |
+| 2 | 2025-08-11 | Reglamento municipal 35 (2025-08-11) |
