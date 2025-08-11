@@ -4,3 +4,6 @@ a) Políticos, entre los que se encuentran los fines y actividades perseguidos o
 b) Religiosos, ligados a alguna creencia o credo religioso o espiritual.
 c) Contrarios a los valores, normas, principios y jurisprudencia que informan al Derecho de la Constitución Política de la República de Costa Rica y la legislación vigente.
 d) Contrarios al orden público, a los usos, costumbres y normas sociales comúnmente aceptadas en la sociedad costarricense, o bien, que generen posiciones que pudieran dar lugar a consecuencias negativas en la percepción de la imagen del país, ya sea por causar daños a la salud, al medio ambiente o generar conflictos sociales o de otro tipo.
+e) Actividades relacionadas con la extracción minera, la exploración o extracción de hidrocarburos, la producción o comercialización de armas y municiones que contenga uranio empobrecido, así como actividades asociadas a la producción o comercialización de cualquier tipo de armas.
+f) Por razones de oportunidad, conveniencia, interés público o institucional, se prohíbe el uso de la Marca País en actividades o iniciativas que no se alineen con los objetivos estratégicos de PROCOMER o que puedan comprometer su imagen institucional.
+Así reformado por la Junta Directiva de PROCOMER en la sesión N°438-2025 celebrada el 26 de mayo de 2025.

@@ -1,0 +1,5 @@
+Artículo 16 bis.- Autorización especial de uso de la marca país
+Se podrá autorizar el uso de la marca país a usuarios especiales, programas, eventos, tanto nacionales como internacionales, actividades u otros tipos de usos, siempre y cuando estén relacionados con la promoción de Costa Rica, las exportaciones, la atracción de inversiones y otras actividades que se ajusten a los valores de la Marca País.
+Tales solicitudes serán procedentes siempre y cuando tales usos se ajusten y cumplan con los valores, atributos y objetivos de la Marca País. Asimismo, es entendido que la vigencia de la autorización especial en estos casos estará limitada al desarrollo exclusivo de la actividad, el uso o el evento autorizado.
+En estos casos, las solicitudes serán valoradas y sometidas para la aprobación de la Unidad Técnica de Marca País. La Dirección de Marca País de PROCOMER será la encargada de comunicar la decisión de la Unidad Técnica. En caso de que se deniegue la solicitud se le debe comunicar al interesado los motivos por los cuales su solicitud no fue aprobada.
+Así adicionado por la Junta Directiva de PROCOMER en la sesión N°438-2025 celebrada el 26 de mayo de 2025.

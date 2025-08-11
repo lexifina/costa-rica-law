@@ -1,4 +1,4 @@
 Artículo 4.- Mensaje central de la marca país esencial COSTA RICA
 El mensaje central de la Marca País, en el mediano y largo plazo, es que Costa Rica concentra, posee, potencia y cuida aquello que es clave para el futuro: biodiversidad, belleza natural única, calidad, talento humano especializado, innovación, una ubicación privilegiada, diversidad de pueblos indígenas, valor agregado en sus productos, servicios y profesionales.
-Así reformado por la Junta Directiva de PROCOMER en la sesión 391-2021 del 08 de noviembre del 2021.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 391-2021 del 08 de noviembre de 2021.
 La esencia es el componente transversal que cruza todos los activos que presenta la Marca País: para los conocedores que saben lo que buscan y que, a pesar de ello, no dejan de asombrarse con lo que encuentran, siempre más de lo que esperaban. En esa esencia concentrada se encuentra el verdadero valor del país: su gente.
