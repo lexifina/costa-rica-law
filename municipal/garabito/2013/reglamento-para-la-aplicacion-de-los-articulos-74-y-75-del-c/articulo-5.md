@@ -1,1 +1,0 @@
-Artículo 5º—Responsable de la revisión del procedimiento: Los responsables de la revisión de este procedimiento serán la Unidad de Aseo y Limpieza de Vías, conjuntamente con el Departamento de Inspecciones, Departamento Legal, Unidad Técnica de Gestión Vial Municipal y el Departamento de Cobros de la Municipalidad de Garabito.

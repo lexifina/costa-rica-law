@@ -1,1 +1,0 @@
-Artículo 7º—Documentos aplicables: Formulario para la atención de denuncia por lotes en estado de abandono y falta de aceras, fórmulas de notificación para la ejecución de trabajos en lotes en estado de abandono y aceras en mal estado ó sin construir y además será de aplicación la legislación costarricense vigente.

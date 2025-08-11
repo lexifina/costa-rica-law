@@ -1,1 +1,0 @@
-Artículo 14.—La Municipalidad coordinará acciones con los Síndicos, Concejos de Distrito, Asociaciones de Desarrollo y Comités de vecinos, para garantizar el cumplimiento de los deberes de los propietarios, establecidos en el artículo 75 del Código Municipal.

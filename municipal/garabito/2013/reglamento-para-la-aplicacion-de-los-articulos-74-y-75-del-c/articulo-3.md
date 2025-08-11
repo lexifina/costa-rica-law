@@ -1,1 +1,0 @@
-Artículo 3º—Alcance: Este Reglamento abarca todo lote o finca que se encuentre en área pública o privada, ubicada dentro del Cantón de Garabito. Que incurra en las omisiones detalladas en el artículo primero del presente Reglamento y artículo 75 del Código Municipal.

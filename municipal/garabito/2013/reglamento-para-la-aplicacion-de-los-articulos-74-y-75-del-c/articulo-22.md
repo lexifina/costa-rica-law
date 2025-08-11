@@ -1,1 +1,0 @@
-Artículo 22.—El presente Reglamento deroga cualquier disposición reglamentaria o acuerdo municipal, que se le oponga y / o anteriores. La reforma total o parcial de este reglamento requerirá de la aprobación de las dos terceras partes del total de los miembros del Concejo Municipal.
