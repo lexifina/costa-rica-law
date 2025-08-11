@@ -1,0 +1,1 @@
+Artículo 9°-Para cada proyecto de implementación en las diferentes sedes del Ministerio, confórmese la UPRE, con el objetivo de liderar y desarrollar el Plan Institucional de Emergencias en las mismas.
