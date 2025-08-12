@@ -1,0 +1,1 @@
+Artículo 3. Las entidades indicadas en el inciso b. del artículo anterior deberán abrir una cuenta corriente en el Banco Popular , la que será utilizada exclusivamente para el depósito de esas sumas por par te del patrono y su retiro por par te de la organización.
