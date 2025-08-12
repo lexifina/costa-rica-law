@@ -1,0 +1,2 @@
+Artículo 8. De los nodos de información.
+Los nodos de información se definen como la representación institucional, gubernamental y sectorial dentro de la RENIA. Estos nodos de información serán las unidades encargadas de gestionar internamente en sus instituciones y enviar la información ambiental institucional relevante y oficial en materia de sus competencias, para publicación en el SINIA como un portal único, así como para cualquier otro uso requerido.

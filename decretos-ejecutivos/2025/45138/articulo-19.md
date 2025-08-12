@@ -1,0 +1,2 @@
+Artículo 19. Derogatoria.
+Deróguese el Decreto Ejecutivo No. 29540-MINAE del 11 de mayo del 2001, Constituye el Centro Nacional de lnformación Geoambiental como un Órgano de la Dirección General de Hidrocarburos del Ministerio de Ambiente y Energía, publicado en La Gaceta Nº 105 del 01 de junio del 2001 y el Decreto Ejecutivo No. 37658-MINAET del 29 de enero de 2013, Establecimiento del Sistema Nacional de Información Ambiental (SINIA) y Reforma del artículo 3 del Decreto Ejecutivo Nº 29540-MINAE del 11 de mayo del 2001, publicado en la Gaceta Nº 93 del 16 de mayo del 2013.

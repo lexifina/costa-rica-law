@@ -1,0 +1,2 @@
+Artículo 7. De las plataformas administradas por CENIGA.
+Le corresponderá al CENIGA coordinar, gestionar y velar por el desarrollo y funcionamiento tanto, del Sistema Nacional de Información Ambiental (SINIA) como del Sistema Nacional de Cobertura y Uso de la Tierra y Ecosistemas (SIMOCUTE), así como de otras plataformas ambientales que sean asignadas al CENIGA y acordes a las funciones de este Centro, garantizando la disposición de la información a todos los usuarios nacionales e internacionales.

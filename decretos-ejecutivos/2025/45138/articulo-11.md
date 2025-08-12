@@ -1,0 +1,2 @@
+Artículo 11. De la potestad para solicitar información.
+El CENIGA podrá solicitar datos, informes, colaboración y asesoramiento a los enlaces técnicos de la Red Nacional de Información Ambiental (RENIA) en rnateria de sus competencias, con el propósito de dar rigurosidad científica y calidad al usuario, además podrá conformar comisiones ad hoc con asesores expertos para resolver situaciones específicas.

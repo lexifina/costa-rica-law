@@ -1,0 +1,7 @@
+Artículo 10. De las funciones del enlace técnico:
+Los enlaces técnicos tendrán las siguientes funciones:
+1. Coordinar con el CENIGA sobre los requerimientos de información para el SINIA, acatando el marco metodológico con el propósito de asegurar calidad y la homologación de los datos estadísticos y geoambientales, y garantizando la comparabilidad de los datos en casos de ajustes metodológicos en sus Dependencias.
+2. Coordinar con el CENIGA la vinculación y/o publicación en el portal del SINIA, de la información geoespacial, datos e indicadores que generen, así como de los sistemas institucionales y /o plataformas interinstitucionales en los que intervenga la participación del MINAE, de conformidad con el marco metodológico establecido por el SINIA y en respeto de las competencias y autonomía institucional de cada entidad que administra dicha información y/ o sistema.
+3. Recibir las capacitaciones del marco metodológico del SINIA, con el propósito garantizar que la información cumple con los estándares normativos nacionales.
+4. Informar al CENIGA la necesidad de enmiendas en la información proporcionada, además, de las fallas y mejoras acerca del funcionamiento del portal digital del SINIA.
+5. Atender y dar respuestas a las consultas técnicas realizadas por el CENIGA y los usuarios del Sistema, como responsable de la información ambiental de la dependencia que representa, así como asistir a talleres técnicos en temáticas de su responsabilidad, en caso de ser requerido.
