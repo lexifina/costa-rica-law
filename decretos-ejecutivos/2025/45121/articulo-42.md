@@ -1,0 +1,3 @@
+Capítulo Séptimo
+De la disposición final de los pasaportes diplomáticos y los pasaportes de servicio
+Artículo 42º- Recuperación de Pasaportes de Servicio y Pasaportes Diplomáticos. Cuando los pasaportes diplomáticos y los de servicio pierdan su eficacia jurídica, conforme los supuestos establecidos en el numeral 5° de la Ley Reguladora del Otorgamiento de Pasaportes Diplomáticos y Servicio, la persona titular del pasaporte o su representante legal, deberá devolverlo al Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto, dentro de un plazo improrrogable de cinco días hábiles tras la extinción de la eficacia jurídica de este.

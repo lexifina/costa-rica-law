@@ -1,0 +1,2 @@
+Artículo 32º- Procedimiento en caso de incumplimiento. En caso de incumplimiento por la persona funcionaria o dependiente de esta, con su consentimiento, de los plazos anteriores o cualquier otra obligación que le imponga el presente reglamento, constituirá una falta de servicio, cuya gravedad se valorará en el procedimiento correspondiente.
+En caso de que la persona funcionaria no sea personal del Ministerio de Relaciones Exteriores y Culto, el Departamento de pasaportes deberá notificar a la respectiva institución para que se tomen las medidas correspondientes.

@@ -1,0 +1,2 @@
+Artículo 26º- Confección de Pasaportes. Los pasaportes serán confeccionados por el Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto, observando las tecnologías y especificaciones más modernas y seguras accesibles.
+Se deberá incluir la siguiente leyenda obligatoria: "( ... ) Este pasaporte no le concede a su titular ningún privilegio discriminatorio de carácter fiscal al ingresar al país ( ... ).

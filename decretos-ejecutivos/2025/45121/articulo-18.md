@@ -1,0 +1,2 @@
+Artículo 18º- Autoridad competente. Todo trámite de expedición de pasaporte diplomático y pasaporte de servicio deberá efectuarse ante el Departamento de Pasaportes del Ministerio de Relaciones Exteriores y Culto, de conformidad con el artículo 3 de la Ley N°7411.
+Los pasaportes serán firmados por la Jefatura del Departamento de Pasaportes o quien lo sustituya durante su ausencia; así como por el Ministro de Relaciones Exteriores y Culto, o a quien este delegue esta función.

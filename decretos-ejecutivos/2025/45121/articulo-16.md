@@ -1,0 +1,3 @@
+Artículo 16º- Uso de la información, presentación y contenido de los documentos. La documentación de respaldo de la solicitud debe estar completa, ordenada y en buen estado de conservación y limpieza, de manera que permita corroborar todas las condiciones necesarias para la asignación del pasaporte diplomático, pasaporte de servicio o permiso de salida del país; y/o gestionar las visas de tránsito, ingreso o permanencia en determinado país según lo dispuesto en el artículo 14 de este reglamento.
+Asimismo, todas las solicitudes deben señalar un correo electrónico para recibir notificaciones por parte del Ministerio de Relaciones Exteriores y Culto; en caso contrario, se procederá a su rechazo.
+No obstante, la persona interesada podrá presentar nuevamente la solicitud.

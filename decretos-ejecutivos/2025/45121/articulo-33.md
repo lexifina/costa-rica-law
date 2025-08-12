@@ -1,0 +1,3 @@
+Artículo 33º- Cancelación del pasaporte por sentencia en firme por causa penal. El Departamento de Pasaportes procederá a cancelar el pasaporte diplomático y pasaporte de servicio a aquellas personas a las que se les haya dictado sentencia condenatoria en firme por causa penal.
+Se exigirá la devolución en forma inmediata cuando sus titulares hicieren uso indebido de los mismos, procediendo, según sea el caso, a la cancelación de tales documentos.
+Los pasaportes diplomáticos y pasaportes de servicio no deben ser objeto de modificaciones de ningún tipo, excepto por la autoridad que los otorga. En caso de incumplimiento de esta disposición, el pasaporte quedará nulo.

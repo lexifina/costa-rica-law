@@ -1,0 +1,2 @@
+Artículo 8º- Plazos de solicitudes y de emisión de pasaportes diplomáticos. La persona solicitante deberá presentar la totalidad de requisitos con un tiempo mínimo de seis días hábiles de previo a la fecha programada de inicio del viaje.
+El Departamento de Pasaportes del MREC deberá resolver las solicitudes en un máximo de seis días hábiles a partir de la toma de datos biométricos, sin perjuicio de que las solicitudes sean resueltas en un plazo menor.

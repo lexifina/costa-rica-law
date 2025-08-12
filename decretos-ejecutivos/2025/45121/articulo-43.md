@@ -1,0 +1,1 @@
+Artículo 43º- Oficina encargada. El Departamento de Pasaportes se encargará del procedimiento de destrucción de los pasaportes que hayan sido anulados por vencimiento, deterioro, agotamiento, cese del titular o cualquier otra razón que inutilice el documento migratorio.

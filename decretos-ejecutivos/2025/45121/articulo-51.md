@@ -1,0 +1,1 @@
+Artículo 51º- Derogatoria del Decreto Ejecutivo Nº42.123-RE. El presente Reglamento deroga el Decreto Ejecutivo Nº42.123-RE, "Reglamento para el otorgamiento, uso y control de pasaportes diplomáticos y de servicio", de dieciocho de diciembre del año dos mil diecinueve.

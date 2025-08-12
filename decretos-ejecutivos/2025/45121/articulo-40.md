@@ -1,0 +1,2 @@
+Artículo 40º- Vigencia de los pasaportes emitidos en razón de una misión especial. La vigencia de los pasaportes diplomáticos para personas funcionarias que viajen en misión especial, podrá ser hasta de cinco años y deberán ser devueltos para su custodia al Departamento de Pasaportes, a más tardar cinco días hábiles al término de la misión.
+Se les otorgará una visa de salida por cada misión para la que se nombre, previa presentación de los requisitos señalados en este mismo cuerpo normativo.

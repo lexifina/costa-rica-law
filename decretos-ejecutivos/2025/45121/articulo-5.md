@@ -1,0 +1,1 @@
+Artículo 5º- Información. La Dirección de Servicio Exterior del Ministerio de Relaciones Exteriores y Culto deberá remitir un informe trimestral al Departamento de Pasaportes, con el detalle de los nombramientos, ceses o traslados de las personas nombradas en el exterior.
