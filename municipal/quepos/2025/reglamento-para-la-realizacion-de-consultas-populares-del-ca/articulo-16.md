@@ -1,0 +1,2 @@
+Artículo 16.-De la formulación de la pregunta: La formulación de la pregunta objeto de la consulta será clara y concisa de modo que se eviten interrogaciones confusas, capciosas o de doble sentido.
+Salvo casos excepcionales que corresponderá al Concejo Municipal definir, la pregunta será formulada de manera que se pueda contestar utilizando únicamente las palabras "SI" 0 "NO". Dicha redacción de la pregunta deberá validarse con el TSE para garantizar su neutralidad, claridad y legalidad.

@@ -1,0 +1,1 @@
+Artículo 36.-Designación de candidatos a los Concejos Distritales: Preferentemente se utilizará el cabildo, para efectos de designar los candidatos a miembros de los Concejos Distritales, será de acuerdo a lo establecido por el Tribunal Supremo de Elecciones.

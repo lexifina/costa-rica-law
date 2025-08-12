@@ -1,0 +1,1 @@
+Artículo 26.-Requisito para destitución: Para destituir al Alcalde Municipal se requiere dos tercios del total de los votos emitidos en el plebiscito, y que esos dos tercios no sean inferiores al diez por ciento del total de los electores inscritos en el Cantón de Quepos.

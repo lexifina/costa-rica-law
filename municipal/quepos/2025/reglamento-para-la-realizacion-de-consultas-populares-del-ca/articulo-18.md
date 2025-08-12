@@ -1,0 +1,1 @@
+Articulo 18.-De la documentación electoral. EI Concejo Municipal solicitará la asesoría al Tribunal Supremo de Elecciones en cuanto a las seguridades básicas, en la confección y manejo de la documentación electoral que sea necesaria.

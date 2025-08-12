@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de Aplicación. Este reglamento regula las modalidades de consulta popular de competencia municipal: plebiscito, referendo y cabildo abierto, tanto a escala cantonal como distrital.

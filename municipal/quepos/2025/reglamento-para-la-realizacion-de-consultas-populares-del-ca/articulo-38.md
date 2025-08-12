@@ -1,0 +1,1 @@
+Artículo 38.-De la organización: Las consultas populares a escala distrital se realizarán en estricto apego a las normas establecidas para las consultas a escala cantonal, salvo que la organización y dirección de la misma estará a cargo del Concejo Distrital y no del Concejo Municipal.
