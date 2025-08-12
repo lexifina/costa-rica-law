@@ -1,0 +1,1 @@
+Artículo 14.-Jornada y horario. La modalidad de teletrabajo se efectuará en la jornada laboral y en el horario establecido por la municipalidad. Para laborar horas extraordinarias, la persona teletrabajadora deberá necesariamente contar, de previo, con la solicitud o autorización escrita de su jefatura inmediata y demás autoridades que determine la Institución.

@@ -1,0 +1,1 @@
+Artículo 5°-Comisión de Teletrabajo. Se establece la Comisión de Teletrabajo para encargarse de coordinar la implementación, gestión y ejecución del teletrabajo en la municipalidad, la cual será nombrada por el Alcalde o Alcaldesa municipal.

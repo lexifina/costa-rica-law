@@ -1,0 +1,1 @@
+Artículo 6°- Conformación de la Comisión de Teletrabajo. Estará integrada por un miembro de cada una de las siguientes áreas: Departamento de Tecnologías de la Información, una Jefatura del área operativa y administrativa, Talento Humano y la Alcaldía.
