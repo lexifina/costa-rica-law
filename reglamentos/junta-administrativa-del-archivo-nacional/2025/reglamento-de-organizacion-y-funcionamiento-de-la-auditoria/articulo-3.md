@@ -1,0 +1,1 @@
+Artículo 3- Actualización del Reglamento. Con el fin de mantener el marco normativo de la Auditoría Interna actualizado, le corresponde al Auditor Interno, proponer y promover sus modificaciones ante la Junta Administrativa del Archivo Nacional. Toda modificación debe contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 47- La atención de denuncias trasladadas por la Contraloría General. La Auditoría Interna atenderá de acuerdo con su plan de trabajo las denuncias que le sean remitidas por el Órgano Contralor, realizando la correspondiente modificación en el Plan de Trabajo Anual.

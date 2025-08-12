@@ -1,0 +1,8 @@
+Artículo 4- Definiciones. Para efectos del presente Reglamento se entiende por:
+a) Archivo Nacional: Dirección General del Archivo Nacional.
+b) Junta o jerarca: Junta Administrativa del Archivo Nacional, en su calidad de jerarca máximo institucional conforme a lo dispuesto en el artículo 24 de la Ley General de Control Interno Nº 8292.
+c) Auditoría Interna: La Auditoría Interna del Archivo Nacional, que dentro de la organización es la unidad a la que se refiere el artículo 20 de la Ley General de Control Interno Nº 8292.
+d) Auditor Interno: Titular de la actividad de auditoría interna del Archivo Nacional responsable de su gestión, conforme a la normativa jurídica y técnica aplicable a dicha actividad.
+e) Advertencia: Servicio preventivo que brinda la Auditoría Interna al Jerarca o a los titulares subordinados, con fundamento en el inciso d) del artículo 22 de la Ley General de Control Interno Nº 8292.
+f) Asesoría: Servicio preventivo que brinda la persona Auditora Interna en forma oral o escrita, a solicitud de la parte interesada, mediante el cual emite su criterio, opinión u observación sobre asuntos estrictamente de su competencia y sin que menoscabe o comprometa la independencia y objetividad en el desarrollo posterior de sus demás competencias. Con este servicio la Auditoría Interna coadyuva a la toma de decisiones, sin manifestar inclinación por una posición determinada ni sugerir o recomendar; lo anterior con fundamento en el inciso d) del artículo 22 de la Ley General de Control Interno Nº 8292.
+g) Informe de auditoría: Producto final con el que la Auditoría Interna comunica al jerarca o a los titulares subordinados los resultados de los estudios de auditoría o brinda los servicios preventivos de asesoría y de advertencia.

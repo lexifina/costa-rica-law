@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De las denuncias y actos presuntamente irregulares
+Artículo 44- Admisibilidad de denuncias. Cualquier ciudadano o funcionario podrá presentar denuncias ante la Auditoría Interna del Archivo Nacional, alertando sobre posibles hechos irregulares sobre los cuales tenga conocimiento. El denunciante contará con absoluta confidencialidad, conforme a lo establecido en el artículo 6 de la Ley General de Control Interno Nº 8292, artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N°8422 y artículos del 10 al 13 de su Reglamento, así como lo dispuesto en los Lineamientos Generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.

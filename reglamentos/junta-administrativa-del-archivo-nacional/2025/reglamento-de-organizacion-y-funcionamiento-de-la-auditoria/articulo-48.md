@@ -1,0 +1,1 @@
+Artículo 48- Expediente. Toda denuncia contará con un expediente, en el cual se custodie la documentación y evidencia obtenida, la investigación realizada, el informe final elaborado y la respuesta remitida al denunciante.

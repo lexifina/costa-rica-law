@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización de la Auditoría Interna
+Artículo 5- Concepto de Auditoría Interna. La Auditoría interna es la actividad independiente, objetiva y asesora, forma parte del sistema de control interno y de la estructura organizacional del Archivo Nacional; coadyuva en el cumplimiento de los objetivos y metas institucionales, mediante la evaluación sistémica y profesional de los procesos de gestión de riesgos, de control y de dirección, proporcionando a la ciudadanía una garantía razonable de que la actuación del jerarca y de toda la administración, se ejecuta conforme al marco legal y técnico y las sanas prácticas.

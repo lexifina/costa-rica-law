@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Relación y coordinación con unidades administrativas internas y entes externos
+Artículo 15- Relaciones y coordinación. La Auditoría Interna mantiene relación y coordinación con la Junta Administrativa, Dirección General, con los titulares subordinados y otras instancias internas del Archivo Nacional y externas, fundamentalmente con la Contraloría General de la República, instituciones de control, Comisiones Legislativas, Ministerio Público, Procuraduría General de la República, Contabilidad Nacional, denunciantes y otras pertinentes.
+Corresponde al Auditor Interno administrar esas relaciones y regular aquellas de los demás funcionarios de la Auditoría Interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.
+Cuando de manera excepcional se requiera la participación del Auditor Interno en las sesiones de la Junta Administrativa, será convocado con previa antelación y su actuación será conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General de la República.

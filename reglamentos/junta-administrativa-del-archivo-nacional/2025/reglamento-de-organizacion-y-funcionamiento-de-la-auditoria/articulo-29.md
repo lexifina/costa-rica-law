@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Sobre Planificación y Asignación de Recursos
+Artículo 29- Planificación. La Auditoría mantendrá un proceso sistemático para la planificación de su actividad, el cual documentará y cubrirá los ámbitos estratégico y operativo, considerando la determinación del universo de auditoría, los riesgos institucionales, en caso de que se cuente con el Sistema Específico de Valoración de Riesgos Institucional (SEVRI), los factores críticos de éxito y otros criterios relevantes.
+La planificación estratégica plasmará la visión, misión, valores éticos y orientaciones de la Auditoría, congruentes con los institucionales.
+El plan de trabajo anual estará basado en su plan estratégico, y comprenderá todas las actividades por realizar durante el periodo, se mantendrá actualizado y se expresará en el presupuesto respectivo. El plan considerará la dotación de recursos de la auditoría interna y será proporcionado y equilibrado frente a las condiciones imperantes en la institución y conforme a las regulaciones establecidas por los órganos competentes.

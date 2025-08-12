@@ -1,0 +1,12 @@
+Artículo 21- Deberes de los funcionarios de la Auditoría Interna. El auditor interno, y los funcionarios de la Auditoría Interna tendrán los siguientes deberes, conforme al artículo 32 de la Ley General de Control Interno No. 8292:
+a) Cumplir las competencias asignadas por ley.
+b) Cumplir el ordenamiento jurídico y técnico aplicable.
+c) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de las competencias de control o fiscalización legalmente atribuidas.
+d) Administrar de manera eficaz, eficiente y económica, los recursos del proceso del que sea responsable.
+e) No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorías o los estudios de carácter especial de auditoría que se estén realizando, ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios institucionales.
+f) Guardar la confidencialidad del caso sobre la información a la que tengan acceso.
+g) Acatar las disposiciones y recomendaciones emanadas de la Contraloría General de la República.
+En caso de oposición por parte de la Auditoría Interna referente a tales disposiciones y recomendaciones, se aplicará el artículo 26 de la Ley Orgánica de la Contraloría General de la República.
+h) Facilitar y entregar la información que les solicite la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política, y colaborar con dicha información.
+i) Cumplir los otros deberes atinentes a su competencia.
+Así mismo, deberán cumplir con lo establecido en este Reglamento, las Resoluciones Administrativas acordadas por la Junta Administrativa, y lo ordenado por el Órgano Contralor en sus manuales, resoluciones, normas, lineamientos, circulares, directrices y otros documentos de carácter obligatorio referente a los deberes de la Auditoría Interna.

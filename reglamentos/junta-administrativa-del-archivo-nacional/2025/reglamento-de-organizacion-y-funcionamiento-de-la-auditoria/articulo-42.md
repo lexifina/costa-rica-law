@@ -1,0 +1,2 @@
+Artículo 42- Seguimiento de recomendaciones a cargo de la administración activa. Es responsabilidad del Jerarca o titular subordinado, según corresponda, ordenar y asegurar la oportuna implementación y seguimiento de las recomendaciones de la Auditoría Interna. Además, deberá suministrar la información a la Auditoría Interna que demuestre el cumplimiento de estas.
+La persona responsable de ordenar la implementación de las recomendaciones deberá ejercer el control para asegurarse la adopción de todas las medidas y las acciones para su oportuna y adecuada implementación.
