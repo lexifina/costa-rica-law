@@ -1,0 +1,1 @@
+Artículo 25. Se derogan las Resoluciones Nº DG-RES-150-2023 del 28 de noviembre de 2023 y Nº DG-RES-133-2023 del 9 de octubre de 2023 y Circulares N° ARSP-CIR-3-2023 del 26 de octubre 2023, N° ARSP-CIR-4-2024 del 29 de abril de 2024 y N° ARSP-CIR-1-2024 del 15 de enero del 2024.

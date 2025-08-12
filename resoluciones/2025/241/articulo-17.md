@@ -1,0 +1,1 @@
+Artículo 17. El ARSP como dependencia asesora y supervisora en la implementación de políticas modernas de empleo público, específicamente en lo referido a la comprobación de idoneidad específica, verificará periódicamente que las OGEREH cumplan con estas disposiciones.

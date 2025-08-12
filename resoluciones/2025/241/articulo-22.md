@@ -1,0 +1,2 @@
+CAPÍTULO IV Disposiciones Finales
+Artículo 22. Completar la oferta de servicios y eventualmente formar parte del Registro de Elegibles, no garantiza que las personas obtendrán un nombramiento. Formar parte de un Registro de Elegibles constituye una mera expectativa de derecho y los nombramientos de personal resultan competencia exclusiva y excluyente del máximo jerarca o de la autoridad en quien este delegue esta labor, en concordancia con lo estipulado en los numerales 140 inciso 2) de la Constitución Política y 12 del Estatuto de Servicio Civil.

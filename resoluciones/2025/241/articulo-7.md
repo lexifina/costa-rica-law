@@ -1,0 +1,5 @@
+Publicación de puestos vacantes
+Artículo 7. Cuando no existan personas inscritas en el Registro de Oferentes o existiendo se determina que ninguna reúne los requisitos y características indicadas por la OGEREH en el pedimento de personal; se procederá de la siguiente manera:
+El ARSP publicará los puestos disponibles en el sitio web de la DGSC www.dgsc.go.cr, en la sección "Aplicar a puestos vacantes", en la Plataforma Integrada de Empleo Público (PIEP), en las redes sociales de la DGSC y en las redes sociales de Brete.cr (Agencia Nacional de Empleo).
+El afiche divulgativo de la publicación de los puestos disponibles estará habilitado durante un período de cinco (5) días hábiles, y quienes se inscriban posteriormente, quedarán a la espera de la revisión de sus atestados según las variables indicadas para tal efecto.
+Las OGEREH a solicitud del ARSP divulgarán la publicación de sus plazas vacantes para la captación de nuevas personas oferentes que se ajusten al perfil de su interés, principalmente en sedes regionales para que éstas se inscriban, formen parte del Registro de Oferentes y sean procesadas en el momento correspondiente por el ARSP.

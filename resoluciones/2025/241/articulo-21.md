@@ -1,0 +1,1 @@
+Artículo 21. Las actuaciones realizadas por las OGEREH en lo relativo a los procesos aquí normados, deberán constar en los expedientes de la resolución de cada nómina, y estarán disponibles a solicitud de la DGSC o de cualquier otra instancia competente.

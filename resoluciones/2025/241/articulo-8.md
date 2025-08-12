@@ -1,0 +1,6 @@
+Consideraciones para las personas oferentes al completar su oferta de servicios
+Artículo 8. Para conformar el Registro de Elegibles, las personas oferentes deben:
+8.1 Ingresar al sitio web institucional, o a la Plataforma Integrada de Empleo Público (PIEP) y registrar su oferta de servicios digital para cada clase, especialidad y subespecialidad para las que cumple requisitos con base en los manuales de clases y especialidades emitidos por esta Dirección General. La posibilidad de registrarse está disponible de manera permanente y únicamente en formato digital.
+8.2 Mantener su oferta de servicios completa, con información veraz y actualizada, de lo contrario no será procesada. La oferta de servicios constituye una declaración jurada, con los efectos jurídicos que la ley tutela.
+De comprobarse en alguna etapa del proceso, falsedad en los datos registrados en la oferta de servicios, presentación de documentos falsos o alterados, esta se invalidará de forma inmediata y no se le procesará oferta hasta que haya transcurrido un plazo de seis (6) años, sin perjuicio de las denuncias que interponga la DGSC ante el Ministerio Público.
+8.3 Aceptar en la oferta de servicios, en el apartado declaración jurada los términos de ésta, caso contrario no será considerada en el proceso de revisión correspondiente.

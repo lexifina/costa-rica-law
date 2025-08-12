@@ -1,0 +1,3 @@
+Artículo 18. Sobre el informe de resultados de las pruebas específicas (Fase II):
+Las personas integrantes de las nóminas podrán solicitar a la OGEREH los resultados de las pruebas específicas en un plazo de tres (3) días hábiles, contados a partir de la recepción del comunicado de resultados. El plazo que tendrá la OGEREH para resolver la devolución de resultados es de diez (10) días hábiles. Esta solicitud no detiene, ni suspende el proceso selectivo. Para brindar dicha respuesta la OGEREH podrá solicitar un informe al equipo evaluador del proceso selectivo.
+Cuando las instituciones apliquen pruebas estandarizadas y cautivas durante esta fase y sean reutilizadas en procesos selectivos posteriores, deberá garantizarse la confidencialidad de sus contenidos.

@@ -1,0 +1,2 @@
+Artículo 4. Para gestionar una nómina de candidatos elegibles, la OGEREH remitirá al ARSP el pedimento de personal con las características del puesto vacante, quien conformará y remitirá la nómina solicitada en un plazo de hasta 3 días hábiles en caso de existir registros elegibles.
+Cada pedimento de personal será registrado y remitido por la OGEREH en el sistema informático destinado para tal fin, y el ARSP lo atenderá y remitirá la nómina por la misma vía. La conformación de la nómina estará supeditada a que la información del pedimento de personal esté completa.

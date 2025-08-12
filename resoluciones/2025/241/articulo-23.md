@@ -1,0 +1,1 @@
+Artículo 23. Cuando las personas hayan concluido satisfactoriamente el proceso de reclutamiento y selección, y se haya seleccionado a una persona candidata en condición de discapacidad o que se autodetermine como Afrodescendiente, sin previa reserva de la plaza, la institución podrá valorar la reserva de ésta con posterioridad.

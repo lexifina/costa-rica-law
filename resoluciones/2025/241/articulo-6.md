@@ -1,0 +1,4 @@
+Criterios y variables definidas para el procesamiento de personas oferentes
+Artículo 6. Las ofertas de servicio se tomarán del Registro de Oferentes, considerando los siguientes criterios:
+6.1. Demanda de la Vacante: Las ofertas de servicios de las personas oferentes serán revisadas con base en las solicitudes de las OGEREH, para resolver los puestos vacantes mediante solicitud de nómina al ARSP, contemplando aspectos tales como: clase, especialidad, subespecialidad, ubicación geográfica (provincia, cantón, distrito), disponibilidad para viajar, horario, jornada, institución donde se encuentra la vacante y si es puesto reservado o no.
+6.2. Orden por fecha de inscripción: Las ofertas de servicios de las personas oferentes serán revisadas en orden cronológico, según la fecha en que registraron determinada clase, especialidad y subespecialidad.

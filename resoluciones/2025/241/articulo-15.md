@@ -1,0 +1,1 @@
+Artículo 15. La nómina deberá ser resuelta por la OGEREH en un plazo máximo de veinte (20) días hábiles (incluida la etapa de confección y aplicación de pruebas específicas), contados a partir del día siguiente de la remisión de la nómina por el ARSP y culminará hasta la comunicación de lo resuelto.
