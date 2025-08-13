@@ -26,4 +26,6 @@ Se reconoce como sinónimo, el siguiente término Electrocardiografía y Prácti
 3.19. Electrofisiología
 3.20. Tecnocardiología y Hemodinamia.
 3.21. Embalsamado y otras técnicas de preservación de piezas anatómicas para docencia.
+3.22. Promoción de la Salud
+(Así adicionado el inciso anterior en sesión ordinaria 2025-08-13, celebrada el 13 de agosto de 2025)
 (Así reformado en sesión N° 2021-07-14 del 14 de julio de 2021)
