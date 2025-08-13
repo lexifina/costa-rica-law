@@ -1,0 +1,1 @@
+Artículo 26.- Denegatoria de autorización. En caso de que la solicitud sea rechazada, sea por incumplir los requisitos o no aprobación del Concejo Municipal, el órgano correspondiente emitirá resolución motivada conforme a los requisitos del artículo 154 de la Ley General de Administración Pública sobre permisos de uso en precario.

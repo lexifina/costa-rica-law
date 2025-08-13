@@ -1,0 +1,1 @@
+Artículo 34.- Construcción, rehabilitación y mantenimiento de los espacios autorizados. Las personas licenciatarias de la autorización deberán permitir, en cualquier momento, las reparaciones de infraestructura, instalaciones o servicios que se encuentren en el espacio autorizado, sin que se genere derecho a indemnización por parte de la Municipalidad.

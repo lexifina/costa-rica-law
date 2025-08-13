@@ -1,0 +1,1 @@
+Artículo 29.- Periodicidad del pago. El monto que corresponda pagar por concepto de autorización de comercio al aire libre se cancelará de manera trimestral y el monto se actualizará conforme a la actualización del monto de la patente comercial y eventuales cambios en el espacio autorizado conforme al artículo anterior.

@@ -1,0 +1,3 @@
+Sección II
+Pago del Derecho
+Artículo 27.- Pago anticipado del derecho de comercio al aire libre. La persona licenciataria, que obtenga la autorización de comercio al aire libre, deberá realizar a la municipalidad respectiva el pago anticipado de este derecho. De conformidad con lo establecido por la Ley, la Municipalidad queda facultada para generar una exoneración de dicho pago para MYPES (Micro y pequeñas empresas) debidamente certificadas como tales por el Ministerio de Economía, Industria y Comercio (MEIC), durante los primeros seis (6) meses posteriores a la obtención de la primera autorización de comercio al aire libre.
