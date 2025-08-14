@@ -1,0 +1,1 @@
+Artículo 9° Conservación del beneficio. Para mantener el beneficio la persona contribuyente deberá presentar toda la documentación y su solicitud de exención cada año calendario, dentro de los 2 primeros meses del año, cumpliendo con los requisitos dispuestos en el numeral 5 del presente reglamento.

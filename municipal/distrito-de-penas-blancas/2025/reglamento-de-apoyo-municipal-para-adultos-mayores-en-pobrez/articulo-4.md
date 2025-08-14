@@ -1,0 +1,1 @@
+Artículo 4° Igualdad del beneficio. El beneficio de Apoyo Municipal para Adultos Mayores en Pobreza se aplicará de forma igualitaria para las personas contribuyentes clasificadas en condición de pobreza o pobreza extrema. No podrán establecerse condonaciones ni exenciones diferenciadas, ni aplicar diferenciación de porcentajes entre los sujetos beneficiarios.

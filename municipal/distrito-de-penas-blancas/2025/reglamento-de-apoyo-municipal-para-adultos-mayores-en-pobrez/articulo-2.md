@@ -1,0 +1,1 @@
+Artículo 2° Habilitación. Se habilita al Gobierno Local de Peñas Blancas para que, a través de la administración, con fundamento en una certificación Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE) de los solicitantes se pueda brindar exención y condonación a contribuyentes adultos mayores en condición de pobreza y pobreza extrema.

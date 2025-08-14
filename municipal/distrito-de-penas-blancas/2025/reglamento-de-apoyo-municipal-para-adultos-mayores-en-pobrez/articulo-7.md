@@ -1,0 +1,1 @@
+Artículo 7° Aplicación de la condonación. La condonación se aplicará por única vez a la totalidad de los adeudos que registren los adultos mayores en condición de pobreza y pobreza extrema, independientemente de la fecha en que dichos adeudos se hayan originado. El plazo máximo para solicitar la aplicación de este beneficio será hasta el mes de febrero del año 2026.
