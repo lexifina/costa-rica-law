@@ -15,3 +15,4 @@ Reglamento de tesorería del Instituto Costarricense de Puertos del Pacífico
 | --- | --- | --- |
 | 1 | 2023-11-30 | la propia norma |
 | 2 | 2025-02-14 | Reglamento 4469 (2025-02-14) |
+| 3 | 2025-08-14 | Reglamento 4493 (2025-08-14) |
