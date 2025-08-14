@@ -1,0 +1,1 @@
+Artículo 3: Que los animales no contemplados en el inciso c) del artículo 2 del Decreto Ejecutivo N° 31626-S del 22 de setiembre del 2003 "Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía", no podrán ingresar a los establecimientos sujetos a permiso sanitario de funcionamiento.

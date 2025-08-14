@@ -1,0 +1,1 @@
+Artículo 6: El incumplimiento de lo aquí indicado dará lugar a la aplicación de las medidas especiales de carácter sanitario dispuestas en los numerales 355, 378 y 378 bis, siguientes y concordantes de Ley General de Salud.
