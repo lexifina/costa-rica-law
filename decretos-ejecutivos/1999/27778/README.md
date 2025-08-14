@@ -14,3 +14,4 @@ Reglamento para el Traspaso de Cuotas del Régimen de Pensiones de Comunicacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-15 | la propia norma |
+| 2 | 2025-08-14 | Decreto Ejecutivo 45235 (2025-08-14) |
