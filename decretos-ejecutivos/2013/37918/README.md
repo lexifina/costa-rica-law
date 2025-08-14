@@ -16,3 +16,4 @@ Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su ro
 | 1 | 2013-10-27 | la propia norma |
 | 2 | 2014-02-24 | Decreto Ejecutivo 38430 (2014-02-24) |
 | 3 | 2024-01-12 | Decreto Ejecutivo 44336 (2024-01-12) |
+| 4 | 2025-08-14 | Decreto Ejecutivo 45314 (2025-08-14) |
