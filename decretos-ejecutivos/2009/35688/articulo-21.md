@@ -1,7 +1,0 @@
-Artículo 21.—Subdirección de Desarrollo Técnico y Control del Proceso de las Actuaciones Fiscalizadoras. Corresponde a esta Subdirección realizar las siguientes funciones:
-a) Brindar apoyo técnico en la realización de determinadas actuaciones fiscalizadoras, formulando sugerencias a los funcionarios actuantes que mejoren su calidad.
-b) Desarrollar y mejorar los procedimientos técnicos, aprovechando las experiencias que se entiendan exitosas en la ejecución de determinadas actuaciones fiscalizadoras
-c) Impulsar las actuaciones de investigación del fraude tributario complejo, diseñando medios para identificar, controlar y apoyar esta clase de actuaciones.
-d) Desarrollar estrategias para fortalecer las habilidades y conocimientos necesarios para el mejor desempeño profesional de los funcionarios actuantes de la Fiscalización, enfatizando el intercambio ordenado y sistemático, de experiencias exitosas entre ellos y el conocimiento amplio sobre las formas del fraude tributario complejo en coordinación con el Centro de Investigación y Formación Hacendaria.
-e) Evaluar el desempeño de los órganos fiscalizadores y la calidad y productividad de las actuaciones fiscalizadoras, definiendo indicadores de desempeño y emitiendo informes periódicos.
-f) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) de Fiscalización, no expresadas anteriormente, pero que se puedan incluir dentro del ámbito de sus competencias y responsabilidades.
