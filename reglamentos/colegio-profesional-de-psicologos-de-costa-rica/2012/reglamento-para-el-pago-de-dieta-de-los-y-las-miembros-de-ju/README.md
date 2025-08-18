@@ -15,3 +15,4 @@ Reglamento para el pago de dieta de los y las miembros de junta directiva, fisca
 | --- | --- | --- |
 | 1 | 2012-11-20 | la propia norma |
 | 2 | 2023-11-25 | Reglamento 134 (2023-11-25) |
+| 3 | 2025-08-18 | Reglamento 0 (2025-08-18) |

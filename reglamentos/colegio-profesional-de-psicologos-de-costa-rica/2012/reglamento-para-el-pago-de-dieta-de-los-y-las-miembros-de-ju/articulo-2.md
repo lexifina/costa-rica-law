@@ -1,5 +1,6 @@
-Artículo 2°-La dieta a cancelar se calculará sobre la base del salario mínimo de un Licenciado Universitario establecido en el Decreto Ejecutivo de Salarios Mínimos para el sector privado vigente al momento de aprobarse el presupuesto ordinario del Colegio.
+Artículo 2º-La dieta a cancelar se calculará sobre la base del salario mínimo de un Licenciado Universitario establecido en el Decreto Ejecutivo de Salarios Mínimos para el sector privado vigente al momento de aprobarse el presupuesto ordinario del Colegio.
 La dieta para las personas que ocupen el cargo de Presidencia de la Junta Directiva y Fiscalía será el equivalente al 30% del salario mínimo fijado para el Licenciado Universitario según el decreto indicado.
+Para los otros miembros de la Junta Directiva será EL equivalente al 15% del salario mínimo fijado para el Licenciado Universitario según el decreto indicado.
 Para quienes ocupen el cargo de miembros del Tribunal de Honor se les cancelará por dieta en sesión ordinaria o extraordinaria el equivalente al 10% del salario mínimo fijado para el Licenciado Universitario según el decreto indicado.
 Para quienes ocupen el cargo de miembros del Tribunal Electoral se les cancelará por dieta en sesión ordinaria el equivalente al 10% del salario mínimo fijado para el Licenciado Universitario según el decreto indicado.
 A los y las integrantes de estos órganos que tengan su residencia familiar fuera del Gran Área Metropolitana, se les reconocerá un 10% adicional sobre la base del monto de la dieta, en caso de sesionar presencialmente.

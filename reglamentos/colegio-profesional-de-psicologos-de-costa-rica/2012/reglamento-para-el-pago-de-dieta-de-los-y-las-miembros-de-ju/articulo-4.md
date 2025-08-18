@@ -1,1 +1,1 @@
-Artículo 4°-Cuando por impedimento, excusa o recusación de alguno de los y las titulares de los Tribunales se convoque a alguna de las personas suplentes del Tribunal de Honor o del Tribunal Electoral, se le reconocerá la dieta en las mismas condiciones que al titular que sustituye.
+Artículo 4º-Cuando por impedimento, excusa o recusación de alguno de los y las titulares de los Tribunales se convoque a alguna de las personas suplentes del Tribunal de Honor o del Tribunal Electoral, se le reconocerá la dieta en las mismas condiciones que al titular que sustituye.

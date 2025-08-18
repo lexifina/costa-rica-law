@@ -1,2 +1,2 @@
-Artículo 7°-El pago de dieta se hará dentro de los 15 días hábiles del mes siguiente al que se celebraron las sesiones respectivas. La Administración dispondrá la forma y medios para realizar el pago correspondiente.
+Artículo 7º-El pago de dieta se hará dentro de los 15 días hábiles del mes siguiente al que se celebraron las sesiones respectivas. La Administración dispondrá la forma y medios para realizar el pago correspondiente.
 Los beneficios a que se refiere este Reglamento regirán por el plazo de nombramiento de cada Directivo (a) o Tribuno (a) y se estimarán como otorgados a título eminentemente gratuito por lo que no podrán considerarse bajo ningún aspecto como un salario ni contra prestación por servicios brindados al Colegio.
