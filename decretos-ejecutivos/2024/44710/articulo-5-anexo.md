@@ -86,7 +86,8 @@ i. Para los casos que la temática de la cartografía representa el 100% de la c
 ii. Dos polígonos con geometría y atributos idénticos no pueden ocupar el mismo espacio.
 iii. Los vértices de las líneas que delimita a un polígono deben cerrar correctamente.
 iv. Para la corrección y validación de Reglas Topológicas para geometrías, usar como insumo, la "Guía para la Validación Topológica de la Geometría de los elementos vectoriales", elaborada por el CENlGA/SINIA.
-2.1.12. Si lo presentado corresponde con subsanes, verificar que se presentara lo requerido con el sufijo "_v02" si fuese la segunda versión de ingreso a la SETENA, "v_03" si fuese la tercera versión de ingreso.
+2.1.12. Si lo presentado corresponde con subsanes verificar que se presentara lo requerido con el sufijo "_v02 si fuese la segunda versión de ingreso a la SETENA. " _v03" si fuese la tercera versión de ingreso
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.2. Presentación en la plataforma digital de la SETENA
 2.2.1. Admisibilidad y Diagnóstico Ambiental: Verificar que se presentaran los insumos referentes a admisibilidad y DAM comprimidos en formato "'.zip", denominados "Admisibilidad.zip" y "DAM.zip".
 2.2.2. Resumen de Información Complementaria e Informe de Medidas para Gestionar las Condicionantes Ambientales: Verificar que se presentaran los insumos referentes a los apartados RIC e IME denominados "RIC.zip" e "IME.zip".
@@ -150,7 +151,8 @@ o Modalidad de uso de la tierra
 Verificar que se incluya el archivo cartográfico "AE.shp", verificar que la tabla de atributos del "AE.shp" sea conforme con la Tabla l del punto 2 del Anexo 3 del presente Reglamento.
 2.4.2 Variables generales
 2.4.2.1. Vulnerabilidad del acuífero a la contaminación: verificar que el documento "VAC.pdf detalle las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "VAC.shp" sea conforme a la Tabla 2 del punto 2 del Anexo 3 del presente Reglamento y tenga la síntesis de resultados.
-2.4.2.2. Recarga acuífera: verificar que el documento "RS.pdf' detalle las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "RA.shp" sea conforme a la Tabla 3 del punto 2 del Anexo 3 del presente Reglamento y tenga la síntesis de resultados.
+2.4.2.2. Recarga acuífera: verificar que el documento "RA.pdf'' detalle las fuentes de información utilizadas para el análisis. la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "RA.shp '' sea conforme a la Tabla 3 del punto 2 del Anexo 3 del presente Reglamento y tenga la síntesis de resultados
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.4.2.3. Amenaza de inundación: verificar que el documento "Al.pdf', detalle las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "AI.shp" sea conforme a la Tabla 3 del punto 2 del Anexo 4 del presente Reglamento y tenga la síntesis de resultados.
 2.4.2.4. Cobertura biótica y biodiversidad: verificar que el documento "CB.pdf', detalle las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "CB.shp" sea conforme a la Tabla 3 del punto 2 del Anexo 5 del presente Reglamento y tenga la síntesis de resultados.
 2.4.2.5. Amenaza de sequías: verificar que el documento "AS.pdf', detalle las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Verificar que la tabla de atributos del archivo cartográfico "AS.shp" sea conforme a la Tabla 3 del punto 2 del Anexo 6 del presente Reglamento y tenga la síntesis de resultados.
@@ -212,9 +214,11 @@ o Verificar que se cargaran los documentos correspondientes al Anexo 1 o bien en
 o Verificar que se incluya el documento llamado "MotivModif.pdf' y que éste explique el motivo de la modificación.
 o Verificar que se incluya el documento llamado "DeclaExpA.pdf' y que éste corresponda con la declaración expresa del escenario respectivo.
 o Verificar que se incluya el archivo cartográfico llamado "MZPro.shp" y que éste posea la tabla ele atributos conforme la Tabla del punto 3 del Anexo 3.
-3.4.2. Para el escenario B:
-o Verificar que el documento llamado "MotivModif.pdf' explique el motivo de la modificación.
-o Verificar que el documento llamado "DeclaExpA.pdf' corresponda con lo indicado en el Anexo Técnico.
-o Verificar que el archivo cartográfico llamado "MZPro.shp" posea la tabla de atributos detallada para el Escenario A.
-3.4.3. Para el escenario B:
+(*)3.4.2. Para el escenario B":
+. Verificar que el documento llamado "MotivModif.pdff" explique el motivo de la modificación.
+. Verificar que el documento llamado "DeclaExpB.pdf' corresponda con lo indicado en el Anexo Técnico.
+. Verificar que el archivo cartográfico llamado ''MZPro.shp" posea la tabla de atributos detallada para el Escenario A
+(*)(Así reformado el punto 3.4.2) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
+3.4.3. Para el escenario C:
+(*)(Así reformado el punto 3.4.3) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 o Verificar que realizara el procedimiento según se indica en el Anexo 1 o bien en el Anexo 2 del presente Reglamento.

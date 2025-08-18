@@ -104,12 +104,13 @@ i. Para los casos que la temática de la cartografía representa el 100% de la c
 ii. Dos polígonos con geometría y atributos idénticos no pueden ocupar el mismo espacio.
 iii. Los vértices de las líneas que delimita a un polígono deben cerrar correctamente.
 iv. Para la corrección y validación de Reglas Topológicas para geometrías, usar como insumo, la "Guía para la Validación Topológica de la Geometría de los elementos vectoriales", elaborada por el CENIGA/SINIA.
-m. Para el caso de la presentación de subsanes se debe presentar un documento según corresponda a la variable o informe, indicando posterior al título del documento de cada uno de estos la versión a la que corresponde, agregando como sufijo "_ v02" si fuese la segunda versión de ingreso a la SETENA, "v _03" si fuese la tercera versión de ingreso y así consecutivamente.
+m. Para el caso de la presentación de subsanes se debe presentar un documento según corresponda a la variable o informe. indicando posterior al título del documento de cada uno de estos la versión a la que corresponde, agregando como sufijo ''_ v02" si fuese la segunda versión de ingreso a la SETENA, "_v03" si fuese la tercera versión de ingreso y así consecutivamente.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.2. Presentación en la plataforma digital de la SETENA
 2.2.1. Admisibilidad y Diagnóstico Ambiental
 Se presentarán los insumos referentes a admisibilidad y DAM comprimidos en formato "* .zip", denominados "Admisibilidad.zip" y "DAM.zip", respectivamente y se adjuntarán en la plataforma digital de la SETENA
-Las plantillas mencionadas en cada uno de los apartados, se colgarán en la plataforma digital de la SETENA, para su descarga y deberán incluirse en la remisión de los documentos "Admisibilidad.zip" y "DA.zip", según corresponda.
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025 se reformará el párrafo anterior. De conformidad con lo establecido en el artículo 3° de la indicada norma la misma empieza a regir 6 meses después de su publicación en el Diario Oficial La Gaceta, es decir, el 18 de agosto del 2025 por lo que a partir de esa fecha el texto de dicho párrafo será el siguiente: "Las plantillas mencionadas en cada uno de los apartados, se colgarán en la plataforma digital de la SETENA, para su descarga y deberán incluirse en la remisión de los documentos "Adnúsibilidad.zip" y "DAlvl.zip ", según corresponda''.)
+Las plantillas mencionadas en cada uno de los apartados, se colgarán en la plataforma digital de la SETENA, para su descarga y deberán incluirse en la remisión de los documentos "Adnúsibilidad.zip" y "DAlvl.zip ", según corresponda".
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.2.2. Resumen de Información Complementaria e Informe de Medidas para Gestionar las Condicionantes Ambientales
 Se presentarán los insumos referentes a los apartados RIC e IME denominados "RIC.zip" e "IME.zip", respectivamente y se adjuntará en la plataforma digital de la SETENA.
 Las plantillas mencionadas en cada uno de los apartados, se colgarán en la plataforma digital de la SETENA, para su descarga y deberán incluirse en la remisión de los documentos "RIC.zip" y "IME.zip", según corresponda.
@@ -159,8 +160,11 @@ o Cargar archivo cartográfico "A V.shp"
 o Amenazas de tsunami
 o Cargar documento "A T.pdf'
 o Cargar archivo cartográfico "A T.shp"
-(*)o Corredores biológicos
+o Corredores biológicos
 o Cargar archivo cartográfico "CRB.shp"
+(*)(Así reformado el ítem anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
+o Cargar documento "CRB.pdf'.
+(*)(Así adicionado el ítem anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 o Aurnento del nivel medio del mar
 o Cargar documento "ANMM.pdf'
 o Cargar archivo cartográfico "ANMM.shp"
@@ -181,43 +185,46 @@ Al finalizar de cargar y rellenar lo antes citado, se generará un número de ex
 2.4.1 Área de estudio
 El proponente debe presentar un archivo cartográfico denominado "AE.shp", en donde presente el plígono que delimita el área total de estudio. La tabla de atributos del "AE.shp" debe incluir los siguientes atributos:
 Tabla 1: Descripción de los atributos a ser usados para el archivo cartográfico Denominado "AE.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 2”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 2")
 [imagen]
 2.4.2 Variables generales
 2.4.2.1 Vulnerabilidad del acuífero a la contaminación
 En el documento "VAC.pdf", se deben detallar las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe generar un único archivo cartográfico, denominado "VAC.shp", cuya tabla de atributos debe poseer la información resultante sobre condiciones ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 2. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "VAC.pdf".
 Tabla 2: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "VAC.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 3”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 3")
 [imagen]
 2.4.2.2 Recarga acuífera
-En el documento "RS.pdf", se deben detallar las fuentes de información utilizadas para el análisis, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "RA.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 3. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. Debe necesitar algún tipo de explicación realizarlo en el documento "RS.pdf".
+En el documento "RA.pdf'. se deben detallar las fuentes de información utilizadas para el análisis. la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable. el proponente debe presentar un único archivo cartográfico. denominado "RA.shp ·.. cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial. tal como se indica en la Tabla 3. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento ''RA.pdf''
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Tabla 3: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "RA.shp".
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 4”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 4")
 [imagen]
 2.4.2.3 Amenaza de inundación
 En el documento "AI.pdf", se deben detallar las fuentes de información, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "AI.pdf", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 4. Cabe de indicar la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "AI.pdf".
 Tabla 4: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "AI.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 5”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 5")
 [imagen]
 2.4.2.4a Cobertura de flora (biótica)
-En el documento "RS.pdf", se deben detallar las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "CB.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 5. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "CB.pdf".
+En el documento "CB.pdf'. se deben detallar las fue ni es de información utilizadas la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable el proponente debe presentar un único archivo cartogáfico. denominado ''CB.shp ". cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial. tal como se indica en la Tabla 5. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "CB.pdf "
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Tabla 5: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "CB.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 6”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 6")
 [imagen]
 [imagen]
-2.4.2.5 b. Biodiversidad
-En el documento "RS.pdf", se deben detallar las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "BIO.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial.
-Tabla 6: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "BIO.shp"
+(*) 2.-4.2.4.b Biodiversidad": ''En el documento ''BIO.pdf', se deben detallar las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable. el proponente debe presentar un único archivo cartográfico, denominado ''BIO.shp ·.. cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial.
+Tabla 6: Descripción de los atributos a ser usados para el archivo cartográfico en
+formato "BIO.shp".
 [imagen]
-[imagen]
+(*)(Así adicionado el punto 2.4.2.4.b) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025. Aunque la numeración no corresponde, del análisis se deduce que es al punto anterior)
 2.4.2.5 Amenazas de sequías
 En el documento "AS.pdf", se deben detallar las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "AS.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 7. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "AS.pdf"
 Tabla 7: Descripción de los atributos a ser usados para el archivo cartográfico en formato "AS.shp"
 [imagen]
 [imagen]
 2.4.3 Variables condicionales
-2.4.3.1 Capacidad de uso de las tierras agroecológicas
-En el documento "CUTA.pdf", se deben detallas las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "CUTA.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la tabla 8. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitará algún tipo de explicación realizarlo en el documento "CUT.pdf".
+2.4.3.1 Capacidad de uso de las tierras agroecológicas:
+En el documento "CUTA.pdf". se deben detallar las fuentes de información utilizadas. La aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico denominado "CUTA.shp ". cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial. Tal como se indica en la Tabla 8. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "CUTA.pdf'
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Tabla 8: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "CUTA.shp"
 [imagen]
 [imagen]
@@ -238,20 +245,23 @@ Tabla 11: Descripción de los atributos a ser usados para el archivo cartográfi
 2.4.3.5 Corredores biológicos
 Con base en la consulta realizada al SNIT correspondiente a la capa oficial de esta variable, el proponente debe presentar un único archivo cartográfico, denominado "CRB.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 12. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en un documento anexo que se deberá llamar "CRB.pdf".
 Tabla 12: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "CRB.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 72”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 72")
 [imagen]
 2.4.3.6. Aumento del nivel medio del mar
 En el documento "ANMM.pdf", se debn detallar las fuentes de información utilizadas, la aplicación de la metodología y el resultado obtenido. Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, denominado "ANMM.shp", cuya tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 13. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento "ANMM.pdf".
 Tabla 13: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "ANMM.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 83”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 83")
 [imagen]
 2.4.4 Variables adicionales
 De considerar relevante para el análisis del EIVA-POT otras variables, el proponente podrá generar un análisis sobre sus condiciones en el área de estudio, haciéndolo de manera individualizada, es decir un análisis por cada variable adicional que se incorpore.
-Se debe presentar un documento por cada variable adicional, el mismo debe detallar las fuentes de información utilizadas, la aplicación metodológica y el resultado obtenido para cada una de las variables adicionales. Este documento será nombrado con las tres primeras letras consonantes del nombre de la variable ambiental, que no debe coincidir con el nombre del archivo cartográfica de alguna otra variable anterior, eligiendo, en caso de necesidad, como cuarta letra la que siga a la tercera consonante ya incluida. Este archivo se presentará en formato PDF.
+Se debe presentar un documento por cada variable adicional. el mismo debe detallar las fuentes de información utilizadas. la aplicación metodológica y el resultado obtenido para cada una de las variables adicionales. Este documento será nombrado con las tres primeras letras consonantes del nombre de la variable ambiental que no debe coincidir con el nombre del documento de alguna otra variable anterior eligiendo en caso de necesidad como cuarta letra la que siga a la tercera consonante ya incluida. Este archivo se presentará en formato PDF.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Con base en el análisis correspondiente a esta variable, el proponente debe presentar un único archivo cartográfico, nombrado con las tres primeras letras consonantes del nombre de la variable ambiental, que no debe coincidir con el nombre del archivo cartográfico de alguna otra variable anterior, eligiendo, en caso de necesidad, como cuarta letra la que siga a la tercera consonante ya incluida. La tabla de atributos debe poseer la información resultante sobre condicionantes ambientales que la variable le impone al desarrollo territorial, tal como se indica en la Tabla 14. Cabe indicar que la tabla de atributos presentará una síntesis del resultado. De necesitar algún tipo de explicación realizarlo en el documento anexo, referido en el párrafo anterior.
-Tabla 14: Descripción de los atributos a ser usados para el archivo cartográfico en Formato "OTS.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 94”)
+Tabla 14: Descripción de los atributos a ser usados para el archivo cartográfico en formato "OTS.shp".
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 94")
 [imagen]
+[imagen]
+(Así reformada la tabla 14) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025
 3 Las siglas utilizadas en este atributo deben coincidir con las tres letras consonantes del nombre de la variable ambiental y a su vez con el nombre del archivo cartográfico.
 2.5 Análisis del Diagnóstico Ambiental
 Concluidos los análisis de las variables, se precederá a hacer un análisis de los resultados de manera integrada. La metodología para este análisis incluye la generación de tres archivos cartográficos, que evidencien la situación actual del área de estudio y permitan identificar conflictos de uso con las condicionantes ambientales y legales identificadas, información que se utilizará para definir las medidas para gestionar las condicionantes ambientales en el instrumento de ordenamiento territorial.
@@ -259,26 +269,29 @@ Los detalles para la presentación de los archivos cartográficos que integran e
 2.5.1 Uso actual de la tierra
 El proponente debe presentar un único archivo cartográfico, denominado "UTA.shp", cuya tabla de atributos debe poseer la información resultante, tal como se indica en la Tabla 15. En el caso de sectores costeros donde haya una planificación que haya servido de base para el otorgamiento de concesiones, y en este sector se desee elaborar una nueva planificación, se deberá considerar el uso actual del suelo como el uso ya establecido en la zonificación vigente a ese momento.
 Tabla 15: Descripción de los atributos para el archivo cartográfico "UAT.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 105”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 105")
 [imagen]
+(Así reformada la tabla 15) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.5.2 Condicionantes legales para el desarrollo
 El proponente debe preparar un archivo cartográfico que represente las condicionantes legales para el desarrollo dentro del área de estudio. El archivo debe ser denominado "CLD.shp", la tabla de atributos del archivo debe cumplir con los lineamientos que se establecen en la Tabla 16.
 Tabla 16: Descripción de los atributos para el archivo cartográfico "CLD.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 116”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 116")
 [imagen]
+[imagen]
+(Así reformada la tabla 16) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 La denominación de cada uno de los códigos CLD, debe estar compuesto por las iniciales CLD, seguidas de un número consecutivo al anterior. Por ejemplo, CLD-1, CLD-2, CLD (n+1).
 Para cada código CLD descrito en la Tabla 17 debe tener por lo menos un polígono representado en el archivo cartográfico "CLD-shp". Dicha tabla debe presentarse en el documento "CLD.pdf" cargado en la plataforma digital y tendrá el siguiente formato:
 Tabla 17: CLD-Condicionantes legales para el desarrollo
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 127”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 127")
 [imagen]
 En la tabla anterior, el proponente debe indicar los códigos alfanuméricos para cada grupo de condicionantes legales para el desarrollo. Una o más zonas pueden utilizar el mismo código, siempre y cuando tengan las mismas condicionantes legales.
 El archivo "CLD.shp" podrá estar compuesto por polígonos sobrepuestos para los casos donde el atributo "CLD" es diferente entre dos o más polígonos que se sobreponen. La razón es que una misma área geográfica puede compartir diferentes condicionantes o restricciones de uso legales, por ejemplo: un espacio geográfico que comparte restricciones de uso por protección a una naciente y simultáneamente parte de dicha área presenta restricción de uso por ubicarse en territorios indígenas, entre otros casos posibles.
 2.5.3 Modalidad de uso de la tierra
 El proponente debe preparar un archivo cartográfico que represente los resultados del análisis, denominado "MUT.shp", cuya tabla de atributos debe cumplir los siguientes lineamientos que se presentan en la Tabla 18.
 Tabla 18: Descripción de los atributos a ser usados para el archivo cartográfico Denominado "MUT.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 138”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 138")
 [imagen]
-[imagen]
+(Así reformada la tabla 18) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 2.6 Resumen de Información Complementaria
 Las ventanas de la plataforma digital irán estructuradas de la siguiente manera:
 o Indicar el número de expediente correspondiente al EIVA-POT del instrumento de ordenamiento territorial en cuestión
@@ -301,8 +314,7 @@ Tabla 19: Proyectos de infraestructura pública futura relevantes.
 El proponente entregará dos archivos cartográficos relacionados con la zonificación de la propuesta de plan regulador o instrumento de ordenamiento territorial. El primer archivo será la zonificación propuesta y deberá ser representado en un archivo cartográfico denominado "ZPro.shp", cuya tabla de atributos debe cumplir los siguientes lineamientos:
 Tabla 20: Descripción de los atributos para el archivo cartográfico denominado "ZPro.shp"
 [imagen]
-[imagen]
-[imagen]
+(Así reformada la tabla 20) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Para la columna correspondiente al atributo ZPro, los códigos alfabéticos para identificar las zonificaciones propuestas deben describirse en el documento "ZPro.pdf".
 Con base en los resultados de las condicionantes ambientales obtenidas en el DAM, se deben generar códigos alfabéticos e incorporarlos en el archivo cartográfico "ZPro.shp" según corresponda, tal como se indicó en la Tabla, el cual estará relacionado con la información que se debe llenar en la plataforma digital. A continuación, se presentan los lineamientos que debe cumplir dicha codificación:
 a. La denominación de cada uno de los códigos CA, debe estar compuesto por las iniciales CA, seguida de un número consecutivo al anterior. Por ejemplo: CA-1. CA-2.CA(n+1).
@@ -310,16 +322,18 @@ b. En el archivo cartográfico "ZPro.shp", no se debe describir las condiciones 
 c. Cada uno de los polígonos identificados en el archivo cartográfico "ZPro.shp", debe tener solamente un código CA, según se detalla en la Tabla 21 de este anexo. Uno o más polígonos identificados en la columna CA del archivo cartográfico "ZPro.shp" pueden tener el mismo código CA.
 d. Cada código CA descrito en la Tabla 21 debe tener por lo menos un polígono representado en el archivo cartográfico "ZPro.shp". Dicha tabla debe presentarse en el documento anexo "RIC.pdf" cargado en la plataforma digital y tendrá el siguiente formato:
 Tabla 21: CA-Condicionantes Ambientales para la Zonificación Propuesta
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 141”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 141")
 [imagen]
 En la tabla anterior, el proponente debe indicar los códigos alfanuméricos correspondientes tanto para condicionantes ambientales individuales como para grupos de condicionantes ambientales presentes en una misma área. Una o más zonas pueden utilizar el mismo código siempre y cuando tengan las mismas condicionantes ambientales.
 El segundo archivo a entregar representará la modalidad de uso de la tierra según la zonificación propuesta. El archivo debe ser denominado "MUZPro.shp". La tabla de atributos del archivo debe cumplir con los lineamientos que se establecen a continuación:
 Tabla 22: Descripción de los atributos para el archivo cartográfico "MUZPro.shp"
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 152”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 152")
 [imagen]
+[imagen]
+(Así reformada la tabla 22) anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Con base en el archivo "MUZPro.shp", se debe realizar un análisis de modalidad de uso de la tierra según la zonificación propuesta, el proponente debe detallar el resultado de "Uso acorde", "Uso acorde con potencial", o "Uso no acorde" que se obtendría aplicando la zonificación propuesta. Así mismo, deberá detallar aquellos casos donde el resultado es de "Uso no acorde", donde no sería posible modificar la condición de "Uso no acorde" actual identificada en el DAM a través de la zonificación propuesta y la norma asociada; esto debe hacerse, siguiendo el formato de la siguiente tabla:
 Tabla 23: Síntesis de caso relevantes de la modalidad de uso de la zonificación propuesta
-(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: “Tabla N° 163”)
+(Corregido el número de la tabla anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 21 a La Gaceta N° 31 del 17 de febrero del 2025, página N° 2. Anteriormente se indicaba: "Tabla N° 163")
 [imagen]
 En la Tabla 23, el proponente debe indicar con un número el identificador del área específica, el uso actual de la tierra, las condiciones ambientales y legales presentes en el área específica y para los cuales no se pudieron establecer medidas para cambiar la modalidad del uso a "Uso acorde" o "Uso acorde con potencial" y la síntesis del análisis del caso, con las explicaciones correspondientes que justifiquen esa imposibilidad de cambio. Los datos que se deben colocar en las columnas "id. Área", "Condicionantes ambientales" y "Condicionantes legales" deben mantener una relación entre sí. Esta tabla debe presentarse como parte del documento anexo "IREPZpdf", que se carga en la plataforma digital.
 2.7 Informe de Medidas para gestionar condicionantes ambientales.
@@ -368,9 +382,10 @@ o Un documento llamado "DeclaExpA.pdf' que corresponda con lo indicado en el Ane
 o Un archivo cartográfico llamado "MZPro.shp" que posea la siguiente tabla de atributos:
 Tabla 25: Descripción de los atributos a ser usados para el archivo cartográfico denominado "MZPro.shp".
 [imagen]
-Escenario B:
-o Un documento llamado "MotivModif.pdf' donde se explique el motivo de la modificación.
-o Un documento llamado "DeclaExpA.pdf' que corresponda con lo indicado en el Anexo Técnico.
-o Un archivo cartográfico llamado "MZPro.shp" que posea la siguiente tabla de atributos detallada para el Escenario A.
+(*) Escenario B:
+. Un documento llamado "MotivModifpdf' donde se explique el motivo de la modificación.
+. Un documento llamado "DeclaExpB.pdf" que corresponda con lo indicado en el Anexo Técnico.
+. Un archivo cartográfico llamado "MZPro.shp" que posea la tabla de atributos detallada para el Escenario A.
+(*) (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44901 del 28 de enero del 2025)
 Escenario C:
 o Debe realizar el procedimiento según se indica en el Anexo 1 o bien en el Anexo 2 del presente Reglamento.
