@@ -1,4 +1,4 @@
-Artículo 8º—Derechos de los ciudadanos. Los ciudadanos en sus relaciones con la Administración Pública, tienen los siguientes derechos:
+Artículo 8º-Derechos de los ciudadanos. Los ciudadanos en sus relaciones con la Administración Pública, tienen los siguientes derechos:
 a) Conocer en cualquier momento el estado de la tramitación de las gestiones o peticiones.
 b) Identificar al funcionario o funcionarios públicos responsables del trámite de la Administración Pública que tramitan su petición.
 c) Negarse a presentar documentos no exigidos por disposición normativa, o que ya se encuentre en poder de la administración actuante, sea que refieren a un mismo trámite o para otros dentro de la misma entidad. Las diferentes entidades u órganos de la Administración Pública que por ley, están encargados de conocer sobre un trámite o requisito cuyo fin es común, complementario o idéntico, deberán llegar a un acuerdo para establecer un trámite único o compartido, delimitando claramente las competencias institucionales cuando éstas no estén definidas en el resto del ordenamiento.
@@ -7,3 +7,4 @@ e) Obtener orientación e información acerca de los requisitos normativos o té
 f) Exigir las responsabilidades de la Administración Pública y del funcionario público responsable del trámite, cuando corresponda de conformidad con el ordenamiento jurídico vigente.
 g) Ejercitar su derecho de petición de forma ágil y sin limitaciones.
 h) Tener respuestas a sus gestiones ante la Administración Pública en el plazo establecido por el ordenamiento jurídico.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45173 del 18 de agosto de 2025, "Eliminación del requisito de presentar fotocopia de la cédula de identidad en todos los trámites y gestiones ante las entidades del Gobierno Central", se acordó derogar el requisito de presentar la copia de la cédula de identidad para realizar una gestión o un trámite ante la Administración del Gobierno Central, siempre que la gestión se realice de manera presencial. En su lugar, tal requisito se sustituye por la presentación de la cédula de identidad, de conformidad con la Ley Nº 3504.)
