@@ -14,3 +14,4 @@ Reforma Manual de criterios para la distribución de recursos de la Ley N° 8718
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-18 | la propia norma |
+| 2 | 2025-08-18 | Reglamento 32 (2025-05-29) |
