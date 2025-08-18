@@ -1,0 +1,4 @@
+Artículo 10- Requisitos generales de admisibilidad para el trámite. El proponente presentará a la SETENA los estudios ambientales de los POT mediante el sistema digital de tramitación respectivo y en observancia de las guías y procedimientos que establezca la SETENA. Los requisitos y documentos generales a ingresar en el sistema digital de tramitación, son:
+1) Llenado de requerimientos administrativos en el sistema digital de tramitación.
+2) El ElVA-POT elaborado conforme los lineamientos técnicos del Anexo Nº 1 o bien del Anexo N° 2 del presente Reglamento, esto según la metodología elegida para la elaboración de los estudios técnicos.
+3) La cartografía del EIVA POT generada conforme los lineamientos técnicos del Anexo Nº 1 o bien del Anexo Nº 2 del presente Reglamento, esto según la metodología elegida para la elaboración de los estudios técnicos.

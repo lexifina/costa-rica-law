@@ -1,0 +1,1 @@
+Artículo 28.- Participación ciudadana en territorios indígenas. En el caso de planes de ordenamiento territorial que involucren territorios indígenas, el proponente deberá cumplir con el Mecanismo General de Consulta a Pueblos Indígenas, cuando así corresponda.

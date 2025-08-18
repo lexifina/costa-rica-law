@@ -1,0 +1,4 @@
+Artículo 2- Objetivos. Los objetivos de la presente norma son:
+1) Garantizar que los planes de ordenamiento territorial contemplen la protección del ambiente en concordancia con el artículo 50 Constitucional, en particular de los recursos naturales y la biodiversidad, así corno que se incorporen acciones tendientes a la adaptación y mitigación del cambio climático, que contribuyan a salvaguardar la vida humana, mantener y promover una mejor calidad de vida, aumentar la resiliencia y seguridad de las comunidades y de los ecosistemas.
+2) Promover el desarrollo sostenible mediante el establecimiento de medidas para gestionar las condicionantes ambientales en los planes de ordenamiento territorial, dentro de las posibilidades que brinda el ordenamiento jurídico.
+3) Establecer un procedimiento claro y célere, que proteja el ambiente y la vida humana, para tramitar la incorporación de la variable ambiental en los planes de ordenamiento territorial.

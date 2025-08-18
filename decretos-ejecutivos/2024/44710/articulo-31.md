@@ -1,0 +1,1 @@
+Artículo 31. - Anexos Técnicos. Los Anexo Nº 1, el Anexo Nº 2 y el Anexo Nº 3 del presente Reglamento, deberán observarse para el proceso de la Incorporación de la Variable Ambiental en los POT en todos sus alcances técnicos.

@@ -1,0 +1,1 @@
+Artículo 21. -De las prórrogas y suspensiones. Las prórrogas y suspensiones de los plazos de vigencia de la viabilidad ambiental se aplicarán en los términos de los artículos 258 y 259 de la Ley General de la Administración Pública.

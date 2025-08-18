@@ -1,0 +1,1 @@
+Artículo 34. -Derogatoria. Deróguese el Decreto 32967-M INAE, "Manual de Instrumentos Técnicos para el Proceso ele Evaluación del Impacto Ambiental (Manual de EIA)-Parte III." del 20 de febrero del año 2006 y su reforma, y el Decreto 42696-MINAE, "Especificaciones para cartografía de la variable ambiental en planes de ordenamiento territorial" del 15 de octubre del 2020.

@@ -1,0 +1,2 @@
+Transitorio I.-Expedientes en trámite. Los expedientes ingresados a la SETENA y que no cuenten con resolución final al momento de entrada en vigencia del presente reglamento, se regirán para su aprobación por la normativa anterior, ya sea el Decreto Ejecutivo 32967-MINAE; 42696-MINAE y 39150-MINAE-MAG-MIVAH-PLAN-TUR y sus reformas.
+Los Planes Ambientales de Desarrollo que, al momento de publicarse el presente decreto, voluntariamente estén tramitando su viabilidad ambiental, pueden continuar su gestión o bien, desistir del trámite solicitando a SETENA el finiquito del mismo.

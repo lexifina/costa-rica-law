@@ -1,0 +1,5 @@
+TÍTULO II
+Revisión de los estudios de la incorporación de la variable ambiental en Planes de Ordenamiento Territorial
+CAPÍTULO I
+Trámite de los Estudios de la incorporación de la variable ambiental en un Plan de Ordenamiento Territorial
+Artículo 9- Competencias del proponente. El proponente, en el ámbito de sus competencias legalmente establecidas, será el encargado de coordinar la elaboración de los estudios ambientales del POT, accionar el procedimiento, presentar los requisitos definidos en el presente Reglamento y atender las correcciones y prevenciones requeridas por la SETENA. El proponente deberá elegir la metodología para la elaboración de los estudios ambientales de su POT, para lo cual debe elegir entre la metodología establecida en el Anexo Nº 1 (Procedimiento Técnico para la incorporación de la variable ambiental en planes de ordenamiento territorial: Elaboración de los EIVA-POT aplicando la alternativa metodológica 1 ), o la del Anexo Nº 2 (Procedimiento Técnico para la incorporación de la variable ambiental en planes de ordenamiento territorial: Elaboración ele los EIVA-POT aplicando la alternativa metodológica 2).

@@ -1,0 +1,1 @@
+Artículo 11- Expediente de tramitación. Con el ingreso verificado y validado de los documentos generales, el sistema digital de tramitación de la SETENA, asignará un número de expediente a la gestión. Toda documentación que forme parte de la tramitación de cada estudio ambiental del POT, se incluirá en el expediente respectivo.
