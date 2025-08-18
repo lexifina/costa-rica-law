@@ -1,2 +1,4 @@
 Artículo 6°.- Vigencia. El presente Decreto regirá un mes después de su publicación en el Diario Oficial la Gaceta y hasta por un plazo de seis meses. Durante ese período se le dará seguimiento para determinar la prórroga o finalización de la medida.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 45140 del 7 de agosto del 2025, se acordó prorrogar la vigencia de la medida de Regulación de margen Máximo de comercialización bruto de todos los medicamentos registrados ante el Ministerio de Salud, establecidos en este decreto ejecutivo, por un plazo de seis meses, el cual comenzará a regir a partir del 18 de agosto de 2025 finalizando el 18 de febrero del año 2026.
+Durante ese período se le dará seguimiento por parte del Ministerio de Economía, Industria y Comercio (MEIC) para determinar la prórroga o finalización de la medida.)
 Dado en la Presidencia de la República a los quince días del mes de enero del año dos mil veinticinco.

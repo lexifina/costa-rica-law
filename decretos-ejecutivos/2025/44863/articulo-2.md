@@ -15,3 +15,5 @@ Artículo 2°.- Definiciones. Para la correcta aplicación de lo dispuesto en el
 (Así corrida la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 44910 del 23 de enero del 2025, que lo traspasó del antiguo inciso 6) al inciso 7))
 8. Precio de Venta Minorista: Corresponde al precio final unitario que ·se indique en la factura correspondiente al minorista (venta consumidor), incluyendo el IV A.
 (Así corrida la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 44910 del 23 de enero del 2025, que lo traspasó del antiguo inciso 7) al inciso 8))
+9 . Grupo de Interés Económico: Conjunto de dos o más personas físicas o jurídicas o una combinación de ambas, entre las cuales se den vinculaciones o relaciones de negocios, de capitales, de administración o de parentesco, que permitan a una o más de esas personas ejercer una influencia significativa en las decisiones de los demás.
+(Así adicionada la definición anterior por el artículo 3° del decreto ejecutivo N° 45140 del 7 de agosto del 2025)

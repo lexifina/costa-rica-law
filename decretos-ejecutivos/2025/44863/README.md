@@ -15,3 +15,4 @@ Regulación de margen máximo de comercialización bruto de todos los medicament
 | --- | --- | --- |
 | 1 | 2025-08-18 | la propia norma |
 | 2 | 2025-08-18 | Decreto Ejecutivo 44910 (2025-01-23) |
+| 3 | 2025-08-18 | Decreto Ejecutivo 45140 (2025-08-07) |
