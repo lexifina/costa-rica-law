@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley General de Migración y Extranjería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 2025-08-18 | Decreto Ejecutivo 45173 (2025-08-18) |

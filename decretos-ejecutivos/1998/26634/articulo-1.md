@@ -9,6 +9,7 @@ DECRETAN:
 Artículo 1º.- Modifíquese los numerales 36, 38, 48, 50, 51, 53, 66, 69, 70, del Reglamento Nº 19010-G a la Ley General de Migración y Extranjería, del 31 de mayo de 1989, cuyos textos dirán:
 "Artículo 36.- Para obtener pasaporte se debe cumplir con los siguientes requisitos:
 a)Presentar cédula de identidad vigente.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45173 del 18 de agosto de 2025, "Eliminación del requisito de presentar fotocopia de la cédula de identidad en todos los trámites y gestiones ante las entidades del Gobierno Central", se acordó derogar el requisito de presentar la copia de la cédula de identidad para realizar una gestión o un trámite ante la Administración del Gobierno Central, siempre que la gestión se realice de manera presencial. En su lugar, tal requisito se sustituye por la presentación de la cédula de identidad, de conformidad con la Ley Nº 3504.)
 b)En caso de menores de edad certificación de nacimiento.
 c)Impresión de huellas digitales, salvo los menores de diez años.
 d)Pago de los derechos correspondientes.
@@ -18,6 +19,7 @@ a) Presentar copia certificada de la autoridad judicial competente en donde cons
 b) Los requisitos exigidos en el artículo 36 anterior."
 "Artículo 48.- Revisada la documentación por el Consejo Nacional de Migración y si la misma es conforme la Dirección General otorgará la visa de ingreso en calidad provisional de residente y una vez en el país, el petente deberá aportar lo siguiente:
 a) Fotocopia de la cédula de identidad del cónyuge si fuere casado con costarricense.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45173 del 18 de agosto de 2025, "Eliminación del requisito de presentar fotocopia de la cédula de identidad en todos los trámites y gestiones ante las entidades del Gobierno Central", se acordó derogar el requisito de presentar la copia de la cédula de identidad para realizar una gestión o un trámite ante la Administración del Gobierno Central, siempre que la gestión se realice de manera presencial. En su lugar, tal requisito se sustituye por la presentación de la cédula de identidad, de conformidad con la Ley Nº 3504.)
 b) Pago de los derechos y especies fiscales exigidos por ley."
 "Artículo 50.- La solicitud para obtener la categoría de residente inversionista, deberá presentarse ante el Consejo Nacional, cumpliendo con los requisitos establecidos en los artículos precedentes."
 Artículo 51.- El monto mínimo de las inversiones será de doscientos mil dólares moneda de curso legal de los Estados Unidos de América o su equivalente en otras divisas de cambio internacional aceptadas por el Banco Central de la República de Costa Rica. No obstante los proyectos en actividades y sectores declarados prioritarios por el Poder Ejecutivo, está inversión no podrá ser menor de cincuenta mil dólares moneda de los Estados Unidos de América.
