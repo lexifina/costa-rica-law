@@ -1,2 +1,0 @@
-Artículo 28.—Asesoría Legal. La asesoría legal de la Institución estará obligada a brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la auditoría interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la LGCI
-(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 26 al 28 actual)

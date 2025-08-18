@@ -1,2 +1,0 @@
-Artículo 29.—Profesionales o técnicos de diferentes disciplinas. La auditoría interna, podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a los estudios que realice ésta.
-(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 27 al 29 actual)

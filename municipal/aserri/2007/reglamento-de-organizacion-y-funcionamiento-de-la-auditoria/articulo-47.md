@@ -1,2 +1,0 @@
-Artículo 47.—Modificaciones al Manual Descriptivo de puestos. El Auditor Interno deberá gestionar ante la administración activa las modificaciones correspondientes al Manual Descriptivo de Puestos, para que el mismo sea ajustado conforme a los lineamientos que al respeto emita la Contraloría General de la República.
-(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo articulo 45 al 47 actual)

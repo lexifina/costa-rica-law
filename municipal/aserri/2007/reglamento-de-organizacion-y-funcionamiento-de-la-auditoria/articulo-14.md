@@ -1,1 +1,0 @@
-Artículo 14.—Requisitos para el cargo de Auditor y Subauditor Interno. Para efectos de establecer los requisitos de los cargos de Auditor y Subauditor Interno el Jerarca debe acatar los lineamientos que sobre el particular ha emitido la Contraloría General de la República, de conformidad con el artículo 29 de la Ley General de Control Interno.
