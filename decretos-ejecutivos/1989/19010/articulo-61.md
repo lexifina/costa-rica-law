@@ -1,5 +1,6 @@
 Artículo 61.-Revisada la documentación por el Consejo Nacional de Migración y si la misma es conforme la Dirección General otorgará la visa de ingreso en calidad provisional de residente y una vez en el país, el petente deberá aportar lo siguiente:
 a) Fotocopia de la cédula de identidad del cónyuge si fuere casado con costarricense.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45173 del 18 de agosto de 2025, "Eliminación del requisito de presentar fotocopia de la cédula de identidad en todos los trámites y gestiones ante las entidades del Gobierno Central", se acordó derogar el requisito de presentar la copia de la cédula de identidad para realizar una gestión o un trámite ante la Administración del Gobierno Central, siempre que la gestión se realice de manera presencial. En su lugar, tal requisito se sustituye por la presentación de la cédula de identidad, de conformidad con la Ley Nº 3504.)
 b) Pago de los derechos y especies fiscales exigidos por ley.
 (Así reformado por el artículo 1° del decreto eejcutivo N° 26634 del 9 de enero de 1998)
 (Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 48 al 61)
