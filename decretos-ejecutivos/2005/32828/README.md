@@ -15,3 +15,4 @@ Creación de la Asesoría Jurídica del Ministerio de Hacienda
 | --- | --- | --- |
 | 1 | 2005-12-22 | la propia norma |
 | 2 | 2014-08-21 | Decreto Ejecutivo 38707 (2014-08-21) |
+| 3 | 2025-08-19 | Decreto Ejecutivo 45305 (2025-08-19) |
