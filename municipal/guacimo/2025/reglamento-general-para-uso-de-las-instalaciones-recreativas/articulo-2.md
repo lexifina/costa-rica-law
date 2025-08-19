@@ -1,0 +1,1 @@
+Artículo 2 -Ámbito de aplicación. El presente Reglamento tiene por objeto regular el uso de las Instalaciones Deportivas y Recreativas que son administrados por el Comité Cantonal de Deporte y Recreación de Guácimo (CCDRG).

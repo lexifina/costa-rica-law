@@ -1,0 +1,1 @@
+Artículo 23. -Inventarios. En cada Instalación Recreativa y Deportiva, el administrador o junta directiva del CCDRG realizará dos inventarios al año, un inventario exacto de los bienes adscritos a ella, con las incidencias que hubiere. Dicho inventario será presentado periódicamente a la administración del CCDRG.
