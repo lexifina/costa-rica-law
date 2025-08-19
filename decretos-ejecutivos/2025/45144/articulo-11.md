@@ -1,0 +1,2 @@
+Artículo 11 º- De la renuncia o sustitución de un miembro.
+En caso de que el sector, la institución u organización decida cambiar su representante, deberá hacerlo de manera formal, comunicándolo por escrito al Ministro (a) de Ambiente y Energía y a la Junta Directiva. Cuando se integre el nuevo representante, asumirá el puesto de su antecesor en la Junta Directiva, y por el período que le restaba de nombramiento.

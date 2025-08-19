@@ -1,0 +1,6 @@
+Artículo 19°- De las funciones del Tesorero (a).
+a) Mantener junto con la persona o personas de apoyo y seguimiento a las tareas de la Junta Directiva, una coordinación adecuada con el fiduciario y verificar todos sus informes.
+b) Coordinar con la persona o personas de apoyo y seguimiento a las tareas de la Junta Directiva la formulación de los presupuestos ordinarios y extraordinarios del Fideicomiso; así como dar seguimiento a la adecuada distribución presupuestaria de los recursos disponibles en el Fideicomiso
+c) Coordinar con la persona o personas de apoyo y seguimiento a las tareas de la Junta Directiva la revisión apropiada de los estados financieros que emite el fiduciario mensualmente.
+d) Coordinar con la persona o personas de apoyo y seguimiento a las tareas de la Junta Directiva, la verificación de los montos de dinero disponible, e informar a la Junta Directiva, las cantidades pertinentes por distribuir, de acuerdo con lo que al respecto detalla el artículo 3 de la Ley Nº 9885.
+e) Coordinar con la persona o personas de apoyo y seguimiento a las tareas de la Junta Directiva, con el presidente y con el fiduciario, la realización de los informes que requieran las diferentes instancias, incluidas las de fiscalización, señaladas en el artículo 2 de la Ley Nº 9885.

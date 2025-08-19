@@ -1,0 +1,3 @@
+Artículo 40.- Derogatorias.
+Deróguese el Decreto Ejecutivo Nº 37838-MINAE, del 27 de mayo de 2013 '"Reglamento a la Ley Nº 8133 "Reforma del inciso a) del artículo 3 de la Ley Nº 5100, y sus reformas, y Creación de la Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio··
+Deróguese el Reglamento 04-2006, publicado en la Gaceta N° 144, del miércoles 26 de julio de 2006 "Reglamento y procedimientos para el pago de propiedades por adquirir en el Parque Nacional Manuel Antonio y las Áreas Protegidas de las subregiones Aguirre Parrita y Los Santos del Área de Conservación Pacífico Central".

@@ -1,0 +1,2 @@
+Artículo 38 °- De la entrega de bienes y servicios que adquiera el Fideicomiso.
+La Junta Directiva velará porque todos los bienes y servicios que adquiera el Fideicomiso para el Parque Nacional Manuel Antonio y otras instancias establecidas en la ley, se entreguen de manera formal al SINAC, o al área, oficina u instancia de ley correspondiente, con el fin de que se registren e incorporen de la manera conecta en los inventarios, y se sometan a la normativa administrativa, financiera, de hacienda pública y de control interno, que se encuentre vigente.

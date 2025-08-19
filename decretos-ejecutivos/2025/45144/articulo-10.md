@@ -1,0 +1,2 @@
+Artículo 10º - Del periodo de nombramiento.
+A los miembros propietarios y sus suplentes se les reconocerá el período de nombramiento a partir de la fecha en que se realice la primera sesión de la Junta Directiva, en la que se efectué la juramentación y elección de los puestos a lo interno de la Junta Directiva. El periodo de ejercicio de los cargos, será el que se establece en el Artículo 4 de la Ley No. 8133.

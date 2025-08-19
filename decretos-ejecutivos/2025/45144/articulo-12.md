@@ -1,0 +1,2 @@
+Artículo 12º- De la sede de las sesiones.
+La Junta Directiva tendrá como sede administrativa la oficina del Parque Nacional Manuel Antonio, salvo que se designe otra sede, por Acuerdo de Junta Directiva. En la sede del Parque Nacional Manuel Antonio se resguardará la documentación oficial. Además, podrá realizar sus reuniones en cualquier otro lugar que la Junta Directiva determine adecuado para sesionar. Adicionalmente, la Junta Directiva podrá sesionar de manera virtual, conforme con lo que se dispone en el Capítulo IV.

@@ -1,0 +1,10 @@
+CAPÍTULO IV
+DE LAS SESIONES VIRTUALES
+Artículo 34.- De las sesiones virtuales de la Junta Directiva.
+Se entenderá por sesión virtual, aquella que se realice mediante la utilización de la tecnología de información y comunicación, asociada a la red de internet, que garantice la trasmisión simultánea de audio. video y datos (videoconferencia) y a la vez permitan la colegialidad, simultaneidad y deliberación entre los miembros de la Junta Directiva.
+Se podrá conocer en sesión virtual los temas definidos previamente y para conocer asuntos especiales que no permitan esperar la sesión ordinaria, sin que ello desmerite el carácter excepcional de este tipo de sesiones.
+Las sesiones virtuales podrán ser convocadas conforme con los supuestos previstos en el artículo 15 anterior. La convocatoria deberá realizarse para días y horas hábiles.
+La convocatoria a sesión virtual se enviará a todos los miembros de la Junta Directiva en forma simultánea al correo individual definido para tal fin, acompañado de un resumen ejecutivo sobre los asuntos que se desean someter a análisis.
+De cada sesión virtual se levantará acta según los términos del numeral 28 del presente Reglamento y lo dispuesto en los numerales 56 y 57 de la Ley General de la Administración Pública N º 6227, para lo cual se podrán utilizar como soporte los medios tecnológicos que resulten idóneos. El acta se pondrá a disposición de los miembros de la Junta Directiva, por el mismo medio telemático utilizado para la convocatoria, y se entregará en la sesión presencial inmediata siguiente para su incorporación en el libro de actas.
+En caso de que en las sesiones virtuales participen personas no miembros del órgano colegiado, previo acuerdo de sus miembros presentes, estas tendrán derecho de participar en las deliberaciones con voz, pero sin voto, de conformidad con el numeral 54 de la Ley General de la Administración Pública N º6227.
+Para lo no regulado expresamente en tema de sesiones virtuales, aplicará la regulación de las sesiones presenciales.
