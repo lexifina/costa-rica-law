@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este reglamento aplica para todas las personas aspirantes del cantón de Orotina que deseen optar por los programas de capacitación ofrecidos por el Centro de Formación y Capacitación Municipal.
