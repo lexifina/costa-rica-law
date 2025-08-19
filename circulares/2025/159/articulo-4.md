@@ -1,0 +1,1 @@
+Artículo 4. Se exceptúan de la obligación de presentar o completar la citada declaración jurada, a los funcionarios del Organismo de Investigación Judicial, que en el ejercicio de sus funciones tengan a cargo el traslado de personas privadas de libertad, de acuerdo a los procedimientos de entrega o recepción de personas privadas de libertad.
