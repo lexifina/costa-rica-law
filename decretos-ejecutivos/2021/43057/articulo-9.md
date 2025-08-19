@@ -1,9 +1,10 @@
-Artículo 9. El Departamento de Proveeduría Institucional está conformado por las siguientes Unidades:
-1. Unidad de Programación y Control
-2. Unidad de Licitaciones
-3. Unidad de Escasa Cuantía
+(*)Artículo 9. El Departamento de Proveeduría Institucional está conformado por las siguientes Unidades:
+1. Unidad de Programación y Control.
+2. Unidad de Licitaciones Mayores y Menores
+3. Unidad de Licitaciones Reducidas
 4. Unidad de Almacenamiento y Distribución
 5. Unidad de Administración de Bienes
+(*) (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
 La Unidad de Programación y Control tiene las siguientes funciones:
 1. Consolidar, modificar y publicar el plan anual de compras del Ministerio
 2. Planificar y programar las contrataciones de interés del Ministerio, estableciendo con precisión las condiciones generales, las especificaciones técnicas y las normas de calidad correspondientes.
@@ -17,53 +18,56 @@ La Unidad de Programación y Control tiene las siguientes funciones:
 10. Custodiar el archivo pasivo de las contrataciones para la actualización del expediente hasta su cierre.
 11. Realizar el estudio y el informe para que se inicie el procedimiento de cobro por concepto de cláusula penal y multas por los incumplimientos contractuales.
 12. Otras actividades propias de la gestión.
-La Unidad de Licitaciones tiene las siguientes funciones:
-1. Programar, dirigir y tramitar los procedimientos de contratación administrativa relacionados con las licitaciones que por su complejidad requieran de un cartel más elaborado.
-2. Efectuar los procedimientos de contratación administrativa por medio de los sistemas autorizados para tal efecto.
-3. Elaborar carteles para las licitaciones en coordinación con los funcionarios técnicos de las Dependencias.
+(*)La Unidad de Licitaciones Mayores y Menores tiene las siguientes funciones:
+1. Programar, dirigir y tramitar los procedimientos de contratación pública relacionados con las licitaciones mayores y licitaciones menores que por su complejidad requieran de un cartel más elaborado.
+2. Efectuar los procedimientos de contratación pública por medio del sistema digital unificado autorizado para tal efecto.
+3. Elaborar carteles para las licitaciones mayores y licitaciones menores en coordinación con los funcionarios técnicos de las Dependencias.
 4. Realizar el análisis integral de ofertas y presentarlo a la Comisión de Adjudicaciones.
-5. Preparar para la firma de la Dirección, cuando proceda, las resoluciones de adjudicación
+5. Preparar para la aprobación de la Dirección, cuando proceda, los actos de adjudicación.
 6. Emitir las órdenes de compra o pedido una vez que el acto de adjudicación quede en firme.
 7. Atender las solicitudes realizadas por los usuarios internos y externos, relacionadas con los procesos de contratación.
-8. Brindar asesoría a los funcionarios del Ministerio, en materia de contratación administrativa mediante la aplicación de la normativa vigente, con el objetivo de responder en forma oportuna y satisfactoria a los requerimientos, y propiciar una adecuada gestión de los funcionarios, coadyuvando al desarrollo de las actividades encomendadas a las diferentes Dependencias.
-9. Analizar la documentación y emitir resoluciones de adjudicaciones de las contrataciones por materia excepcionada y modificaciones contractuales.
-10. Otras actividades propias de la gestión.
-La Unidad de Escasa Cuantía tiene las siguientes funciones:
-1. Programar, dirigir y tramitar los procedimientos de contratación administrativa de escasa cuantía.
-2. Efectuar los procedimientos de contratación administrativa por medio de los sistemas autorizados para tal efecto.
-3. Elaborar carteles para las contrataciones de escasa cuantía en coordinación con los funcionarios técnicos de las Dependencias.
-4. Realizar el análisis integral de ofertas y emitir las resoluciones de adjudicación correspondientes para la firma del (la) Proveedor (a) Institucional.
+8. Brindar asesoría a los funcionarios del Ministerio en materia de contratación pública, con el objetivo de responder en forma oportuna y satisfactoria a los requerimientos, y propiciar una adecuada gestión de los funcionarios, coadyuvando al desarrollo de las actividades encomendadas a las diferentes Dependencias.
+9. Analizar la documentación y emitir recomendaciones y actos de adjudicación de los procedimientos extraordinarios, especiales y de excepción, así como modificaciones contractuales.
+10. Ejecutar otras funciones que le asigne su superior jerárquico, siempre que estén relacionadas con la gestión administrativa y operativa de la Unidad, las cuales deberán ser previamente comunicadas mediante oficio.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
+(*)La Unidad de Licitaciones Reducidas tiene las siguientes funciones:
+1. Programar, dirigir y tramitar los procedimientos de contratación pública de licitaciones reducidas.
+2. Efectuar los procedimientos de licitaciones reducidas por medio del sistema digital unificado autorizado para tal efecto.
+3. Elaborar carteles para las licitaciones reducidas en coordinación con los funcionarios técnicos de las Dependencias.
+4. Realizar el análisis integral de ofertas y emitir las recomendaciones y actos de adjudicación correspondientes para la firma del (la) Proveedor (a) Institucional.
 5. Emitir las órdenes de compra o pedido una vez que el acto de adjudicación ha quedado en firme.
-6. Atender, las solicitudes realizadas por los usuarios internos y externos, relacionadas con los procesos de contratación.
-7. Brindar asesoría a los funcionarios del Ministerio, mediante la aplicación de la normativa vigente en materia de contratación administrativa, con el objetivo de responder en forma oportuna y satisfactoria a los requerimientos, y propiciar una adecuada gestión de los funcionarios, coadyuvando al desarrollo de las actividades encomendadas a las diferentes dependencias que integran el Sistema.
-8. Analizar la documentación y emitir resoluciones de adjudicaciones de las contrataciones por materia excepcionada de menor complejidad.
-9. Otras actividades propias de la gestión.
-La Unidad de Almacenamiento y Distribución tiene las siguientes funciones:
-1. Recibir y verificar las especificaciones técnicas de los bienes adjudicados en los procesos de contratación administrativa, contra los documentos respectivos.
-2. Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiada y bajo un adecuado sistema de control e inventario, los bienes adquiridos por el Ministerio a través de los diferentes procedimientos de contratación administrativa.
-3. Distribuir, con arreglo a un sistema de control eficiente, los bienes señalados en el párrafo anterior.
-4. Elaborar un inventario mínimo una vez al año de los suministros y bienes que tienen en custodia en el Almacén.
-5. Realizar estudios especiales en cuanto al almacenamiento de bienes para conocer las mejores prácticas a nivel mundial, en procura de conservar el inventario en óptimas condiciones.
-6. Llevar un registro de los movimientos de salidas de los bienes y suministros por Programas, a efectos de conocer la rotación real de inventarios.
-7. Las demás funciones que le asignen sus superiores jerárquicos o el ordenamiento jurídico.
-La Unidad de Administración de Bienes tiene las siguientes funciones:
-1. Llevar el control de todos los bienes patrimoniales del Ministerio de Hacienda.
-2. Administrar el sistema de información que corresponda, registrando, actualizando y dando de baja a los bienes.
-3. Elaborar un inventario permanente de todos los bienes propiedad del Ministerio y dar seguimiento a dicho Inventario manteniéndolo actualizado, conforme a los criterios técnicos establecidos al efecto del cual deberá mantener informado a la Dirección General de Administración de Bienes y Contratación Administrativa.
-4. Elaborar informes periódicos del inventario de bienes del Ministerio respectivo para su remisión a la Dirección General de Administración de Bienes y Contratación Administrativa.
-5. Realizar las conciliaciones entre los sistemas de información que correspondan, autorizados por los entes rectores.
-6. Realizar avalúos de bienes en desuso, cuando así lo requiera el Ministerio.
-7. Integrar la Comisión de Recomendación de Donaciones.
-8. Buscar y seleccionar instituciones aptas de recibir donaciones de bienes que el Ministerio disponga para este fin.
-9. Desechar los bienes en mal estado, empleando las mejores prácticas ambientales para minimizar cualquier efecto negativo ambiental, atendiendo los lineamientos emitidos por la Dirección General de Administración de Bienes y Contratación Administrativa.
-10. Custodiar la bodega que se tiene en el Ministerio para los bienes en desuso hasta que se realice todo el proceso de baja correspondiente.
-11. Las demás funciones que le asignen sus superiores jerárquicos o el ordenamiento jurídico.
-Se detallan además, las siguientes funciones a cargo de la jefatura del Departamento, para cuyo cumplimiento se contará con el personal idóneo:
+6. Atender las solicitudes realizadas por los usuarios internos y externos, relacionadas con los procesos de licitaciones reducidas.
+7. Brindar asesoría a los funcionarios del Ministerio en materia de contratación pública, con el objetivo de responder en forma oportuna y satisfactoria a los requerimientos, y propiciar una adecuada gestión de los funcionarios, coadyuvando al desarrollo de las actividades encomendadas a las diferentes dependencias que integran el Sistema.
+8. Ejecutar otras funciones que le asigne su superior jerárquico, siempre que estén relacionadas con la gestión administrativa y operativa de la Unidad, las cuales deberán ser previamente comunicadas mediante oficio.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
+(*)La Unidad de Almacenamiento y Distribución tiene las siguientes funciones:
+1. Recibir y verificar especificaciones técnicas de bienes adjudicados.
+2. Registrar, almacenar y custodiar los bienes y suministros adquiridos con control e inventario adecuado.
+3. Tramitar y aprobar requisiciones de suministros y bienes.
+4. Elaborar inventarios anuales de suministros y bienes en custodia.
+5. Realizar estudios sobre mejores prácticas de almacenamiento.
+6. Participar en la gestión de suministros (utilización, traslado, destrucción, donación).
+7. Ejecutar otras funciones que le asigne su superior jerárquico, siempre que estén relacionadas con la gestión administrativa y operativa de la Unidad las cuales deberán ser previamente comunicadas mediante oficio.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
+(*)La Unidad de Administración de Bienes tiene las siguientes funciones:
+1. Controlar y registrar bienes del Ministerio.
+2. Administrar el sistema de información de bienes.
+3. Mantener inventarios actualizados.
+4. Realizar inventarios físicos anuales.
+5. Coordinar el proceso de donación de bienes, según corresponda.
+6. Emitir, custodiar y gestionar bajas de bienes en desuso.
+7. Desechar bienes en mal estado de manera ambientalmente responsable.
+8. Elaborar informes periódicos.
+9. Realizar las conciliaciones entre los sistemas de información que correspondan, autorizados por los entes rectores.
+10. Ejecutar otras funciones que le asigne su superior jerárquico, siempre que estén relacionadas con la gestión administrativa y operativa de la Unidad, las cuales deberán ser previamente comunicadas mediante oficio.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
+Se detallan, además, las siguientes funciones a cargo de la jefatura del Departamento, para cuyo cumplimiento se contará con el personal idóneo:
 1. Participar activamente en reuniones con las demás Direcciones del Ministerio, para asesorar en materia de contratación administrativa.
-2. Participar en las Comisiones de Recomendación de Adjudicación con voz y voto.
+2. Participar como miembro integrante y presidiendo la Comisión de Recomendación de Adjudicación con voz y voto, junto con un abogado/a de la Proveeduría Institucional o de la Asesoría Jurídica de la Oficialía Mayor y Dirección Administrativa y Financiera y un representante del Programa o Subprograma solicitante de la contratación, designado por el/la director/a,· comisión que tendrá competencia exclusiva para analizar y recomendar los actos finales de las contrataciones públicas que sean sometidas a su conocimiento, debiendo sujetarse a lo normado en la Ley General de la Administración Pública respecto de los órganos colegiados.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
 3. Resolver los recursos de objeción al cartel y de revocatoria de las resoluciones de adjudicación.
-4. Dictar, en las contrataciones directas de materia excepcionada la resolución de adjudicación.
-5. Tramitar y preparar para firma del (la) Ministro (a), o en quien éste (a) delegue, el procedimiento de rescisión y resolución de contratos.
+4. Dictar, el acto final en los procedimientos de licitación reducida, así como en los procedimientos especiales y de excepción que correspondan, promovidos por el Ministerio y que no sean sometidos por la Proveeduría Institucional a consideración de la Comisión de Recomendación de Adjudicaciones. 5. Tramitar y preparar para firma del (la) Ministro (a), o en quien éste (a) delegue, el procedimiento de rescisión y resolución de contratos.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45305 del 19 de agosto del 2025)
 6. Realizar el procedimiento administrativo para imponer a los Contratistas, las sanciones que se deriven del incumplimiento contractual. De imponerse una sanción, deberá comunicarlo al Registro de Proveedores de la Dirección General de Administración de Bienes y Contratación Administrativa, previa observancia del debido proceso.
 7. Realizar los procedimientos para la ejecución de las garantías.
 8. Realizar el procedimiento correspondiente para el cobro de cláusulas penales, multas y daños y perjuicios que ocasionen los contratistas.
