@@ -1,0 +1,11 @@
+ARTÍCULO 7.- DE LAS FUNCIONES DE FONAFIFO: En el marco de la ejecución del FPSEMC. el Fondo Nacional de Financiamiento Forestal será la organización que colaborará con el Ministerio de Ambiente y Energía mediante las siguientes acciones:
+1- Brindar colaboración general con el Ministerio de Ambiente y Energía, el Sistema Nacional de Áreas de Conservación el Instituto Costarricense de Pesca y Acuicultura y la Fundación Banco Ambiental. en la ejecución de los programas de pago por servicios ecosistémicos marinos costeros. Para esto el Fondo se fortalecerá para el cumplimiento de la Ley Nº 10507 con las capacidades de personal, equipamiento y apoyo en general requeridas para la ejecución y operación del Fondo Nacional para el Pago de Servicios Ecosistémicos Marino Costeros.
+2- Constituirse en el órgano público encargado del Fondo de Pago por Servicios Ecosistémicos Marino Costeros. Esta labor se realizará con la colaboración del Fideicomiso 544- FONAFIFO-BNCR. suscrito entre el Banco Nacional- Fondo Nacional de Financiamiento Forestal.
+3- Administrar recursos financieros del presupuesto nacional que se dediquen a este fin, de proyectos específicos. y de fondos facilitados por Fundación Banco Ambiental.
+4- Realizar los pagos a las personas u organizaciones beneficiarias de los diferentes mecanismos establecidos.
+5- Financiar y transferir recursos a la Fundación Banco Ambiental, al Instituto Costarricense de Pesca y Acuicultura, al Sistema Nacional de Áreas de Conservación, para que complementen actividades, acciones concretas específicas necesarias para contribuir a los objetivos previstos por la ley. Para cumplir con esta función, deberán existir las justificaciones y la cuantificación de los costos.
+6- Aportar, recibir y facilitar los recursos humanos necesarios para la operatividad de los proyectos y logística para el Fondo, según los procesos de planificación establecidos por el MINAE.
+7- Supervisar, controlar y tomar las acciones relacionadas con los proyectos que se ejecutan del Fondo de Pago por Servicios Ecosistémicos Marino Costeros.
+8- Brindar informes técnicos y financieros al MINA.E.
+9- Coordinar gestión con otros órganos y entes públicos.
+10- Todos los que sean necesarios y derivados para el cumplimiento de las funciones encomendadas para la operación del Fondo

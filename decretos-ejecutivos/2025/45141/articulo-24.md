@@ -1,0 +1,1 @@
+ARTÍCULO 24.- SOBRE EL TRABAJO SOCIAL: El Ministerio de Ambiente y Energía, y los órganos y entidades colaboradoras. podrán establecer y desarrollar proyectos donde las comunidades colaboren en beneficio del ecosistema marino costero. Para tal fin deberá establecerse un proyecto concreto.

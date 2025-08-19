@@ -1,0 +1,4 @@
+ARTÍCULO 20.- DE LOS CONTRA TOS: Cualquier mecanismo de Pago por Servicios Ecosistémicos Marino Costeros, debe ser formalizado mediante un contrato, el cual será suscrito por el FONAFIFO, como entidad encargada según este reglamento y los convenios correspondí entes.
+En estos contratos se establecerán los derechos y las obligaciones tanto del MINAE corno de los beneficiarios.
+Es requisito indispensable que las organizaciones o personas beneficiarias de este mecanismo de Pago por Servicios Ecosistémicos se encuentren al día con sus obligaciones con la Caja Costarricense de Seguro Social. FODESAF y el Ministerio de Hacienda. lo cual será verificado por el FONAFIFO. tanto al momento de suscribir el respectivo contrato. como de previo a que se realice cada uno de los pagos de estos contratos.
+El FONAFIFO deberá mantener los expedientes que respalden los contratos y los desembolsos. así como cualquier gestión realizada.

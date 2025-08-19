@@ -1,0 +1,1 @@
+Transitorio II: La primera consulta realizada a los entes técnicos y organizaciones prevista en el artículo 3 de la Ley Nº 10507, se realizará 18 meses después de la publicación de este reglamento en el Diario Oficial La Gaceta.

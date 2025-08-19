@@ -1,0 +1,2 @@
+ARTÍCULO 12.- DE LA EJECUCIÓN PRESUPUESTARIA: En enero de cada año, el Fondo Nacional de Financiamiento Forestal y el Fideicomiso 544-FONAFIFO-BNCR, elaborarán el informe de ejecución presupuestaria, que incluirá el detalle de los recursos asociados a este programa, del correspondiente año inmediato anterior.
+Se faculta a las órganos y entidades suscriptores de los convenios establecidos en la Ley Nº 10507 y este reglamento, para que compartan gastos, bienes como vehículos, viáticos, combustibles y otros necesarios para la ejecución de acciones necesarias y relacionadas.

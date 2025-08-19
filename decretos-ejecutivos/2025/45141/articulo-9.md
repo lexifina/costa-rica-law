@@ -1,0 +1,1 @@
+ARTÍCULO 9.- SOBRE EL MANEJO DE LOS RECURSOS DEL FONDO: La administración y ejecución de los recursos del Fondo de Pago por Servicios Ecosistémicos Marino Costeros. se realizará mediante el Fideicomiso 544- Banco Nacional - Fondo Nacional de Financiamiento Forestal. salvo las excepciones previstas en la Ley Nº l 0507 y este reglamento.

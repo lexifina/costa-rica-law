@@ -1,0 +1,1 @@
+ARTÍCULO 11.- DE LOS COSTOS DE CADA MECANISMO: Cuando existan los recursos financieros, el Fondo de Pago por Servicios Ecosistémicos Marino Costeros, podrá reconocer de forma parcial o totalmente los pagos y beneficios que implican los programas y las actividades a reconocer por el Fondo Nacional de Financiamiento Forestal.

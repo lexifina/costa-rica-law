@@ -1,0 +1,1 @@
+ARTÍCULO 13.-DEL PERSONAL Y LOS COLABORADORES: FONAFIFO y FUNBAM. a través de su personal. brindarán apoyo administrativo para la ejecución del Pago por Servicios Ecosistémicos Marino Costeros, sin perjuicio que personal de INCOPESCA y SINAC puedan participar en actividades de seguimiento y monitoreo.

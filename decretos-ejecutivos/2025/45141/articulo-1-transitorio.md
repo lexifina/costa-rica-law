@@ -1,0 +1,1 @@
+Transitorio I: Conforme a lo indicado en el considerando 14 del presente reglamento, el proyecto piloto, autorizado por el Ministerio de Ambiente y Energía mediante Resolución R- 503-2024-MINAE de las 17 horas del 8 de noviembre de 2024, continuará su ejecución por un plazo de 18 meses a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta.
