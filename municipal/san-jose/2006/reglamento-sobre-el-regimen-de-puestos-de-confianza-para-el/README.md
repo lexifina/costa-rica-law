@@ -19,3 +19,4 @@ Reglamento sobre el Régimen de Puestos de Confianza para el Concejo Municipal d
 | 4 | 2016-04-12 | Reglamento municipal 311 (2016-04-12) |
 | 5 | 2019-11-26 | Reglamento municipal 187 (2019-11-26) |
 | 6 | 2020-04-28 | Reglamento municipal 209 (2020-04-28) |
+| 7 | 2025-08-19 | Reglamento municipal 68 (2025-08-19) |
