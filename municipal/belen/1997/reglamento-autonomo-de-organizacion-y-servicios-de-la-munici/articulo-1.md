@@ -12,4 +12,5 @@ V. Que el Concejo Municipal de la Municipalidad de Belén, Heredia, en sesión o
 Estatuto Autónomo de Organización y Servicios de la Municipalidad de Belén
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1. Ámbito de aplicación: Se establece el presente Reglamento, para normar las relaciones de servicio y laborales entre la Municipalidad de Belén, sus funcionarios (as) y trabajadores (as), en todos aquellos aspectos de orden interno no previstos por el Código Municipal, Ley General de la Administración Pública, Código de Trabajo y demás leyes supletorias o conexas.
+Artículo 1.Ámbito de aplicación: Se establece el presente Reglamento, para normar las relaciones de servicio y laborales entre la Municipalidad de Belén, sus funcionarios (as) y trabajadores (as), en todos aquellos aspectos de orden interno no previstos por el Código Municipal, Ley General de la Administración Pública, Código de Trabajo, Ley Marco de Empleo Público y demás leyes supletorias o conexas.
+(Así reformado en sesión N° 48 del 19 de agosto de 2025)

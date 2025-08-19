@@ -1,3 +1,4 @@
-Artículo 67. Normativa supletoria: En defecto de las disposiciones propias de este Reglamento, deberán tenerse como supletorias el Código Municipal, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y, la Ley General de la Administración Pública, así como demás disposiciones normativas conexas en la materia Transitorio único: El Personal Municipal de pago semanal contará con un plazo de seis meses para ajustarse a la modalidad bisemanal de pago.
+Artículo 67.-Normativa supletoria: En defecto de las disposiciones propias de este Reglamento, deberán tenerse como supletorias la Ley Marco de Empleo Público, el Código Municipal, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y, la Ley General de la Administración Pública, así como demás disposiciones normativas conexas en la materia.
+(Así reformado en sesión N° 48 del 19 de agosto de 2025)
 SE ACUERDA: No habiendo conocido objeciones a la Reforma al Reglamento Autónomo de Servicio de la Municipalidad de Belén, queda el mismo definitivamente aprobado y entra en vigencia a partir de la presente publicación.
 San Antonio de Belén, Heredia. 04 de Setiembre del 2019.

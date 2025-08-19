@@ -12,7 +12,8 @@ i. Someterse a reconocimiento médico, sea al solicitar su ingreso al trabajo o 
 j. Observar rigurosamente las medidas preventivas que dicten las autoridades competentes y las que indique la Administración y el Comité de Salud Ocupacional para la seguridad y protección del personal en los lugares donde laboran.
 k. Responder económicamente de los daños que causaren intencionalmente o que se debieren a su negligencia o descuido manifiesto y absolutamente inexcusable.
 l. Reportar al alcalde o al superior inmediato los daños o imprudencias que el personal causare en perjuicio de la Municipalidad. Si descubren un robo, daño o imprudencia realizado por cualquier persona, deben denunciarlo de inmediato.
-m. Con salvedad de los funcionarios administrativos, los demás funcionarios deben vestir durante las horas de trabajo de la forma correcta y decente, para tal fin será obligatorio del uso del uniforme que suministrará la Administración Municipal.
+m. Los funcionarios deben vestir durante las horas de trabajo de la forma correcta y decente, para tal fin será obligatorio del uso del uniforme que suministrará la Administración Municipal.
+(Así reformado el inciso anterior en sesión N° 48 del 19 de agosto de 2025)
 n. Comenzar las labores de conformidad con el horario establecido, no pudiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido la jornada de trabajo.
 o. Obtener autorización del superior jerárquico para salir del centro de trabajo y reportar con exactitud el lugar donde se encuentra.
 p. Presentar al superior inmediato constancia escrita del tiempo empleado en sus visitas a instituciones aseguradoras.

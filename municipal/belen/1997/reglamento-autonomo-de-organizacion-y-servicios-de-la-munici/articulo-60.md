@@ -1,1 +1,2 @@
-Artículo 60. Compatibilidad con otros pluses salariales: El concepto de “disponibilidad” no es excluyente de otros sobresueldos como la Dedicación Exclusiva, Carrera Profesional, etc., por lo que el funcionario en calidad de disponible puede recibir pago por disponibilidad siempre y cuando el ordenamiento legal vigente se lo permita.
+Artículo 60.-Compatibilidad con otros pluses salariales: Para las personas que perciben salario compuesto el concepto de "disponibilidad" no es excluyente de otros sobresueldos como la Dedicación Exclusiva, Carrera Profesional, etc., por lo que el funcionario en calidad de disponible puede recibir pago por disponibilidad siempre y cuando el ordenamiento legal vigente se lo permita.
+(Así reformado en sesión N° 48 del 19 de agosto de 2025)

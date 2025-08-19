@@ -19,3 +19,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Belén,
 | 4 | 2018-06-19 | Reglamento municipal 37 (2018-06-19) |
 | 5 | 2019-08-27 | Reglamento municipal 50 (2019-08-27) |
 | 6 | 2024-09-17 | Reglamento municipal 56 (2024-09-17) |
+| 7 | 2025-08-19 | Reglamento municipal 48 (2025-08-19) |
