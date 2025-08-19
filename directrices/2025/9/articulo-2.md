@@ -1,0 +1,6 @@
+Artículo 2°-Se instruye la aplicación del Salario Global, que se establece mediante la presente Directriz, para que a las clases de puestos correspondientes a Oficial Asistente Legal y Oficial Psicología de la Dirección de Inteligencia y Seguridad Nacional (DIS), del Ministerio de la Presidencia, pertenecientes a la familia contemplada en el inciso c) del artículo 13 de la Ley Marco de Empleo Público, conformada por las "Personas servidoras públicas que se desempeñan en funciones policiales", en estricto apego a las disposiciones contenidas en la Ley Marco de Empleo Público y los artículo 36 y 37 de su Reglamento, Decreto Ejecutivo 43952-PLAN de 28 de febrero de 2023; cuyas remuneraciones salariales globales son las siguientes:
+Clase de puesto | Salario Global (colones) | Salario Global en puestos con Disponibilidad (colones)
+Oficial de Psicología | 1.566.481 | 1.648.687
+Oficial Asistente Legal | 1.566.481 | 1.648.687
+Clase de puesto | Salario Global en puestos afectos a Prohibición y disposición de pago correspondiente (colones) | Salario Global en puestos con Disponibilidad y simultáneamente afectos a Prohibición y disposición de pago Correspondiente (colones)
+Oficial Asistente Legal | 1.840.501 | 1.922.707
