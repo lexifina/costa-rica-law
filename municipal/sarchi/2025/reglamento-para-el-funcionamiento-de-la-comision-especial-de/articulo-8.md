@@ -1,0 +1,1 @@
+Artículo 8. La Comisión Especial podrá contar con un número no mayor de cuatro asesores, nombrados por el Presidente del Concejo Municipal. Estas podrán ser sugeridas por la Administración Municipal o por la misma Comisión

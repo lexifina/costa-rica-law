@@ -1,0 +1,2 @@
+Artículo 10. Las sesiones ordinarias y extraordinarias de la Comisión se llevarán a cabo en la sede de la Municipalidad de Sarchí. Mediante acuerdo tomado por mayoría simple se determinará la hora y el día de las sesiones ordinarias, lo cual será comunicado oportunamente al Concejo Municipal.
+Bajo solicitud del Coordinador o de la mayoría simple de la Comisión, se podrá convocar a las sesiones extraordinarias como mínimo 24 horas de anticipación, cuando el tema a tratar lo requiera.
