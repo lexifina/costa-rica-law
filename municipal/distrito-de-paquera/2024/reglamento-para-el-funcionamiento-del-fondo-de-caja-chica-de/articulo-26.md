@@ -1,0 +1,2 @@
+Artículo 26
+Las compras a través de Caja Chica, deberán quedar debidamente registradas en el sistema informático, dejando constancia de la totalidad de la documentación generada en relación con la compra realizada, facilitando que dicha actuación pueda ser conocida por cualquier interesado; asimismo, éstas se realizarán respetando toda regulación institucional y general vigente al momento de efectuarse la compra.

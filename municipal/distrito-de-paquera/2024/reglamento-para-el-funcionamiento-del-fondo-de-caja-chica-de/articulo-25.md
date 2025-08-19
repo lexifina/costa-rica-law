@@ -1,0 +1,2 @@
+Artículo 25
+Los documentos de respaldo de operaciones de caja chica, así como los arqueos sorpresivos que se hayan practicado, deberán mantenerse en el Departamento de Tesorería por al menos un año y a disposición de la Auditoría Interna para posibles revisiones, sin detrimento de las regulaciones establecidas en la Ley y el Reglamento General de Archivo y las directrices que sobre esta materia hayan girado otros órganos de fiscalización y control.

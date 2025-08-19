@@ -1,0 +1,2 @@
+Artículo 11
+Este Reglamento y los funcionarios que involucra quedan sujetos a las disposiciones dadas por la Ley de Administración Financiera de la República, Ley Orgánica de Contraloría General de República, Ley General de la Administración Pública, Ley General de Contratación Pública, en el Reglamento de Gastos de Viaje para funcionarios del Estado, Código Municipal, y cualquiera otra normativa conexa con la materia.

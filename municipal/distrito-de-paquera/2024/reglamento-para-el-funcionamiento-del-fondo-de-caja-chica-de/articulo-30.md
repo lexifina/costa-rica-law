@@ -1,0 +1,2 @@
+Artículo 30
+Cuando la Tesorería Institucional sea sustituido por otra persona que ocupe temporalmente ese cargo, por vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo, se realizará el arqueo del cual dejará constancia escrita, con la firma del responsable de caja chica y de la persona que lo sustituirá. Igual procedimiento se utilizará cuando el titular de la Tesorería Institucional se reintegre a su puesto.
