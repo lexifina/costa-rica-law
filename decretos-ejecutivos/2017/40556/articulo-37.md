@@ -82,7 +82,7 @@ Viruela3 y 5 | B03.X
 4: Requiere investigación con un equipo conformado entre otros, por un responsable de epidemiología y por Trabajo Social.
 5: Sujeto a notificación vía RSI.
 (*) Grupo B:
-Comprende los eventos cuya notificación es en boleta individual; pero periodicidad de reporte semanal. El estudio de campo y su respectivo reporte, el cual incluye la ficha de investigación, deben realizarse en un periodo máximo de una semana, posterior a la detección.
+Comprende los eventos cuya notificación es en boleta individual; pero periodicidad de reporte semanal. El estudio de campo y su respectivo rep01ie, el cual incluye la ficha de investigación, deben realizarse en un periodo máximo de una semana, posterior a la detección.
 Eventos de Notificación obligatoria del Grupo B
 Evento | Código de la CIE10
 Accidentes laborales2 | Y96.X
@@ -97,39 +97,81 @@ Trastorno generalizado del desarrollo no especificado | F84.9
 Otros trastornos del desarrollo psicológico | F88.X
 Trastorno del desarrollo psicológico, no especificado | F89.X
 Brucelosis | A23.0-A23.9
-Desnutrición proteico-calórica no especificado 4 | E46.X
+Desnutrición proteico calórica no especificado4 | E46.X
 Kwashiorkor | E40.X
 Marasmo nutricional | E41.X
 Kwashiorkor marasmático | E42.X
-Desnutrición proteico-calórica severa no especificada | E43.X
-Retardo en el desarrollo debido a desnutrición proteico-calórica severa5 | E45.X
-Riesgo nutricional en adulto>a 65 años. | Asignado según
-Morbilidad extremadamente grave | Asignado según
-A continuación, se destacan las patológicas y sus códigos que se consideran como MMEG, que debe ser reportar:
-Hemorragia primera mitad embarazo
-Aborto (CIE-10: O031, O041, O051, O056, O061, O066, O071, O076, O081)
-Embarazo ectópico (CIE-10:O05, O081)
-Enfermedad del Trofoblasto (CIE-10:O01, O01.0, O01.1, O01.9)
-Hemorragia segunda mitad embarazo
-Desprendimiento prematuro de placenta normoincerta (045DPPNI (CIE- 10:O045.9)
-Placenta previa (CIE-10:O044)
-Acretismo placentario (CIE-10:O43.2)
-Rotura uterina (CIE-10:O71.0, O71.1)
-Hemorragia postparto (CIE-10:O72)
-Desórdenes hipertensivos
-Hipertensión (CIE-10:O13, O10)
-Hipertensión crónica (CIE-10:O11)
-HELLP (CIE-10:O14.2)
-Pre-eclampsia grave (CIE-10:O14.1)
-Eclampsia (CIE-10:O15)
-Complicaciones relacionadas al Parto
-Parto obstruido (CIE-10:O64, O65, O66)
-Embolia de líquido amniótico (CIE-10:O88.1)
-Accidentes anestésicos (CIE-10:O74)
-Sepsis (CIE-10:O85)
-Trabajo de parto prolongado (CIE-10:O63.0, O63.1)
-Complicaciones de la diabetes gestacional (CIE-10:O24.4)
-(*)(Así reformado el apartado b) anterior por el artículo 46 del Reglamento sobre el Sistema Nacional de Evaluación y análisis de la mortalidad materna infantil, aprobado mediante decreto ejecutivo N° 44892 del 27 de enero del 2025)
+Desnutrición proteico calórica severa no especificada | E43.X
+Retardo en el desarrollo debido a desnutrición proteico calórica severa5 | E45.X
+Riesgo nutricional en adulto > a 65 años. | Asignado según
+| SINAVISA
+Diabetes Mellitus tipo I (insulino dependiente)2 | E10.0 – E10.9
+Diabetes Mellitus tipo II (no insulino dependiente)2 | E11.0 – E11.9
+Diabetes Mellitus no especificada2 | E14.0 – E14.9
+Demencia en la enfermedad Alzheimer | G30.0 – G30.9
+Demencia Vascular | F01.0 – F01.9
+Demencia en otras enfermedades clasificadas en otra parte9 | F02.0 – F02.4, F03X
+Depresión Distimia | F32.0- F33.9
+F34.1
+Embarazo de Alto Riesgo | Z35.0 - Z35.9
+Enfermedad de Chagas | B57.0 – B57.5
+Enfermedad diarreica por Rotavirus | A08.0
+Enfermedades laborales2 | Use clasificación vigente de enfermedades profesionales de la OIT*
+Enfermedad renal crónica | N18.1 –N18.5
+Esquizofrenia3 | F 20.0 – F20.9
+Explotación sexual comercial (ESC) Use código adicional (Y07.8-Y07.9) para identificar causa secundaria. | Asignado según SINAVISA
+Hepatitis aguda tipo A | B15.0 – B15.9
+Hepatitis aguda tipo B | B16.0 – B16.9
+Infección aguda por agente delta en el portador de hepatitis B | B17.0
+Hepatitis aguda tipo C | B17.1
+Hepatitis aguda tipo E | B17.2
+Otras hepatitis virales agudas especificadas | B17.8
+Hepatitis viral aguda no especificada | B17.9
+Hepatitis viral tipo B crónica con agente delta | B18.0
+Hepatitis viral tipo B crónica sin agente delta | B18.1
+Hepatitis viral tipo C crónica | B18.2
+Otras hepatitis virales crónicas | B18.8
+Hepatitis viral crónica sin especificar | B18.9
+Hipertensión arterial2 | I10.X
+Ictus2 | G45.0 – G45.9
+Infecciones asociadas a atención en salud6,8 En caso de que no se localice el agente use código secundario para localizar sitio de la infección Infecciones de vías respiratorias altas J00.X-J01.9, J06.0-J06.9 Infecciones de vías respiratorias bajas. J12-J18, J20, J86.9, J98.5 Infecciones tracto gastrointestinal (Diarreas) A01.0-A09.9 Infecciones de vías urinarias N39.0 Absceso epidural o subdural H65.0, H66.0 | Y95.X causa primaria Use código secundario para indicar agente infeccioso
+Meningitis G00.0-G03.9 Infecciones de tejidos blandos. L04.0-L04.9, L08.0-L08.9, Bacteriemias A49.9 Endometritis N71.0 Infección por quemaduras T20.0-T32.9 Infección de heridas quirúrgicas |
+Infección gonocócica2 | A54.0 – A54.9
+Infección anogenital debida a virus del herpes2 | A60.0 – A60.9
+Infecciones por virus de papiloma humano2 | B97.7
+Leishmaniasis visceral | B55.0
+Leishmaniasis cutánea | B55.1
+Leishmaniasis mucocutánea | B55.2
+Leishmaniasis no especificada | B55.9
+Lepra o Enfermedad de Hansen | A30.0 – A30.9
+Leptospirosis | A27.0 – A27.9
+Obesidad | E66.0 – E66.9
+Otros tétanos | A35.X
+Parotiditis infecciosa | B26.0 – B26.9
+Quemaduras2 | T20.0 – T30-7
+Rickettsiosis incluye erlichiosis | A75.o, A75.2, A77.0, A79.8
+Resistencia a antibióticos betalactámicos Use código adicional (B95-B98), si desea identificar a los agentes resistentes a tratamiento con antibióticos betalactámicos. Resistencia a penicilina (U82.0) • amoxicilina • ampicilina Resistencia a meticilina (U82.1) • cloxacilina • oxacilina Resistencia a betalactamasa de espectro extendido (BLEE) (U82.2) Resistencia a otros antibióticos betalactámicos (U82.8) Resistencia a antibióticos betalactámicos, no especificados Resistencia a otros antibióticos (U83) Use código adicional (B95-B98), si desea identificar a los agentes resistentes a tratamiento con otros antibióticos. Resistencia a vancomicina | U82 U82.0 U82.1 U82.2 U82.9 U83 U83.0 U83.1 U83.2
+(U83.0) Resistencia a otros antibióticos similares a vancomicina (U83.1) Resistencia a quinolonas (U83.2) Resistencia a múltiples antibióticos (U83.7) Resistencia a otros antibióticos únicos especificados Resistencia a antibióticos no especificados (U83.9) Resistencia a antibióticos SAI (U83.9) Resistencia a otras drogas antimicrobianas (U84) Use código adicional (B95-B98), si desea identificar a los agentes resistentes a tratamiento con otras drogas antimicrobianas. Excluye: resistencia a antibióticos (U82-U83) | U83.7 U83.8 U83.9 U84
+Sospecha de violación sexual | Asignado según SINAVISA
+Sífilis congénita | A50.0 – A50.9
+Sífilis precoz2 | A51.0 – A51.9
+Sífilis tardía2 | A52.0 – A52.9
+Sífilis gestacional | O98.1
+Otras sífilis y las no especificadas2 | A53.0 – A53.9
+Trastorno bipolar afectivo3 | F31.0 – F31.9
+Trastornos mentales y del comportamiento debidos al uso de sustancias psicoactivas | F10.0 - F19.0
+Victimas de accidente de tránsito2 | V01.0 - V99 .9 causa primaria S00 - T14 causa secundaria
+Violencia intrafamiliar7 | Y07.0 – Y07.9 causa primaria T74.0 – T74.9 especifica el síndrome del maltrato.
+1:http://www.ilo.org/wcmsp5/groups/public/---ed_protect/---protrav/-safework/ documents/publication/wcms_125l64. pdf
+2: No requieren Investigación de campo.
+3: Sólo lo notifica especialista en psiquiatría y no requiere investigación de campo.
+4: Incluye los niños menores de 5 años que presentan menor o igual a - 2 desviaciones estándares o más de las gráficas de peso/talla vigente, en niños mayores de 5 años (baja talla severa), adolescentes y adultos, menor o igual a -2 desviaciones estándares o más OMS.
+5: Menor o igual a-3 DE según tabla de talla edad vigente en niños de O a 5 años.
+6: Requiere investigación epidemiológica
+7: Requiere investigación con un equipo conformado entre otros, por responsable de epidemiología y por Trabajo Social.
+8: Infecciones asociadas a atención en salud: Siempre se utiliza Y95 como código principal y secundario cuando se identificar agente se coloca código secundario para localización.
+9: Excluye demencia senil con delirio o con estado confusional agudo (F05. l) Senilidad, no especificada (R54).
+(*)(Así reformado el apartado b) anterior por el artículo 1° del decreto ejecutivo N° 45234 del 19 de agosto de 2025)
 Grupo C:
 Comprende eventos cuya notificación es semanal, en reporte colectivo.
 Eventos de Notificación obligatoria del Grupo C

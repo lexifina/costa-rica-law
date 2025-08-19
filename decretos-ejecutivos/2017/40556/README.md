@@ -15,3 +15,4 @@ Reglamento de vigilancia de la salud
 | --- | --- | --- |
 | 1 | 2017-08-23 | la propia norma |
 | 2 | 2025-01-27 | Decreto Ejecutivo 44892 (2025-01-27) |
+| 3 | 2025-08-19 | Decreto Ejecutivo 45234 (2025-08-19) |
