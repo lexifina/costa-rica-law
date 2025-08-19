@@ -1,0 +1,1 @@
+Artículo 4 °- La Junta Directiva tendrá como domicilio la ciudad de Cartago pero podrá realizar sus reuniones en otros lugares por acuerdo de mayoría simple de sus miembros. Se reunirá al menos una vez al mes y de forma extraordinaria cuai1do el presidente la convoque o cuando una mayoría simple de sus miembros lo solicite.

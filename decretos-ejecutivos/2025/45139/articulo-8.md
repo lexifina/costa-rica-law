@@ -1,0 +1,1 @@
+Artículo 8°- Las actas de la Junta Directiva deberán ser firmadas por el presidente y el secretado. Las actas de la sesión anterior, quedarán firmes en la sesión siguiente una vez que sea leída el acta y aprobada en ésta. Excepción hecha cuando se declare firme un acuerdo, en la misma sesión.

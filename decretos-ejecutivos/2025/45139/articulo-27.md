@@ -1,0 +1,1 @@
+Artículo 27°- En caso de que se encuentre ausente el presidente en la sesión convocada, los miembros presentes elegirán un presidente ad hoc, quién únicamente presidirá esa sesión. Con las mismas atribuciones del presidente, y en tal condición firmará el acta correspondiente.

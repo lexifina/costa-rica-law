@@ -1,0 +1,1 @@
+Artículo 5°- La misión de la COMCURE es propiciar la gestión integral y sostenible de los recursos naturales de la Cuenca del Río Reventazón. mediante la coordinación inclusiva y la contribución en la ejecución del Plan de Manejo y Ordenamiento de la Cuenca. Consensuado con todos los sectores mejorando la calidad del agua, aire, suelo, biodiversidad y paisaje.

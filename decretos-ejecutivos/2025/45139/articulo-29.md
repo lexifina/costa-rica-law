@@ -1,0 +1,1 @@
+Artículo 29°-La COMCURE a través de la Junta Directiva y la Gerencia de Cuenca según sus funciones. operará bajo los principios que establece la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8131 del 18 de setiembre del 2001.

@@ -1,0 +1,1 @@
+Artículo 16°- Tres meses antes del vencimiento del nombramiento vigente, con previa evaluación y manifestación de interés del actual Gerente de Cuenca, con voto de mayoría calificada, la Junta Directiva podrá renovar el nombramiento por otros tres años. El nombramiento entrará a regir una vez finalizado el periodo vigente.

@@ -1,0 +1,1 @@
+Artículo 6 °- La Visión de la COMCURE es ser la organización de manejo de cuencas más reconocida en América Latina, contando con el respeto de los habitantes y actores de toda la Cuenca del Río Reventazón.

@@ -1,0 +1,1 @@
+Artículo 9°- Deberá a través de la Gerencia realizar los trámites legales correspondientes para tener actualizados sus libros de actas de la Junta Directiva. Así como para efectuar la inscripción de la personería jurídica instrumental y los acuerdos inscribibles. en el Registro Público.

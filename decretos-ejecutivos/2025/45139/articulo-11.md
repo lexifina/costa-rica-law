@@ -1,0 +1,1 @@
+Artículo 11 °-Para los representantes del sector privado. en el caso de fallecimiento, renuncia, de impedimento absoluto o de tres ausencias consecutivas o cinco alternas injustificadas de un miembro de la Junta Directiva de la COMCURE, en un período de un año, será comunicado al Consejo de Cuenca para que designe su sustituto.

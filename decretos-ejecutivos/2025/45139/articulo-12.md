@@ -1,0 +1,1 @@
+Artículo 12º-En el seno de la Junta Directiva se deberá nombrar un presidente y un secretario (a) por un plazo de dos años; los cuales pueden ser reelectos por una única vez. El nombramiento se hará con mayoría calificada y mediante votación abierta. Se debe procurar que exista nombramiento por consenso y sea rotativa entre todos los representantes.

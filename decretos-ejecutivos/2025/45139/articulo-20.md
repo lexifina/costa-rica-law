@@ -1,0 +1,1 @@
+Artículo 20°- Los actos administrativos emitidos por la Gerencia de Cuenca tendrán recurso de revocatoria ante la misma Gerencia, y de apelación ante la Junta Directiva, quién agotará la vía administrativa.

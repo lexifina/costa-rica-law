@@ -1,0 +1,1 @@
+Artículo 32º-Para efectos de la sana administración financiera y el cumplimiento de la ley de control interno, la Junta Directiva podrá ordenar auditorías internas, o pedir estados financieros auditados externos al Consejo de Cuenca o a la Gerencia de Cuenca.

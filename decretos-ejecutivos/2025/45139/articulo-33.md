@@ -1,0 +1,1 @@
+Artículo 33º-Debido a la naturaleza jurídica de la COMCURE, de administrar recursos públicos, todas sus actuaciones administrativas y financieras estarán sujetas a las leyes y reglamentos respectivos que regulan la materia. y a la normativa de la Contraloría General de la República.
