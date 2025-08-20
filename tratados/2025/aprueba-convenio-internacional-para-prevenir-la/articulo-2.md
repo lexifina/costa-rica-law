@@ -1,0 +1,3 @@
+ARTÍCULO 2- La República de Costa Rica hace reserva al artículo 16 del Convenio Internacional para Prevenir la Contaminación por los Buques, 1973 (Convenio Marpol), en el sentido de que las enmiendas aprobadas, conforme al procedimiento ahí descrito, tendrán vigencia en el país cuando se consideren protocolos de menor rango derivados del Convenio, en los términos que establece nuestra Constitución Política. En el caso de enmiendas sustanciales, tendrán vigencia una vez que hayan sido aprobadas de conformidad con los procedimientos establecidos en la Constitución Política de la República de Costa Rica.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cuatro días del mes de julio del año dos mil veinticinco.
