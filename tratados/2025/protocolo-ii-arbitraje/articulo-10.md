@@ -1,0 +1,3 @@
+Artículo X
+1) El Tribunal dictará su laudo dentro de un plazo de cinco meses contados a partir de la fecha de su constitución a menos que, en caso de necesidad, decida ampliar ese plazo. La ampliación no excederá de tres meses. El laudo del Tribunal, que irá acompañado de una exposición de motivos, será definitivo e inapelable y se comunicará el Secretario General de la Organización. Las Partes cumplirán inmediatamente lo dispuesto en el laudo.
+2) Toda controversia que se suscitase entre las Partes en cuanto a la interpretación o ejecución del laudo podrá ser sometida por una de las Partes al Tribunal que lo dictó para que decida y, de haberse dispersado éste, a otro Tribunal constituido a dicho efecto del mismo modo que el primero.

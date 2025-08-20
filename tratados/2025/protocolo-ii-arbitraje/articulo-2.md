@@ -1,0 +1,3 @@
+Artículo II
+1) Se constituirá un Tribunal de arbitraje a solicitud de una Parte en el Convenio dirigida a otra de conformidad con el artículo 10 del presente Convenio. La solicitud de arbitraje consistirá en una exposición del caso acompañada de los documentos de justificación.
+2 ) La Parte solicitante informará al Secretario General de la Organización del hecho de haber pedido la constitución de un Tribunal, de los nombres de las Partes en la controversia, y de los artículos del Convenio o las reglas sobre cuya interpretación o aplicación exista, en su opinión, un desacuerdo. El Secretario General transmitirá esta información a todas las Partes.
