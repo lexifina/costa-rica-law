@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Nulidad. Será nula cualquier contratación de servicios que no se ajuste a los términos estipulados en este reglamento. La nulidad de una contratación implica responsabilidad administrativa, siguiendo el debido proceso, de conformidad con la Ley General de la Administración Pública.

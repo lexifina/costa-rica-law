@@ -1,3 +1,4 @@
-CAPITULO III
+CAPÍTULO III
 Contratación de los servicios
-ARTÍCULO 7. Competencia. El Departamento de Proveeduría será el encargado de realizar el respectivo trámite de contratación. Sin embargo, cuando en atención al carácter excepcional, urgente e indispensable de los servicios, se requiera de ejecutar su adquisición a través de los fondos de caja chica, la solicitud será tramitada de conformidad con el Reglamento de Custodia y Administración de Caja Chica.
+ARTÍCULO 7.- Competencia. Le corresponde al Departamento de Protocolo tramitar, en calidad de unidad técnica solicitante, los requerimientos específicos para los procesos de adquisición de servicios de alimentación. Deberá realizar la solicitud de contratación conforme a lo que se establece en la normativa vigente.
+El Departamento de Proveeduría será el encargado de realizar el respectivo trámite de contratación, con la solicitud de la unidad técnica solicitante.

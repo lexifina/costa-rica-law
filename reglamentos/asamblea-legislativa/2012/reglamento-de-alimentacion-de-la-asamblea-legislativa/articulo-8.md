@@ -1,1 +1,4 @@
-ARTICULO 8. Adquisición por caja chica. Si recibida la documentación, la Proveeduría se viera imposibilitada a ejecutar la contratación, y en atención al carácter excepcional, urgente e indispensable de los servicios se requiera de ejecutar su adquisición a través de los fondos de caja chica, lo indicará así por escrito al Director Ejecutivo y a quien solicita el servicio, para su gestión a través de los trámites contenidos en el Reglamento de Custodia y Administración de la Caja Chica de la Asamblea Legislativa.
+CAPÍTULO IV
+Servicio de alimentación en las sesiones
+del Plenario Legislativo
+ARTÍCULO 8.- Carácter excepcional del servicio. El servicio de alimentación para las sesiones, ordinarias y extraordinarias del plenario legislativo, se brindará única y exclusivamente para las personas diputadas; y tendrá carácter estrictamente excepcional y funcional, con el propósito de garantizar la continuidad ininterrumpida de dichas sesiones, conforme a los principios de legalidad, necesidad objetiva, austeridad, proporcionalidad y finalidad pública.

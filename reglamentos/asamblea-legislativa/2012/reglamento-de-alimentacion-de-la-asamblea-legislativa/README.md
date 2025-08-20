@@ -15,3 +15,4 @@ Reglamento de alimentación de la Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 2012-06-13 | la propia norma |
 | 2 | 2012-06-13 | Reglamento 120 (2012-06-05) |
+| 3 | 2025-08-20 | Reglamento 147 (2025-08-20) |
