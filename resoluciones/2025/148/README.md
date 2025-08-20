@@ -14,3 +14,4 @@ Disposiciones que regulan el proceso de concurso interno aplicable en el Régime
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-06-06 | la propia norma |
+| 2 | 2025-08-20 | Resolución 265 (2025-08-20) |
