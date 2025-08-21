@@ -1,0 +1,9 @@
+CAPÍTULO II.
+REQUISITOS PARA EL EJERCICIO PROFESIONAL
+Requisitos
+Para el ejercicio de la persona profesional especialista en Psicología Clínica, en el ámbito público y privado, en organizaciones no gubernamentales y en organismos internacionales, se establecen los siguientes requisitos:
+a. Ejercerán aquellas personas profesionales con grado mínimo de licenciatura en Psicología, que cuenten con un posgrado universitario mediante la modalidad de especialidad, maestría profesional o académica o doctorado en Psicología Clínica, graduadas de las universidades públicas y privadas del país debidamente autorizadas por los organismos reguladores.
+b. Ejercerán aquellas personas profesionales con grado mínimo de licenciatura en Psicología, con posgrado universitario mediante la modalidad de especialidad, maestría profesional o académica o doctorado en Psicología Clínica, graduadas en universidades extranjeras que hayan cumplido con el trámite de reconocimiento y la equiparación del título ante las autoridades correspondientes.
+c. La persona profesional debe encontrase debidamente incorporada al Colegio de Profesionales en Psicología de Costa Rica, con el título de posgrado universitario mediante la modalidad de especialidad, maestría profesional o académica o doctorado en Psicología Clínica debidamente inscrito en el registro único de posgrados del Colegio y ser integrante con participación.
+d. Encontrarse al día con el pago de la colegiatura que establezca el Colegio de Profesionales en Psicología de Costa Rica.
+e. No podrá ejercer de forma profesional la persona colegiada que se encuentre suspendida de forma temporal por el Colegio de Profesionales en Psicología de Costa Rica o inhabilitada penalmente para el ejercicio de su profesión mientras dicha pena se encuentre vigente, según el artículo 67, incisos A, B, C, D y E, del Código de Ética y Deontológico del Colegio de Profesionales en Psicología de Costa Rica.

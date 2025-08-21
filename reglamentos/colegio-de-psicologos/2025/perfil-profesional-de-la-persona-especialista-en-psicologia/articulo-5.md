@@ -1,0 +1,20 @@
+CAPÍTULO V.
+FUNCIONES EN INVESTIGACIÓN
+La persona profesional especialista en Psicología Clínica cuenta con conocimientos avanzados en los diversos modelos metodológicos de investigación básica y aplicada, lo que le faculta para plantear, ejecutar y asesorar proyectos de investigación.
+Asimismo, puede reconocer, identificar y construir los instrumentos necesarios para las distintas fases de la investigación: recolección, sistematización, procesamiento y análisis de datos e interpretación de resultados, además de la elaboración de conclusiones, recomendaciones, comunicación de resultados y hallazgos.
+Podrá diseñar y dirigir investigaciones clínicas especializadas y observacionales, incluidos estudios clínicos, ensayos clínicos, protocolos, guías clínicas e investigación de alto nivel. En estos casos, es su obligación demostrar la fiabilidad y validez, tanto de los diseños utilizados, como del manejo, análisis y divulgación de los datos y resultados obtenidos.
+En los casos que aplique, cada profesional deberá acogerse a los requerimientos estipulados por la Ley N.º 9234 de Investigación Bioética y futuras modificaciones, someterse a los requerimientos de un comité de bioética avalado por el Estado costarricense y estar activo o activa en el Registro Nacional de Investigadores del Consejo Nacional de Investigación en Salud (CONIS), adscrito al Ministerio de Salud.
+Lo anterior manteniendo una actitud crítica y constructiva, no solo en cuanto a los objetivos y resultados que se pretenden con el proceso investigativo, sino también respecto de sus bases epistemológicas y éticas.
+Principales funciones en investigación:
+a) Diseñar y gestionar proyectos de investigación relacionados con la salud mental y psicopatología de las personas, familias, grupos e instituciones, en el nivel nacional e internacional, según la capacitación obtenida en su formación como profesional especialista en Psicología Clínica.
+b) Realizar, asesorar y participar en investigaciones, ya sea de forma individual o como parte del equipo de investigación, en calidad de principal o como persona coinvestigadora o subinvestigadora.
+c) Investigar y aplicar el conjunto de procesos sistemáticos, críticos y empíricos para el estudio de un fenómeno.
+d) Divulgar los resultados de la investigación con la comunidad científica y con la sociedad en general, según corresponda, ya sea mediante publicaciones o por otras vías de comunicación.
+e) Hacer uso de los resultados de la investigación para la generación y promoción del desarrollo y avance de la Psicología Clínica, así como para el desarrollo de políticas públicas relacionadas con el área de especialización.
+f) Investigar en los diversos campos de acción y desarrollo del ejercicio profesional de la Psicología Clínica.
+g) Diseñar, construir o adaptar, estandarizar y normalizar instrumentos de medición psicológica relacionados con la Psicología Clínica en los casos que se requiera esta especialización, dirigidas a diferentes poblaciones, siguiendo los protocolos y normativa nacional e internacional que corresponda para estos efectos, ya sea de forma individual o como parte del equipo de personas expertas encargadas de este proceso.
+h) Desarrollar metodologías técnicas e instrumentos para la investigación, evaluación, el diagnóstico, la intervención y la rehabilitación, desde la psicología clínica especializada.
+i) Diseñar, desarrollar y evaluar planes de investigación-acción dirigidos a la formulación de programas y acciones que se enfoquen en la asesoría, formación, desarrollo de diferentes problemas clínicos y de salud psicológica, para los que se requiere una formación clínica especializada.
+j) Participar, supervisar o dirigir investigaciones elaboradas por estudiantes de grado, posgrado mediante la modalidad de especialidad, maestría profesional o académica o doctorado en Psicología Clínica Especializada.
+k) Participar en la gestión de proyectos de investigación relacionados con la salud mental de las personas, familias, grupos e instituciones, en el nivel nacional e internacional.
+l) Cumplir con otras funciones propias del ejercicio profesional.
