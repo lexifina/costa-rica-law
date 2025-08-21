@@ -1,0 +1,4 @@
+Artículo 29 - Conflicto de intereses. El Auditor Interno y el personal de Auditoría Interna, deben tener una actitud imparcial y neutral, y evitar cualquier conflicto de intereses.
+El conflicto de intereses es una situación en la cual un auditor interno, que ocupa un puesto de confianza, tiene un interés personal o profesional en competencia con otros intereses. Tales intereses en competencia pueden hacerle difícil el cumplimiento imparcial de sus tareas.
+Estos conflictos de interés pueden socavar la confianza en el Auditor Interno, la actividad de auditoría interna y el impedimento o menoscabo a la independencia en la ejecución de las actividades de fiscalización.
+Ante una situación de conflicto de interés que afecte el desempeño de la Auditoría Interna, los detalles del impedimento deben darse a conocer a las partes correspondientes.

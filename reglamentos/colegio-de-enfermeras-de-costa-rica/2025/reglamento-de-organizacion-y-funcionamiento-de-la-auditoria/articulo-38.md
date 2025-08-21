@@ -1,0 +1,1 @@
+Artículo 38 - De las denuncias anónimas. El conocimiento de las Auditorías Internas sobre hechos presuntamente irregulares se origina entre otros por la presentación de una denuncia, la cual puede ser interpuesta por cualquier funcionario o ciudadano; quien puede identificarse o presentarla de forma anónima.

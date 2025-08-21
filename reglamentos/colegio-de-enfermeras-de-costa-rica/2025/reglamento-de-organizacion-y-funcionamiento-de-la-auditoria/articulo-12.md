@@ -1,0 +1,3 @@
+Artículo 12 - Coordinación sobre vacaciones, permisos y otros. Corresponderá a la presidencia de Junta Directiva la aprobación de vacaciones, permisos labores con goce y sin goce de salario, licencias reguladas en el Código de Trabajo y justificaciones, del Auditor Interno.
+Por la relación jerárquica, las incapacidades y otros asuntos del Auditor Interno serán informadas por este ante la presidencia de Junta Directiva.
+Para el resto del personal de la Auditoría Interna, estas gestiones se realizarán según lo establecido en las regulaciones administrativas y cuando corresponda se coordinarán con el Auditor Interno.

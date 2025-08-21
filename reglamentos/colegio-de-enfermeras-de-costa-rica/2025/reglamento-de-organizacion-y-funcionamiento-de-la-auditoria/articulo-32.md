@@ -1,0 +1,7 @@
+Artículo 32 - Servicios de auditoría. Los servicios de auditoría, según sus objetivos, comprenden los siguientes tipos básicos de auditorías:
+a) Auditoría financiera. Se enfoca en determinar si la información financiera de una entidad se presenta en conformidad con el marco de referencia de emisión de información financiera y regulatorio aplicable.
+Otros objetivos de las auditorías financieras pueden incluir:
+a. La revisión de informes especiales para elementos, cuentas o partidas específicas de un estado financiero.
+b. La revisión de información financiera intermedia.
+b) Auditoría de carácter especial. Se enfoca en determinar si un asunto en particular cumple con las regulaciones o mandatos identificados como criterios contenidos en leyes, reglamentos u otras normativas que las regulan, tales como resoluciones, u otros criterios considerados como apropiados por el auditor. Pueden abarcar una extensa gama de temas, tales como aspectos de orden contable-financiero, presupuestario, administrativo, económico, jurídico, control interno y otras temáticas relacionadas con la fiscalización pública.
+c) Auditoría operativa. Evalúa la eficacia, eficiencia y economía (o al menos uno de estos aspectos) con que la entidad, programa, proyecto, unidad, proceso o actividad del sujeto fiscalizado, utiliza los recursos públicos, para el desempeño de sus cometidos; esto con el propósito de mejorar la gestión del sujeto fiscalizado.

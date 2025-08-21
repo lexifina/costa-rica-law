@@ -1,0 +1,1 @@
+Artículo 19 - Plan estratégico. Se debe establecer la planificación estratégica de la Auditoría Interna, en la que se plasman la visión y la orientación de la auditoría interna, y que sea congruente con la visión, la misión y los objetivos institucionales. Este insumo corre por cuenta del Auditor Interno y, según proceda, de los funcionarios de Auditoría Interna.

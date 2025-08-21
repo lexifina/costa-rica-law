@@ -1,0 +1,2 @@
+Artículo 55 - Seguimiento. El Auditor Interno debe establecer e implementar los mecanismos necesarios para verificar oportunamente el cumplimiento efectivo de las disposiciones o recomendaciones emitidas.
+Adicionalmente, la Auditoría Interna debe verificar el cumplimiento de las disposiciones o recomendaciones que otras organizaciones de auditoría hayan dirigido a la entidad u órgano de su competencia institucional, tal es el caso de la Contraloría General de la República, despachos de auditoría externa, entre otros.

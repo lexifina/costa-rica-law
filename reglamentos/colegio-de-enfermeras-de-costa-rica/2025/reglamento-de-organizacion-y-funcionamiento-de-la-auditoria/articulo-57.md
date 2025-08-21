@@ -1,0 +1,1 @@
+Artículo 57 - Autoevaluación anual de calidad. La autoevaluación anual de calidad es aquella mediante la cual la unidad de auditoría interna evalúa su calidad con respecto al período anual inmediato anterior.

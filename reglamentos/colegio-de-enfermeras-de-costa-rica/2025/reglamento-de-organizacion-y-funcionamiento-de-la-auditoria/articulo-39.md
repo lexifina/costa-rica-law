@@ -1,0 +1,1 @@
+Artículo 39 - Análisis de presuntos hechos irregulares. La Auditoría Interna tiene competencia investigadora para el análisis de supuestos hechos irregulares. Esta labor de investigación no corresponde a ninguno de los tipos o procedimientos de auditoría definidos, a saber: auditorías financieras, auditorías operativas y auditorías de carácter especial.

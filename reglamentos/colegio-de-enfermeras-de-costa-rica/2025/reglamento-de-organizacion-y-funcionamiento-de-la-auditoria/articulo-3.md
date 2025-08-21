@@ -1,0 +1,1 @@
+Artículo 3º - Acatamiento del Reglamento. Las disposiciones contenidas en este Reglamento de Organización y Funcionamiento son de acatamiento obligatorio para el Auditor Interno, los funcionarios de la Auditoría Interna y, en lo que corresponda, el jerarca y demás miembros de la Administración Activa del Colegio de Enfermeras de Costa Rica.

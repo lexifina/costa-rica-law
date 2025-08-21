@@ -1,0 +1,2 @@
+Artículo 58 - Percepción de la actividad de auditoría interna. Se aplicará una encuesta mediante un instrumento validado que recoge la percepción sobre la calidad de la actividad de auditoría interna por parte del jerarca, los titulares subordinados, los funcionarios de la Auditoría Interna y otras instancias.
+Estas encuestas consideran las relaciones organizacionales de la Auditoría Interna, la competencia del personal de la unidad, su productividad y el valor agregado de sus servicios, entre otros asuntos relevantes.

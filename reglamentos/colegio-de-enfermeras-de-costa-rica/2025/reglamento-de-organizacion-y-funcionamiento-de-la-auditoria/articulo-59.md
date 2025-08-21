@@ -1,0 +1,1 @@
+Artículo 59 - Resultados de evaluación anual. Los resultados de la autoevaluación anual y la evaluación externa de calidad serán comunicados oportunamente al jerarca y otras partes interesadas mediante el informe de la evaluación de calidad y el respectivo plan de mejora. Los resultados podrán incorporarse en el informe periódico de labores.

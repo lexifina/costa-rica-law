@@ -1,0 +1,1 @@
+Artículo 47 - Examen. Las actividades de la etapa de examen se deben ajustar al programa y objetivos definidos previamente para la auditoría. Esta etapa presentará apropiadamente los hallazgos de auditoría, con sus atributos y la evidencia respectiva.

@@ -1,0 +1,2 @@
+Artículo 27 - Independencia y objetividad. La actividad de la Auditoría Interna estará libre de cuestionamientos que amenacen la capacidad de esa unidad. Asimismo, debe estar libre de injerencias al determinar el alcance de su actividad, al desempeñar su trabajo y al comunicar sus resultados.
+Conforme lo establece la ley de lograr el grado de independencia necesario para cumplir eficazmente las responsabilidades, el Auditor Interno debe tener canales de comunicación de acceso directo e irrestricto a la alta dirección y al jerarca institucional.
