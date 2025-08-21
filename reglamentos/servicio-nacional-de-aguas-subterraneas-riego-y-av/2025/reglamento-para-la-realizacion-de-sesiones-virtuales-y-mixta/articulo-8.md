@@ -1,0 +1,3 @@
+Artículo 8.- Sobre la verificación del quórum de la sesión virtual o mixta.
+Al iniciar la sesión de manera virtual o mixta, su presidente deberá verificar la existencia de quórum mediante la verificación de presencialidad o conexón virtual de cada uno de los miembros. De igual manera en el transcurso de la sesión, quien la dirija debe estar atento a que la conectividad de sus miembros se mantenga.
+Si alguno de los miembros convocados presenta problemas de conectividad a la sesión o su conectividad es inestable, así deberá informarlo al presidente por medio del chat o cualquier medio alterno, caso en el cual el presidente dará un espacio de tiempo prudencial hasta que pueda establecerse la conexión.

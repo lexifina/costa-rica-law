@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Proceso de votación virtual.
+El presidente del órgano colegiado, una vez analizados los acuerdos, someterá el asunto a votación de los integrantes del órgano, lo cual podrá hacer consultando a cada miembro uno por uno, o bien solicitándoles a los miembros que estén de acuerdo que se sirvan levantar la mano virtual que tiene la plataforma. En cualquiera de los casos, al momento de las votaciones los integrantes del órgano que ejercen su derecho a voto deben encender las cámaras.
+De igual manera de existir votos en contra o abstenciones, deberá quedar acreditado en actas el motivo en que se fundamenta.

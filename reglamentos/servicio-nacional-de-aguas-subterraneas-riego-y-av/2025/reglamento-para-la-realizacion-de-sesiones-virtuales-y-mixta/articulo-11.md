@@ -1,0 +1,4 @@
+ARTÍCULO 11.- Lugar para celebrar las sesiones mixtas
+Cuanto se trate de realizar una sesión mixta, es necesario que se cuente con una sala de videoconferencias o recinto debidamente equipado que haga posible la participación de personas de manera presencial y otras de manera virtual. Además, será necesario que los equipos con que cuenten todos los participantes sean tecnológicamente compatibles para garantizar el adecuado funcionamiento del órgano colegiado.
+Del mismo modo, el sistema tecnológico utilizado debe garantizar la autenticidad e integridad de la voluntad y la conservación de lo actuado en la sesión virtual del órgano colegiado, por lo que debe permitir la plena y exacta identificación de las personas que están sesionando.
+Deben existir medidas de seguridad tendientes a evitar la alteración de la comunicación, la identificación del miembro y garantizar el contenido mismo de la transmisión telemática.
