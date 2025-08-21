@@ -1,0 +1,3 @@
+TRANSITORIO:
+Transitorio I: Mientras entra en vigencia dicho Reglamento, la Municipalidad de Golfito, a través del Concejo Municipal con Asesoría del Departamento de Plataforma de Servicios o Patentes, posee la discrecionalidad para otorgar el permiso temporal de uso del espacio físico habilitado para desarrollar la actividad de comercio sobre ruedas, conforme a lo dispuesto en el artículo 218 bis de la Ley General de Salud, Ley Nº 5395, de 30 de octubre de 1973. Así mismo, para otorgar la licencia comercial temporal especial para el comercio sobre rueda al amparo de la Ley N° 10254. Dichos permisos se otorgarán por un plazo de seis meses prorrogable hasta la publicación de dicho Reglamento.
+El presente reglamento rige a partir de su publicación.

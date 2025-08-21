@@ -1,0 +1,1 @@
+Artículo 14.-Los propietarios o administradores de establecimientos de comercio sobre ruedas podrán iniciar la operación de éstos una vez que acrediten el cumplimiento total de los requisitos legales establecidos en el artículo 4 de la Ley N° 10254.

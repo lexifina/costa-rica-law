@@ -1,0 +1,1 @@
+Artículo 13.-Una vez autorizada la licencia comercial temporal especial para desarrollar la actividad de comercio sobre ruedas, el administrado debe cancelar a la Municipalidad de Golfito el equivalente anual a un 5% de un salario base.

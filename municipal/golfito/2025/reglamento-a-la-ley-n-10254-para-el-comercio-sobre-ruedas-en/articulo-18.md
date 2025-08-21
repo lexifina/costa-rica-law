@@ -1,0 +1,1 @@
+Artículo 18.-Recursos. La decisión municipal que deniegue el permiso temporal de uso del espacio físico habilitado para desarrollar la actividad de comercio sobre ruedas y/o la licencia o que imponga una sanción tendrá los medios de impugnación que se establecen en el régimen recursivo del Código Municipal.
