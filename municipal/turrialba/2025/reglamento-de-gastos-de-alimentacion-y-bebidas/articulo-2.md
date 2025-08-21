@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación: Este reglamento es aplicable a las personas funcionarias de la Municipalidad de Turrialba, incluida la Secretaría del Concejo Municipal y el personal de la Auditoría Interna. El incumplimiento a sus disposiciones acarrea responsabilidad administrativa, civil o penal según corresponda.

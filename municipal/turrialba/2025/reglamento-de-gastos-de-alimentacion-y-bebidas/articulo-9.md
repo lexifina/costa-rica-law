@@ -1,0 +1,1 @@
+Artículo 9º-Planificación y razonabilidad de los gastos: Los gastos en que incurra la Municipalidad deberá responder a los principios de racionalidad y austeridad como se ha señalado, considerando que solo procederán aquellos que hayan sido debidamente planeados y solicitados con anticipación, para su debido trámite.
