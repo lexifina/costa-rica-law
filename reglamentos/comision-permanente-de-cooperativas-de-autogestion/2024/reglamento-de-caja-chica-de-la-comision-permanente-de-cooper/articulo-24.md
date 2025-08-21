@@ -1,0 +1,1 @@
+ARTÍCULO 24º: Si producto del arqueo resultare una diferencia, esta deberá justificarla el encargado del fondo y deberá depositar el sobrante en las cuentas de la Comisión Permanente de Cooperativas de Autogestión y el faltante de forma inmediata al fondo de caja chica.

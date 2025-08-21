@@ -1,0 +1,1 @@
+ARTÍCULO 3º: El director ejecutivo es el funcionario facultado por este reglamento para autorizar erogaciones de dinero con base en requisiciones para la compra de bienes, servicios, transporte y adelantos de viáticos, que sean necesarios, cancelar del fondo de caja chica.

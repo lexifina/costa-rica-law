@@ -1,0 +1,1 @@
+ARTÍCULO 22º: El coordinador de Administración y Finanzas no autorizará vales de caja chica a nombre de un funcionario, si este tiene pendiente la liquidación de uno anterior, salvo casos excepcionales debidamente justificados.

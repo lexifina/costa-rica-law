@@ -1,0 +1,1 @@
+ARTÍCULO 17º: En ningún caso, los funcionarios señalados en el artículo tercero de este reglamento autorizarán la compra de bienes y Servicios por caja chica, de artículos que deben ser gestionados por el proceso ordinario de compra a través de la proveeduría.

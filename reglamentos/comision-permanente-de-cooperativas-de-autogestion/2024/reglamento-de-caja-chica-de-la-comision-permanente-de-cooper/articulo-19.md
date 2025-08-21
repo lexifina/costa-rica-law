@@ -1,0 +1,2 @@
+ARTÍCULO 19: La liquidación de los vales deberá hacerse a más tardar el día hábil siguiente al retiro del dinero, excepto en el adelanto de viáticos, que tendrán un plazo no mayor de tres días para su correspondiente liquidación posterior al regreso de la gira respectiva.
+Cuando la liquidación se realice con posterioridad al plazo fijado, deberá justificarse ante la Dirección Ejecutiva, la cual evaluará si las razones del atraso proceden. Si no es así se actuará conforme lo dispuesto en el Reglamento Interno de trabajo.
