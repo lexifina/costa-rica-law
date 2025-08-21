@@ -1,0 +1,5 @@
+Artículo 41°- Faltas graves. Serán consideradas como faltas graves, el incumplimiento de los artículos, 34 incisos b ), c ), d), g), i), j) y k); del artículo 35 con excepción del uso del tabaco siempre y cuando su consumo se realice fuera del vehículo institucional en el área determinada para su consumo; y del artículo 40 incisos a), c ), g), h), i) y j). El incurrir en cualquiera de dichas faltas, se sancionará de la siguiente forma:
+a) Una falta grave, se sancionará con suspensión sin goce de salario desde uno y hasta por diez días.
+b) Dos faltas graves, se sancionará con suspensión sin goce de salario desde once y hasta por quince días.
+c) Tres faltas graves o más, se sancionará con despido o cese de labores, ambos sin responsabilidad patronal.
+Dichas sanciones se aplicarán sin perjuicio de que se considere, como causal de despido, la comisión de una sola falta grave o reincidencia de faltas leves; de conformidad con lo establecido en el inciso 3) del artículo 73 del Reglamento Autónomo de Servicios de la Procuraduría General de la República.

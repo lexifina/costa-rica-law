@@ -1,0 +1,3 @@
+Artículo 15°- Solicitudes extemporáneas de transporte para giras.
+Solamente en casos excepcionales o de emergencia, se podrá realizar una solicitud de transporte para giras fuera del plazo indicado en el artículo anterior. En estos casos, la solicitud deberá acompañarse de un itinerario y de .la autorización extendida por el superior inmediato del funcionario solicitante. Esta solicitud quedará sujeta a disponibilidad de personal y de los recursos para hacerle frente al monto correspondiente por concepto de viáticos.
+Se considera como caso excepcional, cuando se requiera acudir a una diligencia o representación judicial o extrajudicial, que haya sido citada en un plazo menor a lo dispuesto en el artículo 14 de este reglamento.

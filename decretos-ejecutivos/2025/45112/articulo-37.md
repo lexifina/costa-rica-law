@@ -1,0 +1,2 @@
+Artículo 37º- Sanciones.
+Las infracciones al presente Reglamento, salvo disposición expresa, serán sancionadas de conformidad con lo establecido por el Código de Trabajo, Estatuto de Servicio Civil y su Reglamento, el Reglamento Autónomo de Servicios de la Procuraduría General de la República, así como las demás disposiciones vigentes y aplicables, sin perjuicio de las responsabilidades civiles y penales que deba asumir el infractor.

@@ -1,0 +1,4 @@
+Artículo 32º- Multas imputables a la persona funcionaria conductora.
+Las multas firmes, imputables a la persona funcionaria conductora, impuestas por infracciones a la ley de tránsito vigente, serán canceladas por la persona funcionaria conductora dentro de un plazo no mayor a diez días hábiles a partir de la firmeza de la resolución que las imponga. Lo anterior incluye los intereses y recargos que dichas multas hayan generado hasta su efectivo pago.
+En el caso de retiro de matrículas, la persona funcionaria conductora realizará las diligencias correspondientes para su recuperación.
+De no cancelar las multas en el plazo establecido, la Procuraduría General de la República podrá realizar el pago y gestionar el cobro a la persona funcionaria conductora mediante el Departamento Financiero Contable y el Departamento de Gestión Institucional de Recursos Humanos de la Institución.

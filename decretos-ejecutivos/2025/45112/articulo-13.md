@@ -1,0 +1,2 @@
+Artículo 13 °- Plazo para solicitar el transporte para traslados, gestiones administrativas y/o trámites en general.
+Las solicitudes para reservar vehículos destinados a los traslados de funcionarios, diligencias administrativas o trámites en general y propios de las funciones, deberán gestionarse con al menos 24 horas previo a su utilización. En caso de que las solicitudes se realicen en un plazo menor al indicado, se encontrará. sujeto a la disponibilidad vehicular y de personal con que se cuente.

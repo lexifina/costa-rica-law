@@ -1,0 +1,3 @@
+Artículo 3°-Vehículo de uso discrecional.
+De conformidad con lo dispuesto en el artículo 238, de la Ley de Tránsito, los vehículos de uso discrecional son aquellos destinados al servicio del Procurador General de la República, dada la índole de sus funciones y para el mejor desempeño de éstas. Estos vehículos no cuentan con restricción alguna en cuanto a combustible, kilometraje, horario de circulación o recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable del vehículo.
+Además, pueden portar placas particulares y no tendrán marcas visibles que los distingan como vehículos oficiales.

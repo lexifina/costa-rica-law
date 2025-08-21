@@ -1,0 +1,3 @@
+Artículo 17º- Duración de las giras.
+Las giras deberán contemplar, como máximo, una jornada de doce horas al día. Si en la planificación de la gira o durante la misma -ante situaciones no previstas o imprevisibles- el encargado no puede abarcar las labores encomendadas dentro de dicha jornada, deberá extender la gira para el día siguiente.
+Únicamente en casos debidamente autorizados por la Dirección de Desarrollo Institucional, se podrá laborar por una jornada mayor a las doce horas supra Indicadas. Esta autorización se podrá tramitar de forma posterior, cuando fuera imposible solicitar la autorización de previo.

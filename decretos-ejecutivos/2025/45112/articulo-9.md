@@ -1,0 +1,2 @@
+Artículo 9°-Del adecuado uso de los vehículos.
+A fin de realizar un uso adecuado de los vehículos de la Institución, el Departamento de Servicios Generales velará por el cumplimiento de todas las disposiciones administrativas, reglamentarias y presupuestarias que regulan la actividad de transporte institucional, así como de los mecanismos de control y seguimiento necesarios para la protección vehicular institucional.

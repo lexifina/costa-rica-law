@@ -1,0 +1,2 @@
+Artículo 12°- Disponibilidad del servicio requerido.
+En el menor tiempo posible, y en un lapso no mayor a 24 horas después de realizada la solicitud, el Departamento de Servicios Generales determinará y comunicará la viabilidad o no de acceder a lo requerido, de conformidad con la disponibilidad de vehículos y a la prioridad de la gestión oficial para la cual se requieren los servicios de transporte.

@@ -1,0 +1,2 @@
+Artículo 42º-Reincidencia en las faltas.
+Para efectos de determinar la reincidencia, se tomará en consideración si en el expediente del funcionario, y dentro de un período prudencial de un año atrás a la comisión de la nueva falta, constan otras sanciones firmes y previas, del mismo tipo que se pretenden sancionar. El Departamento de Servicios Generales deberá llevar un registro de las faltas cometidas por las personas funcionarias conductoras.

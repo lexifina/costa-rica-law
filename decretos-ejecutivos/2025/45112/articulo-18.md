@@ -1,0 +1,2 @@
+Artículo 18°-Tiempo de alimentación.
+De conformidad con lo dispuesto en el articulo 20 del Reglamento Autónomo de Servicios de Ia Procuraduría General de la República, los servidores disfrutarán de un lapso de 1 hora para el almuerzo, así como 15 minutos en la mañana y 15 minutos en la tarde para tomar un descanso, tiempos que deben ser respetados y aplicadas durante la realización giras, en la jornada correspondiente y en los momentos en los que se requieran, siempre y cuando no se desatiendan las funciones inherentes al cargo.

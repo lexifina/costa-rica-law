@@ -1,0 +1,2 @@
+Artículo 29º- Prohibición de arreglos extrajudiciales.
+Ninguna persona funcionaria conductora de los vehículos de la Institución, está autorizada para efectuar arreglos extrajudiciales. Los únicos acuerdos o conciliaciones válidos serán aquellos avalados por el Procurador(a) General Adjunto(a) o, en su defecto, del Procurador(a) General, los cuales contendrán una resolución. judicial que finalice el proceso judicial anticipadamente por conveniencia institucional.

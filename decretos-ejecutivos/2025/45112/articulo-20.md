@@ -1,0 +1,19 @@
+Artículo 20°- Deberes de la persona funcionaria conductora.
+La persona funcionaria que conduzca o que posea bajo su custodia, vehículos propiedad de la Procuraduría General de la República, deberá:
+a) Portar el carné que lo identifique como persona funcionaria de la Procuraduría General de la República, así como portar, debidamente actualizada, la licencia de conducir correspondiente a la modalidad del vehículo automotor utilizado. El incumplimiento de esta disposición hace responsable a la persona funcionaria conductora de toda causa civil o penal en caso de un eventual accidente de tránsito, sin perjuicio de las responsabilidades administrativas y disciplinarias a que se haga acreedor.
+b) Acatar lo dispuesto por las Leyes y Reglamentos que sobre la materia de tránsito se hayan emitido. Las multas por infracciones a las leyes de tránsito serán cubiertas por la persona funcionaria conductora, salvo que éstas se deban a desperfectos en el vehículo, caso fortuito y/o fuerza mayor.
+c) Conducir el vehículo con el mayor cuidado y prudencia, manteniendo una actitud seria y responsable en el desempeño de sus funciones.
+d) Informar al Departamento de Servicios Generales respecto de cualquier incidencia, desperfecto y/o circunstancia especial que impida el traslado y/o movilización del vehículo; al lugar de destino o a la sede de la Institución, a fin de que se gestione su pronta reparación, contemplar el cambio de vehículo o la solución que se estime conveniente para el caso concreto.
+e) Verificar que en el vehículo se encuentren los documentos de circulación correspondientes.
+f) No ceder la conducción del vehículo a personas no autorizadas para ello, salvo situaciones excepcionales de fuerza mayor o caso fortuito.
+g) Seguir fielmente el itinerario que se indique, debiendo abstenerse de realizar cambios en las rutas o destinos para asuntos personales, ya sean propios o de los usuarios del vehículo.
+h) Rendir un informe de la gira al Departamento de Servicios Generales, en aquellos casos que sea necesario, o a solicitud de ésta.
+i) Mantener el vehículo en lugar seguro durante la realización de la gira.
+j) Informar al Departamento de Servicios Generales, a más tardar un día hábil después de regresar de la gira, sobre cualquier desperfecto o falla mecánica que haya sufrido el vehículo.
+k) En caso de accidente o de cualquier otra infracción a la Ley de Tránsito, deberá presentar en forma inmediata, y a más tardar dentro del día hábil siguiente, la denuncia respectiva ante el Departamento de Servicios Generales, sin perjuicio de lo establecido en este Reglamento.
+l) En caso de accidentes, presentarse dentro del plazo establecido en la Ley de Tránsito al Juzgado de Tránsito o ante la autoridad judicial competente, a rendir declaración y a presentar la prueba correspondiente. Igualmente, debe presentarse al debate el día señalado.
+m) Reportar, a más tardar dentro del día hábil siguiente, la desaparición o extravío de cualquier accesorio, repuesto u otros implementos del vehículo. Los accesorios, repuestos y/o implementos perdidos por negligencia, descuido o imprudencia de la persona funcionaria conductora, deberán ser restituidos por ésta, en igualdad de condiciones y de calidad, en un plazo no mayor a quince días naturales posterior a su extravío o pérdida.
+n) Realizar la liquidación de facturas de gastos a través del sistema de solicitud de vehículos y aportar los comprobantes respectivos, de conformidad con lo establecido en el artículo 10 de este reglamento.
+o) Acatar las condiciones de seguridad y funcionamiento del vehículo bajo su responsabilidad.
+p) Mantener· buen comportamiento, respeto, honradez, sensatez, seguridad, espíritu de servicio y cuidado, en el cumplimiento de sus deberes.
+q) Guardar total discreción sobre los temas que se traten en los transportes.

@@ -1,0 +1,4 @@
+Artículo 22°- Lugares y/o caminos de difícil acceso o circulación
+Será responsabilidad de la persona funcionaria conductora, evaluar y decidir si el vehículo es apto para circular en un lugar o camino determinado, ya sea por ser de difícil acceso o por verificarse condiciones especiales que hacen difícil la circulación.
+Esta evaluación deberá realizarse considerando las condiciones del terreno, las características técnicas del vehículo, así como cualquier circunstancia que pueda afectar la seguridad y viabilidad del tránsito en dicho lugar ·o camino.
+Deberá dejarse constancia de ello incluyendo la fecha, hora, lugar condiciones observadas y la decisión tomada. Este registro deberá estar disponible para revisión por parte de la jefatura del Departamento de Servicios Generales, cuando sea requerido.
