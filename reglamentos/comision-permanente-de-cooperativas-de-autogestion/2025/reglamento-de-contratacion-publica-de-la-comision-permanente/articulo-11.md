@@ -1,0 +1,4 @@
+Artículo 11 Sistema de evaluación.
+En atención del principio del valor por el dinero, de la combinación de cláusulas de admisibilidad y de factores de evaluación se deberá asegurar la adquisición del mejor bien, obra o servicio, al menor precio conforme a lo previsto en el artículo 40 de la Ley General de Contratación Pública.
+En consecuencia, la oferta más conveniente será aquella que cumpla las condiciones de admisibilidad y obtenga la mejor evaluación, en el entendido de que, al fijar las condiciones de admisibilidad se deberá asegurar la calidad y funcionalidad del bien, obra o servicio licitado.
+El plazo de entrega, la capacidad financiera, u otros requisitos trascendentes de la contratación, incluidos aquellos vinculados con la contratación pública estratégica, deberán regularse, en principio, como condiciones de admisibilidad.

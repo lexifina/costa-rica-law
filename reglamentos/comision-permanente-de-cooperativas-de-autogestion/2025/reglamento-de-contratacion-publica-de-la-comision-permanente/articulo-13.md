@@ -1,0 +1,2 @@
+Artículo.13 Garantía de cumplimiento. La garantía de cumplimiento será exigible en todos los contratos producto, la cual se establecerá entre un cinco por ciento (5%) y un diez por ciento (10%) del monto de la adjudicación, conforme lo defina el pliego de condiciones y lo establecido en el artículo 44 de la Ley General de Contratación Pública
+En caso de que el pliego de condiciones no defina la exigencia de rendir garantía ni su porcentaje, se entenderá que deberá rendirse por el cinco por ciento (5%) del monto de la adjudicación.

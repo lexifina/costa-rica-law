@@ -1,0 +1,1 @@
+Artículo 2 Contenido presupuestario. Previo al inicio de un proceso de contratación, la Administración debe acreditar que cuenta con los recursos presupuestarios suficientes para enfrentar la erogación respectiva.

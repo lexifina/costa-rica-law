@@ -1,0 +1,3 @@
+Artículo.15 Acto final del procedimiento. El acto final del procedimiento debe encontrarse motivado y en él deberán constar las razones de la decisión, ya sea en su propio contenido o mediante la referencia a los criterios previos emitidos que le dan sustento a la misma.
+Cuando el pliego de condiciones se confeccione por líneas independientes, la Administración podrá adjudicar parcialmente las líneas a distintos oferentes, conforme a lo previsto en el artículo 104 de este Reglamento.
+Si la oferta ganadora del concurso presenta un precio menor al monto presupuestado, la Administración podrá adjudicar una mayor cantidad de bienes o servicios si la necesidad así lo justifica.

@@ -1,0 +1,2 @@
+Artículo 6 Compra con Fondos de Caja Chica. Se exceptúan de los procedimientos ordinarios las compras realizadas que sean para gastos menores, indispensables e impostergables, siempre que no excedan el diez por ciento (10%) del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios y deberán de cumplir con los aspectos establecidos en el Reglamento de Contratación Pública.
+Las compras a través de Caja Chica deberán quedar debidamente registradas en el sistema digital unificado.

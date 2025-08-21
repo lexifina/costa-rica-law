@@ -1,0 +1,1 @@
+Artículo 3 Promoción de la competencia. Para cumplir con el fin de propiciar la mayor competencia en los pliegos de condiciones solo podrán consignarse requisitos que resulten técnicamente procedentes, de manera que cualquier barrera de ingreso injustificada podrá ser objetada
