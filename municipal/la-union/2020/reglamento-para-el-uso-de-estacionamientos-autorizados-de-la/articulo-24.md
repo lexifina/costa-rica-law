@@ -1,3 +1,1 @@
-CAPÍTULO VII
-Otras disposiciones
-Artículo 24.—De los excedentes. Los ingresos percibidos por concepto de pago de Estacionamiento autorizado o Parquímetros, serán fuente de financiamiento de la Policía Municipal, tal y como lo establece el Código Municipal vigente según sus reformas a través de la Ley de Fortalecimiento de la Policía Municipal.
+Artículo 24.-De los distintivos. Serán distintivos y atributos del uniforme: En la parte frontal del uniforme llevará un bordado del logo del departamento. a) Un distintivo tipo carné que contendrá el logotipo de la Municipalidad de La Unión, y a la Unidad a la que pertenece, apellido, nombre y cédula. Así como una fotografía reciente. Este distintivo estará a la altura del pecho en el lado izquierdo. b) En el chaleco, tanto en la parte frontal como posterior se leerá la palabra "Control Vial".

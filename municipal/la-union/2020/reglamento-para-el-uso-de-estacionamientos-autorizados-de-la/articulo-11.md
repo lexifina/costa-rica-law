@@ -1,1 +1,1 @@
-Artículo 11.—De los vehículos de emergencia autorizados. Los vehículos de emergencia autorizados están exentos del pago del DDE siempre que se encuentren en labores de emergencia.
+Artículo 11.-De las bicicletas. Las bicicletas, están excluidas del pago del DDE, éstas deberán estacionarse en los espacios destinados para ello, siempre que existan.

@@ -1,1 +1,4 @@
-Artículo 26.—De conformidad con el artículo 171 del Código Municipal el administrado se encuentra en la facultad de interponer los recursos administrativos contra la multa que realicen los inspectores. En caso de Recurso de Revocatoria el jefe de los oficiales actuantes conocerá el recurso y el superior en grado de la apelación.
+CAPÍTULO VII
+Supervisión y control del sistema de estacionamiento
+de vehículos en las vías públicas
+Artículo 26.-Supervisión del sistema: La verificación y control del sistema será responsabilidad de la Municipalidad, mediante los delegados en el Departamento de parquímetros Municipales, los cuales vigilarán que se cumpla cabalmente con las normas del presente Reglamento y las leyes aplicables.

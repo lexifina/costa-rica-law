@@ -14,3 +14,4 @@ Reglamento para el uso de estacionamientos autorizados de la Municipalidad de La
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-26 | la propia norma |
+| 2 | 2025-08-21 | Reglamento municipal 102 (2025-08-21) |

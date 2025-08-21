@@ -1,1 +1,3 @@
-Artículo 25.—De la responsabilidad municipal por el hurto, sustracción o daños a vehículos. La seguridad del vehículo es de total y absoluta responsabilidad del propietario de este, razón por la cual la Municipalidad de La Unión queda eximida de toda responsabilidad por cualquier hurto, sustracción o daño causado a un vehículo durante la permanencia en zonas de estacionamiento autorizado regidas por este reglamento.
+CAPÍTULO VI
+De la jornada laboral
+Artículo 25.-De la Jornada Laboral. Los Inspectores de Control Vial de la Municipalidad de La Unión podrán laborar durante las tres jornadas laborales que se contemplan en el Código de Trabajo.

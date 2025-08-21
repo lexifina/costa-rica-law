@@ -1,1 +1,1 @@
-Artículo 10.—De las bicicletas. Las bicicletas, están excluidas del pago del DDE, éstas deberán estacionarse en los espacios destinados para ello, siempre que existan.
+Artículo 10.-De las motocicletas. Las motocicletas que se estacionen en el espacio dedicado a los estacionamientos autorizados, deberán pagar la misma tarifa que los vehículos de cuatro ruedas y quedan sujetas a las infracciones, multas y sanciones que dispone el presente reglamento.

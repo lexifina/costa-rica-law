@@ -1,1 +1,8 @@
-Artículo 2º—De la Ley de Instalación de Estacionómetros (Parquímetros). Para el mejor cumplimiento de la Ley N°-3580 “De Instalación de Estacionómetros (Parquímetros)”, la Municipalidad y la Dirección General de Tránsito (MOPT), tomarán las medidas pertinentes en estrecha y efectiva colaboración. Los Inspectores de Parquímetros estarán investidos de autoridad para las actuaciones oficiales al respecto de acuerdo a lo establecido en la Ley supracitada.
+Artículo 2º-Definiciones: Para los efectos de este reglamento se entenderá por:
+a) STPA: Sistema Tecnológico de Pago Autorizado.
+b) DDE: Derecho de Estacionamiento.
+c) Zona A o Céntrica: Área delimitada por la Municipalidad con alta densidad de tránsito y comercio.
+d)Zona B o No Céntrica: Área de menor densidad, delimitada técnicamente.
+e)Vehículo eléctrico: Vehículo impulsado exclusivamente por energía eléctrica.
+f) Adulto Mayor: Persona con 65 años o más.
+g) Conapdis: Consejo Nacional de Personas con Discapacidad.
