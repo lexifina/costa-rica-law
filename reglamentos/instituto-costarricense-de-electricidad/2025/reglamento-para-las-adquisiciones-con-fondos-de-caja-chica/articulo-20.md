@@ -1,0 +1,1 @@
+Artículo 20°. El Gestor de compras de cada dependencia solicitante debe conformar un expediente con la documentación que se genere de cada adquisición a fin de que esté disponible en caso de ser requerido por cualquier interesado.
