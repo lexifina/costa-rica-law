@@ -1,0 +1,1 @@
+Artículo 19º-Los dictámenes de Comisión serán incluidos en el Orden del Día, siguiendo el orden en que fueron presentados a la Secretaría del Concejo, para ese efecto, la Secretaría al recibir los dictámenes, consignará al pie de ellos, la hora y fecha de presentación.

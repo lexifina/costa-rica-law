@@ -1,0 +1,1 @@
+Artículo 45º-Dentro de las Comisiones Municipales Especiales están las que se establezcan para analizar, discutir y dictaminar sobre un tema o situación específica y/o especial. También están las Comisiones Municipales Especiales de Recolección de Información sobre Denuncias y/o Quejas que se presenten ante el Concejo Municipal.

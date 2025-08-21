@@ -1,0 +1,1 @@
+Artículo 47º-Toda Comisión Municipal deberá escoger de entre sus miembros y por mayoría absoluta un Presidente (a) y un Secretario (a) de Comisión. La respectiva Sesión Inicial de Instalación deberá celebrarse como máximo diez días hábiles posteriores al nombramiento de la respectiva Comisión.

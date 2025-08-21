@@ -1,0 +1,1 @@
+Artículo 20º-En el Artículo de Mociones de Regidores (as) y Síndicos (as), estos presentarán sus mociones y proposiciones por escrito y firmadas, la Secretaría del Concejo anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de una moción de orden.

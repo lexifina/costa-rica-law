@@ -1,0 +1,1 @@
+Artículo 12º-El Regidor (a) Suplente que sustituya a un Regidor (a) Propietario (a), tendrá derecho a permanecer durante toda la sesión municipal, como miembro del Concejo con voz y voto y el derecho a devengar la dieta respectiva.

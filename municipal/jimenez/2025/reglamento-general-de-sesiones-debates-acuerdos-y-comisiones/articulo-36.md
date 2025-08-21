@@ -1,0 +1,1 @@
+Artículo 36º-Presentada una moción de orden se concederá el uso de la palabra en primer término al proponente, si lo hubiese solicitado y luego se le concederá el uso de la palabra al resto de los miembros del Concejo Municipal que la soliciten, sin que puedan excederse más de cinco minutos en su intervención.

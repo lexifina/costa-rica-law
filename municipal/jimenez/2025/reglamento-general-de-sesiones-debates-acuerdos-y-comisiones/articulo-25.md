@@ -1,0 +1,1 @@
+Artículo 25º-La Presidencia Municipal no dará curso o declarará fuera de orden, las Mociones que evidentemente resultan improcedentes. Esta decisión de la Presidencia puede ser apelada por cualquier Regidor (a) ante el Concejo Municipal, el cual resolverá por mayoría simple de votos.

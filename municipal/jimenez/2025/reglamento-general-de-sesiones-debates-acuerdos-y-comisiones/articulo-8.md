@@ -1,0 +1,1 @@
+Artículo 8º- El quórum para las sesiones municipales, es de tres Regidores (as) Municipales. Ese número de Regidores (as) Municipales deberá encontrarse presente en el Salón de Sesiones Municipales, ocupando las respectivas curules al inicio de las sesiones, durante las deliberaciones y al efectuarse las votaciones.

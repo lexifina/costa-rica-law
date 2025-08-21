@@ -1,0 +1,1 @@
+Artículo 53º-Cualquier Regidor (a) Municipal o Síndico (a) Municipal Propietario o Suplente podrá asistir a cualquier Comisión Municipal con la facultad de poder expresar sus opiniones sobre el tema en discusión por la Comisión respectiva. En el entendido que el derecho al voto se reserva en forma exclusiva para los miembros de la Comisión Municipal respectiva.

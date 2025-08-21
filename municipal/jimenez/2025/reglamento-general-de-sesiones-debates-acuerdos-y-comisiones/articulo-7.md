@@ -1,0 +1,2 @@
+Artículo 7º- La convocatoria se notificará personalmente a los miembros del Concejo Municipal, en su casa de habitación o al correo electrónico suministrado para las notificaciones formales y correspondencia.
+En los casos de notificación personal o domiciliar, firmará la persona que reciba la notificación, debiendo la autoridad o el funcionario notificador hacerlo constar en el acta o libro de notificaciones. Dicha notificación también podrá realizarse por cualquier medio presentado por el orden jurídico.

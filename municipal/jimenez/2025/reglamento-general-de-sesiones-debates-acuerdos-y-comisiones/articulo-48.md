@@ -1,0 +1,1 @@
+Artículo 48º-Las Comisiones Municipales despacharán los asuntos a su cargo a la mayor brevedad posible. En todo caso, la Presidencia Municipal o el Concejo pueden establecerle un plazo determinado para dictaminar sobre un asunto en particular.

@@ -1,0 +1,1 @@
+Artículo 52º-Las funciones o alcances de las Comisiones Municipales Especiales y las de Recolección de Información de Denuncias y/o quejas se establecerán en su acuerdo de creación, del reglamento respectivo o por directrices de la Presidencia Municipal.

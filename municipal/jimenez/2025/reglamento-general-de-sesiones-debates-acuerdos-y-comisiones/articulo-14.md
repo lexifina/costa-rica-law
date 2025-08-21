@@ -1,0 +1,1 @@
+Artículo 14º-Las sesiones ordinarias del Concejo se desarrollarán conforme al "Orden del Día", previamente elaborado por la Presidencia Municipal, el cual podrá ser modificado o alterado mediante moción de orden aprobada por el Concejo Municipal, por el voto de las dos terceras partes de los Regidores (as) presentes.

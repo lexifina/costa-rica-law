@@ -1,0 +1,1 @@
+Artículo 35º-Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias debe ser presentada o acogida para su trámite respectivo por algún Regidor (a) o el Alcalde (sa) Municipal y enviada a la Comisión correspondiente para su estudio y dictamen, según el procedimiento establecido en el artículo Nº 43 del Código Municipal vigente.

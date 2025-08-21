@@ -1,0 +1,1 @@
+Artículo 69º-Los Síndicos (as) Municipales sean Propietarios y Suplentes podrán presentar mociones ante el plenario del Concejo Municipal, siempre y cuando las mismas sean acogidas por uno o varios Regidores (as) Municipales.

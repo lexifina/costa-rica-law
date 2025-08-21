@@ -1,0 +1,1 @@
+Artículo 31º-Cuando un Regidor (a) y/o Síndico (a) Propietario o Suplente se ausente del Salón de Sesiones por un lapso mayor de 15 minutos, con o sin permiso de la Presidencia Municipal perderá la dieta respectiva, exceptuándose los casos especiales y claramente justificados por la Presidencia Municipal o por el propio Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 64º-Los particulares e invitados deberán iniciar sus intervenciones en el plenario del Concejo Municipal con las siguientes palabras: "Señor (a) Presidente (a) Municipal, señores (as) Regidores, Señores (as) Síndicos y Señor (a) Alcalde (sa)". Al terminar sus intervenciones lo harán con las siguientes palabras "Gracias Señor (a) Presidente (a) Municipal".

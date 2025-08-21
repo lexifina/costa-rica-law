@@ -1,0 +1,1 @@
+Artículo 60º-La Secretaría Municipal remitirá a la Presidencia Municipal, en orden de presentación las solicitudes de los particulares, la Presidencia Municipal dará trámite a las peticiones formuladas, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que considere pertinentes.

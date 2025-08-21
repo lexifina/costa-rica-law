@@ -1,0 +1,1 @@
+Artículo 44º-Se establecen dos tipos de Comisiones Municipales, las Permanentes u Ordinarias y las Especiales que se decidan crear por acuerdo del Concejo Municipal. Todo según lo regulado en el Artículo 41 del presente Reglamento y el Artículo 49 del Código Municipal vigente.

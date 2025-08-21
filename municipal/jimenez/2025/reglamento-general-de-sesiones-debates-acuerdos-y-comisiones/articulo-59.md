@@ -1,0 +1,1 @@
+Artículo 59º-Cuando el objetivo de la audiencia fuere un asunto de competencia del Alcalde (sa), la Presidencia Municipal solicitará al Concejo vía acuerdo municipal la remisión del memorial presentado a dicho funcionario (a) municipal, para que este le dé el trámite correspondiente, informando de este acuerdo a los interesados.

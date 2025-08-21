@@ -1,0 +1,1 @@
+Artículo 57º-Las ausencias temporales de un Presidente (a) de una Comisión Municipal Permanente o Especial serán cubiertas por el Regidor (a) o Sindico (a) de mayor edad y que sea miembro oficial de la Comisión Municipal Respectiva.

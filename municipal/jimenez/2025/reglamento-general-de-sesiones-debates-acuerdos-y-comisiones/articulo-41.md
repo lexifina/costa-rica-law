@@ -1,0 +1,1 @@
+Artículo 41º-Los acuerdos tomados por el Concejo quedarán en firme al aprobarse el acta respectiva. En casos especiales, el Concejo Municipal por votación mínima de las dos terceras partes de la totalidad de sus miembros, podrá declarar definitivamente aprobados sus acuerdos, considerando lo establecido por el artículo Nº 45 del Código Municipal vigente.
