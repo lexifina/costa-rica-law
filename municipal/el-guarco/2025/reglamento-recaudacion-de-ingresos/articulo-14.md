@@ -1,0 +1,1 @@
+Artículo 14: En caso de algún dato incorrecto el contribuyente debe indicar en ese momento el error. Y solicitar el procedimiento que corresponda. Este procedimiento de reversión debe quedar documentado.

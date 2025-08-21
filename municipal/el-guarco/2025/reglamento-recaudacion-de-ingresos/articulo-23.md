@@ -1,0 +1,1 @@
+Artículo 23: Los plataformistas y el Coordinador de la Plataforma, serán responsables por el buen funcionamiento de esta área en cumplimiento con la normativa, así como los plataformistas de las labores que realizan.

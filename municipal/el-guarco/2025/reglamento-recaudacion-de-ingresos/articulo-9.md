@@ -1,0 +1,1 @@
+Artículo 09: El (la) encargado (a) del Proceso de Plataforma, así como el (la) la gestora administrativo-financiera, practicarán arqueos aleatorios a las cajas recaudadoras, para lo cual se generará un cierre parcial por medio del sistema establecido al efecto de verificar el correcto funcionamiento de estas, como parte del sistema de Control Interno Institucional.

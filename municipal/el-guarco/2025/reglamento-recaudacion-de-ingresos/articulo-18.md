@@ -1,0 +1,1 @@
+Artículo 18: Para pago por modalidad sinpe el único número que se puede facilitar a un contribuyente para un pago de Tributos Municipales es el número de teléfono 8674-7065 que pertenece a la Municipalidad El Guarco, bajo ningún argumento se justifica facilitar otro número a excepción de un comunicado administrativo que indique un cambio en el número telefónico.

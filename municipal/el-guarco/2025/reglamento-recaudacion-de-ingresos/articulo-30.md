@@ -1,0 +1,1 @@
+Artículo 30: Cada Caja recaudadora municipal, contará con una caja de seguridad que cumpla con las especificaciones para garantizar la custodia del dinero, la caja será proveída por la Municipalidad de El Guarco. Una vez que el plataformista recibe los valores deberá registrarlos de manera inmediata en su caja de seguridad.

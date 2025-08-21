@@ -1,0 +1,1 @@
+Artículo 29: Las cajas recaudadoras estarán ubicadas en edificios o instalaciones de la Municipalidad de El Guarco, o en lugares que establezca la Municipalidad previo convenio o contrato que respalde los intereses Institucionales, atendiendo a razones de seguridad, conveniencia, accesibilidad.

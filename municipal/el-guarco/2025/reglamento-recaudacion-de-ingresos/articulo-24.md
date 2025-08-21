@@ -1,0 +1,1 @@
+Artículo 24: En el evento de que la recaudación supere el 50% de la Póliza de Fidelidad antes de la hora fijada para el cierre diario, los Plataformistas deberán hacer el corte, entregarlos al Coordinador para su resguardo en la caja fuerte de la Plataforma de Servicios.

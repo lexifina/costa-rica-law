@@ -1,0 +1,1 @@
+Artículo 20: Cada plataformista y la caja recaudadora suplente cuenta con un fondo fijo de ¢50.000 en efectivo y un fondo general por ¢200.000 en efectivo. El monto del fondo fijo y fondo general se fijará de acuerdo con disposiciones internas el cual podrá ser modificado según las necesidades de la institución, según directriz de la administración (alcaldía)

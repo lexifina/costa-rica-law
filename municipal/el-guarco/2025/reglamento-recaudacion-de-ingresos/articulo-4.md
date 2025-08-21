@@ -1,0 +1,1 @@
+Artículo 04: Los Plataformistas deben atender al cliente, emitir el recibo original y copia, recaudar, verificar montos, verificar el consecutivo numérico del comprobante, sellar y entregar original al cliente.

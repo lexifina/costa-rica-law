@@ -1,0 +1,1 @@
+Artículo 33: Los funcionarios autorizados para emitir estados de cuenta deben guardar copia (física o digital) del mismo y remitirlo al contribuyente con copia al proceso de Plataforma, de forma que quede evidencia de lo realizado y no se presenten diferencias.

@@ -1,0 +1,1 @@
+Artículo 07: El Coordinador de Plataforma genera mediante el sistema interno el resumen diario de Ingreso por concepto, lo imprime, lo verifica con lo emitido por el responsable de cierre y una vez verificado lo firma y sella.

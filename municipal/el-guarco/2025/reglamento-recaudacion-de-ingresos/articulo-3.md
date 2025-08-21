@@ -1,0 +1,1 @@
+Artículo 03: La Plataforma de Servicios y por tanto las cajas recaudadoras deberán estar habilitadas de lunes a viernes de 7:30 a.m.; hasta las 3:30pm en jornada ordinaria, no obstante, este horario podrá ser modificado o ampliado según las necesidades de la institución, lo cual será informado previamente tanto internamente como a la población en general.
