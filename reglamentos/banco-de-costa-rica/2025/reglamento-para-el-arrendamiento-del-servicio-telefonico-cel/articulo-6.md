@@ -1,0 +1,2 @@
+Artículo 6.
+La Gerencia de Área Gestión Integral de Capital Humano debe proceder a la suscripción del contrato de arrendamiento con el Banco, verificando que se consignen las firmas correspondientes y se debe dejar en custodia el original. Una vez suscrito este contrato, se debe incluir a la persona trabajadora en el sistema de arrendamiento, lo que debe ser requisito indispensable para realizar los pagos futuros del monto correspondiente a la tarifa básica mensual del servicio de telefonía celular más el impuesto de ventas sobre esa suma.

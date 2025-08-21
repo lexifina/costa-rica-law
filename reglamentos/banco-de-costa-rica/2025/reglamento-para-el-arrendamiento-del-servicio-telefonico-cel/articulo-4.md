@@ -1,0 +1,2 @@
+Artículo 4.
+El superior jerárquico interesado en incluir en este sistema a alguna persona trabajadora a su cargo, lo debe solicitar por escrito al gerente corporativo o subgerente general correspondiente, señalando las razones por la cuales considera necesario, oportuno y conveniente para el Banco, el arrendamiento del servicio telefónico celular a esta. No obstante, ninguna persona trabajadora debe estar obligada a suscribirse al sistema de arrendamiento de celular.

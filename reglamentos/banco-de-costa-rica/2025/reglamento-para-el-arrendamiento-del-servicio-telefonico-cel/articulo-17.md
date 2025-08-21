@@ -1,0 +1,4 @@
+Artículo 17.
+El Banco, a su discreción y en forma unilateral podrá suspender temporalmente o dar por finalizado el arrendamiento del servicio y el pago del equivalente a la tarifa básica celular; cuando considere que ya no se requiere de este servicio, por haber variado las condiciones que mediaron para su autorización o bien, por presentarse incumplimientos de las obligaciones establecidas en este reglamento, en el contrato suscrito o bien ante cualquier otra situación a considerar, según el caso específico.
+La suspensión o la finalización del arrendamiento se debe comunicar por escrito a la persona trabajadora con al menos un mes de antelación.
+La persona trabajadora tiene derecho, en caso de que lo considere conveniente a sus intereses, suspender temporalmente o dar por finalizado el arrendamiento del teléfono celular comunicando su decisión al Banco con al menos un mes de antelación.

@@ -1,0 +1,2 @@
+Artículo 16.
+En ningún caso el pago del monto correspondiente a la tarifa básica celular debe ser considerado como salario en especie, ni se debe tener como un derecho adquirido o una situación jurídica consolidada, que obligue al Banco a mantener el arrendamiento o genere derecho a indemnización alguna a favor de la persona trabajadora debido a que dicho pago se realiza para el correcto desempeño de sus funciones.
