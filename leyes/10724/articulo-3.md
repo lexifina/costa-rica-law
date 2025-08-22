@@ -1,0 +1,1 @@
+ARTÍCULO 3- Disposiciones transitorias estratégicas de interés nacional Se declara de interés nacional la elaboración, la implementación y la divulgación de medidas a favor de las mujeres rurales, en el entendido de que existen amplias brechas de género en el acceso, uso y control de la tierra, y así se reconoce en esta ley.
