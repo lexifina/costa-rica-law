@@ -1,0 +1,14 @@
+Artículo 14. - Funciones de las UPI o el personal o la Unidad Organizacional que la persona Jerarca Institucional designe como responsable de la coordinación de los temas de inversión pública. Las UPI o el personal o las unidades organizacionales designadas como responsables de la coordinación de los temas de inversión pública a nivel institucional, tendrán las siguientes funciones:
+a) Fomentar la capacitación del capital humano institucional en gestión de proyectos a lo largo de todo su ciclo de vida.
+b) Vigilar la correcta aplicación de las Normas Técnicas de Inversión Pública.
+c) Coordinar y participar en el proceso de identificación, formulación y evaluación de los proyectos de inversión pública, a solicitud de la persona Jerarca Institucional.
+d) Realizar las gestiones internas para la elaboración, planificación, ejecución y seguimiento del portafolio de inversión pública.
+e) Verificar el cumplimiento de los requerimientos para la correcta gestión del ciclo de vida de cada uno de los proyectos que les aplique el proceso simplificado.
+f) Coordinar con las Secretarías Sectoriales la obtención del aval sectorial en la etapa de perfil con que se inscribe el proyecto en el BPIP, así como para la última etapa de preinversión que se realice antes de iniciar la fase de inversión, cuando el monto de inversión es igual o mayor a los definidos para licitaciones mayores ya sea de obra pública o de bienes y servicios, según el alcance del proyecto en la normativa de contratación pública.
+g) Coordinar la inscripción de los proyectos en el BPIP a partir de la etapa de perfil, según prioridades institucionales.
+h) Coordinar las actualizaciones de los proyectos en el BPIP según su ciclo de vida, para garantizar que la información sea de calidad, oportuna y confiable.
+i) Coordinar la presentación del plan de gestión de la ejecución del proyecto, antes de iniciar la etapa de ejecución física y financiera, cuando corresponda.
+j) Velar para que se realice el seguimiento físico y financiero de los programas y proyectos de inversión pública.
+k) Realizar las gestiones necesarias, a lo interno de la institución, para presentar el informe de cierre de la etapa de ejecución física y financiera de los proyectos a MIDEPLAN y a la persona Ministra Rectora, cuando corresponda; así como para la coordinación en la elaboración de los instrumentos requeridos para la respectiva operación y mantenimiento de los proyectos de inversión de acuerdo a su periodo de vida útil.
+l) Coordinar a lo interno de la institución el proceso de evaluación durante, final y ex post de los programas y proyectos de inversión pública seleccionados según las necesidades institucionales. En los casos que corresponda, coordinar estos procesos con la Secretaría Sectorial o el personal o unidad organizacional designado.
+m) Apoyar y asesorar a las personas Jerarcas Institucionales en la toma de decisiones en temas de inversión pública.

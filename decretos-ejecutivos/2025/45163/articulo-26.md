@@ -1,0 +1,5 @@
+CAPÍTULO VI
+GESTIÓN DE LA INVERSIÓN PÚBLICA
+Artículo 26. - Formulación de los proyectos de inversión por parte de los órganos, entes e instituciones promotoras. La formulación de las iniciativas de inversión debe realizarse conforme a los instrumentos, las metodologías y los parámetros de formulación que emita MIDEPLAN, de acuerdo con la etapa a desarrollar y el tipo de proyecto.
+Los estudios de preinversión deben considerar lo establecido por las Normas Técnicas de Inversión Pública, las guías y demás instrumentos relacionados con el ciclo de vida del proyecto establecidos por MIDEPLAN. Los requerimientos mínimos por tipo de proyecto se desglosan en las Normas Técnicas de Inversión Pública.
+Las entidades indicadas en el artículo 4 de la LSNIP, deben formular sus proyectos, conforme a los principios generales de dicha Ley, las fases del ciclo de vida del proyecto, las buenas prácticas reconocidas internacionalmente en temas de inversión pública y lo que establezca su normativa interna.
