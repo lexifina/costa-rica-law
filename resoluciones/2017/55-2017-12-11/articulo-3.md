@@ -1,1 +1,0 @@
-Artículo 3º—Las sumas retenidas serán consideradas como un pago a cuenta del Impuesto sobre la Renta que le corresponda cancelar al contribuyente, quien podrá solicitar la compensación con los pagos parciales correspondientes al período fiscal en que se efectúa la retención.

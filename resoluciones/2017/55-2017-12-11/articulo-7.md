@@ -1,1 +1,0 @@
-Artículo 7º—A partir de la entrada en vigencia de esta resolución, no se aplicará a las empresas aseguradoras la resolución de esta Dirección Nº DGT-R-035-2014 de las ocho horas cinco minutos del dieciocho de agosto del dos mil catorce, publicada en La Gaceta Nº 162 del 25 de agosto del 2014.
