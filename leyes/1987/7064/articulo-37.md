@@ -11,4 +11,7 @@ ch) Proponer las normas y los procedimientos de trabajo para la coordinación, p
 d) Coordinar los planes, programas y proyectos que presenten las instituciones involucradas en las actividades agropecuarias.
 (Así reformado por el artículo 16 de la Ley Nº 7152 de 5 de junio de 1990).
 e) Sugerir la formación de grupos de trabajo para la atención de problemas específicos.
-f) En general, proponer todas aquellas medidas conducentes a alcanzar el mejor funcionamiento del Sector.
+f) Promover el acceso de las mujeres a la tierra y demás activos productivos, incluida la asistencia técnica y servicios de extensión, para desarrollar actividades productivas sostenibles por medio de procesos simplificados, para el logro de la igualdad y las garantías relacionadas con la dignidad humana sin ninguna discriminación.
+(Así reformado el inciso anterior por el artículo 8° de la Ley para el acceso, uso y control de la tierra por parte de las mujeres, para aumentar el empleo en actividades con sistemas productivos bajos en carbono, conservación y forestales, N° 10724 del 13 de mayo del 2025)
+g) En general, proponer todas aquellas medidas conducentes a alcanzar el mejor funcionamiento del sector y, de forma prioritaria, mejorar las habilidades, las oportunidades y la dignidad de las personas que se encuentran en situación de discriminación y vulnerabilidad social.
+(Así adicionado el inciso anterior por el artículo 8° de la Ley para el acceso, uso y control de la tierra por parte de las mujeres, para aumentar el empleo en actividades con sistemas productivos bajos en carbono, conservación y forestales, N° 10724 del 13 de mayo del 2025)
