@@ -1,0 +1,2 @@
+Artículo 42. - Entrenamiento y capacitación del personal.
+El personal del CECUDI deberá recibir capacitación continua en temas relacionados con el desarrollo infantil, la atención educativa, la seguridad y salud, así como en el uso de nuevas tecnologías o metodologías que sean aplicables al ámbito educativo. La capacitación deberá ser proporcionada de acuerdo a las necesidades identificadas en las evaluaciones anuales y en los objetivos estratégicos del CECUDI.

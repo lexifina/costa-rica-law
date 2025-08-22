@@ -1,0 +1,1 @@
+Artículo 15-Mecanismos de Asistencia: El Centro establecerá un mecanismo de control de la asistencia de las personas menores de edad que asisten al Centro y el mismo indicará la instancia responsable para aplicarlo. Dicho mecanismo debe contener como mínimo el nombre del menor de edad, la hora de entrada al centro, la hora de salida del centro.

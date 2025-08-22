@@ -1,0 +1,2 @@
+Artículo 10º-Horario del CECUDI: El horario de atención para la población beneficiada será de al menos 10 horas diarias. De las 7 am hasta las 5:00 pm, durante los días hábiles de la semana. Cada Centro podrá modificar dicho horario, siempre y cuando la efectividad del servicio no se vea afectada.
+Se excluyen de servicio los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
