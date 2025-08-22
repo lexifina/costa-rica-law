@@ -1,2 +1,3 @@
-ARTÍCULO 61.- Asignación colectiva
-La asignación colectiva a las personas jurídicas se hará cuando se cumplan los requisitos establecidos en el artículo 46 de esta ley y se trate de organizaciones productivas o de servicios, dando prioridad a las cooperativas y a las organizaciones sociales de base y de integración.
+Artículo 61- Asignación colectiva
+La asignación colectiva a las personas jurídicas se hará cuando se cumplan los requisitos establecidos en el artículo 46 de esta ley y se trate de organizaciones productivas o de servicios, dando prioridad a las cooperativas y asociaciones de mujeres y a las organizaciones de segundo grado constituidas mayoritariamente por mujeres.
+(Así reformado por el artículo 6° de la Ley para el acceso, uso y control de la tierra por parte de las mujeres, para aumentar el empleo en actividades con sistemas productivos bajos en carbono, conservación y forestales, N° 10724 del 13 de mayo del 2025)

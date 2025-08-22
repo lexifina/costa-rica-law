@@ -1,0 +1,10 @@
+ARTÍCULO 8- Refórmese el inciso f) y adiciónese el inciso g) al artículo 37; refórmese el inciso a) y adiciónense los incisos d) y e) al artículo 41 de la Ley 7064, Ley de Fomento a la Producción Agropecuaria, de 29 de abril de 1987.
+Artículo 37- Las funciones del Consejo Nacional Sectorial Agropecuario son las siguientes:
+( ... )
+f) Promover el acceso de las mujeres a la tierra y demás activos productivos, incluida la asistencia técnica y servicios de extensión, para desarrollar actividades productivas sostenibles por medio de procesos simplificados, para el logro de la igualdad y las garantías relacionadas con la dignidad humana sin ninguna discriminación.
+g) En general, proponer todas aquellas medidas conducentes a alcanzar el mejor funcionamiento del sector y, de forma prioritaria, mejorar las habilidades, las oportunidades y la dignidad de las personas que se encuentran en situación de discriminación y vulnerabilidad social.
+Artículo 41- A la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria le corresponderá especialmente:
+a) Elaborar el proyecto del Plan Nacional de Desarrollo Agropecuario, con base en el Plan Nacional de Desarrollo preparado por el Ministerio de Planificación Nacional y Política Económica (Mideplán), garantizando, de forma efectiva, el acceso equitativo de las mujeres y los hombres a la tierra y demás activos productivos, incluyendo la asistencia técnica y los servicios de extensión, para desarrollar actividades productivas sostenibles por medio de procesos simplificados, para el logro de la igualdad de género y las garantías relacionadas con la dignidad humana sin ninguna discriminación.
+( ... )
+d) Generar los datos de tenencia de tierra, actividades productivas, asistencia técnico-financiera, acceso a crédito y demás acciones de fomento, desagregados por género.
+e) Preparar las consultas y solicitudes de información en materia agropecuaria y de género, necesarias para la toma de decisiones y la efectiva reducción de brechas, a efectos de que estas sean incluidas dentro del diseño estadístico del Censo Nacional Agrario y de las estadísticas agropecuarias en general.
