@@ -20,3 +20,4 @@ Uso Obligatorio de los servicios electrónicos de Tributación Digital
 | 5 | 2025-07-08 | Resolución 22 (2025-07-08) |
 | 6 | 2025-07-14 | Resolución 30 (2025-07-14) |
 | 7 | 2025-07-22 | Resolución 38 (2025-07-22) |
+| 8 | 2025-08-22 | Resolución 42 (2025-08-22) |
