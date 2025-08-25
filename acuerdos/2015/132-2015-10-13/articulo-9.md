@@ -1,5 +1,0 @@
-Artículo 9°—En materia de respuesta a emergencias, son deberes de todos los funcionarios del Ministerio de Seguridad Pública:
-a) Mantener una actitud vigilante que permita identificar, reportar y corregir condiciones por debajo del estándar, en cuanto a la prevención y atención de emergencias.
-b) Conocer y actuar de acuerdo con los protocolos y lineamientos institucionales que establecen el procedimiento ante los diferentes tipos de emergencias.
-c) Participar de una manera comprometida y constructiva de los ejercicios que se realicen con el objetivo de preparar o instruir a la población en materia de actuación ante emergencias.
-d) Durante una emergencia actuar sobre el siguiente orden de prioridad: salvaguardar la vida humana, evitar el impacto ambiental y resguardar el patrimonio Institucional.
