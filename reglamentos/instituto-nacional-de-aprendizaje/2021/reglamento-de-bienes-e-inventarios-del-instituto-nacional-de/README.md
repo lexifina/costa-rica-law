@@ -15,3 +15,4 @@ Reglamento de bienes e inventarios del Instituto Nacional de Aprendizaje
 | --- | --- | --- |
 | 1 | 2021-05-18 | la propia norma |
 | 2 | 2022-02-28 | Reglamento 11 (2022-02-28) |
+| 3 | 2025-08-25 | Reglamento 25 (2025-08-25) |
