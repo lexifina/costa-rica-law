@@ -1,0 +1,2 @@
+ARTÍCULO V - EFECTIVIDAD; TERMINACIÓN
+5.01. La Condición Adicional de Efectividad consiste en lo siguiente, específicamente, que el Banco está satisfecho con el progreso logrado por el Prestatario en poner en práctica el Programa y con la idoneidad del marco de política macroeconómica del Prestatario. 5.02. La fecha límite de la efectividad es la fecha de ciento veinte (120) días posteriores a la Fecha de la Firma.
