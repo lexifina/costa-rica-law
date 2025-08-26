@@ -1,1 +1,0 @@
-Artículo 11.—El Tribunal sesionará ordinariamente al menos una vez por cada cuatrimestre y en forma extraordinaria cuando así lo convoque la Presidencia, o a solicitud de dos de sus integrantes. Durante la tramitación de un proceso sesionarán las veces que sean necesarias.

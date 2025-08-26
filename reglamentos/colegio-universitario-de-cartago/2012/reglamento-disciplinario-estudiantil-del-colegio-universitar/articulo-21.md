@@ -1,1 +1,0 @@
-Artículo 21.—La falta de antecedentes disciplinarios y el buen rendimiento del estudiante serán tomados en cuenta como atenuante de cualquier sanción, dentro de los márgenes establecidos por este reglamento.

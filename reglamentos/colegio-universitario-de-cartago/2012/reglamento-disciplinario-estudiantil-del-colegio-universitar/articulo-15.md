@@ -1,1 +1,0 @@
-Artículo 15.—El Tribunal contará con un local apropiado para llevar a cabo sus sesiones, así como para las audiencias orales y privadas. Esta se debe realizar únicamente en las instalaciones del Campus del Colegio Universitario de Cartago, en Barrio El Molino, salvo que el mismo Tribunal en resolución razonada y para mejor resolver, determine realizarlas en otro sitio adecuado.
