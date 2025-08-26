@@ -1,0 +1,3 @@
+Artículo 29. Plazo para la exclusión de asegurados
+Si por algún motivo el Tomador del seguro requiere excluir un trabajador con el que ha finalizado su relación laboral, dicha exclusión se deberá realizar a través del reporte de la planilla correspondiente indicando los días laborados y el salario devengado para ese periodo, además de indicarlo en las observaciones del reporte de la planilla.
+Para el periodo inmediato siguiente de planilla, el tomador únicamente deberá eliminar al trabajador excluido del reporte.

@@ -1,0 +1,2 @@
+Artículo 16. Recargos a la prima
+En aplicación de lo que establece el artículo 215 del Código de Trabajo, el INS podrá recargar hasta en un 50% el monto de prima, conforme a los términos y condiciones definidos en el capítulo VIII de esta Norma Técnica.

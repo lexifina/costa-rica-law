@@ -1,0 +1,4 @@
+Artículo 27. Suspensión temporal de los trabajos
+Si durante el período de vigencia de la póliza se presenta una interrupción en los trabajos que motive la suspensión temporal de los mismos, el Tomador del seguro deberá declarar una planilla sin actividad (sin detalle de trabajadores) durante el período de interrupción, con el objetivo de que no consuma prima y el INS no aplique el procedimiento de sustitución de planillas conforme lo definido en el siguiente artículo.
+Será suficiente que el Tomador del seguro incluya nuevamente los trabajadores asegurados en la planilla, para que el seguro se reactive de forma automática.
+Si la póliza es de período corto y/o el Tomador del seguro está exonerado de la presentación de planillas, deberá informar por escrito al INS el período durante el cual se presentó la interrupción en los trabajos, a efecto de proceder con el trámite de extensión de vigencia de la póliza definido en las Condiciones Generales del seguro.
