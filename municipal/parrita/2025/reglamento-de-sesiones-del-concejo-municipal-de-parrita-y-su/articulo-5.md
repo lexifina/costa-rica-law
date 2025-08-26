@@ -1,0 +1,1 @@
+Artículo 5°- Los Regidores que no son miembros de una determinada Comisión, podrán asistir a ella con voz pero sin voto, con los mismos tiempos reglamentarios de intervención en los asuntos que se discuten.

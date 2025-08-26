@@ -1,0 +1,2 @@
+Artículo 59. - El quórum de las comisiones compuestas por tres miembros lo constituirá al menos dos regidores. Se controlará la asistencia de los miembros a las Comisiones, por medio de una hoja hecha expresamente para el caso las cuales se archivarán en la Secretaría Municipal.
+Las sesiones de las Comisiones deberán iniciarse dentro de los quince minutos siguientes a la hora fijada y deberán ser transmitidas por medios tecnológicos en vivo o de forma diferida dentro de un plazo no mayor a tres días hábiles posterior a que se celebre la misma.

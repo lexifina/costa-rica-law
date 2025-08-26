@@ -1,0 +1,4 @@
+SECCIÓN VIII
+De las votaciones
+Artículo 30 . - Al dar por discutido un asunto, la presidencia del Concejo dará un término prudencial para recibir la votación correspondiente, procurando que esta se realice cuando todos los regidores estén en sus curules. Los regidores deberán dar su voto necesariamente en sentido afirmativo o negativo. La votación de los acuerdos podrá hacerse en forma razonada y constar en actas, cuando algún regidor así lo solicite a la Presidencia una vez que se haya terminado el proceso de votación.
+El Regidor que razone su voto deberá circunscribirse al tema objeto de la votación y no podrá emplear más de cinco minutos en esa intervención. Al finalizar la votación el presidente deberá anunciar el resultado de la votación, indicando, para que conste en actas si la iniciativa fue aprobada o rechazada y deberá hacer mención del nombre y/o apellido de los regidores a favor y de los regidores en contra del asunto sometido a votación.

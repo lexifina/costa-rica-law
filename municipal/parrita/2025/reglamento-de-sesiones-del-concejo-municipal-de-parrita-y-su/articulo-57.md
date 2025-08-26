@@ -1,0 +1,1 @@
+Artículo 57. - El Concejo por acuerdo de mayoría calificada podrá pasar los dictámenes de Comisión a conocimiento de otra Comisión o podrá crear una Comisión Especial, designada por el concejo municipal para que se pronuncie por una segunda vez sobre el caso concreto.

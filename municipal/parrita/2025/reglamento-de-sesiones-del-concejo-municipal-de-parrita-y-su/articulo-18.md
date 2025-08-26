@@ -1,0 +1,3 @@
+SECCIÓN V
+De la naturaleza de las sesiones
+Artículo 18. - Las sesiones del Concejo serán públicas, entendiéndose como públicas, también las sesiones que se transmitan por los distintos medios de comunicación electrónicos en vivo o en forma diferida. La atención al público en una sesión solo se brindará mediante audiencias previamente acordadas por mayoría absoluta del Concejo, para lo cual la o las personas interesadas deberán presentar una solicitud de audiencia mediante correo electrónico o de forma física ante secretaría del Concejo, la cual será conocida y agendada mediante acuerdo del Concejo en la sesión ordinaria inmediata siguiente a su presentación.

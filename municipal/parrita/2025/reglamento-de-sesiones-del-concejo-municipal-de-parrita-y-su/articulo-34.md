@@ -1,0 +1,5 @@
+SECCIÓN X
+De la intervención de particulares
+Artículo 34. - Toda persona o grupo organizado de vecinos de la comunidad que tengainterés en los asuntos de la Municipalidad del cantón, podrá solicitar audiencia al Concejo.Para tal efecto deberá presentar a la Secretaría Municipal solicitud escrita con exposición de los motivos que fundamenta su petición indicando un correo electrónico para notificaciones. Esta solicitud de audiencia se incorporará en el orden del día de la sesión inmediatamente posterior a su presentación, siempre y cuando la misma haya sido presentada al menos 45 horas antes de dicha sesión.
+Una vez tramitada la solicitud de audiencia, el Concejo municipal asignará por acuerdo de mayoría absoluta la fecha en que será escuchado el compareciente y notificará al interesado por medio de la secretaría del Concejo municipal.
+En cuanto al tiempo de la intervención de particulares se asignará un tiempo no mayor a cinco minutos, con derecho a dos intervenciones adicionales sobre el mismo asunto por hasta tres minutos cada una; cuando las audiencias sean grupales no podrán intervenir más de dos personas sobre el mismo asunto.

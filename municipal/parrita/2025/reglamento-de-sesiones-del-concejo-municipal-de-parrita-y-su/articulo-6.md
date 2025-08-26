@@ -1,0 +1,6 @@
+CAPÍTULO III
+De las sesiones del Concejo Municipal
+SECCIÓN I Sobre la celebración de las sesiones del
+Concejo Municipal
+Artículo 6°- De las sesiones ordinarias. El Concejo Municipal llevará a cabo la sesión ordinaria correspondiente, en el local sede de la Municipalidad de Parrita, salvo lo que establece el artículo siete de este Reglamento.
+Mediante acuerdo tomado por mayoría absoluta se determinará la hora y día de sus sesiones. Para que empiece a regir el horario, previamente será publicado en el Diario Oficial "La Gaceta". El Concejo realizará como mínimo una sesión ordinaria semanal y las extraordinarias que sean convocadas de conformidad con la ley. Sin embargo, solo se pagará a los regidores el monto de la dieta correspondiente a una sesión ordinaria por semana y dos sesiones extraordinarias por mes calendario. La sesión municipal sea ordinaria o extraordinaria, no podrá extenderse en tiempo por más de tres horas, por lo que la agenda deberá de ajustarse a dicho tiempo estrictamente. En el caso de que al cumplirse ese término no se hubiere podido abordar todos los temas del orden del día, los asuntos pendientes se trasladarán con prioridad a la sesión ordinaria siguiente, o a una sesión extraordinaria si así lo acordare el Concejo Municipal.

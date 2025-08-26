@@ -1,0 +1,1 @@
+Artículo 33. - Los acuerdos tomados por el Concejo quedarán firmes al aprobarse el acta respectiva. Sin embargo, por votación de las dos terceras partes de la totalidad de los miembros, el Concejo podrá declarar sus acuerdos como definitivamente aprobados.

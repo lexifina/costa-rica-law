@@ -1,0 +1,3 @@
+CAPITULO IV
+Del Régimen de Impugnación contra los Acuerdos Municipales
+Artículo 40. - Del recurso de reconsideración. Los Regidores del Concejo Municipal podrán interponer en la misma sesión en que se adopte un acuerdo un recurso de reconsideración por una única vez sobre determinado acuerdo, siempre y cuando este no haya sido aprobado en firme, (entendiéndose este como un recurso de revisión presentado en la misma sesión en que se tomó el acuerdo respectivo), el cual se admitirá por resolución de presidencia. Admitida la reconsideración, el presidente pondrá en discusión el asunto a que se refiere el acuerdo y después de considerarse suficientemente discutido, se someterá a votación el recurso.

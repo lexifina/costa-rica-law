@@ -1,0 +1,1 @@
+Artículo 48. - Una vez que el Concejo haya aprobado las actas, deberán ser firmadas por el presidente municipal y el secretario, y se publicarán digitalmente en la página oficial de internet de la municipalidad.

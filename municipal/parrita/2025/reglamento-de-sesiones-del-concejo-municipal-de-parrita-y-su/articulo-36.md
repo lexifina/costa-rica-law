@@ -1,0 +1,1 @@
+Artículo 36. - Corresponde a la Secretaría notificar, oportunamente a los interesados, los acuerdos, así como las audiencias que acuerde el Concejo y la notificación de los asuntos que hayan sido enviados por el Concejo al Alcalde Municipal.

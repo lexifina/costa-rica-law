@@ -1,0 +1,1 @@
+Artículo 9°- El Concejo podrá celebrar las sesiones extraordinarias que se requieren y a ellas deberán ser convocados todos sus miembros. Las sesiones extraordinarias deberán celebrarse de acuerdo con el lugar, día y la hora que se indique en la convocatoria respectiva.

@@ -1,0 +1,3 @@
+Articulo 21.--- El orden del día deberá ser publicado mediante los mecanismos oficiales para este fin que maneja internamente el gobierno local al menos 24 horas antes de celebrarse la sesión correspondiente, así mismo será remitido vía electrónica a cada uno de los miembros del Concejo. En la publicación deberá aparecer la firma de presidencia del Concejo o de quien la ejerza al momento de la publicación. Una vez publicada, la misma no podrá ser variada excepto por acuerdo de mayoría calificada del Concejo.
+En el mismo tiempo, a los miembros del Concejo se le remitirá, además del orden del día, todos los documentos digitales adicionales que tengan que ver con los componentes del orden del día
+.

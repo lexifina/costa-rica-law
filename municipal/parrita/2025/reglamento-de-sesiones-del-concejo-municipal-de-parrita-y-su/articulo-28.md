@@ -1,0 +1,1 @@
+Artículo 28. - La Secretaría del Concejo formará un expediente para cada proyecto, a élse agregarán el dictamen de Comisión y las mociones que se presenten durante el debate;además, se transcribirán los acuerdos tomados y al pie firmará el Presidente Municipal y el Secretario.

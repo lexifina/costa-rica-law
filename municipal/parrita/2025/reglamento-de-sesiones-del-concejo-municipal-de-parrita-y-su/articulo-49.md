@@ -1,0 +1,1 @@
+Artículo 49. - Las actas del Concejo deberán ser impresas en libros oficiales foliados y sellados por auditoría y deberán ser custodiadas en la secretaría Municipal. Una vez transcurrido un año de la fecha en que se llevó a cabo la aprobación del acta, estas deberán pasar a custodia en el archivo municipal.
