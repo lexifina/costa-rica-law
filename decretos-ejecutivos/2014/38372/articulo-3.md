@@ -1,1 +1,2 @@
-Artículo 3º—La CGINM deberá reunirse por lo menos una vez por semana. El quórum para que pueda sesionar válidamente, será de la mitad más uno de sus miembros.
+Artículo 3°-La CGINM sesionará ordinariamente una vez cada quince días, para lo cual no hará falta convocatoria especial. También podrá reunirse en sesión extraordinaria y será siempre necesaria una convocatoria por escrito por parte de quien la preside, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia. El quórum para que pueda sesionar válidamente, será de la mitad más uno de sus miembros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45204 del 26 de agosto de 2025)
