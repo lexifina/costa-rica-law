@@ -14,3 +14,4 @@ Reglamento para la gestión integral de residuos sólidos del Cantón Central de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-21 | la propia norma |
+| 2 | 2025-08-26 | Reglamento municipal 69 (2025-08-26) |
