@@ -1,0 +1,17 @@
+Artículo 4. Definiciones
+Para la correcta interpretación y aplicación de este reglamento, se establecen las siguientes definiciones:
+a. Fondo Nelly Kopper Dodero (NEKODO): Fondo administrado por el COPROBI destinado a financiar proyectos de investigación en Bibliotecología, Ciencias de la Información, Documentación y áreas afines.
+b. Investigación: Proceso sistemático y metodológico orientado a generar nuevo conocimiento, resolver problemas, o desarrollar innovaciones.
+c. Proyecto de investigación: Conjunto organizado de actividades académicas y administrativas, formuladas con el propósito de alcanzar los objetivos de una investigación dentro de un tiempo determinado, incluyendo su planificación, ejecución, difusión de resultados y rendición de cuentas.
+d. Persona investigadora responsable: Persona colegiada activa ante el COPROBI, responsable de la formulación, ejecución, seguimiento y entrega de los productos de un proyecto financiado.
+e. Equipo de investigación: Grupo de personas que participan en la ejecución de un proyecto de investigación, bajo la coordinación de una persona investigadora responsable.Puede incluir profesionales de otras disciplinas.
+f. Actividades de apoyo a la investigación: Actividades que fortalecen el proceso de investigación o la difusión de resultados, tales como congresos, simposios, talleres, charlas, publicaciones, creación de redes académicas o pasantías investigativas.
+g. Gestión de la investigación: Proceso integral que abarca la formulación, evaluación, financiamiento, ejecución, seguimiento, liquidación financiera, difusión y divulgación de los proyectos de investigación financiados por el Fondo NEKODO.
+h. Comité de Investigación: Órgano técnico adscrito a la Junta Directiva del COPROBI, encargado de la evaluación de propuestas, seguimiento de investigaciones y supervisión del cumplimiento de los proyectos financiados.
+i. Convenio de financiamiento: Acuerdo formal entre el COPROBI y la persona investigadora responsable, que regula las condiciones de financiamiento, obligaciones, derechos y compromisos derivados del proyecto aprobado.
+j. Liquidación financiera: Informe detallado que describe el uso de los recursos asignados a un proyecto, incluyendo la presentación de comprobantes de gasto, la ejecución presupuestaria y el cierre financiero del proyecto.
+k. Derechos patrimoniales: Derechos relacionados con la explotación económica de los resultados de la investigación, tales como reproducción, distribución, comunicación pública y transformación, que son cedidos al COPROBI según lo establecido en este reglamento.
+l. Derechos morales: Derechos inalienables de la persona autora sobre su obra, que incluyen el reconocimiento de la autoría, la integridad de la obra y su divulgación, conformea la legislación costarricense.
+m. Acceso abierto: Modalidad de publicación que permite el acceso libre, gratuito y sin restricciones a los productos de investigación, promoviendo la divulgación amplia y el aprovechamiento social del conocimiento generado.
+n. Banco de Perfiles: Registro de profesionales idóneos que pueden ser convocados como evaluadores/as o asesores/as técnicos/as para apoyar los procesos de evaluación y seguimiento de proyectos del Fondo NEKODO.
+ñ. Socios estratégicos: Organizaciones, asociaciones profesionales, universidades, agencias de cooperación y entidades privadas que apoyan o colaboran en el fortalecimiento del Fondo NEKODO y de las actividades de investigación financiadas.

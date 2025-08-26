@@ -1,0 +1,10 @@
+Artículo 3. Propósitos del reglamento
+Las acciones relacionadas con el proceso de financiamiento, ejecución y gestión de proyectos de investigación financiados por el Fondo NEKODO deberán orientarse a:
+a) Incentivar la investigación de excelencia en Bibliotecología, Ciencias de la Información, Documentación y disciplinas afines, procurando su vinculación con los desafíos del desarrollo humano, científico y tecnológico de Costa Rica.
+b) Promover la internacionalización de la investigación mediante la difusión de resultados en redes académicas colaborativas, espacios internacionales y publicaciones científicas indexadas.
+c) Fomentar la cooperación y el trabajo conjunto entre profesionales colegiados, unidades académicas, organizaciones bibliotecológicas, instituciones educativas y redes de investigación nacionales e internacionales.
+d) Estimular la creación, invención e innovación en todas las áreas del conocimiento relacionadas con la Bibliotecología y las Ciencias de la Información, impulsando el desarrollo de nuevas metodologías, tecnologías y servicios de información.
+e) Apoyar el desarrollo de investigaciones de carácter disciplinario, multidisciplinario, interdisciplinario y transdisciplinario, que contribuyan a una comprensión integral de los problemas informacionales de la sociedad contemporánea.
+f) Vincular la investigación con la práctica profesional en bibliotecas, unidades de información, centros de documentación, archivos y otros espacios de gestión de conocimiento, facilitando la transferencia de resultados a la docencia, la capacitación profesional continua y la acción social.
+g) Facilitar la colaboración interinstitucional y la conformación de alianzas estratégicas con organizaciones nacionales e internacionales, promoviendo investigaciones conjuntas, intercambio de conocimientos y financiamiento complementario.
+h) Fomentar en las personas colegiadas la capacidad de formular proyectos de investigación de alta calidad, así como la búsqueda activa de fondos externos que fortalezcan las capacidades investigativas de la comunidad profesional.
