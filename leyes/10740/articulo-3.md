@@ -1,0 +1,2 @@
+ARTÍCULO 3- Exoneración del pago del servicio de suministro de agua cruda en bloque
+La Municipalidad de Cartago y la Municipalidad de Paraíso deberán pagar el servicio de suministro de agua cruda en bloque, exenta o en grandes volúmenes, para la Planta Potabilizadora, ubicada en Cartago, brindado por el AyA de acuerdo con la información que registren los equipos de medición a partir del momento en que estos se encuentren debidamente instalados. Mientras tanto, las Municipalidades de Cartago y Paraíso estarán exoneradas del pago de este servicio.
