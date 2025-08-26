@@ -1,0 +1,5 @@
+ARTÍCULO III - PROGRAMA
+3.01. El Prestatario declara su compromiso con el Programa y su implementación. Con este fin, y además de la Sección 5.05 de las Condiciones Generales:
+(a) el Prestatario y el Banco deberán, de cuando en cuando, a solicitud de cualquiera de las partes, intercambiar visiones sobre el marco de la política macroeconómica del Prestatario y el progreso que haya habido al poner en práctica el Programa;
+(b) anterior a cada tal intercambio de ideas, el Prestatario le proporcionará al Banco para su revisión y comentarios un informa sobre el progreso logrado al poner en práctica el Programa, con el detalle que el Banco solicite razonablemente; y
+(c) sin limitación sobre los párrafos (a) y (b) de la presente Sección, el Prestatario deberá informar al Banco oportunamente de cualquier situación que tendría el efecto de reversar materialmente los objetivos del Programa o cualquier acción que se haya tomado según el Programa, incluyendo cualquier acción que se especifique en la Sección 1 del Anexo 1 al presente Contrato.
