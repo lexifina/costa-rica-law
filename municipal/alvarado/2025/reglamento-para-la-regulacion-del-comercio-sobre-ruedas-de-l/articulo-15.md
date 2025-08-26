@@ -1,0 +1,2 @@
+Artículo 15 -Tarifa.
+La tarifa de la licencia comercial especial de comercio sobre ruedas tendrá un costo anual equivalente a un 20% del salario base establecido por la Ley N°7337, del 5 mayo de 1993. Este deberá ser cancelado en pagos mensuales por adelantado.

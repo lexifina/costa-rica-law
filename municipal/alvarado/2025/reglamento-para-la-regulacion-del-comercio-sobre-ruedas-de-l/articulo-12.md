@@ -1,0 +1,3 @@
+Artículo 12 -Competencia para la habilitación de áreas públicas-cantonales dedicadas al comercio sobre ruedas.
+La Municipalidad por medio la Unidad Técnica de Gestión Vial, emitirá un criterio técnico de las áreas públicas donde se desarrollará la actividad comercial temporal especial, dichas áreas deben ser solicitadas previamente por medio de un formulario de la Unidad Técnica de Gestión Vial, para emitir el criterio técnico.
+Es responsabilidad de la Unidad Técnica de Gestión Vial del cantón de Alvarado confeccionar los criterios técnicos de utilización de las áreas o espacios públicos indicados.
