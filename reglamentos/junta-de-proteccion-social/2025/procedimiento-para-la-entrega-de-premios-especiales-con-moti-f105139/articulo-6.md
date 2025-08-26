@@ -1,0 +1,26 @@
+Artículo 6°- Cambio de Premios
+Los ganadores de los premios deberán presentarse en la Plataforma de Servicios en las Oficinas Centrales de la Junta de Protección Social, para validar el premio correspondiente a partir del primer día hábil siguiente a la realización de cada sorteo y en un horario de lunes a viernes de 7:30 am a 3:00 pm., para lo cual se sugiere a los ganadores que previo a presentarse a reclamar el premio correspondiente consulten vía telefónica el dato de las fracciones con las que resultaron ganadores, comunicándose a las siguientes líneas: 4052-2121, 2522-2022, 2522-2111, 2522-2010, 2522-2009, 2522-2261, 2522-2260, 2522-2262, puesto que deberán presentar los boletos no premiados de Lotería Instantánea con la que resultaron favorecidos.
+Requisitos para presentar en la Plataforma de Servicios:
+Los boletos de Lotería Instantánea no premiados, mismos que deben traer en perfecto estado y sin alteraciones. Los cuales deben presentar debidamente firmados en el reverso de cada boleto e indicar el número de cédula. La firma tiene que corresponder a la firma del documento de identidad.
+. El documento de identidad vigente y en buen estado de conservación.
+. Una constancia de la cuenta IBAN (conocida anteriormente como cuenta cliente).
+En todos los casos, la cuenta bancaria debe estar activa, en colones y a nombre de la persona física ganadora. No se permiten cuentas bancarias a nombre de personas jurídicas ni en entidades bancarias o financieras extranjeras.
+La Plataforma de Servicios determinará en cuáles casos podrá otorgar el premio en efectivo, o según lo requiera el cliente en transferencia u orden de pago.
+Si algún ganador no posee cuenta bancaria deberá aperturar una en la entidad bancaria de su preferencia, o bien será la Plataforma de Servicios quien decidirá, según disponibilidad, si realiza el pago en efectivo o no.
+El proceso de validación consiste en la verificación de los documentos y que los boletos de Lotería Instantánea sean válidos, es decir, que cumpla con las medidas de seguridad (papel de seguridad, marca de agua, tinta invisible y tinta termo cromática).
+No se otorgará el premio, sin excepción, cuando se presente una de las siguientes condiciones:
+. El número de cédula de identidad o documento de identidad que se registró en el sistema no se encuentre vigente.
+. El número de cédula de identidad o documento de identidad que se registró en el sistema no coincide con la cédula de identidad vigente u otro documento de identidad vigente presentado.
+. Los boletos de Lotería Instantánea no sean originales. O si presentan roturas o alteraciones que hagan dudar su legitimidad.
+. Los boletos de Lotería Instantánea que no se presenten debidamente firmados en el reverso y con la indicación del número de cédula, en cada uno de los boletos.
+. La información de los boletos de Lotería Instantánea y con los cuales resultaron favorecidos no coincide con la información de la lotería presentada en físico.
+En caso de que, algún ganador no pueda presentarse a validar y retirar su premio correspondiente a dinero, podrá autorizar a un representante, mediante una carta debidamente firmada, mediante el uso de la firma digital (certificado digital emitido por un organismo a través del cual se valida la propia firma y la identidad del firmante), con la indicación del nombre completo tal como aparece en la cédula y el número de cédula o documento de identidad de la persona autorizada; además, para realizar dicha carta debe también considerarse lo siguiente: 1. Dirigida Señores Junta Protección Social. 2.
+Plataforma Servicio al Cliente. 3. Solo se aceptan documentos originales. Y remitirla al correo psc-premiosespeciales@jps.go.cr Si no cuenta con firma digital, este documento debe presentarse firmada de manera manuscrita y autenticada por un abogado o notario público, en la Plataforma de Servicios, junto con los documentos indicados anteriormente.
+A la persona que figure como representante, solo se le permite realizar la gestión para un máximo de tres ganadores.
+El premio siempre se pagará a una cuenta bancaria a nombre del ganador, por lo cual deberá presentar también la constancia de la cuenta IBAN con máximo un mes de emitida por el banco o entidad, a nombre del ganador.
+Se aclara que, en el caso que para el reclamo de un premio de dinero medie la figura del representante, este se pagará únicamente por transferencia electrónica a la cuenta bancaria del ganador, sin excepción.
+No se permite el depósito del dinero en otra cuenta bancaria que no sea la del ganador.
+Se aclara que la cuenta IBAN debe corresponder al titular, en colones y que se encuentre activa.
+Si el ganador del premio solicita el pago en efectivo, corresponde a la Plataforma de Servicios brindar la autorización respectiva, de acuerdo con las disposiciones administrativas vigentes. La solicitud de pago en efectivo no puede ser realizada por un representante del ganador.
+La constancia de la cuenta IBAN, con máximo un mes de emitida por el banco o entidad financiera, a nombre del ganador.
+Si alguno de los firmantes de la carta, no cuenta con firma digital, este documento debe presentarse firmada de manera manuscrita y autenticada por un abogado o notario público, en la Plataforma de Servicios, junto con los documentos indicados anteriormente.
