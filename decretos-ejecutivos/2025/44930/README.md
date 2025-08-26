@@ -14,3 +14,4 @@ Declara de interés público la adición de sistemas de generación energética 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-26 | la propia norma |
+| 2 | 2025-08-26 | Decreto Ejecutivo 45163 (2025-08-08) |
