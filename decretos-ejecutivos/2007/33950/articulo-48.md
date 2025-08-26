@@ -1,3 +1,0 @@
-CAPÍTULO XI
-De la administración de fondos en entidades financieras
-Artículo 48.—Alcance. Este capítulo es de aplicación obligatoria para aquellas entidades que se encuentran dentro del alcance del principio de caja única, según lo estipula el artículo 66 en consonancia con el artículo 127 inciso e) de la Ley de Administración Financiera y Presupuestos Públicos. Contempla disposiciones aplicables para la administración de los ingresos de efectivo que dichas entidades reciban, cualquiera que sea su fuente, y que deban ser administrados por la entidad participante, bien por ser de su propiedad o por corresponderle temporalmente su administración en virtud de disposiciones legales específicas.

@@ -1,2 +1,0 @@
-Artículo 80.—Traslado de fondos a la Caja Única. La Tesorería Nacional podrá solicitar el traslado de fondos de la cuenta bancaria de la entidad participante a la respectiva cuenta de Caja Única, siempre y cuando la entidad participante no requiera de dichos fondos para hacer frente a sus compromisos inmediatos y según la programación de caja preparada por la entidad.
-La Tesorería Nacional está en la obligación de presentar Estados de Cuenta mensuales por los fondos recibidos.

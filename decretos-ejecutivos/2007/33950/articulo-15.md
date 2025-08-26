@@ -1,1 +1,0 @@
-Artículo 15.—Equipo tecnológico requerido. Las entidades participantes deberán contar con los servicios y el equipo tecnológico adecuado para la instalación y uso del Sistema de Caja Única, según los requisitos tecnológicos que se establezcan. Asimismo, deberán presupuestar y ejecutar la actualización del mismo conforme evolucionen los requisitos del sistema.

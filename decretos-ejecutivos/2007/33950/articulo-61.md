@@ -1,1 +1,0 @@
-Artículo 61.—Cierre de cuentas no autorizadas. La Tesorería Nacional podrá ordenar a la entidad participante el cierre de una cuenta que no ha sido autorizada por ésta, o bien que no opere de acuerdo a lo establecido en el presente Reglamento.

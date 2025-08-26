@@ -1,1 +1,0 @@
-Artículo 77.—Utilización de los servicios de la Tesorería Nacional. Las entidades participantes podrán depositar en la caja única sus recursos propios y aprovechar las ventajas de pago y cobro de los servicios de la Tesorería Nacional.
