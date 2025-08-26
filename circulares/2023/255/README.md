@@ -13,3 +13,4 @@ Normas prácticas para Aplicación del Código Procesal de Familia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-27 | la propia norma |
+| 2 | 2025-08-26 | Circular 165 (2025-08-26) |
