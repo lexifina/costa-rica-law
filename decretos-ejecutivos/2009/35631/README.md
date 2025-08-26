@@ -15,3 +15,4 @@ Creación de la Comisión de Enlace Interinstitucional para la Protección de la
 | --- | --- | --- |
 | 1 | 2009-12-01 | la propia norma |
 | 2 | 2017-02-28 | Decreto Ejecutivo 40384 (2017-02-28) |
+| 3 | 2025-08-26 | Decreto Ejecutivo 45501 (2025-08-26) |
