@@ -1,0 +1,1 @@
+ARTÍCULO 15º.-Conocer la Ley Orgánica, el Reglamento General y demás reglamentos del Colegio, así como las normas dispuestas en este Código y, ser vigilante de que el Colegio cumpla con sus objetivos.

@@ -1,0 +1,1 @@
+ARTÍCULO 10º.-Colaborar con el Colegio en los comités, comisiones, representaciones o encargos en que sea nombrado. Desempeñar con responsabilidad cualquier cargo que hubiese aceptado dentro del Colegio.

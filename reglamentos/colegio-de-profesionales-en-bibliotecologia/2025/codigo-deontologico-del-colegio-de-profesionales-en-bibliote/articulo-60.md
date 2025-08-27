@@ -1,0 +1,1 @@
+ARTÍCULO 60º.-Utilizar los medios más eficaces para hacer que el acervo documental sea accesible a todos. A tal efecto, deben tratar de garantizar que los sitios web de las bibliotecas y otras instituciones de información cumplan con las normas internacionales de accesibilidad y que el acceso a los mismos no esté sujeto a barreras.

@@ -1,0 +1,1 @@
+ARTÍCULO 67º.-Velar por que la biblioteca sea un ente dinámico que propicie el desarrollo integral de los pueblos, así como los postulados democráticos que promueven la libre expresión y el libre acceso a todas las ideas, como uno de los derechos humanos fundamentales.

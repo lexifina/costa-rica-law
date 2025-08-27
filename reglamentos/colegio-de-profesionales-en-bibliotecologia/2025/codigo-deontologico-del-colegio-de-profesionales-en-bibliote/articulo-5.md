@@ -1,0 +1,1 @@
+ARTÍCULO 5º.-Las faltas a este Código sometidas por la Junta Directiva al Tribunal de Honor, serán calificadas por este último de acuerdo con su gravedad. Una vez impuesta la sanción, la resolución correspondiente se comunicará a la Junta Directiva para su conocimiento.

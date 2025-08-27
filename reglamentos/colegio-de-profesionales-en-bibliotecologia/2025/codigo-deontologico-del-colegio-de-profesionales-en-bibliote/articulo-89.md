@@ -1,0 +1,1 @@
+ARTÍCULO 89º.-Se consideran graves la infracción a las disposiciones de los artículos. 15, 16, 17, 19, 20, 27, 30, 31, 32, 34, 36, 37, 41, 42, 43, 44, 46, 48, 54, 57,58, 65, 66,71, 73, 74, 77, 78 y 79.

@@ -1,0 +1,1 @@
+ARTÍCULO 62º.-Ofrecer servicios bibliotecológicos de excelencia, para lo que deben mantener una actualización profesional permanente y estimular la de sus colegas, propiciando la participación en eventos que redunden en el enriquecimiento del desarrollo profesional, en el conocimiento y reconocimiento de la bibliotecología.

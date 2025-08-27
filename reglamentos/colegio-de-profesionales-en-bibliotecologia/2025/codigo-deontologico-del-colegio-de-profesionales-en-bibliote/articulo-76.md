@@ -1,0 +1,1 @@
+ARTÍCULO 76º.-Contribuir con excelencia en la implementación de nuevos métodos y estrategias de enseñanza acorde con las necesidades y realidades del país, orientados a la formación de los futuros profesionales al más alto nivel.

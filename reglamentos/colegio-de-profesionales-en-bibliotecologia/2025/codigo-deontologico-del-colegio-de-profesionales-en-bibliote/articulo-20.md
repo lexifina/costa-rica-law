@@ -1,0 +1,1 @@
+ARTÍCULO 20º.-Ser respetuosos en todas sus actuaciones, guardándose de usar términos despectivos, irrespetuosos o peyorativos, bajo la consideración de que la Bibliotecología constituye una profesión con proyección social, cuya práctica está estrechamente ligada al desarrollo de la educación y cultura del país.

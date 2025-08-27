@@ -1,0 +1,1 @@
+ARTÍCULO 33º.-Cuando sea requerido, valorar los trabajos profesionales de sus colegas, hacerlo con espíritu constructivo, sin otro propósito que el de expresar opiniones tendientes al progreso de la profesión.

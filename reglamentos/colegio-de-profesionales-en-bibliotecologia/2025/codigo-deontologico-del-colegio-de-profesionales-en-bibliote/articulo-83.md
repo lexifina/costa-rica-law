@@ -1,0 +1,1 @@
+ARTÍCULO 83º.-El Tribunal de Honor será el órgano director de los procedimientos disciplinarios que se establezcan contra los profesionales en bibliotecología por violación a este código, a la Ley Orgánica del Colegio y sus reglamentos.

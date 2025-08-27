@@ -1,0 +1,1 @@
+ARTÍCULO 85º.-La suspensión en la condición de agremiado empezará a regir a partir del día su publicación en el Diario Oficial La Gaceta. Vencido el plazo correspondiente el profesional en bibliotecología suspendido recuperará su condición de colegiado activo.

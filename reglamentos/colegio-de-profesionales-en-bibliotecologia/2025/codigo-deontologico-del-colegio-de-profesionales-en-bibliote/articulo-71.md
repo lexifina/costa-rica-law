@@ -1,0 +1,1 @@
+ARTÍCULO 71º.-No suministrar a otros profesionales afines información personal o profesional estrictamente necesaria, ni asignar funciones que solo le correspondan exclusivamente al profesional en bibliotecología.

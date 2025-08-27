@@ -1,0 +1,1 @@
+ARTÍCULO 97º.- El presente Código Deontológico deroga las disposiciones establecidas en el anterior Código de Ética acordado en La Asamblea General Extraordinaria No. 59 celebrada el 9 de diciembre del 2014 y de las modificaciones realizadas en la Asamblea General Ordinaria No. 64 del 06 de abril del 2018.

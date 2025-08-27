@@ -1,0 +1,1 @@
+ARTÍCULO 74º.-Cooperar para mejorar la enseñanza de la Bibliotecología estableciendo bases éticas sólidas para el desarrollo integral de los futuros profesionales acorde con los adelantos científicos y tecnológicos.

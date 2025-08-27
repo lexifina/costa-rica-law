@@ -1,0 +1,1 @@
+ARTÍCULO 55º.-Procurar las condiciones más favorables para el acceso a los recursos de información y tratar de garantizar que el acceso no se vea afectado por las leyes de propiedad intelectual y que las licencias no anulen las excepciones que para las bibliotecas figuran en la legislación internacional.

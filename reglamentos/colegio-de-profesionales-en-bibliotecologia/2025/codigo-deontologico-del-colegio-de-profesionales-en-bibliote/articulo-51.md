@@ -1,0 +1,1 @@
+ARTÍCULO 51º.-Abstenerse de cualquier tipo de conducta que pudiese ser calificada como acoso u hostigamiento sexual, de acuerdo con lo establecido por la Ley 7476 contra el hostigamiento sexual en el empleo y la docencia.

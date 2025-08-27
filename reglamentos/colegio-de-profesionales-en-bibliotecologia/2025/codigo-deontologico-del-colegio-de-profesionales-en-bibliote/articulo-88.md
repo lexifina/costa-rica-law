@@ -1,0 +1,1 @@
+ARTÍCULO 88º.-Se consideran leves la infracción a las disposiciones de los artículos 8, 9, 10, 11, 12, 13, 14, 18, 21, 22, 23, 24, 25, 26, 28, 29, 33, 35, 38, 39, 40,45, 49, 50, 52, 53, 55, 56, 59, 59, 60, 61, 62, 63, 64, 67, 68, 69, 70, 72, 75, 76 y 80.

@@ -1,0 +1,1 @@
+ARTÍCULO 6.-Las polémicas y las discusiones públicas y privadas de los profesionales en bibliotecología deben mantenerse dentro de las normas de respeto, cordialidad y demás obligaciones contenidas en el presente código.
