@@ -1,9 +1,0 @@
-Artículo 10. Requisitos. Serán requisitos para toda solicitud de médico visitante, los siguientes:
-a Dirigir una carta al Fiscal General de la Fiscalía del Colegio de Médicos y Cirujanos, en la cual solicite expresamente la autorización temporal para el ejercicio profesional dentro del territorio nacional. Dicha carta deberá contener la siguiente información: i) Calidades del solicitante incluida la dirección del domicilio en Costa Rica y en el extranjero, ii) Plazo por el cual solicita el permiso. iii) Nombre y localización del establecimiento donde prestará los servicios, iiii) Justificación, con exposición de motivos por los cuales solicita la autorización.
-b Copia fotostática del diploma académico que lo acredita como Médico y Cirujano, Especialista o Subespecialista, según corresponda, el cual, deberá ser confrontado con el diploma original.
-c Copia del programa médico a desarrollar en el plazo por el cual se solicita el permiso.
-d Copia fotostática de la cédula de identidad, pasaporte o visa tanto del médico visitante como del médico supervisor.
-h Carta de compromiso suscrita por el médico responsable del servicio que ejercerá la supervisión de las labores llevadas a cabo por el autorizado. En dicha carta el profesional supervisor se comprometerá a reportar al Colegio de Médicos y Cirujanos cualquier incidencia acontecida con el médico autorizado, en las cuales se incluye las prácticas que riñan con la buena práctica médica o la ética profesional.
-e Declaración Jurada donde el solicitante se compromete a cumplir con todos los preceptos deontológicos establecidos en el Código de Ética Médica.
-f Declaración Jurada en la cual se suscriba el compromiso ante el Colegio de Médicos y Cirujanos para que en caso de manifestar interés de residir o laborar de forma permanente en Costa Rica precederá a completar sus requisitos tendientes a la incorporación permanente.
-a) Cancelar los aranceles correspondientes a este trámite.

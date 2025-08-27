@@ -1,1 +1,0 @@
-Artículo 7.—Costos del Servicio. Los costos administrativos por dicho trámite serán los que la Junta de Gobierno establezca por medio de acuerdo firme, así como establecer los incrementos que considere necesarios.
