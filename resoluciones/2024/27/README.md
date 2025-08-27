@@ -15,3 +15,4 @@ Disposiciones técnicas de los comprobantes electrónicos para efectos tributari
 | --- | --- | --- |
 | 1 | 2024-11-19 | la propia norma |
 | 2 | 2025-02-13 | Resolución 1 (2025-02-13) |
+| 3 | 2025-08-27 | Resolución 43 (2025-08-27) |

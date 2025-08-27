@@ -1,5 +1,6 @@
 Disposiciones Transitorias:
 Transitorio I-. Los obligados tributarios contarán con un plazo de nueve meses contados a partir del primero de diciembre del 2024 a efectos de que implementen y pongan en funcionamiento todas las disposiciones contenidas en esta resolución y de los Anexos y Estructuras en su versión 4.4.
-Al vencimiento del plazo señalado en el párrafo anterior, entrará en plena vigencia la versión 4.4 de "Anexos y Estructuras", y no se reconocerán como válidos los comprobantes electrónicos emitidos con versiones anteriores.
+Al vencimiento del plazo señalado en el párrafo anterior, entrará en vigor la versión 4.4 de "Anexos y Estructuras". En situaciones excepcionales, cuando existan razones técnicas, operativas o institucionales debidamente justificadas, la Administración Tributaria podrá otorgar una ampliación del plazo establecido en la presente resolución, en cuyo caso no podrá extenderse más allá del seis de octubre del año 2025, fecha de habilitación tanto del Sistema TRIBU-CR como de Tico Factura.
+(Así reformado el párrafo anterior por el artículo 21 de la resolución N° MH-DGT-RES-0043-2025 del 27 de agosto de 2025)
 Sin perjuicio de lo señalado anteriormente, aquellos obligados tributarios que cuenten con los respectivos desarrollos para implementar la versión 4.4 de "Anexos y Estructuraras", antes del plazo señalado en el primer párrafo, podrán implementar la nueva versión a partir del 1 de abril del 2025.
 (Así reformado por el artículo 1° de la resolución N° MH-DGT-RES-0001-2025 del 13 de febrero de 2025)
