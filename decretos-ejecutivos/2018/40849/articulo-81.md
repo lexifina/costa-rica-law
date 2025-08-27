@@ -1,1 +1,1 @@
-Artículo 81.- Arquitectura del espacio de Atención Específica. Su diseño arquitectónico permite la ubicación de personas privadas de libertad en espacios, preferiblemente, colectivos. En todo caso, se respetará la separación por condición jurídica.
+Artículo 81.- Arquitectura del espacio de Atención Específica. (Derogado por el artículo 133 del Reglamento general al circuito de alta contención del Sistema Penitenciario Nacional, aprobado mediante decreto ejecutivo N° 45174 del 27 de agosto del 2025)

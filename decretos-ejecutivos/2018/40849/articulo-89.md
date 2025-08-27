@@ -1,1 +1,1 @@
-Artículo 89.- Actividades ocupacionales. La educación y el trabajo son los principales instrumentos de atención profesional en este espacio. Se desarrollará en forma individual o grupal, de manera sistemática, programada y en condiciones adecuadas de seguridad.
+Artículo 89.- Actividades ocupacionales. (Derogado por el artículo 133 del Reglamento general al circuito de alta contención del Sistema Penitenciario Nacional, aprobado mediante decreto ejecutivo N° 45174 del 27 de agosto del 2025)

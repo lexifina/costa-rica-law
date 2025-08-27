@@ -1,1 +1,1 @@
-Artículo 87.- Ubicación. La causa de ingreso será el criterio que determinará la ubicación en este espacio, así como el tipo de atención que se deberá implementar.
+Artículo 87.- Ubicación. (Derogado por el artículo 133 del Reglamento general al circuito de alta contención del Sistema Penitenciario Nacional, aprobado mediante decreto ejecutivo N° 45174 del 27 de agosto del 2025)

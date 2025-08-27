@@ -1,1 +1,1 @@
-Artículo 84.- Consejo de Atención Específica. El seguimiento y valoración de la persona ubicada en este espacio se realizará mediante el Consejo de Atención Específica, integrado por la dirección del centro, las disciplinas profesionales asignadas a la atención y el superior de la Policía Penitenciaria del centro.
+Artículo 84.- Consejo de Atención Específica. (Derogado por el artículo 133 del Reglamento general al circuito de alta contención del Sistema Penitenciario Nacional, aprobado mediante decreto ejecutivo N° 45174 del 27 de agosto del 2025)

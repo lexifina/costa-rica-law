@@ -1,2 +1,1 @@
-Artículo 82.- Personal especializado para la Atención Específica. El personal profesional, técnico y de la Policía Penitenciaria que se asigne a este espacio de Atención Específica debe ser especializado. Para esto, la Escuela de Capacitación Penitenciaria será la encargada de brindar los cursos correspondientes de acuerdo a la naturaleza de este espacio.
-La ubicación del personal profesional, técnico y de la Policía Penitenciaria en este espacio no excederá los dos años, salvo que sea a solicitud del mismo personal.
+Artículo 82.- Personal especializado para la Atención Específica. (Derogado por el artículo 133 del Reglamento general al circuito de alta contención del Sistema Penitenciario Nacional, aprobado mediante decreto ejecutivo N° 45174 del 27 de agosto del 2025)
