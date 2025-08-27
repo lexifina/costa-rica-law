@@ -1,0 +1,1 @@
+Artículo 33. —Este Reglamento deroga disposiciones anteriores o que se le opongan y entra en vigencia a partir de la aprobación por parte del Consejo Directivo y al día siguiente de su publicación en el diario oficial La Gaceta.

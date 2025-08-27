@@ -1,0 +1,2 @@
+Artículo 32. -Los y las estudiantes podrán establecer recursos de revocatoria y de apelación sobre las sanciones que se le impongan. Los recursos deberán plantearse por escrito dentro de los tres días hábiles siguientes a la fecha de comunicación de la sanción.
+El Tribunal Educativo Disciplinario resolverá el recurso de revocatoria y la Decanatura será competente para conocer del recurso de apelación, ambos dictarán sus resoluciones en los cinco días hábiles siguientes. En estos casos la Decanatura, agotará la vía administrativa.

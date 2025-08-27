@@ -1,0 +1,1 @@
+Artículo 27. -Mediante resolución el Tribunal dará inicio al procedimiento, se le concederá al investigado(a), un plazo de quince días hábiles para que manifieste lo que considere o bien en su defensa y ofrezca la prueba de descargo; así mismo señalará hora y fecha para la audiencia oral y privada de recepción de pruebas pertinentes.
