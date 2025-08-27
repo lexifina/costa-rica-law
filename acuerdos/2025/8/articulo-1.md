@@ -1,0 +1,8 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+EL CONSEJO SUPERIOR NOTARIAL COMUNICA:
+Que mediante Acuerdo N.º 8, tomado en sesión ordinaria N.º 019, celebrada por el Consejo Superior Notarial de la Dirección Nacional de Notariado el 06 de agosto de 2025, se acordó de manera unánime, resolver consulta referente al Carné de Permiso Laboral Provisional de una persona extranjera como documento de identificación válido.
+Acuerdo 8.
+(...)
+b) Acoger el criterio jurídico expuesto, y contestar la consulta interpuesta por la señora María Emilia Chacón González, en el sentido de que, bajo el principio de legalidad, el Carné de Permiso Laboral Provisional Vigente de una persona extranjera solicitante de refugio, emitido por la Unidad de Refugio de la Dirección General de Migración y Extranjería, es un documento válido para los efectos de identificar a una persona compareciente de nacionalidad extranjera, por así estar contemplado a partir del artículo 33 inciso 2) de la Ley General de Migración y Extranjería N.º 8764, y desarrollado en la actualidad, de conformidad con la Circular DG-012-05- 2025 del 13 de mayo de 2025, publicada en el Alcance N° 72 a La Gaceta N° 103 del 06 de junio 2025; no obstante, es el Notario Público quien tiene la responsabilidad de determinar, de previo a autorizar el acto, si es un documento legalmente suficiente para los efectos de realizar un matrimonio civil o bien si debe utilizar algún otro documento idóneo para emitir el acto, conforme a los requisitos establecidos por la Ley Orgánica del Tribunal Supremo de Elecciones y demás disposiciones emitidas por dicha autoridad, todo ello en relación con los artículos 6, 39, 83 y 85 del Código Notarial Ley N.º 7764.
+(…)
+Acuerdo unánime declarado firme
