@@ -14,3 +14,4 @@ Deshabilitación de las plataformas digitales tributarias e Implementación del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-11 | la propia norma |
+| 2 | 2025-08-27 | Resolución 43 (2025-08-27) |
