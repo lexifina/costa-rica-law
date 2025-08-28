@@ -1,1 +1,1 @@
-Artículo 43°. - Los Sistemas Locales de Redes de Salud Mental. Los Sistemas Locales de Redes de Salud Mental, serán instancias de coordinación e integración en el nivel local, en esta materia. Debe contar con la participación de las Municipalidades, la sociedad civil y la participación de los diferentes actores sociales relacionados con salud mental, como producto de construcción social históricamente determinado.
+Artículo 43°. - Los Sistemas Locales de Redes de Salud Mental. (Derogado por el artículo 2° del decreto ejecutivo N° 45225 del 28 de agosto de 2025)

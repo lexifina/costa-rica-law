@@ -1,5 +1,1 @@
-Artículo 38°. - Funciones del Sistema Nacional de Redes de Salud Mental. Serán funciones del Sistema Nacional de Redes de Salud Mental, las siguientes:
-a) Desarrollar criterios técnicos operativos en temas de salud mental y/o relacionados, que contribuyan a los objetivos de la Política Nacional de Salud Mental, en cumplimiento con el objetivo general de desarrollar un Modelo de Salud Mental Centrado en la Comunidad, que garantice el derecho a la Salud Mental de la población por medio de la acción intersectorial e interinstitucional, dirigida a la promoción, prevención, atención, rehabilitación y reinserción con enfoque comunitario, para mejorar la calidad de vida y el disfrute a lo largo del ciclo de la vida.
-b) Brindar apoyo técnico y seguimiento a los programas, planes y proyectos que se ejecuten en los tres niveles de gestión.
-c) Cumplir con lo establecido en el Plan Institucional de Salud Mental del Ministerio de Salud.
-d) Establecer los mecanismos necesarios de coordinación e integración interinstitucional para mejorar y fortalecer las acciones de salud mental para la población.
+Artículo 38°. - Funciones del Sistema Nacional de Redes de Salud Mental. (Derogado por el artículo 2° del decreto ejecutivo N° 45225 del 28 de agosto de 2025)

@@ -1,5 +1,6 @@
-Artículo 10°. - Mecanismos de coordinación intersectorial. Para promover el desarrollo de una Política Nacional de Salud Mental en el país. La Secretaría Técnica de Salud Mental contará con:
-a) Consejo Nacional de Salud Mental
-b) Comisión Interinstitucional de Salud Mental
-c) Comisión Institucional de Salud Mental
-d) Sistemas de Redes de Salud Mental Nacional, Regional y Local
+Artículo 10°. - Mecanismos de coordinación intersectorial. La Secretaría Técnica de Salud Mental contará con:
+a) Consejo Nacional de Salud Mental.
+b) Comisión Nacional Interinstitucional e Intersectorial de Salud Mental.
+c) Órgano Técnico de Apoyo.
+d) Comisiones Regionales de Salud Mental.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45225 del 28 de agosto de 2025)

@@ -1,1 +1,1 @@
-Artículo 33°. – Sesiones. La Comisión Institucional de Salud Mental, se reunirá ordinariamente cada mes y extraordinariamente por solicitud de la Secretaría Técnica de Salud Mental, cuando se requiera con exposición razonada de motivos.
+Artículo 33°. - Sesiones. (Derogado por el artículo 2° del decreto ejecutivo N° 45225 del 28 de agosto de 2025)
