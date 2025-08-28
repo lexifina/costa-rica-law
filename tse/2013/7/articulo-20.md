@@ -1,2 +1,0 @@
-Artículo 20.—Del manejo de los desechos que se generen en las actividades autorizadas. Toda agrupación deberá velar por el adecuado manejo de los desechos que se produzcan, de lo que serán responsables directos.
-(Así modificada su numeración por el artículo 4 del decreto del Tribunal Supremo de Elecciones N° 6-2020 del 12 de noviembre de 2020, que lo traspaso del antiguo 21 al 20, ya que se ordenó derogar el artículo 12 original y correr la numeración de los restantes artículos)

@@ -1,1 +1,0 @@
-Artículo 22.— (Nota de Sinalevi: El texto de este artículo se puede encontrar en el artículo 21, ya que mediante el artículo 4 del decreto del Tribunal Supremo de Elecciones N° 6-2020 del 12 de noviembre de 2020, se ordenó derogar el numeral 12 original y correr la numeración de los restantes artículos)

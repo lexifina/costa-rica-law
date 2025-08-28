@@ -1,3 +1,0 @@
-Artículo 18.—De las ferias electorales y sus aspectos generales. El Cuerpo Nacional de Delegados buscará organizarías a partir de la invitación que haga a todas las fuerzas electorales presentes en respectiva región.
-Los lugares en los que se realicen las ferias deberán ser sitios que permitan tanto la aglomeración como el libre tránsito de personas (parques, explanadas, plazas, bulevares).
-(Así modificada su numeración por el artículo 4 del decreto del Tribunal Supremo de Elecciones N° 6-2020 del 12 de noviembre de 2020, que lo traspaso del artículo 19 al 18, ya que se ordenó derogar el artículo 12 original y correr la numeración de los restantes artículos)

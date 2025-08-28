@@ -1,2 +1,0 @@
-Artículo 13.-De la resolución final de la solicitud presentada. Analizada la solicitud en los términos del artículo anterior, se procederá con el dictado de la resolución correspondiente.
-(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones del 12 de noviembre de 2020, que lo traspaso del antiguo 14 al 13, ya que se ordenó derogar el artículo 12 original y correr la numeración de los restantes artículos)

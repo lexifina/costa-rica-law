@@ -1,3 +1,0 @@
-Artículo 15.-De la notificación. Toda resolución será debidamente notificada de acuerdo con las normas establecidas en el Reglamento de Notificaciones a Partidos Políticos por Correo Electrónico (Decreto N° 06-2009 del 05 de junio de 2009, publicado en La Gaceta N° 117 del 18 junio de 2009).
-Adicionalmente, se publicará copia literal o del fragmento pertinente en el sitio web del TSE. Esta publicación no reabre el plazo para recurrir.
-(Así modificada su numeración por el artículo 4 del decreto del Tribunal Supremo de Elecciones N° 6-2020 del 12 de noviembre de 2020, que lo traspaso del antiguo 16 al 15, ya que se ordenó derogar el artículo 12 original y correr la numeración de los restantes artículos)
