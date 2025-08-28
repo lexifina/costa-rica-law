@@ -1,3 +1,0 @@
-Artículo 5º—Modifíquese el párrafo primero del artículo 13, según la anterior numeración, para que se lea de la siguiente manera:
-“Artículo 12.- Del trámite de resolución de solicitudes y del deber del partido político gestionante de realizar la actividad que le fue aprobada. Una vez recibida la solicitud, se valorará en primer lugar el cumplimiento de los requisitos de forma y, posteriormente, se procederá a analizar la viabilidad del lugar propuesto por la agrupación política gestionante para llevar a cabo la actividad solicitada, tomando en consideración las prohibiciones señaladas en el artículo 137 del Código Electoral, así como cualquier factor que pueda representar un riesgo para el orden, la integridad de las personas y la seguridad pública.
-[...]”
