@@ -1,0 +1,1 @@
+Artículo 7º-De la conformación de la Junta Administradora. En la primera sesión de la Junta Administradora, posterior a la elección de nuevos miembros, ese órgano designará, por medio de votación interna la distribución de cargos.

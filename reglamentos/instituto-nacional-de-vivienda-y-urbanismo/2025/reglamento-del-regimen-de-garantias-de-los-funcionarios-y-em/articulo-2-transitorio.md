@@ -1,0 +1,1 @@
+Transitorio II.-Como parte de la reestructuración propuesta, por una única vez se liquidará de forma parcial el aporte patronal acumulado y sus excedentes conforme lo establezca la Junta Administradora del Fondo.

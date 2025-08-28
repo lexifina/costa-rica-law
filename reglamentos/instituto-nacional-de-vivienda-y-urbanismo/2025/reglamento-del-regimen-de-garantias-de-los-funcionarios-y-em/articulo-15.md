@@ -1,0 +1,1 @@
+Artículo 15.-Del quórum. El quórum de la Asamblea General Ordinaria o Extraordinaria lo conformará la mitad más uno de los miembros presentes. Sin embargo, cuando el quórum no pudiera integrarse la primera vez, la Junta Administradora podrá efectuar una segunda convocatoria treinta minutos después con los miembros presentes.

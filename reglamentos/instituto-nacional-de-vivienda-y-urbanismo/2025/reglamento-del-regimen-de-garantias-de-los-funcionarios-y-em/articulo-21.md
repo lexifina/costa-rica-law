@@ -1,0 +1,1 @@
+Artículo 21.-De la liquidación anual del aporte patronal. La liquidación total del aporte patronal se hará contemplando los meses de julio a junio del siguiente año, con el monto acumulado que tenga cada miembro en dicho período.

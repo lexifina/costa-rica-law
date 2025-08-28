@@ -1,0 +1,1 @@
+Artículo 24.-Registro Auxiliar. Se llevará en los sistemas del INVU el registro auxiliar del aporte patronal de cada miembro y de conformidad con la normativa vigente, Ley 10495, y según los procedimientos establecidos para este fin.

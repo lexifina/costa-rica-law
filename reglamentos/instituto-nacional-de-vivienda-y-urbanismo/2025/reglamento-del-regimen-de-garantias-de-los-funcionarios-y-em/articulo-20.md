@@ -1,0 +1,1 @@
+Artículo 20.-De la liquidación parcial del aporte patronal. La liquidación parcial del aporte patronal podrá solicitarse por el monto acumulado disponible, cuando se trate de una enfermedad terminal del funcionario y se encuentre incapacitado o bien, cuente con una licencia por la misma causa para el cuido del cónyuge o hijos menores de edad.

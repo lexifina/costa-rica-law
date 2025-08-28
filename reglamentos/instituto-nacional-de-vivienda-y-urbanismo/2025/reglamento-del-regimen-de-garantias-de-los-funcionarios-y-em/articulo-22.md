@@ -1,0 +1,1 @@
+Artículo 22.-De la liquidación del aporte patronal por separación al Fondo. La liquidación del aporte patronal que a la fecha del hecho no se haya distribuido, se hará efectiva a favor del miembro o de sus beneficiarios, posterior a la Acción de Personal en que se constate la ocurrencia de éste.

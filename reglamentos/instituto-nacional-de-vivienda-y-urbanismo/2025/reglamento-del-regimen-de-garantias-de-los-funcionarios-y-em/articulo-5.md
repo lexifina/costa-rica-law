@@ -1,0 +1,3 @@
+Artículo 5º-De los Beneficiarios. Cada miembro del Fondo autorizará uno o los beneficiarios que considere y podrá cambiar dicha designación, comunicándolo al correo electrónico oficial del Fondo. Los beneficiarios tendrán derecho a recibir las sumas acumuladas bajo este régimen en la proporción que el miembro elija, en caso de muerte o pérdida de la capacidad de actuar del miembro declarado judicialmente.
+El Fondo llevará un expediente personal de cada miembro, donde se consigna la información de los beneficiarios.
+Si un miembro omite nombrar sus beneficiarios de acuerdo con lo indicado anteriormente, los pagos que correspondan se harán según lo dictamine un Juez de la República o en su defecto el Notario que tramite la sucesión.

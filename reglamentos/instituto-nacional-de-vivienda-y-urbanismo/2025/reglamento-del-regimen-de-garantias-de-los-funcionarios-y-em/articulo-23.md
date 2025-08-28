@@ -1,0 +1,1 @@
+Artículo 23.-Del trámite de liquidación del aporte. La Junta Administradora establecerá mediante Circulares el trámite a seguir para hacer efectivo la liquidación total del aporte comprendido en este Reglamento, siendo obligación de todos los miembros acatar dichas disposiciones.
