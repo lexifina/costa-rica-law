@@ -13,3 +13,4 @@ Ley N° 9578, para trasladar al Régimen no Contributivo de la C.C.S.S (RNC) rec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-09 | la propia norma |
+| 2 | 2025-08-28 | Circular 167 (2025-08-28) |
