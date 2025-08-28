@@ -15,3 +15,4 @@ Arancel de honorarios mínimos de profesionales en las áreas de terapia física
 | --- | --- | --- |
 | 1 | 2019-05-29 | la propia norma |
 | 2 | 2022-09-14 | Decreto Ejecutivo 43702 (2022-09-14) |
+| 3 | 2025-08-28 | SINALEVI (sin norma nombrada) |

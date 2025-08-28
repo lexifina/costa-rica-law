@@ -1,7 +1,7 @@
 Capitulo VII.-
 De los honorarios del Terapeuta de Lenguaje
-Artículo 21.-Tabla de aranceles de referencia y de uso discrecional de Terapia del Lenguaje.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)
+Artículo 21.- Tabla de aranceles de Terapia del Lenguaje
+(Mediante el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022, se reformó el epígrafe anterior. Posteriormente mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Quinta, N° 2025-008647 del 28 de agosto de 2025, se anuló el decreto ejecutivo N° 43702 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43702 del 14 de setiembre de 2022)
 Aspecto a valorar | Monto mínimo por sesión
 Sesión individual de Terapia del Lenguaje, habla y voz en consultorio en Gran Area Metropolitana | ¢13 600
 Sesión individual de Terapia del Lenguaje, habla y voz en consultorio en área rural** | ¢ 12 000
