@@ -1,2 +1,0 @@
-Artículo 2º—Objetivos. El Fondo de Garantías tiene como objetivos otorgar beneficios a sus afiliados, tanto durante su permanencia en el Instituto como en caso de retiro definitivo de la institución por causa de jubilación, sea por vejez o por invalidez permanente, muerte, renuncia o en caso de despido no causado por la conducta del servidor.
-(Así reformado mediante sesión N° 5692 del 3 de setiembre de 2008)

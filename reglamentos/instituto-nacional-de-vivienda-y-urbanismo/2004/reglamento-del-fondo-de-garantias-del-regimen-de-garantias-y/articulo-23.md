@@ -1,2 +1,0 @@
-Artículo 23.—Liquidación anual de excedentes. Los intereses que generen los préstamos a los afiliados y los dividendos que se reciban de las inversiones que realice el Fondo con los aportes de los trabajadores, se registrarán en forma anual, conjuntamente con el aporte laboral, con corte al 31 de enero de cada año. En la Asamblea General Ordinaria se aprobará la distribución de excedentes y la devolución del aporte laboral se hará de conformidad con las reglas del artículo 8 bis anterior.
-(Así reformado mediante sesión N° 5692 del 3 de setiembre de 2008)

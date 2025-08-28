@@ -1,2 +1,0 @@
-Artículo 6º—De la pertenencia al Fondo. Todo el personal de la Institución , según lo establece el artículo 4 de este Reglamento, pertenecerá al Fondo de Garantías. La separación del Fondo solo podrá darse en los siguientes casos: a) por jubilación, sea por vejez o por invalidez permanente; b) por despido, cualesquiera sea su causa o motivo; c) por renuncia del afiliado como servidor del Instituto, y d) por muerte del servidor.
-(Así reformado mediante sesión N° 5692 del 3 de setiembre de 2008)
