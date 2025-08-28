@@ -1,0 +1,1 @@
+Artículo 45.- Informe del valor final de laboratorio al retirarse de la lista de espera. El equipo de trasplante deberá comunicar a la SETDT, a través del SINADOC, los resultados finales de laboratorio antes de retirar al candidato de la lista de espera, ya sea debido a la realización del trasplante o al fallecimiento de este.

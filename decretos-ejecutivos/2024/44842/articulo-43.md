@@ -1,0 +1,4 @@
+Artículo 43.- Certificación y recertificación de laboratorios. En caso de que un candidato no obtenga nuevamente la certificación antes de la fecha límite establecida en la Tabla 2 de la presente normativa, se procederá a su reasignación al puntaje MELD o PELD más bajo previamente registrado.
+El candidato podrá mantener dicho puntaje durante el período permitido según el cronograma de recertificación asociado al puntaje más bajo anterior, excluyendo el tiempo transcurrido sin certificación.
+En el caso de que el candidato permanezca sin certificación después de la fecha límite de recertificación para el puntaje más bajo anterior, se le asignará un puntaje MELD o PELD fijo de 6.
+Si un candidato no cuenta con un puntaje MELD o PELD anterior más bajo y no se recertifica conforme al cronograma establecido, será reasignado a una puntuación MELD o PELD de 6.

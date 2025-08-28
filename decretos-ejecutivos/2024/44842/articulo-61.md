@@ -1,0 +1,11 @@
+Artículo 61.- Hepatocarcinoma (HCC). Evaluación inicial y requisitos para la solicitud de excepción al MELD o PELD para HCC.
+Antes de solicitar una excepción estandarizada de MELD o PELD, el candidato debe someterse a una evaluación exhaustiva que incluya todo lo siguiente:
+a) Una evaluación y un reporte radiológico del número y tamaño de las lesiones antes de la
+terapia locorregional que cumplan con los criterios de Clase 5 mediante una tomografía computarizada (TC) mejorada con contraste dinámico o una resonancia magnética (RM).
+b) Una TC de tórax para descartar enfermedad metastásica. Esto sólo se requiere antes de solicitar una excepción inicial. No se requiere una TC de tórax para futuras extensiones de excepciones.
+e) Una TC o RM que descarte diseminación extrahepática, trombosis tumoral o infiltración macrovascular.
+d) Formulario de solicitud y extensión de excepción firmado por un cirujano de TH y un gastroenterólogo de TH.
+e) Indicar si el candidato ha recibido terapia locorregional.
+f) El nivel de alfafetoproteína (AFP) del candidato en los últimos 30 días naturales.
+El hospital de trasplante debe mantener la documentación de las imágenes radiológicas y las evaluaciones de todas las lesiones de Clase 5 en la historia clínica del candidato. Si se utilizan criterios de crecimiento para clasificar una lesión como HCC, el informe de radiología debe contener las fechas anteriores y actuales de las imágenes, el tipo de imágenes y las medidas de la lesión. Todos los reportes de imágenes deben de ser realizados por radiólogos autorizados por el SETDT.
+Para aquellos candidatos que reciben un trasplante de hígado mientras reciben prioridad adicional bajo los criterios de excepción de HCC, el equipo de trasplante debe enviar el formulario de patología del explante posterior al trasplante a la SETDT dentro de los 60 días naturales posteriores al trasplante. Si el formulario de patología del explante posterior al trasplante no muestra evidencia de HCC o terapia dirigida al hígado para HCC, el programa de trasplante también debe presentar documentación o estudios de imágenes que confirmen el HCC en el momento de la asignación de los puntos de excepción. La SETDT y el CMA revisará la documentación presentada o los estudios de imagen.

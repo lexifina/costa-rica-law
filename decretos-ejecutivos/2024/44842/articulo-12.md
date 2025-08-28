@@ -1,0 +1,1 @@
+Artículo 12.- Revaloración por límite de edad en la LETH. Cualquier paciente que haya sido admitido en la LETH antes de cumplir los 65 años y que alcance esa edad aún encontrándose en la LETH, debe ser revalorado con base en los criterios establecidos de contraindicaciones relativas establecidos en el artículo 11 para determinar si debe continuar dentro de la LETH.

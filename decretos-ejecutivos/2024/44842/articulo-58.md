@@ -1,0 +1,4 @@
+Artículo 58.- Enfermedad metabólica (EM). Un candidato de hígado menor de 18 años al momento del registro recibirá puntuación de excepción por EM si el programa de trasplante del candidato presenta evidencia de un trastorno del ciclo de la urea o una acidemia orgánica. El candidato que cumpla estos requerimientos recibirá un puntaje acorde a la siguiente tabla:
+Tabla 7: Puntaje Enfermedad metabólica
+[imagen]
+Si el candidato no recibe un trasplante dentro de los 30 días naturales de estar registrado con la puntuación de excepción, el grupo de trasplante puede registrar al candidato como un Estatus lB. Para ser aprobado para una extensión de esta excepción de puntaje MELD o PELD, el programa de TH debe presentar una solicitud de extensión de excepción de acuerdo con el artículo 47 del presente Decreto Ejecutivo.

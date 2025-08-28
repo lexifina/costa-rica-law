@@ -1,0 +1,3 @@
+Artículo 29.- Sobre pacientes inscritos alrededor de los 18 años. Los candidatos de hígado con menos de 18 años en el momento de la inscripción, que permanezcan en lista de espera tras cumplir 18 años, se manejarán como pediátrico para efectos de asignación hasta alcanzar la edad de 21 años.
+A partir de los 21 años, los candidatos que anteriormente se manejaban como pediátricos pasarán a ser tratados como adultos en el proceso de asignación.
+Si el candidato es excluido de la lista de espera en cualquier momento y regresa a la lista de espera teniendo 18 años o más, el candidato debe registrarse como adulto.

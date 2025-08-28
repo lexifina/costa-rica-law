@@ -1,0 +1,1 @@
+Artículo 85.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 41555-S "Norma Nacional de distribución y asignación de hepática provenientes de donante cadavérico", publicado en el Alcance Nº 32 a La Gaceta Nº 30 del 12 de febrero del 2019.

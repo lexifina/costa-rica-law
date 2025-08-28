@@ -1,0 +1,3 @@
+Artículo 41.-Calendario de actualización de estatus y valores de laboratorio. Los equipos de trasplante deben certificar los valores de laboratorio del candidato de acuerdo con lo que establece la Tabla 2 de la presente normativa. Al actualizar los valores de laboratorio en el SINADOC, los equipos de trasplante deben presentar los resultados más recientes, incluyendo las fechas de las pruebas de laboratorio. Todas las muestras de laboratorio deben ser tomados el mismo día con un plazo máximo de diferencia entre un resultado y otro de 48 horas.
+Tabla 2. Actualización de Laboratorios según Clasificación Clínica
+[imagen]

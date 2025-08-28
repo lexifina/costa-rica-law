@@ -1,0 +1,1 @@
+Artículo 6.- Inscripción de pacientes nacionales o con residencia. Todo paciente nacional o con residencia permanente que vaya a ser incluido en la LETH, deberá estar asegurado en la Caja Costarricense de Seguro Social o contar con un seguro de gastos médicos que cubra los costos del eventual procedimiento y sus complicaciones.

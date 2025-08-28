@@ -1,0 +1,2 @@
+Artículo 34.- Puntuación MELD para Candidatos entre 12 años menores de 18 años. Candidatos que actualmente tienen 12 años o más, o tenían menos de 18 años cumplidos al momento del registro recibe una puntuación MELD igual a:
+a) MELD = [4.56 x loge(bilirrubina)] + [0.82 x (137-sodio)] - [0,24 x (137-sodio) x loge(bilirrubina)] +[9.09 x loge(INR)] + [11.14 x loge(creatinina)] + [1.85 x (3.5-albúmina)]- [1.83 x (3.5 - albúmina)x logc(creatinina)] + 7,33

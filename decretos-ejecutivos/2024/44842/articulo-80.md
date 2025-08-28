@@ -1,0 +1,4 @@
+Artículo 80.- Funciones del CMA. Son funciones del CMA todas las siguientes:
+a) Realizar una evaluación y emitir un criterio respaldado por evidencia en relación con situaciones específicas vinculadas a la priorización clínica excepcional de receptores en lista de espera no contempladas en la norma, distribución hepática, los procesos de trasplante y las condiciones asociadas, todo ello en consonancia con la legislación vigente.
+b) Elaborar un informe para cada situación evaluada, la cual será resguardada y custodiada por la SETDT, garantizando la documentación detallada de los análisis realizados.
+c) En situaciones que lo requieran, llevar a cabo un análisis retrospectivo de los casos evaluados, así como de las excepciones otorgadas, con el objetivo de verificar la coherencia de los dictámenes emitidos, los resultados obtenidos y proponer las correcciones necesarias para asegurar la integridad y eficacia del proceso.

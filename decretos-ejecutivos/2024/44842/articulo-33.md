@@ -1,0 +1,2 @@
+Artículo 33.- Puntuación MELD para Candidatos con 18 años o más. Los candidatos que tengan 18 años o más en el momento de la inscripción reciben una puntuación MELD igual a:
+a) MELD = 1.33 (si es mujer) + [4.56 x loge(bilirrubina)] + [0.82 x (137-sodio)] -[0,24 x (137-sodio) x loge(bilirrubina)] + [9.09 x loge(INR)] + [11.14 x loge(creatinina)] + [1.85 x (3.5-albúrnina)] - [1.83 x (3.5 - albúmina) x logc (creatinina)] + 6

@@ -1,0 +1,1 @@
+Artículo 13.- Gestión de Contraindicaciones en la LETH. Todo paciente que desarrolle contraindicaciones absolutas mientras se encuentra activo en lista de espera o contraindicaciones relativas, deben ser colocados en exclusión temporal cuando se considere que su condición es reversible, o excluidos de la LETH cuando sea irreversible.

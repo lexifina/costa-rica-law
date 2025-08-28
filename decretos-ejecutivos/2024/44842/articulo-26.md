@@ -1,0 +1,1 @@
+Artículo 26.- Paciente receptor de injerto hepático de donante con criterio extendido. El paciente receptor de injerto hepático proveniente de donante con criterio extendido es aquel que previo consentimiento acepta la recepción de un injerto hepático proveniente de un donante con criterio extendido, según el Anexo 3 del presente reglamento.

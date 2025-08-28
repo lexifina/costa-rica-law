@@ -1,0 +1,1 @@
+Artículo 71.-Tiempo de espera para candidatos de hígado-intestino. El tiempo de espera acumulado por un candidato a trasplante aislado de órgano intestinal mientras espera en lista de espera también podrá ser aplicado para un trasplante combinado de hígado-intestino, cuando se determine que el candidato requiere ambos órganos.

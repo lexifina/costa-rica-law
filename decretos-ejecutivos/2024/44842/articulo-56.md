@@ -1,0 +1,3 @@
+Artículo 56.- Trombosis de la arteria hepática (TAH). Un candidato recibirá una excepción de puntaje MELD para TAH si el candidato tiene 18 años o menos en el momento del registro y tiene una TAH dentro de los 14 días naturales posteriores al trasplante, pero no cumple con los criterios para el Estatus lA.
+Los candidatos que cumplan con estos requisitos recibirán una puntuación de MELD de 40.
+Para ser aprobado para una extensión de esta excepción de puntaje MELD o PELD, el programa de TH debe presentar una solicitud de extensión de excepción de acuerdo con el artículo 47 del presente Decreto Ejecutivo.

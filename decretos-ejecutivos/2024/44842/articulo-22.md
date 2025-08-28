@@ -1,0 +1,3 @@
+Artículo 22.- Aceptación, extracción y no implantación de un injerto hepático. Cuando un equipo de trasplante de hígado acepte una oferta de injerto de trasplante hepático y proceda a su extracción, pero decida no implantar el injerto extraído, deberá comunicar inmediatamente a la SETDT los motivos por los que no se realizó el implante, a través del coordinador hospitalario.
+La SETDT reasignará el injerto hepático al siguiente paciente en lista y será el equipo de trasplante quien evalúe la viabilidad del órgano ofertado, teniendo en cuenta el tiempo de isquemia transcurrido, y decidirá sobre su idoneidad para el nuevo receptor.
+Todo injerto hepático extraído y no utilizado debe ser enviado al servicio de patología según corresponda.

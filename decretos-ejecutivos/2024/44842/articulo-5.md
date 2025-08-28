@@ -1,0 +1,1 @@
+Artículo 5.- Exclusividad de Inscripción en Establecimiento de Salud. Un candidato sólo podrá estar inscrito por un establecimiento de salud público o privado, con el fin de no duplicarse su inscripción en otros establecimientos.
