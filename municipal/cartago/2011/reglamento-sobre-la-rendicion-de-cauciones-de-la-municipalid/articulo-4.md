@@ -1,1 +1,0 @@
-Artículo 4º—Del plazo de las garantías. Las garantías de los funcionarios obligados a rendir caución, deben mantenerse vigentes durante el tiempo en que se ocupe un cargo que así lo requiera, mientras se encuentre pendiente un procedimiento administrativo por daños o perjuicios, o por el lapso de prescripción de la responsabilidad civil.

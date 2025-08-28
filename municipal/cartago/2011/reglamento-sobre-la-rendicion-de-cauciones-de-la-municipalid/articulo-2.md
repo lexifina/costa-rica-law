@@ -1,1 +1,0 @@
-Artículo 2º—Propósito de la caución. El requerimiento de caución tiene el propósito de garantizar el resarcimiento de la Municipalidad ante la posibilidad de una pérdida económica ocasionada por alguno de los caucionantes, ocurrida durante el ejercicio de sus funciones. Esto no limita a la Municipalidad para gestionar la responsabilidad administrativa o civil que corresponda.

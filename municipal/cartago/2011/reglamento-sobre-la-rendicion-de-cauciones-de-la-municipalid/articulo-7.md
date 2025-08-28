@@ -1,1 +1,0 @@
-Artículo 7º—Sanciones disciplinarias. El Departamento de recursos humanos gestionará la aplicación de la sanción disciplinaria correspondiente en caso de que la garantía no se presente dentro del plazo definido, o se detecte alguna otra anomalía.
