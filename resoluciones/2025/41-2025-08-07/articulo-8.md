@@ -1,0 +1,1 @@
+Artículo 8º-Procedimiento para la presentación de las declaraciones informativas omisas de periodos fiscales anteriores a la entrada en vigor de TRIBU-CR. Para la presentación de declaraciones informativas de periodos anteriores a la entrada en vigor de TRIBU-CR, el obligado tributario deberá presentar dicha declaración a través del sistema TRIBUCR.

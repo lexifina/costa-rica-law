@@ -1,0 +1,1 @@
+Artículo 7º- Disponibilidad del formulario. El formulario citado en esta resolución estará disponible a través de portal TRIBU-CR. Las instrucciones de dicho formulario se encuentran en los anexos adjuntos a la presente resolución.
