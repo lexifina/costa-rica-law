@@ -1,0 +1,7 @@
+Capítulo II
+De la gestión y trámite de las solicitudes de autorización
+Artículo 7.- SOLICITUDES DE AUTORIZACIÓN Y SU PRESENTACIÓN. Las solicitudes de autorización deben presentarse en forma separada y por cada actividad singularmente considerada, en día y hora hábiles y por escrito, ante el CND.
+La presentación podrá hacerse desde un mes antes a la fecha de la convocatoria de la elección correspondiente y al menos con doce días hábiles de antelación a la celebración de la actividad. Este último plazo se computará a partir del día hábil siguiente de la presentación o del envío de la solicitud; en la verificación del plazo no se tomará en cuenta el día de la actividad. Las solicitudes gestionadas por medios electrónicos, debidamente firmadas en los términos señalados en el párrafo final del artículo 8 de este reglamento, podrán presentarse válidamente hasta el final del día hábil de que se trate.
+Las solicitudes deberán ser presentadas en el formulario digital que, para tales efectos, se pondrá a disposición de los partidos políticos o coaliciones, o bien mediante los mecanismos o herramientas electrónicas que establezca la Administración Electoral.
+Las oficinas regionales del TSE están habilitadas para recibir cualquier solicitud relacionada con las actividades descritas en este reglamento. Una vez recibida la solicitud, la respectiva oficina regional deberá ponerla, de inmediato, en conocimiento de la Oficina del CND para su resolución.
+Las solicitudes que se presenten fuera de los plazos establecidos en este artículo serán rechazadas de plano

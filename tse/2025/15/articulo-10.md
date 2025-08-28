@@ -1,0 +1,3 @@
+Artículo 10.- DEFINICIÓN DE LA RUTA EN DESFILES Y CARAVANAS COMO REQUISITO DE LA SOLICITUD. En el caso de los desfiles y caravanas, la ruta debe especificarse claramente en la solicitud de permiso; la actividad deberá llevarse a cabo con estricto apego a las regulaciones de tránsito y a las disposiciones que emita el TSE, por intermedio de sus Delegados.
+Tratándose de una caravana de vehículos con destino a otro lugar, se deberá circular a velocidad legal, sin detenerse y acatando la ruta previamente señalada.
+Ante situaciones imprevistas o excepcionales, previa coordinación con el CND, la agrupación política respectiva podrá variar parcialmente la ruta previamente autorizada, sin que ello configure una infracción.

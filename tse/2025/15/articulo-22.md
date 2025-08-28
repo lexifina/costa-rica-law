@@ -1,0 +1,2 @@
+Artículo 22.- FERIAS ELECTORALES Y SUS ASPECTOS GENERALES. El CND buscará promocionar estas actividades a partir de la invitación que haga a todas las fuerzas electorales presentes en la respectiva localidad.
+Los lugares en los que se realicen las ferias deberán ser sitios que permitan tanto la aglomeración segura como el libre tránsito de personas (parques, explanadas, plazas, bulevares, entre otros).

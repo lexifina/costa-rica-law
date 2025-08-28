@@ -1,0 +1,2 @@
+Artículo 11.- CANTIDAD MÁXIMA DE SOLICITUDES SEGÚN TIPO Y LUGAR DE LAS ACTIVIDADES. Como regla de sucesión, cada uno de los partidos políticos o coaliciones podrán realizar, en un mismo distrito electoral o localidad, hasta un máximo de una plaza pública, un mitin, un encuentro electoral, un desfile y una caravana, por mes calendario.
+En aras de promover la mayor difusión informativa de las opciones políticas participantes en la contienda electoral, se exceptúa de esta regla la realización de piquetes y ferias electorales.

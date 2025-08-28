@@ -1,0 +1,2 @@
+Artículo 19.- COMUNICACIÓN DE LO RESUELTO. Toda resolución será debidamente notificada de acuerdo con las normas establecidas en el Reglamento de Notificaciones a Partidos Políticos por Correo Electrónico (decreto número 06-2009 del 5 de junio de 2009, publicado en La Gaceta número 117 del 18 junio de 2009).
+Adicionalmente, se publicará en el sitio web del TSE una copia literal de toda resolución dictada. Esta publicación no habilita un nuevo plazo para recurrir.
