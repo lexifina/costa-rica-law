@@ -1,0 +1,2 @@
+Artículo - 30. Solicitantes para actividades sociales y culturales
+Podrán solicitar el uso de las instalaciones para actividades diferentes de la actividad deportiva o recreativa, las personas físicas o jurídicas, asociaciones deportivas, culturales y otras entidades reconocidas que cumpliendo la presente normativa y cancelen las tarifas correspondientes a dicha utilización, preferentemente las que tengan su domicilio en el cantón de Alajuelita,

@@ -1,0 +1,2 @@
+Artículo - 23. Del público que asiste a las instalaciones deportivas
+El usuario deberá guardar la respeto, compostura y decencia. En el caso daños causados por las personas asistentes a las actividades deportivas o recreativas o de cualquier otra índole, en especial del público en las graderías o entorno de la instalación deportiva, siempre del perímetro de esta serán asumidos por el organizador del evento o actividad.

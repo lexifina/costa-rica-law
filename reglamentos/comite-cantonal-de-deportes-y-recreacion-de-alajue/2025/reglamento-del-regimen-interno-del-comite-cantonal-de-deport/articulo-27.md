@@ -1,0 +1,12 @@
+Artículo - 27. Normas de uso del Estadio de Futbol
+El administrador o encargado del Estadio velara por el cumplimiento de las normas específicas para el uso de esta instalación:
+a) El destino de esta instalación será fundamental y preferentemente la práctica del fútbol o fútbol-7 por usuarios de clubes o asociaciones deportivas de preferencia pertenecientes al cantón de Alajuelita.
+b) Podrá utilizarse a campo completo o dividido a fin de acoger 2 partidos de fútbol-7, lo cual será coordinado con el administrador o encargado.
+c) Cuando se trate de competiciones oficiales, se permitirá el acceso al campo de fútbol a los equipos una hora antes para realizar el calentamiento, desocupando estos el Campo de fútbol en el momento de finalizar la competición.
+d) Los vestuarios se abrirán para los entrenamientos 30 minutos antes de la hora de entrenamiento y deberán desalojarlo 30 minutos después del entrenamiento. Cuando se trate de partido oficial, los vestuarios se abrirán 60 minutos antes de la hora de comienzo del partido debiéndolo desalojar 30 minutos después de concluido el encuentro. Lo anterior previo acuerdo con el administrador de la instalación deportiva.
+e) Los delegados o entrenadores de los diferentes equipos al retirar las llaves de los vestuarios y hasta el momento de su devolución, en tanto las llaves permanezcan en su poder, los equipos a los que representan serán responsables de los daños que pudieren realizarse.
+f) Durante los entrenamientos y competiciones oficiales únicamente podrán estar en el campo de fútbol lo/as deportistas, entrenadore/as y delegado/as de equipo que estén autorizado/as, el resto de las acompañantes y seguidore/as ocuparán un lugar de la grada.
+g) Los daños ocasionados serán responsabilidad siempre del organizador de la actividad.
+h) Cuando se trate de partidos oficiales y de alto grado de peligrosidad, el organizador deberá coordinar lo pertinente con las autoridades del Ministerio de Seguridad (Fuerza Pública), Policía Municipal y demás organizaciones necesarias para la seguridad de las personas que participan de la actividad, trátese de jugadores, cuerpos técnicos, delegados o de las personas que asistente al evento en calidad de aficionados.
+i) El Estadio deberá estar plenamente marcado y será responsabilidad del administrador o encargado del Estadio, excepto que la actividad no lo amerite.
+j) Los deportistas o personas que van a participar del evento de manera activa ingresarán al campo de juego en ropa y calzado deportivo.

@@ -1,0 +1,4 @@
+Artículo - 38. Desarrollo de iniciación de escuelas deportivas.
+El Comité Cantonal podrá estructurar programas para el desarrollo de las escuelas de iniciación deportivas utilizando las instalaciones deportivas municipales administradas por sí misma o por los comités comunales o comisiones estructuradas para ese fin.
+Asimismo, el administrador de la instalación (Comité Comunal), podrá también en coordinación con el Comité Cantonal desarrollar escuelas deportivas o en su defecto alquilar las instalaciones para que terceros realicen esa función.
+Los horarios serán establecidos por el administrador o responsable de la administración de la instalación en coordinación con la Junta Directiva del Comité Cantonal, de manera no hay sobreposición horaria, deberá darse prioridad los fines de semana de la 7 a las 10 horas.

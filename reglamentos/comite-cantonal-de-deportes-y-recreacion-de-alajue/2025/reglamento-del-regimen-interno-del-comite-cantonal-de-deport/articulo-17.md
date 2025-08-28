@@ -1,0 +1,2 @@
+Artículo - 17. Encargado de la instalación
+La persona designada por el Comité Cantonal, por el Comité Comunal o por la Comisión de Instalaciones deberá mantener las instalaciones con los requisitos básicos para el uso de la instalación, servicios sanitarios en las mejores condiciones, debidamente marcadas y en lo posible estar pendiente de la seguridad de la instalación. De lo contrario podrá ser removido por la Junta Directiva del Comité Cantonal.

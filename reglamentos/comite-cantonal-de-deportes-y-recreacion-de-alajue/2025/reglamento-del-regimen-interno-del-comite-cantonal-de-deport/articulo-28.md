@@ -1,0 +1,9 @@
+Artículo - 28. Normas de uso de las instalaciones del Parque Central
+El administrador o encargado del Estadio velará por el cumplimiento de las normas específicas para el uso de esta instalación: Esta instalación será preferentemente para la práctica del futsal, baloncesto y voleibol, por usuarios de clubes o asociaciones deportivas de preferencia pertenecientes al cantón de Alajuelita.
+a) Cuando se trate de competiciones oficiales, se permitirá el acceso a la duela a los equipos una hora antes para realizar el calentamiento, desocupando estos en el momento de finalizar la competición.
+b) Los vestuarios se abrirán para los entrenamientos 30 minutos antes de la hora de entrenamiento y deberán desalojarlo 30 minutos después del entrenamiento.
+c) Los delegados o entrenadores de los diferentes equipos al retirar las llaves de los vestuarios y hasta el momento de su devolución, en tanto las llaves permanezcan en su poder, los equipos a los que representan serán responsables de los daños que pudieren realizarse.
+d) Durante los entrenamientos y competiciones oficiales únicamente podrán estar en el campo de fútbol lo/as deportistas, entrenadore/as y delegado/as de equipo que estén autorizado/as, el resto de las acompañantes y seguidore/as ocuparán un lugar de la grada.
+e) Cuando se trate de partidos oficiales y de alto grado de peligrosidad, el organizador deberá coordinar lo pertinente con las autoridades del Ministerio de Seguridad (Fuerza Pública), Policía Municipal y demás organizaciones necesarias para la seguridad de las personas que participan de la actividad, trátese de jugadores, cuerpos técnicos, delegados o de las personas que asistente al evento en calidad de aficionados.
+f) Los daños ocasionados serán responsabilidad siempre del organizador de la actividad.
+g) Los deportistas o personas que van a participar del evento de manera activa ingresarán al campo de juego en ropa y calzado deportivo.

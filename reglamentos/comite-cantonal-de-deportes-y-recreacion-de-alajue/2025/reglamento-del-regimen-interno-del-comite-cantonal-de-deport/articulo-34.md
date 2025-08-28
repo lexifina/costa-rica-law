@@ -1,0 +1,3 @@
+Artículo - 34. Actividad física, deporte y recreación estudiantil
+Los colegios y escuelas del municipio podrán utilizar las instalaciones administradas por el Comité Cantonal mediante convenio suscrito con el Comité Cantonal y de acuerdo con la disponibilidad de la agenda.
+Por dicho motivo los centros educativos del cantón podrán acceder a las instalaciones deportivas de acuerdo con las condiciones del convenio suscrito de forma individualizada por cada uno de ellos con el Comité Cantonal a tal efecto, y siempre que lo hagan durante el horario lectivo, autorizados expresamente por el Colegio y cada estudiante acompañados de un profesor, que será responsable tanto de la educación física como del comportamiento de los asistentes.

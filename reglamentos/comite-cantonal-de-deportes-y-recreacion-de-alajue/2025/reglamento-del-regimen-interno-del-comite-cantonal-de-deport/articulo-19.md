@@ -1,0 +1,2 @@
+Artículo - 19. Trato cortés
+Utilizar el diálogo, un lenguaje respetuoso y amabilidad deben ser la base para dirigirse al usuario en cada una de sus solicitudes o inquietudes, escuchar las sugerencias y quejas de manera cortes es importante para una buena administración. El encargado y el usuario podrán interponer quejas e inquietudes al Comité Cantonal para la mejora permanente en la administración de la instalación deportiva.

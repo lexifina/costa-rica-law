@@ -1,0 +1,2 @@
+Artículo - 2. Publicidad
+Todo usuario de las instalaciones que administre el Comité Cantonal de Deporte y Recreación de Alajuelita tiene derecho y el deber de conocer y cumplir con los preceptos del presente Reglamento. Cualquier incumplimiento de dichas normas se pondrá inmediatamente en conocimiento de la Junta Directiva, salvo situaciones que ameriten la intervención de otras autoridades administrativas o judiciales.

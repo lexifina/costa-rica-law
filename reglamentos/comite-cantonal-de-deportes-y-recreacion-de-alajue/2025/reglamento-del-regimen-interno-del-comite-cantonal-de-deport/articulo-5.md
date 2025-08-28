@@ -1,0 +1,2 @@
+Artículo - 5. Competencia
+Todos los usuarios de las instalaciones deportivas y administrativas del cantón de Alajuelita son susceptibles de la aplicación de la presente normativa, sea en calidad de deportistas activos o personas pasivas. Igualmente, el presente reglamento se aplicará a los afiliados, asociaciones, clubes, deportistas, dirigentes deportivos, delegados, entrenadores, personal técnico y administrativo, auxiliar, científico y de arbitraje o juzgamiento, mismos que deberán contribuir al uso adecuado de las instalaciones.

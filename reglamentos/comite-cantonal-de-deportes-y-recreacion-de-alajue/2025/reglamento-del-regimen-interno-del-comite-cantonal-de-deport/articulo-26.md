@@ -1,0 +1,2 @@
+Artículo - 26. Horarios de prestación
+Los horarios convenidos para el alquiler de la instalación serán en horas exactas. Dicho alquiler no podrá ser cedido a ningún otro usuario. Igualmente, si no se hiciere uso de la instalación en el horario pactado por razones atinentes al organizador no habrá reembolso en dinerario o en otro espacio, salvo que la administración así lo determine. Solo en caso de error administrativo en la agenda de la instalación y como consecuencia de un acto atinente a la administración de la instalación será reintegrado el monto del alquiler pactado.
