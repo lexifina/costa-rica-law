@@ -1,0 +1,1 @@
+Artículo 27.- Inscripción de pacientes nacionales. Todo paciente nacional que desee ingresar a la lista nacional de receptores debe estar asegurado de la Caja Costarricense del Seguro Social o contar con un seguro de gastos médicos que cubra los costos del eventual procedimiento y sus complicaciones.

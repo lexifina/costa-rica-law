@@ -1,0 +1,1 @@
+Artículo 35.- Exclusión permanente por rechazo del paciente. Si un paciente incluido en lista nacional de receptores, luego de ser localizado por el equipo tratante rechaza el trasplante por motivos no justificables en tres oportunidades consecutivas independientemente del plazo entre una y otra, se deberá excluir de la lista de forma permanente, por el médico tratante.

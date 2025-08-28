@@ -1,0 +1,20 @@
+ANEXO 1 - CARACTERISTICAS CORNEALES
+INFORMACION DEL DONANTE
+Nombre: Sexo: Edad: Raza: Fecha de Defunción: Hora de Defunción: Causa de Defunción:
+INFORMACION DE LA EXTRACCIÓN
+Establecimiento Extractor: Fecha de Extracción: Hora de Extracción: Medio de Preservación: Pruebas Serológicas: HIV VDRL Hepatitis C HTVL Hepatitis B Chagas ESTADO DE REFRIGERACIÓN: SI ( ) / NO ( )
+Corresponde a:
+Córnea Derecha Tejido N°: | Córnea Izquierda Tejido N°:
+1. Análisis macroscópico del globo ocular. Este apartado debe recoger las principales características de la córnea observadas durante su examen macroscópico inicial. Integridad del envase y medio de preservación: Tamaño y regularidad del anillo escleral: Presencia de cicatriz o leucomas: Brillo corneal (BUENO / OPACA): Presencia de cuerpos extraños: Observaciones
+2. Análisis con lámpara de hendidura de epitelio, estroma y endotelio corneal. Este apartado debe recoger las características observadas durante su examen, destacando que las lesiones detectadas en el epitelio no son un criterio de invalidez para el trasplante, ya que el epitelio receptor está sometido a una constante regeneración celular. Cirugía previa: Alteraciones del epitelio (desepitelización, opacidad): Alteraciones estromales (engrosamiento, opacidad, cicatrices, pliegues, estrías): [imagen] Defectos de la Membrana de Descemet y del endotelio (cicatrices, pliegues y estrías):
+[imagen]
+[imagen] Observaciones:
+3. Análisis con microscopio especular de la población endotelial. Este apartado debe recoger información acerca del número, tamaño y forma de las células. Densidad celular (nº de células/mm) Hexagonalidad: Paquimetría (?m): Polimegatismo: Polimormismo: Homogeneidad (nº de campos analizados y discontinuidades descritas: Guttas, pliegues, estrías, roturas, depósitos, edema) Observaciones
+VALORACIÓN FINAL DEL ENDOTELIO CORNEAL Tipo de Cirugía para el que es Apta: marque con X ( ) Penetrante ( ) Lamelar anterior (DALK) ( ) Lamelar posterior (DSAEK, DMEK). ( ) Tectónico
+Se debe anexar reporte de conteo endotelial.
+Nombre del Técnico del Banco de ojos: ______________________ Firma ___________________
+Nombre del Coordinador del Banco de ojos ___________________Firma____________________
+ANEXO 2- LIBERACIÓN DE RESPONSABILIDAD POR LA NO INCLUSIÓN EN LISTA NACIONAL DE RECEPTORES PARA TRASPLANTE DE CORNEA
+ESTABLECIMIENTO TRASPLANTADOR:
+FECHA: HORA:
+Yo, , número de identificación, , MANIFIESTO: 1- Que el Dr.(a) me ha advertido de su obligación de realizar las gestiones necesarias a los efectos de inscribirme en la lista nacional de receptores para un posible trasplante de córneas, de acuerdo con las disposiciones de la Ley 9222 del 13 de marzo de 2014, "Ley de Donación y Trasplante de Órganos y Tejidos Humanos". 2- Que el Dr.(a) , me ha informado que, como requisito indispensable para ser incluido en lista nacional de receptores, es necesaria la realización de estudios previos complementarios y obligatorios. 3- Que el Dr. (a) , me ha explicado en forma suficientemente clara y entendible las consecuencias, riesgos y evolución razonablemente esperada que, de acuerdo con los conocimientos científicos, se puede prever si no recibo un trasplante de córneas. 4- Que se me ha informado que mi decisión de no ser incluido(a) en la lista no implica que en el futuro no pueda modificarla. 5- Que el resultado de mi decisión de no ser incluido(a) en la lista no modificará o limitará mi derecho a la asistencia médica, ni la relación con mi médico tratante. 6- Que en conocimiento de todo lo anteriormente expuesto y del procedimiento para acceder a un futuro trasplante de córneas, declaro que es de mi expresa voluntad NO someterme a los estudios mencionados y por lo tanto también rechazo ser incluido en la lista nacional de receptores y consecuentemente rechazo expresamente someterme al procedimiento quirúrgico para recibir un trasplante, por razones personales. 7- Tomo conocimiento que podré cambiar mi decisión en cualquier momento, debiendo comunicarlo, en ese caso al equipo de profesionales tratante. [imagen] [imagen] FIRMA Y CODIGO MEDICO TRATANTE FIRMA PACIENTE

@@ -1,0 +1,1 @@
+Artículo 12.- Inscripción obligatoria en SINADOC. Únicamente pueden participar en la asignación del tejido corneal los potenciales receptores que se encuentren inscritos en el SINADOC al momento de la distribución.

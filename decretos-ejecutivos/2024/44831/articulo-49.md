@@ -1,0 +1,1 @@
+Artículo 49.- Derogatoria. Deróguese el Decreto Ejecutivo No 40046-S del 04 de octubre del 2016 "Norma para autorización de profesionales, distribución de tejido ocular para trasplante, importación y exportación de tejido ocular".

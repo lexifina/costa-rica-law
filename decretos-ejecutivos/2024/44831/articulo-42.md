@@ -1,0 +1,1 @@
+Artículo 42.- Comunicación de exclusiones en el SINADOC. En los casos de exclusión definitiva de receptores, la información correspondiente debe ser comunicada de manera inmediata a la Secretaría Ejecutiva Técnica de Donación de Órganos y Tejidos y deben ser dados de baja permanente en el SINADOC por el establecimiento de salud autorizado.

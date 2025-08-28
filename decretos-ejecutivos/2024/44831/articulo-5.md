@@ -1,0 +1,1 @@
+Artículo 5.- Selección de tejido ocular para donación. Pueden ser utilizados en los procesos de donación y trasplante los tejidos oculares provenientes de donantes que no presenten ninguna de las condiciones establecidas en los artículos siguientes sobre contraindicaciones.

@@ -1,0 +1,1 @@
+Artículo 32.- Actualización de exámenes complementarios. La actualización de exámenes complementarios queda a criterio del profesional a cargo del trasplante, quien tiene la facultad de determinar la periodicidad y la necesidad de realizar exámenes complementarios adicionales, en función de la evolución clínica del receptor y la naturaleza de su condición médica.

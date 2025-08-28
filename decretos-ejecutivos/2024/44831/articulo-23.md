@@ -1,0 +1,1 @@
+Artículo 23.- Rechazo de tejido asignado. En los casos en los que el coordinador del equipo de trasplante de córnea no acepte el tejido ocular ofrecido, debe notificar la causa a la SETDT y remitir la documentación que respalde su decisión dentro de las veinticuatro 24 horas siguientes al ofrecimiento del tejido.

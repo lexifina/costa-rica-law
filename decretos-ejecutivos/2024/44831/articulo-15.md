@@ -1,0 +1,1 @@
+Artículo 15.- Ordenamiento de la lista nacional de receptores. El ordenamiento numérico de la lista nacional de receptores se debe establecer en cada operativo de distribución, basándose en las características del donante y del potencial receptor, así como el establecimiento de salud, donde fue procurado el tejido ocular.

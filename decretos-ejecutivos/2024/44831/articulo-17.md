@@ -1,0 +1,1 @@
+Artículo 17.- Emisión de lista de receptores. La SETDT debe generar la lista de distribución e informar sobre la disponibilidad del tejido, al coordinador de trasplante de córneas del establecimiento de salud, quien debe indicar la aceptación o rechazo de la córnea ofrecida, en el plazo de hasta 2 días hábiles.

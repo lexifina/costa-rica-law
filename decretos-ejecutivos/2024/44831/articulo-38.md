@@ -1,0 +1,1 @@
+Artículo 38.- Reingreso a la lista nacional de receptores por exclusión transitoria. En los casos de reingreso a la lista nacional de receptores tras una exclusión transitoria, se debe respetar la fecha de efectivización de la primera inscripción en la lista nacional de receptores.

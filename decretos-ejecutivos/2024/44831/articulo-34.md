@@ -1,0 +1,1 @@
+Artículo 34.- Exclusión voluntaria de la lista nacional de receptores. El paciente que no desee ingresar a la lista nacional de receptores, o desee ser excluido de esta, debe llenar el Anexo 2: Liberación de responsabilidad por la no inclusión en lista nacional de receptores para trasplante de córnea.

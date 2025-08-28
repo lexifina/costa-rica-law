@@ -1,0 +1,4 @@
+Artículo 44.- Comité técnico asesor. En caso de existir dudas ante un caso clínico, se debe conformar un Comité Técnico Asesor. El jerarca del Ministerio de Salud debe designar a los profesionales del Comité con base en los siguientes criterios:
+a) Tres médicos especialistas en oftalmología de distintos establecimientos de salud trasplantadores de tejido ocular, quienes tienen voz y voto, los mismos se pueden hacer acompañar de otros médicos especialistas quienes pueden tener voz, pero no voto.
+b) Dos miembros de la Secretaría Ejecutiva Técnica de Donación y Trasplante, con voz, pero sin voto.
+El Jerarca del Ministerio de Salud en conjunto con los miembros del Comité Técnico Asesor, deben determinar la metodología de funcionamiento, así como su frecuencia de las reuniones, en el plazo de seis meses a partir de la vigencia del presente decreto.
