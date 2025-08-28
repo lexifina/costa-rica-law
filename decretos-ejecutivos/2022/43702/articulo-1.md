@@ -1,4 +1,6 @@
+(Anulada)
 N° 43702-MS-MEIC
+(Este decreto ejecutivo fue anulado por resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Quinta, N° 2025-008647 del 28 de agosto de 2025)
 EL PRESIDENTE DE LA REPÚBLICA,
 LA MINISTRA DE SALUD, Y EL MINISTRO
 DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -39,11 +41,11 @@ Artículo 1°-Reforma. Refórmese el epígrafe de los artículos 1, 19, 20, 21, 
 "Artículo 19.-Tabla de aranceles de referencia y de uso discrecional de Terapia Física o Fisioterapia.
 (...)"
 "Artículo 20.-Tabla de aranceles de referencia y de uso discrecional de Terapia Ocupacional.
-(…)"
+(.)"
 "Artículo 21.-Tabla de aranceles de referencia y de uso discrecional de Terapia del Lenguaje.
-(…)"
+(.)"
 "Artículo 22.-Tabla de aranceles de referencia y de uso discrecional de Terapia Respiratoria.
-(…)"
+(.)"
 "Artículo 23.-Tabla de aranceles de referencia y de uso discrecional de Audiología.
 (...)"
 "Artículo 24.-Tabla de aranceles de referencia y de uso discrecional de Imagenología Diagnóstico y Terapéutica.

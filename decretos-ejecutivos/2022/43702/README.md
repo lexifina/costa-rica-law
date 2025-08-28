@@ -14,3 +14,4 @@ Reforma Arancel de honorarios mínimos de profesionales en las áreas de terapia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-13 | la propia norma |
+| 2 | 2025-08-28 | SINALEVI (sin norma nombrada) |
