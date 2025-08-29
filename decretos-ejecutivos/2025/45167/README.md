@@ -14,3 +14,4 @@ Reglamento para Garantizar la Observancia de los Derechos de Autor en el uso de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-29 | la propia norma |
+| 2 | 2025-08-29 | Decreto Ejecutivo 45163 (2025-08-08) |
