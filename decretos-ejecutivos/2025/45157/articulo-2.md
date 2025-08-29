@@ -1,0 +1,1 @@
+Artículo 2°-De conformidad con el artículo 20 de la Ley de Catastro Nacional N° 6545 de 25 de marzo de 1981, se declara zona catastrada el Cantón 06 Quepos, Distrito 03 Naranjito, Provincia 06 Puntarenas.
