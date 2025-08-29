@@ -1,0 +1,1 @@
+ARTÍCULO 9. - La empresa TRANS AMERICAS FIBER COSTA RICA SOCIEDAD ANÓNIMA, en el plazo de un mes contado a partir de la publicación del presente Decreto Ejecutivo, deberá presentar ante el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones los planos constructivos finales del CABLE SUBMARINO TAM-1, de conformidad con el inciso c) del artículo 5 de la Ley Nº 7832.

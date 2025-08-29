@@ -1,0 +1,1 @@
+ARTÍCULO 7. - Se le indica a la empresa TRANS AMERICAS FIBER COSTA RICA SOCIEDAD ANÓNIMA, que esta autorización no prejuzga ni excluye las otras autorizaciones y requisitos dispuestos en el ordenamiento jurídico nacional, que debe cumplir la empresa autorizada.
