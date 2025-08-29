@@ -1,0 +1,5 @@
+CAPÍTULO XIII
+DISPOSICIONES FINALES
+(Así modificada la numeración del capítulo anterior en sesión N° CXL, celebrada el 29 de agosto de 2025, que lo traspaso del antiguo capítulo XII al capítulo XIII)
+Artículo 86.-A falta de disposición expresa, se aplican supletoriamente: la normativa electoral nacional siempre y cuando sea aplicable por su naturaleza y demás circunstancias, la Ley Orgánica N.º 4770, la Ley N.º 8765 publicada en el alcance 37 de La Gaceta N.º 171 del 02 de setiembre del 2009, la Constitución Política, la Ley N.º 7142 del 26 de marzo de 1990, la Convención sobre la Eliminación de Todas las Formas de Discriminación contra la Mujer (Cedaw), la Ley N.º 6968 del 02 de octubre de 1984, la Conferencia Mundial de las Naciones Unidas sobre los derechos humanos (Viena 1983), el Consenso de Quito del 09 de agosto de 2007, las leyes conexas, los principios generales del derecho y la opinión consultiva CO24/17.
+(Así modificada su numeración en sesión N° CXL, celebrada el 29 de agosto de 2025, que lo traspaso del antiguo artículo 76 al artículo 86)

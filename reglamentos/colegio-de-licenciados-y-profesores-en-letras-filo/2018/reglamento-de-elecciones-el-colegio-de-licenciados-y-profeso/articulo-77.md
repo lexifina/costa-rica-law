@@ -1,1 +1,2 @@
-Artículo 77. Los casos no contemplados en el presente reglamento serán resueltos temporalmente en primera instancia por el Tribunal, de conformidad con los principios de justicia y equidad y con apego a las normativas ligadas al presente reglamento. De ser necesario, el Tribunal propondrá a la Asamblea que la solución de tales casos se incluya en este cuerpo de normas.
+Artículo 77.-Puestos por elegir. Los puestos a elegir serán los de representante propietario y representante suplente, del Colegio ante la institución u órgano externo respectivo, según se indique expresamente en la convocatoria correspondiente.
+(Así adicionado en sesión N° CXL, celebrada el 29 de agosto de 2025)

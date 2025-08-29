@@ -1,3 +1,6 @@
-CAPÍTULO XII
-DISPOSICIONES FINALES
-Artículo 76. A falta de disposición expresa, se aplican supletoriamente: la normativa electoral nacional siempre y cuando sea aplicable por su naturaleza y demás circunstancias, la Ley Orgánica 4770, la Ley N° 8765 publicada en el alcance 37 de La Gaceta N° 171 del 02 de setiembre del 2009, la Constitución Política, la Ley N° 7142 del 26 de marzo de 1990, la Convención sobre la Eliminación de Todas las Formas de Discriminación contra la Mujer (Cedaw), la Ley N° 6968 del 02 de octubre de 1984, la Conferencia Mundial de las Naciones Unidas sobre los derechos humanos (Viena 1983), el Consenso de Quito del 09 de agosto de 2007, las leyes conexas, los principios generales del derecho y la opinión consultiva CO-24/17.
+CAPÍTULO XII.
+SOBRE ELECCIONES PARA LA REPRESENTACIÓN DEL COLEGIO DESIGNADAS POR ASAMBLEA
+(Así adicionado el capítulo anterior en sesión N° CXL, celebrada el 29 de agosto de 2025)
+Artículo 76.-Convocatoria ordinaria y extraordinaria. El Tribunal Electoral convocará, conforme a la normativa vigente y los requerimientos institucionales, a los procesos de elección para designar representantes del Colegio ante instituciones u órganos externos, cuando dicha representación deba ser electa mediante votación popular por parte de las personas colegiadas, y en una Asamblea.
+La convocatoria será ordinaria cuando responda a los plazos establecidos por el órgano externo correspondiente, y extraordinaria en los casos en que se genere una vacante que no pueda ser cubierta mediante los mecanismos ordinarios establecidos.
+(Así adicionado en sesión N° CXL, celebrada el 29 de agosto de 2025)

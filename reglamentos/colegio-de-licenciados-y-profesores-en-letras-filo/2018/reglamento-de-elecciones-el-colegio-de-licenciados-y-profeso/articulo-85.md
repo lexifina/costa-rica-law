@@ -1,0 +1,2 @@
+Artículo 85.-Plazo de designación en el cargo. El período de ejercicio de la representación institucional será el que determine el ente, organismo o institución externa ante la cual se realiza el nombramiento. En ausencia de disposición expresa por parte del órgano externo, el Tribunal Electoral podrá fijar un plazo razonable, conforme a la naturaleza del cargo y los intereses del Colegio.
+(Así adicionado en sesión N° CXL, celebrada el 29 de agosto de 2025)

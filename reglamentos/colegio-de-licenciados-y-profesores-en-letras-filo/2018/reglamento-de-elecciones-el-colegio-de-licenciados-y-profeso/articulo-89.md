@@ -1,0 +1,2 @@
+Artículo 89.-Una vez aprobado este Reglamento de Elecciones por la Asamblea General, la Junta Directiva procede a su publicación en el diario oficial La Gaceta en un plazo no superior a los treinta días naturales, y empieza a regir ocho días después de su publicación.
+(Así modificada su numeración en sesión N° CXL, celebrada el 29 de agosto de 2025, que lo traspaso del antiguo artículo 79 al artículo 89)

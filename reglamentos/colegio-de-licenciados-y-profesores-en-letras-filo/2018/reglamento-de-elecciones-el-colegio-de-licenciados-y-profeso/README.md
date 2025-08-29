@@ -14,3 +14,4 @@ Reglamento de elecciones el Colegio de Licenciados y Profesores en Letras, Filos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-26 | la propia norma |
+| 2 | 2025-08-29 | Reglamento 140 (2025-08-29) |
