@@ -1,0 +1,1 @@
+Articulo 11.- Condiciones del Centro de Alta Contención. Deberá reunir las condiciones técnicas, funcionales y operativas adecuadas, para brindar una atención diferenciada a las personas privadas de libertad con perfiles criminales de alta peligrosidad o vinculadas a estructuras de crimen organizado.

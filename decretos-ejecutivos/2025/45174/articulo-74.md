@@ -1,0 +1,7 @@
+Artículo 74.- Proceso de atención en la suspensión de ingreso. De presentarse alguna causa de las contempladas en este reglamento que amerite suspender él' ingreso de una persona en calidad de visitante, se procederá de la siguiente manera:
+a) Toda acción irregular que implique la comisión de un ilícito-será asumida en conjunto por la dirección y la Sección Profesional de Derecho, en ausencia de estos será asumido por el jefe de la Policía Penitenciaria del circuito;
+b) Cuando la persona visitante porte objetos prohibidos, el personal de la Policía Penitenciaria, abordarán el caso cumpliendo con el debido proceso;
+c) Cuando la persona visitante se presente con signos de haber ingerido licor u otras drogas se tomará medida cautelar para que no ingrese por ese día;
+d) Cuando la persona visitante se presente con vestimenta que ponga en riesgo su integridad física y moral, o que altere la dinámica convivencia y la seguridad institucional, se aplicará una medida cautelar por ese día impidiéndole el ingreso;
+e) Cuando se suscite una situación· de irrespeto hacia algún funcionario u otro visitante dentro de las instalaciones del Circuito de Alta Contención, la situación será abordada por la Policía Penitenciaria.
+f) Aquellas situaciones asociadas a incidentes de violencia intrafamiliar o donde estén involucradas personas menores de edad, la dirección del Circuito de Alta Contención la remitirá a la Sección Profesional de Trabajo Social para el respectivo abordaje.

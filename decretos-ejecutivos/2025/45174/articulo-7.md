@@ -1,0 +1,1 @@
+Artículo 7.-Potestad de ampliación del Circuito de Alta Contención. Será potestad de la Dirección General de Adaptación Social de acuerdo con la necesidad institucional ampliar los espacios destinados para albergar población con perfil de alta contención.

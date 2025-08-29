@@ -1,0 +1,1 @@
+Artículo 28.-Eucomiendas. Las personas privadas de libertad en el Circuito de Alta Contención solamente podrán recibir encomiendas conforme a las regulaciones, especificación y periodicidad establecidas por la Dirección General de Adaptación Social mediante normativa interna.

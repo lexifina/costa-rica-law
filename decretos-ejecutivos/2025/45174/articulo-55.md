@@ -1,0 +1,1 @@
+Artículo 55.- Espacios para recibir la visita. Se destinarán espacios adecuados para el desarrollo de la visita, los cuales deben reunir las condiciones de higiene y seguridad necesarias, conforme lo disponga la Administración Penitenciaria.

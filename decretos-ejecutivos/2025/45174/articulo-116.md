@@ -1,0 +1,1 @@
+Artículo 116.- Acceso restringido. Serán de acceso restringido las piezas del expediente que contengan información confidencial, o en general aquellas cuyo conocimiento pueda conferir una oportunidad para dañar ilegítimamente a ofendidos, a la administración penitenciaria, a otras personas privadas de libertad o terceros, o confiera a la parte un privilegio.

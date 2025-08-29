@@ -1,0 +1,1 @@
+Artículo 48.- Descuento para personas sentenciadas. A la persona sentenciada, se le podrá autorizar previamente el beneficio conferido en el Artículo 55 del Código Penal para que se le aplique después del cumplimiento de la mitad de la pena con descuento; con base en el cómputo inicial elaborado por la autoridad jurisdiccional competente.

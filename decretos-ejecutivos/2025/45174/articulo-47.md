@@ -1,0 +1,1 @@
+Artículo 47.- Descuento para personas indiciadas. Una vez que se tenga conocimiento de que adquirió firmeza la sentencia de una persona que permanecía descontando prisión preventiva, la Sección Profesional de Derecho contará con quince días hábiles para determinar los períodos de prisión preventiva cumplidos en la causa respectiva.

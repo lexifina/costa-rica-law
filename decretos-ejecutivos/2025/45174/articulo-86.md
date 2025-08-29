@@ -1,0 +1,1 @@
+Artículo 86.- Ingreso de bienes a los espacios de visita sociofamiliar y especial. Solo se permitirá el ingreso de la persona visitante con su documento de identificación, no se autorizará ningún artículo adicional.

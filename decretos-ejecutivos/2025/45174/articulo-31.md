@@ -1,0 +1,4 @@
+Artículo 31.-Limpieza y orden de las instalaciones. Es deber y responsabilidad de las personas privadas de libertad mantener la limpieza, el orden y en correcto estado de conservación las instalaciones de sus celdas tanto individuales como colectivas, así como de los espacios comunes.
+Se prohíbe expresamente rayar, pintar murales o pegar recortes de papel de cualquier naturaleza sobre las paredes, mantener covachas o similares sobre las literas, las camas. deben de hacerse posterior al recuento de la mañana y sus pertenencias deben mantenerse resguardadas en los espacios destinados para este fin.
+El incumplimiento anterior constituye falta disciplinaria conforme lo establecido en este reglamento.
+Las labores aquí enunciadas no forman parte del régimen ocupacional para efectos de descuento de la pena.

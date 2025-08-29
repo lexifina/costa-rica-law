@@ -1,0 +1,1 @@
+Artículo 56.- Cantidad de personas visitantes por persona privada de libertad. Toda persona privada de libertad deberá consignar, en el registro de visitantes, a las personas adultas autorizadas para efectuar visitas. No obstante, por motivos de seguridad institucional, durante cada jornada de visita se permitirá únicamente el ingreso de una persona adulta previamente autorizada.

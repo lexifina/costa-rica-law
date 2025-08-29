@@ -1,0 +1,2 @@
+Artículo 20.- Ejecución de los acuerdos y recomendaciones del Consejo Interdisciplinario y del Instituto Nacional de Criminología. Los acuerdos serán ejecutados una vez que adquieran firmeza y estén debidamente notificados.
+Una vez recibido el acuerdo del Instituto Nacional de Criminología que autoriza la reubicación, se deberá de coordinar entre la dirección del Circuito y el centro receptor con aval de la Coordinación del Nivel lnstitucional para ejecutar el traslado cuando así corresponda.

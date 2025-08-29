@@ -1,0 +1,1 @@
+Artículo 78.- Organización. La Sección Profesional de Trabajo Social del Circuito de Alta Contención será la responsable del procedimiento de visita íntima. La visita se llevará a cabo en el espacio designado por la Administración Penitenciaria, bajo condiciones ambientales y sanitarias adecuadas.

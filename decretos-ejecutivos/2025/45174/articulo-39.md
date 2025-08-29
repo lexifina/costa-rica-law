@@ -1,0 +1,1 @@
+Artículo 39.- Orden de libertad. La orden de libertad decretada por la autoridad jurisdiccional se ejecutará de inmediato por la autoridad penitenciaria en el tanto se haya cumplido todo, lo indicado en el artículo 38 anterior,

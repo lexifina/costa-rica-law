@@ -1,0 +1,1 @@
+Artículo 66.-Horario. El horario para la visita de los abogados a las personas que representan será de lunes a viernes comprendido de las nueve a las dieciséis horas con un máximo de una hora por persona privada de libertad.

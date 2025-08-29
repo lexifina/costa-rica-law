@@ -1,0 +1,1 @@
+Artículo 13.-Clasificación. Para efectos de ubicación en el circuito, la población privada de libertad se clasificará en dos categorías para las personas sentenciadas e indiciadas de contención individual y de contención grupal. En ambos casos se respetará la separación por condición jurídica.

@@ -1,0 +1,1 @@
+Artículo 63.- Visitas especiales autorizadas. Por la naturaleza del Circuito de Alta Contención, se autorizará cada seis meses la visita intracarcelaria de familiares de primer grado de consanguinidad, conforme a los procedimientos de visita regulados.

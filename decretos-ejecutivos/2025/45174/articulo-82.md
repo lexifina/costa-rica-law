@@ -1,0 +1,2 @@
+Artículo 82.- Cese de la suspensión de la visita íntima. Una vez vencido el plazo de una suspensión dictada, solamente mediante solicitud escrita de la parte interesada podrá reanudarse la visita íntima.
+La dirección del Circuito de Alta Contención podrá autorizar la reanudación de la visita íntima mediante resolución fundada, siempre y cuando las condiciones que motivaron la suspensión hayan cesado, según se desprenda de un informe previo confeccionado por Ia Sección Profesional de Trabajo Social.

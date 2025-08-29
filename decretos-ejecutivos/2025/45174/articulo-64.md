@@ -1,0 +1,1 @@
+Artículo 64.- Procedimiento para solicitar visitas especiales. La dirección del Circuito será la encargada de autorizar o denegar las solicitudes de visita especial. La Sección Profesional de Trabajo Social deberá realizar en el marco de sus competencias, el estudio respectivo, el cual deberá de ajustarse a los lineamientos establecidos por el Instituto Nacional de Criminología.

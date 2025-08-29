@@ -1,0 +1,1 @@
+Artículo 108.- Obligatoriedad de elaborar el reporte. El reporte debe ser elaborado por los funcionarios que conozcan del hecho, dentro de un plazo máximo de 48 horas posteriores al conocimiento de la presunta falta.

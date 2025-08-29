@@ -1,0 +1,1 @@
+Artículo 1.07.- Deber de denunciar hechos con apariencia de ilícito penal. Cuando los hechos que motivan un reporte puedan constituir un ilícito penal, la Dirección del Circuito de Alta Contención, en coordinación con la Sección Profesional de Derecho, deberá presentar la denuncia ante la autoridad jurisdiccional. competente.

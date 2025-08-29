@@ -1,0 +1,1 @@
+Artículo 132.-Uso de gas irritante para control de disturbios. La Policía Penitenciaria podrá hacer uso del gas lacrimógeno o irritante para controlar situaciones de riesgo que pongan en peligro la seguridad y estabilidad institucional, según los protocolos establecidos, previa autorización del director de la Policía Penitenciaria.

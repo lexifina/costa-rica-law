@@ -1,0 +1,1 @@
+Artículo 30.-Alimentación. La alimentación de las personas privadas de libertad ubicadas en el Circuito Alta Contención será provista exclusivamente por la administración del establecimiento penitenciario en los horarios y lugares determinados. Queda prohibido el ingreso de alimentación distinta a la elaborada por la administración penitenciaria.
