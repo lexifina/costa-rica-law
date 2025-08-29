@@ -1,0 +1,1 @@
+Artículo 11.- Todas las solicitudes de compra para programas de cómputo, que realicen los diferentes Ministerios e Instituciones adscritas al Gobierno Central, deberán ser consultadas y validadas por el experto en informática que se tenga designado en cada institución.

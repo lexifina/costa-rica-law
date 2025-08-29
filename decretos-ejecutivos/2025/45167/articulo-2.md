@@ -1,0 +1,4 @@
+Artículo 2.- El Jerarca de cada Ministerio o Institución adscrita al Gobierno Central, tendrá las siguientes obligaciones:
+a) Rendir un informe anual de cumplimiento de los derechos de autor en los programas de cómputo. Este informe será remitido a la Dirección del Registro de Propiedad Intelectual del Registro Nacional por los medios que esta habilite, a más tardar el último día hábil del primer mes de cada año y comprenderá la información contemplada en el artículo 5 del presente Decreto Ejecutivo.
+b) Considerar en caso de ser necesario, solicitar las auditorías internas o externas que determine o sean requeridas para garantizar el cumplimiento de este Reglamento.
+c) Tomar las medidas administrativas, disciplinarias y penales correspondientes para garantizar la observancia de los Derechos de Autor en el uso de los programas de cómputo.

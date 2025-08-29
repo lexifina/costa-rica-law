@@ -1,0 +1,1 @@
+Artículo 15.- Los Ministerios e Instituciones adscritas al Gobierno Central, en los casos que sea posible, podrán utilizar software de código abierto en sus diferentes aplicaciones, como una alternativa útil; garantizando el respeto a los Derechos de la Propiedad Intelectual.

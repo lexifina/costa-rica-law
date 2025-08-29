@@ -1,0 +1,1 @@
+Artículo 9.- Ante cualquier violación a las normas de derechos de autor por parte de los funcionarios de los Ministerios e Instituciones adscritas al Gobierno Central, se procederá con la apertura de un procedimiento administrativo, con el fin de aplicar la sanción de carácter administrativo disciplinario que corresponda.
