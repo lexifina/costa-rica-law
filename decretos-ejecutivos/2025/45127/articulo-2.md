@@ -1,0 +1,1 @@
+Artículo 2°- Modifíquese el nombre del Decreto Ejecutivo Nº 28436-MOPT del 09 de marzo del 2000 y sus reformas, "RAC 02 REGLAS GENERALES DE OPERACIÓN Y VUELO", para que en adelante se denomine "Reglamento Aeronáutico Costarricense Reglas Generales de Operación y Vuelo"
