@@ -33,7 +33,11 @@ s) Garantizar la apertura de los espacios deportivos, sin limitar su acceso, en 
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
 t) Incentivar la participación y la permanencia en el deporte, por parte de los jóvenes, mediante la realización de campañas y actividades deportivas promovidas en las distintas escuelas y colegios.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
-u) Promover una cultura de paz social y prevención de la violencia en los espacios públicos y de uso común, para resguardar la integridad de las personas
+u) Promover y asegurar la participación y representación activa de las personas jóvenes indígenas, en los procesos de toma de decisiones que afecten a sus territorios y su desarrollo integral, respetando y valorando su conocimiento ancestral y su libre autodeterminación.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025)
+v) Promover una cultura de paz social y prevención de la violencia en los espacios públicos y de uso común, para resguardar la integridad de las personas
 (Así adicionado el inciso anterior por el artículo 10 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
-v) Asegurar a las personas jóvenes el acceso a la debida información y mecanismos de participación en la planificación de espacios públicos.
+(Así modificada la numeración del inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025, que lo traspaso del antiguo inciso u) al inciso v))
+w) Asegurar a las personas jóvenes el acceso a la debida información y mecanismos de participación en la planificación de espacios públicos.
 (Así adicionado el inciso anterior por el artículo 10 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
+(Así modificada la numeración del inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025, que lo traspaso del antiguo inciso v) al inciso w))
