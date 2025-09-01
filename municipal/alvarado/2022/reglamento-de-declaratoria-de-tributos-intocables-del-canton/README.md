@@ -14,3 +14,4 @@ Reglamento de declaratoria de tributos intocables del Cantón de Alvarado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-28 | la propia norma |
+| 2 | 2025-09-01 | Reglamento municipal 103 (2025-09-01) |
