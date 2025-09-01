@@ -1,0 +1,1 @@
+Artículo 4º-Responsable de ejecución. La Unidad Técnica de Gestión Vial Municipal (UTGVM) ejecutará las obras de mantenimiento, rehabilitación de las aceras existentes del cantón de Hojancha, de manera directa, así como la construcción de nuevas aceras conforme a la planificación municipal, de forma tal que el servicio no se vea afectado.

@@ -1,0 +1,1 @@
+Artículo 22.-Uso del espacio público. El departamento de Planificación Urbana y Control Constructivo determinará, respetando el ancho mínimo de circulación, el permiso de uso espacial del espacio público para actividades.

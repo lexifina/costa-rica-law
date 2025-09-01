@@ -1,0 +1,10 @@
+CAPÍTULO VI
+Artículo 32.-Se cobrará una tasa según el artículo 83 del Código Municipal por las siguientes obras y costos:
+a) Por el mantenimiento y rehabilitación de aceras que se encuentren en el estado que establece el artículo N° 5 del presente reglamento.
+b) Por el 50% dejado de percibir del costo total de la construcción de aceras frente a propiedades que constituyan un bien único de las personas propietarias de acuerdo con el artículo 2 de la ley 7337.
+c) Las personas propietarias o poseedoras sean bajos recursos económicos, se les eximirá del pago por el costo de las aceras o infraestructura peatonal frente a propiedades, previa solicitud de la persona interesada, aportando la certificación o constancia de encontrarse en extrema pobreza comprobada o declarada por el IMAS. Este trámite se presentará en la oficina de la Alcaldía para la elaboración de la resolución que autorice la eliminación del cobro.
+. La tasa entrará en vigencia 30 días después de la publicación en La Gaceta.
+. La tasa incluirá todos los costos efectivos para el año presupuestario según el plan respectivo, incluye las obras establecidas en el presente artículo más el 10% de utilidad para desarrollarlo.
+. La tasa se fijará y cobrará proporcionalmente entre los contribuyentes de cada distrito según el valor registrado de la propiedad. Se calculará en forma anual y se cobrará en tractos trimestrales sobre saldo vencido.
+. Se cobrará un cincuenta por ciento (50%) de esta tasa en el caso de inmuebles que constituyan bien único de los sujetos pasivos (personas físicas) y tengan un valor máximo equivalente a cuarenta y cinco salarios bases establecidos en el artículo 2 de la Ley 7337.
+. La UGTVM, a partir de la vigencia del presente reglamento, dispondrá como capital de trabajo para la construcción de obras que faciliten la movilidad peatonal, el cinco por ciento (5%) de los recursos provenientes de la Ley 7509, Impuesto sobre Bienes Inmuebles de 9 de mayo de 1995, el cual se irá reduciendo de forma escalonada en un uno por ciento (1 %) anual hasta llegar a un mínimo de un uno por ciento (1 %) de forma permanente.
