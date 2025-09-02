@@ -10,3 +10,5 @@ g) Por infringir los artículos 10, 48 y 49 de este Reglamento.
 h) Por inhabilitación judicial.
 i) Por dejar de residir en el Cantón de Dota.
 j) Cuando se incurra en actos lesivos a las buenas costumbres y violación evidente de leyes y reglamentos en la materia en ejercicio de sus funciones.
+k: Que se encuentren en el artículo 176 del código municipal, el cual establece que los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus conyugues o parientes en línea directa o colateral hasta el tercer grado inclusive, estarán inhibidos para integrar estos comités, los cuales funcionarán según el reglamento que promulgue la municipalidad. Inciso l: Quedará suspendido del cargo dentro del comité de deportes, por cualquier investigación que el concejo mantenga abierto.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 0018 del 2 de setiembre del 2024)

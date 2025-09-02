@@ -16,3 +16,4 @@ Reglamento para la Organización y Funcionamiento del Comité Cantonal, Distrita
 | 1 | 2018-03-02 | la propia norma |
 | 2 | 2024-09-02 | Reglamento municipal 18 (2024-09-02) |
 | 3 | 2024-11-18 | Reglamento municipal 29 (2024-11-18) |
+| 4 | 2025-09-02 | Reglamento municipal 18 (2025-09-02) |
