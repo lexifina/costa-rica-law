@@ -1,0 +1,2 @@
+Reintegros
+Artículo 26.-Los reintegros del Fondo Fijo de Caja Chica deberán ser realizados por la persona encargada de su manejo, cuando el disponible llegue a un treinta por ciento (30%) del fondo fijo autorizado, con el propósito de que le permita cumplir adecuadamente con la operación. Estos reintegros se deben emitir a nombre de la Tesorera Municipal o jefatura en ausencia del titular para la operación del Fondo Fijo de Caja Chica.

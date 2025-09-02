@@ -1,0 +1,1 @@
+Artículo 20.-Si se presenta una emergencia y el funcionario realiza la compra sin trámite "Adelanto de Caja Chica"; debe esperar a que se emita el documento "Comprobante de Caja Chica" autorizado por la alcaldía municipal para proceder con el desembolso.

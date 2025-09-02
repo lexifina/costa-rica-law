@@ -1,0 +1,1 @@
+Artículo 34.-En caso de que el encargado de la caja chica no aplique las regulaciones del presente Reglamento será acreedor de las sanciones que establece el Reglamento Autónomo de Servicio de la Municipalidad de Mora o cualesquiera otras, que resulten aplicables según nuestra legislación nacional.

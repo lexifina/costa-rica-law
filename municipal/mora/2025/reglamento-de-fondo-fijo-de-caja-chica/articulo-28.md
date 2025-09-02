@@ -1,0 +1,1 @@
+Artículo 28.-Retención de justificantes de pagos. Cuando la persona encargada del manejo del Fondo considere necesario, podrá retener los justificantes de pagos, en el plazo que considere indispensable no mayor de dos meses, con el fin de conformar un grupo de comprobantes para proceder luego a su reintegro como lo estipula el artículo 23º.

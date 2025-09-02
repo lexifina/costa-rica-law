@@ -1,0 +1,2 @@
+De la administración de la caja chica
+Artículo 5°-Se establece para uso en la Administración General de la Municipalidad de Mora un fondo fijo de caja chica para la compra de bienes y servicios, por la suma de un millón de colones netos (1.000.000,00). Para uso de la Unidad Técnica de Gestión Vial se establece un fondo de Caja Chica de igual monto, diferenciado del anterior por tratarse de fondos provenientes de la Ley de Simplificación y Eficiencia Tributaria N° 8114.
