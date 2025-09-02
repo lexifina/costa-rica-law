@@ -1,0 +1,1 @@
+Artículo 15.-Derecho a resguardo legal y respaldo moral: En casos donde se presenten conflictos derivados del ejercicio de su función, el COPROBI brindará respaldo institucional, siempre que su actuación haya sido conforme a derecho.

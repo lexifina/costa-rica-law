@@ -1,0 +1,1 @@
+Artículo 72.-La designación de representantes será realizada por la instancia directiva correspondiente, de acuerdo con la naturaleza del espacio en el que se participa. Los representantes deberán cumplir con los requisitos establecidos por este reglamento y aceptar formalmente su designación mediante acta.

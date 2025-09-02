@@ -1,0 +1,1 @@
+Artículo 44.-Hospedaje autorizado: El hospedaje deberá ajustarse a tarifas razonables sin exceder el estándar de hotel de tres estrellas y será cubierto únicamente durante los días de agenda institucional.

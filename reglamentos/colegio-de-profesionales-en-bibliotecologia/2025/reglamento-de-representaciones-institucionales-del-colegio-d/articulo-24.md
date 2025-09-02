@@ -1,0 +1,1 @@
+Artículo 24.-Criterios de selección: Se valorarán méritos académicos, experiencia profesional, vinculación con la temática de la representación, y disponibilidad para asistir a reuniones o actividades.

@@ -1,0 +1,1 @@
+Artículo 38.-Estipendios por transporte: Cuando se acumule entre 6 y 9 reuniones bimestrales, se otorgará un estipendio de transporte o gasolina, que no puede ser mayor al monto máximo de atraso por mora.

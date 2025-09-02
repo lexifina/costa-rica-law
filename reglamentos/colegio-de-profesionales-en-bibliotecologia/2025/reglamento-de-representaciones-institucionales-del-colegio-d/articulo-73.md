@@ -1,0 +1,1 @@
+Artículo 73.-Los representantes institucionales deberán cumplir con sus funciones de forma responsable, mantener informada a la organización, y participar activamente en las instancias asignadas. Tienen derecho a recibir apoyo logístico e información necesaria para el cumplimiento de su labor. El incumplimiento reiterado de sus deberes podrá ser sancionado.

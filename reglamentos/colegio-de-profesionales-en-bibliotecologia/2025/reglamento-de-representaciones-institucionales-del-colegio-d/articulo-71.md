@@ -1,0 +1,1 @@
+Artículo 71.-Las representaciones institucionales son designaciones oficiales mediante las cuales la organización participa en espacios externos o internos de coordinación, consulta, decisión o representación ante otras entidades. Dichas representaciones deben resguardar los intereses institucionales y actuar conforme a los principios establecidos por este reglamento.
