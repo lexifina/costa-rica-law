@@ -16,3 +16,4 @@ Metodología tarifaria ordinaria para el servicio de generación de energía el�
 | 1 | 2015-08-10 | la propia norma |
 | 2 | 2024-03-19 | Resolución 12 (2024-03-19) |
 | 3 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
+| 4 | 2025-09-02 | Resolución 120 (2025-09-02) |

@@ -51,7 +51,7 @@ kWh Kilovatio hora
 Mideplan Ministerio de Planificación Nacional y Política Económica
 MINAE Ministerio de Ambiente y Energía
 NIIF Normas Internaciones de Información Financiera
-Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)" (*)
+Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*)
 (*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 PNE Plan Nacional de Energía
 SNE Servicio Nacional de Electricidad
@@ -98,6 +98,8 @@ c. Es necesario establecer y formalizar procedimientos claros para la obtención
 5. Estimar las desviaciones existentes entre el cálculo del ajuste tarifario resultante del uso de valores estimados y la actualización del cálculo con valores reales; lo anterior una vez que se requiera un nuevo proceso o solicitud de fijación tarifario ordinario. En este sentido, el monto resultante se liquida en el nuevo proceso de fijación tarifaria.
 6. Establecer un mayor grado de flexibilidad en las tarifas al usuario final del sistema de generación, específicamente en las tarifas de usuarios directos, que promueva la eficiencia, la competitividad del sector y la atracción de inversiones.
 (Así adicionado el punto anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
+5. Establecer un mayor grado de flexibilidad en las tarifas al usuario final del sistema de generación, específicamente en las tarifas de usuarios directos, que promueva la eficiencia, la competitividad del sector y la conservación y atracción de inversiones.
+(Así adicionado el punto anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025))
 IV. MARCO LEGAL
 1. Competencias de la Autoridad Reguladora para establecer metodologías tarifarias
 La Ley N° 7593 transformó al Servicio Nacional de Electricidad (SNE) en una institución autónoma denominada Autoridad Reguladora de los Servicios Públicos (Aresep), con personalidad jurídica y patrimonio propio, así como, autonomía técnica y administrativa, cuyo objetivo primordial es ejercer la regulación de los servicios públicos establecidos en el artículo 5 de dicha Ley.
@@ -187,9 +189,9 @@ La Junta Directiva, el regulador general, el regulador general adjunto y los mie
 De conformidad con lo anteriormente expuesto, resulta claro que la Junta Directiva de la Autoridad Reguladora, es la competente para emitir las metodologías tarifarias de los servicios públicos regulados incluyendo el de suministro de energía eléctrica en sus etapas de generación, transmisión, distribución y comercialización; para lo cual deberá seguir el procedimiento de audiencia pública en el garantice la participación ciudadana y para la emisión de las mismas deberá observar el principio de servicio al costo, las reglas de la ciencia y la técnica y las disposiciones generales emitidas en el Plan Nacional de Desarrollo, relativas al sector eléctrico.
 Una vez que se ha determinado el marco jurídico que respalda el ejercicio de la función regulatoria por parte de la Aresep y de su facultad para emitir metodologías que le permitan la fijación de tarifas, es preciso observar el servicio público cuya metodología nos ocupa.
 3. Regulación del servicio de suministro de energía eléctrica en Costa Rica
-Tratándose del sector eléctrico en Costa Rica, se observa que éste se caracteriza por una amplia participación del Estado en los ámbitos de políticas, planificación, regulación y operación. La definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Dirección Sectorial de Energía (DSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VI Plan Nacional de Energía 2012-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)"(*). Asimismo, la labor de regulación (incluida la fijación de tarifas) del servicio de suministro de energía eléctrica en todas sus etapas, está a cargo de la Autoridad Reguladora de los Servicios Públicos (Aresep), según el artículo 5 inciso a) la Ley N° 7593.
-La prestación de dicho servicio público, como cualquier otro, amerita por parte de la Aresep, la fijación de tarifas en sus diversas etapas, ello de conformidad con la normativa aplicable y las metodologías que se establezcan al efecto.
+Tratándose del sector eléctrico en Costa Rica, se observa que éste se caracteriza por una amplia participación del Estado en los ámbitos de políticas, planificación, regulación y operación. La definición de políticas y planes nacionales referentes a este sector, que orientan las acciones de los agentes, corresponde a la Dirección Sectorial de Energía (DSE), perteneciente al Ministerio de Ambiente y Energía (MINAE), que elabora el Plan Nacional de Energía -PNE- (actualmente, rige el VI Plan Nacional de Energía 2012-2030), y el Ministerio de Planificación Nacional y Política Económica, con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*). Asimismo, la labor de regulación (incluida la fijación de tarifas) del servicio de suministro de energía eléctrica en todas sus etapas, está a cargo de la Autoridad Reguladora de los Servicios Públicos (Aresep), según el artículo 5 inciso a) la Ley N° 7593.
 (*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
+La prestación de dicho servicio público, como cualquier otro, amerita por parte de la Aresep, la fijación de tarifas en sus diversas etapas, ello de conformidad con la normativa aplicable y las metodologías que se establezcan al efecto.
 En cuanto al servicio de suministro de energía eléctrica, la Aresep debe realizar su labor también con vista en el Reglamento Sectorial de Servicios Eléctricos (Decreto Nº 29847-MP-MINAE-MEIC del 19 de noviembre de 2001), que dispone lo siguiente:
 "Artículo 1º. Campo de aplicación. Este Reglamento define y describe las condiciones principales en que debe suministrarse el servicio eléctrico, en condiciones normales de explotación.
 Su aplicación es obligatoria para las empresas eléctricas que se encuentren establecidas en el país o que llegaren a establecerse bajo régimen de concesión, de conformidad con las leyes correspondientes.
@@ -243,10 +245,11 @@ Como puede notarse, cada uno de los participantes en el sector eléctrico en cua
 De acuerdo con la normativa citada, la Ley N° 7593 y su reglamento, con el Reglamento Sectorial de Servicios, con las normas técnicas dictadas por la Aresep, y con las metodologías que se emitan al respecto, la Autoridad Reguladora de los Servicios Públicos, regula la prestación del servicio de suministro de energía eléctrica en Costa Rica, por parte de los sujetos autorizados para ello.
 V. ALCANCES Y LIMITACIONES
 Esta metodología se aplicará para las fijaciones tarifarias ordinarias correspondientes al servicio de generación de electricidad que prestan los operadores públicos y cooperativas de electrificación rural. Mediante esta metodología, se calcula el ajuste porcentual a reconocer en las fijaciones para el servicio antes mencionado, que se establecerá durante el lapso de fijación ordinaria correspondiente.
-La metodología define el ajuste porcentual requerido para compensar el cambio en los costos y en la demanda y, por tanto, en los costos totales e inversiones del servicio regulado para el período en que estará vigente la tarifa. En ese sentido, la metodología no contempla el establecimiento del procedimiento de la estructura tarifaria, la definición de la tarifa puntual a los operadores y la definición de la tarifa máxima a los usuarios directos del servicio. Se determina el ajuste porcentual requerido que deberá posteriormente distribuirse de conformidad con lo que técnicamente determine la IE entre las diferentes tarifas y bloques de acuerdo con la estructura tarifaria. Las tarifas máximas considerarán criterios de eficiencia, competitividad y atracción de inversiones.
-(Así reformado el párrafo anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
-Una vez definidas las tarifas máximas para los usuarios directos del servicio, es potestad del prestador definir las reglas comerciales y técnicas con las que se establecerá el precio final, basado en elementos objetivos de la política pública, tales como las metas nacionales y sectoriales del "Plan Nacional de Desarrollo e Inversión Pública" vigente, el "Plan Nacional de Descarbonización" y la "Política para el aprovechamiento de los recursos excedentes en el Sistema Eléctrico Nacional para el desarrollo de una economía de hidrógeno verde", así como la "Política Regulatoria" emitida por la Junta Directiva de ARESEP; garantizando la no discriminación entre usuarios con las mismas condiciones, de conformidad con la Ley N°.7593.
+La metodología define el ajuste porcentual requerido para compensar el cambio en los costos y en la demanda y, por tanto, en los costos totales e inversiones del servicio regulado para el período en que estará vigente la tarifa. En ese sentido, la metodología no contempla el establecimiento del procedimiento de la estructura tarifaria, la definición de la tarifa puntual a los operadores y la definición de la tarifa máxima a los usuarios directos del servicio. Se determina el ajuste porcentual requerido que deberá posteriormente distribuirse de conformidad con lo que técnicamente determine la IE entre las diferentes tarifas y bloques de acuerdo con la estructura tarifaria. Las tarifas máximas considerarán criterios para fomentar la eficiencia y la competitividad, así como la conservación y atracción de inversiones.
+(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025))
+Una vez definidas las tarifas máximas para los usuarios directos del servicio, es potestad del prestador definir las reglas comerciales y técnicas con las que se establecerá el precio final, basado en elementos objetivos de la política pública, tales como las metas nacionales y sectoriales del "Plan Nacional de Desarrollo e Inversión Pública" vigente, el "Plan Nacional de Descarbonización" y otras políticas públicas aplicables, así como la "Política Regulatoria" emitida por la Junta Directiva de ARESEP; garantizando la no discriminación entre usuarios con las mismas condiciones, de conformidad con la Ley N°. 7593.
 (Así adicionado el párrafo anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
+(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025))
 La presente metodología no se aplica para la determinación de precios de referencia para las ventas de electricidad producida por generadores privados, para lo cual existen otras metodologías tarifarias vigentes.
 VI. OBJETIVOS DE LA METODOLOGÍA
 Mediante la aprobación y aplicación de esta metodología, se busca contribuir al logro de los siguientes objetivos:
@@ -260,12 +263,12 @@ Establecer los períodos de tiempo que se emplean para el cálculo de promedios 
 Homologar criterios para el tratamiento de las variables que intervienen en el cálculo de ajuste tarifario ordinario del sistema de generación de energía eléctrica.
 Estimar las desviaciones existentes entre el cálculo del ajuste tarifario resultante del uso de valores estimados y la actualización del cálculo con valores reales. En este sentido, el monto resultante se liquida en el nuevo proceso de fijación tarifaria.
 4. Obtener una estimación del ajuste porcentual requerido para compensar el cambio en los costos y en la demanda y, por tanto, en los costos totales e inversiones del servicio regulado para el período en que estará vigente la nueva fijación tarifaria.
-5. Establecer un mayor grado de flexibilidad en las tarifas a los usuarios finales del sistema de generación, específicamente en las tarifas de usuarios directos, que promueva la eficiencia, la competitividad del sector y la atracción de inversiones.
+5. Establecer un mayor grado de flexibilidad en las tarifas a los usuarios finales del sistema de generación, específicamente en las tarifas de usuarios directos, que fomente la eficiencia y la competitividad del sector, así como la conservación y atracción de inversiones.
 (Así adicionado el párrafo anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
+(Así reformado el párrado anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025))
 VII. DEFINICIÓN DE LA METODOLOGÍA TARIFARIA
 1. MODELO GENERAL
 El modelo general para determinar el ajuste porcentual por reconocer en las fijaciones ordinarias para el servicio de generación eléctrica requiere del cálculo de los siguientes componentes: a) ingresos totales, b) costos totales, c) rédito para el desarrollo, d) base tarifaria, e) período de aplicación, y f) monto y ajuste tarifario. La distribución del ajuste porcentual por tipo de tarifa se hará de conformidad con lo que técnicamente determine la Intendencia de Energía (IE). El modelo establece que la tarifa debe ser suficiente para generar los ingresos que permitan al operador cubrir los costos totales asociados al servicio que se regula - bajo condiciones de calidad establecidas - y además garantizar un monto sobre el capital invertido, denominado rédito para el desarrollo, que depende de la tasa de rédito y la base tarifaria, de la siguiente forma:
-[imagen]
 Donde:
 IT = Ingresos totales. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 10).
 COMA = Costos y gastos totales de operación, mantenimiento y administración, así como otros costos en que incurran los operadores para brindar el servicio (ver apartado 3 sección VII).
@@ -276,7 +279,6 @@ En la presente metodología se entiende por período "t", al período base de an
 La longitud o extensión de las series de tiempo, requeridas para las variables del período base "t", se determinaran de manera exógena, de forma tal que todas las variables empleen una extensión de tiempo adecuada para el cálculo de promedios o proyecciones. Por tanto, para cada variable se definirá de acuerdo con los requerimientos de información que se definen en cada caso a lo largo de la presente metodología.
 Por su parte, el período "t+1" es definido como el período de tiempo durante el cual estará vigente el nuevo ajuste tarifario, típicamente es un año. El período t+1 deberá ser definido por la Intendencia de Energía según el artículo 16 de la Ley General de la Administración Pública y deberá incorporar en el estudio de fijación tarifaria los criterios empleados para su definición.
 En el primer caso, se emplean valores reales u observados en el período t para el cálculo de la siguiente manera:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria
 𝐼𝑇𝑡 = Ingresos totales. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 10).
@@ -287,7 +289,6 @@ Los costos y gastos de operación, mantenimiento y administrativos, la base tari
 a) Determinación del monto de ajuste para el período en que entrará en vigencia:
 Para la determinación del monto de ajuste requerido en el siguiente período, t +1, el período en el que estará vigente la nueva fijación tarifaria, primero se proyectan a 12 meses las variables IT con las tarifas de generación vigentes, COMA y BT de la fórmula 1 (ver apartado 2 y 3 de la sección VII).
 De la fórmula 1, se obtiene:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 IT = Ingresos totales estimados para el período t+1 con las tarifas vigentes. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 10).
@@ -296,7 +297,6 @@ Rtv,t+1 = Tasa de rédito para el desarrollo que resulta con las tarifas vigente
 BTt+1 = Base tarifaria formada por la sumatoria del Activo Fijo Neto en Operación Revaluado Promedio (AFNORP) y el Capital de trabajo para el período t+1.
 tv = Tarifas vigentes
 Al despejar el rédito para el desarrollo de la fórmula 3, se obtiene que:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Rtv,t+1 = Tasa de rédito para el desarrollo que resulta con las tarifas vigentes para el período t+1.
@@ -308,7 +308,6 @@ tv = Tarifas vigentes.
 La tasa de rédito para el período t+1 con las tarifas vigentes (Rtv, t+1), es utilizada como indicador para determinar si se requiere un ajuste tarifario o no. Este rédito se compara con 𝑅𝑡+1,, el rédito obtenido mediante el procedimiento definido en el apartado 4 de la sección VII, de forma que si el rédito con tarifas vigentes es mayor que el rédito obtenido en el apartado 4 de la sección VII se requiere una disminución en las tarifas, si es igual no se requiere ajuste y si es menor, se requiere un aumento en las tarifas.
 b) Cálculo del ajuste en ingresos
 La estimación de los ingresos totales que se requieren para la obtención de la tasa 𝑅𝑡+1en el período t+1 se calcula mediante el modelo de la fórmula 1:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝑇𝑡+1 = Ingresos totales requeridos para la obtención de la tasa Rt+1 para el período t+1.
@@ -316,7 +315,6 @@ COMAt+1 = Costos y gastos totales de operación, mantenimiento, administración 
 𝑅𝑡+1 = Tasa de rédito calculada mediante el WACC para el período t+1 (apartado 4 sección VII).
 BTt+1 = Base tarifaria formada por la sumatoria del Activo Fijo Neto en Operación Revaluado Promedio (AFNORP) y el Capital de trabajo para el período t+1 (ver apartado 5 sección VII).
 Así, el monto de ajuste requerido en los ingresos totales para obtener la tasa 𝑅𝑡+1 a partir de las tarifas vigentes, es:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de generación eléctrica para la obtención de la tasa 𝑅𝑡+1 para el período t+1.
@@ -324,7 +322,6 @@ t+1 = Período en el que estará vigente el ajuste tarifario
 (ver fórmula 4).
 IT = Ingresos totales estimados para el período t+1 con la tarifa vigente (ver fórmula 10).
 El monto del ajuste también se puede expresar como la diferencia entre el excedente de operación obtenido con la tasa de rédito calculada con el WACC (𝑅𝑡+1 ∗ 𝐵𝑇𝑡+1) (apartado 4 de la sección VII) y los excedentes de operación proyectados para el período t+1 con las tarifas vigentes (𝑅𝑡𝑣,𝑡+1 ∗ 𝐵𝑇𝑡+1).Este monto debe ser después distribuido entre las diferentes tarifas del servicio de generación de la electricidad. El ajuste es establecido de la siguiente forma:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de generación eléctrica.
@@ -334,8 +331,7 @@ t+1 = Período en el que estará vigente el ajuste tarifario
 tv = Tarifas vigentes.
 𝐼𝑇 − 𝐶𝑂𝑀𝐴 = El excedente de operación , es igual a (𝑅 ∗ 𝐵𝑇).
 Desde el punto de vista de composición de los ingresos (ver modelo en la fórmula 10) al ser los ingresos por ventas locales los únicos que en esta metodología dependen explícitamente de las tarifas, se cumple que:
-[imagen]
-Y en consecuencia: [imagen]
+Y en consecuencia:
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario
 𝐼𝑇𝑡+1 = Ingresos totales requeridos para la obtención de la tasa Rt+1 para el período
@@ -346,7 +342,6 @@ Iv = Ingresos por ventas de energía y potencia a usuarios locales, estimados pa
 𝐼𝐸 = Ingresos por exportaciones estimados para t+1. Se consideran invariantes ante cambios de tarifas locales (ver apartado 2.2 sección VII).
 𝐼𝑜 = Otros ingresos proyectados para t+1 relacionados con la actividad de generación eléctrica. Se consideran invariantes ante cambios de tarifas locales (ver fórmula 17).
 De las fórmulas 4.1, 10 y 4.3 se deduce que en esta metodología el incremento en ingresos totales debe provenir únicamente del respectivo aumento en los ingresos por ventas locales:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de generación eléctrica para la obtención de la tasa 𝑅𝑡+1 para el período t+1.
@@ -357,7 +352,6 @@ t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝐸 = Ingresos por exportaciones estimados para t+1 (ver apartado 2.2 sección VII).
 𝐼𝑜 = Otros ingresos proyectados para t+1 relacionados con la actividad de generación eléctrica (ver fórmula 17).
 En consecuencia, el monto de ajuste en los ingresos obtenido mediante la fórmula 5, se traduce, en el ajuste porcentual en los ingresos por ventas internas de la siguiente manera:
-[imagen]
 Donde:
 %IT = Ajuste porcentual requerido en los ingresos por ventas locales.
 ΔIT = Ajuste o cambio requerido en los ingresos por ventas locales del servicio de generación eléctrica (ver fórmula 5).
@@ -365,7 +359,6 @@ Iv = Ingresos por ventas de energía y potencia a usuarios locales, estimados pa
 𝐼𝐷 = Ingresos por ventas al servicio de distribución propio estimados para el período t+1 con las tarifas vigentes de generación (ver apartado 2.1.1 sección VII).
 Este ajuste porcentual requerido deberá ser distribuido de conformidad con lo que técnicamente determine la IE entre las diferentes tarifas y bloques de forma que se alcancen los ingresos requeridos por la empresa generadora.
 En el caso de generación, el total de las ventas (kWh) estimadas para el período que estará vigente la tarifa es:
-[imagen]
 Donde:
 t+1 = Período en que estará vigente el ajuste tarifario.
 𝑉𝐸𝑇𝐸𝑡+1 = Ventas totales estimadas para el período t+1.
@@ -376,7 +369,6 @@ em = Empresa distribuidora o usuario directo. Si la empresa para la cual se est�
 f = Cantidad de empresas y usuarios directos.
 n = Cantidad de meses.
 Y el precio promedio para el período que estará vigente la tarifa, utilizado como referencia del nivel tarifario, se calcula de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en que estará vigente el ajuste tarifario.
 Pt+1 = Precio promedio estimado para el período t+1.
@@ -387,8 +379,14 @@ Pt+1 = Precio promedio estimado para el período t+1.
 Io = Otros ingresos relacionados con la actividad de generación eléctrica proyectados para el período t+1 (ver fórmula 17).
 𝑉𝐸𝑇𝐸𝑡+1 = Ventas totales estimadas mensuales para el período t+1 en que entrará a regir la tarifa (ver fórmula 7).
 Liquidación del período anterior
-Una vez aplicado por primera vez el modelo descrito en la presente metodología, en las sucesivas fijaciones ordinarias para el servicio de generación de energía eléctrica, deberán revisarse y actualizarse todas las estimaciones realizadas para el cálculo del ajuste tarifario vigente. De manera que se identifiquen y consideren las siguientes diferencias: a) Para tarifas puntuales: diferencias entre los valores estimados para todas las variables que se consideran en el cálculo del ajuste tarifario con tarifas puntuales y los valores reales identificados para las tarifas puntuales durante el período en que el ajuste tarifario estuvo vigente; y b) Para tarifas máximas: Para los consumos no incrementales (todo consumo de T-UD no reconocido como consumo incremental por medio de un contrato o convenio), solo se reconocerán diferencias entre los ingresos estimados en el cálculo del ajuste tarifario y los ingresos reales, cuando estas diferencias se originen en variaciones en las cantidades vendidas. No se reconocerán desviaciones sobre las estimaciones de tarifas máximas cuando las diferencias sean ocasionadas por los precios acordados en cada caso, en otras palabras, para efectos de liquidaciones, estas siempre serán reconocidas a su valor máximo. Para el caso de los consumos incrementales debidamente respaldados por convenios o contratos entre el prestador y los usuarios de TUD serán reconocidos a la tarifa acordada. No se consideran consumos incrementales los consumos correspondientes a usuarios T-UD nuevos.
+(*) Una vez aplicado por primera vez el modelo descrito en la presente metodología, en las sucesivas fijaciones ordinarias para el servicio de generación de energía eléctrica, deberán revisarse y actualizarse todas las estimaciones realizadas para el cálculo del ajuste tarifario vigente. De manera que se identifiquen y consideren las siguientes diferencias:
+a) Para tarifas puntuales: diferencias entre los valores estimados para todas las variables que se consideran en el cálculo del ajuste tarifario con tarifas puntuales y los valores reales identificados para las tarifas puntuales durante el período en que el ajuste tarifario estuvo vigente;
+b) Para tarifas máximas: Para los consumos no incrementales (todo consumo de T-UD no reconocido como consumo incremental por medio de un contrato o convenio), solo se reconocerán diferencias entre los ingresos estimados en el cálculo del ajuste tarifario y los ingresos reales, cuando estas diferencias se originen en variaciones en las cantidades vendidas. No se reconocerán desviaciones sobre las estimaciones de tarifas máximas cuando las diferencias sean ocasionadas por los precios acordados en cada caso, en otras palabras, para efectos de liquidaciones, estas siempre serán reconocidas a su valor máximo.
+Para el caso de los consumos incrementales, debidamente respaldados por convenios o contratos entre el prestador y los usuarios de T-UD, serán reconocidos a la tarifa acordada. Se entenderá por consumos incrementales aquellos consumos adicionales de energía y/o potencia realizados por los usuarios T-UD respecto a su consumo base, y que cuenten con sustento contractual. Para los usuarios T-UD nuevos, podrá considerarse como consumo incremental la totalidad o una parte del consumo registrado, siempre que así se establezca de forma expresa y técnicamente justificada en el contrato o convenio correspondiente.
+En los convenios o contratos deberá establecerse, de forma técnicamente justificada, los parámetros, criterios y plazos para determinar los consumos incrementales y no incrementales. Además, deberán incluir como mínimo las siguientes condiciones: el compromiso de consumo de energía y potencia asumido por el abonado, la vigencia del acuerdo, las consecuencias en caso de incumplimiento de los compromisos de consumo, condiciones pactadas respecto a la tarifa, las cláusulas de revisión o terminación anticipada, entre otras disposiciones relevantes.
+A los usuarios T-UD actuales y a los nuevos se les podrán reconocer consumos incrementales en energía y potencia, cuando se encuentren debidamente respaldados por convenios o contratos entre el prestador y el usuario de T-UD.
 (Así reformado el párrafo anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
+(*)(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025)
 El reconocimiento de las diferencias deberá superar los filtros de verificación y validación que establezca el área técnica encargada de las fijaciones tarifarias, en cumplimiento de los criterios de la Ley N.º 7593.
 (Así adicionado el párrafo anterior mediante resolución RE-0012-JD-2024 del 19 de marzo del 2024)
 De esta forma, para los consumos no incrementales, la Aresep tomará en cuenta solo las desviaciones, que no son ocasionadas por los acuerdos de precios en las tarifas máximas, que se originan en el cálculo del ajuste tarifario vigente mediante estimaciones, respecto al cálculo del ajuste tarifario vigente considerando los valores observados -reales- y actualizados; la diferencia se agrega, afectando los ingresos al incluirse como una partida denominada liquidación del período anterior.
@@ -396,7 +394,6 @@ De esta forma, para los consumos no incrementales, la Aresep tomará en cuenta s
 De esta forma, Aresep tomará en cuenta las desviaciones que se originan en el cálculo del ajuste tarifario vigente mediante estimaciones, respecto al cálculo del ajuste tarifario vigente considerando los valores observados -reales- y actualizados; la diferencia se agrega, afectando los ingresos al incluirse como una partida denominada liquidación del período anterior.
 Se realizarán ajustes en los ingresos y gastos asignados por tarifa y reales, para los costos totales (COMA) y los Ingresos totales (IT). Los gastos y costos reales que serán analizados son los coincidentes con los que se incluyeron en las tarifas del estudio tarifario anterior. Lo anterior con el fin de que vía tarifa se le devuelva al usuario los ingresos obtenidos, por la empresa generadora, por encima de sus costos. De manera contraria, si los ingresos fuesen inferiores a los gastos, la empresa generadora podrá solicitar un estudio ordinario con las justificaciones pertinentes.
 El diferencial entre los ingresos del período y los gastos del período van a resultar en el monto que debe adicionarse a los ingresos para el período siguiente.
-[imagen]
 Donde:
 z = Período durante el que estuvo vigente la tarifa, tomando como referencia el último estado financiero auditado o disponible con información real con un
 desfase máximo de cuatro meses de información.
@@ -405,7 +402,6 @@ desfase máximo de cuatro meses de información.
 𝐺𝑇𝐴𝑧 = Gastos Totales Ajustados del período z (ver fórmula 9.1)
 Asimismo, para estos efectos, los datos reales auditados o disponibles presentados por el operador deben estar justificados y ser razonables. Estos datos serán revisados, analizados y depurados por parte de la Autoridad Reguladora con el propósito de determinar su reconocimiento, y en ningún caso podrá considerar elementos que se limitan en esta metodología. Se deberá cumplir con los objetivos de la Ley 7593.
 El ajuste para gastos, contrasta los gastos estimados incluidos en el cálculo de la tarifa vigente con los gastos reales obtenidos por la empresa generadora, el cual se obtiene de la siguiente manera:
-[imagen]
 Donde:
 z = Período durante el que estuvo vigente la tarifa, tomando como referencia el último estado financiero auditado o disponible con información real con un desfase máximo de cuatro meses de información
 𝐺𝑇𝐴𝑧 = Gastos totales ajustados. Se refiere al ajuste por diferencial de gastos reales y gastos estimados para el período z.
@@ -425,7 +421,6 @@ z = Período durante el que estuvo vigente la tarifa, tomando como referencia el
 Los ingresos totales comprenden todos los ingresos por venta de energía y potencia y otros ingresos asociados al servicio de generación.
 2.1 Ingresos totales estimados con las tarifas vigentes para el período t+1.
 Los ingresos totales se generan por las actividades ligadas al servicio o actividad de generación de electricidad. Se calculan de la siguiente forma:
-[imagen]
 Donde:
 IT = Ingresos totales.
 Iv = Ingresos por ventas de energía y potencia a usuarios, estimados para el período t+1 con las tarifas de generación (ver fórmula 11).
@@ -434,7 +429,6 @@ Iv = Ingresos por ventas de energía y potencia a usuarios, estimados para el pe
 Io = Otros ingresos proyectados relacionados con la actividad de generación eléctrica (ver fórmula 17).
 2.1.1 Ingresos por ventas a otras empresas distribuidoras y por ventas al servicio de distribución propio
 Los ingresos por ventas a otras empresas distribuidoras y por el servicio de distribución propio se obtienen al multiplicar la tarifa de la energía y la potencia para cada tipo de tarifa por la cantidad total de energía y potencia vendida por tipo de tarifa. Es decir, los ingresos por ventas son la sumatoria de las ventas por concepto de energía y por concepto de potencia:
-[imagen]
 Donde:
 𝐼𝑣 = Ingresos por ventas de energía y potencia a usuarios, estimados para el período t+1 con las tarifa vigente de generación.
 𝐼𝐷 = Ingresos por ventas al servicio de distribución propio.
@@ -447,7 +441,6 @@ vigente de generación (ver fórmula 13).
 dp = Distribución propio
 Ingresos por ventas de energía. Los ingresos por venta de energía se obtienen de multiplicar la tarifa vigente puntual, máxima o acordada por empresa y las ventas de energía estimadas por empresa o cliente para el período t+1, en el cual va a estar vigente la tarifa. Para efectos de la estimación de los ingresos por ventas de energía, las tarifas máximas siempre serán reconocidas a su valor máximo, excepto por los consumos incrementales debidamente respaldados por convenios o contratos entre el prestador y el usuario de T-UD, que serán reconocidos a la tarifa acordada. Todo consumo que no sea respaldado por un convenio o contrato entre las partes será considerado como no consumo incremental y, por tanto, será reconocido al valor máximo de la tarifa máxima. Los ingresos por ventas de energía se determinan de la siguiente manera:
 (Así reformado el párrafo anterior mediante resolución N° RE-0012-JD-2024 del 19 de marzo del 2024
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝑉𝐸 = Ingresos por ventas de energía estimados para t+1 con la tarifa vigente de generación.
@@ -469,7 +462,6 @@ $ = Expresa tarifas en dólares.
 El cálculo de los ingresos por ventas al servicio de distribución propio (𝐼𝑉𝐸𝑑𝑝 de la fórmula 11.1). de la fórmula 11.1). Los ingresos por ventas de energía se obtiene siguiendo el procedimiento definido en la fórmula 12, utilizando únicamente la tarifa correspondiente y las ventas totales estimadas para su propio sistema de distribución
 Debe tenerse en cuenta que los ingresos se calculan inicialmente con la tarifa vigente, una vez realizado el análisis financiero se procede a realizar nuevamente el cálculo de los mismos con la tarifa propuesta.
 La estimación de ventas totales se distribuye por período horario y temporada, tanto para potencia como para energía y para esto se utilizan los datos reales del año completo anterior que se encuentre disponible. La distribución por período horario para energía (kWh) se obtiene como el peso que tiene cada período horario sobre el total de energía, de la siguiente manera:
-[imagen]
 Donde:
 ph = Períodos horarios (punta, valle, nocturno).
 %𝑃𝑝ℎ,𝑡𝑚 = Porcentaje de las ventas correspondiente al período ph y temporada tm.
@@ -477,7 +469,6 @@ ph = Períodos horarios (punta, valle, nocturno).
 tm = Temporadas (alta o baja).
 k = Cantidad de periodos horarios o temporadas
 El peso o porcentaje obtenido para cada período horario o temporada se multiplica por el total de ventas estimado, para obtener las ventas de energía por período horario o temporada para el período en que estará vigente la tarifa.
-[imagen]
 Donde
 t+1 = Período en el que estará vigente la tarifa.
 𝑉𝐻𝑇𝑒𝑚,𝑡+1,𝑖,𝑝ℎ,𝑡𝑚 = Ventas Totales de Energía a em en el período horario ph y la temporada tm, estimadas para el mes i de t+1. Si la empresa para la que se está realizando el estudio de fijación tarifaria tiene tarifas en dólares 𝑉𝐻𝑇𝑒𝑚,𝑡+1,𝑖,𝑝ℎ,𝑡𝑚 se denominará 𝑉𝐻𝑇$,𝑒𝑚,𝑡+1,𝑖,𝑝ℎ,𝑡𝑚 que corresponderá a las unidades físicas facturadas en dólares.
@@ -488,18 +479,16 @@ tm = Temporada (alta o baja).
 i = Índice de mes.
 ps = Propio sistema.
 em = Empresa distribuidora o usuario directo. Si la empresa para la cual se está haciendo el estudio tarifario no es el ICE, "em" es la empresa distribuidora distinta al ICE (ver fórmula 15).
-Ingresos por ventas de potencia. Los ingresos por ventas de Ingresos por ventas de potencia. Los ingresos por ventas de potencia también se obtienen como el producto de la tarifa puntual o máxima de generación correspondiente y la potencia estimada. Para efectos de la estimación de los ingresos por ventas de potencia, siempre se empleará el valor máximo de las tarifas máximas. Se determina de la siguiente manera:
-(Así reformado el párrafo anterior mediante resolución N° RE-0012-JD-2024 del 19 de marzo del 2024)
+(*) Ingresos por ventas de potencia. Los ingresos por ventas de potencia se obtienen de multiplicar la tarifa vigente puntual, máxima o acordada de generación correspondiente y la potencia estimada. Para efectos de la estimación de los ingresos por ventas de potencia, las tarifas máximas siempre serán reconocidas a su valor máximo, excepto por los consumos incrementales debidamente respaldados por convenios o contratos entre el prestador y el usuario de T-UD, que serán reconocidos a la tarifa acordada. Todo consumo que no sea respaldado por un convenio o contrato entre las partes será considerado como consumo no incremental y, por tanto, será reconocido al valor máximo de la tarifa máxima. Los ingresos por ventas de potencia se determinan de la siguiente manera:
+(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025)
 [imagen]
+(Así reformada la fórmula anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025)
 Donde:
-t+1 = Período en el que estará vigente la tarifa.
-𝐼𝑉𝑃 = Ingresos por ventas de Potencia estimados para t+1 con la tarifa vigente de generación.
-𝐾𝑊𝑒𝑚,𝑖,𝑝ℎ,𝑡𝑚 = Potencia estimada para t+1, por empresa em, para el mes i por período horario o temporada a usuarios. (ver fórmula 13.3)
-𝐾𝑊$,𝑒𝑚,𝑖,𝑡+1,𝑝ℎ = Potencia por período horario a usuarios con tarifas en dólares. (ver fórmula 13.5)
-𝑇𝐺𝒆𝒎,𝒑𝒉,𝒕𝒎 = Tarifa de generación puntual vigente por kW para las tarifas TCB (Ventas a ICE distribución y CNFL, S.A.), T-SG (Sistema de Generación) o en su defecto la tarifa de generación correspondiente, por período horario y temporada, aplicable al mes i del período t+1 o la tarifa de generación máxima vigente por kW para la tarifa T-UD (Usuarios directos del servicio de Generación del ICE) por período horario y temporada, aplicable al mes i del período t+1. Para efectos de esta estimación se considera la tarifa máxima en la T-UD y tarifas puntuales en los demás tipos de tarifas.
+𝑇𝐺𝒆𝒎,𝒑𝒉,𝒕𝒎 = Tarifa de generación puntual vigente por kW para las tarifas T-CB (Ventas a ICE distribución y CNFL, S.A.), T-SG (Sistema de Generación) o en su defecto la tarifa de generación correspondiente, por período horario y temporada, aplicable al mes i del período t+1, la tarifa de generación máxima vigente por kW para los consumos no incrementales de la tarifa T-UD (Usuarios directos del servicio de Generación del ICE) por período horario y temporada, aplicable al mes i del período t+1 o la tarifa acordada por kW para los consumos incrementales de la tarifa T-UD (Usuarios directos del servicio de Generación del ICE) por período horario y temporada, aplicable al mes i del período t+1. Para efectos de esta estimación se considera la tarifa máxima en el consumo no incremental de los usuarios de T-UD, la tarifa acordada para los consumos incrementales debidamente respaldados e identificados por medio de convenios o contratos entre el prestador y los usuarios de T-UD y tarifas puntuales en los demás tipos de tarifas.
+(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025)
+𝑻𝑮$,𝒆𝒎,𝒑𝒉 = Tarifa de generación puntual vigente, expresada en USD, para para las tarifas T-CB (Ventas a ICE distribución y CNFL, S.A.), T-SG (Sistema de Generación) o en su defecto la tarifa de generación correspondiente, por período horario y temporada, aplicable al mes i del período t+1, la tarifa de generación máxima vigente por kW, expresada en USD, para los consumos no incrementales de la tarifa T-UD por período horario y temporada, aplicable al mes i del período t+1 o la tarifa acordada por kW, expresada en USD, para los consumos incrementales de la tarifa T-UD por período horario y temporada, aplicable al mes i del período t+1. Para efectos de esta estimación se considera la tarifa máxima en el consumo no incremental de los usuarios de T-UD, la tarifa acordada para los consumos incrementales debidamente respaldados e identificados por medio de convenios entre el prestador y los usuarios de T-UD y tarifas puntuales en los demás tipos de tarifas.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0012-JD-2024 del 19 de marzo del 2024)
-𝑻𝑮$,𝒆𝒎,𝒑𝒉 = Tarifa de generación puntual vigente, expresada en USD, para para las tarifas T-CB (Ventas a ICE distribución y CNFL, S.A.), T-SG (Sistema de Generación) o en su defecto la tarifa de generación correspondiente, por período horario y temporada, aplicable al mes i del período t+1 o la tarifa de generación máxima vigente, expresada en USD, por kW para la tarifa T-UD (Usuarios directos del servicio de Generación del ICE) por período horario y temporada, aplicable al mes i del período t+1. Para efectos de esta estimación se considera la tarifa máxima en la T-UD y tarifas puntuales en los demás tipos de tarifas.
-(Así adicionado el párrafo anterior mediante resolución N° RE-0012-JD-2024 del 19 de marzo del 2024)
+(Así reformado el párrafo anterior mediante resolución RE-0120-JD-2025 del 2 de setiembre del 2025)
 TG = Tarifa de generación vigente por kW para cada tipo de tarifa (T-CB: Ventas a ICE distribución y CNFL, S.A., T-SG: Sistema de Generación o T-UD: Usuarios directos del servicio de Generación del ICE o en su defecto la tarifa de generación correspondiente) por período horario y temporada.
 em = Empresa distribuidora o usuarios directo. Si la empresa para la cual se está haciendo el estudio tarifario no es el ICE, "em" es la empresa distribuidora distinta al ICE (ver fórmula 15).
 UD = Usuario directo.
@@ -513,7 +502,6 @@ n = Cantidad de meses.
 $ = Expresa tarifas en dólares.
 El cálculo de los ingresos por ventas de potencia al servicio de distribución propio (𝐼𝑉𝑃𝑑𝑝 de la fórmula 11.1) se obtiene siguiendo el procedimiento definido en la fórmula 13, utilizando únicamente la tarifa correspondiente y las ventas totales estimadas para su propio sistema de distribución.
 Para distribuir la potencia entre los períodos horarios se requiere tanto la energía real vendida en cada período horario como de la demanda máxima en cada período. Con la información anterior se obtiene un factor de carga, que es el resultado de dividir la energía vendida, según el período, por la demanda máxima, por período, multiplicado por la cantidad de horas al año correspondientes según el período horario.
-[imagen]
 Donde
 𝐹𝐶𝑝ℎ,𝑡𝑚 = Factor de carga, por período horario o temporada.
 𝑉𝑅𝐸𝑝ℎ,𝑡𝑚 = Ventas de energía reales. Son las ventas de energía reales obtenidas del operador por período horario y temporada.
@@ -523,7 +511,6 @@ ph = Período Horario (punta, valle o nocturno).
 tm = Temporada (alta o baja).
 365 = Número de días del año.
 Posteriormente, se tiene que el factor de carga calculado de la fórmula 13.1, se multiplica por la cantidad de horas en un mes según período horario y temporada, de la siguiente manera:
-[imagen]
 Donde:
 𝐶𝑂𝑃𝑝ℎ,𝑡𝑚 = Componente para obtener potencia, para el período horario ph y la temporada tm.
 𝐹𝐶𝑝ℎ,𝑡𝑚 = Factor de carga, por período horario o temporada. (ver fórmula 13.1)
@@ -532,7 +519,6 @@ ph = Período Horario (punta, valle o nocturno).
 tm = Temporada (alta o baja).
 30 = Número de días al mes.
 Finalmente, la energía (kWh) ya distribuida por período horario se utiliza para tener como resultado la potencia estimada por período horario, esto realizando el cociente de la energía por período y el resultado obtenido de multiplicar el factor de carga por las horas por mes según sea el período horario, de la siguiente forma:
-[imagen]
 Donde:
 𝑘𝑊𝑒𝑚,𝑖,𝑝ℎ,𝑡𝑚 = Potencia estimada para em, por mes i de t+1, por período horario y temporada.
 𝑉𝐻𝑇𝑒𝑚,𝑡+1,𝑖,𝑝ℎ,𝑡𝑚= Ventas Totales de Energía a em estimadas por período horario, temporada y mes, estimadas para el período t+1 (ver fórmula 12. 2).
@@ -543,7 +529,6 @@ ph = Período Horario (punta, valle o nocturno).
 tm = Temporada (alta o baja).
 i = Índice de mes.
 En el caso de los usuarios directos de alta tensión, la distribución de la potencia entre períodos se realiza obteniendo el peso real que representa la potencia por período horario de la energía real también por períodos para el último año disponible, como se detalla a continuación:
-[imagen]
 Donde:
 %𝑃𝑈𝐷,𝐾𝑊,𝑝ℎ = Peso de las ventas por potencia de las ventas por energía para los usuarios directos.
 𝑉𝑅𝐸𝑃𝑝ℎ = Ventas reales de potencia, por período horario.
@@ -553,7 +538,6 @@ UD = Usuarios directos
 KW = Kilowatt
 ph = Período horario.
 El resultado de las ventas por período horario de potencia se obtiene de la siguiente manera:
-[imagen]
 Donde:
 𝑘𝑊$,𝑒𝑚,𝑖,𝑡+1,𝑝ℎ = Ventas de Potencia a usuarios directos por período horario y mes, estimadas para el período t+1.
 %𝑃𝑈𝐷,𝐾𝑊,𝑝ℎ = Peso de las ventas por potencia de las ventas por energía para los usuarios directos (ver fórmula 13.4).
@@ -567,7 +551,6 @@ $ = Expresa tarifas en dólares.
 2.1.2 Ventas totales estimadas
 Las ventas totales del sistema generación son diferentes dependiendo del generador. En el caso del ICE generación, las ventas son equivalentes a las compras de energía realizadas por empresas y usuarios directos, incluyendo al ICE-Distribución.
 Si se está realizando el estudio de fijación tarifaria para el ICE, para cada empresa distribuidora o usuario em, las ventas a em por parte del ICE, para el iésimo mes del período t+1, se determinan de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 em = Empresa distribuidora o usuario directo.
@@ -584,14 +567,12 @@ i = Índice de mes.
 % Pérdidas (%Per): Se refiere a las pérdidas de distribución y se considera la información
 suministrada por el operador siempre que no supere el promedio del porcentaje de pérdidas de la
 industria para los últimos 2 años, caso contrario se utiliza como máximo el promedio del porcentaje de pérdidas de la industria para los últimos 2 años. De tal forma, el porcentaje de pérdida para cada año se calcula como el cociente entre la disponibilidad de energía (es la energía total requerida por el sistema de distribución más las pérdidas del sistema de distribución y es igual a la generación propia más las compras de energía) de las 8 empresas distribuidoras menos el total de energía vendida de las 8 empresas distribuidoras entre la disponibilidad de energía de las 8 empresas distribuidoras. De la siguiente manera:
-[imagen]
 Energía total vendida: Son las ventas que se estima que la empresa em va a realizar (kWh). Se obtienen según la sección 2.1.3 (fórmula 16).
 Empresa distribuidora y usuarios directos (em): Se refiere a las empresas distribuidoras y usuarios directos que compren energía al ICE para la que se está realizando el estudio de fijación tarifaria.
 Generación propia (GenPem,i): Se estima utilizando la serie de tiempo (histórico) de la energía producida, por planta y mes. Esta serie histórica se proyecta mediante técnicas estadísticas o econométricas o algún software especializado (se selecciona la que brinde mejor bondad de ajuste). Se utiliza la serie desde enero del año 2000, siempre y cuando no presenten un cambio estructural evidente o la serie histórica para la que se encuentran datos disponibles. Para las plantas nuevas o con menos de 12 meses de entrada en operación se establece la proyección considerando las estimaciones presentadas por la empresa y justificadas mediante estudio técnico, las cuales serán valoradas por la ARESEP. Se refiere a la generación propia de las empresas que compren energía diferente de la empresa para la cual se está realizando el estudio de fijación tarifaria, es decir, no se toma en cuenta la generación propia del ICE. Estas estimaciones pueden ser ajustadas por factores técnicos debidamente justificados.
 Compras de energía de em a otros generadores (CEOGem,i): Se estima utilizando la serie de tiempo (histórico) de la generación producida, por planta y mes. Esta serie histórica se proyecta mediante técnicas estadísticas o econométricas o algún software especializado (se selecciona la que brinde mejor bondad de ajuste). Se utiliza la serie desde enero del año 2000, siempre y cuando no presenten un cambio estructural evidente o la serie histórica para la que se encuentran datos disponibles. Para las plantas nuevas o con menos de 12 meses de entrada en operación se establece la proyección considerando las estimaciones presentadas por la empresa y justificadas mediante estudio técnico, las cuales serán valoradas por la Aresep. En el caso de las cooperativas, se encuentra establecido el porcentaje correspondiente a cada una de ellas de la producción de Coneléctricas, como proporción al capital accionario de cada una, así como PH Cubujuquí. Las unidades estimadas se multiplican por la tarifa vigente.
 Estas estimaciones pueden ser ajustadas por factores técnicos debidamente justificados.
 En el caso de que se realice el estudio de fijación tarifario para las otras empresas distribuidoras diferentes del ICE que poseen generación, la generación es principalmente para cubrir sus propias necesidades, es decir, las ventas totales (VETE) estimadas son iguales a la generación propia, en cuyo caso si existe un sobrante luego de realizar las ventas a su propio sistema de distribución, éstas pueden ser vendidas a otras empresas distribuidoras. De la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝑉𝐸𝑇𝐸𝑝𝑠,𝑖,𝑡+1 = Ventas totales mensuales estimadas de la empresa generadora, al propio sistema de distribución en el período t+1 (KWh).
@@ -601,7 +582,6 @@ em = Empresa distribuidora.
 i = Índice de mes.
 2.1.3. Energía total vendida estimada para la empresa distribuidora em
 El total de energía vendida es igual a la suma de la energía comprada y la energía generada por el operador menos las pérdidas del sistema de distribución, sin embargo, la forma de estimación de este rubro es el producto de la cantidad de abonados por el consumo promedio, tal como sigue:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐸𝑇𝑘𝑊ℎ,𝑡+1,𝑒𝑚,𝑖 = Energía total vendida por em estimada. Se refiere al total estimado de ventas de energía de em, para el mes i del período t+1 (KWh).
@@ -617,7 +597,6 @@ La cantidad estimada de abonados para cada tarifa se proyecta mediante técnicas
 Debe realizarse un análisis estructural de los datos para determinar el período definitivo por utilizar. Para las estimaciones se utiliza el programa estadístico Forecast Pro o cualquier otro software estadístico especializado en el análisis y proyección de series de tiempo. Las proyecciones resultantes deben justificarse y cumplir con los criterios estadísticos y econométricos que se establecen con base en la ciencia, técnica y lógica; tal y como lo establece la Ley General de la Administración Pública.
 b. Consumo promedio de energía para cada tarifa
 El consumo promedio de energía de los abonados de em para la tarifa s se obtiene para los últimos 12 meses disponibles al momento en que se realiza el estudio fijación tarifaria, del cociente entre las ventas mensuales reales en kWh de la tarifa s y la cantidad mensual real de abonados en dicha tarifa:
-[imagen]
 Donde:
 i = Índice de mes, recorre los últimos 12 meses disponibles al momento en que
 se realiza el estudio fijación tarifaria
@@ -635,7 +614,6 @@ En este rubro se incluyen los ingresos de explotación por actividades diversas 
 Se incluye entre otros ingresos la devolución del canon de regulación que se genera cuando la (Aresep) debe reintegrar por el superávit que tuvo la Institución producto de los cobros del Canon de regulación. El mismo se devuelve a los operadores según el porcentaje de participación en el total del canon cobrado o contratos de operación y mantenimiento de plantas productoras de electricidad cedidas en administración a otra empresa.
 2.3.1 Proyección de otros ingresos
 La proyección de otros ingresos se realiza empleando los otros ingresos calculados como relación de los ingresos totales por ventas de energía, y multiplicando el valor obtenido por los ingresos totales por venta de energía estimados según:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
@@ -647,26 +625,25 @@ t+1 con las tarifas vigentes (ver fórmula 11).
 Los otros ingresos (Io) se mantienen constantes con respecto a la variación en las tarifas.
 3. COSTOS Y GASTOS TOTALES DE OPERACIÓN, MANTENIMIENTO Y ADMINISTRACIÓN (COMA)
 Son los costos totales de operación, mantenimiento y administración necesarios para prestar el servicio de generación de la energía eléctrica. El cálculo incluye los siguientes costos:
-[imagen]
 Donde:
 COMA = Costos y gastos totales de operación, mantenimiento y administración, asimismo, otros gastos en que incurran los operadores para brindar el servicio
 CGP = Compras a generadores privados. Es la compra de energía a generadores privados que se sustenta en las Leyes N° 7200 y N° 7508 (sección 3.1.2).
 M = Importaciones. Son las compras de energía realizadas en el Mercado Eléctrico Regional por parte del país. Las importaciones son consideradas un sustituto de la generación térmica (sección 3.1.2).
 OyM = Gastos de operación y mantenimiento. Corresponde a los gastos en que incurre la empresa para su funcionamiento y el mantenimiento de los activos de generación, de forma que permita garantizar la sostenibilidad, continuidad y calidad del servicio regulado. Se proyecta utilizando el método de actualización por índices, con excepción de gastos particulares que se actualizan mediante criterios definidos en la apartado 3.1.2.
 Admin = Gastos Administrativos. Representa la proporción de los gastos de unidades o departamentos de apoyo asignados al sistema de generación (estos se distribuyen a generación, transmisión, distribución y alumbrado público y otros servicios regulados y no regulados). Se proyecta utilizando el método de actualización por índices, con excepción de gastos particulares que se actualizan mediante criterios definidos en la apartado 3.1.2.
-[imagen] = Gastos por comercialización. Son los gastos asociados a la gestión comercial de la venta de electricidad a la totalidad de usuarios del servicio de generación. Se incluyen todos los gastos asociados al cobro, facturación, lecturas, servicio al cliente, entre otros. Se proyecta utilizando el método de actualización por índices, con excepción de gastos particulares que se actualizan mediante criterios definidos en la apartado 3.1.2.
+= Gastos por comercialización. Son los gastos asociados a la gestión comercial de la venta de electricidad a la totalidad de usuarios del servicio de generación. Se incluyen todos los gastos asociados al cobro, facturación, lecturas, servicio al cliente, entre otros. Se proyecta utilizando el método de actualización por índices, con excepción de gastos particulares que se actualizan mediante criterios definidos en la apartado 3.1.2.
 GP = Gastos por Gestión Productiva. Son los gastos en que incurren las áreas de apoyo y soporte del Sistema de generación para el desarrollo normal de su gestión técnica y administrativa. Estos costos no pueden ser asignados directamente al activo productivo, motivo por el cual se presentan el Estado de Resultados como parte del costo del servicio, pero en una línea individual.
 Se proyecta utilizando el método de actualización por índices.
 EP = Estudios Preliminares. Gastos incurridos en las fases preliminares de los proyectos, en la cual se desconoce si estos se van a ejecutar. Incluye las actividades relacionadas con la identificación y prefactibilidad de los posibles proyectos u obras a construir. Se proyecta utilizando el método de actualización por índices.
 EPI = Estudios de Preinversión. Son los gastos incurridos en la fase de preinversión de los proyectos, en la cual se desconoce si estos se van a ejecutar. Incluye las actividades relacionadas con la factibilidad de los posibles proyectos u obras a construir. Se proyecta utilizando el método de actualización por índices.
 COP = Gastos Complementarios de operación. Son aquellos gastos en los que incurre la empresa para garantizar la calidad en la construcción y operación de obras propiedad de terceros, los cuales no se consideran ni estudios preliminares ni de preinversión; asimismo, aquellas transacciones que de acuerdo con su naturaleza no se consideran como parte de las de más partidas de costos y gastos de operación. Se proyecta utilizando el método de actualización por índices.
-[imagen] = Canon regulación. Monto autorizado por la Contraloría General de la República (CGR), como pago por los servicios de regulación. Es la suma por concepto de canon de regulación y de calidad. Para su asignación, se considera la contribución porcentual de los ingresos de cada sistema respecto a los ingresos totales. Cuando sea necesario se considerará su actualización por vía extraordinaria (ver apartado 6).
-[imagen] = Canon de aguas. El pago por concepto de canon de aprovechamiento de aguas destinado al uso para generación eléctrica se encuentra establecido mediante el Decreto N 32868-MINAE. El monto utilizado es el remitido por el Ministerio de Ambiente y Energía (MINAE).
+= Canon regulación. Monto autorizado por la Contraloría General de la República (CGR), como pago por los servicios de regulación. Es la suma por concepto de canon de regulación y de calidad. Para su asignación, se considera la contribución porcentual de los ingresos de cada sistema respecto a los ingresos totales. Cuando sea necesario se considerará su actualización por vía extraordinaria (ver apartado 6).
+= Canon de aguas. El pago por concepto de canon de aprovechamiento de aguas destinado al uso para generación eléctrica se encuentra establecido mediante el Decreto N 32868-MINAE. El monto utilizado es el remitido por el Ministerio de Ambiente y Energía (MINAE).
 D = Gasto por depreciación: monto resultante de aplicar el método dedepreciación según las tablas de depreciación establecidas por Aresep.
 Para cualquier otro caso en que no se encuentre la información requerida, para aplicar el método de depreciación, se recurrirá a revisar las tablas equivalentes del Ministerio de Hacienda y en último caso las especificaciones técnicas de la casa fabricante del activo en cuanto a vida útil y valor de rescate.
-[imagen] = Gastos por partidas amortizables. Corresponde a software y licencias según la vida útil, tiempo en uso y monto de adquisición. En general, considera la amortización de intangibles (ver apartado 3.1.2).
+= Gastos por partidas amortizables. Corresponde a software y licencias según la vida útil, tiempo en uso y monto de adquisición. En general, considera la amortización de intangibles (ver apartado 3.1.2).
 GPer = Gastos por pérdidas de retiros de activos. En esta cuenta se registran las pérdidas incurridas al retirar un activo productivo (apartado 5.3.2). SG = Gasto por seguros. En esta cuenta se registran los contratos de seguros (apartado 3.1.2).
-[imagen] = Gasto por Arrendamientos. Monto total de los gastos por ese concepto, según los contratos vigentes. En lo que respecta a mecanismos de financiamiento no tradicional de proyectos, éstos serán reconocidos según lo establecido en el artículo 31 de la Ley 7593 (ver fórmula 20).
+= Gasto por Arrendamientos. Monto total de los gastos por ese concepto, según los contratos vigentes. En lo que respecta a mecanismos de financiamiento no tradicional de proyectos, éstos serán reconocidos según lo establecido en el artículo 31 de la Ley 7593 (ver fórmula 20).
 Lub = Lubricantes. Corresponde al gasto de lubricantes requerido para lageneración termoeléctrica estimada conforme a las plantas existentes y sucapacidad de generación (apartado 3.1.2, ver fórmula 21).
 CMER = Son los costos relacionados a la generación producto del Mercado Eléctrico Regional que no estén contemplados en otros sistema o en el sistema de generación.
 La proyección de los costos indicados anteriormente se realiza mediante dos tipos de métodos: (i) actualización de índices local o externo, según el origen del gasto correspondiente para la mayoría de los rubros de gasto; o (ii) utilizando criterios específicos para algunos rubros en particular, según se detalla en las secciones subsiguientes.
@@ -680,7 +657,6 @@ La actualización por índices de precios planteada en la apartado 3.1.1 no apli
 Las actualizaciones se realizan utilizando el índice que mejor se ajuste al gasto que se está analizando, lo cual deberá ser justificado y obedecer a una variación de éstos en el tiempo. Según la naturaleza de la cuenta, se podrá aplicar tres tipos de actualizaciones, uno totalmente local, uno totalmente externo o uno que sea una combinación de componente local y externo, que dependerá de las proporciones de cada uno de los anteriores en el gasto que se desea actualizar.
 Índice de actualización local
 Se aplica cuando los gastos se efectúan dentro del país y no son afectados por variaciones del tipo de cambio o inflación externa. El factor de actualización local se obtiene según la siguiente fórmula:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 t = Período anterior al del ajuste tarifario.
@@ -692,7 +668,6 @@ En los casos en los cuales se utiliza el Índice de Precios al Consumidor se con
 Índice de actualización externo
 Se aplica el factor de actualización externo cuando los rubros de los gastos estén vinculados con compras en el exterior o que tengan un alto componente externo, en este caso el factor pondera la variación en el tipo de cambio (colones se deben convertir a dólares) y la inflación externa. El cálculo
 se realiza de la siguiente forma:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 t = Período anterior al del ajuste tarifario.
@@ -705,7 +680,6 @@ E = Externo.
 Para el índice de precios externo se recurrirá a los índices de precios de los Estados Unidos de Norteamérica, los datos se toman de la página web del Bureau of Labor Statistic (http://www.bls.gov) de los Estados Unidos de Norteamérica. Se seleccionará el índice de precios representativo de los gastos que se actualizan para lo cual se deberá aportar la respectiva justificación técnica. Para la proyección se utiliza la variación interanual del índice al último mes disponible de información.
 Índice de actualización compuesto:
 Los índices de actualización calculados anteriormente son ponderados de acuerdo con la participación relativa del componente local y externo de gasto estimado mediante la siguiente fórmula:
-[imagen]
 Donde:
 𝐼𝐴𝐶 = Índice de actualización compuesto.
 𝐹𝐴𝐿 = Factor de actualización local (ver fórmula 19).
@@ -740,7 +714,6 @@ Gasto por depreciación (D): Se debe utilizar el método de depreciación lineal
 Gastos por partidas amortizables (Pa): La empresa deberá de aportar la vida útil, el monto indicado y la fecha de adquisición del activo, así como, la justificación técnica de su comportamiento y su relación con el servicio que se está regulando. En el caso que no se adjunte dicha información, se utilizará una vida útil de 3 años, siempre y cuando sea untiempo razonable para el activo que se analiza.
 Gastos por pérdidas de retiros de activos (GPer). Este gasto se obtiene de la base tarifaria y corresponde a: los retiros al costo más los retiros revaluados, deduciendo la depreciación de los retiros al costo y la depreciación de los retiros revaluados. Esto según loindicado en el apartado 5 de la sección VII.
 Gasto por Arrendamientos (A𝑹). Se establecen según los contratos vigentes y que entrarán en funcionamiento durante el período de análisis. El monto se obtiene de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 AR = Monto por concepto de arrendamientos.
@@ -752,7 +725,6 @@ i = Índice de mes.
 n = Cantidad de meses
 g = Cantidad de plantas.
 Lubricantes (Lub). El gasto en lubricantes se obtiene como el producto de los litros estimados de consumo en lubricantes requeridos por planta por el precio promedio mensual en colones por litro de lubricantes. El gasto total en este rubro, para el año de proyección corresponde a la sumatoria del gasto de todas las plantas térmicas.
-[imagen]
 Donde:
 t+1 = Período para el cual estará vigente la tarifa.
 Lub = Gasto en lubricantes.
@@ -763,7 +735,6 @@ pl = Planta térmica de generación.
 n = Cantidad de meses
 te = Cantidad de plantas térmicas.
 Para las plantas térmicas que utilizan lubricantes y, considerando la distribución por planta en unidades físicas obtenida mediante la aplicación de la metodología de costo variable por combustible (CVC), se procede a realizar la estimación de la cantidad de litros de lubricantes requeridos para el período en que entrará a regir la tarifa. La cantidad de litros se obtiene como las unidades físicas (kWh) asignadas a cada planta que utiliza lubricantes entre el rendimiento de esa planta.
-[imagen]
 Donde:
 t+1 = Período para el cual estará vigente la tarifa.
 𝐿𝐿𝑡𝑠𝑡+1,𝑖,𝑝= Litros de lubricantes estimados por planta, por mes.
@@ -772,7 +743,6 @@ t+1 = Período para el cual estará vigente la tarifa.
 i = Índice de mes.
 pl = Planta térmica.
 El rendimiento de las plantas térmicas por consumo de lubricantes que se utiliza se obtiene como el cociente de los kilovatios hora real generados y los litros de lubricantes utilizados para esa generación (kWh/litros) por planta para un período de 12 meses reales disponibles al momento que se realiza el estudio de fijación tarifaria.
-[imagen]
 Donde:
 𝑅𝑒𝑛𝑑𝐿𝑝𝑙 = Rendimiento en (kWh/litro).
 𝑘𝑊ℎ𝑖,𝑝𝑙 = Cantidad de kilowatt-hora reales generados.
@@ -781,7 +751,6 @@ pl = Planta térmica.
 i = Índice de mes.
 g = Cantidad de plantas.
 El precio de los lubricantes utilizado corresponde al precio estimado como una media aritmética simple por litro pagado por el ICE, es decir, es el cociente del gasto real total en lubricantes en colones por mes y el consumo total de lubricantes por mes en litros, se considera la información mensual para los últimos 12 meses disponibles al momento de realizar el estudio de fijación tarifaria.
-[imagen]
 Donde:
 t+1 = Periodo para el cual estará vigente la tarifa.
 𝑃𝐿𝑡+1 = Precio promedio estimado de los lubricantes.
@@ -791,7 +760,6 @@ i = Índice de mes.
 IPC = Nivel de inflación esperada, medida mediante el índice de precios al consumidor, para el período en que estará vigente la tarifa. Se considera la expectativa de inflación publicada por el Banco Central de Costa Rica.
 n = Cantidad de meses
 Compras a generadores privados (CGP). Las unidades físicas (kWh) estimadas por planta y por mes se multiplican por las tarifas en colones correspondientes según las características de la planta y la fuente, para los meses de proyección. El gasto total es la sumatoria de losmontos por compra de cada una de las plantas. El monto por compras a generadoresprivados se determina de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Periodo para el cual estará vigente la tarifa.
 𝐶𝐺𝑃 = Compras a generadores privados estimada para t+1.
@@ -818,7 +786,6 @@ Costo Promedio Ponderado del Capital (Weigh Average Cost of Capital, WACC por su
 Modelo de Valoración de Activos de Capital (Capital Asset Pricing Model, CAPM por sus siglas en inglés)
 4.1. Costo promedio del Capital:
 El cálculo de la tasa de rédito para el desarrollo mediante el método del costo promedio ponderado del capital se realiza mediante la aplicación de la fórmula:
-[imagen]
 Donde:
 Rk = Tasa de rédito para el desarrollo.
 rd = Costo del endeudamiento: valor de las obligaciones con costo financiero. Se obtiene del promedio ponderado de la tasa de interés de los pasivos con costo de la empresa con corte al último período contable del que se disponga información con el correspondiente detalle.
@@ -831,14 +798,12 @@ el último estado financiero auditado.
 4.1.1 Modelo de Valoración de Activos de Capital (modelo CAPM)
 El método CAPM estima el costo del capital propio (ke) se basa en considerar que los cambios en el retorno de un activo, están relacionados con el riesgo asociado a éste y puede ser separado en dos grandes componentes: el riesgo relacionado con el mercado en su conjunto (riesgo sistémico) y el derivado de las inversiones específicas (riesgo específico).
 El CAPM determina el costo del capital propio promedio para cada industria. Se empleará para el cálculo del CAPM la información publicada por el Dr. Aswath Damodaran, de la Universidad de New York, en la dirección de Internet http://www.stern.nyu.edu/~adamodar. El CAPM se mediante el siguiente procedimiento:
-[imagen]
 Donde:
 ke = Rentabilidad sobre los aportes de capital propio (Costo de capital propio).
 Kl = Tasa libre de riesgo, la cual corresponde a una alternativa de inversión que no tiene riesgo para el inversionista.
 βa = Beta apalancada de la inversión. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina "apalancada" ya que se ha ajustado para considerar que parte de la inversión se financia con deuda. En su cálculo se utiliza el beta desapalancado (βd).
 PR = Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado.
 El beta apalancado se denomina "apalancada" cuando parte de la inversión se financia con deuda y se obtiene de la siguiente fórmula:
-[imagen]
 Donde:
 βa = Beta apalancada.
 βd = Beta desapalancada.
@@ -853,7 +818,6 @@ Relación entre deuda y capital propio (VD/VCP): Se estima con la fórmula VD/VC
 Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas con fines delucro,correspondiente al último tracto de impuestos sobre la renta -la tasa marginal mayorestablecida y actualizada vía decreto por el Ministerio de Hacienda.
 a-) Ajuste de la tasa de rédito para el desarrollo en casos para los cuáles la solicitud tarifaria es menor a un año
 Cuando se realiza y analiza un estudio de fijación tarifaria para un período de tiempo menor a un año, la rentabilidad se ajustará de la siguiente manera:
-[imagen]
 En donde:
 𝑅𝑘𝑟 = Tasa de rédito al desarrollo a reconocer para el nuevo ajuste tarifario.
 𝑅𝑘;𝑣 = Tasa de rédito al desarrollo con tarifas vigentes.
@@ -862,7 +826,6 @@ en el apartado 4 de la sección VII.
 nm = Número de meses en que las nuevas tarifas estarán vigentes.
 5. BASE TARIFARIA
 La base tarifaria se calcula como sigue:
-[imagen]
 Donde:
 BT = Base tarifaria.
 AFNORP = Activo fijo neto en operación revaluado promedio (ver fórmula 27).
@@ -871,7 +834,6 @@ CT = Capital de trabajo (ver fórmula 37).
 El activo fijo neto en operación revaluado promedio, se obtiene como una media aritmética simple del
 a-) activo fijo neto en operación revaluado según el último estado auditado o el disponible, o calculado mediante este último cuando el período de fijación es posterior al año en que se analiza la misma y;
 b-) el activo fijo neto en operación revaluado estimado al mes de diciembre del período en el que estará vigente el ajuste tarifario.
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último EstadoFinanciero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -881,7 +843,6 @@ La empresa tiene la obligación de valuar sus activos tal como lo establece la n
 Esta fórmula se utiliza para determinar la base tarifaria en las solicitudes de ajuste tarifario que se presentan a la Intendencia de Energía, las formas de cálculo de sus variables podrían modificarse cuando entre en vigencia la contabilidad regulatoria.
 5.1.1 Activo fijo neto en operación revaluado (AFNORt)
 El activo fijo neto en operación reevaluado se calcula de la siguiente forma:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 AFNORt = Activo fijo neto en operación revaluado del período t.
@@ -891,7 +852,6 @@ DCt = Depreciación del activo al costo para el período t.
 DRt = Depreciación acumulada de los activos revaluados para el período t.
 5.1.2 Activo fijo neto en operación revaluado al mes de diciembre del período en el que estará vigente el ajuste tarifario (𝐴𝐹𝑁𝑂𝑅𝑡+1).
 Para el cálculo del activo fijo neto en operación revaluado al mes de diciembre del período en el que estará vigente el ajuste tarifario, se procede de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 AFNORt+1 = Activo fijo neto en operación revaluado del período t+1.
@@ -900,7 +860,6 @@ AFRt+1 = Total de activos fijos revaluados para el período t+1 (ver fórmula 29
 DCt+1 = Depreciación del activo al costo para el período t+1 (ver fórmula 33)
 DRt+1 = Depreciación acumulada de los activos revaluados para el período t+1 (ver fórmula 36).
 El activo fijo al costo se calcula de la siguiente manera:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último EstadoFinanciero auditado o disponible para el servicio regulado (El valor disponibleal 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -911,7 +870,6 @@ RActo = Retiro de activos al costo (ver apartado 5.3 referente a los criterios p
 TActo = Traslado de activos al costo.
 cto = Al costo
 El activo fijo revaluado se calcula de la siguiente manera:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -924,7 +882,6 @@ TAr = Traslado de activos revaluados.
 r = Revaluado
 Revaluación de activos:
 El procedimiento seguido para la revaluación de activos es el siguiente:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 IR = Índice de revaluación. Se refiere al índice de revaluación de activos local, externo o compuesto según corresponda.
@@ -938,7 +895,6 @@ cto = Al costo.
 r = Revaluado.
 La revaluación de activos se calcula aplicando el índice de revaluación a los activos fijos según su origen nacional, extranjero o compuesto. Para cada caso se calcula un índice específico, cuyas fórmulas son las siguientes:
 Índice de revaluación componente local:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
@@ -1042,7 +998,7 @@ Pa = Gastos por partidas amortizables.
 GPer = Gastos por pérdidas de retiros de activos.
 El período medio de cobro es el resultado del cociente entre las cuentas por cobrar y los ingresos por venta, el número de días a utilizar no debe ser superior al promedio de la industria. En aquellas empresas que dispongan de un número de días menor al promedio, este será utilizado.
 5.3 Inversiones
-El Plan de Inversiones debe ser presentado según el formato de clasificación de activos establecido por la Intendencia de Energía y clasificadas en micro y macro inversiones y las sub-clasificaciones correspondientes. Adicionalmente, se debe justificar la concordancia del Plan de Inversiones con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)"(*) y el Plan Nacional de Energía (PNE), cuando corresponda.
+El Plan de Inversiones debe ser presentado según el formato de clasificación de activos establecido por la Intendencia de Energía y clasificadas en micro y macro inversiones y las sub-clasificaciones correspondientes. Adicionalmente, se debe justificar la concordancia del Plan de Inversiones con el Plan Nacional de Desarrollo y de Inversión Pública (PNDIP)(*) y el Plan Nacional de Energía (PNE), cuando corresponda.
 (*)(Nota de Sinalevi: Así modificada su denominación por el inciso a) del artículo 43 del Reglamento para la Implementación de la Ley N°10441 del 13 de marzo del 2024 y el Funcionamiento del Sistema Nacional de Inversión Pública, aprobado mediante decreto ejecutivo N° 45163 del 8 de agosto del 2025. Anteriormente se indicaba "Plan Nacional de Desarrollo (PND)")
 Se analiza que las inversiones solicitadas tengan una justificación técnica y financiera razonable y que éstas tengan un impacto positivo en la calidad y continuidad del servicio.
 También se analiza la razonabilidad de los precios de cada una de las obras incluidas.
