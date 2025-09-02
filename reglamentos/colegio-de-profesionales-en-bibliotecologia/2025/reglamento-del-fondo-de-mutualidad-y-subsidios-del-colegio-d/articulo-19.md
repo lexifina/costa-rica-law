@@ -1,0 +1,1 @@
+Artículo 19.-Todo miembro del Fondo de Mutualidad y Subsidios podrá modificar en cualquier momento al o a los beneficiarios designados anteriormente, mediante una comunicación escrita debidamente firmada y dirigida a la Junta Directiva

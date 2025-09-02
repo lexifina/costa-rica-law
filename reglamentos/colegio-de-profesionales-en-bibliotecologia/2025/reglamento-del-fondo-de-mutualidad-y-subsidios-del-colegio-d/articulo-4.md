@@ -1,0 +1,1 @@
+Artículo 4°-El Fondo se regirá por las disposiciones de la Ley Orgánica y de este Reglamento. Será administrado por la Junta Directiva del Colegio, de acuerdo con este Reglamento y con las políticas y procedimientos que esta disponga.

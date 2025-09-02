@@ -1,0 +1,1 @@
+Artículo 14.-Podrán recibir los beneficios que ofrece el Fondo las personas colegiadas activas con al menos de doce meses de colegiatura ininterrumpida al momento de ocurrir el deceso o de solicitar el beneficio, según sea el caso, y que se encuentren al día con el pago de las cuotas al Colegio.

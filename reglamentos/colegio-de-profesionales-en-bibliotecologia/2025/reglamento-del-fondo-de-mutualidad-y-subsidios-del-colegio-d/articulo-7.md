@@ -1,0 +1,1 @@
+Artículo 7°-El Fondo de Mutualidad tiene como objetivo brindar apoyo económico solidario a sus miembros ante situaciones específicas definidas en el artículo 11 de este Reglamento. El fondo se constituye mediante las aportaciones de los afiliados y otras fuentes autorizadas por la normativa vigente.

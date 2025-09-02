@@ -1,0 +1,1 @@
+Artículo 21.-Para la entrega de los beneficios que establece este Reglamento, el colegiado o sus beneficiarios deberán efectuar los trámites correspondientes ante las oficinas administrativas de Colegio. Todo recibo de dinero deberá ser firmado por quien legalmente puede recibirlo.

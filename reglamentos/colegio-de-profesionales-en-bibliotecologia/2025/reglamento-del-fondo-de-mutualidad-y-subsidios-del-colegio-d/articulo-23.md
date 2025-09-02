@@ -1,0 +1,1 @@
+Artículo 23.-El Fondo deberá contar con una reserva suficiente para cubrir la indemnización correspondiente de hasta 10 miembros del Fondo por año y deberá ser depositado en una cuenta corriente, o en depósitos a la vista, en uno de los Bancos del Sistema Bancario Nacional.

@@ -1,0 +1,1 @@
+Artículo 8°-Podrán afiliarse al Fondo de Mutualidad los miembros activos de la institución que cumplan con los criterios establecidos por el Reglamento del fondo. Los afiliados deberán realizar sus aportes de forma regular y cumplir con lo establecido en el artículo 14 de este Reglamento. El incumplimiento podrá implicar suspensión o exclusión del beneficio.

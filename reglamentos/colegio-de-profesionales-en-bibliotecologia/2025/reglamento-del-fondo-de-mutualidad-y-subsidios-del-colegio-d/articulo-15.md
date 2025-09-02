@@ -1,0 +1,1 @@
+Artículo 15.-No podrán recibir los beneficios del Fondo aquellos colegiados que incurran en atrasos en el pago de la colegiatura, en retiro temporal o se encuentren en un periodo de exoneración del pago de las cuotas.

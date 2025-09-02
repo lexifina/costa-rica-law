@@ -1,0 +1,1 @@
+Artículo 13.-Serán miembros del Fondo únicamente aquellos colegiados activos que se encuentren al día en el pago de sus cuotas y que no hayan sido amonestados por faltas graves al colegio o a alguno de sus miembros, o hayan incurrido en arreglo de pagos de cuotas que no cumplieron y sin contar con una justificación apropiada.

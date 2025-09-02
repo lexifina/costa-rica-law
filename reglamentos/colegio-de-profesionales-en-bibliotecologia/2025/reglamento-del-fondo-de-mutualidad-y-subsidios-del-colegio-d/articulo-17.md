@@ -1,0 +1,1 @@
+Artículo 17.-Ocurrido el evento, el interesado o el representante legal en el caso de los menores de edad, deberá presentar la solicitud mediante los formularios que el Colegio desarrolle con ese fin, así como la documentación que se indique según sea el caso que se presente.
