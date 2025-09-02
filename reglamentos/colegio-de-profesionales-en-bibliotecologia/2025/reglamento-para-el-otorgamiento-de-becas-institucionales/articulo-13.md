@@ -1,0 +1,1 @@
+Artículo 13.-La comisión de becas conocerá las solicitudes por orden de presentación de acuerdo con el artículo 4 de este Reglamento, deberá tomar en consideración los requisitos contemplados en el artículo 5.
