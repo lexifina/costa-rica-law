@@ -14,3 +14,4 @@ Reglamento de integridad de RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-12 | la propia norma |
+| 2 | 2025-09-02 | Reglamento 5478 (2025-09-02) |
