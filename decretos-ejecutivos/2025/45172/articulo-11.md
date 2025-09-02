@@ -1,0 +1,1 @@
+Artículo 11°. -Cálculo de la caución en el nivel B. Quienes desempeñen puestos contemplados en este nivel, deberán rendir una caución equivalente a tres salarios base, según lo establecido en la Ley que Crea Concepto Salario Base para Delitos Especiales del Código Penal, Ley Nº 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín de cada año.

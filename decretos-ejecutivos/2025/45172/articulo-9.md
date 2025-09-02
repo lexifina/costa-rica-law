@@ -1,0 +1,2 @@
+Artículo 9º. -Interinos. Aquellas personas funcionarias que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en el artículo 13 del presente reglamento, deberán rendir garantía cuando su nombramiento sea mayor a seis meses.
+La Jefatura prevendrá de la obligación de rendir la caución cuando el nombramiento interino sea igual o mayor a 30 días naturales consecutivos.

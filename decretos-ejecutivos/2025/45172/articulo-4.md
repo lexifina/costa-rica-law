@@ -1,0 +1,1 @@
+Artículo 4°. -Forma de rendir la caución. La caución a favor del Ministerio de Educación Pública sólo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad de pago anual, suscrita ante el Instituto Nacional de Seguros u otro ente asegurador, regulado por la Superintendencia General de Seguros (SUGESE).
