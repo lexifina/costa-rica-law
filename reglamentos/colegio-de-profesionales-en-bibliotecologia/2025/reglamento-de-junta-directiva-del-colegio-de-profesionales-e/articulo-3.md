@@ -1,0 +1,1 @@
+Artículo 3º-La Junta Directiva se reunirá de manera ordinaria según el calendario aprobado al inicio del período, y de forma extraordinaria cuando lo solicite el presidente o al menos un tercio de sus miembros. El quórum será la mitad más uno de sus integrantes.

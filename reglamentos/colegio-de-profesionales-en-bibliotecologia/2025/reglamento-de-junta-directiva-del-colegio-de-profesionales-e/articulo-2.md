@@ -1,0 +1,1 @@
+Artículo 2º-La Junta Directiva será responsable de la administración, supervisión y toma de decisiones estratégicas de la institución. Podrá aprobar planes, evaluar resultados y dictar normas relacionadas a la labor administrativa conforme a sus atribuciones.

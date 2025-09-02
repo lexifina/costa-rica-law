@@ -1,0 +1,3 @@
+Artículo 37.-Los acuerdos tomados en una sesión podrán declararse firmes, para lo cual la se necesita contar con el voto afirmativo de por lo menos dos tercios de los votos de los miembros presentes. Los acuerdos que no estén firmes obtendrán esa condición una vez que se conozca y apruebe el acta respectiva.
+Para efectos de aprobación de un acta, solo están habilitados para deliberar y aprobar dicha acta los directores que estuvieron presentes en esa sesión respectiva, de modo que quien no estuvo presente deberá abstenerse. El director puede votar afirmativamente la firmeza de un acuerdo, a pesar de que lo haya votado negativamente.
+Las actas, una vez aprobadas, serán firmadas por el presidente y el secretario.

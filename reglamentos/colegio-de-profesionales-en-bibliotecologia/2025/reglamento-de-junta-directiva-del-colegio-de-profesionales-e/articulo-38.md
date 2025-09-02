@@ -1,0 +1,1 @@
+Artículo 38.-Los acuerdos de la Junta Directiva son ejecutorios a partir de su firmeza o del plazo establecido en dicho acuerdo, sea que se declaren firmes mediante votación calificada, según las normas anteriores, o adquieran su firmeza con la aprobación del acta respectiva. Los acuerdos se comunicarán en la forma que lo prevé la ley.

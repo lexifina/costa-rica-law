@@ -1,0 +1,1 @@
+Artículo 44.-La Presidencia de la Junta Directiva y la Fiscalía revisarán, mensualmente, el cumplimiento de los acuerdos que, a la fecha, deberían haberse ejecutado. Para aquellos acuerdos que se encuentren pendientes, la Presidencia o los miembros de Junta Directiva solicitarán las respectivas explicaciones a quien corresponda.

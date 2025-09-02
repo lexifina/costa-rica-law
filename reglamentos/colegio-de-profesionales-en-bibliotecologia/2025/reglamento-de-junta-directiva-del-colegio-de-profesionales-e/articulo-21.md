@@ -1,0 +1,2 @@
+Artículo 21.-En las sesiones ordinarias el contenido de la agenda, una vez aprobado por la Junta Directiva, podrá modificarse por el voto de dos tercios del total de los miembros.
+Tratándose de sesiones extraordinarias no es posible incorporar más puntos que los originalmente definidos en la convocatoria. Podrán retirarse los asuntos originalmente incluidos en la agenda, cuando esa decisión cuente con el respaldo de la mayoría de los miembros presentes.

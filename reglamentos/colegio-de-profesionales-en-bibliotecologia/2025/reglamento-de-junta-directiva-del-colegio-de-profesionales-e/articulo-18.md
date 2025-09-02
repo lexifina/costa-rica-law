@@ -1,0 +1,1 @@
+Artículo 18.-Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada. Pasado ese tiempo, de no haber quórum, se dejará constancia en el acta respectiva, con mención de los directores presentes y de los ausentes.

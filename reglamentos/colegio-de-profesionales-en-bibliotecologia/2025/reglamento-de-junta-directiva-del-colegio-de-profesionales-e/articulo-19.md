@@ -1,0 +1,1 @@
+Artículo 19.-Las intervenciones de los integrantes de la Junta Directiva, mediante las cuales informen, planteen inquietudes o expongan asuntos de interés corporativo, tendrán una duración, cada una, de hasta cinco (5) minutos.

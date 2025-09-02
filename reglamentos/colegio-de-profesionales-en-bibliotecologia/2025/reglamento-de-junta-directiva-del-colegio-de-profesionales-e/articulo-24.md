@@ -1,0 +1,2 @@
+Artículo 24.-La Junta Directiva podrá invitar a participar de sus sesiones, ya sea para recibir informes, celebrar entrevistas o para escuchar sus criterios, a personas que no forman parte de ese órgano.
+No se tomarán votaciones en presencia de personas que no sean los miembros de la Junta Directiva y su personal de apoyo o asesores. Se podrá levantar temporalmente esta prohibición si así lo acuerdan las dos terceras partes de los miembros presentes.

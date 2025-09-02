@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la pérdida de credenciales
+Artículo 40.-La ausencia inmotivada de un miembro de Junta Directiva a tres sesiones ordinarias consecutivas, o quien se ausente del país, por más de tres meses, sin permiso de la Junta Directiva cancelará automáticamente su credencial como miembro de la Junta Directiva. Para los efectos de esta norma, el fiscal levantará la información correspondiente y la comunicará a la Junta Directiva, que hará la convocatoria para asamblea extraordinaria conforme lo establece la Ley Orgánica, a fin de que se conozca el caso y se elija a la persona o a las personas sustitutas, si así procede, por el resto del período legal.

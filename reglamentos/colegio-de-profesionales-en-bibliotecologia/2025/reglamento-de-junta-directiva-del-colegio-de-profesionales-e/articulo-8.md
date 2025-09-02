@@ -1,0 +1,9 @@
+Artículo 8º-Además de las instituidas por la Ley Orgánica del Colegio de Profesionales en Bibliotecología de Costa Rica N.º 9148 y su Reglamento General, son atribuciones de los integrantes de la Junta Directiva:
+a) Proponer, formular o acoger proyectos, proposiciones o asuntos que juzguen conveniente y que crean oportunas y someterlos anticipadamente a la consideración de la Presidencia, para que sean incluidos en una próxima sesión.
+b) Solicitar la información que sobre algún asunto consideren necesaria para su mejor conocimiento y resolución.
+c) Presentar por escrito o en forma oral las mociones que crean oportunas.
+d) Pedir la palabra a la Presidencia y obtenerla en la forma y condiciones que este Reglamento indica.
+e) Llamar al orden cuando la Presidencia o alguno de sus miembros en el ejercicio de sus atribuciones, se separe de las disposiciones de este Reglamento.
+f) Interponer por escrito recurso de revisión contra los acuerdos que aún no hubiesen sido declarados firmes o en cualquier momento antes de que se conozca el acta de la sesión donde se adoptó el acuerdo respectivo o al momento en que se esté discutiendo la aprobación de dicha acta. La moción de revisión tendiente a modificar o derogar un acuerdo tomado en una sesión anterior deberá contar con el voto afirmativo de al menos la misma cantidad de votos que respaldaron el acuerdo sujeto a revisión cuando fue aprobado originalmente. Una vez aprobada el acta no cabrá recurso de revisión por parte de los miembros de Junta Directiva.
+g) Obtener información, tener acceso a la documentación y a las diferentes instancias del Colegio por los medios que estime prudente esta Junta Directiva, con el fin de cumplir con las funciones para las que se le nombró.
+h) Tomar, en sesión de la Junta Directiva, el juramento de estilo a los incorporandos o distintos miembros de las respectivas comisiones u otros miembros encargados de funciones especiales.

@@ -1,0 +1,1 @@
+Artículo 4º-Los cargos dentro de la Junta Directiva serán elegidos por mayoría simple en Asamblea General y tendrán una duración de dos años, con posibilidad de reelección por un período adicional. El reglamento interno podrá establecer condiciones específicas para ciertos cargos.

@@ -1,0 +1,1 @@
+Artículo 27.-Puesta en debate una moción, no se tratará otro asunto hasta que aquella hubiese sido resuelta o se hubiere presentado una moción modificatoria o alternativa, o se conviniere, por cualquier motivo, con el consenso de la mitad más uno de los miembros presentes, en postergar su discusión.
