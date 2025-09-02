@@ -1,0 +1,1 @@
+Artículo 22.-El quórum para las votaciones se integrará con el número de personas presentes en el recinto de la Asamblea a la hora de abrirse la votación. En caso de empate, aun cuando haya solo dos personas candidatas, se repetirá la elección. Si el empate persiste, quedará elegido el candidato o la candidata que tenga más tiempo de estar colegiado según registro.

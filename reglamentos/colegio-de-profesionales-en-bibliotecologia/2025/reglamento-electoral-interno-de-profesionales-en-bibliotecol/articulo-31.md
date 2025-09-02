@@ -1,0 +1,1 @@
+Artículo 31.-El proceso electoral será organizado y supervisado por el Comité Electoral, que tendrá la responsabilidad de garantizar su legalidad, transparencia y equidad. El Comité establecerá el cronograma, aprobará el reglamento específico de elecciones y resolverá cualquier controversia que surja durante el proceso.

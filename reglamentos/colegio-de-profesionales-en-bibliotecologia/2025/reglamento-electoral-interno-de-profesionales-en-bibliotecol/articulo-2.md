@@ -1,0 +1,1 @@
+Artículo 2º-Para efectos del presente Reglamento, se entenderá por "Colegio" al Colegio de Profesionales en Bibliotecología de Costa Rica; cuando se cite "Tribunal" se entenderá que se refiere al Tribunal Electoral y "Ley Orgánica" será la Ley Orgánica del Colegio de Profesionales en Bibliotecología de Costa Rica N.º 9148 del 09 de julio de 2013.

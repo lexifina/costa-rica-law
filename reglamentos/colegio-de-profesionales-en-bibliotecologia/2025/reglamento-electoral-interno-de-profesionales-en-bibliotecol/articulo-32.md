@@ -1,0 +1,1 @@
+Artículo 32.-Requisitos para ser candidato. Podrán postularse como candidatos todos los miembros activos que cumplan con los requisitos establecidos en este reglamento y que no se encuentren sujetos a sanciones disciplinarias vigentes. Los requisitos específicos serán definidos en cada convocatoria.

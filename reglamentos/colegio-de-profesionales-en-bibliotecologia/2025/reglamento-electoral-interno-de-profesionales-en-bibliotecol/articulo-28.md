@@ -1,0 +1,1 @@
+Artículo 28.-La Asamblea General deberá elegir a cuatro miembros del Tribunal de Honor en una sola votación por el orden decreciente de votos. Él quinto miembro será asignado por la Junta Directiva de conformidad con el artículo 40 de la Ley Orgánica.

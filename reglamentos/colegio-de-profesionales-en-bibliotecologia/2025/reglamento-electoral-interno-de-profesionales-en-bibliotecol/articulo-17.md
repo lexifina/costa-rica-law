@@ -1,0 +1,1 @@
+Artículo 17.-Los miembros del Tribunal deberán inhibirse de participar en los procesos electorales en los cuales participe alguna persona a la que esté unida por parentesco por consanguinidad o afinidad hasta el tercer grado o personas con las que tengan una relación laboral directa. Una vez concluido el periodo de elecciones continuará en el desempeño de su cargo.

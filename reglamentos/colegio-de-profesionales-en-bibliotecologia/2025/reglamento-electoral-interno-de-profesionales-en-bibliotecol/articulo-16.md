@@ -1,0 +1,1 @@
+Artículo 16.-El Tribunal Electoral será el responsable de elaborar la normativa para reglamentar los procesos de elección del Colegio, de conformidad con lo establecido en la Ley y el presente reglamento, así como su funcionamiento interno. Los proyectos reforma a este reglamento serán presentados ante Asamblea General para su estudio y aprobación.

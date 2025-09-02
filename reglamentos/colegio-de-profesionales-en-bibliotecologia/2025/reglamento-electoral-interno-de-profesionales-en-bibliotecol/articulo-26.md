@@ -1,0 +1,1 @@
+Artículo 26.-El Tribunal comunicará a los colegiados la apertura de un periodo treinta días naturales para inscripción de candidaturas. En el caso de que no se cubran todos los puestos vacantes, por resolución del Tribunal, el plazo podrá ser ampliado por cinco días más. El proceso de inscripción deberá cerrarse 30 días antes de la fecha de celebración de la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 21.-El Tribunal Electoral publicará los puestos disponibles y las fechas de inicio y cierre de inscripción de candidaturas. Asimismo, proporcionará el formulario de inscripción, donde los candidatos indicarán el puesto de su interés.

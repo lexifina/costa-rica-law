@@ -1,0 +1,1 @@
+Artículo 3º-El Tribunal Electoral es un órgano del Colegio nombrado por la Asamblea General. Posee total independencia funcional y de criterio de los demás órganos del Colegio, en el ejercicio de sus competencias. Su sede encuentra en el domicilio legal del Colegio.

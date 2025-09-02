@@ -1,0 +1,1 @@
+Artículo 33.-Procedimiento de votación y escrutinio. La votación se realizará mediante sufragio directo, secreto y personal. El escrutinio será público y estará a cargo del Comité Electoral, quien registrará los resultados en un acta oficial. En caso de empate, se procederá según lo dispuesto en el reglamento específico de elecciones.
