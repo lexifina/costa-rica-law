@@ -1,1 +1,2 @@
-Artículo 16 _Una vez aprobadas las becas el encargado de la tutela del estudiante deberá gestionar ante la entidad bancaria a la que la Municipalidad de Quepos se encuentre afiliada, un número de cuenta bancaria a nombre del menor de edad para ser entregada en la Unidad de Talento Humano Municipal.
+Artículo 16.-Una vez aprobadas las becas la Secretaria del Concejo Municipal emitirá una constancia de aprobación de beca al encargado de la tutela del estudiante para que este gestione ante la entidad bancaria a la que la Municipalidad de Quepos se encuentre afiliada, un número de cuenta bancaria a nombre del menor de edad para ser entregada en la Unidad de Talento Humano Municipal.
+(Así reformado en sesión N° 109 del 2 de setiembre de 2025)

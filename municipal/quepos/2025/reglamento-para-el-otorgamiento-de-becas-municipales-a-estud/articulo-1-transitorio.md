@@ -1,0 +1,2 @@
+Transitorio I.-Los montos para las becas que regulan este reglamento, serán estipulados en dos categorías, (primaria y secundaria), estos dos montos serán definidos por la Comisión Municipal Permanente de Asuntos Sociales, de acuerdo con la disponibilidad presupuestaria anual destinada por la Administración para dicho subsidio, montos y presupuesto que serán aprobados por el Concejo Municipal.
+(Así adicionado en sesión N° 109 del 2 de setiembre de 2025)

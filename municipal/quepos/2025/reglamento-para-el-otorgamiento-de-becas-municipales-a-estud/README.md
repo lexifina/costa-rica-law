@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas municipales a estudiantes de escasos re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-03 | la propia norma |
+| 2 | 2025-09-02 | Reglamento municipal 109 (2025-09-02) |
