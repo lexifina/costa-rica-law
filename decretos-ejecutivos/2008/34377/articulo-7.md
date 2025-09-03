@@ -1,1 +1,0 @@
-Artículo 7º—La Junta Directiva sesionará una vez al mes y extraordinariamente cuando así lo convoque el Presidente o el Secretario. El lugar de las sesiones de la Junta Directiva, serán las instalaciones del Ministerio de Seguridad Pública. Cada dos años la Junta Directiva gestionará una auditoria externa.

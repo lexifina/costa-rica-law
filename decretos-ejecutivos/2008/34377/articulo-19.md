@@ -1,1 +1,0 @@
-Artículo 19.—El Ministerio de Seguridad Pública proporcionará el personal administrativo y un lugar adecuado para la sede, así como el material necesario para funcionar normalmente, todo a juicio del Ministro.

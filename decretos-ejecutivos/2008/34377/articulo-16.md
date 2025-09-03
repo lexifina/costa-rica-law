@@ -1,1 +1,0 @@
-Artículo 16.—El Tesorero deberá obtener una póliza de fidelidad por el valor que la Junta Directiva determine. La Junta Directiva podrá acordar la obligatoriedad de suscribir pólizas de fidelidad a otros miembros de la Junta Directiva y a los que actúen como administradores de la Sociedad.
