@@ -498,9 +498,12 @@ d. Aprobación de un programa de estudios de posgrado (residencia médica) de se
 e. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neurorradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista conformación adecuada)
 (*) (Así reformada la subespecialidad 16.22.3) anterior mediante sesión ordinaria 2023-11.15 del 15 de noviembre de 2023)
 16.22.4. Oncoradiología.
+Se reconoce como sinónimo: Radiología Oncológica
+(Así adicionado el párrafo anterior en sesión ordinaria 2025-09-03, celebrada el 03 de setiembre de 2025)
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oncoradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así reformado los requisitos anteriores en sesión ordinaria 2025-09-03, celebrada el 03 de setiembre de 2025)
 (*) 16.22.5. Osteomuscular.
 Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Radiología Musculoesquelética; Imagenología del Sistema Musculo-Esquelético.
 Requisitos específicos:
