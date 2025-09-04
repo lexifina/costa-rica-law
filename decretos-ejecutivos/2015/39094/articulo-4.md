@@ -1,1 +1,0 @@
-Artículo 4º—Modifíquese el nombre del Decreto 38166-MICITT, para que en adelante se lea “Reglamento de organización de las áreas que dependen de Viceministro (a) de Telecomunicaciones del Ministerio de Ciencia, Tecnología y Telecomunicaciones”.
