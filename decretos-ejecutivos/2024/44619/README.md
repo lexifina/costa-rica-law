@@ -15,3 +15,4 @@ Nombramiento de la junta directiva del Patronato Nacional de Ciegos
 | --- | --- | --- |
 | 1 | 2024-08-08 | la propia norma |
 | 2 | 2025-02-26 | Decreto Ejecutivo 44934 (2025-02-26) |
+| 3 | 2025-09-04 | Decreto Ejecutivo 45198 (2025-09-04) |
