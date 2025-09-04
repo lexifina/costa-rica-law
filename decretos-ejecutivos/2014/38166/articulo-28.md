@@ -1,9 +1,6 @@
 CAPÍTULO VII
-Dirección de Tecnologías Digitales
-SECCIÓN I
-Generalidades
-Artículo 28.—Competencias y relación jerárquica. Corresponde a la Dirección de Tecnologías Digitales:
-a) Articular una estrategia para el desarrollo de la Sociedad de la Información y el Gobierno Electrónico, que incluya la integración de los diversos esfuerzos y proyectos que el país realiza en ambos temas, y que se expresa en planes y programas del ámbito digital.
-b) Depende del Viceministro (a) y está a cargo de un Director (a). Tiene bajo su responsabilidad las siguientes dependencias:
-i. Departamento de Sociedad de la Información
-ii. Departamento de Gobierno Electrónico
+Disposiciones finales
+(Así modificada su denominación por el artículo 68 del Reglamento de Organización del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 45243 del 4 de setiembre del 2025. Anteriormente indicaba "Dirección de Tecnologías Digitales")
+Artículo 28.-Sobre la denominación de las unidades de nivel Gerencial. En el caso de aquellas unidades que en el presente Decreto aparecen bajo la mención de Departamento, dicha referencia está relacionada con la nomenclatura de la Unidad, y no del puesto del funcionario (a) que la tiene a cargo, el cual se mantendrá bajo la denominación de Gerente. La denominación "Control Nacional de Radio", se entiende en el nivel de unidad y el puesto de encargado de dicha Unidad como de Jefatura.
+(Corrida su numeración por el artículo 3° del Reglamento de Organización de las Áreas que dependen del Viceministro de Ciencia y Tecnología y Unidades Staff que dependen del Ministro de Ciencia, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 39094 del 26 de mayo del 2015, que lo traspasó del artículo 35 al 37)
+(Así modificada su numeración por el artículo 70 del Reglamento de Organización del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 45243 del 4 de setiembre del 2025, que lo traspasó del antiguo artículo 37 al artículo 28. Ya que por medio de su numeral 69 se ordenó derogar los numerales 28, 29, 30, 31, 32, 33, 34, 35 y 36, y adecuar la numeral de los restantes artículos)

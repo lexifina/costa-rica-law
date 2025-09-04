@@ -1,17 +1,4 @@
-Artículo 30.—Atribuciones. Corresponde a la Dirección de Tecnologías Digitales:
-a) Diseñar los instrumentos que permitan la integración, coordinación y vigilancia tanto de las políticas públicas como de los esfuerzos del Estado en desarrollo del Gobierno Digital y de la Sociedad de la Información.
-b) Coordinar, en conjunto con las autoridades superiores, las actividades ministeriales y sectoriales que permitan desarrollar y cumplir con las políticas, lineamientos, directrices, estrategias y planes del área de especialidad.
-c) Realizar el control, seguimiento y fiscalización a las políticas, lineamientos, directrices, estrategias y planes que se diseñen para el área de especialidad en los niveles sectorial y ministerial.
-d) Desarrollar escenarios para la previsión del comportamiento futuro de las variables del sector, en las áreas de su competencia.
-e) Formular los indicadores y estadísticas requeridos para la definición y evaluación de las políticas del sector de telecomunicaciones, en el campo de la Sociedad de la Información y del Gobierno Digital.
-f) Otorgar el aval a los informes, estudios, dictámenes y demás comunicaciones emanados de la Dirección, de previo a su conocimiento por parte de las autoridades superiores del MICITT.
-g) Planificar y coordinar la realización de estudios de prospectiva sobre la evolución del Gobierno Digital y la Sociedad de la Información, de manera que permitan orientar la definición de políticas y acciones en ambas materias.
-h) Dar seguimiento a las políticas y acuerdos alcanzados en las reuniones de carácter internacional o con motivo de tratados comerciales, y elaborar informes técnicos que se requieran para el ejercicio de las labores de representación internacional, en los temas vinculados a sus competencias.
-i) Orientar, participar y asesorar al Ministerio en el desarrollo de convenios, políticas, lineamientos y acciones en el marco de las relaciones con organismos internacionales o conferencias de igual naturaleza.
-j) Coordinar los grupos de trabajo que la autoridad designe, para temas de telecomunicaciones en el ámbito internacional, y/o proponer posiciones nacionales dentro de organismos internacionales.
-k) Apoyar a las autoridades superiores en la consecución de cooperación técnica de telecomunicaciones.
-l) Ejecutar las demás labores que le asignen las autoridades superiores.
-m) Rendir cuentas sobre los resultados de su gestión.
-n) Cumplir con los deberes que le corresponden de acuerdo con el sistema de control interno institucional.
-o) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos que le sean asignados en función de los objetivos estratégicos.
-p) Cualquier otra que la ley o el reglamento de organización le señale.
+Artículo 30.-Vigencia. El presente decreto rige a partir de la fecha de su publicación en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República.-San José, a los veintitrés días del mes de enero del año dos mil catorce.
+(Corrida su numeración por el artículo 3° del Reglamento de Organización de las Áreas que dependen del Viceministro de Ciencia y Tecnología y Unidades Staff que dependen del Ministro de Ciencia, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 39094 del 26 de mayo del 2015, que lo traspasó del artículo 37 al 39)
+(Así modificada su numeración por el artículo 70 del Reglamento de Organización del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 45243 del 4 de setiembre del 2025, que lo traspasó del antiguo artículo 39 al artículo 30. Ya que por medio de su numeral 69 se ordenó derogar los numerales 28, 29, 30, 31, 32, 33, 34, 35 y 36, y adecuar la numeral de los restantes artículos)
