@@ -14,3 +14,4 @@ Nombramiento de la Junta Directiva del Patronato Nacional de Ciegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-26 | la propia norma |
+| 2 | 2025-09-04 | Decreto Ejecutivo 45198 (2025-09-04) |
