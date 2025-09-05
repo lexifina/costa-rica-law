@@ -1,0 +1,2 @@
+Artículo 15.-Modifíquese el artículo 60 para que de ahora en adelante se lea así:
+"Artículo 60.-Compatibilidad con otros pluses salariales: Para las personas que perciben salario compuesto el concepto de "disponibilidad" no es excluyente de otros sobresueldos como la Dedicación Exclusiva, Carrera Profesional, etc., por lo que el funcionario en calidad de disponible puede recibir pago por disponibilidad siempre y cuando el ordenamiento legal vigente se lo permita."

@@ -1,0 +1,2 @@
+Artículo 16.-Modifíquese el artículo 67 para que en adelante se lea así:
+"Artículo 67.-Normativa supletoria: En defecto de las disposiciones propias de este Reglamento, deberán tenerse como supletorias la Ley Marco de Empleo Público, el Código Municipal, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y, la Ley General de la Administración Pública, así como demás disposiciones normativas conexas en la materia."
