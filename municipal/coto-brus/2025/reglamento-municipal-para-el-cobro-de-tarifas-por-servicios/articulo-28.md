@@ -1,0 +1,1 @@
+Artículo 28- Vigencia. El presente Reglamento deroga cualquier disposición relacionada con esta materia que se le oponga y rige a partir de su segunda y definitiva publicación una vez sometido a consulta pública no vinculante conforme lo establecido en el artículo 43 del Código Municipal.

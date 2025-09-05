@@ -1,0 +1,1 @@
+Artículo 24- Constitución gravamen a propiedad: En caso de que los propietarios no cancelen la deuda por los trabajos realizados a la Municipalidad, se procederá conforme lo señala el artículo 79 del Código Municipal y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 22- Cobro administrativo y judicial. El propietario o poseedor que haga caso omiso del pago de los trabajos ejecutados será sujeto de los procedimientos de cobro administrativo y judicial que establece el Reglamento respectivo de la Municipalidad de Coto Brus. Dichos montos podrán ser incluidos en los recibos de impuestos de bienes inmuebles municipales.

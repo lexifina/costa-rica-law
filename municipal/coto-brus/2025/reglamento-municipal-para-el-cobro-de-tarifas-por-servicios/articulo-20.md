@@ -1,0 +1,1 @@
+Artículo 20- Notificación de cobro. Habiendo ejecutado los trabajos, por parte de la Municipalidad de Coto Brus, se procederá con la notificación de cobro al respectivo propietario o en su defecto con el cargo a bienes inmuebles de la propiedad respectiva.

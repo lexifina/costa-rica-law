@@ -1,0 +1,1 @@
+Artículo 26- En el caso de los caminos públicos que se encuentran en la zona limítrofe, el municipio realizará las respectivas coordinaciones con el gobierno local del país vecino de Panamá, para facilitar la identificación de los propietarios y las respectivas notificaciones.

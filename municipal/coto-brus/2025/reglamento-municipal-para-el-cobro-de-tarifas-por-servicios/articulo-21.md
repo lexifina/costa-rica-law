@@ -1,0 +1,2 @@
+Artículo 21- Procedimiento de pago. Los cobros de los montos correspondientes por trabajos realizados deberán realizarse en las cajas recaudadoras de la Tesorería Municipal o a través de los mecanismos válidos y establecidos por la Municipalidad sin que ellos generen una comisión por la transacción realizada.
+Dichos montos se cargarán y serán cobrados en el mismo recibo de impuestos de bienes inmuebles.

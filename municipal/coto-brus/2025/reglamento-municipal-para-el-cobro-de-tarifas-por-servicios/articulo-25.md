@@ -1,0 +1,1 @@
+Artículo 25- La Municipalidad bajo ninguna circunstancia suministrará los servicios enunciados en este Reglamento de forma gratuita, ni exonerará total o parcialmente el pago de cualquier multa, intereses o cuenta, a no ser que exista disposición legal que la autorice para ello.

@@ -1,0 +1,1 @@
+Artículo 4- Omisión de pagos. En materia de la omisión de pagos por trabajos realizados por parte de la Municipalidad o de las organizaciones no gubernamentales autorizadas con ese fin por la institución municipal, serán aplicables los artículos, 83 bis,84,85 bis y 85 ter,86, 87 y cualquier otro concordante del Código Municipal y sus reformas.
