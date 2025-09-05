@@ -1,0 +1,1 @@
+Artículo 3o.- El detalle de los movimientos presupuestarios que corresponden a lo dispuesto en los artículos anteriores, así como su desglose en los niveles de programa, subprograma, partida y subpartida presupuestaria estará disponible en la página electrónica del Ministerio Hacienda en la dirección que se muestra a continuación: https://www.hacienda.go.cr/Presupuesto.html.
