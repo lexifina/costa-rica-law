@@ -1,0 +1,9 @@
+Artículo 17.- Reformas a la Resolución MH-DGT-RES-0029-2025. Refórmese la resolución N°MH-DGT-RES-0029-2025 de las nueve horas cincuenta y dos minutos del catorce de julio de dos mil veinticinco denominada "Reforma a la resolución DGT-R-73-2019 sobre el uso de los formularios D-105-2. Declaraciones del Régimen de Tributación Simplificada", en el artículo 1 de "Modificaciones", adiciónese un párrafo segundo al Artículo 1 denominado "Formularios de declaración jurada", corriéndose los párrafos siguientes; se modifica el Transitorio Único y el artículo 2 de Vigencia. El texto es el siguiente:
+"Artículo 1. Modificaciones.
+(...) Asimismo, modifíquense los artículos 1, 2 y 5 de la resolución DGT-R-73- 2019 de las ocho horas cinco minutos del tres de diciembre de dos mil diecinueve, para que se lean de la siguiente manera:
+"Artículo 1. Formularios de declaración jurada.
+(..)
+Para efectos estadísticos inherentes exclusivamente de la Administración Tributaria y no atientes con los obligados tributarios, se hace la distinción entre personas físicas (PF) y personas jurídicas (PJ). Para lo cual el usuario no deberá seleccionar el formulario por tipo de persona, sino que, una vez iniciada la sesión en el sistema, de forma automática se le permitirá visualizar únicamente el formulario que le corresponda.
+(...)".
+"TRANSITORIO UNICO. Autoliquidación y pago de periodos fiscales anteriores a la obligación del uso del sistema TRIBU-CR. Cuando los obligados tributarios requieran presentar o rectificar declaraciones juradas de períodos fiscales con vencimiento anterior al funcionamiento del sistema TRIBU-CR, deberán presentar las declaraciones en el formulario y por el mismo medio que se establece en la presente resolución."
+"Artículo 2. Vigencia. Rige a partir del seis de octubre del 2025."

@@ -1,0 +1,3 @@
+Artículo 14.- Modificaciones a la Resolución MH-DGT-RES-0026-2025. Modifíquese de la resolución N° MH-DGT-RES-0026-2025 de las quince horas y cinco minutos del diez de julio de dos mil veinticinco denominada "Resolución referente a la presentación de la Declaración Informativa en materia de precios de transferencia", el Transitorio Único y el artículo 8 de Vigencia. Su texto es el siguiente:
+"TRANSITORIO ÚNICO. Tratándose de la declaración informativa de precios de transferencia del periodo fiscal 2024, ésta deberá presentarse a más tardar el 31 de marzo de 2026."
+"Artículo 8.-Vigencia. La presente resolución rige a partir del seis de octubre del dos mil veinticinco."

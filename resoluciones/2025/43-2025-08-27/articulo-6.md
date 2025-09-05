@@ -1,0 +1,2 @@
+Artículo 6.- Modificaciones a la Resolución MH-DGT-RES-0017-2025. Modifíquese de la resolución MH-DGT-RES-0017-2025 de las catorce horas treinta y nueve minutos del ocho de julio de dos mil veinticinco denominada "Lineamientos para el acceso a la oficina virtual del Sistema de Gestión Tributaria TRIBU-CR", el artículo 13 de "Vigencia". Su texto es el siguiente
+"Articulo 13.- Vigencia. Rige a partir del seis de octubre del año 2025."

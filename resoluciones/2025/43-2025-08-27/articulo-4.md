@@ -1,0 +1,2 @@
+Artículo 4.- Modificaciones a la Resolución MH-DGT-RES-0015-2025. De la resolución N° MH-DGT-RES-0015-2025 de las catorce horas treinta y dos minutos del ocho de julio del 2025 denominada "Resolución para el cambio de período fiscal en el impuesto sobre las utilidades y derogatoria de la Resolución N° DGT-R-016- 2021", modifíquese el artículo 14 de Vigencia. Su texto es el siguiente:
+"Articulo 14.- Vigencia. Rige a partir del seis de octubre del año 2025."

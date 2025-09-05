@@ -1,0 +1,2 @@
+Artículo 5.- Modificaciones a la Resolución MH-DGT-RES-0016-2025. Modifíquese de la resolución MH-DGT-RES-0016-2025, de las catorce horas treinta y tres minutos del ocho de julio del dos mil veinticinco, denominada "Reforma a la Resolución N° DGT-R-22-2020, Aplicación de periodo fiscal especial en el impuesto sobre utilidades para el sector cafetalero y cañero azucarero de Costa Rica", el artículo 4 de Vigencia. Su texto es el siguiente:
+"Articulo 4.- Vigencia. Rige a partir del seis de octubre del año 2025."

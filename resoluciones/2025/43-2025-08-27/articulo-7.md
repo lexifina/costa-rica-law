@@ -1,0 +1,3 @@
+Artículo 7.- Modificaciones a la Resolución MH-DGT-RES-0018-2025. Modifíquese de la resolución MH-DGT-RES-0018-2025 de las catorce horas cuarenta minutos del ocho de julio de dos mil veinticinco denominada "Lineamientos para la presentación de solicitudes de información, peticiones y consultas tributarias ante la Dirección General de Tributación por medio de la oficina virtual del Sistema de Administración Tributaria TRIBU-CR", el artículo 14 de Derogatoria y el artículo 15 de Vigencia. Su texto es el siguiente:
+"Artículo 14.- Derogatoria. La presente resolución deja sin efecto la resolución MHDGT- RES-0010-2023 denominada "Condiciones de uso para la plataforma de trámites virtuales TRAVI".
+"Articulo 15.- Vigencia. Rige a partir del seis de octubre del año 2025."

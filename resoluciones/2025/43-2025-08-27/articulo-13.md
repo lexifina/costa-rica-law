@@ -1,0 +1,2 @@
+Artículo 13.- Modificaciones a la Resolución MH-DGT-RES-0025-2025. Modifíquese de la resolución N° MH-DGT-RES-0025-2025 de las quince horas del diez de julio del dos mil veinticinco denominada "Resolución para la presentación de información solicitada por la Administración Tributaria en un Proceso de Control" el artículo 8 de Vigencia. Su texto es el siguiente:
+"Artículo 8.-Vigencia. La presente resolución rige a partir del seis de octubre del dos mil veinticinco."
