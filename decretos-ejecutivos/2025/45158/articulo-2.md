@@ -1,0 +1,1 @@
+Artículo 2°- De conformidad con el artículo 20 de la Ley de Catastro Nacional Nº 6545 de 25 de marzo de 1981, se declara zona catastrada el Cantón 03 Buenos Aires, Distrito 07 Chánguená, Provincia 06 Puntarenas.
