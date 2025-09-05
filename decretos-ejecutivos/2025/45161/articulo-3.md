@@ -1,0 +1,1 @@
+Artículo 3.- El presente reglamento será de acatamiento obligatorio para los profesionales en medicina, odontología, farmacia, veterinaria, además de todos los establecimientos involucrados en la importación, exportación, comercialización, distribución, prescripción y despacho de medicamentos psicotrópicos y estupefacientes.

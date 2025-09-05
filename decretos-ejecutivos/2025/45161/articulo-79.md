@@ -1,0 +1,1 @@
+Artículo 79.- Las resoluciones y disposiciones a que refiere el presente Reglamento tendrán recurso de revocatoria y apelación en subsidio en los términos que señala la Ley Orgánica del Ministerio de Salud en su artículo 60.

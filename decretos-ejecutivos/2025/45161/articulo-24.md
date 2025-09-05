@@ -1,0 +1,1 @@
+Artículo 24.- Los medicamentos psicotrópicos y estupefacientes deben ser almacenados bajo llave en un mueble de seguridad o área de seguridad, dicha llave debe de estar bajo custodia del regente farmacéutico.

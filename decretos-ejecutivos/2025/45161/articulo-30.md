@@ -1,0 +1,1 @@
+Artículo 30.- Para los efectos del artículo 26 del presente Reglamento, los Colegios de Médicos y Cirujanos de Costa Rica, de Cirujanos Dentistas de Costa Rica y de Médicos Veterinarios, enviarán la nómina actualizada de sus profesionales activos a solicitud de la Dirección de Regulación de Productos de Interés y Riesgo Sanitario.

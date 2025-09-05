@@ -1,0 +1,1 @@
+Artículo 22.- Las droguerías que almacenen y distribuyan psicotrópicos y estupefacientes deben cumplir con las Buenas Prácticas de Almacenamiento y Distribución, de acuerdo con el Decreto Ejecutivo N°37700-S del 29 de enero del 2013 "Reglamento de buenas prácticas de almacenamiento y distribución de medicamentos en droguerías".

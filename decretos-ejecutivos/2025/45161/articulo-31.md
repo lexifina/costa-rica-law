@@ -1,0 +1,1 @@
+Artículo 31.- Para los efectos del artículo 29 del presente Reglamento el Colegio de Farmacéuticos de Costa Rica, enviará la nómina actualizada de los regentes farmacéuticos, así como el nombre y ubicación de los establecimientos en los cuales ejercen su regencia a solicitud de la Dirección de Regulación de Productos de Interés y Riesgo Sanitario.

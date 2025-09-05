@@ -1,0 +1,1 @@
+Artículo 28.- Toda prescripción de estupefacientes y psicotrópicos debe responder a la valoración del paciente, de conformidad con el acto profesional respectivo y constar debidamente en su expediente clínico.

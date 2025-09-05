@@ -1,0 +1,1 @@
+Artículo 7.- Los miembros de la Dirección de Drogas y Estupefacientes no podrán ser propietarios, accionistas o empleados de las droguerías, farmacias o de los laboratorios fabricantes de drogas estupefacientes y psicotrópicas.

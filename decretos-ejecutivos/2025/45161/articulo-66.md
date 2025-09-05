@@ -1,0 +1,1 @@
+Artículo 66.- El Ministerio de Salud denunciará ante el Ministerio Público, los casos sospechosos de manejo indebido o desvío hacia canales ilícitos de estupefacientes y psicotrópicos, sin perjuicio de las acciones que puedan tomarse en otras instancias, así como la denuncia ante los colegios profesionales correspondientes, si procede.

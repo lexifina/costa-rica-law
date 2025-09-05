@@ -1,0 +1,1 @@
+Artículo 46.- Las droguerías y los laboratorios farmacéuticos autorizados para importar y/o distribuir psicotrópicos/estupefacientes, tienen la obligación de brindar información a la Dirección de Regulación de Productos de Interés y Riesgo Sanitario, sobre consumo, trazabilidad e inventarios, para el cumplimiento de los fines establecidos en la normativa.

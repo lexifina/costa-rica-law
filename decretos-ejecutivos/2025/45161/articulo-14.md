@@ -1,0 +1,1 @@
+Artículo 14.- Las decisiones tomadas por la Dirección de Drogas y Estupefacientes quedarán en firme en la siguiente sesión al aprobarse el acta respectiva, salvo que, al momento de tomar la decisión se acuerde su firmeza por votación de al menos cuatro miembros de la totalidad de los presentes.

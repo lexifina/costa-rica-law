@@ -1,0 +1,1 @@
+Artículo 68.- Los establecimientos que adquieren recetarios impresos, para distribuirlos a los profesionales de dicho establecimiento, deberán contar con procedimientos que garanticen la trazabilidad desde la compra del recetario, hasta la entrega de este al profesional y su posterior custodia conforme al artículo anterior.

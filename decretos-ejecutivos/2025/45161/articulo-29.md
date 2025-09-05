@@ -1,0 +1,1 @@
+Artículo 29.- El control y la manipulación de estupefacientes y psicotrópicos en los establecimientos farmacéuticos, así como el despacho de las recetas en que se prescriben, corresponderá personal y exclusivamente a los regentes farmacéuticos.

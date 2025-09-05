@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+MEDIDAS ESPECIALES
+Artículo 69.- La Dirección de Drogas y Estupefacientes previa verificación del incumplimiento a lo establecido en el presente reglamento, aplicará las medidas especiales establecidas en los artículos 356 y 364 de la Ley General de Salud, sin menoscabo de la responsabilidad civil o penal en que hayan incurrido las personas físicas o jurídicas responsables de tal incumplimiento; y sin perjuicio de cualquier otro tipo de sanción que proceda. Podrán ser sujetos de sanción, los profesionales en farmacia, los profesionales prescriptores y los representantes legales de los establecimientos farmacéuticos.

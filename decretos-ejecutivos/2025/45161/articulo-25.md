@@ -1,0 +1,1 @@
+Artículo 25.- Los medicamentos psicotrópicos y estupefacientes que estén dañados y/o vencidos deben estar almacenados bajo llave, separados y debidamente rotulados para proceder con la destrucción. La llave deberá estar bajo custodia del regente farmacéuticos.

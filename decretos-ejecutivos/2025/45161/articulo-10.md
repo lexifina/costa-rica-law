@@ -1,0 +1,2 @@
+Artículo 10.- La Dirección de Drogas y Estupefacientes sesionará ordinariamente cada dos semanas, y en forma extraordinaria cuantas veces sea necesario, por convocatoria del presidente de la Dirección de Drogas y Estupefacientes. El día, hora y lugar de sus sesiones serán fijados por acuerdo de la Dirección de Drogas y Estupefacientes.
+La moción de alteración del orden del día se deberá dar a conocer inmediatamente después de la lectura del orden del día propuesto para la sesión y solo podrá ser aprobado por la mayoría de los miembros presentes.
