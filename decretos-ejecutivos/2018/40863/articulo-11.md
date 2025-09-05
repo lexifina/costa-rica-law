@@ -1,1 +1,0 @@
-Artículo 11. Deróguese el Decreto Ejecutivo N° 26431-MAG de 2 de octubre de 1997 denominado Reglamento a la Ley Orgánica del Ministerio de Agricultura y Ganadería y sus reformas y el Decreto Ejecutivo No. 30271-MAG de 19 de marzo de 2002 “Crea los Programas Nacionales Sectoriales Adscritos al Despacho Ministerial de Agricultura y Ganadería”.
