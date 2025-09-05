@@ -1,0 +1,8 @@
+Artículo 11.-Atribuciones de las personas licenciatarias
+Las personas licenciatarias que cuenten con autorización de comercio sobre ruedas tendrán las siguientes atribuciones:
+a. Utilizar los espacios públicos para desarrollar la actividad comercial para la cual se otorgó la autorización, en los términos y las condiciones establecidos en el contrato que se suscribirá con la municipalidad para la utilización del mismo. sin que se perturbe su ocupación sin un acto administrativo que fundamenta el cese de la actividad, salvo a lo indicado en los artículos 5 y 10 del presente reglamento.
+b. Utilizar el material mobiliario y de decoración pertinente para el desarrollo de la actividad comercial, en los espacios públicos autorizados, en las condiciones definidas por la municipalidad.
+c. Realizar obras de mejoramiento del espacio, como la incorporación de iluminación de batería o reparación de huecos en la capa de la acera, entre otras, se establecen los siguientes requisitos:
+c.1. Se deberá presentar a la Unidad de Patentes de la Municipalidad de Cañas, solicitud por escrito en la cual se detallen las obras de mejoras del espacio público que se pretenden realizar.
+c.2. La Unidad de Patentes una vez recibida la solicitud, procederá a analizar la solicitud con la Dirección de desarrollo y control Urbano, por lo que contaran con un plazo de 5 días naturales para verificar las mejoras del espacio público solicitadas.
+c.3. La Unidad de Patentes deberá notificar al solicitante en un pazo de 15 días naturales contados a partir del recibido de la solicitud, la resolución de aprobación o rechazo de la solicitud, la resolución que debe ser debidamente fundamentada.

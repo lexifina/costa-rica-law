@@ -1,0 +1,5 @@
+Artículo 17.-Causales de revocatoria o extinción de la autorización de comercio sobre ruedas. Las causales de revocatoria de la autorización de comercio sobre ruedas serán:
+a. Cuando la circulación de las personas peatonas sea interrumpida por la actividad.
+b. Cuando se incurra en las causales establecidas en el artículo 12 de Prohibiciones de las personas licenciatarias de este reglamento.
+c. Cualquier otra que por motivos de interés público o conveniencia que se presente.
+d. Cuando se adeuden dos o más trimestres seguidos o alternos de obligaciones municipales formales o materiales.
