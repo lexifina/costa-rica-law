@@ -12,8 +12,8 @@ La Dirección Ejecutiva, contará con las siguientes unidades asesoras:
 B. NIVEL OPERATIVO
 Este nivel está conformado por los siguientes departamentos:
 1. Departamento Administrativo y Financiero: cuenta con las siguientes unidades:
-1.1 Unidad Operativa-Financiera.
-1.2 Unidad de Proveeduría.
+1.1 (Derogado por el artículo 50 (actual artículo 53) del Reglamento orgánico del Ministerio de Agricultura y Ganadería, aprobado mediante decreto ejecutivo N° 45282 del 5° de setiembre de 2025)
+1.2 (Derogado por el artículo 50 (actual artículo 53) del Reglamento orgánico del Ministerio de Agricultura y Ganadería, aprobado mediante decreto ejecutivo N° 45282 del 5° de setiembre de 2025)
 2. Departamento de Cuarentena Vegetal: cuenta con las siguientes unidades:
 2.1 Unidades de Estaciones de Cuarentena Vegetal: cuenta con las siguientes estaciones:
 2.1.1 Estación de Cuarentena Vegetal Peñas Blancas.

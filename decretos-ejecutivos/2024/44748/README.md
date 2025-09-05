@@ -14,3 +14,4 @@ Reglamento de la estructura organizativa del Servicio Fitosanitario del Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-22 | la propia norma |
+| 2 | 2025-09-05 | Decreto Ejecutivo 45282 (2025-09-05) |
