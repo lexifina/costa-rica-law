@@ -20,8 +20,5 @@ c.3.2) Unidad Agrícola Trópico Húmedo.
 c.4) Departamento de Laboratorios.
 c.5) Departamento de Estudios Básicos de Tierras.
 (Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 44773 del 30 de octubre de 2024)
-d) Una Dirección Administrativa Financiera que consta de los siguientes tres Departamentos:
-1. Departamento de Proveeduría.
-2. Departamento de Servicios Generales y,
-3. Departamento de Administración de Recursos.
+d) (Derogado por el artículo 50 (actual artículo 53) del Reglamento orgánico del Ministerio de Agricultura y Ganadería, aprobado mediante decreto ejecutivo N° 45282 del 5° de setiembre de 2025)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)
