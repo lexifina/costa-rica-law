@@ -1,0 +1,3 @@
+Artículo 7.- Vigencia del documento de identidad digital. La IDC tendrá una vigencia de 4 años, a partir del momento de emisión del documento digital.
+En caso de renovación o reposición de la cédula emitida en sustrato físico durante el cuatrienio de vigencia de la IDC, la persona ciudadana deberá actualizar, por los canales y el procedimiento establecidos al efecto, los datos que fueran necesarios para continuar utilizando el documento digital. Una vez actualizados los datos, la IDC mantendrá su vigencia por el plazo que reste para completar el cuatrienio por el que fue emitida.
+Esta actualización no generará ningún costo adicional.

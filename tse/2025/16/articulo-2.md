@@ -1,0 +1,2 @@
+Artículo 2.- Naturaleza del servicio. La Identificación Digital Costarricense es un servicio no esencial y comercializable del Tribunal que se sustenta en lo dispuesto en el artículo 24 del Código Electoral.
+Los recursos económicos generados al amparo de este servicio se depositarán a la cuenta de caja única autorizada por la Tesorería Nacional del Ministerio de Hacienda denominada "Fondo Específico del Tribunal Supremo de Elecciones" y serán destinados al mejoramiento de la prestación de los servicios públicos que son competencia exclusiva del Tribunal.
