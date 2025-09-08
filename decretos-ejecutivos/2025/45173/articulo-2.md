@@ -1,0 +1,1 @@
+Artículo 2.- Se deroga el requisito, establecido en decretos ejecutivos, de presentar la copia de la cédula de identidad para realizar una gestión o un trámite ante la Administración del Gobierno Central, siempre que la gestión se realice de manera presencial. En su lugar, tal requisito se sustituye por la presentación de la cédula de identidad, de conformidad con la Ley Nº 3504.
