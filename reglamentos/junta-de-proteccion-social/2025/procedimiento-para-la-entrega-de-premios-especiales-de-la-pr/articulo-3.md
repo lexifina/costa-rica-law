@@ -1,0 +1,15 @@
+Artículo 3º-Mecánica de participación. La mecánica de participación consiste en que toda persona mayor de 18 años, nacional o extranjera, que realice una apuesta mínima de ?2.000 por tiquete, podrá activar su participación a partir del lunes 15 de setiembre del 2025 a las 12:00 mediodía y hasta el lunes 01 de diciembre del 2025 a las 6:00 p.m., a través de la aplicación "JPS A SU ALCANCE" y la página web www.jpsenlinea.go.cr, utilizando tiquetes de la Lotería Electrónica.
+Se aclara que cada tiquete activado genera únicamente una participación en la promoción, independientemente del monto apostado en el mismo, siempre y cuando la apuesta sea igual o superior a ?2.000. Para completar la participación, el tiquete deberá corresponder a los sorteos de Lotería Electrónica efectuados entre setiembre y noviembre, según lo establecido en el artículo 5 del presente procedimiento.
+No participan de esta promoción los funcionarios de la Junta de Protección Social, los miembros de Junta Directiva, ni los vendedores autorizados de la Junta de Protección Social que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede realizar esa acción).
+Las personas que realicen su compra por medio del sitio www.jpsenlinea.go.cr, su participación se generará de forma automática, mientras que, las personas que realicen su compra en punto de venta deben escanear sus tiquetes en la app JPS a su alcance.
+Requisitos para activación en la App JPS A SU ALCANCE:
+Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
+1. Descargar la aplicación en la tienda PlayStore de Google, Apple Store o App Gallery.
+2. Registrarse y completar una única vez el formulario de inscripción.
+3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la ventana "activación de productos" e ingresar a la ventana "activaciones".
+4. Escanear (tiquete por tiquete) la Lotería Electrónica en los meses de setiembre a noviembre. Para el escaneo correcto de cada uno de los tiquetes, deben posicionar la cámara en el código datamatrix que se ubica en el área del tiquete de Lotería Electrónica.
+Las personas que ya tienen una cuenta en la aplicación JPS a su alcance deberán ingresar con su cédula y contraseña y acceder a la ventana "activación de productos" e ingresar a la ventana "activaciones" y escanear (tiquete por tiquete) la Lotería Electrónica de los meses de setiembre a noviembre.
+Una persona solo podrá realizar la activación de un máximo de 200 tiquetes por sorteo de Lotería Electrónica para cada sorteo de esta promoción, a su nombre.
+Se reitera que un tiquete solo podrá ser activado una vez durante el período de activaciones.
+El participante está en la obligación de registrar información veraz y exacta y es el único responsable de la veracidad y exactitud de los datos que registre para participar.
+Se aclara que los tiquetes activados para esta promoción NO podrán activarse para participar en cualquier otra promoción que se encuentre vigente, y viceversa.
