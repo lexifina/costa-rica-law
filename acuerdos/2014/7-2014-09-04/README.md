@@ -18,3 +18,4 @@ Manual de Políticas y Procedimientos "Incorporaciones"
 | 3 | 2017-01-11 | Reglamento 0 (2017-01-11) |
 | 4 | 2018-11-28 | Acuerdo 0 (2018-11-28) |
 | 5 | 2023-08-07 | Reglamento 0 (2023-08-07) |
+| 6 | 2025-09-08 | Reglamento 84 (2025-09-08) |
