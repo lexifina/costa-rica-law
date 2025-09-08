@@ -1,0 +1,4 @@
+Artículo 19.-Sobre el procedimiento disciplinario o de despido.
+Cuando el jerarca competente solicite la apertura del procedimiento administrativo disciplinario correspondiente para determinar las responsabilidades de las personas involucradas, el mismo se regirá por las normas del procedimiento ordinario contenidas en la Ley General de la Administración Pública o la Ley Marco de Empleo Público según sea el caso. En todo momento deberá actuar sometido a los principios que integran el derecho de defensa, debido proceso y demás disposiciones legales que rige la Administración Pública.
+Hasta la resolución final de los procedimientos, la información contenida en el expediente se calificará como confidencial, excepto para las partes involucradas y los órganos legalmente autorizados para conocer del asunto.
+A solicitud expresa del denunciante, se le informará del resultado del procedimiento administrativo una vez que el mismo haya culminado.

@@ -1,0 +1,1 @@
+Artículo 6°-Injerencia y competencia de la Asesoría Jurídica de la Dirección General de Servicio Civil. La Asesoría Jurídica es el Área encargada de recibir la denuncia y declarar su admisibilidad, así como tramitar la investigación preliminar o en su defecto el procedimiento administrativo disciplinario correspondiente.

@@ -1,0 +1,2 @@
+Artículo 10.-Inadmisibilidad de denuncias anónimas: No se dará trámite a las denuncias que sean presentadas en forma anónima, conforme lo establece el artículo 13 del Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito.
+En casos excepcionales podrá abrirse una investigación preliminar de oficio, cuando de la denuncia se desprenda la existencia de elementos de prueba suficientes que den mérito para ello; caso contrario, se dispondrá su archivo mediante acto motivado.
