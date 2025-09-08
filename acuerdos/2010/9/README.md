@@ -19,3 +19,4 @@ Política y Procedimiento Retiros Temporales e Indefinidos
 | 4 | 2020-07-14 | Reglamento 0 (2020-07-14) |
 | 5 | 2021-09-03 | Reglamento 0 (2021-09-03) |
 | 6 | 2024-10-07 | Reglamento 97 (2024-10-07) |
+| 7 | 2025-09-08 | Reglamento 84 (2025-09-08) |
