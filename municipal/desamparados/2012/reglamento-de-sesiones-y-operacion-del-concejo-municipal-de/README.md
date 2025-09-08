@@ -17,3 +17,4 @@ Reglamento de Sesiones y Operación del Concejo Municipal de Desamparados
 | 2 | 2020-07-21 | Reglamento municipal 41 (2020-07-21) |
 | 3 | 2022-11-15 | Reglamento municipal 69 (2022-11-15) |
 | 4 | 2024-10-01 | Reglamento municipal 61 (2024-10-01) |
+| 5 | 2025-09-08 | Reglamento municipal 56 (2025-09-08) |
