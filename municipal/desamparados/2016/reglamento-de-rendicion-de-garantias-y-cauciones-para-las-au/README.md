@@ -14,3 +14,4 @@ Reglamento de Rendición de Garantías y Cauciones para las Autoridades y Funcio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-21 | la propia norma |
+| 2 | 2025-09-08 | Reglamento municipal 56 (2025-09-08) |
