@@ -28,3 +28,4 @@ XAdES | Firma electrónica avanzada XMLXML Advanced Electronic Signature
 XML | Lenguaje de marcado extensible (Extensible markup language)
 JAdES | Firma electrónica avanzada JSON (JSON Advanced Electronic Signature)
 JSON | Notación de objetos de JavaScript (JavaScript Object Notation)
+AdES | Concepto general definido en la normativa europea (Reglamento eIDAS y Reglamento (UE) 2024/1183), del cual derivan los formatos CAdES, XAdES, PAdES y JAdES.

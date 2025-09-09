@@ -15,3 +15,4 @@ Política de formatos oficiales de los documentos electrónicos firmados digital
 | --- | --- | --- |
 | 1 | 2022-08-03 | la propia norma |
 | 2 | 2025-07-15 | Reglamento 0 (2025-07-15) |
+| 3 | 2025-09-09 | Reglamento 0 (2025-09-09) |
