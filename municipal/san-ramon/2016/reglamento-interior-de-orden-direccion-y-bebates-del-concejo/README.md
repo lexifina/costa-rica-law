@@ -14,3 +14,4 @@ Reglamento interior de orden, dirección y bebates del concejo municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-26 | la propia norma |
+| 2 | 2025-09-09 | Reglamento municipal 119 (2025-09-09) |
