@@ -1,5 +1,9 @@
-Artículo 11.—Obligaciones de la persona becaria. Son obligaciones de la persona becaria, las siguientes:
-a) Mantener una buena nota de conducta en el centro educativo correspondiente.
-b) Reportar oportunamente cualquier mejora sustancial en su situación socio-económica, o la de su grupo familiar, que implique variación de las condiciones por las cuales se le otorgó la beca.
-c) Aprobar al final del curso lectivo, la totalidad de los cursos.
-(Así reformado mediante sesión ordinaria N° 145 del 4 de febrero del 2019)
+Artículo 11°- Obligaciones de la persona becada. Son obligaciones de la persona becada, las siguientes:
+a) Presentar toda la documentación fehaciente para la realización del estudio socioeconómico. Si se detectare que la persona solicitante incurrió en falsedad de información se realizará la anulación de la solicitud de beca y por los dos (2) años siguientes no podrá solicitar el subsidio.
+b) En caso de visita domiciliaria, deberá permitir la fiscalización a la persona profesional en Trabajo Social de todo el inmueble donde habita la persona solicitante de beca y su grupo familiar.
+c) La persona usuaria de beca o su representante legal tiene la obligación de reportar oportunamente cualquier mejora sustancial en su situación socioeconómica, o la de su grupo familiar, que implique variación de las condiciones por las cuales se le otorgó la beca.
+d) En el caso de estudiantes de modalidad educación abierta y CINDEA tienen que mantener mínimo 3 materias matriculadas, a excepción de lo estipulado en el Artículo 3°.
+e) Presentar asistencia regular en el centro de estudio, durante todo el curso lectivo. En el caso de las personas estudiantes de la modalidad Educación Abierta deben presentar asistencia obligatoria y permanente mínima de un 75% del total de las sesiones impartidas, ya sea por la Modalidad MEP (aproximadamente 28 sesiones por ciclo) o la modalidad Municipalidad de Escazú (aproximadamente 15 sesiones por ciclo).
+f) Aprobar al final del curso lectivo la totalidad de los cursos y la nota de conducta.
+g) Será obligación de la persona becada mantener el contacto (teléfono, correo electrónico, dirección domiciliaria) actualizado, cualquier cambio que realicen deben de notificarlo a la oficina encargada del programa de becas. La oficina encargada de becas no será responsable si alguna información no le fue suministrada por el cambio de contacto.
+h) Asistir a las capacitaciones, charlas, talleres, seminarios, procesos de formación u otras actividades que se les convoque desde el Programa de becas como parte de la atención integral a las familias usuarias.

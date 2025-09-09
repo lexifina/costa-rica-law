@@ -1,1 +1,1 @@
-Artículo 18.—Derogaciones. Este Reglamento deroga todas las disposiciones municipales anteriores sobre la materia que aquí se Reglamenta.
+Artículo 18°- La Administración Municipal realizará el análisis presupuestario anual, con el fin de verificar la capacidad presupuestaria y definir el monto de beca y la cantidad de becas a aprobar, esta aprobación irá sujeta y respaldada según el criterio técnico que se emita desde la oficina encargada de becas.
