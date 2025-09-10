@@ -19,3 +19,4 @@ Reglamento para ausencias de los señores Diputados
 | 4 | 2013-06-11 | Acuerdo 16 (2013-06-11) |
 | 5 | 2022-03-15 | Reglamento 198 (2022-03-15) |
 | 6 | 2024-09-18 | Reglamento 111 (2024-09-18) |
+| 7 | 2025-09-10 | Reglamento 149 (2025-09-10) |
