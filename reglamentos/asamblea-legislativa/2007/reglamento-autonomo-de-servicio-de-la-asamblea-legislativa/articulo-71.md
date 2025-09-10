@@ -1,2 +1,3 @@
-Artículo 71.-Las Comisiones de Salud Ocupacional, en coordinación con las autoridades superiores de cada dependencia, podrán realizar actividades informativas y de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 64 al artículo 71)
+Artículo 71.-La Asamblea promoverá la creación y funcionamiento oficial de Comisiones de Salud Ocupacional del Trabajo para que se capaciten en salud ocupacional, emergencias y riesgos del trabajo, que sirvan de retroalimentación al resto de los funcionarios (as) respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en esta materia, en forma permanente.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 63 al artículo 70)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 70 al artículo 71)

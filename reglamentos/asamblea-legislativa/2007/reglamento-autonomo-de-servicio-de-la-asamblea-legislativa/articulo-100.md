@@ -1,5 +1,3 @@
-CAPÍTULO XXIV
-Disposiciones finales
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XXIII al Capítulo XIV)
-Artículo 100.-En defecto de disposiciones propias de este Reglamento, deben tenerse como supletorias el Estatuto del Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes o reglamentos conexos de la materia, que estén en vigencia en el país.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 93 al artículo 100)
+Artículo 100.-Tanto en el caso de supresión de puestos como en el de reducción forzosa de servicios, el servidor (a) tendrá derecho al reconocimiento de una indemnización equivalente a un mes de sueldo por cada año o fracción de seis meses o más de trabajo ininterrumpido. Tal indemnización se calculará según el promedio de los sueldos devengados durante los seis meses anteriores a la fecha en que se opere la separación.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 92 al artículo 99)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 99 al artículo 100)

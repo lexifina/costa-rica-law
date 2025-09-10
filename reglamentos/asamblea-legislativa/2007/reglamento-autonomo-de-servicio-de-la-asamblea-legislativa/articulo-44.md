@@ -1,10 +1,14 @@
-Artículo 44.-Son obligaciones de los Directores (as) de División, de Departamento, de Área y de Jefes (as) de Sección:
-a) Acatar y hacer cumplir las órdenes e instrucciones que emanen del Directorio y del Director(a) Ejecutivo(a), las cuales deberán cursarse por los canales de jerarquía correspondiente.
-b) Velar por la buena marcha de la Sección, Departamento o División a su cargo;
-c) Vigilar las labores; puntualidad y asistencia de los servidores (as) que estén bajo su dirección y conceder los permisos a que se refiere el inciso a) del artículo 40(*);
-(*) (Léase artículo 47)
-d) Rendir los informes que les sean solicitados por el Directorio, por el Director Ejecutivo o por el Director(a) de División, relativos a las actividades realizadas por su Sección, Departamento, o División, con las observaciones pertinentes para mejorar el servicio,
-e) Cooperar con sus superiores jerárquicos en todo lo relativo a las actividades del patrono, consultando con ellos todos los asuntos de orden técnico, administrativo o de cualquier otra índole, que por su importancia así lo ameritan;
-f) Proponer todas las medidas que crean necesarias para mejorar los trabajos y el rendimiento de los respectivos Despachos, sobre todo las encaminadas a lograr el mayor grado de eficiencia; y
-g) Las demás propias de sus relaciones de servicio, así como las consignadas en este Reglamento y demás leyes aplicables
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 37 al artículo 44)
+CAPÍTULO XII
+De las obligaciones de servidores específicos
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XI al Capítulo XII)
+Artículo 44.-Conforme a las disposiciones propias de su relación de servicio, este Reglamento y demás normas aplicables, son obligaciones del Director (a) Ejecutivo (a):
+a) Confeccionar y mantener al día los expedientes personales de todos los funcionarios (as) y empleados (as) de la Asamblea Legislativa; para lo cual girará las instrucciones pertinentes a la Dirección de Recursos Humanos.
+b) Intervenir, en la medida que determinen la Ley de Personal y el Directorio, en todo lo relativo al ingreso de funcionarios (as) y demás servidores (as), traslados, ascensos, permisos, calificaciones, aumentos periódicos y relaciones humanas.
+c) Velar por el estricto cumplimiento de este Reglamento y de las relaciones de servicio;
+d) Acatar y hacer cumplir las órdenes e instrucciones del Directorio;
+e) Tramitar y aplicar las medidas disciplinarias, excepto la de despido, en que sólo tiene la tramitación, pues la aplicación corresponde al Directorio, de conformidad con la Ley de Personal de la Asamblea Legislativa;
+f) Mantenerse en constante contacto con el Directorio para lo relacionado con las obligaciones propias de su cargo.
+g) Rendir los informes que le sean solicitados por el Directorio; y
+h) Proponer a sus superiores las modificaciones e innovaciones de carácter técnico, administrativo o de cualquier otra índole que crea convenientes para la buena marcha de los departamentos y oficinas de la Asamblea .
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 36 al artículo 43)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 43 al artículo 44)

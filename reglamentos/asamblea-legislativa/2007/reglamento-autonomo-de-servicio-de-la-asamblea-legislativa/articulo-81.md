@@ -1,2 +1,3 @@
-Artículo 81.-La Asamblea deberá proporcionar las facilidades necesarias con el fin de que todos los servidores(as), sin discriminación alguna, puedan capacitarse y superarse en el empleo.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 74 al artículo 81)
+Artículo 81.-Se considerará un acto de discriminación cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del (la) aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los (las) solicitantes o cuando no se emplee a un servidor idóneo en razón de su discapacidad.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 73 al artículo 80)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 80 al artículo 81)

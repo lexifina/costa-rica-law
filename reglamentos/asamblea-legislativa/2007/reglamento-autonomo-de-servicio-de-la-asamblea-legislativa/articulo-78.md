@@ -1,3 +1,10 @@
-Artículo 78.-Para efectos de la tipificación y del procedimiento a seguir en casos de hostigamiento sexual, se aplicarán las disposiciones contenidas en la Ley Nº 7476, Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, así como lo dispuesto por el Reglamento Contra el Hostigamiento Sexual en el Empleo de la Asamblea Legislativa de Costa Rica, debidamente aprobado por el Directorio Legislativo, en la sesión ordinaria N° 044-2011, del 24 de febrero del 2011 y sus reformas.
-(Así reformado mediante sesión ordinaria N° 043-2019 del 10 de abril del 2019)
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 71 al artículo 78)
+CAPÍTULO XIX
+Del hostigamiento sexual
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XVIII al Capítulo XIX)
+Artículo 78.-Para los efectos del presente Reglamento y de acuerdo con el artículo 3 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia Nº 7476, del 3 de febrero de 1995, se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe en forma reiterada y que provoque efectos perjudiciales en los siguientes casos:
+a) Condiciones materiales de empleo.
+b) Desempeño y cumplimiento en la prestación del servicio.
+c) Estado general del bienestar personal.
+También se considera acoso sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 70 al artículo 77)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 77 al artículo 78)

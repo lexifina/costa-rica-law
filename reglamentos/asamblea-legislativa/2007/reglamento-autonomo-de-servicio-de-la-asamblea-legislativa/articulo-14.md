@@ -1,1 +1,4 @@
-Artículo 14.—El Directorio podrá fijar con la anuencia de los interesados, una jornada especial de trabajo y eximir del control de asistencia, a aquellos servidores (as) que por la índole de sus funciones, deban cumplir parte de estas fuera del recinto de la Asamblea Legislativa.
+Artículo 14.-Son días hábiles para el trabajo todos los días del año, excepto los sábados, domingos, los feriados de ley y aquellos que el Directorio de la Asamblea declare de asueto.
+Sin embargo, para atender la sesión solemne del 1º de mayo, deberá asistir a laborar todo aquel personal que el Director Ejecutivo designe. Para efectos de pago, la jornada será remunerada según lo estipulado en el artículo 152, párrafo 2º del Código de Trabajo. Igual disposición rige para el caso de que, por necesidades propias del servicio, la Asamblea acuerde celebrar sesión en cualquier otro día feriado o de descanso semanal.
+(Así reformado el párrafo anterior mediante acuerdo N° 42 tomado en sesión N° 77 celebrada el 10 de octubre del 2007).
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 13 al artículo 14)

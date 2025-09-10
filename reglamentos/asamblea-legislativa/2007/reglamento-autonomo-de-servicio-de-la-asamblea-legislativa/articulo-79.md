@@ -1,5 +1,4 @@
-CAPÍTULO XX
-De los funcionarios y funcionarias con discapacidad
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XIX al Capítulo XX)
-Artículo 79.-La Asamblea Legislativa, en cumplimiento de lo dispuesto por la Ley 7600, garantizará la posibilidad de ingreso a las personas con discapacidad y el derecho a un empleo adecuado a sus condiciones y necesidades personales.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 72 al artículo 79)
+Artículo 79.-Para efectos de la tipificación y del procedimiento a seguir en casos de hostigamiento sexual, se aplicarán las disposiciones contenidas en la Ley Nº 7476, Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, así como lo dispuesto por el Reglamento Contra el Hostigamiento Sexual en el Empleo de la Asamblea Legislativa de Costa Rica, debidamente aprobado por el Directorio Legislativo, en la sesión ordinaria N° 044-2011, del 24 de febrero del 2011 y sus reformas.
+(Así reformado mediante sesión ordinaria N° 043-2019 del 10 de abril del 2019)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 71 al artículo 78)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 78 al artículo 79)

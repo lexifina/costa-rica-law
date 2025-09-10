@@ -1,6 +1,7 @@
-CAPÍTULO VII
-Del registro de asistencia
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo VI al Capítulo VII)
-Artículo 27.-Será responsabilidad de cada jefatura llevar el control de asistencia de sus subalternos, para lo que deberá implementar mecanismos de control que no violenten, en modo alguno, los derechos fundamentales de los servidores (as).
-En circunstancias especiales, será competencia del Director (a) Ejecutivo (a) disponer la forma en que se llevará a cabo la fiscalización prevista en el párrafo anterior.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 20 al artículo 27)
+Artículo 27.-Se considera abandono del trabajo el hacer dejación de la labor respectiva sin causa que lo justifique, dentro de las jornadas estipuladas en este Reglamento o aprobadas por acuerdo de Directorio en firme.
+Para calificar el abandono del trabajo no es necesario que el servidor (a) salga del local en donde presta sus servicios, sino que bastará que de modo evidente abandone la labor que le ha sido confiada.
+El abandono injustificado del trabajo será sancionado de conformidad con lo que establece el artículo 58(*).
+(*) (Léase artículo 66)
+(Así reformado el párrafo anterior mediante acuerdo N° 05-13-14 tomado en sesión ordinaria N° 169-2013 del 24 de abril del 2013)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 19 al artículo 26)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 26 al artículo 27)

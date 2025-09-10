@@ -1,5 +1,3 @@
-Artículo 95.-Deber de excusarse de participar en actos que ocasionen un conflicto de intereses. Todo servidor (a) debe abstenerse de participar en cualquier proceso decisorio, incluso en su fase previa de consultas e informes, en el que su vinculación con actividades externas -que de alguna forma se vean afectas por la decisión oficial- pueda comprometer su criterio o dar ocasión de duda sobre su imparcialidad.
-Deberá también abstenerse de participar en el proceso decisorio, cuando esa vinculación exista respecto de su cónyuge, compañero (a), hermano (a) o ascendientes hasta segundo grado de consanguinidad o afinidad inclusive, o su socio en una empresa.
-No opera esta obligación cuando se trate de participar en la formulación de disposiciones normativas de carácter general, que sólo de modo indirecto afecte la actividad o vinculación externa del funcionario (a) o de las personas mencionadas en el párrafo anterior.
-Cuando estime que hay motivo para separarse del conocimiento de un asunto, el servidor (a) lo hará saber por escrito al superior, quien en definitiva resolverá sobre el punto.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 88 al artículo 95 )
+Artículo 95.-Deber de comportarse con decoro y respeto. Todo servidor (a) debe ser justo (a), cuidadoso (a), respetuoso (a) y cortés en el trato con los usuarios (as) del servicio, sus jefes, subalternos (as) y compañeros (as).
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 87 al artículo 94)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 94 al artículo 95)

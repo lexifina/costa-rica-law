@@ -1,2 +1,3 @@
-Artículo 90.-Deber de imparcialidad. El servidor (a) debe ejercer el cargo sin discriminar, en cuanto a las formas y condiciones del servicio, a ninguna persona por razón de color, género, religión, nacionalidad, situaciones económicas, ideología o afiliación política.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 83 al artículo 90)
+Artículo 90.-Deber de confidencialidad. El servidor (a) debe guardar discreción con respecto a todos los hechos e informaciones de los cuales tenga conocimiento en el ejercicio de sus funciones, independientemente de que el asunto haya sido calificado o no como confidencial por él (la) superior, salvo que sea autorizado para dar informaciones y sin perjuicio del derecho de información del administrado ejercido conforme al ordenamiento jurídico vigente.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 82 al artículo 89)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 89 al artículo 90)

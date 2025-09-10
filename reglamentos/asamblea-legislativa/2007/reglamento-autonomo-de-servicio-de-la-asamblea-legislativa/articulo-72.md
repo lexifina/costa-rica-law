@@ -1,7 +1,3 @@
-CAPÍTULO XVIII
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XVII al Capítulo XVIII)
-De los riesgos de trabajo
-Artículo 72.-De conformidad con lo dispuesto en el artículo 195 del Código de Trabajo, se denominan riesgos profesionales aquellos accidentes o enfermedades que ocurran a los funcionarios (as) como consecuencia del trabajo que desempeñan en forma subordinada y remunerada.
-Por accidentes de trabajo, se entenderá todo accidente que le suceda al servidor(a) como causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes y que puede producirle la muerte, pérdida o reducción temporal o permanente de la capacidad para el trabajo. También se calificarán como accidentes de trabajo las circunstancias enumeradas en el artículo 196 del Código de Trabajo.
-Por último, se entiende por enfermedad de trabajo, todo estado patológico que resulte de la acción continuada de una causa que tiene su origen o motivo en el propio trabajo o en el medio y condiciones en que el trabajador (a) labora. De conformidad con lo dispuesto en el artículo 197 del Código de Trabajo, debe establecerse que éstos han sido la causa de la enfermedad.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 65 al artículo 72)
+Artículo 72.-Las Comisiones de Salud Ocupacional, en coordinación con las autoridades superiores de cada dependencia, podrán realizar actividades informativas y de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 64 al artículo 71)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 71 al artículo 72)

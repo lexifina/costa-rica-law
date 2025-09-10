@@ -1,1 +1,4 @@
-Artículo 12.—El empleador no reconocerá el pago de la jornada extraordinaria que no haya ordenado previamente el Director (a) Ejecutivo (a).
+Artículo 12.-Cuando necesidades imperiosas del patrono lo requieran, el servidor (a) se encuentra en la ineludible obligación de laborar tiempo extraordinario hasta el máximo de tiempo permitido por la ley, salvo la negativa justificada presentada ante su jefe inmediato; so pena de considerarse la negativa injustificada como falta grave a la relación de servicio. En cada caso se comunicará a los servidores (as), con prudente anticipación, dentro del mismo día, la jornada extraordinaria que tengan que realizar.
+La jornada extraordinaria se pagará de conformidad con la legislación y reglamentación vigente sobre la materia.
+(Así reformado mediante sesión ordinaria N° 068-2019 del 24 de setiembre del 2019)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 11 al artículo 12)

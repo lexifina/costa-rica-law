@@ -1,6 +1,8 @@
-Artículo 61.- La suspensión del trabajo se aplicará hasta por ocho días y sin goce de salario, una vez que se haya oído a la persona servidora y a los compañeros (as) de trabajo que esta indique, en los siguientes casos:
-a) Cuando la persona servidora, después de haber sido amonestada por escrito, incurra, dentro de un periodo de tres meses a partir de la sanción correspondiente, en una nueva infracción a las disposiciones enumeradas en el artículo 52 anterior; y,
-b) Cuando la persona servidora incurra en infracción a las disposiciones de los artículos 23(*), 28(*), 35(*), incisos a), c), k), l), m), n) y ñ); 36(*); incisos d), f), g), y h); y 37(*), incisos a), b), c), d), e), f), y g)
-(*) (Léase artículos 30, 35, 42, 43 y 44 en su orden)
-(Así reformado en sesión N° 143 del 11 de febrero del 2021)
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 54 al artículo 61)
+Artículo 61.-El apercibimiento escrito se aplicará:
+a) Cuando se haya amonestado en los términos del artículo anterior y el servidor incurra en un lapso de un mes nuevamente en la misma falta;
+b) Cuando incumpla alguna de las obligaciones establecidas por el artículo 35(*), incisos d), f), g), h), j), p), q), r), y s); y artículo 38(*), incisos b), d), e), f), g), k), y l), del presente Reglamento;
+(*) (Léase artículos 43 y 46 en su orden)
+c) En los casos especialmente previstos por otros artículos de este Reglamento; y
+d) Cuando las leyes de trabajo exijan la amonestación escrita antes del despido.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 53 al artículo 60)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 60 al artículo 61)

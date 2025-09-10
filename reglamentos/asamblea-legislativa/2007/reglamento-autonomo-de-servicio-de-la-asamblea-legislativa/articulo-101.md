@@ -1,2 +1,6 @@
-Artículo 101.-Como lo ordena la ley, este Reglamento se mantendrá expuesto en caracteres fácilmente legibles, por lo menos en dos de los sitios más visibles del local del patrono y queda a opción de este, sin perjuicio de lo anterior, imprimirlo en folletos especiales para distribuirlos entre los trabajadores.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 94 al artículo 101)
+CAPÍTULO XXIV
+Disposiciones finales
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XXIII al Capítulo XIV)
+Artículo 101.-En defecto de disposiciones propias de este Reglamento, deben tenerse como supletorias el Estatuto del Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes o reglamentos conexos de la materia, que estén en vigencia en el país.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 93 al artículo 100)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 100 al artículo 101)

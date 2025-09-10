@@ -1,3 +1,5 @@
-Artículo 19-Registro de Horas Acumuladas. Para el disfrute de esta jornada, se requiere de un registro de asistencia como forma objetiva de ingreso y salida de la persona funcionaria bajo la responsabilidad de las jefaturas. Las personas funcionarias deberán informar a la jefatura inmediata al menos 24 horas antes del viernes en que gozará el tiempo acumulado.
-Este registro debe ser entregado al Departamento de Recursos Humanos cada mes, sin excepción, para ser incluido en los controles que se desarrollen para tales efectos.
+Artículo 19- Límites de Acumulación y uso. Las personas funcionarias pueden acumular horas de trabajo hasta un máximo de 3 horas por semana o un máximo de 12 horas por mes, sujeto a aprobación, y no debe laborar más de 39 horas semanales.
+La utilización de las horas acumuladas deberá gozarse exclusivamente cualquier viernes dentro de los 90 días calendario siguientes, los cuales deberán registrarse en los controles que competen a las gerencias departamentales. Dicho tiempo podrá ser utilizado para los fines que determine la persona interesada.
+(Así reformado el párrafo anterior mediante sesión ordinaria Nº 134-2025 del 29 de abril del 2025)
 (Así adicionado mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 18 al artículo 19)

@@ -1,2 +1,6 @@
-Artículo 99.-Tanto en el caso de supresión de puestos como en el de reducción forzosa de servicios, el servidor (a) tendrá derecho al reconocimiento de una indemnización equivalente a un mes de sueldo por cada año o fracción de seis meses o más de trabajo ininterrumpido. Tal indemnización se calculará según el promedio de los sueldos devengados durante los seis meses anteriores a la fecha en que se opere la separación.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 92 al artículo 99)
+CAPÍTULO XXIII
+De la reducción forzosa de servicios
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XXII al Capítulo XXIII)
+Artículo 99.-Todo despido o reducción forzosa de servicios se ordenará mediante acuerdo del Directorio y deberá ajustarse a lo que dispone la Ley de Personal de la Asamblea Legislativa en su artículo 33 incisos b) y f), a lo dispuesto en el artículo 47 del Estatuto del Servicio Civil y en el artículo 110 párrafo último de su Reglamento, así como en la demás normativa vigente.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 91 al artículo 98)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 98 al artículo 99)

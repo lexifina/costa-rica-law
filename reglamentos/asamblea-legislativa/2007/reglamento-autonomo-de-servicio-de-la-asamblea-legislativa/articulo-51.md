@@ -1,5 +1,3 @@
-Artículo 51.-Se concederán permisos para realizar estudios en el país, hasta por media jornada diaria, como máximo.
-Quienes obtengan permisos hasta por media jornada, deben sujetarse a un horario especial de jornada continua, convenido entre el interesado, el Director(a) Ejecutivo (a) y el Jefe (a) respectivo (a).
-Los permisos por tiempo menor de media jornada diaria, los concederá el Directorio sin sujeción a ninguna medida especial. Queda a su libre criterio fijar las condiciones que estime convenientes, según sea el caso.
-Se debe asistir al trabajo durante los períodos y los días libres que conceda el correspondiente centro educativo. Los favorecidos con estos permisos deben constatar ante el Departamento de Recursos Humanos, quien deberá rendir un informe al Director (a) Ejecutivo (a) sobre las asignaturas en que se han matriculado y al final del curso, las calificaciones obtenidas. Si esas asignaturas no fueren aprobadas, sin que haya mediado fuerza mayor, no se podrá renovar el permiso para el curso siguiente.
-(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 44 al artículo 51)
+Artículo 51.-Los permisos con goce de sueldo para la realización de estudios los concederá el Directorio, previa consulta con el Director (a) Ejecutivo (a) y el Jefe (a) respectivo (a).
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 43 al artículo 50)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 50 al artículo 51)

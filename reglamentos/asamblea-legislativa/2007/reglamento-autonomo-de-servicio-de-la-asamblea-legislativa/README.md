@@ -32,3 +32,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | 17 | 2022-08-23 | Reglamento 14 (2022-08-23) |
 | 18 | 2024-11-06 | Reglamento 118 (2024-11-06) |
 | 19 | 2025-04-29 | Reglamento 134 (2025-04-29) |
+| 20 | 2025-09-10 | Reglamento 149 (2025-09-10) |

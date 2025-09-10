@@ -1,4 +1,3 @@
-Artículo 17-Aprobación de la Solicitud. La aprobación o no de la solicitud estará sujeta a la discrecionalidad de la Administración y se basará en la viabilidad operativa y las necesidades del servicio de la Institución.
-La aprobación de gozar de dicha modalidad no genera derecho adquirido y la Administración se encuentra facultada para revocar dicha jornada según la viabilidad operativa y las necesidades institucionales.
-Corresponderá la aprobación a algún miembro del cuerpo gerencial del departamento, sea la Gerencia o en su ausencia la Subgerencia.
+Artículo 17-Solicitud de Jornada Acumulativa. Las personas funcionarias interesadas en acogerse a la jornada acumulativa deben presentar una solicitud por escrito a su jefatura inmediata. La solicitud debe incluir el período durante el cual se acumularán las horas y un plan de trabajo detallado sobre las tareas a desarrollar en las horas a trabajar bajo esta modalidad.
 (Así adicionado mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024)
+(Así modificada su numeración en sesión N° 149 del 10 de setiembre de 2025, que lo traspaso del antiguo artículo 16 al artículo 17)

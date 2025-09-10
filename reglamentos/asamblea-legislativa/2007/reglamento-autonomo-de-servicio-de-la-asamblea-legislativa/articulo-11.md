@@ -1,3 +1,11 @@
-Artículo 11.—Cuando necesidades imperiosas del patrono lo requieran, el servidor (a) se encuentra en la ineludible obligación de laborar tiempo extraordinario hasta el máximo de tiempo permitido por la ley, salvo la negativa justificada presentada ante su jefe inmediato; so pena de considerarse la negativa injustificada como falta grave a la relación de servicio. En cada caso se comunicará a los servidores (as), con prudente anticipación, dentro del mismo día, la jornada extraordinaria que tengan que realizar.
-La jornada extraordinaria se pagará de conformidad con la legislación y reglamentación vigente sobre la materia.
-(Así reformado mediante sesión ordinaria N° 068-2019 del 24 de setiembre del 2019)
+Artículo 11.-Horario flexible. Será procedente la aplicación de la jornada con flexibilidad horaria en la Asamblea Legislativa, la cual podrá cumplirse de lunes a jueves de la siguiente manera:
+. de 6:30 a.m. hasta las 3:30 p.m.
+. de 7:30 a.m. hasta las 4:30 p.m.
+. de 8:00 a.m. hasta las 5:00 p.m.
+. de 8:30 a.m. hasta las 5:30 p.m.
+. de 9:30 a.m. hasta las 6:30 p.m.
+Lo anterior en el entendido de que siempre deberá completarse la jornada diaria y semanal conforme lo que dispone el artículo anterior. Para los días viernes, la salida no deberá exceder las 12 m. d. en esta modalidad.
+Los funcionarios que se acojan a esta modalidad deberán contar con el visto bueno de la jefatura inmediata y de la aprobación de la gerencia del departamento al que pertenezca, a través de un convenio de horario flexible que deberá ser remitido al Departamento de Recursos Humanos para el refrendo de la Gerencia General.
+La fecha de rige de la modalidad será a partir de la aprobación de la Gerencia General.
+Las jefaturas y gerencias de cada departamento serán las responsables de velar por su cumplimiento y por los mecanismos de control que considere convenientes, siempre y cuando no violenten los derechos fundamentales de las personas servidoras.
+(Así adicionado en sesión N° 149 del 10 de setiembre de 2025)
