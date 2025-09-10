@@ -1,0 +1,1 @@
+Artículo 4º-Periodos autorizados a condonar principal e intereses según la ley 10359. La condonación total del principal, intereses y multas definidos en el artículo 1 de este reglamento, será hasta el segundo trimestre del año 2023, es decir será aplicable a deudas de periodos anteriores y hasta el 30 de junio del año 2023, de conformidad con el artículo 2 de la Ley N° 10359.

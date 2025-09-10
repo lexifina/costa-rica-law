@@ -1,0 +1,1 @@
+Artículo 12.-Arreglos de pago vigentes. Los arreglos de pago suscritos a la fecha, amparados en el Reglamento para el procedimiento de cobro de la Municipalidad de Sarchí, podrán anularse para aplicar la condonación en los términos de la N° 10359 y el presente plan de condonación.

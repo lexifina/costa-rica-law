@@ -1,0 +1,1 @@
+Artículo 11.-Plazo de condonación. Una vez aprobado este Plan de Condonación de la Ley N° 10359, las personas contribuyentes tendrán un plazo de 12 meses para presentar la solicitud, este tiempo empieza a contar a partir de la firmeza del acuerdo municipal mediante el cual se apruebe el presente plan de condonación.

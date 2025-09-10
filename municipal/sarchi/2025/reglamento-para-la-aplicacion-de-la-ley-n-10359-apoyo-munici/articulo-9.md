@@ -1,0 +1,1 @@
+Artículo 9º-Contribuyentes en Cobro Extrajudicial y Judicial. La Municipalidad podrá aplicar la condonación a contribuyentes que se encuentran en fase extrajudicial o judicial, siempre y cuando la persona contribuyente cancele de previo los honorarios y gastos procesales respectivos a dichas etapas.

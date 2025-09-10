@@ -1,0 +1,1 @@
+Artículo 6º-Duración del plan de condonación. La vigencia del plan de condonación se contará a partir de la firmeza del acuerdo del Concejo Municipal que lo apruebe. No obstante, para efectos de su aplicación práctica, se entenderá que dicho plazo inicia desde la aprobación del presente reglamento, la cual deberá constar en un acuerdo formal del Concejo Municipal.
