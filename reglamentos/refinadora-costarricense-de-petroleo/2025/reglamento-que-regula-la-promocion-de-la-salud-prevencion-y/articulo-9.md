@@ -1,0 +1,7 @@
+Artículo 9.- Prohibiciones de las personas trabajadoras. Sin perjuicio de lo indicado en el Código de Trabajo y Reglamento Autónomo de Trabajo de RECOPE, se les prohíbe a las personas trabajadoras:
+a. Ingresar a las instalaciones o realizar sus funciones, bajo el efecto de sustancias psicoactivas y mientras persistan en el organismo.
+b. Laborar bajo los efectos de alcohol, estupefacientes, psicotrópicos y otras de sustancias psicoactivas ilícitas y/o las susceptibles a ser prescritas por un profesional en medicina y no se cuente con la receta respectiva.
+c. Ejercer cualquier actividad en ocasión o atención del puesto de trabajo, como desplazamientos, viajes, eventos o alojamiento proporcionado por la Empresa, bajo los efectos de alcohol, estupefacientes, psicotrópicos y otras sustancias psicoactivas ilícitas y/o las susceptibles a ser prescritas por un profesional en medicina y no se cuente con la receta respectiva.
+d. Consumir alcohol, estupefacientes, psicotrópicos y otras de sustancias psicoactivas ilícitas durante actividades laborales y extralaborales en las instalaciones o particulares cuando estos cuenten con el permiso de ingreso al Plantel.
+e. Consumir alcohol, estupefacientes, psicotrópicos y otras de sustancias psicoactivas ilícitas mientras se porte el uniforme o algún distintivo de la Empresa.
+f. Introducir, poseer, transportar, vender o distribuir sustancias psicoactivas dentro de las instalaciones o vehículos de la Empresa, o particulares cuando estos cuenten con el permiso de ingreso al Plantel.

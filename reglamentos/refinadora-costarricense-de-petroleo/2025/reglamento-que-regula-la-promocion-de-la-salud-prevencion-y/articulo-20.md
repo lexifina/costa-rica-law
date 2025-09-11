@@ -1,0 +1,3 @@
+Artículo 20.- Prueba de sustancias psicoactivas en procedimiento de reclutamiento y selección. La Dirección de Capital Humano remitirá a los Centros Médicos de la Dirección de Salud, Ambiente y Seguridad, la solicitud de pruebas de detección de alcohol y otras sustancias psicoactivas en los siguientes casos:
+a) Personas preseleccionadas en las nóminas de los procesos de ascenso, reclutamiento interno o externo, de los concursos internos y externos, determinados por la Dirección de Capital Humano.
+b) Personas preseleccionadas en nombramientos como Titulares Subordinados o en plazas donde se tenga personal a cargo, en sustituciones interinas o en propiedad.

@@ -1,0 +1,3 @@
+Artículo 2º-Alcance.
+Este cuerpo normativo se aplicará a todas las personas trabajadoras de la Empresa, en todo lo que resulte pertinente según la naturaleza de cada puesto; esto es, a personas trabajadoras en propiedad o contratados a plazo definido, personas servidoras públicas en sentido estricto, personal cubierto por la legislación laboral ordinaria o común y personal de confianza. Además, a postulantes a puestos de trabajo, practicantes, visitantes, contratistas, transportistas y clientes en lo que corresponda.
+En caso de incumplimiento de este Reglamento, se resolverán aplicando supletoriamente, las disposiciones del Reglamento de Procedimientos Laborales de la Refinadora Costarricense de Petróleo S. A., en cuanto no lo contraríen.

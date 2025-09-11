@@ -1,0 +1,1 @@
+Artículo 16.- Responsabilidades derivadas del consumo de sustancias psicoactivas. La participación en un programa de rehabilitación no exime a la persona trabajadora de la responsabilidad disciplinaria por otras faltas cometidas producto de presentarse a laborar bajo los efectos de una sustancia psicoactiva.

@@ -1,0 +1,2 @@
+Artículo 18-. Reincorporación laboral.
+Una vez concluido el programa de rehabilitación y con la certificación correspondiente de la institución tratante, se evaluará la reincorporación de la persona trabajadora a sus funciones habituales o a otras tareas compatibles con su estado de salud. En todo caso, se facilitará la reintegración de la persona trabajadora, evitando estigmatizaciones o discriminaciones.
