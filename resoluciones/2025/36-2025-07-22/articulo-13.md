@@ -1,0 +1,4 @@
+Artículo 13. Devolución por parte de la Administración Tributaria de cobros efectuados por el proveedor o intermediario. Conforme lo establece el párrafo décimo del artículo 30 de la Ley del Impuesto sobre el Valor Agregado, el cliente del proveedor o intermediario podrá solicitar la devolución del impuesto ante la Administración Tributaria, cuando se encuentre ante alguna de las siguientes situaciones:
+a) El uso, el disfrute o el consumo del servicio o bien intangible se realice totalmente en otra jurisdicción.
+b) Se adquiera servicios a los que se refieren los artículos 8 y 9 de la Ley del Impuesto sobre el Valor Agregado.
+Para tales efectos el tarjetahabiente deberá atenerse a lo dispuesto en el procedimiento de devolución establecido en los artículos 221 y 222 del Reglamento Procedimiento Tributario y la resolución DGT-R-048-2022 del diecinueve de diciembre de dos mil veintidós, por medio del formulario respectivo.

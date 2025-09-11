@@ -1,0 +1,2 @@
+Artículo 26. Disponibilidad y medios de presentación de los formularios de declaración. Los formularios de declaración citados en los artículos 18 y 20 de esta resolución estarán disponibles a través del sistema TRIBU-CR, accesible desde la página web www.hacienda.go.cr. El obligado tributario deberá llenar y presentar las respectivas declaraciones a través de dicho sistema.
+Las declaraciones presentadas en otros medios y formatos se tendrán por no presentadas con los efectos legales que ello conlleva, sin necesidad de notificación alguna al interesado.

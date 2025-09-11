@@ -1,0 +1,1 @@
+Artículo 33. Derogaciones. Se deja sin efecto la resolución DGT-R-13-2020 de las ocho horas con cinco minutos del once de junio de dos mil veinte, publicada en el Alcance Nº114 de La Gaceta Nº139 del 12 de junio 2020 y sus reformas.

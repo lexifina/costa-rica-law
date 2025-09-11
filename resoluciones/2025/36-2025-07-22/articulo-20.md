@@ -1,0 +1,7 @@
+Artículo 20. Autoliquidación y pago de la obligación tributaria. Una vez completada la respectiva declaración informativa, según lo indicado en el artículo 18 de la presente resolución, se desplegará el formulario de declaración del impuesto correspondiente, para que el perceptor proceda con la autoliquidación del impuesto percibido. Para tal efecto, deberá utilizar el formulario de declaración denominado "Percepción de IVA en Compras de Servicios Internacionales por medio de Internet o cualquier otra Plataforma Digital"", visible en el Anexo 9 de la presente resolución.
+El pago del impuesto se realizará mediante alguno de los siguientes mecanismos:
+1. Servicios de interconexión bancaria: estos servicios corresponden a los acuerdos de prestación de servicios de recaudación, suscritos entre el Ministerio de Hacienda y las entidades colaboradoras.
+2. Débito en tiempo real: este servicio podrá ser utilizado por los obligados tributarios que tengan registrada una cuenta bancaria en el sistema TRIBU-CR.
+3. Cualquier otro medio de pago que disponga la Administración Tributaria.
+Los perceptores que se encuentren clasificados como Grandes Contribuyentes Nacionales deberán necesariamente realizar el pago mediante el mecanismo de Débito en tiempo real.
+El pago de la obligación tributaria fuera del plazo establecido generará intereses conforme al artículo 57 del Código de Normas y Procedimientos Tributarios, sin perjuicio de las sanciones administrativas que procedan.
