@@ -1,0 +1,4 @@
+Capitulo III. Disposiciones Finales
+Artículo 22. Régimen sancionatorio
+El personal que, luego de haberse sometido a un procedimiento en el que se le garantice un debido proceso y, se acredite como infractor de las disposiciones contenidas en el presente reglamento y la normativa conexa, se hará acreedor a las sanciones, conforme a la gravedad de la falta y a lo establecido en la Ley General de la Administración Pública, la Ley contra la Corrupción y el Enriquecimiento Ilícito, la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y demás normativa aplicable.
+Asimismo, cuando se trate de infracciones cometidas por funcionarios de BN Centro de Procesos S.A. se aplicará la normativa interna vigente, incluyendo el reglamento interno de trabajo y los lineamientos emitidos por el Departamento de Desarrollo Humanos, siempre garantizando el debido proceso administrativo.

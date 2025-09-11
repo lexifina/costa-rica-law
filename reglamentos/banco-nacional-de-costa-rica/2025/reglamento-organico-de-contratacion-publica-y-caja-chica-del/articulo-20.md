@@ -1,0 +1,6 @@
+Artículo 20. Procedimiento de caja chica
+La Jefatura Administrativa Financiera será la responsable de autorizar, generar, actualizar y cerrar la caja chica institucional, así como brindar el mantenimiento de ésta, según los parámetros establecidos en los procedimientos internos para caja chica.
+En los casos que se requiera hacer compras de bienes o servicios, deberá contar con la autorización del encargado del Área de Proveeduría, quien verificará la pertinencia y legalidad de la adquisición.
+Asimismo, toda adquisición deberá realizarse con base en la aprobación e indicación de la Gerencia General o de la persona en quien esta delegue dicha función, quien estará facultado para autorizar pagos mediante medios electrónicos u otros mecanismos de pago que resulten necesarios para la operación del fondo.
+Todas las facturas deberán reunir los requisitos que se contemplen en el procedimiento correspondiente referente a caja chica, así como cumplir con las leyes vigentes y lineamientos de la autoridad tributaria.
+Las compras por medio de caja chica deberán ser registradas en SICOP por el encargado designado por la Jefatura del Departamento de Planeación y Estrategia., dejando constancia de la totalidad de la documentación generada en relación con la compra realizada y de acuerdo con los procedimientos establecidos por la autoridad competente.

@@ -1,0 +1,6 @@
+Artículo 6: Conformación de la Junta de Adquisiciones
+La JA estará integrada por tres miembros propietarios y dos suplentes nombrados por el Gerente General de BN Centro de Procesos S.A. En el acto de nombramiento deberá indicar quién fungirá como presidente y quién como suplente en el caso de ausencia del presidente.
+De igual forma el Gerente General designará al colaborador que funja como proveedor institucional de acuerdo con las atribuciones establecidas en la LGCP y su reglamento, quien a su vez fungirá como secretario de la JA. El proveedor institucional podrá contar con personal de apoyo para las grabaciones y transcripciones de las actas correspondientes.
+En ausencia del presidente y de la persona que la Gerencia General dispuso para sustituirle, dicho cargo será dispuesto por acuerdo de los miembros presentes de conformidad con los artículos 49, siguientes y concordantes de la LGAP.
+La JA podrá contar con la asesoría de un abogado externo a la empresa, quien tendrá voz, pero no voto.
+Con el fin de asesorarse, la JA podrá solicitar los estudios y análisis técnicos y financieros que estimen necesarios; asimismo, podrá solicitar la participación en las sesiones del personal técnico y administrativo que se requiera, quienes tendrán la obligación de emitir sus criterios en forma razonada y responsable como sustento de la decisión correspondiente.

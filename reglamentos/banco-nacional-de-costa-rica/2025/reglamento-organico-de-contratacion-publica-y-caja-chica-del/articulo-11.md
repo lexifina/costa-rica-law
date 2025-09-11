@@ -1,0 +1,5 @@
+Artículo 11. Actas de la Junta de Adquisiciones
+Cada sesión será grabada en audio y video conforme lo previsto en el artículo 56 de la LGAP, además se levantará un acta con indicación de los asistentes, lugar, hora de inicio y de conclusión, así como el contenido literal de las deliberaciones: la forma, el resultado de la votación y el contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria y antes de ello, los acuerdos carecerán de firmeza, a menos que, los miembros presentes, por votación de al menos dos tercios, acuerden declarar su firmeza inmediata y así sea consignado en cada voto.
+Dichas actas serán firmadas por el presidente y por aquellos miembros que hubieren hecho constar su voto disidente de conformidad con lo dispuesto en el artículo 56 de la LGAP.
+Las actas deberán ser literales y consignar no solo el acuerdo, sino las manifestaciones que cualquier persona presente en la sesión haga con respecto a los asuntos conocidos. Las actas podrán ser digitales, en el tanto los medios y sistemas electrónicos permitan asegurar la inalterabilidad de estas, así como su custodia y conservación.

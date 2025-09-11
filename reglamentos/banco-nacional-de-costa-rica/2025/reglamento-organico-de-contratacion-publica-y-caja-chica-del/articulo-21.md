@@ -1,0 +1,4 @@
+Artículo 21. Procedimiento de liquidación
+Una vez que el usuario solicitante haya recibido de forma conforme el bien o servicio adquirido, deberá gestionar la contabilización correspondiente dentro del mismo mes calendario en que se efectuó la compra. Esta gestión incluirá la verificación documental y la remisión oportuna a la unidad financiera para su registro contable.
+En ningún caso, el monto consignado en cada factura podrá exceder el cien por ciento (100%) del valor total autorizado para el fondo específico asignado.
+La persona funcionaria o unidad administrativa que solicita la adquisición de bienes o servicios, es responsable de verificar la recepción satisfactoria de estos, así como de iniciar el proceso de liquidación en el término de 2 días hábiles a partir de la recepción, de acuerdo con el procedimiento y formularios de liquidación emitidos por la unidad financiera, quien a su vez aprobará la liquidación correspondiente.
