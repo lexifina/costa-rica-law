@@ -1,0 +1,1 @@
+Artículo 4º-Permiso de funcionamiento del Ministerio de Salud. Independientemente del tipo o ubicación de la actividad, será obligatorio aportar el respectivo certificado de permiso de funcionamiento emitido por el Ministerio de Salud, conforme a la Ley General de Salud y sus reglamentos.

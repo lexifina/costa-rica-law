@@ -1,0 +1,6 @@
+Artículo 3º-Revocatoria o modificación de licencia. Se podrá revocar o modificar la licencia otorgada si se llega a determinar que la actividad dejó de ser de bajo impacto en residencias por alguna de las siguientes razones:
+a. Se compruebe que la actividad genera afectaciones negativas al entorno o a terceros.
+b. Las condiciones bajo las cuales se otorgó la licencia producen un cambio en el espacio destinado a la actividad, ya sea porque el área donde se autorizó la actividad supera los treinta metros cuadrados o porque se altera su ubicación original.
+c. La actividad fue suspendida debido a la revocatoria del respectivo permiso de funcionamiento, motivada por el incumplimiento de los requisitos legales.
+d. Cuando alguno de los titulares de los fundos sirvientes de la servidumbre decida revocar la autorización brindada para el trámite.
+En caso de que se desee regularizar una licencia para una actividad que ya no se clasifica como de bajo impacto en zonas residenciales, la Municipalidad de Sarchí podrá requerir la presentación de un certificado de uso de suelo. Si el uso propuesto no se encuentra autorizado por el Plan Regulador Cantonal para la zona correspondiente, la Municipalidad no podrá otorgar la licencia solicitada.
