@@ -1,0 +1,2 @@
+Artículo 3.- Marco Normativo
+El presente reglamento se fundamenta en los Lineamientos para las Comisiones institucionales de ética y valores en la gestión ética emitido por la Comisión Nacional de Ética y Valores aprobados mediante acuerdo unánime de la Junta Directiva de la CNRV, actualizados y ratificados en la SO N°11-2023, celebrada el 20 de noviembre de 2023 y las normas en las que dichos lineamientos se sustentan.
