@@ -1,0 +1,1 @@
+Artículo 17.-Organización. En el seno de la Comudam, se designará entre las personas regidoras propietarias y suplentes, las primeras vicealcaldías y vice intendencias; las personas sindicas propietarias y suplentes, un coordinador (a) y un secretario (a) que coordinarán las sesiones y levantarán las actas de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 8°-Información accesible y comprensible. La COMUDAM a través de la OPAMDIS vigilará que las publicaciones sobre planes, políticas, programas y servicios municipales sean accesibles y comprensibles con la finalidad de que las organizaciones de personas con discapacidad y personas adultas mayores se apersonen y ejerzan su derecho de participación.

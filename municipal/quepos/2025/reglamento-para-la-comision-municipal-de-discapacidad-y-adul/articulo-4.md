@@ -1,0 +1,1 @@
+Artículo 4°-Presupuesto. La COMUDAM fiscalizará que la Alcaldía y el Concejo Municipal incluyan el contenido presupuestario requerido para cumplir con las acciones y proyectos con base en la inclusión, formulados en el Plan Anual Operativo, cuando elaboran su proyecto de presupuesto anual.

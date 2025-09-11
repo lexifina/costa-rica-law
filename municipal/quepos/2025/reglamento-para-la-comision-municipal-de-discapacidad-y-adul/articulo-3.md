@@ -1,0 +1,1 @@
+Artículo 3°-Planificación anual. LA COMUDAM será vigilante de que la Alcaldía y el Concejo Municipal incluyan en sus planes anuales operativos en los períodos correspondientes a su formulación, las acciones y proyectos que garanticen el acceso a sus servicios y la igualdad y equiparación de oportunidades en todo el cantón.

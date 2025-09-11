@@ -1,0 +1,1 @@
+Artículo 5°-Inversión. La COMUDAM vigilará que el Gobierno Local incluya en sus programas de inversión, proyectos para garantizar la inclusión y la igualdad de oportunidades, cuyo financiamiento requiera recursos extraordinarios no contemplados en sus presupuestos regulares o de funcionamiento.
