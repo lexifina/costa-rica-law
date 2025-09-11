@@ -1,0 +1,3 @@
+Artículo 16. Derogaciones. Se dejan sin efecto las siguientes disposiciones:
+1. En la resolución NºDGT-09-09 de las ocho horas del diecinueve de junio del dos mil nueve y del artículo 2 de la resolución Nº12-09, de las quince horas del veinte de agosto del dos mil nueve, la siguiente referencia: "Formulario denominado "Declaración jurada de retención a cuenta del impuesto general sobre las ventas".
+2. El artículo 1 inciso 1, artículo 3, artículo 5 y transitorio único, inciso 1 de la resolución DGT-R-041-2019 de las ocho y cinco horas del dieciocho de julio de dos mil diecinueve, relacionado todos estos artículos con la declaración D-181 "Declaración de Retenciones por Operaciones con Tarjetas de crédito y de Débito-Renta".

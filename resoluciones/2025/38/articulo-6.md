@@ -1,0 +1,2 @@
+Artículo 6. Presentación de declaraciones rectificativas. Para la presentación de declaraciones rectificativas de periodos anteriores a la entrada en vigor de TRIBU-CR, se debe presentar una solicitud de rectificación en el sistema. Dicha solicitud va a generar un caso en el expediente electrónico del obligado tributario para el estudio correspondiente. El resultado del estudio será debidamente comunicado al solicitante.
+Las rectificativas que se presenten posterior a la entrada en vigor de TRIBU-CR, deberá presentarse a través de este sistema.

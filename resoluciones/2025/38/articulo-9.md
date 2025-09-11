@@ -1,0 +1,1 @@
+Artículo 9. Procedimiento para la presentación de declaraciones autoliquidativas omisas de periodos fiscales anteriores a la entrada en vigor de TRIBU-CR. Para la presentación de declaraciones autoliquidativas de periodos anteriores a la entrada en vigor de TRIBU-CR, el obligado tributario deberá presentar dicha declaración a través del sistema TRIBU-CR.

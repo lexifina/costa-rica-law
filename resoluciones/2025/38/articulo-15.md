@@ -1,0 +1,1 @@
+Artículo 15. Sanciones. En caso de incumplir total o parcialmente con el suministro de información o bien cuando se omita la presentación de la declaración autoliquidativa de la obligación tributaria la Administración Tributaria iniciará el procedimiento para aplicar las sanciones establecidas en los artículos 79 y 83 del Código de Normas y Procedimientos Tributarios.
