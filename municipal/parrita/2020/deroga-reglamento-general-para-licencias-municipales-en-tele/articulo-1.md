@@ -1,3 +1,0 @@
-MUNICIPALIDAD DE PARRITA
-CM-392-2020, Certifico. Que mediante AC-04-067-2020:
-Habiéndose cumplido con el plazo de Ley para someter a consulta pública la derogatoria del Reglamento General para licencias Municipales en Telecomunicaciones de la Municipalidad de Parrita y el acogimiento al Reglamento de Construcciones del INVU vigente, en lo correspondiente a la material de Telecomunicaciones y sin haberse recibido observaciones al respecto, este Concejo Municipal acuerda ratificar la derogatoria definitiva, así como el acogimiento definitivo al Reglamento del INVU vigente, en lo correspondiente a la material de Telecomunicaciones y a su vez ordenar que se realice su publicación en el Diario Oficial La Gaceta.
