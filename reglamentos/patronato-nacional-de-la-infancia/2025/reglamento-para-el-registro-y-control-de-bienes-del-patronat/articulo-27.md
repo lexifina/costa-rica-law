@@ -1,0 +1,1 @@
+Artículo 27.- Baja por rotura, desuso o vencimiento. Para la baja de bienes por rotura, avería, alteración, desuso, vencimiento, desgaste u otras causas similares que no sean imputables al responsable de los bienes, se deberá cumplir los requisitos señalados en el artículo 26 del presente reglamento.

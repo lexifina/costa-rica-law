@@ -1,0 +1,1 @@
+Artículo 8.- Sistemas: Los centros funcionales del PANI estarán obligados a utilizar los sistemas de administración y control de bienes o activos diseñados y aprobados para dichos efectos. Todos los bienes o activos deberán estar debidamente registrados y actualizados en el sistema SIGAF.

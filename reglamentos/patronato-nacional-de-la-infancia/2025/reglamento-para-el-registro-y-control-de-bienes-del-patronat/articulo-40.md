@@ -1,0 +1,10 @@
+TÍTULO VI: PRÉSTAMO DE BIENES
+CAPÍTULO ÚNICO
+Artículo 40.- Préstamo de bienes. Cuando el PANI facilite o reciba bienes en calidad de préstamo de otra institución dentro de la Administración Central, no se modificará cuantitativa ni cualitativamente el patrimonio del Estado. Aunado a lo anterior, el encargado del centro funcional a cargo de los bienes a dar a préstamo deberá solicitar la gestión a la UABI, con verificación de lo siguiente:
+1. Justificación y motivo del uso o destino que se dará a los bienes en calidad de préstamo.
+2. Levantamiento de la lista del o de los bienes en calidad de préstamo, con el detalle de la descripción, número de placa, estado y ubicación de estos; debidamente firmada por el encargado del centro funcional y el responsable a cargo.
+3. Respuesta de aceptación del encargado del centro funcional de la entidad prestataria.
+4. Convenio interinstitucional de préstamo donde se establecen las condiciones básicas (responsables de los bienes de ambas partes, números de patrimonio, plazo, valor, condiciones de custodia, uso, protección, entrega y recibido, seguros, pólizas y el responsable de su pago, la potestad del PANI de inspeccionar estos bienes), debidamente firmado por los máximos jerarcas de la entidad responsable de los bienes y la entidad prestataria. Este convenio debe contar con la aprobación interna respectiva.
+5. El funcionario de la UABI de la institución responsable de los bienes recibe la información anterior, tras verificar el cumplimiento de los requisitos, se coordina con la UABI prestataria para elaborar un acta de entrega/recibo de los bienes para dar en calidad de préstamo junto con los jefes de programa involucrados y el representante legal de la entidad que recibe los activos en préstamo.
+6. La UABI procederá a actualizar el estado de utilización del bien en el sistema SIGAF.
+7. Las UABI de ambas instituciones se encargarán de dar el seguimiento al uso de los bienes dados en calidad de préstamo y coordinar su devolución a la institución de origen.

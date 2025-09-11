@@ -1,0 +1,9 @@
+Artículo 30.- Bajas por hurto, robo, pérdidas o desaparición. En estos casos, se deberá realizar la debida gestión establecida en el Manual de Procedimientos Subproceso de Activos Fijos, ante la AJ y PE, e informar del resultado final a UABI. En este sentido, los requisitos para dar de baja bienes patrimoniales cuya pérdida se haya acreditado por hurto o robo, con o sin culpa imputable al responsable de los bienes son los siguientes:
+El encargado del centro funcional a cargo de los bienes deberá solicitar a la UABI realizar la baja respectiva la cual se hará acompañar de la siguiente documentación:
+1. Informe sobre lo ocurrido, emitido por el funcionario responsable del bien o bienes, dirigido al encargado del centro funcional.
+2. Copia de la respectiva denuncia ante la autoridad judicial competente cuando así corresponda según los topes de cuantía mínimos establecidos por ley.
+3. El encargado del centro funcional presentará ante la PE que ordene el procedimiento administrativo contra el funcionario responsable del bien.
+4. Una vez resuelto el procedimiento administrativo según corresponda, el máximo jerarca o a quien éste haya delegado esta función, emitirá la resolución de la autorización de la baja del bien e informará a la UABI.
+5. La UABI procederá a aplicar la baja del activo en el sistema SIGAF.
+6. En el caso de los bienes muebles inscritos en el Registro Nacional, el máximo jerarca o a quien éste delegue debido a su competencia, deberá gestionar la respectiva desinscripción con los requisitos que esa entidad solicite.
+7. En todos los casos, exista o no dolo o culpa, el encargado del centro funcional deberá elaborar un expediente donde conste la justificación y toda la documentación y reportes que respalden el acto, el cual una vez ejecutado, deberá ser remitido digitalmente al DFC y la GA, para la correspondiente verificación y registro.

@@ -1,0 +1,7 @@
+Artículo 35.- Baja por aplicación de garantía del bien (sustitución). Cuando existan bienes patrimoniales afectos a la garantía del producto por defectos técnicos, mecánicos o cualquier otro tipo de daño, que aplique según las condiciones acordadas por el DPROV en el proceso de compra, se deberá cumplir con lo siguiente:
+El encargado del centro funcional a cargo de los bienes deberá solicitar la baja del activo a la UABI, con los siguientes documentos:
+1. Justificación y motivo de la baja por parte del encargado del centro funcional, con el número de procedimiento de contratación administrativa, proveedor y condiciones en que se hará la sustitución.
+2. Detalle del bien o bienes a dar de baja por devolución, con aplicación de garantía, estableciendo su especifica identificación: número de placa, descripción, fecha de compra, valor de compra, estado, marca, modelo, serie y ubicación de los bienes; debidamente firmada por el encargado del centro funcional.
+3. Declaración del encargado del centro funcional o el criterio técnico emitido por el proveedor respectivo, sobre el estado del bien o los bienes, donde se consigne las razones que determinen la devolución de los bienes afectos a la garantía.
+4. El encargado del centro funcional, antes de hacer entrega de los bienes, deberá retirar las placas con el número de activo que los identifica y proceder a la destrucción de las mismas.
+5. La UABI procederá a aplicar la baja del activo en el sistema SIGAF y lo comunicará al encargado del centro funcional a cargo.

@@ -1,0 +1,1 @@
+Artículo 21.- Alta por revaluaciones: Para las revaluaciones de los activos, se procederá conforme lo solicita la NICSP 17 Propiedad, Planta y Equipo, considerando para esto a su vez, la normativa emitida por el ente rector DGCN en esta materia.

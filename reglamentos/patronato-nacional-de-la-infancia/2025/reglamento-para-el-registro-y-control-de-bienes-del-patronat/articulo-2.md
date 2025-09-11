@@ -1,0 +1,1 @@
+Artículo 2.-Alcance. El presente Reglamento será de acatamiento obligatorio para todos y cada uno de los centros funcionales del Patronato Nacional de la Infancia para un adecuado registro, identificación, manejo eficiente y control de los bienes patrimoniales y las construcciones en proceso.

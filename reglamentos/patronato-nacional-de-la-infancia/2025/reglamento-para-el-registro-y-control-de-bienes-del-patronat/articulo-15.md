@@ -1,0 +1,4 @@
+Artículo 15.- Alta por inventario inicial. Para incluir un bien por inventario inicial se debe cumplir con lo siguiente:
+1. La UABI identificará los bienes que deben ser registrados, ya sea por estar pendientes, por haber sido hallados u otras razones.
+2. En el caso de bienes encontrados, que fueron dados de baja anteriormente o que no fueron registrados oportunamente, para los cuales no se cuenta con documentos que respalden su adquisición, la UABI, procederá a solicitar al centro funcional el avalúo del bien. Una vez que se cuente con la información, que brinda el valor del bien, se deberá proceder inmediatamente al registro en el sistema SIGAF, según los datos proporcionados en el avalúo.
+3. La UABI, deberá coordinar con el proceso de contabilidad para realizar los reconocimientos, mediciones y revelaciones necesarias en la contabilidad patrimonial de la institución y generar la información necesaria para la elaboración del ENC.

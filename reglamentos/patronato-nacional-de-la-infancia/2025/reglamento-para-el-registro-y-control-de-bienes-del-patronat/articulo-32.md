@@ -1,0 +1,3 @@
+Artículo 32.- Pago y reintegro del valor de un activo. Cuando a un funcionario se le compruebe culpa o dolo en pérdida o robo de bienes públicos, deberá restituir o pagar el bien de acuerdo con el valor de mercado. El pago del bien se hará de conformidad con lo que resuelva el Órgano del Procedimiento Administrativo Disciplinario.
+Cuando el funcionario haya reparado o restituido parcial o totalmente el bien perdido y compruebe que no tuvo responsabilidad en la pérdida, tendrá derecho a que se le devuelva el monto cancelado.
+En caso de que el activo sea repuesto, se procederá con el alta del bien según lo indicado en el artículo 11 del presente reglamento.

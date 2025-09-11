@@ -1,0 +1,15 @@
+Artículo 11.- Responsabilidades de los funcionarios a cargo de bienes. Será responsabilidad de los funcionarios a cargo de bienes, lo siguiente:
+1. Cumplir las indicaciones que emita el jerarca o titular subordinado sobre el uso, servicio, administración, custodia y protección de bienes que se le suministre para el desarrollo de su trabajo con base en el inventario entregado.
+2. El antecesor y, a falta de éste el superior inmediato, será igualmente responsable de gestionar la entrega del inventario. El plazo para realizar la entrega del inventario será de tres días hábiles, contados a partir del nombramiento.
+3. Si el inventario y la entrega fuesen correctos, se hará constar así; de lo contrario, la persona trabajadora entrante hará las observaciones que sean del caso en cuanto a faltantes o estado de los bienes, según lo indicado en el artículo 6, inciso d, del presente reglamento, y en ambos casos firmará con quien le hubiese hecho la entrega.
+En el inventario se consignará quien entrega y quién recibe, así como la fecha.
+4. Informar y devolver todos los bienes que tiene a su cargo cuando cese en sus funciones, sea trasladado o por el motivo que fuera a la jefatura inmediata.
+5. Velar porque los inventarios entregados cumplan con la normativa interna vigente.
+6. La persona funcionaria a cargo de los bienes inventariados será responsable, de verificar que los activos que se le entregan correspondan a los que efectivamente se encuentran bajo su responsabilidad, ya sea para uso en el desarrollo de sus funciones, custodia o administración propia o del equipo de trabajo a su cargo.
+7. Ser responsables directa o indirectamente por la pérdida, daño o depreciación de estos, en caso fortuito o fuerza mayor, debiendo gestionar el mantenimiento y conservación adecuados salvo que provengan del deterioro natural por razones del uso legítimo.
+8. Responder por los daños de los bienes en uso y a su cargo, siempre y cuando no provengan del deterioro natural de las cosas o de otra causa justificada.
+9. Velar porque los activos asignados mantengan la placa adherible u otro sistema de seguridad. En caso de pérdida de esta identificación gestionar ante la UABI su reposición.
+10. Notificar al encargado del centro funcional de los activos para desecho o que se encuentren en desuso, de acuerdo con lo indicado en el Manual de Procedimientos Subproceso de Activos Fijos, anotando en detalle la causa que lo motiva (destrucción, donación, u otro conforme a la normativa).
+11. Presentar informes del estado de los bienes, según sea solicitado por la persona asignada como coordinador del centro funcional, de acuerdo con los requerimientos del DFC.
+12. Cuando a algún funcionario se le compruebe culpa o dolo en pérdida o robo de bienes públicos será el Órgano Disciplinario el encargado de definir el proceso a seguir, el plazo y los montos a restituir por parte de este a la institución.
+13. Cumplir con los controles de los inventarios de bienes establecidos por el jerarca y los titulares subordinados.

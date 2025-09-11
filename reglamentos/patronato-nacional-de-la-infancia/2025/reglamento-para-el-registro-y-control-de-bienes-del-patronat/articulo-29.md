@@ -1,0 +1,15 @@
+Artículo 29.- Baja por donación. El procedimiento para dar de baja bienes por donación es el siguiente:
+El encargado del centro funcional a cargo de los bienes deberá solicitar a la UABI, la gestión para dar de baja el bien por donación, la cual deberá acompañarse de la siguiente documentación:
+1. Justificación y motivo de la baja por parte del encargado del centro funcional.
+2. Levantamiento de la lista de bienes susceptibles de dar de baja por donación, mediante el acta de desecho establecida para estos fines, con el detalle de la descripción, marca, modelo, serie, número de placa, estado, valor en libros y ubicación de los bienes; debidamente firmada por el encargado del centro funcional y el responsable a cargo de los bienes.
+3. La institución donante, a través de la comisión de donación, deberá verificar si el donatario se encuentra inscrito en el RIARD dispuesto por la DGABCA, a excepción de las Municipalidades, Concejos Municipales de Distrito, Juntas de Educación y Administrativas de escuelas y colegios, que no requerirán estar inscritas en el RIARD, para poder recibir donaciones.
+4. La distribución se hará en forma equitativa dándole preferencia a las instituciones de zonas rurales o marginales que más lo necesiten. Los beneficiados solo podrán recibir una donación al año, con excepción de las instituciones del Estado que así lo requieran para la realización de sus fines.
+5. El máximo jerarca o a quien este delegue, con el criterio emitido por la comisión de donación, deberá levantar un acta de recomendación con el detalle de los bienes donados con las respectivas firmas de los miembros.
+6. Podrá delegar formalmente esta función siguiendo al efecto las disposiciones y observando los límites que establece la Ley General de la Administración Pública y la Ley N°8131, en materia de delegación de competencias.
+7. El máximo jerarca de la institución donante o a quien este delegue enviará copia del acta de recomendación a la UABI y al encargado del centro funcional, informando sobre la aprobación del acto administrativo de la donación.
+8. El encargado del centro funcional y el donatario deberán firmar el acta de entrega de los bienes por donación.
+9. La entrega de los bienes donados se hará en las instalaciones de la institución donante, salvo indicación en contrario de la institución.
+10. La UABI procederá a aplicar la baja del activo en el sistema SIGAF.
+11. Los bienes muebles declarados en desuso o en mal estado, que no sean de interés para la Administración Central, podrán donarse por los medios establecidos en el presente Reglamento.
+12. En el caso de los bienes muebles inscritos en el Registro Nacional, el máximo jerarca o a quien éste delegue debido a su competencia, deberá gestionar la respectiva desinscripción con los requisitos que esa entidad solicite, antes de llevar a cabo el acto de donación final de los bienes y darlos de baja en el sistema SIGAF.
+13. En la baja de activos, se observará la normativa emitida por el Ministerio de Hacienda, la cual deberá verificarse con la Asesoría Jurídica, de previo a la donación.
