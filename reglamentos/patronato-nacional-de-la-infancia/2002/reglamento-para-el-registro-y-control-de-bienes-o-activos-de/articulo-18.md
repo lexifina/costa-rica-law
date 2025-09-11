@@ -1,1 +1,0 @@
-Artículo 18.—Aparición de bienes dados de baja. Cuando se ubica o recupera un bien que anteriormente haya sido dado de baja, se deberá inventariar nuevamente, registrando el bien con un número nuevo de patrimonio.

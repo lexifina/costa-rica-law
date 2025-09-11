@@ -1,1 +1,0 @@
-Artículo 4º—Formularios. El sistema de bienes o activos contará con los formularios correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo concesión y baja de bienes. Así mismo, las oficinas podrán contar con otros formularios internos necesarios para dichos trámites.
