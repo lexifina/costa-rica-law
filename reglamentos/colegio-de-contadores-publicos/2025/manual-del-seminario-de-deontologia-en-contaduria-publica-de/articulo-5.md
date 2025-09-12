@@ -1,0 +1,1 @@
+Artículo 5°-Apertura del Seminario de Deontología en Contaduría Pública: El Colegio informará con cinco días hábiles antes del inicio del seminario al correo electrónico señalado por los aspirantes en su solicitud de incorporación, la fecha, horario, lugar y modalidad, en que se llevará a cabo el Seminario.

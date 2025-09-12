@@ -1,0 +1,1 @@
+Artículo 27.-Seguridad de la información: El Colegio de Contadores Públicos de Costa Rica protegerá los datos personales y resultados de los postulantes, manteniendo la confidencialidad de la información y cumpliendo el Código de Ética Profesional del Colegio.

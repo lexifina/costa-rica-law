@@ -1,0 +1,1 @@
+Artículo 3°-Modalidades y duración: El Seminario se ofrecerá en forma presencial o virtual, a discreción del Colegio de Contadores Públicos de Costa Rica, sea en cualquier horario o combinación de horarios, matutino, vespertino y nocturno. El Seminario tendrá una duración mínima de veinte horas acumuladas conforme con las sesiones programadas.

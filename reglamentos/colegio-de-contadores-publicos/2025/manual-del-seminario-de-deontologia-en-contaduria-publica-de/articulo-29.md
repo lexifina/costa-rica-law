@@ -1,0 +1,2 @@
+Artículo 29.-Fallas en el sistema: En los casos de que la falla provenga de la plataforma establecida por el Colegio de Contadores Públicos de Costa Rica para realización de la prueba y esta supere los 10 (diez) minutos del inicio de la hora establecida el Colegio reprogramará la prueba del Seminario de Deontología en los siguientes 8 (ocho) días naturales.
+Rige a partir de su publicación. Aprobado por la junta directiva del Colegio de Contadores Públicos de Costa Rica en sesión ordinaria N.° 08-2025 del 5 de agosto de 2025, bajo acuerdo N.º 372-8-2025 SO.8.

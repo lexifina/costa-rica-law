@@ -1,0 +1,1 @@
+Artículo 18.-Procedimiento: El recurso de revisión se iniciará con la gestión escrita del recurrente ante el Departamento de Consultoría Técnica, en el cual deberá exponer en forma clara y razonada los motivos de su disconformidad, con las pruebas pertinentes.

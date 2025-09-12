@@ -1,0 +1,1 @@
+Artículo 12.-Ausencia a la prueba: Cuando un participante no se presente a la prueba, programada reprobará el Seminario, salvo justificación según lo establecido en este Manual, En este caso tendrá derecho a realizar la prueba según las fechas establecidas por el Colegio de Contadores Públicos de Costa Rica sin tener que cancelar el costo administrativo.
