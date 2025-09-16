@@ -1,0 +1,2 @@
+Transitorio XVI.- Los fondos de inversión que, a la entrada en vigor de estas disposiciones, superen el límite dispuesto en el artículo 61 de este reglamento a inversionistas que correspondan a entidades y empresas integrantes o vinculadas al grupo o conglomerado financiero de la sociedad administradora, deberán restringir la suscripción de nuevas participaciones a estos inversionistas hasta tanto no presente una concentración en exceso sobre el límite establecido.
+(Así adicionado mediante sesión N° 1970-2025 del 16 de setiembre de 2025)

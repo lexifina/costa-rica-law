@@ -1,2 +1,4 @@
-Artículo 22.—Actualización de la información. La sociedad administradora está obligada a mantener el prospecto de los fondos que administra actualizado.
-No obstante, al menos una vez al año en la fecha que defina el Superintendente, la sociedad debe referirse a la actualización del prospecto, para lo cual debe remitir una declaración jurada rendida ante notario público por su representante legal, en donde se confirma que la versión electrónica del prospecto vigente se encuentra actualizada según lo requerido en la normativa vigente. El contenido de la declaración jurada debe considerar los lineamientos establecidos por el Superintendente. En el caso de que se requiera modificar el prospecto, se debe proceder de conformidad con lo indicado en los artículos 23, 24 y 25 de este Reglamento.
+Artículo 22. Actualización de la información.
+La sociedad administradora está obligada a mantener los prospectos de los fondos que administra actualizados.
+En el caso que se requiera modificar el prospecto, se debe proceder de conformidad con lo indicado en los artículos 23, 24 y 25 de este Reglamento.
+(Así reformado mediante sesión N° 1970-2025 del 16 de setiembre de 2025)

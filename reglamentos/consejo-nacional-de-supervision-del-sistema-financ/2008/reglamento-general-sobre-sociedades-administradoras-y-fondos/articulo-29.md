@@ -1,10 +1,10 @@
-Artículo 29. Conflicto de intereses
-La junta directiva de la sociedad administradora debe aprobar políticas sobre administración de los conflictos de intereses en concordancia con lo dispuesto en el Reglamento de Gobierno Corporativo.
+Artículo 29. Conflicto de intereses. La junta directiva de la sociedad administradora debe aprobar políticas sobre administración de los conflictos de intereses en concordancia con lo dispuesto en el Reglamento de Gobierno Corporativo.
 Estas políticas deben, al menos, identificar las circunstancias que den o puedan dar lugar a un conflicto de intereses, y especificar los procedimientos que habrán de seguirse y las medidas a adoptarse para gestionar estos conflictos.
 En forma complementaria a lo dispuesto en el Reglamento de Gobierno Corporativo, las políticas sobre administración de los conflictos de intereses deben abarcar los siguientes aspectos:
 a. Las transacciones o servicios entre los fondos de inversión y las entidades del mismo grupo de interés económico.
 b. Las actividades que desempeña el gestor de portafolios al administrar simultáneamente varios fondos de inversión.
-c. Las actividades que realicen los empleados y directivos de la sociedad administradora en relación con los fondos de inversión y los inversionistas de estos fondos.
+c. Las actividades que realicen los empleados, miembros del Comité de Inversión y directivos de la sociedad administradora en relación con los fondos de inversión y los inversionistas de estos fondos.
+(Así reformado el inciso anterior mediante sesión N° 1970-2025 del 16 de setiembre de 2025)
 d. Las actividades y servicios que realicen otras sociedades del mismo grupo de interés económico o sus empleados, en forma directa o por interpósita persona, respecto a los fondos administrados.
 e. La distribución de los gastos entre los distintos fondos administrados.
 f. El ejercicio de los derechos políticos inherentes a los valores que integran la cartera de los fondos de inversión, cuando se presenten relaciones comerciales, de propiedad o gestión con el emisor de los valores, en donde se podría comprometer la objetividad, independencia o capacidad de cumplir adecuadamente los deberes de la sociedad administradora o miembros del Comité de Inversión.

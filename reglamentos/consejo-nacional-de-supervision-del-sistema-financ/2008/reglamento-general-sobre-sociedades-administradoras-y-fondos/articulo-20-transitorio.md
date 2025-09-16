@@ -1,0 +1,2 @@
+Transitorio XX.- Los fondos de inversión no financieros que, a la entrada en vigor de estas disposiciones, superen los límites dispuestos en el artículo 48 inciso f) numeral iv) de este Reglamento, no podrán adquirir nuevas obligaciones financieras con entidades o empresas relacionadas mientras el porcentaje de endeudamiento supere el límite máximo establecido.
+(Así adicionado mediante sesión N° 1970-2025 del 16 de setiembre de 2025)

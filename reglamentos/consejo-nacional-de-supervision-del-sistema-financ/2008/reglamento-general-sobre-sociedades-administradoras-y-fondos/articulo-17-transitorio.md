@@ -1,0 +1,2 @@
+Transitorio XVII.- Los fondos de inversión que deban realizar cambios en la conformación de sus Comités de Inversiones para adecuarse a lo dispuesto en el artículo 28 bis, en torno a la designación del presidente entre los miembros independientes y a la sustitución de los miembros que presente alguna de las incompatibilidades señaladas en el penúltimo párrafo del mismo artículo, disponen de dieciocho meses para hacer efectivos esos cambios.
+(Así adicionado mediante sesión N° 1970-2025 del 16 de setiembre de 2025)

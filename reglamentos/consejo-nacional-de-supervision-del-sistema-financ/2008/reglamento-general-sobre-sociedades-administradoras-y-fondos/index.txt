@@ -46,6 +46,10 @@ articulo-36-bis.md
 articulo-37.md
 articulo-38.md
 articulo-39.md
+articulo-39-bis.md
+articulo-39-ter.md
+articulo-39-quater.md
+articulo-39-quinquies.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
@@ -148,3 +152,8 @@ articulo-12-transitorio.md
 articulo-13-transitorio.md
 articulo-14-transitorio.md
 articulo-15-transitorio.md
+articulo-16-transitorio.md
+articulo-17-transitorio.md
+articulo-18-transitorio.md
+articulo-19-transitorio.md
+articulo-20-transitorio.md
