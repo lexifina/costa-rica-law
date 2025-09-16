@@ -1,8 +1,15 @@
-Artículo 9°—Líneas de financiamiento: Existirán las siguientes líneas de financiamiento mediante Bonos y subsidios:
+Artículo 9°-Líneas de financiamiento: Existirán las siguientes líneas de financiamiento mediante Bonos y subsidios:
 a) Compra de vivienda.
 b) Compra de lote y construcción.
 c) Construcción en lote propio.
 d) Reparación, conclusión o ampliación de vivienda propia.
 e) Construcción de casa del maestro.
 f) (Derogado mediante sesión N° 23-2014 del 3 de abril del 2014, "Disposiciones para atender las familias que adquirieron un lote con recursos del Bono Familiar de Vivienda, al amparo del programa de compra de lote con Bono")
+g) Financiamiento de los gastos administrativos, registrales y notariales necesarios para la titulación de bienes inmuebles de uso habitacional, propiedad de instituciones de carácter público y habitados exclusivamente por los núcleos familiares que califiquen según los criterios, requisitos y condiciones que establezca el Banhvi.
+Los gastos cubiertos incluirán, entre otros - pero no limitados- los gastos por el levantamiento catastral, segregación, honorarios de topógrafo, abogado, peritos, notarios, timbres, impuestos, derechos de registro e inscripción, cualquier otro relacionado y pertinente para llevar a cabo la titulación. La Junta Directiva del BANHVI establecerá el monto máximo financiable para esta línea, el cual será de hasta un sesenta y cinco por ciento (65%) de un salario mínimo vigente, pudiendo ajustarse en función de las condiciones socioeconómicas y presupuestarias de FOSUVI.
+Este financiamiento se otorgará a familias que cumplan los requisitos socioeconómicos establecidos en la normativa vigente, particularmente aquellas con ingresos familiares de hasta uno y medio (1,5) salarios base, conforme a lo dispuesto en el artículo 10 bis de este Reglamento.
+Cuando los núcleos familias soliciten el subsidio del FOSUVI solo para la titulación de los inmuebles, a entidad autorizada deberá comprobar (y documentar en el expediente de cada caso), al menos, lo siguiente:
+a) Que la vivienda no requiere obras complementarias para prolongar su vida útil ni para mejorar su condición, y que cumple con características adecuadas y suficientes de seguridad, habitabilidad y salubridad de sus moradores.
+b) Que la propiedad cuenta con lo siguiente: servicio de agua potable certificado por la autoridad competente del lugar; sistema de evacuación o disposición de aguas servidas; sistema de evacuación de aguas pluviales; servicio de electricidad disponible; condiciones de frente, fondo, servidumbre y demás que establece el ordenamiento jurídico nacional y local; y condiciones topográficas adecuadas para garantizar la vida útil de la vivienda y la integridad física de sus habitantes.
+(Así adicionado el inciso g) anterior en sesión N° 56 del 16 de setiembre de 2025)
 En caso de propiedades inscritas en derechos no localizados donde hubiere varios copropietarios y no existiere posibilidad inmediata de segregar el inmueble, sólo se otorgará el subsidio si todos los copropietarios comparecen a dar su consentimiento y a aceptar las limitaciones del BANHVI. Caso contrario deberá localizarse el derecho por los medios correspondientes. Si el usufructo fuere propiedad de otra persona, y ésta no formare pane del grupo familiar, deberá traspasarlo al beneficiario.
