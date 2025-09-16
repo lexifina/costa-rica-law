@@ -3,3 +3,4 @@ Artículo 3°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44984 del 12 de mayo de 2025)
 (Reformado por el artículo 3° de la ley N° 10739 del 1° de julio de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45135 del 14 de julio de 2025)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45202 del 16 de setiembre de 2025)
