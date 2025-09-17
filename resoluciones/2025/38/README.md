@@ -14,3 +14,4 @@ Uso de los formularios de declaración de Retenciones por Operaciones Tarjetas C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-11 | la propia norma |
+| 2 | 2025-09-17 | Resolución 45 (2025-09-17) |
