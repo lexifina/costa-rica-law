@@ -18,3 +18,4 @@ Reglamento de Operaciones Internacionales
 | 3 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
 | 4 | 2017-07-04 | Reglamento 5476 (2017-07-04) |
 | 5 | 2022-05-16 | Reglamento 5918 (2022-05-16) |
+| 6 | 2025-09-17 | Reglamento 6244 (2025-09-17) |
