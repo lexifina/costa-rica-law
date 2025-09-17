@@ -1,0 +1,1 @@
+Artículo 18 - Regulaciones de tipo administrativo sobre el control de tiempo. El Auditor Interno y Sub-auditor Interno deberán registrar su marca, según el mecanismo utilizado para los demás funcionarios municipales cumpliendo con las directrices emitidas por el departamento de talento humano de la Municipalidad.

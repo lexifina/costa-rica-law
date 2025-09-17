@@ -1,0 +1,9 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+SECRETARÍA DEL CONCEJO MUNICIPAL
+El Concejo Municipal de Quepos, mediante acuerdo 02, Artículo Quinto, Lectura de Correspondencia, de la Sesión Ordinaria No. 108-2025, celebrada el martes 26 de agosto del 2025; así ratificado en la Sesión Ordinaria 109-2025 celebrada el martes 02 de setiembre del 2025, acuerda lo siguiente:
+ACUERDO NO. 02: EL CONCEJO ACUERDA: Darse por informados del comunicado del oficio 14830 (DFOE-LOC-1554), remitido por los señores Licda. Vivian Garbanzo Navarro y Licda. María del Milagro Rosales V., del Área de Fiscalización para el Desarrollo Local del a Contraloría General de la República. Publíquese en el diario oficial La Gaceta el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad De Quepos, conforme el acuerdo de aprobación número 22, artículo único, de la sesión extraordinaria no. 095-2025, celebrada el miércoles 25 de junio del 2025. Remitir a la Administración Municipal para conocimiento. Se acuerda lo anterior por unanimidad (cinco votos). Moción de orden del Presidente Municipal, para que sea dispensado de trámite de comisión. Se aprueba (cinco votos) ACUERDO DISPENSADO DE TRÁMITE DE COMISIÓN.
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA
+AUDITORÍA INTERNA DE LA MUNICIPALIDAD DE QUEPOS
+CAPÍTULO I
+Disposiciones generales
+Artículo 1 - Regulación. El presente Reglamento regula las actividades, organización, objetivos, funciones y atribuciones de la Auditoría Interna de la Municipalidad de Quepos. Se emite en cumplimiento de lo establecido al respecto en la Ley General de Control Interno y las Normas para el ejercicio de la Auditoría Interna en el Sector Público y recaerá en el Auditor Interno la obligación de coordinar, divulgar y hacer cumplir el contenido del Reglamento conforme a la normativa legal y técnica pertinente.

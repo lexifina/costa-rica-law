@@ -1,0 +1,1 @@
+Artículo 60. -Comunicación al denunciante. El Auditor deberá comunicar al denunciante sobre el trámite que se le ha dado a su denuncia; para ello el denunciante debe indicar en el documento inicial un medio valido para recibir notificaciones. De no aportar un medio para las notificaciones se tomará en cuenta lo indicado en la ley de notificaciones judiciales N° 8687.

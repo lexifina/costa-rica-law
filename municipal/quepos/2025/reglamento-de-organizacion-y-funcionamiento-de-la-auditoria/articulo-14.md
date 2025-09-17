@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Auditor Interno y Sub auditor Interno
+Artículo 14 - Dependencia. El Auditor y Sub auditor Internos dependerán orgánicamente del Concejo Municipal, quien los nombrará por tiempo indefinido, como funcionarios de tiempo completo. El nombramiento se efectuará de conformidad con lo establecido en la Ley General de Control Interno número 8292 y lo normado en directrices aplicables que haya emitido la CGR, específicamente los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República, resolución número R-CO-83-2018 y sus reformas.
