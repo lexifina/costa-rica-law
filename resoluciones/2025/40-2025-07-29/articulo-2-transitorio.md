@@ -1,0 +1,1 @@
+Transitorio II- Con la entrada en funcionamiento el Sistema TRIBU-CR se habilitará un trámite para la presentación de las solicitudes de estudio para los créditos inconsistentes, conforme a lo regulado en la presente resolución.

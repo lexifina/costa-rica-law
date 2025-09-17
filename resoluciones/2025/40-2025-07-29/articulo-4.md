@@ -1,0 +1,2 @@
+Artículo 4.- Prescripción de los créditos inconsistentes.
+Respecto de aquellos importes de créditos clasificados como inconsistentes, en los cuales los obligados tributarios no presenten las gestiones de estudio señaladas en el artículo 3 de la presente resolución, una vez acaecido el plazo de prescripción, la Administración Tributaria de oficio eliminará de su sistema dichos importes, sin necesidad de pronunciamiento expreso conforme lo dicta el artículo 43 del Código Tributario.

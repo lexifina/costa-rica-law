@@ -1,0 +1,2 @@
+Transitorio III- Con la entrada en funcionamiento del Sistema TRIBU-CR, la Administración Tributaria realizará la respectiva migración de los saldos o créditos a favor de los obligados tributarios con corte al mes de julio del 2025 conforme los estudios técnicos realizados para tal efecto.
+La migración de los saldos o créditos restantes quedará habilitada en forma paulatina conforme se vaya realizando los estudios de clasificación de saldos en consistentes e inconsistentes, hasta que se dé la estabilización del Sistema de TRIBU-CR.

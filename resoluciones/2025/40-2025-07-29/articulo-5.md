@@ -1,0 +1,2 @@
+Artículo 5.- Inicio de los Procedimientos Sancionatorios respecto de créditos inexistentes o improcedentes.
+Respecto de aquellos créditos clasificados como inconsistentes, en los cuales se determine su inexistencia o improcedencia mediante el acto administrativo en firme, la Administración Tributaria tendrá la facultad de iniciar los procesos sancionadores conforme lo establece el Código Tributario o plantear las denuncias penales, según corresponda.
