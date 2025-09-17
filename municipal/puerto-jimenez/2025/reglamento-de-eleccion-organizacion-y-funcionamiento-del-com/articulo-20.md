@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Comisión Electoral. Para supervisar y dirigir el proceso de elección en las Asambleas descritas en los Artículos 18 y 19 de este Reglamento, se constituirá una Comisión Electoral conformada por: dos miembros del Concejo Municipal (regidores propietarios o suplentes y síndicos) y dos miembros de la Junta Directiva del CCDRPJ vigente, siempre que no sean candidatos.

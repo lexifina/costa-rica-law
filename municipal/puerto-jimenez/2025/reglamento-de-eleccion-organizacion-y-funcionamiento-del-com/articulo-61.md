@@ -1,0 +1,1 @@
+ARTÍCULO 61.- Perfiles, funciones y salarios. El perfil, funciones del puesto y monto salarial de los funcionarios de planta del CCDRPJ, los establecerá el CCDRPJ previo referendo del Concejo Municipal, quién contará con la asesoría de la Unidad de Recursos Humanos de la Municipalidad de Puerto Jiménez.

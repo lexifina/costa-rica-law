@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las organizaciones deportivas y recreativas
+ARTÍCULO 76.- Personería Jurídica y Adscripción. Las Organizaciones Deportivas y Recreativas que se encuentren debidamente inscritas en el Registro de Asociaciones, con domicilio legal en el Cantón de Puerto Jiménez, en coordinación con el CCDRPJ procederán a prever, planificar, organizar, ejecutar, controlar, evaluar y coordinar los planes de iniciación deportiva, Juegos Nacionales y desarrollo deportivo de las distintas disciplinas deportivas y además a coordinar los eventos recreativos. Las Organizaciones Deportivas y Recreativas, podrán solicitar la adscripción a la Junta del CCDRPJ siempre y cuando tengan la personería jurídica vigente.

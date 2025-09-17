@@ -1,0 +1,2 @@
+ARTÍCULO 34.- Sesión primera. En la primera sesión, que se celebrará al menos cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros de la Junta del CCDRPJ se reunirán y mediante votación se designarán los cargos a que se refiere el Artículo 23 del presente
+Reglamento; comunicando inmediata y formalmente al Concejo Municipal con un informe de dicha elección.

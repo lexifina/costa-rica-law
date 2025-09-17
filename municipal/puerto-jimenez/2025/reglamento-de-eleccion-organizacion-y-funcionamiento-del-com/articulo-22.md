@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Excepción. En el caso excepcional, si las Asambleas no se realizan o no eligen a todos los miembros del CCDRPJ, el Concejo Municipal seleccionará a los miembros faltantes en la segunda quincena de noviembre. Para esto, se seguirá el procedimiento del Artículo 17 de este Reglamento, siempre respetando la paridad de género, publicidad y transparencia.
