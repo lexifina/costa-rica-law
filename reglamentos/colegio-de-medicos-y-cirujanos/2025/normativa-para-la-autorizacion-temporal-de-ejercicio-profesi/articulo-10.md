@@ -1,0 +1,2 @@
+Artículo 10. Supervisión del médico visitante
+El médico y cirujano visitante deberá estar en todo momento bajo supervisión directa y presencial de al menos un médico y cirujano con no menos de cinco (5) años de incorporado al Colegio de Médicos y Cirujanos y activo en el ejercicio de la profesión. Los médicos especialistas y subespecialistas visitantes deberán ser supervisados por un médico debidamente incorporado en el Colegio de Médicos y Cirujanos en la misma especialidad o subespecialidad médica o al menos en una especialidad afín a la del médico visitante.
