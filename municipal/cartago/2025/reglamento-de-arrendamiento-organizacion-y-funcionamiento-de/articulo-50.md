@@ -1,0 +1,2 @@
+Artículo 50.- Programa de embellecimiento.
+La municipalidad procurará, en estricto apego a lo ordenado por la Constitución Política y las leyes vigentes, y en resguardo de los derechos de los arrendatarios de los derechos de piso y locales fijos, adecuar las instalaciones del mercado municipal a las disposiciones contenidas en este reglamento, en atención a las normas de embellecimiento, seguridad e higiene contenidas en los planes reguladores que establezca el gobierno local para el Cantón Central de Cartago.

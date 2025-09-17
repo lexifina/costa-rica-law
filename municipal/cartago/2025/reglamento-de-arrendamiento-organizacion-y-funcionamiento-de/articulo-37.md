@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Del orden del mercado
+Artículo 37.- Medidas de orden.
+Con el objeto de resguardar el orden en el mercado, no se permitirán en él la permanencia de personas en estado de embriaguez, antisociales, indigentes, personas que para sí o instituciones benéficas creadas al efecto requieran dinero de terceras personas de manera gratuita, y que no utilicen los distintos servicios del mercado y que, con su presencia o sus actos, perturben, interrumpan, obstaculicen o dificulten la actividad de los inquilinos y los usuarios, referida al comercio. Tampoco se permitirá, por ningún concepto, vendedores ambulantes ni estacionarios, que carezcan de derecho según el reglamento respectivo. Dicho control será realizado por el oficial municipal de turno, destacado en el mercado municipal.
+La Administración del mercado, junto con el Departamento de Patentes y la Policía Municipal velarán además que las aceras y calles adyacentes al mercado se encuentren libres de vendedores ambulantes ilegales. Las puertas y callejones de entrada deberán mantenerse despejados.
+En caso de ser necesario, se solicitará la colaboración de la Fuerza Pública y la Policía de Tránsito, para dar cumplimiento de estas disposiciones.
+Será obligación de todos los actores del Mercado Municipal garantizar la accesibilidad general a las instalaciones, los bienes y servicios del Mercado Municipal de conformidad con la legislación especializada. Ello incluye el tránsito interno, los accesos y puntos de compra.

@@ -1,0 +1,3 @@
+Artículo 11.- Publicidad de los cambios.
+La variación en los horarios del mercado será notificada al público e inquilinos, mediante avisos expuestos en lugares visibles o cualquier otro sistema de difusión que estime pertinente el Administrador del mercado.
+En casos de fuerza mayor, caso fortuito o porque la medida sea aconsejable y necesaria ante situaciones que pongan en riesgo la salud o integridad de las personas o la conservación y adecuado aprovechamiento de las mercaderías, bienes almacenados o de la infraestructura del inmueble en general, el Alcalde podrá acordar la no prestación del servicio sin previa notificación a los interesados, haciendo constar claramente la situación que provoca y justifica el cierre.

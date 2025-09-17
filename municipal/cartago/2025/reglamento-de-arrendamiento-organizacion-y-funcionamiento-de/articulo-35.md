@@ -1,0 +1,1 @@
+Artículo 35.- De las revisiones. Queda obligado el inquilino para dejar pasar al Administrador del mercado o quien éste designe, a cada local fijo, a fin de velar por el cumplimiento de este reglamento, haciendo las sugerencias del caso al inquilino o reportando las anomalías que se encuentren para la imposición de las sanciones que estime este reglamento.

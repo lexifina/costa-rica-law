@@ -1,0 +1,2 @@
+Artículo 53.- Derogatorias.
+Este reglamento deroga y deja sin efecto el Reglamento General de Ventas Ocasionales (1983), Reglamento general de ventas varias u ocasionales o derechos de piso de la Municipalidad de Cartago (1988) y el Reglamento de Arrendamiento, Organización y Funcionamiento de Locales Fijos y Ventas varias y ocasionales (Derechos de Piso) del Mercado Municipal (2006, reformado 2014).

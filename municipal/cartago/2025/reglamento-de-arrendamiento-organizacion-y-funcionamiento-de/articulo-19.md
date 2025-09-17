@@ -1,0 +1,7 @@
+Artículo 19.- Prohibiciones en cuanto a la titularidad de la adjudicación.
+a. Nadie podrá ser arrendatario de más de un puesto del mercado. En virtud de esta prohibición, no se aprobará ningún traspaso en el que figure como cesionario adquiriente una persona jurídica de cualquier tipo en la que figure como directivo, accionista o cuotista, un arrendatario del mercado.
+b. Ningún inquilino o usuario de derecho de piso podrá adquirir las acciones de una sociedad que sea dueña de un derecho de piso o local en el Mercado Municipal de Cartago.
+c. No se permitirá la unión o fusión de locales, salvo lo dispuesto en el artículo siguiente.
+d. No se permitirá la división de un tramo con el fin de ser vendido o alquilado, únicamente para explotarlo por parte del mismo propietario.
+e. Se prohíbe el subarriendo total o parcial de un local, so pena de ser sancionado con base en este Reglamento.
+A efecto de garantizar el cumplimiento de las anteriores prohibiciones, en las solicitudes de traspaso en las que figure como parte una persona jurídica, se deberá adjuntar una certificación original reciente (con no más de un mes de emitida), en la que conste la vigencia e inscripción de la persona jurídica y de la representación legal respectiva, los cargos directivos y las personas que los ocupan, el capital social y su distribución entre los socios. La Municipalidad tomará las medidas necesarias para que no existan más de dos contratos o derechos de explotación a nombre de la misma persona.

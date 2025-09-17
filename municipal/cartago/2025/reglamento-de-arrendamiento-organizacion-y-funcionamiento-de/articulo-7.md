@@ -1,0 +1,4 @@
+Artículo 7.- De los horarios de las ventas varias (Derechos de piso).
+Los puestos varios u ocasionales funcionarán únicamente los denominados "días de feria": jueves a viernes de las 6:00 horas a las 17:30 horas, sábado de las 6:00 a las 18:30 horas y domingo de las 6:00 a las 12:00 horas.
+Los días domingo los arrendatarios de los derechos de piso deberán recoger todas sus mercaderías y los tableros, a más tardar las 13:30 horas y abandonar el lugar inmediatamente para dar lugar a la limpieza de las instalaciones del mercado. El no acatamiento de esta disposición dará lugar a la cancelación del respectivo derecho de piso.
+Queda terminantemente prohibido a los beneficiarios de derechos de piso, despachar o vender mercadería en días y horas que no sean de feria. El beneficiario que incumpla con lo dispuesto en este artículo se le cancelará en forma inmediata y automática su derecho sin lugar a indemnización.

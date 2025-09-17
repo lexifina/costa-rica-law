@@ -1,0 +1,4 @@
+Artículo 10.- Horario extraordinario.
+En las festividades indicadas por ley o en los respectivos contratos de arrendamiento o en ocasiones especiales debidamente justificadas, el mercado podrá prestar sus servicios en forma extraordinaria, siempre y cuando el interés por laborar alcance un mínimo del setenta y cinco por ciento (75%) de los arrendatarios del mercado, según se indique al Administrador.
+Los gastos administrativos que ocasione el funcionamiento extraordinario del mercado, determinados por el Departamento de Contabilidad, serán cancelados en forma proporcional y previa por los inquilinos que lo hayan solicitado, en las cajas recaudadoras de la Municipalidad.
+El pago de horas extras a los funcionarios municipales destacados en el mercado el día en que su horario se vea ampliado de conformidad con este artículo, se realizará de acuerdo con las disposiciones reglamentarias vigentes en esta Municipalidad.

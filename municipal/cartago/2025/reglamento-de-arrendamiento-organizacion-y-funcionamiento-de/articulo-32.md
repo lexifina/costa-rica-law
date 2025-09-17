@@ -1,0 +1,2 @@
+Artículo 32.- De la seguridad y vigilancia.
+La municipalidad no tiene responsabilidad en cuanto a la conservación o seguridad de la infraestructura del local asignado, mercadería y otros bienes de propiedad de los arrendatarios, así como de accidentes que sufran los usuarios dentro de las instalaciones. No obstante lo anterior, velará por la seguridad de ellos y por la seguridad de los bienes de los arrendatarios mientras el mercado permanezca cerrado. Cuando el mercado esté abierto, la seguridad de los bienes de los inquilinos corresponde a cada arrendatario.
