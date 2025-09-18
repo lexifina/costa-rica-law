@@ -1,0 +1,2 @@
+Transitorio Dos. Se mantienen las declaratorias con valor científico cultural de aquellas series de documentos que no están incluidas en esta resolución, pero que fueron previamente declaradas con valor científico cultural por la Comisión Nacional de Selección y Eliminación de Documentos. Por lo tanto, no procede su eliminación, hasta que no se consulte de nuevo a la CNSED y este órgano resuelva.
+Las presentes normas rigen a partir de su publicación.-
