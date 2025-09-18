@@ -1,0 +1,31 @@
+Artículo 3º-Mecánica de participación
+La mecánica de participación consiste en que toda persona física, mayor de 18 años, nacional o extranjera, que desee participar de la Quiniela de Invierno, deberá escanear por medio de la app JPS A SU ALCANCE fracciones de Lotería Popular o Lotería Nacional de los sorteos que se realicen del viernes 03 de octubre al domingo 30 de noviembre de 2025. Los participantes podrán realizar pronósticos desde el miércoles 01 de octubre de 2025, a las 00:00 horas y hasta el domingo 30 de noviembre de 2025, a las 18:00 horas.
+Los participantes podrán realizar sus pronósticos con solo escanear una fracción, sea de Lotería Popular o Lotería Nacional de los sorteos indicados en el artículo 5 de este procedimiento.
+El participante podrá realizar uno o varios pronósticos para cada uno de los partidos vigentes que aparecen en la lista de encuentros de fútbol por realizarse.
+Se habilitarán al menos 10 eventos por semana para que los participantes realicen sus pronósticos.
+Por cada 12 aciertos recibirían una participación, la cual le permitirá participar por todo el plan de premios.
+Los pronósticos que se realicen con fracciones de números del 00 al 39, en caso de acertar el marcador, contarán como un acierto.
+Los pronósticos que se realicen con fracciones de números del 40 al 69, en caso de acertar el marcador, contarán como dos aciertos.
+Los pronósticos que se realicen con fracciones de números del 70 al 99, en caso de acertar el marcador, contarán como tres aciertos.
+No es permitido que un participante con una misma fracción escaneada realice varios pronósticos, es decir, para cada pronóstico se debe escanear fracciones diferentes, estas pueden ser de un mismo sorteo, serie y número, mientras que la fracción sea diferente.
+No es permitido que el participante cambie los pronósticos enviados, es decir, cuando un participante le da enviar a su pronóstico, este quedará registrado en el sistema y el participante no podrá de ninguna manera modificarlo.
+Los participantes no podrán realizar pronósticos de encuentros futbolísticos una vez cerrado el período para tal fin, el cual será 1 hora antes de cada partido.
+Los pronósticos de cada evento tendrán un horario de cierre de 1 hora antes de la realización de cada partido.
+En caso que un evento sea pospuesto para realizarse el mismo día o máximo al día siguiente, todos los pronósticos serán válidos; siempre y cuando el partido tenga su resultado final, la hora de cierre para recibir pronósticos del partido no se ajustará, es decir, se mantendrá siempre la hora de cierre que fue oficializada inicialmente.
+En caso que un evento sea suspendido o pospuesto por alguna situación fortuita, y el mismo no pueda realizarse, el mismo día o como máximo al día siguiente, el evento será eliminado; todos los pronósticos que se hayan realizado se anulan, y las fracciones que fueron escaneadas para realizar dichos pronósticos quedarán habilitadas para poder ser escaneadas de nuevo y realizar nuevos pronósticos a otro evento.
+Los participantes podrán visualizar en la app JPS A SU ALCANCE todos sus pronósticos, los acertados y los no acertados.
+No participan de esta promoción los funcionarios de la Junta, los miembros de Junta Directiva, ni los vendedores autorizados de la Junta que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
+No participan de esta promoción personas menores de 18 años.
+Las personas que adquieran sus fracciones por medio del sitio www.jpsenlinea.go.cr también participarán de esta promoción, activando sus fracciones en la App JPS A SU ALCANCE, para lo cual deberán escanear el código datamatrix de cada fracción directamente desde la pantalla de su computadora, o bien, imprimir el comprobante de la compra y escanear cada una de las fracciones, de igual forma, posicionando la cámara en cada uno de los códigos de las fracciones adquiridas.
+Las personas que accedan al sito www.jpsenlinea.go.cr, desde un teléfono celular para realizar su compra y a su vez deseen activar sus fracciones en la App JPS A SU ALCANCE, podrán desde otro teléfono celular abrir la app y escanear cada uno de los códigos de sus fracciones adquiridas desde la pantalla del teléfono celular por medio del cual realizó la compra.
+Las personas que adquieran sus fracciones por medio del sitio www.jpsenlinea.go.cr deberán realizar sus activaciones en la App JPS A SU ALCANCE a su nombre, puesto que, si el sistema determina que las fracciones fueron adquiridas por otra persona, que no corresponde a quien las activó, para el respectivo cambio de premios, los ganadores deberán observar lo estipulado para esos casos, en el artículo 6 de este procedimiento.
+Requisitos para activación en la App JPS A SU ALCANCE:
+Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
+1. Descargar la aplicación en la tienda PlayStore de Google, Apple Store o App Gallery.
+2. Registrarse y completar una única vez el formulario de inscripción.
+3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la ventana "activación de productos" e ingresar a la ventana "quiniela".
+4. Escanear (fracción por fracción) la lotería que desean activar de los sorteos de Lotería Popular y Lotería Nacional indicados en el artículo 5 de esta promoción. Para el escaneo correcto de cada una de las fracciones deben posicionar la cámara en el código datamatrix que se ubica en el centro de la fracción.
+Las personas que ya tienen una cuenta en la aplicación JPS A SU ALCANCE deberán ingresar con su cédula y contraseña y acceder a la ventana "activación de productos" e ingresar a la ventana "quiniela" y escanear (fracción por fracción) la lotería que desean activar correspondiente a los sorteos de Lotería Popular y Lotería Nacional indicados en el artículo 5 de esta promoción.
+El participante es el responsable y obligado de registrar información veraz y exacta, para participar en esta promoción.
+Se aclara que las fracciones activadas para esta promoción NO podrán activarse para participar en cualquier otra promoción que se encuentre vigente, y viceversa.
+Se aclara que las fracciones activadas para esta promoción NO podrán activarse para participar en los concursos del programa Rueda de La Fortuna, y viceversa.
