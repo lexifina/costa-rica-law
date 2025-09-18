@@ -14,3 +14,4 @@ Columna salarial global de las clases de puesto del Banco Central de Costa Rica 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-06-05 | la propia norma |
+| 2 | 2025-09-18 | Directriz 11 (2025-09-18) |

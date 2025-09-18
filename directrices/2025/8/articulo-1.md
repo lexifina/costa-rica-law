@@ -18,3 +18,14 @@ Artículo 1.- Se instruye la aplicación de la presente Columna Salarial Global 
 - Actividades ocupacionales del BCCR que fueron homologadas con clases de puesto del Régimen de Servicio Civil y su respectivo salario global, al respecto, ver Cuadro N° 1, página 20 y 21 del respectivo Informe Técnico.
 - Actividades ocupacionales del BCCR relacionadas con Banca y Supervisión que dicha entidad pública define como sustantivas, las cuales fueron punteadas y dentro de las que se realizaron los cálculos necesarios para la determinación de las columnas de salario global con su respectivo factor de competitividad, al respecto, ver Cuadro N° 3, página 24 y 25 del respectivo Informe Técnico.
 Todas los anteriores del Banco Central de Costa Rica, inherentes a la familia laboral determinada en el inciso a) del artículo 13 de la Ley Marco de Empleo Público, de personas servidoras públicas bajo el ámbito de aplicación del Título I y del Título IV del Estatuto de Servicio Civil, así como a las que se desempeñan en las instituciones señaladas en el artículo 2 de la Ley, que no estén incluidas en las restantes familias de puestos.
+(Nota de Sinalevi: Mediante el artículo 1° de la directriz N° 011-2025-PLAN del 18 de setiembre de 2005, se acordó actualizar las escalas salariales para el Banco Central de Costa Rica, de la siguiente manera: ".Artículo 1º-Se instruye la aplicación de la presente Columna Salarial Global que se establece mediante esta Directriz, para las personas que ocupen las clases de puesto establecidas del Banco Central de Costa Rica, mencionadas en el Considerando VIII de este instrumento, inherentes a la familia laboral determinada en el inciso a) del artículo 13 de la Ley Marco de Empleo Público, correspondiente a: "Personas servidoras públicas bajo el ámbito de aplicación del título I y del título IV del Estatuto de Servicio Civil, así como a las que se desempeñan en las instituciones señaladas en el artículo 2 de la presente ley, que no estén incluidas en las restantes familias de puestos". Y así, se les pueda remunerar según el monto global establecido para dichas clases, según el artículo 34 de la LMEP, en estricto apego a las demás disposiciones contenidas en dicha Ley y con base en los artículos 36 y 37 de su Reglamento, conforme a lo procedente a nivel legal en materia de Prohibición y Disponibilidad:
+Clases de puestos del Banco Central
+Clase de puesto | Salario Global en puestos con Disponibilidad | Salario Global en puestos con Prohibición
+Gerente de Departamento Gestión Organizacional | - | ¢3,142,096
+Ejecutivo Gestión Organizacional | ¢2,146,490 | -
+Profesional Ti Gestión Organizacional 3 | ¢1,845,068 | -
+Profesional Ti Gestión Organizacional 2 | ¢1,708,058 | -
+Profesional Gestión Organizacional 3 | ¢1,708,058 | -
+Profesional Gestión Organización 1 | ¢1,315,296 | -
+Técnico Servicios 2 | ¢863.163 | -
+")
