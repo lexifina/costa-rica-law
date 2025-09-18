@@ -1,0 +1,13 @@
+SE REPRODUCE POR ERROR MATERIAL LO MARCADO EN NEGRITA.
+CIRCULAR N° 183-2025.
+Asunto: Tramitación y asignación de los procesos judiciales en los Tribunales Colegiados Civiles de Primer Instancia que conocen en unipersonal los procesos y procedimientos sucesorios, priorizando los vinculados con rezago judicial -mora institucional- en atención a la circular 06-2025.
+A LAS AUTORIDADES JUDICIALES DEL PAÍS, INSTITUCIONES Y PÚBLICO EN GENERAL.
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 43-2025 celebrada el 01 de setiembre del 2025, artículo XXXII, tomó las siguientes disposiciones:
+A) Aprobar la tramitación y asignación de los procesos judiciales priorizando los vinculados con rezago judicial -mora institucional- en atención a la circular 06-2025.
+B) Aprobar que los procesos sucesorios -al ser los de mayor antigüedad en el Poder Judicial- que se encuentren en archivo provisional ante la inercia de las partes, sean archivados de manera definitiva para que los datos reflejen la realidad de las estadísticas del Poder Judicial. La nueva gestión que realicen eventualmente las personas gestionantes, generará un nuevo número al que se le quitará el año de ingreso y se le adicionará el año de la gestión. De estimarlo necesario, las personas juzgadoras podrán disponer la acumulación de los expedientes o tenerlos a la vista -ad efectum videndi- o la solución que estimen legalmente procedente. La Dirección de Tecnología de la Información y Comunicaciones procederá de manera inmediata a ejecutar este acuerdo, modificando los números de expedientes antes de la distribución de los expedientes. La Dirección de Planificación priorizará que esta decisión se refleje en las estadísticas institucionales. Esa medida se implementará a los demás procesos judiciales civiles, de cobro y concursal.
+C) El Centro de Conciliación del Poder Judicial deberá coadyuvar con los despachos civiles involucrados en la atención de los procesos sucesorios. Los procesos en los que coadyuven serán itinerados del despacho de origen al Centro de Conciliación, el cual, en caso de lograr la conciliación, procederá a la homologación respectiva de ser legalmente procedente (artículo 51.1 del Código Procesal Civil).
+D) El turno de los expedientes se realizará en el siguiente orden de prelación: a) rezago institucional antigüedad-, b) por etapas que según la fórmula estadística actual (circular 113-2018): inicial, intermedia y conclusiva; y, por el grado de complejidad.
+E) Los criterios de los grados de complejidad serán analizados con las personas juzgadoras.
+Publíquese una vez en el Boletín Judicial.
+San José, 18 de setiembre de 2025.
