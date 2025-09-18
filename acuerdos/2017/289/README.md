@@ -15,3 +15,4 @@ Lista de especies de interés pesquero y acuícola
 | --- | --- | --- |
 | 1 | 2017-08-17 | la propia norma |
 | 2 | 2023-03-28 | Acuerdo 57 (2023-03-28) |
+| 3 | 2025-09-18 | Acuerdo 183 (2025-09-18) |

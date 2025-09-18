@@ -383,267 +383,213 @@ VENEROIDA | Solecurtidae | Tagelus peruvianus | Navaja
 VENEROIDA | Veneridae | Leukoma asperrima antes Protothaca asperrima | Almeja blanca
 VENEROIDA | Veneridae | Protothaca grata | Almeja blanca
 (*)Cuadro 5: Lista de especies de peces y crustáceos de agua dulce y de interés acuícola en las aguas continentales, costeras y oceánicas de nuestro país.
-PECES
-ORDEN | FAMILIA | Nombre Científico | Nombre común |
-Anguiliformes | Anguillidae | Ophichthus zoprochir | Anguila amarilla |
-Anabantiformes | Osphronemidae | Osphronemus goramy | Guramy gigante |
-Siluriformes | Ariidae | Bagre panamensis | Bagre |
-Characiformes | Bryconidae | Brycon behreae | Sábalo |
-Characiformes | Bryconidae | Brycon costaricensis | Machaca |
-Characiformes | Bryconidae | Brycon guatemalensis | Machaca |
-Osteoglossiformes | Arapaimidae | Arapaima gigas | Piraricu |
-Perciformes | Carangidae | Seriola lalandi | Jurel |
-Perciformes | Carangidae | Seriola rivolena | Hojaran |
-Perciformes | Cartangidae | Trachinotus Kennedyi | Pampano |
-Perciformes | Cartangidae | Trachinotus carolinus | Pampano |
-Perciformes | Cartangidae | Trachinotus falcatus | Pampano |
-Perciformes | Centropomidae | Centropomus nigrescens | Robalo |
-Perciformes | Centropomidae | Centropomus parallelus | Calva |
-Perciformes | Centropomidae | Centropomus robalito | Calva |
-Perciformes | Centropomidae | Centropomus sp | Robalos |
-Perciformes | Centropomidae | Centropomus viridis | Robalo blanco |
-Perciformes | Centropomidae | undecimalis | Robalo común |
-Perciformes | Cichlidae | Amphilophus citrinellus | Mojarra |
-Perciformes | Cichlidae | Oreochromis aureus | Tilapia aurea |
-Perciformes | Cichlidae | Oreochromis niloticus | Tilapia nilótica |
-Perciformes | Cichlidae | Oreochromis sp | Tilapia roja |
-Perciformes | Cichlidae | Parachromis dovii | Guapote |
-Perciformes | Cichlidae | Parachromis managuensis | Guapote tigre |
-Perciformes | Cichlidae | Parachromis loisellei | Guapotito |
-Clupeiformes | Clupeidae | Dorosoma chavesi | Sabalete |
-Clupeidae | Clupeidae | Opistonema sp | Sardina |
-Cypriniformes | Cyprinidae | Carassius auratus | Pez dorado o carpa dorada |
-Cypriniformes | Cyprinidae | Cyprinus carpio | Carpa común |
-Cypriniformes | Cyprinidae | Ctenopharyngodon idella | Carpa herbívora |
-Perciformes | Eleotridae | Gobiomorus maculatus | Guavina |
-Perciformes | Eleotridae | Gobiomorus polylepis | Guavina |
-Perciformes | Eleotridae | Dormitator latifrons | Pocoyo o tololo, chame |
-Clupeiformes | Engraulidae | Anchoa curta | Anchoa |
-Clupeiformes | Engraulidae | Anchoa parva | Anchoa |
-Gobiesociformes | Gobiesocidae | Gobiesox cephalus | Chupapiedra |
-Perciformes | Haemulidae | Pomadasys bayanus | Roncador |
-Perciformes | Haemulidae | Pomadasys crocro | |
-Siluriformes | Heptapteridae | Rhamdia guatemalensis | Barbudo |
-Siluriformes | Heptapteridae | Rhamdia laticauda | Barbudo |
-Siluriformes | Heptapteridae | Rhamdia nicaraguensis | Barbudo |
-Siluriformes | Heptapteridae | Rhamdia quelen | Barbudo |
-Siluriformes | Ictaluridae | Ictalurus punctatus | Cat fish o bagre de canal |
-Siluriformes | Ictaluridae | Ictalurus furcatus | Cat fish o bagre azul |
-Siluriformes | Pimelodidae | Phractocephalus. hemioliopterus | Bagre cola roja |
-Lepisosteiformes | Lepisostidae | Atractosteus tropicus | Gaspar |
-Perciformes | Lobotidae | Lobotes pacificus | Berrugate del pacífico |
-Perciformes | Lobotidae | Lobotes surinamensis | Berrugate del caribe |
-Perciformes | Lutjanidae | Lutjanus novemfasciatus | Pargo negro-Dienton. |
-Perciformes | Lutjanidae | Lutjanus argentriventis | Pargo coli amarillo |
-Perciformes | Lutjanidae | Lutjanus guttatus | Pargo de la mancha |
-Perciformes | Lutjanidae | Lutjanus colorado | Pargo rojo |
-Perciformes | Lutjanidae | Lutjanus peru | Pargo seda |
-Perciformes | Lutjanidae | Lutjanus analis | Pargo palmera |
-Perciformes | Lutjanidae | Lutjanus aratus | Pargo salmonete |
-Perciformes | Lutjanidae | Lutjanus analis | Pargo palmera |
-Perciformes | Lutjanidae | Lutjanus analis | Pargo palmera |
-Perciformes | Lutjanidae | Lutjanus analis | Pargo palmera |
-Perciformes | Lutjanidae | Lutjanus SP | Pargos |
-Elopiformes | Megalopidae | Megalops atlanticus | Sábalo real, Tarpón |
-Mugiliformes | Mugilidae | Agonostomus monticola | Tepemechín |
-Mugiliformes | Mugilidae | Joturus pichardi | Bobo |
-Mugiliformes | Mugilidae | Mugil curema | Lisa |
-Mugiliformes | Mugilidae | Mugil cephalus | Lisa, Mujol |
-Siluriformes | Pangasiiae | Pangasius hypophthalmus | Panga, Basa o Baza |
-Perciformes | Rachycentridae | Rachycentron canadum | Cobia |
-Salmoniformes | Salmonidae | Oncorhynchus mykiss | Trucha arco iris |
-Salmoniformes | Salmonidae | Salvelinus alpinus | Trucha alpina |
-Perciformes | Sciaenidae | Cynoscion albus | Corvina reina |
-Perciformes | Sciaenidae | Cynoscion squamipinnis | Corvina aguada |
-| Perciformes | Sciaenidae | Cynoscion stolzmanni | Corvina coliamarilla |
-| Perciformes | Sciaenidae | Cynoscion phoxocephalus | Corvina picuda |
-| Perciformes | Sciaenidae | Sciaenops ocellatus | Corvina roja |
-| Characiformes | Serrasalmidae | Colossoma macropomun | Colosoma, cachama, Tambaquí |
-| Perciformes | Sparidae | Peprilus medius | Salema |
-| Synbranchiformes | Synbranchidae | Monopterus albus | Anguila agua dulce |
-| Perciformes | Serranidae | Epinephelus itajara | Mero Goliat |
-| Perciformes | Scombridae | Thunnus albacares | Atún Aleta amarilla |
-| Cypriniformes | Cyprinidae | Cyprinus carpio koi | Koi mix |
-CRUSTACEOS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Decápoda | Cambaridae | Procambarus clarkii | Langostino de Louisina, Cangrejo rojo, cangrejo de marismas, cangrejo de río americano |
-Decápoda | Carideae | Macrobrachium carcinus | Langostino, camarón de agua dulce, camarón rayado del Caribe o rayado |
-Decápoda | Carideae | Macrobrachium amazonicum | Langostino, camarón de agua dulce del caribe |
-Decápoda | Carideae | Macrobrachium acanthurus | Langostino, camarón de agua dulce del caribe |
-Decápoda | Carideae | Macrobrachium tenellum | Langostino, camarón de agua dulce del pacífico |
-Decápoda | Carideae | Macrobachium americanun | Langostino, Langostino, camarón de agua dulce, camarón rayado del pacífico |
-Decápoda | Carideae | Macrobachium panamensis | Langostino |
-Decápoda | Carideae | Macrobachium rosembergii | langostino de Malasia, Langostino, camarón de agua dulce, camarón gigante de Malasia |
-Decápoda | Parastacidae | Cherax quadricarinatus | Langosta australiana o langosta de agua dulce |
-Decápoda | Penaeidae | Litopenaeus vannamei | Camarón blanco, patas blancas o patiblanco |
-Decápoda | Penaeidae | Litopenaeus stylirostris | Camarón blanco, azul o azulado |
-Decápoda | Penaeidae | Litopenaeus occidentales | Camarón blanco, rojizo |
-Decápoda | Penaeidae | Litopenaeus schmitti | Camarón blanco del Caribe |
-Decápoda | Penaeidae | Penaeus monodon | Camarón tigre |
-Decápoda | Portunidae | Callinectes spp. | Jaibas, cangrejo azul |
-Decápoda | Portunidae | Panulirus argus | Langosta espinosa del caribe |
-| | | | | | | | | | | | |
-| MACROALGAS |
-| ORDEN | FAMILIA | Nombre científico | Nombre común |
-| Cladophorales | Anadyomenaceae | Anadyomene stellata | Repollo de mar |
-| Bryopsidales | Caulerpaceae | Caulerpa chemnitzia | Uva de mar |
-| Bryopsidales | Codiaceae | Codium taylorii | |
-| Bryopsidales | Codiaceae | Codium isthmocladum | |
-| Bryopsidales | Codiaceae | Codium spp. | |
-| Bryopsidales | Halimedaceae | Halimeda opuntia | |
-| Bryopsidales | Halimedaceae | Halimeda discoidea | |
-| Cladophorales | Cladophoraceae | Cladophora sp | Pelillo, espinaca de mar |
-| Cladophorales | Cladophoraceae | Chaetomorpha sp | |
-| Ulvales | Ulvaceae | Ulva lactuca | Lechuga |
-| Ulvales | Ulvaceae | Ulva spp | |
-| Dictyotales | Dictyotaceae | Padina spp | |
-| Dictyotales | Dictyotaceae | Dictyota spp. | |
-| Dyctiotales | Dictyotaceae | Spatoglossum schroederi | |
-| Fucales | Sargassaceae | Sargassum liebmanni | |
-| Fucales | Sargassaceae | Sargassum acinarium | |
-| Fucales | Sargassaceae | Sargassum polyceratium | |
-| Fucales | Sargassaceae | Sargassum fluitans | |
-| Fucales | Sargassaceae | Sargassum natans | |
-| Fucales | Sargassaceae | Turbinaria turbinata | |
-| Bonnemaisoniales | Bonnemaisoniaceae | Asparagopsis taxiformis | |
-| Ceramiales | Callithamniaceae | Spyridia filamentosa | |
-| Gelidiales | Gelidiellaceae | Gelidiella acerosa | |
-| Gigartinales | Cystocloniaceae | Hypnea musciformis | |
-Gracilariales | Gracilariaceae | Gracilaria domingensis | |
-Gracilariales | Gracilariaceae | Gracilaria sp | |
-Gracilariales | Gracilariaceae | Gracilariopsis sp | |
-Halymeniales | Halimeniaceae | Halymenia | |
-| | | | | | | | |
-MICROALGAS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Bacillariales | Bacillariaceae | Nitzschia brevissima | |
-Bacillariales | Bacillariaceae | Nitzschia sp | |
-Bacillariales | Bacillariaceae | Pseudonitzschia sp | |
-Bacillariales | Bacillariaceae | Nitzschia sp | |
-Chaetocerotales | Chaetocerotaceae | Chaetoceros mulleri | |
-Chaetocerotales | Chaetocerotaceae | Chaetoceros gracilis | |
-Chaetocerotales | Chaetocerotaceae | Chaetoceros neogracile | |
-Chaetocerotales | Chaetocerotaceae | Chaetoceros sp. | |
-Chlorellales | Chlorellaceae | Chlorella | |
-Chlorodendrales | Chlorodendraceae | Tetraselmis suecica | |
-Chlorodendrales | Chlorodendraceae | Tetraselmis chui | |
-Spirulinaceae | Chroococcales | Spirulina sp | |
-Coscinodiscales | Coscinodiscaceae | Coscinodiscus sp. | |
-Chlamydomonadales | Dunaliellaceae | Dunaliella salina | |
-Chlamydomonadales | Dunaliellaceae | Dunaliella tertiolecta | |
-Chlamydomonadales | Haematococcaceae | Haematococcus pluvialis | |
-Isochrysidales | Isochrysidaleceae | Isochrysis galvana | |
-Isochrysidales | Isochrysidaleceae | Tisochrysis lutea | |
-Synechococcaeles | Merismobetiaceae | Synechocystis | |
-Eustigmatales | Monodopsidaceae | Nannochloropsis oculata | |
-Eustigmatales | Monodopsidaceae | Nannochloropsis gaditana | |
-Naviculales | Navículaceae | Navicula tripunctata | |
-Naviculales | Navículaceae | Navicula sp. | |
-Pavlovales | Pavlovaceae | Pavlova lutheri | |
-Bacillariophyta ordo incertae sedis | Phaeodactylaceae | Phaeodactylum tricornutum | |
-Pyrenomonadales | Pyrenomonadaceae | Rhodomona salina | |
-Thalassiosirales | Skeletonemataceae | Skeletonema costatum | |
-Thalassiosirales | Skeletonemataceae | Skeletonema sp. | |
-Thalassiosirales | Thalassiosiraceae | Thalassiosira pseudonana | |
-Thalassiosirales | Thalassiosiraceae | Thalassiosira sp | |
-ZOOPLANCTON |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Calanoida | Canalidae | Calanoides sp | Copépodos |
-Calanoida | Acartiidae | Acartia (Acanthacartia) tonsa | Copépodos |
-Anostraca | Artemiidae | Artemia salina | Artemía |
-Anostraca | Artemiidae | Artemia franciscana | Artemía |
-Ploima | Brachionidae | Brachionus plicatilis | Rotífero |
-Ploima | Brachionidae | Brachionus rotundiformis | Rotífero |
-Calanoida | Calanidae | Calanus finmarchicus | Copépodos |
-Cyclopoida | Cyclopidae | Apocyclops panamensis | |
-Cyclopoida | Cyclopidae | Apocyclops royi | |
-Anomopoda | Daphniidae | Daphnia pulex | Pulga de agua |
-Anomopoda | Daphniidae | Daphnia magna | Pulga de agua |
-Harpacticoida | Harpacticidae | Tigriopus californicus | |
-Mysida | Mysidae | Mysis diluviana | |
-Cyclopoida | Oithonidae | Oithona similis | |
-Calanoida | Paracalanidae | Parvocalanus crassirostris | |
-Harpacticoida | Tisbidae | Tisbe biminiensis | |
-CNIDARIOS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Scleractinia | Agariciidae | Pavona gigantea | |
-Scleractinia | Agariciidae | Pavona frondifera | Coral hoja |
-Scleractinia | Agariciidae | Pavona varians | |
-Scleractinia | Poritidae | Porites lobata | |
-Scleractinia | Psammocoridae | Psammocora stellata | |
-Escleractinia | Pocillporidae | Pocillopora damicornis | |
-Escleractinia | Pocillporidae | Pocillopora elegans | |
-Escleractinia | Pocillporidae | Pocillopora capitata | |
-EQUINODERMOS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Arbacioida | Arbaciidae | Arbacia stellata | Erizo |
-Aspidochirotida | Holothuriidae | Holothuria inornata | Pepino de Mar Arenero |
-Holothuriida | Holothuriidae | Holothuria atra | Pepino de mar negro |
-Synallactida | Stichopodidae | Isostichopus fuscus | Pepino de mar |
-Holothuriida | Holothuriidae | Holothuria theeli | Pepino de mar |
-Camarodonta | Toxopneustidae | Tripneustes depressus | Erizo |
-Camarodonta | Toxopneustidae | Tripneustes ventricosus | Erizo |
-Camarodonta | Toxopneustidae | Lytechinus variegatus | Erizo |
-ESPONJAS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Haplosclerida | Callyspongiidae | Callyspongia aculeata | Esponja de florero |
-Haplosclerida | Niphatidae | Niphates erecta | |
-Haplosclerida | Callyspongiidae | Callyspongia vaginalis | |
-Poecilosclerida | Mycalidae | Mycale cecilia | |
-Poecilosclerida | Iotrochotidae | Iotrochota birotulata | |
-Dictyoceratida | Ircinidae | Ircinia campana | |
-Dictyoceratida | Ircinidae | Ircinia felix | |
-Dictyoceratida | Spongiidae | Spongia sp | |
-Dictyoceratida | Ircinidae | Ircinia strobilina | |
-Dictyoceratida | Ircinidae | Ircinia campana | |
-Verongiida | Aplysidae | Aplysina gerardogreeni | |
-Choristida | Chondrillidae | Chondrilla nucula | |
-Haplosclerida | Petrosiidae | Petrosia weinbergi | |
-ANELIDOS (POLIQUETOS) |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Phillodocida | Glyceridae | Glycera sp | Poliqueto |
-Haplotaxida | Naididae | Tubifex tubifex | Tubifex |
-Phillodocida | Nereididae | Nereis virens | Poliqueto |
-Phillodocida | Nereididae | Nereis diversicolor | Poliqueto |
-Phillodocida | Nereididae | Perinereis brevicirrus | Poliqueto |
-Eunicida | Onuphidae | Diopatra sp | Poliqueto |
-REPTILES Y ANFIBIOS |
-ORDEN | FAMILIA | Nombre científico | Nombre común |
-Squamata | Iguanidae | Iguana Iguana | Iguana |
-Squamata | Iguanidae | Ctenosaura similis | Garrobo o iguana rayada |
-Testudines | Emydidae | Trachemys scripta elegans | Tortuga verde oreja roja |
-Testudines | Emydidae | Trachemys scripta emolli | Tortuga verde oreja amarilla |
-MOLUSCOS
-ORDEN | FAMILIA | Nombre científico | Nombre común
-Ostreoida | Ostridae | Crassostreas gigas | Ostra-ostión
-Mytiloida | Mytilidae | Mytella guyanensis | Chora
-Architaenioglossa | Ampullariidae | Pomacea seteki | Caracol de estanques
-Arcodia | Arcidae | Anadara tuberculosa | Piangua negra
-Arcodia | Arcidae | Anadara grandis | Chucheca
-Arcodia | Arcidae | Anadara similis | Boludo
-Venerioda | Corbiculidae | Prototaca asperima | Almejas
-Venerioda | Corbiculidae | Prototaca grata | Almejas
-Venerioda | Corbiculidae | Polymesoda radiata | Almejas
-Pulmonata | Helixidae | Helix aspersa | Caracol de Jardín
-Ostreoida | Mycetopodidae | Glabaris luteolos | Almeja agua dulce
-Mytiloida | Mytilidae | Modiolus capax | Chora de roca
-Mytiloida | Mytilidae | Modiolus americanus | Mejillon
-Mytiloida | Mytilidae | Mytella guyanensis | Chora de fango
-Mytiloida | Mytilidae | Modiolus eiseni | Mejillon
-Mytiloida | Mytilidae | Mytella charruana | Mejillon
-Mytiloida | Mytilidae | Mytella speciosa | Mejillon
-Mytiloida | Mytilidae | Mytella strigata | Mejillon
-Mytiloida | Mytilidae | Perna viridis | Mejillón verde del Caribe
-Ostreoida | Ostridae | Crassostreas rizophorae | Ostion de mangle
-Ostreoida | Ostridae | Crassostreas corteziensis | Ostión del placer
-Ostreoida | Ostridae | Ostra iridensis | Ostion de roca
-| | | | | | | | | | | | | | | | | | | | | | |
-Pteriida | Pteriidae | Pinctada mazatlanica | Madre perla
-Pteriida | Pteriidae | Pteria sterna | Abanico
-Tellinacea | Solecurtidae | Tagelus peruvianos | Barba de hacha
-Pectinida | Pectinoidea | Spondylus limbatus | Ostion vaca
-(*) (La reforma practicada al cuadro N° 5 anterior por el acuerdo N° AJDIP/057-2023 del 28 de marzo de 2023, posteriormente fue dejada sin efecto por el punto 1) del acuerdo N° AJDIP/094-2023 del 9 de mayo de 2023. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
-(Así reformado el cuadro 5 anterior por acuerdo N° AJDIP/057-2023 del 28 de marzo de 2023)
+SIN OBJECIÓN:
+Objetivo de Grupo Nombre Científico Cultivo #
+Consumo | Crustáceos | 1 | Macrobrachium americanum
+2 | Macrobrachium panamense
+3 | Macrobrachium rosenbergii
+4 | Cherax quadricarinatus
+5 | Macrobrachium acanthurus
+6 | Macrobrachium tenellum
+7 | Penaeus occidentalis
+8 | Penaeus schmitti
+9 | Penaeus stylirostris
+10 | Penaeus vannamei
+11 | Procambarus clarkii
+| | 11
+Moluscos | 1 | Anadara grandis
+2 | Anadara similis
+3 | Anadara tuberculosa
+4 | Crassostrea corteziensis
+5 | Crassostrea gigas
+6 | Crassostrea rhizophorae
+7 | Leukoma grata
+8 | Modiolus capax
+9 | Mytella guyanensis
+10 | Mytella speciosa
+11 | Mytella strigata
+12 | Ostra iridensis
+Objetivo de Grupo Nombre Científico Cultivo #
+| | 13 | Protothaca asperrima
+| | 13
+Peces | 1 | Amphilophus citrinellus
+2 | Anchoa curta
+3 | Anchoa parva
+4 | Bagre panamensis
+5 | Brycon behreae
+6 | Brycon costaricensis
+7 | Brycon guatemalensis
+8 | Centropomus nigrescens
+9 | Centropomus parallelus
+10 | Centropomus robalito
+11 | Centropomus undecimalis
+12 | Centropomus viridis
+13 | Colossoma macropomum
+14 | Cynoscion albus
+15 | Cynoscion phoxocephalus
+16 | Cynoscion squamipinnis
+17 | Cynoscion stolzmanni
+18 | Dajaus monticola
+19 | Dorosoma chavesi
+20 | Gobiomorus maculatus
+21 | Gobiomorus polylepis
+22 | Ictalurus punctatus
+23 | Lutjanus analis
+24 | Lutjanus aratus
+25 | Lutjanus argentiventris
+26 | Lutjanus colorado
+27 | Lutjanus guttatus
+28 | Lutjanus novemfasciatus
+29 | Lutjanus peru
+30 | Mugil cephalus
+31 | Mugil curema
+32 | Oncorhynchus mykiss
+33 | Ophichthus zoprochir
+34 | Oreochromis aureus
+35 | Oreochromis niloticus
+Objetivo de Grupo Nombre Científico Cultivo #
+| | 36 | Parachromis dovii
+37 | Parachromis loisellei
+38 | Peprilus medius
+39 | Rhonciscus bayanus
+40 | Seriola lalandi
+41 | Seriola rivoliana
+42 | Thunnus albacares
+43 | Trachinotus carolinus
+44 | Trachinotus falcatus
+45 | Trachinotus kennedyi
+45
+Total Especies Consumo | 69
+Insumo para cultivos | Anélidos | 1 | Alitta virens
+2 | Hediste diversicolor
+3 | Perinereis brevicirris
+4 | Tubifex tubifex
+| | 4
+Microalgas | 1 | Chaetoceros gracilis
+2 | Chaetoceros muelleri
+3 | Chaetoceros neogracile
+4 | Isochrysis galbana
+5 | Microchloropsis gaditana
+6 | Nannochloropsis oculata
+7 | Tetraselmis chuii
+8 | Tetraselmis suecica
+| | 8
+Zooplancton | 1 | Artemia monica
+| 2 | Artemia salina
+| 3 | Brachionus plicatilis
+| 4 | Brachionus rotundiformis
+| 5 | Daphnia pulex
+| | 5
+Peces* | 1 | Dormitator latifrons
+| 2 | Joturus pichardi
+| | | 2
+Total Especies Insumos para Cultivo | 19
+88
+CON RESTRICCIÓN
+Objetivo de Cultivo | Grupo | # | Nombre Científico | Restricciones
+Consumo | Macroalgas | 1 | Sargassum fluitans | Para cosecha hay que tener cuidado porque al parecer vienen con metales pesados. Para cultivo podria usarse aunque son complicadas de cultivar, no se recomienda empezar cultivos con esta especie.
+2 | Sargassum natans | Para cosecha hay que tener cuidado porque al parecer vienen con metales pesados. Para cultivo podria usarse aunque son complicadas de cultivar, no se recomienda empezar cultivos con esta especie.
+3 | Turbinaria turbinata | Tiene potencial acuícola, se podria usar con su respectivo estudio y para experimentos de cultivo, cultivo en sistema cerrados
+Moluscos | 1 | Pomacea zeteki | Cultivo en sistemas cerrados. En la lista que se nos facilitó se indica como nativa, pero en la información de la FAO aparece como una especie introducida por el Gobierno. No existen más detalles al respecto
+Peces | 1 | Rachycentron canadum | Se recomienda que únicamente se cultive en la Costa Caribe, no el Pacífico
+Consumo Total | | | | 5
+Insumo para cultivos | Microalgas | 1 | Diacronema lutheri | Especie exótica, solo en sistema cerrado con el objetivo de alimento para otras especies
+2 | Dunaliella salina | Especie exótica, sin escalamiento en el país y el CIMAR recomienda no utilizar, sin embargo, esta Comisión recomienda utilizar bajo un sistema cerrado pues existe literatura científica que la respalda para la producción alimentos
+[imagen]
+Objetivo de Cultivo | Grupo | # | Nombre Científico | Restricciones
+| | 3 | Apocyclops royi | Especie exótica, se recomienda utilizarse solo en sistema cerrado con el objetivo de alimento para otras especies.
+4 | Calanus finmarchicus | Especie exótica, se recomienda utilizarse solo en sistema cerrado con el objetivo de alimento para otras especies.
+5 | Daphnia magna | Especie exótica, se recomienda utilizarse solo en sistema cerrado con el objetivo de alimento para otras especies.
+6 | Mysis diluviana | Potencial acuícola a nivel mundial pero al no haber experincias de su escalamiento en el país se requieren los permisos necesarios para su investigación
+7 | Oithona similis | No hay experiencias reportadas de su cultivo en el páis
+8 | Parvocalanus crassirostris | No hay experiencias reportadas de su cultivo en el páis
+9 | Tigriopus californicus | Especie exótica, se recomienda utilizarse solo en sistema cerrado con el objetivo de alimento para otras especies.
+10 | Tisbe biminiensis | Especie exótica, se recomienda utilizarse solo en sistema cerrado con el objetivo de alimento para otras especies.
+Insumo para cultivos Total | | | | 19
+Total | | | | 24
+REQUIEREN ESTUDIOS
+Objetivo de Cultivo Grupo Total Nombre Científico
+Consumo | Crustáceos | 1 | Macrobrachium amazonicum
+| 2 | Macrobrachium carcinus
+| 3 | Panulirus argus
+Equinodermos | 1 | Arbacia stellata
+Objetivo de Cultivo Grupo Total Nombre Científico
+| | 2 | Holothuria atra
+| 3 | Holothuria inornata
+| 4 | Holothuria theeli
+| 5 | Lytechinus variegatus
+| 6 | Tripneustes depressus
+| 7 | Tripneustes ventricosus
+Macroalgas | 1 | Asparagopsis taxiformis
+| 2 | Chaetomorpha sp.
+| 3 | Cladophora sp.
+| 4 | Codium isthmocladum
+| 5 | Codium spp.
+| 6 | Codium taylorii
+| 7 | Dictyota spp.
+| 8 | Gelidiella acerosa
+| 9 | Gracilaria domingensis
+| 10 | Gracilaria spp.
+| 11 | Gracilariopsis spp.
+| 12 | Halimeda discoidea
+| 13 | Halimeda opuntia
+| 14 | Halymenia spp.
+| 15 | Hypnea musciformis
+| 16 | Padina spp.
+| 17 | Sargassum acinarium
+| 18 | Sargassum liebmannii
+| 19 | Sargassum polyceratium
+| 20 | Spatoglossum schroederi
+| 21 | Spyridia filamentosa
+| 22 | Ulva lactuca
+| 23 | Ulva spp.
+Moluscos | 1 | Cornu aspersum
+| 2 | Glabaris luteolos
+| 3 | Modiolus americanus
+| 4 | Modiolus eiseni
+| 5 | Perna viridis
+| 6 | Pinctada mazatlanica
+| 7 | Polymesoda radiata
+| 8 | Pteria sterna
+| 9 | Spondylus limbatus
+Objetivo de Cultivo Grupo Total Nombre Científico
+| | 10 | Tagelus peruvianus
+Peces | 1 | Atractosteus tropicus
+| 2 | Epinephelus itajara
+| 3 | Ictalurus furcatus
+| 4 | Lobotes pacificus
+| 5 | Lobotes surinamensis
+| 6 | Megalops atlanticus
+| 7 | Osphronemus goramy
+| 8 | Parachromis managuensis
+TOTAL | | 51 |
+NO APTOS
+Objetivo de Cultivo Grupo Nombre Científico Total
+Consumo | Crustáceos | Penaeus monodon | 1
+Equinodermos | Isostichopus fuscus | 1
+Macroalgas | Anadyomene stellata | 1
+Caulerpa chemnitzia | 1
+Peces | Arapaima gigas | 1
+Salvelinus alpinus | 1
+Sciaenops ocellatus | 1
+Reptiles | Ctenosaura similis | 1
+Iguana Iguana | 1
+Consumo Total 9
+Insumo para cultivos | Microalgas | Chaetoceros sp | 1
+Chlorella sp | 1
+Coscinodiscus sp | 1
+Navicula sp. | 1
+Navicula tripunctata | 1
+Nitzschia obtusa var. brevissima | 1
+Nitzschia sp | 1
+Pseudo-nitzschia sp | 1
+Skeletonema sp. | 1
+Spirulina sp | 1
+Synechocystis sp. | 1
+Thalassiosira sp. | 1
+Insumo para 12 cultivos Total
+Total 21
+(Así reformado el cuadro 5 anterior por acuerdo N° AJDIP/183-2025 del 18 de setiembre de 2025)
 Cuadro 6: Lista de especies de peces, rayas, tiburones, crustáceos y moluscos de interés pesquero en el Mar Caribe costarricense.
 ORDEN | FAMILIA | NOMBRE CIENTÍFICO | NOMBRE VULGAR
 PECES
