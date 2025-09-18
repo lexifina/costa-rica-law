@@ -1,0 +1,1 @@
+Artículo 34.-Será aplicable a esta figura en forma supletoria la Ley de Tránsito por vías públicas terrestres y seguridad vial Nº9078, del 26 de octubre de 2012 y sus reformas, Reglamento para el Uso de Vehículos de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE) y el Reglamento Autónomo de Servicios de la CNE, así como cualquier otra normativa.

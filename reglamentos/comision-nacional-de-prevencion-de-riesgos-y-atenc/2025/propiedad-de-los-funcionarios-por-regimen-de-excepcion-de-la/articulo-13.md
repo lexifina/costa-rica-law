@@ -1,0 +1,1 @@
+Artículo 13.-Ejecución del contrato. La ejecución del contrato deberá ajustarse a los planes de trabajo y demás controles previamente establecidos y aprobados por la Dirección Ejecutiva, o por la persona a quien corresponda la ejecución de las actividades que fundamentan la figura contractual.

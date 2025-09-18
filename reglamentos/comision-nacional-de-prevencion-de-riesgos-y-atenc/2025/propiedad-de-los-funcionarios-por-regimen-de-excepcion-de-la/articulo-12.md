@@ -1,0 +1,1 @@
+Artículo 12.-Vigencia del contrato. El contrato tendrá una vigencia mínima de un mes y máximo un año, el plazo será prorrogable automáticamente por un mismo periodo siempre que se encuentre vigente su contrato laboral, y que no supere la vigencia del Decreto de Emergencia que le da sustento legal a la contratación del funcionario.

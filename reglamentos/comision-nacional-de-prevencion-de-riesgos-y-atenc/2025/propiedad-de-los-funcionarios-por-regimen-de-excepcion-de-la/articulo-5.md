@@ -1,0 +1,1 @@
+Artículo 5º-Exclusiones. Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de la Junta Directiva de la CNE, los funcionarios del Régimen Ordinario, Puestos de Confianza de la CNE, así como toda persona o asesor contratado por la CNE sin que medie relación laboral con la Institución.

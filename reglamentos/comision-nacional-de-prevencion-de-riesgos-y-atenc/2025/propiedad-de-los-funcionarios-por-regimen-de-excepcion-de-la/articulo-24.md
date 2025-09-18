@@ -1,0 +1,1 @@
+Artículo 24.-Corresponderá a la Unidad Administrativa que solicita el plan de inversión, presupuestar los recursos necesarios para el pago de kilometraje. No se puede autorizar giras con reconocimiento de kilometraje sin contar con el contenido presupuestario correspondiente, control que deberá implementar la Unidad Administrativa para la que labora el funcionario.
