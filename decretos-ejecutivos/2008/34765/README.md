@@ -24,3 +24,4 @@ Reglamento a la Ley General de Telecomunicaciones
 | 9 | 2019-07-31 | Decreto Ejecutivo 41913 (2019-07-31) |
 | 10 | 2024-06-20 | Decreto Ejecutivo 44539 (2024-06-20) |
 | 11 | 2024-11-12 | Decreto Ejecutivo 44822 (2024-11-12) |
+| 12 | 2025-09-18 | Decreto Ejecutivo 45195 (2025-09-18) |
