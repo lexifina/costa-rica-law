@@ -1,0 +1,1 @@
+Artículo 9º-Derogatoria. Deróguese el Decreto Ejecutivo N°31819-MEIC, Reglamento al Capítulo III de la Ley 8279 Sistema Nacional para la Calidad. Creación del Laboratorio Costarricense de Metrología, del 30 de abril de 2004, publicado en el Diario Oficial La Gaceta N° 112 del 09 de junio de 2004.
