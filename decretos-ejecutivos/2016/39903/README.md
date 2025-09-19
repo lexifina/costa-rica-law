@@ -15,3 +15,4 @@ Reglamento para la emisión de cartas del Ministerio de Comercio Exterior para i
 | --- | --- | --- |
 | 1 | 2016-10-05 | la propia norma |
 | 2 | 2024-01-10 | Decreto Ejecutivo 44464 (2024-01-10) |
+| 3 | 2025-09-19 | Decreto Ejecutivo 45347 (2025-09-19) |
