@@ -1,0 +1,24 @@
+JUNTA DE PROTECCIÓN SOCIAL
+INCENTIVO A PERSONAS VENDEDORAS
+DE LOTERÍA PREGONERAS AUTORIZADAS
+POR LA JUNTA DE PROTECCIÓN SOCIAL
+INCENTIVO DE DISPOSITIVO MÓVIL PARA
+LA VENTA LOTERÍA ELECTRÓNICA A PARTIR
+DEL AÑO 2025 Y HASTA EL AÑO 2026
+Este incentivo consiste en entregar un dispositivo móvil con impresora incorporada a las personas vendedoras de lotería pregoneras autorizadas por la Junta de Protección Social de Protección Social que deseen realizar la venta de loterías electrónicas por medio del celular o dispositivo móvil y que cumplan con las condiciones establecidas en este procedimiento. La cantidad asignada para distribuir será una unidad por persona.
+Apartado I. Consideraciones y aspectos importantes para este incentivo:
+1. Consiste en entregar un dispositivo móvil con impresora incorporada a las personas vendedoras de lotería pregoneras autorizadas por la Junta de Protección Social de Protección Social que deseen realizar la venta de loterías electrónicas por medio del celular o dispositivo móvil.
+2. Participan todas las personas físicas que sean vendedoras pregoneras autorizadas por la Junta de Protección Social de Protección Social (adjudicatarios, socios de cooperativa, vendedores por convenio), que retiren y comercialicen las loterías impresas e instantáneas de la Junta de Protección Social de Protección Social.
+3. El proceso para seleccionar a las personas vendedoras de lotería autorizadas por la Junta de Protección Social de Protección Social será de acuerdo a las solicitudes recibidas y que cumplan con las condiciones especiales establecidas en el apartado II. del presente procedimiento.
+Apartado II. Condiciones especiales:
+Para ser beneficiaria, la persona vendedora de lotería pregonera autorizada por la Junta de Protección Social de Protección Social deberá cumplir con las siguientes condiciones especiales:
+1. Participan personas vendedoras de lotería autorizadas por la Junta de Protección Social de Protección Social, que comercializan al pregón y que suscriban un convenio para la venta de loterías electrónicas. En adelante y para efectos de este procedimiento se denominan "vendedor participante".
+2. Haber completado el formulario de solicitud correspondiente, enviado al WhatsApp de los vendedores, administrado por el Departamento de Administración de Loterías el cual contendrá sus datos personales y la solicitud del equipo móvil o presentarse personalmente al Departamento de Ventas a completar la solicitud.
+3. Vender lotería nacional, popular e instantánea y haber retirado al cierre de la semana previa a la fecha de la solicitud, 5 paquetes de lotería Instantánea de cada juego que se encuentre vigente.
+4. Contar con una evaluación de bueno, muy bueno o excelente durante los últimos tres meses obtenida de los registros de la Consola Corporativa, previos a la fecha de haber completado el formulario.
+5. Suscribir documento de compromiso sobre el uso y cuidado del dispositivo concedido.
+-Entrega del incentivo, el dispositivo móvil será entregado de manera personal a cada persona participante, que haya cumplido con las condiciones especiales indicadas en el Apartado II.
+En el caso que la Junta de Protección Social decida realizar un acto formal de entrega de incentivos, la persona vendedora de lotería autorizada por la Junta de Protección Social de Protección Social que obtiene el dispositivo móvil debe presentarse de manera obligatoria en el lugar que sea convocado por la Junta de Protección Social de Protección Social, salvo en situaciones derivadas de fuerza mayor, caso fortuito u otras que impidan la entrega. Por lo que se reprogramará para otro día la entrega del dispositivo.
+Durante dicho acto, las personas vendedoras de lotería autorizada por la Junta de Protección Social de Protección Social favorecidas, si así lo desean y autorizan en forma escrita, se efectuará una toma de fotografía para publicar en redes sociales o en diferentes medios de acuerdo con el objetivo de este incentivo; dicha imagen será cedida y utilizada a título gratuito. Las personas vendedoras de lotería autorizada por la Junta de Protección Social de Protección Social favorecidas que así lo deseen brindarán autorización escrita para que la Junta de Protección Social utilice su imagen para los fines indicados.
+El presupuesto para el otorgamiento de estos incentivos se tomará de la partida de incentivos de la Junta de Protección Social " 6.02.99. Otros Incentivos para adjudicatarios y Concesionarios" La adquisición de los dispositivos se realizará bajo demanda durante el periodo de vigencia de este procedimiento.
+Rige y vigencia. Este incentivo a personas vendedoras de lotería autorizadas por la Junta de Protección Social de Protección Social rige a partir de su publicación en el Diario Oficial La Gaceta y estará vigente partir del año 2025 y hasta el año 2026.
