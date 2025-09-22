@@ -14,3 +14,4 @@ Adhesión de la Municipalidad de Coto Brus al Reglamento de Construcciones del I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-15 | la propia norma |
+| 2 | 2025-09-22 | Reglamento municipal 73 (2025-09-22) |
