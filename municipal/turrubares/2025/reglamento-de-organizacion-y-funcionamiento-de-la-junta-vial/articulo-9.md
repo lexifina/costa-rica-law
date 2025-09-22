@@ -1,0 +1,1 @@
+Artículo 9°-Será causal de destitución de los miembros, el incumplimiento de sus deberes o la ausencia injustificada a tres sesiones consecutivas o seis alternas injustificadas en el plazo de un año calendario.

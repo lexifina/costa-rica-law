@@ -1,0 +1,1 @@
+Artículo 6.-Dichos integrantes, para resultar legitimados como tales, deben ostentar el carácter de miembros del órgano, institución o sector que representan, de tal forma que extinguida esa condición igualmente fenecerá la representación dicha. Deben ser debidamente juramentados por el Concejo Municipal.

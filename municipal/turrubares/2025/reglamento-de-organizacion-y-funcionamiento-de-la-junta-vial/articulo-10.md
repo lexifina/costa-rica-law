@@ -1,0 +1,1 @@
+Artículo 10.-Será requisito para la existencia legal de la JV, así como para el inicio del ejercicio colegiado de sus competencias, que todos los miembros hayan sido nombrados e investidos previamente, mediante el solemne juramento constitucional realizado en sesión del Concejo Municipal.
