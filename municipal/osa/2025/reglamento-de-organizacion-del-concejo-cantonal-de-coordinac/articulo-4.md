@@ -1,0 +1,3 @@
+Artículo 4°-Sesiones del Consejo. El Consejo Cantonal de Coordinación Institucional de Osa sesionará ordinariamente, una vez al mes durante los 12 meses del año. Quedando establecido como día de reunión, los primeros miércoles de cada mes. Será convocado con al menos cinco días hábiles de anticipación por escrito por la alcaldía municipal, o por la vicealcaldía municipal en caso de tener delegada esa función por parte del Alcalde.
+Sesionará de manera extraordinaria, cuando el Alcalde(sa) quien lo presidirá convoque, o que al menos cinco de sus integrantes lo consideren necesario.
+Los acuerdos se aprobarán mediante mayoría absoluta de los votos de los representantes institucionales, acreditados y presentes en la sesión.

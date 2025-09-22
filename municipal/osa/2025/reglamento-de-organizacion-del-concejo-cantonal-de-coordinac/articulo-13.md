@@ -1,0 +1,1 @@
+Artículo 13.-Sobre las ausencias a las sesiones de trabajo. Cuando una persona integrante del Consejo Cantonal de Coordinación Institucional de Osa no pueda asistir a una reunión de trabajo, deberá justificar previamente esa circunstancia mediante oficio con un día hábil ESTO PORQUE LAS AGENDAS DE LOS JERARCAS PUEDEN VARIAR DE HOY PARA MAÑANA.
