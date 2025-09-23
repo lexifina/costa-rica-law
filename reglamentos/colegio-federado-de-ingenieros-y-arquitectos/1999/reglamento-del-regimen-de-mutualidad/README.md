@@ -23,3 +23,4 @@ Reglamento del Régimen de Mutualidad
 | 8 | 2015-07-28 | Reglamento 2 (2015-07-28) |
 | 9 | 2023-05-16 | Reglamento 2 (2023-05-16) |
 | 10 | 2024-11-27 | Reglamento 1 (2024-11-27) |
+| 11 | 2025-09-23 | Reglamento 2 (2025-09-23) |
