@@ -119,14 +119,12 @@ g) Código QR: Un código QR que al hacer lectura de él enlaza con la plataform
 SECCIÓN IV
 Procedimiento de uso del timbre
 digital en un documento
-10.-Uso del Timbre en un Documento: Este es el procedimiento para usar o colocar el timbre digital en un documento emitido por un Contador Público Autorizado:
-a) ¿Dónde se coloca el timbre?: El timbre, una vez activado y descargado al disco duro de su computadora se encuentra en formato de imagen jpg. Esta imagen se ha de incluir visible en el documento que se esté preparando, junto con la firma digital o física del Contador Público Autorizado, esto lo realizará de la siguiente forma:
+10. Uso del Timbre en un Documento: Este es el procedimiento para usar o colocar el timbre digital o físico en un documento emitido por un Contador Público Autorizado:
+a) ¿Dónde se coloca el timbre?: El timbre si es físico, junto a la firma física del CPA, si es digital una vez activado y descargado al disco duro de su computadora se encuentra en formato de imagen jpg. Esta imagen se ha de incluir visible en el documento que se esté preparando, junto con la firma digital del Contador Público Autorizado, esto lo realizará de la siguiente forma:
 i. Estando en el procesador de textos de su preferencia (por ejemplo, Microsoft Word), haga clic sobre el comando insertar imagen, o bien utilice el formato de PDF.
 ii. Diríjase al lugar de su disco duro donde guardó el timbre digital y selecciónelo para agregarlo al documento. Recuerde que también todos los timbres digitales activados están guardados en la sesión de "Mis Timbres" de la plataforma CPA DIGITAL.
 iii. Si fuese necesario redimensionar el tamaño de la imagen del timbre digital, ha de hacerse de tal manera que no afecte la lectura del código QR y que la información contenida en este siga siendo de fácil lectura.
-b) La firma digital: El CPA debe contar con el hardware y software necesario para aplicar una firma digital a los documentos que quiera expedir de manera digital, de acuerdo con los lineamientos emitidos por el Banco Central de Costa Rica y la Ley de certificados, firmas digitales y documentos electrónicos, su reglamento y la Política de Formatos Oficiales de los Documentos Electrónicos Firmados Digitalmente, promulgados por la Dirección de Certificadores de Firma Digital del Ministerio de Ciencia, Tecnología y Telecomunicaciones y cualquier otro documento emitido por el Estado Costarricense sobre el uso de firma digital.
-c) Fecha de activación del timbre digital: El documento que se esté realizando contendrá tres fechas que podrían ser diferentes entre sí: la fecha de activación del timbre digital, la de emisión del documento y la fecha de la firma digital. No obstante, la fecha del timbre digital no debe ser posterior a las otras dos fechas y que estas últimas no difieran en más de treinta días naturales con respecto a la del timbre digital.
-Ver Imagen N° 31 - Ejemplo de documento hecho por un CPA
+(Así reformado el punto 10) anterior en sesión N° 9 del 23 de setiembre de 2025)
 SECCIÓN V
 Custodia y acceso a la información brindada por el CPA
 11.-Custodia y acceso de la información: El Colegio de Contadores Públicos de Costa Rica administrará de forma segura la información contenida en la plataforma CPA DIGITAL en el apartado de timbre señalada en esta Circular.

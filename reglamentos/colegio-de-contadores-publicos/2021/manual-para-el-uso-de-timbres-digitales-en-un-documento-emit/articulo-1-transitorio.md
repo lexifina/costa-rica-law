@@ -1,3 +1,2 @@
 TRANSITORIO ÚNICO:
-El Colegio de Contadores Públicos de Costa Rica mantendrá la venta física (estampilla) del Timbre del CPA hasta el 31 de marzo de 2022 o en su defecto hasta agotar las existencias de especies físicas, lo que ocurra primero, con el entendido de que no se van a elaborar más estampillas del Timbre del Colegio de Contadores Públicos de Costa Rica. Lo que no contraviene la utilización de los timbres físicos o digitales en los diferentes documentos emitidos por un Contador Público Autorizado.
-Lo que no contraviene la utilización de los timbres físicos por parte del Contador Público Autorizado en los diferentes documentos que emita mientras tenga existencia o utilice también los timbres digitales.
+(Derogado en sesión N° 9 del 23 de setiembre de 2025)

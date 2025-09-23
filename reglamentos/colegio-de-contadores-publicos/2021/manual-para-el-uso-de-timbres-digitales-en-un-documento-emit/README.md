@@ -14,3 +14,4 @@ Manual para el uso de timbres digitales en un documento emitido por un contador 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-25 | la propia norma |
+| 2 | 2025-09-23 | Reglamento 9 (2025-09-23) |
