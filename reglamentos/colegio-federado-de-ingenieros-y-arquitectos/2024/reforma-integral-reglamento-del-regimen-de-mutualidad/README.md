@@ -14,3 +14,4 @@ Reforma integral Reglamento del régimen de mutualidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-13 | la propia norma |
+| 2 | 2025-09-23 | Reglamento 2 (2025-09-23) |
