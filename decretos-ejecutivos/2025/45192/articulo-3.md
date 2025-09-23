@@ -1,0 +1,1 @@
+Artículo 3º-El presente Decreto Ejecutivo se comunicará a la Secretaría de Integración Económica Centroamericana (SIECA) y a los gobiernos de los Estados Parte, a efecto de dar cumplimiento a lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
