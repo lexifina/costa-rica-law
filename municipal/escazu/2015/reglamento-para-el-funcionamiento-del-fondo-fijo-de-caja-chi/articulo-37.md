@@ -1,1 +1,0 @@
-Artículo 37o- El (la) Tesorero (a) Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. En la medida di ^posible [SIC] se debe tramitar una solicitud de reintegro por semana.

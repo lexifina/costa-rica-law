@@ -1,1 +1,0 @@
-Artículo 22o- La jefatura inmediata que firma el vale, es responsable de constatar que los bienes y/o servicios adquiridos, ingresaron conforme para el uso, según la justificación indicada en el vale Bajo ninguna circunstancia se podrá variar el objetivo inicial de una compra.

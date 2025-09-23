@@ -1,4 +1,0 @@
-CAPÍTULO SEGUNDO
-Del Vale o Adelanto
-Artículo 10o- El Vale de Caja Chica debe emitirse en original y copia, debidamente pre-numerado en forma consecutiva. Será suministrado a las jefaturas de las dependencias municipales, por el Proceso de Tesorería de la Municipalidad y corresponde al Formulario F-TES-01, que debe ser entregado inicialmente al área de Presupuesto, para la verificación del contenido económico.
-Es responsabilidad del (a) Tesorero (a) Municipal llevar un registro cronológico, que permita identificar los vales y su numeración asignados a cada dependencia. Asimismo, cada dependencia en la cabeza del funcionarlo asignado como custodio de los vales de caja chica, es responsable de velar por el cuido y resguardo de dichos comprobantes, así como reportar cualquier pérdida sin dilación alguna

@@ -1,1 +1,0 @@
-Artículo 33o- Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el (la) Tesorero (a), quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda, sin perjuicio de las sanciones disciplinarias que correspondan.

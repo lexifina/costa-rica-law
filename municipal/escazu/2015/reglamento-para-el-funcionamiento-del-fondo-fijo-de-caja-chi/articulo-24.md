@@ -1,8 +1,0 @@
-CAPÍTULO QUINTO
-Cajas Auxiliares
-Artículo 24o- El Fondo Fijo de Caja Chica podrá subdividirse en cajas auxiliares, las cuales aperarán como fondos fijos. En su creación y funcionamiento se deberán atender las siguientes disposiciones:
-a. La creación de las cajas auxiliares será definida en atención a las necesidades de cada Proceso, deberán ser autorizadas por el (la) Alcalde (sa) Municipal y por la Jefatura Inmediata del Proceso.
-b. La determinación del monto a asignar y la cantidad de cajas auxiliares, se definirá según necesidades del área, por el (la) Tesorero (a) Municipal, y la Jefatura Inmediata del Proceso al que se le asignará la caja auxiliar.
-c. El manejo de cada caja auxiliar estará a cargo de una persona que será designada por la Jefatura Inmediata del Proceso; esta persona deberá cumplir con la correcta operación de los fondos, de la custodia del efectivo, y de los respectivos comprobantes; asi como realizar la liquidación correspondiente al Fondo Fijo de Caja Chica administrado por el (la) Tesorero (a) Municipal, y solicitar los reintegros al fondo de la caja auxiliar
-d. Sin previo aviso la Auditoria Interna, y/o el (la) Tesorero (a) Municipal podrán realizar arqueos sorpresivos a las cajas auxiliares, en presencia de la persona designada para su manejo. A su vez será responsabilidad de la persona encargada de la caja auxiliar, realizar arqueos constantes al fondo asignado, para constatar la totalidad de los recursos asignados. Si al realizar el arqueo se produce un faltante o sobrante, se procederá de conformidad con la disposición emitida a! respecto para el Fondo Fijo de Caja Chica, en este Reglamento
-e. El fondo fijo de las cajas auxiliares se regirá por las disposiciones contenidas en este Reglamento.

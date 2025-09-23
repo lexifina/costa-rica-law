@@ -1,2 +1,0 @@
-Artículo 5- El monto del vale de caja chica se podrá aumentar, previa autorización de la Gerencia de Gestión Hacendaria, de forma semestral en los meses de junio y diciembre, siempre y cuando exista una solicitud de la Tesorería Municipal con su respectiva justificación con base a la cantidad de reintegros mensuales y requerimientos de las áreas.
-(Así reformado mediante sesión ordinaria N° 58 del 5 de junio del 2017)
