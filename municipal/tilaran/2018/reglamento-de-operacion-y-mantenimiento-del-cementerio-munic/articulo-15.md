@@ -1,2 +1,2 @@
-Artículo 15º. El concesionario, una vez iniciada la construcción, deberá terminarla en un plazo máximo de dos meses y deberá quedar pintada de color blanco (un 95% de su superficie, el otro 5 % puede pintarse de color gris opcional para detalles de acabados), además todos los nichos desocupados deben quedar sellados estricta y provisionalmente con material tipo gipsum o similar, para conservar el ornato del cementerio y prevenir la propagación y
-transmisión de enfermedades producidas por los mosquitos.
+Artículo 15.-El concesionario, una vez iniciada la construcción, deberá terminarla en un plazo máximo de dos meses y deberá quedar pintada de color blanco, además todos los nichos desocupados deben quedar sellados estricta y provisionalmente con material tipo gipsum o similar, para conservar el ornato del cementerio y prevenir la propagación y transmisión de enfermedades producidas por los mosquitos.
+(Así reformado en sesión N° 73 del 23 de setiembre de 2025)

@@ -14,3 +14,4 @@ Reglamento de operación y mantenimiento del cementerio municipal de Tilarán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
+| 2 | 2025-09-23 | Reglamento municipal 73 (2025-09-23) |

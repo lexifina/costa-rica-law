@@ -1,1 +1,2 @@
-Artículo 24. En caso de morosidad del concesionario en el pago del mantenimiento por más de un año de la cuota correspondiente, hechas tres notificaciones personales, o en su casa de habitación, o a su representante, se perderá el derecho de uso.
+Artículo 24.-En caso de morosidad del concesionario en el pago del mantenimiento por más de un año de la cuota correspondiente, la municipalidad realizará dos notificaciones en el lugar o medio definido por el concesionario para oír notificaciones; si se desatiende el requerimiento municipal, se perderá el derecho de uso; para así establecerse se deberá seguir el procedimiento establecido en el artículo 69 del presente reglamento.
+(Así reformado en sesión N° 73 del 23 de setiembre de 2025)
