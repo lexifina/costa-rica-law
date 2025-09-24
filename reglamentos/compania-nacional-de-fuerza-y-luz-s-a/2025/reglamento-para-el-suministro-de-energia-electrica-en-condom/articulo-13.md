@@ -1,0 +1,8 @@
+Artículo 13. Condiciones técnicas. Para todas las mediciones integrales se debe tomar en cuenta las siguientes condiciones técnicas señaladas a continuación:
+a) La CNFL aprobará los elementos presentados en la hoja de datos por la parte interesada, para lo cual tendrá un plazo máximo de cinco días hábiles para dar respuesta a la solicitud.
+b) Con la aprobación de la hoja de datos, la parte interesada procederá con la compra de los elementos.
+En caso de que los elementos incluyan transformadores de potencial y de corriente que vayan a ser instalados en celdas de medición o bóvedas de medición, deberán estar listados para uso interior.
+c) La CNFL dará el visto bueno a las características de la ubicación definitiva de la medición, previa revisión de planos e inspección. Los medidores que se instalen en todos los proyectos serán de Infraestructura Avanzada de Medición (AMI), el cual será vendido por la CNFL. En caso de no haber medidores para la venta directa por la CNFL, la parte interesada deberá:
+i. Adquirir el medidor mediante un proveedor externo, dicha adquisición debe contar con visto bueno de la CNFL, otorgado por la sucursal asignada.
+ii. A cada medidor adquirido se le asignará la numeración del Laboratorio de medidores de la CNFL, mediante coordinación del proveedor externo con el Laboratorio de Sistemas de Medición Energía Eléctrica (LASIMEE). El medidor deberá ser entregado a LASIMEE en un plazo de 25 días hábiles previo a la fecha de instalación para que sea calibrado y programado conforme a las especificaciones definidas para la medición integral del proyecto. LASIMEE devuelve el medidor a la parte interesada.
+iii. La parte interesada entrega el medidor a la sucursal asignada para proceder con la instalación.
