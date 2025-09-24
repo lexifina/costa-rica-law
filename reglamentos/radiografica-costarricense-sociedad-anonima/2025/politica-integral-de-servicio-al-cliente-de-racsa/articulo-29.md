@@ -1,0 +1,1 @@
+Artículo 29.-Segmentación y Personalización del Servicio: RACSA debe buscar en forma permanente segmentar e identificar a sus clientes, para lograr un conocimiento pleno de sus necesidades o requisitos particulares, clasificándolas en requisitos básicos y requisitos deseables, con el fin de ofrecerle un servicio totalmente ajustado a sus necesidades.

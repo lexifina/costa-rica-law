@@ -1,0 +1,1 @@
+Artículo 36.-Programas de Fidelización de Clientes: Se debe desarrollar e implementar programas de fidelización de clientes para fomentar la lealtad y retención a largo plazo. Estos programas deben estar diseñados para recompensar a los clientes por su continua preferencia y proporcionar beneficios exclusivos que fortalezcan la relación con la organización.

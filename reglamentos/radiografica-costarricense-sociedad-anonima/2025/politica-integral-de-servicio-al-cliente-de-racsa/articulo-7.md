@@ -1,0 +1,1 @@
+Artículo 7º-Homogeneización de Procesos y Prácticas: RACSA debe buscar en todo momento mantener procesos y prácticas homogéneas de atención al cliente, a todo nivel, respetando las líneas de negocio y las características propias de cada segmento. Se procurará alinear las prácticas de RACSA con las establecidas en el resto de las empresas del Grupo ICE.

@@ -1,0 +1,1 @@
+Artículo 12.-Calidad del Trato y Ambiente en los Puntos de Contacto con los Clientes: RACSA debe garantizar que el trato a los clientes ya sea a través de personal propio o contratado, en cualquiera de los puntos de contacto con los clientes, se lleve a cabo con los más altos niveles de calidad, en términos de la atención ofrecida, en un ambiente limpio y confortable.

@@ -1,0 +1,1 @@
+Artículo 21.-Prioridad en el Servicio al Cliente: Se debe procurar que la mayoría de las consultas y solicitudes de los clientes sean atendidos y resueltos en el primer contacto que se tenga con ellos.

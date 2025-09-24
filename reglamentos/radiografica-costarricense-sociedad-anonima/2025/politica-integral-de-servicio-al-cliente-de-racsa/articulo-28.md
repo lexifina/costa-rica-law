@@ -1,0 +1,1 @@
+Artículo28.-Planificación Estratégica de Infraestructura: RACSA debe planificar y proveer la infraestructura necesaria para el desarrollo de los servicios, teniendo en cuenta las necesidades y expectativas de los clientes, el avance socioeconómico del país y los mercados internacionales.

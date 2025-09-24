@@ -1,0 +1,1 @@
+Artículo 30.-Desarrollo de Infraestructura y Servicios: El desarrollo de infraestructura y servicios de RACSA deben ser acordes con la dinámica de desarrollo y proyección de su demanda y las necesidades de los distintos segmentos del mercado y líneas de negocio. Para esto se debe efectuar una planificación adecuada que permita contar con los servicios en forma oportuna.

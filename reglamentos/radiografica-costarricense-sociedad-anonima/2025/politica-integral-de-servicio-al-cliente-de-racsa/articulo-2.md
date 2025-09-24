@@ -1,0 +1,1 @@
+Artículo 2º-Cultura Organizacional: La Gerencia General y todo el personal de RACSA deben desarrollar una cultura organizacional centrada en brindar un servicio excepcional al cliente y a la sociedad en general, disponiendo en todo momento con el recurso humano competente y motivado para atender las necesidades de los clientes.

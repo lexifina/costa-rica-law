@@ -1,0 +1,1 @@
+Artículo 16.-Ambiente y Sostenibilidad: Los servicios brindados por RACSA a sus clientes están apegados a la Política Ambiental de RACSA y demás disposiciones del Grupo ICE garantizando la sostenibilidad del medio ambiente.

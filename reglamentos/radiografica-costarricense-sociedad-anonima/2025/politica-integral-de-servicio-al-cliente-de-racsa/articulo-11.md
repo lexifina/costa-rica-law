@@ -1,0 +1,1 @@
+Artículo 11.-Garantía de Suministro de Productos y Servicios: En todas las áreas de RACSA se debe garantizar el suministro de los productos y servicios de conformidad con los compromisos adquiridos con los clientes, de forma que se logre satisfacer las necesidades y expectativas de los mismos.

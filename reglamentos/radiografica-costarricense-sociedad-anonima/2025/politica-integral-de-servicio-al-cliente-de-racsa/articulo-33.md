@@ -1,0 +1,1 @@
+Artículo 33.-Continuidad del Servicio y Gestión de Crisis: Se deben crear planes de contingencia y gestión de crisis para asegurar la continuidad del servicio en todos los puntos de contacto y procesos relacionados con la atención al cliente, minimizando cualquier interrupción y garantizando que los clientes reciban soporte continuo en situaciones imprevistas.

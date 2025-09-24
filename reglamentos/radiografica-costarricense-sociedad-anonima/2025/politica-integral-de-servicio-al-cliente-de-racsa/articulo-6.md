@@ -1,0 +1,1 @@
+Artículo 6º-Coordinación y Estandarización de Recursos y Procedimientos: La Gerencia General de RACSA debe velar porque en todas las áreas se cuente con los recursos y procedimientos coordinados, eficientes y estandarizados en todo lo relacionado con la gestión del Servicio al Cliente, promoviendo el uso intensivo de las tecnologías de información y la innovación.

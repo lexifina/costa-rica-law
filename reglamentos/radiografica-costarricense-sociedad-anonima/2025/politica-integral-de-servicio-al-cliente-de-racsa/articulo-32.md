@@ -1,0 +1,1 @@
+Artículo 32.-Monitoreo y Evaluación de la Calidad del Servicio: Se debe establecer un sistema de monitoreo y evaluación de la calidad del servicio al cliente, asegurando que todos los puntos de contacto y procesos relacionados con la atención al cliente sean evaluados regularmente para identificar y corregir posibles deficiencias.

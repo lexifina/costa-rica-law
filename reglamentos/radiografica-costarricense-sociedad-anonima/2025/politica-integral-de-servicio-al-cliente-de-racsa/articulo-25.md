@@ -1,0 +1,1 @@
+Artículo 25.-Compromiso con la Protección y Cumplimiento Normativo: La Gerencia General debe procurar, por todos los medios al alcance, el cumplimiento de todas las normas internas y externas, jurídicas y administrativas, relacionadas con la protección y resguardo de los derechos e intereses de los clientes.

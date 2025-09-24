@@ -1,0 +1,1 @@
+Artículo 22.-Seguimiento Transparente y Oportuno de Solicitudes: Se debe garantizar la disponibilidad de mecanismos para el seguimiento de todas las solicitudes de los clientes, de tal manera que se pueda identificar en cualquier momento el estado de los mismos y poder comunicarlos a tiempo según los acuerdos de nivel de servicio.

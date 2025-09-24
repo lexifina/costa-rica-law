@@ -1,0 +1,1 @@
+Artículo 14.-Criterios de Conformidad: Los criterios de aceptación de conformidad de los servicios deben ser uniformes para todas las áreas internas de RACSA y deben estar alineados a su vez con los Socios Comerciales y también con el resto de las empresas del Grupo ICE.

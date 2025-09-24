@@ -1,0 +1,1 @@
+Artículo 5º-Evaluación de Colaboradores y Socios Comerciales: La Gerencia General debe velar porque en sus sistemas de evaluación de colaboradores y de Socios Comerciales, se incluyan los elementos necesarios para garantizar que el personal y los servicios sean evaluados en relación con su actuación frente a los clientes.

@@ -1,0 +1,1 @@
+Artículo 17.-Accesibilidad y Comunicación: RACSA debe buscar, identificar y proveer mecanismos que permitan que la organización y sus servicios sean más accesibles a los clientes, facilitando la comunicación entre el cliente y la Empresa, aprovechando para esto los medios tecnológicos disponibles y facilitando los trámites y solicitudes.

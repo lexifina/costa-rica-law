@@ -1,0 +1,1 @@
+Artículo 27.-Auditorías: Se debe mantener un sistema permanente de asesoría y verificación de cumplimiento de las normativas con el fin de mejorar la calidad de atención al cliente, incluyendo las relacionadas con la confidencialidad y privacidad de la información de los clientes.

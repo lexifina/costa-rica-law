@@ -1,0 +1,1 @@
+Artículo 42.-Gestión de Expectativa del Cliente: Se debe gestionar las expectativas de los clientes de manera efectiva y transparente. Este enfoque implica comunicar claramente lo que los clientes pueden esperar de los productos y servicios, cumplir consistentemente las promesas hechas y ser transparente sobre las limitaciones o posibles problemas.
