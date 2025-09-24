@@ -1,0 +1,19 @@
+ARTICULO 3. ABREVIATURAS
+CNDR = Consejo Nacional del Deporte y la Recreación
+ICODER = Instituto Costarricense del Deporte y la Recreación
+CPSN = Comisión Permanente de Selecciones Nacionales
+CON = Comité Olímpico Nacional
+CPN= Comité Paralímpico Nacional
+COI = Comité Olímpico Internacional
+IPC= Comité Paralímpico Internacional
+EDRN = Entidad Deportiva de Representación Nacional
+JJOO = Juegos Olímpicos
+JJPP = Juegos Paralímpicos
+JPA = Juegos Panamericanos
+JCyCa = Juegos Centroamericanos y del Caribe
+JCA= Juegos Centroamericanos
+JOJ= Juegos Olímpicos de la Juventud
+JPJ= Juegos Panamericanos de la Juventud
+INT = Internacional
+AVAN = Avanzado
+ASCEN = Ascenso

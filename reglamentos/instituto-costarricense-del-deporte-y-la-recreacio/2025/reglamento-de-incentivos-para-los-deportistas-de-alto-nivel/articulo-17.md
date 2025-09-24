@@ -1,0 +1,4 @@
+ARTÍCULO 17 ATLETAS/ PARAATLETAS CLASIFICADOS A EVENTOS DEL CICLO OLÍMPICO Y PARALÍMPICO
+17.1 Toda persona atleta/ paraatleta clasificado a los Juegos Olímpicos, Juegos de la Juventud y Juegos Paralímpicos por invitación, podrá recibir el monto económico de la siguiente manera:
+17.1.1 Hasta un 100% del monto indicado en la tabla de eventos del Ciclo Olímpico / Paralímpico, para aquellos atletas/ paraatletas clasificados a los Juegos Olímpicos, Juegos de la Juventud y Juegos Paralímpicos, cuando la Comisión Tripartita envía la invitación de participación a este evento a un atleta porque ha estado muy cerca de la clasificación directa a este evento.
+17.1.2 Para los casos donde se aplique el principio de universalidad el atleta/ paraatleta recibirá hasta un 50% del monto indicado en la tabla de eventos del Ciclo Olímpico / Paralímpico.
