@@ -15,3 +15,4 @@ Deshabilitación de las plataformas digitales tributarias e Implementación del 
 | --- | --- | --- |
 | 1 | 2025-07-11 | la propia norma |
 | 2 | 2025-08-27 | Resolución 43 (2025-08-27) |
+| 3 | 2025-09-24 | Resolución 50 (2025-09-24) |
