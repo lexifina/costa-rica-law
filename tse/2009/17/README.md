@@ -25,3 +25,4 @@ Reglamento sobre el Financiamiento de los Partidos Políticos
 | 10 | 2021-09-30 | Decreto TSE 12 (2021-09-30) |
 | 11 | 2023-09-22 | Decreto TSE 11 (2023-09-22) |
 | 12 | 2025-09-25 | Decreto TSE 20 (2025-09-25) |
+| 13 | 2025-09-25 | Decreto TSE 19 (2025-09-25) |
