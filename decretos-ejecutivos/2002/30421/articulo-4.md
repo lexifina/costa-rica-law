@@ -1,17 +1,12 @@
-Artículo 4º—La Compañía Nacional de Danza tendrá un Director Artístico de libre nombramiento del Ministro de Cultura, Juventud y Deportes, cuyas funciones serán:
-a- Preparar y proponer al Consejo Asesor las políticas que regirán la Compañía durante el período de su nombramiento.
-b- Preparar y presentar al Consejo Asesor la propuesta anual del plan de trabajo del presupuesto que requerirá el programa.
-c- Preparar y proponer al Consejo Asesor la propuesta de espectáculos y otras actividades de la Compañía.
-d- Preparar y presentar a la Junta Directiva del Teatro Popular Melico Salazar los informes periódicos y finales de gestión, resultados y rendimiento de cuentas, conocidos por el Consejo Asesor.
-e- Promover la difusión y presentación de la Compañía Nacional de Danza dentro y fuera del país.
-f- Proponer al Consejo Asesor la programación de espectáculos que incluya la invitación de coreógrafos de conocida trayectoria profesional y artística.
-g- Proponer al Consejo Asesor las contrataciones temporales que se requieran de bailarines, maestros de danza, asistentes técnicos, coreógrafos invitados y cualquier otro profesional y técnico.
-h- Comunicar al Consejo Asesor los informes periódicos y finales de gestión, resultados rendimiento de cuentas.
-i- Velar porque se lleve un archivo general histórico de los espectáculos de la Compañía Nacional de Danza que incluya: programas de mano, afiches, fotografías, videos, comentarios y críticas, anuncios e invitaciones y todo documento relacionado con el quehacer de la Compañía.
-j- Velar por el perfeccionamiento técnico del elenco de la Compañía y la calidad de sus ejecuciones.
-k- Convocar a las audiciones para la contratación de miembros del cuerpo de baile y presidir los jurados.
-1- Designar a los maestros de danza de la Compañía y establecer conjuntamente con ellos el programa general de clases.
-m- Dirigir no más de dos coreografías en el año con el elenco de la Compañía Nacional de Danza.
-n- Participar en el grupo evaluador a que se refiere el artículo 8 de este Reglamento.
-o- Coordinar las actividades que se realicen en el Teatro 1887.
-p- Cualquier otra labor compatible con su cargo que le sea encomendada por la Junta Directiva del Teatro Popular Melico Salazar o la Dirección Ejecutiva del Teatro.
+Artículo 4. La Compañía Nacional de Danza tendrá-una persona directora artística de libre nombramiento y remoción por parte de la persona Ministra de Cultura y Juventud, cuyas funciones serán:
+1. Velar por el perfeccionamiento técnico del elenco de- la Compañía y la buena calidad de sus ejecuciones técnicas e interpretativas.
+2. Planificar y programar la creación de nuevas obras coreográficas de calidad que formen parte del repertorio y de los montajes de las Temporadas.
+3. Realizar la convocatoria de Audiciones para la selección de bailarines para el elenco.
+4. Diseñar la herramienta de Audición para la selección de los bailarines del elenco y presidir el Jurado.
+5. Seleccionar los Artistas, Maestros de Danza y Ballet, o Colaboradores externos e indicar el plan a seguir para lograr los resultados en tiempo y forma.
+6. Dirigir no más de dos coreografías en el año con el elenco de la Compañía Nacional de Danza.
+7. Supervisar las actividades que se realicen en el Teatro de la Danza.
+8. Cualquier otra labor compatible con su cargo que le sea encomendada por la Junta Directiva o la Dirección Ejecutiva, ambas del Teatro Popular Melico Salazar.
+9. Velar porque se lleve un archivo general histórico de los espectáculos de la Compañía Nacional de Danza que incluya: programas de mano, afiches: fotografías, videos, comentarios y críticas, anuncios e invitaciones y todo documento relacionado con el quehacer de la Compañía.
+10. Realizar todas las labores administrativas que el cargo requiera.
+(Así reformado por el artículo 12 del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

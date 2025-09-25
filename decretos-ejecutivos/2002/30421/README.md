@@ -14,3 +14,4 @@ Ajusta el marco legal regulatorio de la Compañía Nacional de Danza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-06 | la propia norma |
+| 2 | 2025-09-25 | Decreto Ejecutivo 45260 (2025-09-25) |
