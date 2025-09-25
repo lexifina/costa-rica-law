@@ -14,3 +14,4 @@ Reglamento sobre el registro de Contadores Públicos Autorizados para los servic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-02 | la propia norma |
+| 2 | 2025-09-25 | Decreto TSE 18 (2025-09-25) |
