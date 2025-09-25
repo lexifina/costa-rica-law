@@ -14,3 +14,4 @@ Reglamento sobre condiciones de operación y control de emisiones de instalacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-01 | la propia norma |
+| 2 | 2025-09-25 | Decreto Ejecutivo 45318 (2025-09-25) |
