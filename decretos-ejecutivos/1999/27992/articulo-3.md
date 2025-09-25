@@ -1,1 +1,1 @@
-Artículo 3.- El Taller Nacional de Teatro tendrá un Consejo Asesor integrado por un representante del Ministro de Cultura Juventud y Deportes y dos miembros de libre nombramiento del Ministro de Cultura Juventud y Deportes, que durarán en sus cargos dos años y podrán ser reelectos. Los nombramientos que se realicen para llenar vacantes, serán por el resto del período del miembro saliente.
+Artículo 3.- (Derogado por el artículo 13 incios c) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

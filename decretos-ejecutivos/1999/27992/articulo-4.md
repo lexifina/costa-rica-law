@@ -1,1 +1,1 @@
-Artículo 4°.- Corresponderá al Consejo Asesor brindar las recomendaciones y consejos que se requieran a efecto de que el Taller cumpla eficientemente con los objetivos a los que se refiere el artículo 1.
+Artículo 4°.- (Derogado por el artículo 13 inciso c) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

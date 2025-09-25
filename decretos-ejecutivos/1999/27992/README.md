@@ -15,3 +15,4 @@ Constituye Taller Nacional de Teatro como un programa del Teatro Melico Salazar
 | --- | --- | --- |
 | 1 | 2000-01-01 | la propia norma |
 | 2 | 2000-01-01 | SINALEVI (sin norma nombrada) |
+| 3 | 2025-09-25 | Decreto Ejecutivo 45260 (2025-09-25) |
