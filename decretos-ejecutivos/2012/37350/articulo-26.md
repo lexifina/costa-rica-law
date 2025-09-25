@@ -1,1 +1,0 @@
-Artículo 26°—El banco y el centro de recolección de leche humana deben contar o tener acceso a un área administrativa en donde realizar las actividades de preselección de las donadoras de leche humana, con un espacio no menor de seis metros cuadrados.

@@ -1,1 +1,0 @@
-Artículo 22°—El banco y el centro de recolección de leche humana deben tener puertas que abran hacia afuera o corredizas, tener un mecanismo automático de cierre, deben ajustarse completamente a los marcos, de material que facilite su limpieza y ancho de apertura de al menos noventa centímetros.

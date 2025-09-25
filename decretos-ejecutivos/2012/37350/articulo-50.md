@@ -1,1 +1,0 @@
-Artículo 50°—El banco y el centro de recolección de leche humana debe contar con un mural ubicado en un lugar visible, adonde se especifiquen los derechos y deberes de las personas usuarias, contemplados en la Ley Nº 8239, “Derechos y deberes de las personas usuarias de los servicios de salud públicos y privados”.

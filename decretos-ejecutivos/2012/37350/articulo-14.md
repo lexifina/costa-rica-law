@@ -1,1 +1,0 @@
-Artículo 14°—El banco y el centro de recolección de leche humana deben tener piso, paredes, puertas, ventanas y cielo raso en buen estado de conservación, uso y funcionamiento, pintadas de color claro, con las puertas en tono contraste.

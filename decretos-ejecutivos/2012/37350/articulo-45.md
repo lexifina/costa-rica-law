@@ -1,1 +1,0 @@
-Artículo 45°—El banco y el centro de recolección de leche humana deben asegurar el cumplimiento de un programa de mantenimiento preventivo y correctivo de los equipos. Debe existir evidencia escrita del cumplimiento de este plan.

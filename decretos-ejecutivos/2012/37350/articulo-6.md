@@ -1,1 +1,0 @@
-Artículo 6°—La responsabilidad técnica del procesamiento de la leche humana extraída es del microbiólogo químico clínico y asistentes de laboratorio. Estos últimos deben ser supervisados por el Microbiólogo Químico Clínico.

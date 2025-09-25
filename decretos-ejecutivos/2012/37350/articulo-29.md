@@ -1,1 +1,0 @@
-Artículo 29°—El banco y el centro de recolección de leche humana deben contar o tener acceso a una sala de espera, que cuente con un área de 1.5 metros cuadrados por persona, la cual puede ser compartida con otros servicios.

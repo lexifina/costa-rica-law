@@ -1,1 +1,0 @@
-Artículo 19°—El banco y el centro de recolección de leche humana deben tener paredes de acabado liso, no poroso, de color claro, impermeables y de fácil lavado. Las uniones entre pared y pared, pared y piso deben ser cóncavas.

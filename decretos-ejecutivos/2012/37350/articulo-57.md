@@ -1,1 +1,0 @@
-Artículo 57°—El banco y el centro de recolección de leche humana deben disponer de sus desechos según lo estipula el Reglamento sobre la gestión de los desechos infecto-contagiosos que se generan en establecimientos que presten atención a la salud y afines.

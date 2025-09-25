@@ -1,1 +1,0 @@
-Artículo 46°— El banco y el centro de recolección de leche humana deben asegurar el cumplimiento de un programa capacitación a su personal. Debe existir evidencia escrita del cumplimiento de este plan.

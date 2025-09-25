@@ -1,1 +1,0 @@
-Artículo 21°—El banco y el centro de recolección de leche humana deben tener cielo raso liso, de color claro, con recubrimiento impermeable de fácil lavado y de diseño que no acumule polvo, ubicado a una altura al menos de dos metros y cincuenta centímetros del piso.

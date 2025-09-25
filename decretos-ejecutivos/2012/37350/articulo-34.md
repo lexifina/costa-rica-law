@@ -1,1 +1,0 @@
-Artículo 34°—El banco de leche humana debe contar con un área para la recepción de la recolección externa de leche humana extraída cruda, que posea condiciones que permitan recibir la leche humana extraída cruda, sin riesgo de contaminación y debe tener acceso directo con el área de procesamiento.

@@ -1,1 +1,0 @@
-Artículo 17°—El banco y el centro de recolección de leche humana deben tener luces de emergencia con una autonomía de al menos treinta minutos, cuando no hay acceso a fuente secundaria de electricidad.

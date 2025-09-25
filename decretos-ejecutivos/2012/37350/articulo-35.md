@@ -1,1 +1,0 @@
-Artículo 35°—El banco de leche humana debe contar con un área de acceso restringido y uso exclusivo para el procesamiento, control de calidad, almacenamiento y distribución de leche humana extraída, en donde la línea de proceso este organizada en secuencia lógica para que no se dé cruces y asegurar la inocuidad de la leche humana.

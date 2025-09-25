@@ -1,1 +1,0 @@
-Artículo 12°—El banco y el centro de recolección de leche humana deben asegurar que el recurso humano encargado de realizar las actividades operativas de proceso, administrativas y de limpieza, tenga la capacitación para realizar dichas funciones en el establecimiento.

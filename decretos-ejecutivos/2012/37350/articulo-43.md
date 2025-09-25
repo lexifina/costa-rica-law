@@ -1,1 +1,0 @@
-Artículo 43°—El banco y el centro de recolección de leche humana deben tener disponibles guías técnicas basadas en el manual de normas para el funcionamiento de bancos y centros de recolección de leche humana.

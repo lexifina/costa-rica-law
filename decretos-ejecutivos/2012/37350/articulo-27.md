@@ -1,1 +1,0 @@
-Artículo 27°—El banco de leche humana y el centro de recolección de leche humana deben contar o tener acceso a un consultorio en donde realizar las actividades de selección de las donadoras de leche humana. Este consultorio debe cumplir con la normativa vigente

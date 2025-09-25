@@ -1,1 +1,0 @@
-Artículo 32°—El banco y el centro de recolección de leche humana deben contar con un área de acceso restringido y uso exclusivo para la extracción de la leche materna, con espacio de al menos dos metros cuadrados por donadora y con acceso a una estación de lavado de manos debidamente instalada.
