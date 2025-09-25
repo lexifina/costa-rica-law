@@ -1,0 +1,1 @@
+Artículo 10º-Deber de discreción y confidencialidad. La Contraloría de Servicios garantizará la discreción y la confidencialidad en el uso y manejo de la información que recibe, así como la contenida en la base de datos de la Contraloría de Servicios.

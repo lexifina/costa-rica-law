@@ -1,0 +1,1 @@
+Artículo 4º-Todos los procedimientos que se regulan en el presente reglamento deben observar los principios de equidad, celeridad, legalidad, razonabilidad, proporcionalidad, confidencialidad y deber de probidad.

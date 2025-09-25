@@ -1,0 +1,1 @@
+Artículo 9º-Informe de labores: La Contraloría de Servicios deberá presentar a la Secretaría Técnica un Informe de labores acorde con la guía metodológica propuesta por esa dependencia. La fecha máxima de presentación del mismo será el 30 de marzo de cada año.

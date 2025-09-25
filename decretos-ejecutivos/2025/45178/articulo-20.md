@@ -1,0 +1,1 @@
+Artículo 20º-Denuncia Confidencial. Las denuncias podrán ser interpuestas de manera confidencial por las personas usuarias o sus representantes, que ante un hecho presuntamente irregular se consideren afectadas.

@@ -1,0 +1,1 @@
+Artículo 22º-Implementación de recomendaciones. El Ministro (a) de Economía, Industria y Comercio conocerá y valorará la implementación de las recomendaciones emitidas por la Contraloría de Servicios para el mejoramiento de los trámites y servicios realizados a nivel institucional.

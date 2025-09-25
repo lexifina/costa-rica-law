@@ -1,0 +1,1 @@
+Artículo 12º-Traslado de asuntos a otras instancias. Las violaciones que se cometan contra los derechos de las personas usuarias y las irregularidades detectadas en la prestación de los servicios serán trasladadas por la Contraloría de Servicios a las instancias competentes para la eventual aplicación del régimen sancionatorio en la Institución.

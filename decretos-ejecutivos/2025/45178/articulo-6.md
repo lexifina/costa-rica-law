@@ -1,0 +1,1 @@
+Artículo 6º-Funciones. La Contraloría de Servicios debe realizar las funciones establecidas de manera detallada en el artículo 14 de Ley Reguladora del Sistema Nacional de Contralorías de Servicios, Ley N° 9158, y del artículo 11 de su reglamento.

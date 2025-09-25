@@ -1,0 +1,1 @@
+Artículo 17º-De las personas usuarias. Toda persona física o jurídica podrá plantear ante la Contraloría de Servicios las gestiones de forma verbal, escrita o electrónica. Las consultas, sugerencias, felicitaciones, inconformidades, denuncias y solicitudes de información pública.

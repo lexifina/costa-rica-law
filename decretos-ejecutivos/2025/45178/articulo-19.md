@@ -1,0 +1,1 @@
+Artículo 19º-Presentación de denuncias y plazos de respuesta: La presentación de las denuncias se encuentra regulada en el CAPÍTULO VIII, Procedimientos para la presentación y atención de gestiones ante la Contraloría de Servicios de la Ley N°9158 y CAPÍTULO V del reglamento.
