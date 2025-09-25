@@ -1,0 +1,5 @@
+ARTÍCULO 2- Se adicionan los incisos d) y e) al artículo 21 de la Ley 7210, Ley de Régimen de Zonas Francas, de 23 de noviembre de 1990. Los textos son los siguientes:
+Artículo 21- Además de los incentivos fiscales, antes indicados, las empresas establecidas en las zonas francas podrán solicitar a la empresa administradora de cada una de ellas o a la Corporación, los siguientes beneficios:
+(...)
+d) El establecimiento de convenios de cooperación entre las empresas de la zona franca y los centros educativos públicos y privados, para impartir cursos y apoyar en las investigaciones a los empleados que lo requieran en la zona franca, así como para acreditar y reconocer los estudios, la capacitación y los logros a los empleados de las empresas participantes, y según su reglamentación interna y requisitos.
+e) Facilitar, en caso de que las condiciones de infraestructura así lo permitan, un espacio físico para que las empresas establezcan un área de estudio e investigación, dentro de la zona franca, para sus colaboradores, de acuerdo con lo establecido en el artículo 4, incisos m) y n) de esta ley.
