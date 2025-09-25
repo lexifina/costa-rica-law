@@ -1,1 +1,2 @@
-Artículo 7°-La Compañía Nacional de Teatro tendrá su sede administrativa en el Teatro Popular Melico Salazar, de conformidad con lo establecido en el artículo 3 inciso a) de la Ley N° 7023 del 13 de marzo de 1986, y ocupará las instalaciones del Teatro de la Aduana y del Teatro FANAL.
+Artículo 7°- La Compañía Nacional de Teatro tendrá su sede administrativa en el Teatro Popular Metica Salazar, de conformidad con lo establecido en el artículo 3 inciso a) de la Ley Nº 7023 del 13 de. marzo de 1986, y ocupará las instalaciones del Teatro de la Aduana Alberto Cañas Escalante y del Teatro 1887.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

@@ -14,3 +14,4 @@ Constituye la Compañía Nacional de Teatro un programa del Teatro Popular Méli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-01 | la propia norma |
+| 2 | 2025-09-25 | Decreto Ejecutivo 45260 (2025-09-25) |

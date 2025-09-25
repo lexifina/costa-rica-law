@@ -1,1 +1,1 @@
-Artículo 3°-Perderá su calidad de miembro del Consejo quien dejase de asistir sin justa causa a tres sesiones consecutivas o a seis no consecutivas en un período de seis meses. El Consejo sesionará ordinariamente dos veces al mes y extraordinariamente cuando sea necesario.
+Artículo 3°-(Derogado por el artículo 13 inciso b) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)
