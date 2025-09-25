@@ -1,4 +1,5 @@
 articulo-1.md
+articulo-1-bis.md
 articulo-2.md
 articulo-3.md
 articulo-4.md
@@ -13,6 +14,7 @@ articulo-12.md
 articulo-13.md
 articulo-14.md
 articulo-15.md
+articulo-15-bis.md
 articulo-16.md
 articulo-17.md
 articulo-18.md
@@ -20,6 +22,7 @@ articulo-19.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
+articulo-22-bis.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
@@ -80,9 +83,13 @@ articulo-76.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
+articulo-79-bis.md
+articulo-79-ter.md
 articulo-80.md
 articulo-81.md
 articulo-82.md
+articulo-82-bis.md
+articulo-82-ter.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
@@ -90,11 +97,14 @@ articulo-86.md
 articulo-87.md
 articulo-88.md
 articulo-88-bis.md
+articulo-88-bis-2.md
 articulo-89.md
 articulo-90.md
+articulo-90-bis.md
 articulo-91.md
 articulo-92.md
 articulo-93.md
+articulo-93-bis.md
 articulo-94.md
 articulo-95.md
 articulo-96.md

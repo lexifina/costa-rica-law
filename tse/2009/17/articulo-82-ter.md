@@ -1,0 +1,2 @@
+Artículo 82 ter.- Registro de cuentas bancarias y billeteras únicas. El Departamento de Financiamiento de Partidos Políticos conformará un registro de acceso público con información sobre las cuentas bancarias y cuentas únicas por criptomoneda, que estará disponible para consulta ciudadana en el sitio web del TSE.
+(Así adicionado por el artículo 8° del decreto del Tribunal Supremo de Elecciones N° 20-2025 del 25 de setiembre del 2025)

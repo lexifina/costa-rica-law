@@ -1,0 +1,3 @@
+Artículo 79 ter.- Conversión de criptomonedas. Las contribuciones, donaciones y aportes en criptomonedas deberán ser convertidas a dinero fiduciario en un plazo máximo de cinco días hábiles después de su recepción en la billetera electrónica prevista en el artículo 82 ter de este reglamento; debiendo realizar esta operación por el mismo proveedor de servicios de activos virtuales que custodia su billetera.
+El dinero fiduciario que resulte de estas operaciones deberá transferirse directamente a la cuenta corriente única para la recepción de las contribuciones, donaciones y aportes privados.
+(Así adicionado por el artículo 6° del decreto del Tribunal Supremo de Elecciones N° 20-2025 del 25 de setiembre del 2025)
