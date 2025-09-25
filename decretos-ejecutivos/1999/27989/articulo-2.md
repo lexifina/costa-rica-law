@@ -1,1 +1,1 @@
-Artículo 2°.- El Taller Nacional de la Danza tendrá un Consejo Asesor integrado por un representante del Ministro de Cultura, Juventud y Deportes y dos miembros de libre escogencia del Ministro de Cultura, Juventud y Deportes, que durarán en su cargo dos años y podrán ser reelectos. Dicho Consejo sesionará ordinariamente una vez al mes y extraordinariamente cuando sea convocado por su Presidente.
+Artículo 2°.- (Derogado por el artículo 13 inciso a) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

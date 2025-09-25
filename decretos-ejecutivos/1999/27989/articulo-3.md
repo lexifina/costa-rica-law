@@ -1,1 +1,1 @@
-Artículo 3°.- Corresponderá al Consejo Asesor brindar las recomendaciones y consejos que se requieran, a efecto de que el taller cumpla eficientemente con los objetivos a los que se refiere el artículo 1, e integrar las Comisiones y grupos de trabajo que estime convenientes.
+Artículo 3°.- (Derogado por el artículo 13 inciso a) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

@@ -6,8 +6,8 @@ Considerando:
 1°.- Que el Teatro Popular Melico Salazar, tiene como competencia, velar y fomentar las artes del espectáculo y la popularización de la cultura.
 2°.- Que el Taller Nacional de Danza tiene como objetivos, desarrollar acciones para que exista mayor oportunidad de que grupos accesen a diferentes áreas de la danza, así como para la enseñanza, fomento, apreciación artística y capacitación en esta disciplina. Por tanto,
 Decretan:
-Artículo 1°.- Constitúyase el Taller Nacional de Danza como un programa del Teatro Popular Melico Salazar, encargado de:
-a) Capacitar mediante la enseñanza de la danza a niños, jóvenes y adultos de todo el país.
-b) Fomentar e incentivar a nivel regional la creación y apreciación artística de la danza.
-c) Incorporar la danza como elemento fundamental en la vida cotidiana del ser humano.
-d) Desarrollar acciones que permitan una mayor oportunidad de acceso a grupos, en áreas de la danza como el folclor urbano o costarricense, la expresión corporal, el acondicionamiento físico y el movimiento creativo.
+Artículo 1. Créase el Taller Nacional de Danza como programa artístico del Teatro Popular Melico Salazar del Ministerio de Cultura y Juventud, responsable de implementar las acciones estratégicas necesarias para:
+a. Incorporar la danza como un componente esencial en la vida cotidiana del ser humano, contribuyendo a su desarrollo integral.
+b. Propiciar, a nivel nacional, el acceso inclusivo, equitativo y de alta calidad a la práctica, apreciación y enseñanza de la danza en su diversidad de manifestaciones.
+c. Desarrollar proyectos de formación, fomento, investigación, circulación y producción artística, que incidan en la cadena de valor de las artes escénicas y el desarrollo productivo del país.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)

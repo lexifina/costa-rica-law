@@ -1,1 +1,1 @@
-Artículo 14.- Todos los funcionarios del Taller Nacional de Danza, tanto los que se encuentran cubiertos por el Régimen del Servicio Civil como el que ocupa plazas excluidas de éste y los funcionarios están nombrados en forma interina en plazas vacantes cubiertas por el Régimen del Servicio Civil, se trasladarán al Teatro Popular Melico Salazar, garantizándoles el respeto de sus derechos laborales.
+Artículo 14.- (Derogado por el artículo 13 inciso a) del decreto ejecutivo N° 45260 del 25 de setiembre del 2025)
