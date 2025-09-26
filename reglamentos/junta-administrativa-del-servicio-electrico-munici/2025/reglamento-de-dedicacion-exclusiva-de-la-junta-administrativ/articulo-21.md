@@ -1,0 +1,3 @@
+Artículo 21.-La Institución reconocerá únicamente los grados de bachiller y licenciatura u otro grado académico superior. El reconocimiento porcentual establecido en los artículos 19 y 20 está sujeto al cumplimiento estricto de las siguientes condiciones:
+21.1 Sujeción directa y fundamentada en los objetivos señalados en el artículo 1 de este reglamento, que permitan el cumplimiento de las competencias y atribuciones legales y materiales señaladas y que se dirija a las actividades, planes, tareas y necesidades de la Institución.
+21.2 Cumplir con los requisitos descritos y requeridos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 26.-Una vez firmado el Contrato de Dedicación Exclusiva la persona trabajadora no podrá ejercer en forma liberal la profesión comprometida ni realizar actividades relacionadas con esta o con su puesto, de conformidad con los artículos 13 y 18 de este Reglamento.

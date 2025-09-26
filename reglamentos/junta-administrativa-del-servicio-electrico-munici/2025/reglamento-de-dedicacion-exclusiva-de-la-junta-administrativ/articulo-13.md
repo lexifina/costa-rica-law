@@ -1,0 +1,3 @@
+Artículo 13.-El profesional que tenga más de una carrera universitaria se compromete a laborar exclusivamente para la institución en la profesión que sirva de fundamento para desarrollar las funciones del puesto profesional para el que firme el contrato laboral y el contrato de dedicación
+Exclusive.
+No se considerarán carreras diferentes las especialidades o énfasis de una misma profesión.

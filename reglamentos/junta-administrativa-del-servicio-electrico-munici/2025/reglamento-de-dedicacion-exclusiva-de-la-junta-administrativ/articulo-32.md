@@ -1,0 +1,1 @@
+Artículo 32.-JASEC se reserva el derecho de aceptar la solicitud de terminación anticipada del contrato de Dedicación Exclusiva, todo de conformidad con los intereses, conveniencia institucional, objetivos legales y públicos que reviste el contrato en aplicación de los objetivos señalados en el artículo 1°.
