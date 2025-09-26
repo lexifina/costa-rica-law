@@ -33,3 +33,4 @@ Comunica resolución de la Dirección General de Servicio Civil (DG-055-97, Manu
 | 18 | 2024-05-10 | Resolución 4 (2024-05-10) |
 | 19 | 2024-07-04 | Resolución 170 (2024-07-04) |
 | 20 | 2025-07-18 | Resolución 240 (2025-07-18) |
+| 21 | 2025-09-26 | Aviso 5 (2025-09-26) |
