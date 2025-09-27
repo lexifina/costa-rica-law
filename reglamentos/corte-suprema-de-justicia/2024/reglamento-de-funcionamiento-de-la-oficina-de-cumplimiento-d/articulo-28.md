@@ -1,0 +1,3 @@
+TÍTULO V
+ATENCIÓN DE CONSULTAS SOBRE LA REGULACIÓN DE CONFLICTOS DE INTERÉS
+Artículo 28- De las consultas relacionadas con la regulación de Conflictos de Interés. Conforme lo dispuesto en el reglamento "Regulación para la prevención, identificación y la gestión adecuada de conflictos de intereses en el Poder Judicial", le corresponde a la Oficina de Cumplimiento, sin perjuicio de las competencias de la Corte Suprema de Justicia y del Consejo Superior del Poder Judicial, evacuar por escrito las consultas que se formulen sobre la interpretación y aplicación de las competencias propias de dicho reglamento.

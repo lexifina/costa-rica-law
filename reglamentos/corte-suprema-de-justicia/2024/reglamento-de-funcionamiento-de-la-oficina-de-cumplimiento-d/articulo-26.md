@@ -1,0 +1,1 @@
+Artículo 26.- Seguimiento de las recomendaciones La Oficina de Cumplimiento podrá solicitar, a las oficinas y despachos judiciales, así como al personal judicial, información que permita el seguimiento y monitoreo de las recomendaciones emitidas en el informe de cumplimiento con el fin de procurar que los riesgos hayan sido administrados correctamente.

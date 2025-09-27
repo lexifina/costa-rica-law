@@ -1,0 +1,2 @@
+Artículo 22.- Admisibilidad e investigación de la Alerta de Riesgo de corrupción y Fraude organizacional. Recibida la alerta, la Oficina de Cumplimiento deberá iniciar el trámite de admisibilidad de la gestión.
+Serán admisibles aquellas alertas que expongan una relación de hechos, claros, precisos y concretos que permitan la valoración técnica del supuesto evento que generó el riesgo e identifique el proceso relacionado con esta circunstancia; para lo cual se podrá aportar cualquier prueba que sustente la gestión.

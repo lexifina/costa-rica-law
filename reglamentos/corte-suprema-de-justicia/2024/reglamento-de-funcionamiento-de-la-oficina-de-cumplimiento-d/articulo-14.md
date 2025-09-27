@@ -1,0 +1,15 @@
+Artículo 14.- Funciones de la persona Oficial de Cumplimiento. La persona Oficial de Cumplimiento tiene las siguientes funciones:
+1) Dirigir, organizar, planificar, coordinar, ejecutar y supervisar la gestión de la Oficina de Cumplimiento, hacer cumplir el presente Reglamento y vigilar el desarrollo de las funciones asignadas.
+2) Delegar en el personal a cargo la emisión de criterios, informes de cumplimiento y cualquier otra labor necesaria bajo su supervisión.
+3) Dirigir, organizar, planificar, coordinar, ejecutar y supervisar la gestión de modelos de cumplimiento normativo y de buenas prácticas con enfoque de riesgo de corrupción, fraude organizacional interno, conflictos de intereses y faltas al deber de probidad, en la organización judicial.
+4) Proponer, diseñar, planear, dar seguimiento y emitir lineamientos respecto al plan de acción de la Política de Integridad y Anticorrupción del Poder Judicial, para garantizar su efectivo cumplimiento.
+5) Fungir como asesor o asesora especializada en materia de conflictos de intereses, riesgo de corrupción y fraude organizacional interno y cumplimiento normativo, de la Presidencia de la Corte, la Corte Suprema de Justicia, el Consejo Superior, Comisión de Transparencia y Anticorrupción y las distintas oficinas y despachos judiciales del Poder Judicial, cuando se requiera.
+6) Fungir como supervisor o supervisora de la sostenibilidad del modelo de compliance en el Poder Judicial.
+7) Dirigir, coordinar y generar propuestas estratégicas y de mejora continua, con las oficinas o dependencias vinculadas en los procesos de gestión del riesgo y el sistema de gestión de cumplimiento, para el fortalecimiento de las capacidades institucionales del Poder Judicial.
+8) Proponer lineamientos institucionales sobre el adecuado manejo y trámite de asuntos de conflictos de intereses, riesgos de corrupción, fraude organizacional interno y faltas a la probidad, así como sobre los registros, confección de proyectos de resolución, criterios y otros documentos.
+9) Brindar apoyo y asistencia técnica -jurídica especializada en labores variadas de administración del riesgo de corrupción, fraude organizacional interno, conflictos de intereses y faltas al deber de probidad.
+10) Presentar el plan anual de trabajo y del proyecto de presupuesto de la Oficina de Cumplimiento ante las instancias respectivas para su trámite. Asimismo, presentar el informe anual de labores para su evaluación ante el superior inmediato.
+11) Asistir, dirigir y coordinar reuniones, en asuntos de su competencia, y comunicarse con los diferentes participantes con el objeto de brindar las recomendaciones del caso.
+12) Participar en los grupos de trabajo gerenciales o comisiones a solicitud de la Corte Suprema de Justicia, Consejo Superior, Presidencia de la Corte o Comisión de Transparencia y Anticorrupción.
+13) Nombrar y evaluar el desempeño del personal a su cargo en la Oficina de Cumplimiento.
+14) Cualquier otra labor inherente al ejercicio de sus funciones, para garantizar la eficiente y oportuna prestación de sus servicios.

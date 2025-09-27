@@ -1,0 +1,1 @@
+Artículo 19.- De la gestión de alerta de riesgo de corrupción y fraude organizacional. La Oficina de Cumplimiento deberá realizar de oficio o a gestión de parte, los estudios respectivos sobre posibles riesgos de corrupción, fraude organizacional interno, conflictos de intereses o faltas al deber de probidad dentro del Poder Judicial.

@@ -1,0 +1,1 @@
+Artículo 16. Consulta a expertos. Para analizar temas específicos de competencia de la Oficina de Cumplimiento, esta oficina podrá acudir a la asesoría de personas expertas de las diferentes dependencias del Poder Judicial, quienes conforme a sus competencias brindarán la asesoría respectiva.

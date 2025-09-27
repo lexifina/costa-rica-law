@@ -1,0 +1,1 @@
+Artículo 7. Responsabilidad del personal judicial. Las personas servidoras judiciales que incumplan lo dispuesto en este Reglamento, podrán ser objeto de justa causa para la aplicación del régimen disciplinario según la calificación de la falta, debidamente comprobado y previo cumplimiento del debido proceso.

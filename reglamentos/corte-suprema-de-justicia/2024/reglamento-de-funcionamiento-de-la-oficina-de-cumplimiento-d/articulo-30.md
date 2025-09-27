@@ -1,0 +1,2 @@
+Artículo 30.- Ampliación de información. La Oficina de Cumplimiento deberá realizar una verificación de la información aportada y de ser necesario, solicitará a la persona gestionante toda aquella información de la que carezca la consulta, de acuerdo a los criterios definidos en el punto anterior.
+Para esto, se otorgará un plazo de cinco días hábiles para que aporte la información requerida, bajo apercibimiento de declarar inadmisible la consulta si con la información aportada inicialmente resulta imposible proceder.

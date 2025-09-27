@@ -1,0 +1,1 @@
+Artículo 5.- Deber de Confidencialidad. Para la ejecución de sus labores, las personas servidoras de la Oficina de Cumplimiento, se encuentran sujetas a mantener la reserva y sigilo de la información obtenida en razón del ejercicio del cargo que desempeñan. Esta obligación se mantendrá aún si dejaran de laborar en esta Oficina.

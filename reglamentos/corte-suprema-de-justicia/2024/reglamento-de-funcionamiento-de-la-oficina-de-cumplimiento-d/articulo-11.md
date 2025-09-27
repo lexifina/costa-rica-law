@@ -1,0 +1,5 @@
+Artículo 11.- Relación con la Comisión de Transparencia y Anticorrupción. La Oficina de Cumplimiento tiene una relación de coordinación y cooperación administrativa con la Comisión de Transparencia y Anticorrupción y en razón de lo anterior, le corresponde:
+1) Coordinar y articular a nivel institucional la implementación, control y supervisión del diseño de las líneas de acción para mitigar las amenazas y riesgos derivados de fraudes internos, corrupción y faltas a la probidad.
+2) Ejecutar y dar seguimiento a los acuerdos de la Comisión, así como a los proyectos y programas delegados que se encuentren relacionados con la prevención, identificación y adecuada administración del riesgo en materia de conflictos de intereses, riesgos de corrupción y fraude organizacional en el Poder Judicial.
+3) Rendir informe de cumplimiento de las labores encomendadas en virtud de la aplicación del inciso 2 del presente artículo.
+4) Cualquier otra labor compatible con las funciones que realice la Comisión de Transparencia en coordinación con la Oficina de Cumplimiento.

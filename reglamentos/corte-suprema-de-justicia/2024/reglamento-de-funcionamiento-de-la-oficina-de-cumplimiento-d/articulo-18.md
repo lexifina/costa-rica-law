@@ -1,0 +1,6 @@
+TÍTULO IV
+DEL MODELO DE GESTIÓN DE RIESGOS DE CORRUPCIÓN, FRAUDE ORGANIZACIONAL, LA GESTIÓN DE ALERTAS Y DILIGENCIA DE CUMPLIMIENTO.
+Artículo 18.- De la gestión de riesgos de corrupción y fraude organizacional. La Oficina de Cumplimiento podrá realizar estudios para la atención del riesgo de corrupción y fraude organizacional en el Poder Judicial, para lo cual aplicará una herramienta técnica para administrar y controlar este riesgo que afecta a la institución, sus procesos y/o el logro de sus objetivos. Su propósito es aminorar la probabilidad de ocurrencia de un episodio de corrupción, mitigar su impacto y proponer mejora en los controles y procesos existentes.
+La Oficina de Cumplimiento será la responsable de aplicar estos estudios, considerando las disposiciones señaladas en la Ley General de Control Interno y su reglamento, así como en los criterios y directrices generales emitidas por la Contraloría General de la República para el manejo de riesgos en el sector público.
+La valoración del riesgo de corrupción y fraude organizacional estará cargo del jerarca y los titulares subordinados como responsables de los procesos a cargo, quienes contarán con el apoyo y asesoría técnica de la Oficina de Cumplimiento.
+El resultado de estos estudios será comunicado a la Oficina de Control Interno para lo de su cargo.
