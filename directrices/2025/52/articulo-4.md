@@ -1,0 +1,1 @@
+Artículo 4°.-Una vez cumplidas las medidas en materia de ciberseguridad dispuestas en la presente directriz, para que una institución habilite la modalidad de teletrabajo, únicamente podrá hacerlo en aquellos casos en los que proporcione equipo de cómputo institucional, para el acceso a sus respectivas redes institucionales.
