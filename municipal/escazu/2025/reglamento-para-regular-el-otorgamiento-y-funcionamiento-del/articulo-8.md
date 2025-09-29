@@ -1,0 +1,1 @@
+Artículo 8º Sobre la cantidad de servicios de transporte por hogar. Se valorará y otorgará el servicio de transporte para todas las personas con discapacidad que lo requieran dentro de un grupo familiar, sin límite de cantidad, siempre y cuando cumplan con todos los requisitos establecidos en el Artículo 5° de este reglamento y se cuente con disponibilidad de cupos y rutas.
