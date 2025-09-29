@@ -1,0 +1,5 @@
+Artículo 107 bis- Gastos no redimibles. Entre otros, se considerarán gastos no redimibles los siguientes:
+a) Las contrataciones de bienes o servicios que realicen los partidos políticos con miembros propietarios o suplentes de su Comité Ejecutivo Superior.
+b) Las contrataciones de bienes o servicios que realicen los partidos políticos con personas físicas ligadas por parentesco de consanguinidad o afinidad en línea directa o colateral, hasta el tercer grado inclusive, con cualquiera de los miembros propietarios o suplentes del Comité Ejecutivo Superior.
+Las contrataciones de bienes o servicios que se realicen con personas jurídicas, cuyos miembros de junta directiva, fiscal, directores, representantes, apoderados o accionistas se encuentren ligados por parentesco de consanguinidad o afinidad en línea directa o colateral, hasta tercer grado inclusive, con cualquiera de los miembros propietarios o suplentes del Comité Ejecutivo Superior.
+(Así adicionado por el artículo 2° de la Ley para fortalecer el acceso, la equidad y el control del financiamiento de los partidos políticos, N° 10755 del 12 de setiembre de 2025)

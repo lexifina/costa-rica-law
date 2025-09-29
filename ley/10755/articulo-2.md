@@ -1,0 +1,14 @@
+ARTÍCULO 2- Adiciónense los artículos 25 bis y 107 bis a la Ley 8765, Código Electoral, de 19 de agosto de 2009. Los textos son los siguientes:
+Artículo 25 bis- Fondo General de Capacitación para los Partidos Políticos. El Tribunal Supremo de Elecciones (TSE) dispondrá del fondo denominado Fondo General de Capacitación para los Partidos Políticos, a fin de financiar, equitativamente, programas formativos para los militantes de las agrupaciones políticas inscritas, como forma de potenciar las capacidades, la permanencia y la institucionalización de esas asociaciones voluntarias de ciudadanos.
+El funcionamiento de este Fondo se regulará reglamentariamente y deberá someterse a los controles y las responsabilidades establecidos en el ordenamiento jurídico.
+Para estos efectos, la Dirección de Presupuesto Nacional incluirá, en la partida presupuestaria que corresponda, los recursos que determine el Tribunal, los cuales no podrán representar más del cero coma quince por ciento (O, 15%) del total presupuestado por esa institución.
+Los recursos de este Fondo se depositarán en la cuenta de caja única del TSE y corresponderá a la Tesorería Nacional girar los recursos con la inmediatez que requiera el Tribunal, de conformidad con los procedimientos propios del manejo de recursos en caja única.
+Una vez concluido el respectivo ciclo electoral, el Tribunal, en un plazo de cuatro meses, hará la liquidación correspondiente de este Fondo y, de existir algúnsobrante, este se depositará en el Fondo General de Caja Única del Estado.
+Las capacitaciones que el TSE imparta a los partidos, con este Fondo o por otros medios, no serán de participación obligatoria para esas agrupaciones políticas.
+Artículo 107 bis- Gastos no redimibles. Entre otros, se considerarán gastos no redimibles los siguientes:
+a) Las contrataciones de bienes o servicios que realicen los partidos políticos con miembros propietarios o suplentes de su Comité Ejecutivo Superior.
+b) Las contrataciones de bienes o servicios que realicen los partidos políticos con personas físicas ligadas por parentesco de consanguinidad o afinidad en línea directa o colateral, hasta el tercer grado inclusive, con cualquiera de los miembros propietarios o suplentes del Comité Ejecutivo Superior.
+Las contrataciones de bienes o servicios que se realicen con personas jurídicas, cuyos miembros de junta directiva, fiscal, directores, representantes, apoderados o accionistas se encuentren ligados por parentesco de consanguinidad o afinidad en línea directa o colateral, hasta tercer grado inclusive, con cualquiera de los miembros propietarios o suplentes del Comité Ejecutivo Superior.
+Dado en la Presidencia de la República, San José, a los doce días del mes de septiembre del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
+<span style='font-family: </body>
