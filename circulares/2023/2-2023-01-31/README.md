@@ -14,3 +14,4 @@ Procedimiento de entrega, devolución e inhabilitación de boletas de seguridad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-31 | la propia norma |
+| 2 | 2025-09-29 | Circular 6 (2025-09-29) |
