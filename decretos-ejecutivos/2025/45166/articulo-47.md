@@ -1,0 +1,11 @@
+Sección II
+Obligaciones de la persona empleadora con el Departamento
+Artículo 47.- Sin perjuicio de lo establecido en otras disposiciones del Código de Trabajo y del presente decreto reglamentario, son obligaciones de la persona empleadora que ocupe, permanentemente, más de cincuenta personas trabajadoras, con relación al Departamento, las siguientes:
+a) Constituir el Departamento, integrado por personal con formación profesional en salud ocupacional para que la asesore y ejecute acciones en lo relativo a los temas de salud ocupacional de su empresa o institución, de manera que se aseguren continua y permanentemente las condiciones de salud y seguridad en el trabajo.
+b) Mantener una persona encargada del Departamento que cumpla con el perfil y los requisitos establecidos en el artículo 49 de este Reglamento, la cual debe inscribir como tal, en la plataforma digital provista por la Dirección Ejecutiva del CSO, de conformidad con lo dispuesto en la Sección V del Capítulo III del presente reglamento. En caso de cambio o sustitución, es responsabilidad de la persona empleadora mantener actualizada la información de dicho registro.
+c) Garantizar que la persona encargada del Departamento cumpla con todas las obligaciones establecidas en este reglamento para el ejercicio del cargo.
+d) Aprobar los programas de salud ocupacional en su empresa o institución, que sean sometidos a su conocimiento por la persona encargada del Departamento, así como promover y crear, por todos los medios posibles, una cultura de salud ocupacional empresarial o institucional.
+e) Facilitar al Departamento las instalaciones, medios materiales, tecnológicos, equipos y recursos financieros para su funcionamiento.
+f) Atender las recomendaciones e informes emitidos por la persona encargada del Departamento, tomando en cuenta, fundamentalmente, el derecho a la salud de la persona trabajadora. Dichos informes y recomendaciones son vinculantes para la persona empleadora.
+g) Desinscribir el Departamento cuando ya no cumplan con las condiciones legales establecidas en el artículo 300 del Código de Trabajo citado.
+h) Difundir la información sobre las medidas recomendadas por el Departamento hacia la población trabajadora y no obstaculizar su divulgación.

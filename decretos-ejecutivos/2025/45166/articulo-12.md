@@ -1,0 +1,1 @@
+Artículo 12.- Cuando existan varias razones sociales que pertenezcan a un mismo grupo de interés económico, grupo corporativo, empresarial o grupo o conglomerado financiero, que posean un fin común y que se encuentren ubicadas en el mismo edificio o terreno, se podrá constituir una sola Comisión.

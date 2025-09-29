@@ -1,0 +1,1 @@
+Artículo 39.- Las actas pueden ser asentadas tanto en formato digital como en libros, debidamente foliadas o numeradas, las cuales deben estar a disposición cuando así lo requieran las autoridades mencionadas en el artículo 298 del Código de Trabajo.

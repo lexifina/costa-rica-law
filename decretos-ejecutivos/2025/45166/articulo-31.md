@@ -1,0 +1,1 @@
+Artículo 31.- Cuando la persona que se esté destituyendo ocupa el cargo de persona secretaria, la convocatoria establecida en el artículo 26 inciso b), punto 4, la debe realizar cualquiera de las otras personas integrantes de la Comisión o la persona empleadora.

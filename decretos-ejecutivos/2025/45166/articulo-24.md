@@ -1,0 +1,1 @@
+Artículo 24.- La persona empleadora debe informar a todas las personas trabajadoras el nombre y apellidos de las personas integrantes que conforman la Comisión, dentro de un plazo no mayor a los ocho (08) días naturales a partir de su constitución, por cualquier medio que disponga la persona empleadora.

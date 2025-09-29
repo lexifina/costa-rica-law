@@ -1,0 +1,1 @@
+Artículo 54.- En aquellos casos, donde exista una razón social con varios centros de trabajo y que por el nivel de complejidad o por la cantidad de personas trabajadoras, requiera registrar más de un Departamento, podrá inscribir mediante la plataforma digital vigente provista por la Dirección Ejecutiva del CSO, los Departamentos que considere pertinentes.

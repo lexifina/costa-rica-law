@@ -1,0 +1,1 @@
+Artículo 19.- Las personas que integran el Departamento deben participar activamente como asesoras de la Comisión, más no pueden representar a las personas trabajadoras o empleadoras en la misma y tienen en las sesiones voz, pero no voto.

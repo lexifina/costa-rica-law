@@ -1,0 +1,1 @@
+Artículo 58.- Si la empresa o institución cuenta con varios Departamentos de Salud Ocupacional pertenecientes a una misma razón social, deben presentar un informe anual por cada Departamento de salud ocupacional registrado.

@@ -1,0 +1,22 @@
+Sección IV
+De las funciones de la persona encargada del Departamento
+Artículo 52.- La persona encargada del Departamento ostenta las siguientes funciones:
+a) Brindar a la persona empleadora acompañamiento en materia de salud ocupacional, de manera que se aseguren continua y permanentemente las condiciones de salud y seguridad en el trabajo.
+b) Diseñar, implementar y someter a conocimiento de la persona empleadora, el programa de salud ocupacional en los centros de trabajo, elaborado con la participación de las personas trabajadoras y la Comisión, a partir de un abordaje de prevención y promoción de la salud ocupacional, con gestión integral de los riesgos, según la naturaleza propia de la empresa y/o institución. Para la elaboración de este programa se deben seguir los lineamientos establecidos por el Consejo en la guía para la elaboración del programa de salud ocupacional en su versión vigente.
+c) Velar porque las personas proveedoras y empresas subcontratadas que brindan servicios a la empresa y/o institución, cumplan con las medidas preventivas en seguridad y salud ocupacional, al ingresar al centro de trabajo, así como advertir sobre los riesgos que se puedan generar y la forma de prevenirlos.
+d) Llevar un registro estadístico de los riesgos del trabajo.
+e) Investigar las causas de los riesgos del trabajo y recomendar las acciones preventivas a la persona empleadora, con la colaboración de las personas integrantes de la Comisión.
+f) Asesorar a la persona empleadora y a las personas representantes de la Comisión en materia de riesgos del trabajo y en la normativa especializada en salud ocupacional.
+g) Realizar estudios o participar en el diseño sobre las condiciones de nuevas instalaciones, acondicionamiento y remodelación e incorporación de nuevas maquinarias, equipos y tecnologías de la empresa o institución, así como participar en el diseño y ejecución de los nuevos procesos de trabajo.
+h) Participar en el diseño de las condiciones para la reinserción y adaptación laboral de las personas trabajadoras que lo requieran por discapacidad o daño a su salud según certificado, dictamen médico o epicrisis emanada de una persona profesional en medicina, la Caja Costarricense de Seguro Social o la entidad aseguradora de los riesgos de trabajo.
+i) Coordinar en conjunto con las brigadas, equipos de emergencias, personas integrantes de la Comisión, comités que sean responsables de este tema, las acciones preventivas de preparación y respuesta ante situaciones de emergencia o desastres naturales, biológicos, tecnológicos y otros tipos de emergencia.
+j) Asesorar en la selección y mantenimiento de la maquinaria y equipos, así como en las sustancias y materiales utilizados en los procesos de trabajo.
+k) Participar en el diseño y desarrollo de programas de buenas prácticas laborales, así como en las pruebas y evaluación de nuevos equipos en relación con la protección a la salud y seguridad.
+l) Recomendar equipos de protección personal y colectivos, dispositivos de seguridad y establecer programas de intervención, estrategias de prevención y tecnologías de control.
+m) Colaborar en los programas de vigilancia de la salud de las personas trabajadoras de acuerdo a los perfiles de riesgo, para el seguimiento y el control de posibles enfermedades laborales.
+n) Realizar actividades de prevención y promoción de la salud ocupacional que contemplen la capacitación y sensibilización de las personas trabajadoras, con la participación de la Comisión.
+o) Apoyar a las estructuras preventivas en salud ocupacional existentes en la empresa o institución.
+p) Presentar al Consejo un informe sobre los accidentes y enfermedades de trabajo con resultado de muerte, dentro de un plazo de diez (10) días hábiles posteriores al acaecimiento del hecho.
+q) Presentar ante el Consejo un informe anual generado mediante la plataforma digital vigente, de conformidad con lo establecido en el artículo 53 del presente reglamento.
+r) Realizar la investigación sobre intoxicaciones por plaguicidas y poner en conocimiento al Ministerio de Salud, el Ministerio de Trabajo y Seguridad Social, la Dirección Ejecutiva del CSO, la Entidad Aseguradora y la Caja Costarricense de Seguro Social, mediante la entrega de una copia de la investigación correspondiente, de conformidad con lo establecido en el Reglamento Disposiciones para Personas Ocupacionalmente Expuestas a Plaguicidas y sus modificaciones.
+s) Cualesquiera otras funciones atinentes al Departamento.

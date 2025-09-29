@@ -1,0 +1,1 @@
+Artículo 51.- Además, de la persona encargada del Departamento, establecido en el artículo 48 del presente Reglamento, el Departamento podrá estar integrado por una mayor cantidad de personal multidisciplinario.

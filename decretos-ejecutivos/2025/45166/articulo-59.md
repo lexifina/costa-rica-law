@@ -1,0 +1,1 @@
+Artículo 59.- La empresa o institución que no cumpla con lo establecido en el presente reglamento quedará en estado de incumplimiento, lo cual podrá ser subsanado a partir del momento en el que presente el informe requerido ante dicha Institución.

@@ -1,0 +1,6 @@
+Artículo 49.- Los requisitos de formación profesional que debe cumplir la persona encargada del Departamento, deben estar reconocidos por el Ministerio de Educación Pública en los siguientes niveles académicos:
+a) Diplomado Universitario en Salud Ocupacional.
+b) Bachillerato Universitario en Salud Ocupacional.
+c) Licenciatura en Salud Ocupacional.
+d) Maestría o Doctorado de la Educación Superior Universitaria, Pública o Privada en Salud Ocupacional.
+Para efectos del presente reglamento el concepto de salud ocupacional integra las disciplinas de Seguridad Laboral (Seguridad de Trabajo, Seguridad Ocupacional), Higiene Ambiental (Higiene Ocupacional), Ergonomía, Medicina del Trabajo y Psicosociología del Trabajo. El Consejo podrá aprobar otras disciplinas atinentes a salud ocupacional, las cuales serán incluidas en un manual oficial emitido por la institución. Independientemente de las disciplinas señaladas en el presente artículo, la persona empleadora debe garantizar que la persona que se desempeñe como encargada del Departamento, asesore y ejecute acciones en lo relativo a los temas de salud ocupacional de su empresa o institución, de manera que se aseguren continua y permanentemente las condiciones de seguridad y salud en el trabajo.

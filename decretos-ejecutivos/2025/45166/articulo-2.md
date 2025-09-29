@@ -1,0 +1,1 @@
+Artículo 2.- Corresponde al Ministerio de Trabajo y Seguridad Social, por medio de la Dirección Nacional de Inspección del Trabajo, la verificación del cumplimiento del presente reglamento, sin perjuicio de lo dispuesto en el artículo 298 del Código de Trabajo.

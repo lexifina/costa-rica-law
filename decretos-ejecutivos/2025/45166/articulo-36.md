@@ -1,0 +1,1 @@
+Artículo 36.- Cuando se estime necesario o a solicitud de la persona empleadora, la Comisión podrá sesionar extraordinariamente y la convocatoria la debe realizar la persona coordinadora o la persona a la que se le haya delegado tal coordinación.

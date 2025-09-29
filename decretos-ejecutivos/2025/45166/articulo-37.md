@@ -1,0 +1,1 @@
+Artículo 37.- Los acuerdos de la Comisión, constituida por más de dos personas integrantes, deben ser tomados por mayoría simple de los miembros asistentes. En los casos en que la Comisión esté integrada únicamente por dos personas integrantes, los acuerdos deben ser tomados por consenso, en caso de que no exista el mismo, la persona coordinadora tendrá voto doble.

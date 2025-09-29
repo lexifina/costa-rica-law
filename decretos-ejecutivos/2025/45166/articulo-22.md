@@ -1,0 +1,1 @@
+Artículo 22.- Las personas integrantes de la Comisión permanecerán en su puesto hasta por tres (03) años, pudiendo ser reelectas mediante el mismo procedimiento utilizado para la designación original, de conformidad con lo establecido en el artículo 23 de este Reglamento.

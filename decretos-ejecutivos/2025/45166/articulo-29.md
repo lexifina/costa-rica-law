@@ -1,0 +1,1 @@
+Artículo 29.- En caso de que la persona que ostente la representación de la parte empleadora dentro de la Comisión, se ausente más de tres veces consecutivas a las sesiones de la Comisión sin razón o motivo justificado, la persona empleadora podrá reemplazarla por otra de su elección.

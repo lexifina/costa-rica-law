@@ -1,0 +1,2 @@
+Artículo 35.- La Comisión sesionará, ordinariamente, al menos una vez al mes, en la fecha que acuerden sus integrantes. Para sesionar se podrán utilizar medios tecnológicos que aseguren la participación activa de todas las personas integrantes y la inmediatez de la comunicación.
+El quórum para que pueda sesionar válidamente la Comisión será el de la mayoría absoluta de la totalidad de sus miembros. En caso que la Comisión esté conformada únicamente por dos personas, ambas deberán estar presentes para poder sesionar.

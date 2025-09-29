@@ -1,0 +1,3 @@
+Sección VII
+De los informes de la Comisión
+Artículo 44.- La persona que ocupe el cargo de coordinación de la Comisión debe presentar ante el Consejo, en el transcurso de los dos (2) primeros meses de cada año, el informe anual de la gestión desarrollada por la Comisión el año anterior, cumpliendo con los requisitos establecidos en el artículo 45 del presente reglamento. Vencido el plazo para cumplir con esa obligación y no haber presentado el informe, la Comisión quedará en estado de incumplimiento, lo cual se podrá subsanar en cualquier momento, con la sola presentación del informe en la plataforma provista por la Dirección Ejecutiva del CSO.

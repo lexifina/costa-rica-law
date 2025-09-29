@@ -1,0 +1,1 @@
+Artículo 34.- La Comisión definirá las acciones de trabajo operativas y las reglas internas para su funcionamiento. Cuando exista empate en la toma de los acuerdos, la persona que ocupe el cargo de coordinación tendrá voto doble.
