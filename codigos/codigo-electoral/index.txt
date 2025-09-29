@@ -23,6 +23,7 @@ articulo-22.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
+articulo-25-bis.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
@@ -105,6 +106,7 @@ articulo-104.md
 articulo-105.md
 articulo-106.md
 articulo-107.md
+articulo-107-bis.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
