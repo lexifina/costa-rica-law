@@ -1,0 +1,1 @@
+Artículo 12.-Decisión y comunicación de lo resuelto. La Dirección General de Registro Electoral y Financiamiento de Partidos Políticos se pronunciará, en resolución fundada, sobre la inscripción o no del profesional o la persona jurídica gestionante.

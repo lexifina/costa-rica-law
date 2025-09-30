@@ -1,0 +1,2 @@
+Artículo 19.-Régimen sancionatorio. Además de las sanciones que competa a los respectivos colegios profesionales imponer, la prestación de servicios contables a partidos políticos sin estar habilitado para ello podría constituir el delito de "Ejercicio Ilegal de la Profesión", tipificado en el artículo 322 del Código Penal (Ley N° 4573).
+En lo que respecta a las liquidaciones de gastos, no serán reconocidas aquellas erogaciones asociadas al respectivo profesional individual o colectivo que no se encuentre inscrito.

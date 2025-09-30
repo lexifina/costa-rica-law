@@ -1,0 +1,2 @@
+Artículo 10.-Prevención. Antes de rendir el informe respectivo a la Dirección General del Registro Electoral, el Departamento de Financiamiento de Partidos Políticos prevendrá al interesado para que subsane las incorrecciones u omisiones que se hubieren detectado al analizar su solicitud. El solicitante contará con un plazo de ocho días hábiles para subsanar lo que corresponda.
+En caso de que el solicitante, dentro del plazo otorgado, no cumpla con lo prevenido, se procederá, sin más trámite, al archivo de la gestión. Ese archivo será comunicado al interesado.

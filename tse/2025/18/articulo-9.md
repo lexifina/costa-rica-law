@@ -1,0 +1,1 @@
+Artículo 9º-Cambios en la información. Todo cambio en la información presentada por el solicitante deberá ser comunicado de forma inmediata al Departamento Financiamiento de Partidos Políticos, especialmente si se trata de variaciones en las direcciones de correo electrónico o los números de teléfono.

@@ -1,0 +1,1 @@
+Artículo 11.-Plazo para resolver. La Dirección General de Registro Electoral resolverá la solicitud de inscripción en un plazo de ocho días hábiles después de recibir el informe del Departamento de Financiamiento de Partidos Políticos.

@@ -1,0 +1,18 @@
+Artículo 8º-Solicitud de inscripción. El profesional contable o la persona jurídica interesada, según corresponda, deberá presentar la solicitud de inscripción ante el Departamento de Financiamiento de Partidos Políticos, aportando lo siguiente:
+a) Nota de solicitud suscrita por el profesional contable o representante legal de la persona jurídica, que indique lo siguiente:
+i. Nombre completo, razón o denominación social, según corresponda.
+ii. Número de cédula física o jurídica del solicitante, según corresponda.
+iii. Calidad en la que solicita el registro, sea como contador público autorizado o contador privado, en forma individual o colectiva.
+iv. Número de carné del colegiado o del representante legal de la persona jurídica interesada, según corresponda.
+v. Correo electrónico (principal y accesorio), a efectos de recibir notificaciones. La dirección electrónica aportada será el medio oficial al que se enviarán las comunicaciones que deba hacer el Registro Electoral.
+vi. Nombre y medio de localización de la persona responsable de atender requerimientos de información del Departamento de Financiamiento de Partidos Políticos durante el trámite de inscripción.
+b) Certificación vigente de personería del solicitante, si correspondiere.
+c) Certificación vigente del colegio profesional respectivo en la que se haga constar el solicitante o el representante legal de la persona jurídica interesada se encuentra inscrito y es miembro activo.
+d) Certificación, constancia, declaración jurada protocolizada o documento idóneo que demuestre el cumplimiento del requisito establecido en el inciso b) de los artículos 5° o 6° de este reglamento, según corresponda. En ese documento deberá constar, al menos, el nombre, número de identificación, teléfono de la institución, persona o empresa a quien le brindó los servicios, tipo de servicios de contaduría prestados y horas efectivas dedicadas en la prestación de los servicios.
+e) Fotocopia de títulos, certificación, constancia, declaración jurada protocolizada o documento idóneo que demuestre el cumplimiento del requisito establecido en el inciso e) de los artículos 5° o 6° de este reglamento, según corresponda. En el documento que se aporte debe constar, al menos, el nombre de la acción formativa, la entidad o responsable de impartir los contenidos, la fecha y la duración del evento. Tratándose de personas jurídicas solicitantes, este requerimiento deberá ser cumplido por su representante legal a título individual.
+f) Declaración jurada protocolizada que manifieste que el profesional contable o persona jurídica y su representante legal:
+i. No ha sido declarado insolvente o en quiebra, según corresponda, durante los últimos cinco años.
+ii. No ha sido condenado penalmente por delitos contra la fe pública o la propiedad, durante los últimos diez años.
+iii. Cuenta con políticas, procedimientos y herramientas que aseguren el control de la calidad de las labores atinentes al ejercicio de su profesión, que le permiten verificar el cumplimiento de la normativa aplicable.
+iv. Conoce satisfactoriamente la normativa electoral. g) Carta de compromiso suscrita por el interesado o su representante legal, en la que se compromete a garantizar la igualdad de condiciones y de trato a todos los partidos políticos que contraten sus servicios.
+La solicitud de inscripción se presentará físicamente, con la rúbrica autógrafa del solicitante o representante legal. De no ser entregada personalmente por el interesado, su firma deberá ser autenticada por un profesional en Derecho. También se recibirán solicitudes por correo electrónico, en cuyo caso será obligatoria la firma digital, de conformidad con la Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454.
