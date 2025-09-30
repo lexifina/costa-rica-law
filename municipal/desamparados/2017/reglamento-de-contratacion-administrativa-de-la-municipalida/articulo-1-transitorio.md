@@ -1,1 +1,0 @@
-Transitorio I: Derogatoria: Este Reglamento deroga toda normativa interna anterior a la promulgación del mismo, relacionada con los procesos de Adquisición de Bienes y Servicios de la Municipalidad de Desamparados.

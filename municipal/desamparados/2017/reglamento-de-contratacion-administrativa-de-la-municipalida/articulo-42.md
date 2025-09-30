@@ -1,4 +1,0 @@
-SECCIÓN III
-Recursos
-Artículo 42- Recursos de objeción al cartel ante la Contraloría General de la República. Cuando se presente un Recurso de Objeción al Cartel, cuya resolución sea competencia de la CGR, la Gestión de Adquisiciones, a instancia de dicho ente, remitirá dentro del plazo conferido para tal efecto, el expediente de la contratación incluido el criterio de la administración en cuanto a la impugnación presentada. La Gestión de Adquisiciones, si así fuere procedente, solicitará a la unidad solicitante o a cualquier otra dependencia toda la información que se requiera con el fin de satisfacer el pedido del órgano contralor.
-La unidad a la que se le hubiese requerido criterio, deberá remitir dentro del plazo previsto por la Gestión de Adquisiciones, la información solicitada. Corresponde a la jefatura de la Gestión de Adquisiciones, suscribir el oficio de respuesta del recurso interpuesto, salvo que la CGR expresamente disponga algo diferente.

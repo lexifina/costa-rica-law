@@ -1,1 +1,0 @@
-Artículo 21- Actualización de información. Es obligación del interesado mantener actualizada la información aportada en el Registro de Proveedores en caso de cambios, para lo cual debe presentar los documentos que respalden dichas modificaciones, en formato escrito, electrónico o digital.

@@ -1,5 +1,0 @@
-Artículo 19- Plan de adquisiciones.
-1- Los programas de adquisiciones de cada año, deberán ser confeccionados conjuntamente con el Plan Operativo Anual y el Presupuesto, todo de acuerdo a los lineamientos que establezca al respecto la CGR.
-2- La Gestión de Adquisiciones, consolidará los programas de adquisiciones, conteniendo la información solicitada en el artículo 7º del RLCA, y coordinará que sea publicado en el Diario Oficial “La Gaceta”, en el primer mes de cada periodo presupuestario.
-3- Cualquier modificación al programa de adquisiciones, deberá remitirse a la Proveeduría, mediante solicitud formal autorizada por el funcionario encargado de cada área, en la que consten las razones que motivan la modificación.
-4- La Gestión de Adquisiciones, no tramitará las necesidades no incluidas en el programa de adquisiciones y sus modificaciones, salvo casos de urgencia, en todo caso, los funcionarios que promuevan un trámite de contratación sin que la necesidad estuviere contemplada en el programa de adquisiciones quedarán sujetos al régimen disciplinario respectivo.

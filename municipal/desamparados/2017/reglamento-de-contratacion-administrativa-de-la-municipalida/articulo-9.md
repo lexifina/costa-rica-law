@@ -1,1 +1,0 @@
-Artículo 9- La entrega y recibo de materiales de la bodega y plantel municipal solo se efectuarán durante las horas y días hábiles laborables o en su defecto, los días habilitados para ello.

@@ -1,4 +1,0 @@
-Artículo 41- Formas de rendir las garantías. La forma de rendir garantías será indicada en el cartel y podrán rendirse mediante las siguientes formas:
-1. Depósito de bono de garantía de instituciones aseguradoras reconocidas en país, o de uno de los bancos del Sistema Bancario Nacional o el Banco Popular y de Desarrollo Comunal; Certificados de Depósito a plazo, bonos del Estado o de sus instituciones, cheques certificados o de gerencia de un banco del Sistema Bancario Nacional.
-2. Dinero en efectivo mediante depósito a la orden de un banco del mismo sistema, presentando la boleta respectiva o mediante depósito en la Municipalidad.
-3. Las garantías pueden rendirse en cualquier moneda extranjera o bien en su equivalente en moneda nacional, al tipo de cambio de referencia para la venta, calculado por el Banco Central de Costa Rica, vigente al día anterior a la presentación de la oferta o la suscripción del contrato, según corresponda.

@@ -1,1 +1,0 @@
-Artículo 61- Topes de contratación. Los montos para las distintas contrataciones se ajustarán anualmente, tomando como base las variaciones porcentuales en los límites económicos que establece el artículo 27 de la Ley de Contratación Administrativa y sus reformas, según disponga el ente Contralor.

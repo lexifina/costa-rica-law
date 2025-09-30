@@ -1,1 +1,0 @@
-Artículo 51- Modificaciones a los contratos. La Municipalidad podrá aumentar o disminuir para un contrato, el objeto de la contratación, conforme lo disponen los artículos 12 de la LCA y 200 del RLCA.

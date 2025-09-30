@@ -1,1 +1,0 @@
-Artículo 16- Inicio del procedimiento. Una vez que se cuente con la solicitud de compra o pedido debidamente confeccionado, con las especificaciones técnicas o términos de referencia aprobados y el contenido presupuestario correspondiente, la Gestión de Adquisiciones dará inicio al procedimiento de contratación respectivo.
