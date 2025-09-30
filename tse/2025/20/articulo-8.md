@@ -1,0 +1,6 @@
+ARTÍCULO 8.- Adiciónense un artículo 82 bis y un numeral 82 ter que se leerán de la siguiente manera:
+"Artículo 82 bis.- De la billetera electrónica única
+Las criptomonedas que los partidos políticos reciban a título de contribuciones, donaciones y aportes en especie, provenientes de personas físicas nacionales, deberán recibirse en billeteras electrónicas abiertas gestionadas por proveedores de servicios de activos virtuales autorizados, en los términos del artículo 79 de este reglamento. Cada agrupación política deberá disponer de una única cuenta por criptomoneda autorizada, cuya gestión se centralizará en una billetera electrónica de su titularidad y bajo la responsabilidad del tesorero partidario.
+Serán aplicables a estas billeteras las mismas regulaciones atinentes a la cuenta corriente única para la recepción exclusiva de contribuciones, donaciones y aportes privados.".
+"Artículo 82 ter.- Registro de cuentas bancarias y billeteras únicas
+El Departamento de Financiamiento de Partidos Políticos conformará un registro de acceso público con información sobre las cuentas bancarias y cuentas únicas por criptomoneda, que estará disponible para consulta ciudadana en el sitio web del TSE.".

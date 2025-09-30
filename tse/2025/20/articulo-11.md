@@ -1,0 +1,4 @@
+ARTÍCULO 11.- Adiciónese un artículo 93 bis que se leerá de la siguiente manera:
+"Artículo 93 bis.- Congelamiento de fondos y bienes
+La Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos, así como el Departamento de Financiamiento de Partidos Políticos podrán ordenar, como medida provisionalísima, el congelamiento temporal de fondos asociados a operaciones sospechosas de las que tengan noticia, en los que intervengan entidades financieras supervisadas; mientras el TSE determina la procedencia de la imposición de medidas cautelares en el caso particular.
+Tratándose de operaciones sospechosas asociadas a criptomonedas, la DGRE o el DFPP podrán ordenar en igual condición el congelamiento provisionalísimo de estos activos; medida que deberá ser ratificada por el TSE mediante resolución fundada.".
