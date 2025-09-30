@@ -1,0 +1,3 @@
+Artículo 45-Departamentos y Unidades de la Dirección de Valoración Patrimonial.
+La Dirección de Valoración Patrimonial está conformada por tres (3) departamentos funcionales denominados: Departamento de Actualizaciones Tributarias Masivas de Bienes, Departamento de Valoraciones Individuales integrado este departamento por la Unidad de Valoraciones Tributarías y la Unidad de Valoraciones Administrativas; y finalmente el Departamento Técnico-Jurídico de Valoraciones Patrimoniales.
+Todas las dependencias que conforman la Dirección de Valoración Patrimonial tienen competencia a nivel nacional. Sus funciones se regulan conforme a lo establecido en el presente capítulo.

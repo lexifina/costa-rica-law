@@ -1,0 +1,17 @@
+Artículo 42.- Departamento Técnico-Jurídico de Control Tributario Material.
+Le corresponde a este departamento realizar las siguientes funciones:
+a) Participar en la formulación de los planes: Estratégico, Táctico, del Plan de Mejora de Cumplimiento y del Plan Operativo Anual de la Dirección General de Tributación.
+b) Elaborar y controlar la implementación del plan de área en procura del cumplimiento de los objetivos organizacionales de la Dirección General de Tributación.
+c) Atender las consultas que sobre aspectos jurídicos formulen los Órganos de Control Tributario Material, estableciendo procedimientos que garanticen la calidad y prontitud de este servicio.
+d) Elaborar los procedimientos para la resolución de impugnaciones y recursos sobre actos determinativos y sancionadores; el proceso de lesividad sobre fallos del Tribunal Fiscal Administrativo; gestiones ante las autoridades jurisdiccionales, allanamientos de locales y secuestro de documentos, y la obtención de información financiera de trascendencia tributaria.
+e) Coordinar con el Departamento de Actualización Normativa de la Dirección Normativa y de Tributación Internacional, la revisión de los instrumentos normativos elaborados por este departamento en materia de su competencia, con el fin de que cumplan con los lineamientos generales establecidos por la citada dirección.
+f) Proponer los proyectos de reforma necesarios al marco jurídico tributario atinentes a la competencia de la Dirección de Control Material.
+g) Brindar asistencia técnica a solicitud de los Órganos de Control Tributario Material, respecto de la materia de su competencia.
+h) Evaluar cuantitativa y cualitativamente la ejecución de los planes de control tributario material, respecto de la materia de su competencia.
+i) Atender acciones de inconstitucionalidad interpuestas contra normas atinentes al control tributario material, por solicitud del Director General.
+j) Recomendar y atender la lesividad contra fallos del Tribunal Fiscal Administrativo.
+k) Atender las solicitudes judiciales de embargos preventivos, secuestros de documentos y acceso a información financiera.
+l) Participar a solicitud de la Dirección Normativa y de Tributación Internacional, en las reuniones técnicas, desarrollo de documentos y evaluaciones promovidas por los organismos internacionales en las que se desarrollen y propongan estándares fiscales internacionales.
+m) Velar por el cumplimiento de las políticas y lineamientos de seguridad de la información, conforme a las Políticas del Ministerio de Hacienda, denominadas Política: Corporativa de Seguridad de la Información, Código: MH-DOM-PRO0l-POL-001, Versión 03, emitida en junio 2025, y Política: Específica de Seguridad de la Información, Código: MH-DOM-PRO0l-POL-002, Versión 3, emitida en junio 2025.
+n) Atender las normas y los requerimientos de control interno y valoración de riesgos relacionadas en materia de su competencia conforme a lo dispuesto en la Ley Nº 8292 del 31 de julio del 2002, denominada Ley General de Control Interno, y la Resolución Nº9 de las ocho horas del 27 de mayo del 2002, denominada Normas de control interno para el Sector Público (N-2-2009-CO-DFOE) y reforma Resoluciones Nº R-CO-64-2005, Nº R-CO-26-2007, Nº R-CO-10-2007.
+o) Realizar cualquier otra tarea que le asigne el orden jerárquico correspondiente no contempladas anteriormente, siempre y cuando estén dentro del ámbito de sus competencias y responsabilidades, todo dentro del marco del ordenamiento jurídico.

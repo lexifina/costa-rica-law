@@ -1,0 +1,13 @@
+Artículo 46.- Departamento de Actualizaciones Tributarias Masivas de Bienes.
+Le corresponde a este departamento realizar las siguientes funciones:
+a) Participar en la formulación y evaluar los resultados de los planes en materia de su competencia: Estratégico, Táctico, Plan Mejora de Cumplimiento y del Plan Operativo Anual de la Dirección General de Tributación.
+b) Elaborar el plan de área de la Dirección de Valoraciones Patrimoniales en conjunto con los departamentos que conforman la Dirección de Valoración.
+c) Ejecutar los procesos para la actualización y mantenimiento de la base de datos de valores de vehículos, aeronaves y embarcaciones.
+d) Ejecutar los procesos para la actualización de los valores fiscales de los bienes inmuebles en los sistemas informáticos para efectos de los tributos correspondientes.
+e) Definir los procesos de coordinación con otras direcciones de la Dirección General de Tributación para el intercambio de información interna y externa de interés tributario, relacionada con bienes muebles e inmuebles.
+f) Coordinar con otras direcciones de la Dirección General de Tributación la administración de las bases de datos de valores de bienes muebles e inmuebles para la gestión, recaudación y fiscalización de los impuestos que administra la Dirección General de Tributación.
+g) Disponer las bases de datos de bienes muebles e inmuebles como datos abiertos y públicos.
+h) Proponer y/o coadyuvar en la elaboración de reformas legales, reglamentarias; así como en la creación y modificación de resoluciones, directrices o criterios interpretativos; relacionados con la materia de su competencia
+i) Velar por el cumplimiento de las políticas y lineamientos de seguridad de la información, conforme a las Políticas del Ministerio de Hacienda, denominadas Política: Corporativa de Seguridad de la Información, Código: MH-DOM-PRO0l-POL-001, Versión 03, emitida en junio 2025, y Política: Específica de Seguridad de la Información, Código: MH-DOM-PRO0l-POL-002, Versión 3, emitida en junio 2025.
+j) Atender las normas y los requerimientos de control interno y valoración de riesgos relacionadas en materia de su competencia conforme a lo dispuesto en la Ley Nº 8292 del 31 de julio del 2002, denominada Ley General de Control Interno, y la Resolución N º 9 de las ocho horas del 27 de mayo del 2002, denominada Normas de control interno para el Sector Público (N-2-2009-CO-DFOE) y reforma Resoluciones N º R-CO-64-2005, N º R-CO-26-2007, Nº R-CO-10-2007.
+k) Realizar cualquier otra tarea que le asigne el orden jerárquico correspondiente no contempladas anteriormente, siempre y cuando estén dentro del ámbito de sus competencias y responsabilidades, todo dentro del marco del ordenamiento jurídico.

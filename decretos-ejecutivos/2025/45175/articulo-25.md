@@ -1,0 +1,5 @@
+Articulo 25.- Departamentos y unidades de la Dirección de Cobranza.
+Para cumplir con sus funciones, la Dirección de Cobranza se encuentra conformada de la siguiente manera:
+A nivel funcional se establecen tres departamentos, denominados: "Programación y Seguimiento de Cobranza", "Normas y Procedimientos de Cobranza" y "Técnico Jurídico de Cobranza". A nivel operativo se establecen dos Subdirecciones o Gerencias denominadas: Subdirección Gerencia de Cobranza Administrativa", integrada por cinco (5) Departamentos de Cobranza Administrativa, la Unidad de Gestiones de Cobranza Administrativa; y dos (2)
+Unidades Resolutivas de Cobranza Administrativa; y la Subdirección Gerencia de Cobranza Coactiva, integrada por tres (3) Departamentos de Cobranza Coactiva, la Unidad de Arreglos de Pagos y Gestiones de Cobranza Coactiva.
+Todas las dependencias que conforman la Dirección de Cobranza tienen competencia a nivel nacional para el ejercicio de sus funciones. Sus funciones se regulan conforme a lo establecido en el presente capítulo.

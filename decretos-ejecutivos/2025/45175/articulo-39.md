@@ -1,0 +1,13 @@
+Artículo 39.- Departamento de Programación y Seguimiento de Control Tributario Material.
+Le corresponde a este departamento realizar las siguientes funciones:
+a) Participar en la formulación de los planes: Estratégico, Táctico, del Plan de Mejora de Cumplimiento y del Plan Anual Operativo de la Dirección General de Tributación.
+b) Elaborar y controlar la implementación del plan de área en procura del cumplimiento de los objetivos de la Dirección General de Tributación.
+c) Brindar asistencia técnica a solicitud de los Órganos de Control Tributario Material, respecto a la materia de su competencia.
+d) Formular en conjunto con la Dirección de Inteligencia, las fichas de riesgo relacionadas con la selección de casos para ejecutar control tributario material.
+e) Establecer los atributos para la selección de los obligados tributarios a fiscalizar, realizar las coordinaciones correspondientes con la Dirección de Inteligencia y asignar los casos a los Departamentos de Control Tributario Material.
+f) Asignar y tramitar las solicitudes de intercambio de información por requerimiento a solicitud de otra jurisdicción, realizadas por la Dirección Normativa y de Tributación Internacional.
+g) Realizar el análisis preliminar de las denuncias ciudadanas con el objeto de determinar la procedencia de ejecutar actuaciones de control tributario material.
+h) Participar a solicitud de la Dirección Normativa y de Tributación Internacional, en las reuniones técnicas, desarrollo de documentos y evaluaciones promovidas por los organismos internacionales en las que se desarrollen y propongan estándares fiscales internacionales.
+i) Velar por el cumplimiento de las políticas y lineamientos de seguridad de la información, conforme a las Políticas del Ministerio de Hacienda, denominadas Política: Corporativa de Seguridad de la Información, Código: MH-DOM-PRO0I-POL-001, Versión 03, emitida en junio 2025, y Política: Específica de Seguridad de la Información, Código: MH-DOM-PRO0l-POL-002, Versión 3, emitida en junio 2025.
+j) Atender las normas y los requerimientos de control interno y valoración de riesgos relacionadas en materia de su competencia conforme a lo dispuesto en la Ley Nº 8292 del 31 de julio del 2002, denominada Ley General de Control Interno, y la Resolución N°9 de las ocho horas del 27 de mayo del 2002, denominada Normas de control interno para el Sector Público (N-2- 2009-CO-DFOE) y reforma Resoluciones Nº R-CO-64-2005, N º R-CO-26-2007, Nº R-CO-10-2007.
+k) Realizar cualquier otra tarea que le asigne el orden jerárquico correspondiente no contempladas anteriormente, siempre y cuando estén dentro del ámbito de sus competencias y responsabilidades, todo dentro del marco del ordenamiento jurídico.

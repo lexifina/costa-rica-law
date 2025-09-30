@@ -1,0 +1,3 @@
+Artículo 56.- Departamentos y unidades de la Dirección de Normativa y de Tributación Internacional.
+La Dirección Normativa y de Tributación Internacional está conformada por cinco (5) departamentos funcionales denominados: Departamento del Tributación Internacional, Departamento de Criterio Normativo, Departamento de Intercambio Internacional de Información integrado por la Unidad de Estándares Fiscales y la Unidad de Intercambio de Información; Departamento de Actualización Normativa y el Departamento del Digesto Tributario, Todas las dependencias que conforman la Dirección de Normativa y Tributación Internacional tienen competencia a nivel nacional para el ejercicio de sus funciones.
+Las funciones de estos departamentos se regulan en el presente capítulo.
