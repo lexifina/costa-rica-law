@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese un transitorio al inciso j) del artículo 11 del Reglamento del Régimen de Mutualidad, para que en lo sucesivo se lea de la siguiente forma:
+"TRANSITORIO II. Lo indicado en el inciso j) del artículo 11 del presente Reglamento, no afectará ni invalidará los nombramientos que ya se encuentran firmes y en curso, en respeto al principio de irretroactividad de las normas. La aplicación del nuevo requisito será válida para los nombramientos que se realicen con fecha posterior a la publicación de la presente reforma."
