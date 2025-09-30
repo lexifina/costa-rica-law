@@ -1,1 +1,0 @@
-Artículo 2°-La disponibilidad procede por la necesidad de brindar protección durante las veinticuatro horas del día a los niños, niñas y adolescentes que residen en los albergues u otra alternativa de residencia temporal, que desarrolle el Patronato Nacional de la Infancia.

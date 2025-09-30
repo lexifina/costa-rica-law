@@ -1,1 +1,0 @@
-Artículo 3°-La servidora del PANI adquiere. al aceptar el puesto de Tía Sustituta, el compromiso formal de realizar los trabajos que se requieren, fuera de su jornada ordinaria, para la protección de los niños, niñas y adolescentes.

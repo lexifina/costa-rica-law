@@ -1,1 +1,0 @@
-Artículo 8°-El pago de la disponibilidad lo hará de oficio el Departamento de Recursos Humanos, durante el período en que la funcionaria labore para la Institución y cumpla con lo establecido en el Artículo 5) de este reglamento.
