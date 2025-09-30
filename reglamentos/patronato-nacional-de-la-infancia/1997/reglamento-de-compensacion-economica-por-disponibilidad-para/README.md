@@ -15,3 +15,4 @@ Reglamento de Compensación Económica por Disponibilidad, para el personal con 
 | --- | --- | --- |
 | 1 | 1997-10-03 | la propia norma |
 | 2 | 1999-03-01 | Reglamento 17 (1999-03-01) |
+| 3 | 2025-09-30 | Reglamento 54 (2025-09-30) |
