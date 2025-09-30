@@ -28,3 +28,4 @@ Reglamento a la Ley de Protección Fitosanitaria.
 | 13 | 2024-07-03 | Decreto Ejecutivo 44657 (2024-07-03) |
 | 14 | 2024-07-12 | Decreto Ejecutivo 44719 (2024-07-12) |
 | 15 | 2024-09-30 | Decreto Ejecutivo 44748 (2024-09-30) |
+| 16 | 2025-09-30 | Decreto Ejecutivo 45244 (2025-09-30) |
