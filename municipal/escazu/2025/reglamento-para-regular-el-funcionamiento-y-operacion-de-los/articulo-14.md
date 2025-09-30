@@ -1,0 +1,7 @@
+Artículo 14- Régimen de ingreso y entrega de las personas menores de edad usuarias: El ingreso y entrega de las personas menores de edad usuarias se realizará de la siguiente manera:
+a) Será obligatorio presentar la identificación o hacerse acreditar a la madre, el padre o representante legal, tanto al momento del ingreso de la persona menor de edad al CECUDI como a su retiro durante o al final de la jornada diaria.
+b) Cada entrada y salida se registrará en bitácora, incluyendo hora exacta y firma de la persona que entrega o recoge a la persona menor de edad.
+c) Se mantendrá un registro actualizado de las personas autorizadas para recoger a cada persona menor de edad, con autorización escrita y firmada por la madre, padre o representante legal y copia del documento de identificación de la persona autorizada.
+d) En caso de que una persona no habitual pero autorizada entregue o retire a la persona menor de edad, deberá presentar identificación y se verificará su autorización mediante llamada telefónica a la madre, el padre o representante legal.
+e) Se establecerá un protocolo de actuación para retrasos en la recogida, que incluirá intentos de contacto con las personas responsables y, en última instancia, comunicación con las autoridades competentes.
+f) El personal recibirá capacitación para identificar señales de posible riesgo durante la entrega y se establecerá un protocolo de actuación en estos casos.
