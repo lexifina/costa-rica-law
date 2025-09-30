@@ -1,0 +1,2 @@
+Artículo 53.- Grupos económicos. No se permitirá que los oferentes de grupos económicos utilicen la figura de PYME para obtener los beneficios para ese tipo de empresas dispuesto en ese capítulo y en leyes especiales.
+La información de los grupos económicos deberá estar disponible para las Administraciones contratantes mediante el sistema digital unificado, de forma que oportunamente puedan detectar las prácticas colusorias y aplicar las medidas de exclusión o incumplimiento previstas para estos casos.

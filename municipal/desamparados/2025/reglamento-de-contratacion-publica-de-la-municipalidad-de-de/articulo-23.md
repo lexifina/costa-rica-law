@@ -1,0 +1,1 @@
+Artículo 23.- Excepciones de los procedimientos ordinarios. Las solicitudes de compra por medio de excepción deben ser aprobadas por la Jefatura de la Unidad Solicitante y la Jefatura del Proceso de Adquisiciones.

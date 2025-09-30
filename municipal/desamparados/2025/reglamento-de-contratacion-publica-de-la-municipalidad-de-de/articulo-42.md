@@ -1,0 +1,3 @@
+Artículo 42.- Contratación de servicios. Tratándose de la contratación de servicios, dada la periodicidad con que los mismos serán recibidos, el AC, deberá durante en la etapa de ejecución realizar informes periódicos de la prestación del servicio, según lo establecido en el pliego de condiciones respectivo.
+En dichos informes deberán ser consignadas las condiciones en que se recibe el servicio, así como la satisfacción o cumplimiento de lo pactado. Esos informes periódicos deberán incluirse en el SDU, para ser incorporados al expediente electrónico de la respectiva contratación.
+El AC, deberá coordinar con el PA las situaciones que durante la ejecución contractual pudieran desembocar en el establecimiento de una eventual sanción, resolución o rescisión del contrato.
