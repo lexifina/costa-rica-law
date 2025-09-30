@@ -1,1 +1,0 @@
-Artículo 24.-Sera responsabilidad de los titulares de las dependencias que autorizan el vale, en concurrencia con la Proveeduría Municipal, cumplir con los procedimientos de incorporación al inventario de los bienes adquiridos mediante estas regulaciones así como su posterior comunicación a la Contaduría Municipal para las afectaciones de rigor.

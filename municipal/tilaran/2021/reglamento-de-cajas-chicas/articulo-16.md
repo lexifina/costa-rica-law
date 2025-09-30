@@ -1,1 +1,0 @@
-Artículo 16.-Una vez recibida(s) la(s) cotización (es), que puede(n) provenir por oferentes no invitados, el titular de la dependencia interesada efectuará el análisis de las cotizaciones y procederá, en caso de ser conveniente, a dictar y suscribir la resolución de adjudicación que corresponda, para lo cual dispondrá de un plazo máximo de dos (02) días hábiles.

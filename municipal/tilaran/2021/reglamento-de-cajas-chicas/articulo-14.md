@@ -1,3 +1,0 @@
-CAPÍTULO III
-De la resolución de adjudicación de la adquisición
-Artículo 14.-Una vez que se haya verificado la disponibilidad presupuestaria, la dependencia interesada en la adquisición cursará invitación, ya sea por medios físicos o electrónicos, a tres potenciales oferentes, dedicados al giro propio del objeto contractual, a presentar cotizaciones del bien o servicio a adquirir. Para esos efectos se utilizará el Registro de Proveedores que utiliza la Proveeduría Municipal. En caso de no existir dicha cantidad de oferentes registrados se podrá invitar a otros que no lo estuvieren hasta completar ese mínimo de invitaciones. En este último supuesto se le(s) invitará a conformar el Registro de Proveedores.

@@ -1,1 +1,0 @@
-Artículo 36.-Todo arqueo de caja chica se realizará en presencia de la Tesorería Municipal, según lo dispuesto en el numeral 118 del Código Municipal o en presencia del (de la) funcionario(a) que esta designe para tales efectos. Este(a) funcionario(a) tendrá el derecho de pedir una segunda verificación, si se mantienen dudas sobre el resultado obtenido.

@@ -1,1 +1,0 @@
-Artículo 20.-Cuando por cualquier motivo la adquisición no se lleve a cabo, el (la) funcionario(a) que recibió el dinero del vale de Caja Chica, deberá hacer el reintegro de forma inmediata al acaecimiento del impedimento. Para tales efectos deberá aportarse la resolución indicada en el artículo 17 anterior.

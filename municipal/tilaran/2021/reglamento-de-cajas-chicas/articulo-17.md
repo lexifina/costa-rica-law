@@ -1,1 +1,0 @@
-Artículo 17.-En los supuestos de no recibir cotizaciones, o habiéndolas recibido las mismas superen el monto presupuestario disponible, o no convenga al interés público según la acreditación de ello que quedara consignado, se dictará la resolución de infructuosidad o deserción del concurso según corresponda.
