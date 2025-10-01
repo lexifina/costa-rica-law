@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en investigación, desarrollo e innovación de medicamentos realiza sus funciones en todas aquellas áreas del conocimiento relacionadas al diseño y desarrollo de medicamentos y productos sanitarios afines; así como de nuevos principios activos o de nuevas formas farmacéuticas de alto valor añadido.

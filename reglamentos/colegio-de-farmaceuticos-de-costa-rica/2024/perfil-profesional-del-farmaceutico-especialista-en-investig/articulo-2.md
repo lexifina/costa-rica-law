@@ -1,0 +1,3 @@
+Artículo 2.- Especialidad en investigación, desarrollo e innovación de medicamentos:
+La especialidad en investigación, desarrollo e innovación de medicamentos es una rama de la farmacia encargada del diseño y desarrollo de medicamentos y productos sanitarios afines; así como de nuevos principios activos o de nuevas formas farmacéuticas de alto valor añadido, que pueden llegar a requerir el uso de técnicas avanzadas de biología molecular, biotecnología o computacionales.
+Está orientada también a la búsqueda de la calidad del medicamento, por lo que toma parte en diversos procesos involucrados en su producción y control; así como en etapas de investigación preclínica y clínica.
