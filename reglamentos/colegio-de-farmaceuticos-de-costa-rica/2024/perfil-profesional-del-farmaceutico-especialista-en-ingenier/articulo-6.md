@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en ingeniería farmacéutica realiza sus funciones en todas aquellas áreas del conocimiento relacionadas al desarrollo y diseño de instalaciones, en equipos de producción utilizados para elaborar medicamentos de uso humano, de uso veterinario y de otros productos sanitarios afines.

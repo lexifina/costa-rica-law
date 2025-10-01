@@ -1,0 +1,4 @@
+Artículo 2.- Especialidad en ingeniería farmacéutica:
+La especialidad en ingeniería farmacéutica está orientada a la ejecución de estudios que permitan que la planta farmacéutica cuente con condiciones idóneas y reglamentarias, lo cual optimiza los costos de inversión.
+El profesional farmacéutico especialista en ingeniería farmacéutica se involucra en el desarrollo y diseño de instalaciones, en equipos de producción utilizados para elaborar medicamentos de uso humano, de uso veterinario y de otros productos sanitarios afines.
+A su vez, el profesional farmacéutico especialista en ingeniería farmacéutica se encarga de la puesta a punto de operaciones unitarias y demás procesos en la industria farmacéutica, cuya labor es extensible a industrias que elaboran otros productos de interés sanitario de uso humano o animal.

@@ -1,0 +1,1 @@
+Artículo 9.- Administrativas. El profesional farmacéutico especialista en ingeniería farmacéutica podrá participar del proceso administrativo entendiendo este como el proceso de planificar, organizar, dirigir y controlar; como parte del flujo continuo de actividades que se desarrollan dentro de una organización.
