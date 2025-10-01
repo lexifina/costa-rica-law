@@ -1,0 +1,1 @@
+Artículo 7.- Investigación. El profesional farmacéutico especialista en biofarmacia cuenta con los conocimientos en el método científico, metodología de la investigación e investigación clínica, lo cual le permiten trabajar en el diseño, ejecución y asesorías de investigaciones relacionadas a la biofarmacia para mejorar la eficacia y seguridad de los medicamentos.
