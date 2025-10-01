@@ -1,0 +1,1 @@
+Artículo 9. -Será requisito para la existencia legal de la Junta Vial, así como para el inicio del ejercicio colegiado de sus competencias, que todos los miembros hayan sido nombrados e investidos previamente, mediante el solemne juramento constitucional realizado en sesión formal del Concejo Municipal.
