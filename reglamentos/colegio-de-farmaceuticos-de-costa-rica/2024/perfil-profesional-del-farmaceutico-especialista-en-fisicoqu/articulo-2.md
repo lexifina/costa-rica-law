@@ -1,0 +1,3 @@
+Artículo 2.- Especialidad en fisicoquímica farmacéutica:
+La fisicoquímica farmacéutica es una rama de las ciencias farmacéuticas encargada de estudiar los fenómenos y mecanismos que explican el comportamiento de diferentes sistemas desde el funcionamiento y mecanismos de los sistemas biológicos, tanto a nivel de sistemas, de órganos, órganos individuales, tejidos, células y biomoléculas que llevan a cabo las funciones químicas y físicas en un sistema vivo.
+El profesional farmacéutico especializado en fisicoquímica, además de aportar en las áreas de investigación biomédica y educación superior, pueden colaborar en los servicios de salud, al identificar factores fisiológicos que alteran la respuesta farmacológica de un medicamento.
