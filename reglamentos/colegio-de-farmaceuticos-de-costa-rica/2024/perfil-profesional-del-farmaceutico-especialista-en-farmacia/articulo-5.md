@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en Farmacia Geriátrica realiza sus funciones en todos aquellos servicios farmacéuticos relacionados a la atención y las necesidades farmacoterapéuticas de las personas adultas mayores.
