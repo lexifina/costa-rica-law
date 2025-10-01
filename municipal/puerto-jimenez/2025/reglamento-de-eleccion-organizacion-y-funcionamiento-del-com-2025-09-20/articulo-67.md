@@ -1,0 +1,1 @@
+ARTÍCULO 67.- Elección de los puestos de la Junta Directiva de los Comités Comunales. Los miembros del Comité Comunal, una vez electos, procederán entre ellos, a la elección de los puestos de la Junta Directiva del Comité Comunal, lo cual deberá contar en el acta respectiva y ser comunicado al CCDRPJ.

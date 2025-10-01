@@ -1,0 +1,1 @@
+ARTÍCULO 81.- Cuenta Bancaria del CCDRPJ. Toda recaudación deberá estar debidamente registrada, para este efecto el CCDRPJ deberá de contar con una cuenta en cualquier ente del Banca Nacional y Sistema Financiero, supervisado por la Superintendencia General de Entidades Financieras.

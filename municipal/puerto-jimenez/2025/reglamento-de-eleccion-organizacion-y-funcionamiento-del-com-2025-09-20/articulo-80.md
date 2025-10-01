@@ -1,0 +1,1 @@
+ARTÍCULO 80.- Inicio y cierre del presupuesto anual. Para los efectos del CCDRPJ, el año fiscal y el período de plan anual operativo y su respectivo presupuesto inician el 1° de enero y finalizan el 31 de diciembre de cada año.

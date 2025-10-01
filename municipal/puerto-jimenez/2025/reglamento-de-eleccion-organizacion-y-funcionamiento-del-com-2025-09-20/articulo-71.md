@@ -1,0 +1,1 @@
+ARTÍCULO 71.- Sesiones de los Comités Comunales. Los Comités Comunales deberán reunirse en sesión pública, una vez por quincena ordinariamente y extraordinariamente cuando lo requieran. El CCDRPJ debe capacitar a los miembros de los Comités Comunales en relación con el orden del manejo de correspondencia, actas, dineros, proyectos, planes y políticas, entre otros.

@@ -1,0 +1,1 @@
+TRANSITORIO III. - La estructura administrativa se constituirá conforme las necesidades actuales del CCDRPJ y siempre sujeta a la existencia de contenido económico y teniendo en consideración que no se vean afectados programas deportivos, objetivo primordial del CCDRPJ.

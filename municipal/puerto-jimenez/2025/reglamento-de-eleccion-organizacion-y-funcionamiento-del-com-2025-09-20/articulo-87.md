@@ -1,0 +1,1 @@
+ARTÍCULO 87.- Presupuestos Extraordinarios y Modificaciones Presupuestarias. Toda la materia relativa a presupuestos extraordinarios y modificaciones presupuestarias se regirá por lo dispuesto en el Reglamento Interno sobre Variaciones al Presupuesto del Comité Cantonal de Deportes y Recreación de Puerto Jiménez.

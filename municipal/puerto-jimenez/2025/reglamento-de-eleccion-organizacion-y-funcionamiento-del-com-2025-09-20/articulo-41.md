@@ -1,0 +1,1 @@
+ARTÍCULO 41.- De los acuerdos. Las determinaciones o decisiones que tome la Junta del CCDRPJ, por mayoría simple, se denominarán acuerdos y para modificar un acuerdo que haya quedado firme se requiere la misma cantidad de votos que obtuvo la aprobación del mismo. Estos acuerdos serán tramitados y comunicados por la Secretaría y deberán ser ejecutados por la Administración.

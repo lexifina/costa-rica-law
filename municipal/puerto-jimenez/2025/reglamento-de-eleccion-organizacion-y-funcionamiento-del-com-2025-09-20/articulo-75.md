@@ -1,0 +1,1 @@
+ARTÍCULO 75.- Prohibición. Está prohibido a los Comités Comunales de Deportes hacer uso de los dineros o fondos que recauden, mismos que deben ser trasladados al CCDRPJ, para ser presupuestados y asignados de conformidad con la normativa vigente.

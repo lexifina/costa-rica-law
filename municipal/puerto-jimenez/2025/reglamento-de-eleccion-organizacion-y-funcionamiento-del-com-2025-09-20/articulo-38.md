@@ -1,0 +1,1 @@
+ARTÍCULO 38.- Votación de acuerdos. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado.

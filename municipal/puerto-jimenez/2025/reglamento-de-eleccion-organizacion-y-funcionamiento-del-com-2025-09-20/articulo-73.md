@@ -1,0 +1,1 @@
+ARTÍCULO 73.- Organización de eventos. Cuando el Comité Comunal en coordinación con el área técnica del CCDRPJ realice torneos deportivos o eventos de recreación, estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la Junta del CCDRPJ.
