@@ -1,0 +1,1 @@
+Artículo 5.- Con el fin de dar seguimiento al control de implementación y grado de avance de las acciones que se adopten, las instituciones públicas que conforman el Sector Obras Públicas y Transportes deberán facilitar y reportar la información necesaria a la Secretaría de Planificación Sectorial.

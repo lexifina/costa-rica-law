@@ -1,0 +1,1 @@
+Artículo 2.- Con carácter obligatorio, las instituciones públicas que conforman el Sector Obras Públicas y Transportes deberán poner en ejecución el Plan con sus objetivos, metas y acciones generales que les correspondan. Los planes ministeriales, organizacionales o sectoriales que se deriven, deberán ser coordinados con la Secretaría de Planificación Sectorial.

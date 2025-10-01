@@ -1,0 +1,1 @@
+Artículo 6.- Que los órganos desconcentrados y entes descentralizados inmersos en la ejecución de las acciones estratégicas contenidas en el Plan de Acción de la disposición 4.8 del Informe No. DFOE-IADCIU- 00008-2023, deben apoyar la implementación del referido plan, en orden a las competencias conferidas por ley a cada órgano o ente.
