@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en control de calidad de medicamentos y afines realiza sus funciones en todas aquellas áreas del conocimiento relacionadas a garantizar la efectividad y la seguridad de los medicamentos fabricados, asegurando el cumplimiento de la normativa vigente.

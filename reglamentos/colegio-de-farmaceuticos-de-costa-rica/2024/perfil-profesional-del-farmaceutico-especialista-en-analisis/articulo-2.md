@@ -1,0 +1,3 @@
+Artículo 2.- Especialidad en análisis y control de calidad de medicamentos y afines:
+La especialidad en análisis y control de calidad de medicamentos y afines es una rama de la farmacia encargada de determinar si los productos farmacéuticos cumplen con las especificaciones de calidad requeridas para su uso seguro y eficaz para la población, mediante el seguimiento de pruebas farmacopeicas y, en caso necesario, el desarrollo los métodos de análisis requeridos.
+Esta especialidad farmacéutica cumple un rol relevante en el proceso de producción de medicamentos y otros productos sanitarios afines, al establecer controles de calidad desde la materia prima de la que se parte hasta el producto terminado. Incluso se aplica en controles post-comercialización.

@@ -1,0 +1,1 @@
+Artículo 8.- Docencia. El profesional farmacéutico especialista en control de calidad de medicamentos y afines podrá participar en la formación académica universitaria de grado, posgrado y formación continua de los profesionales en farmacia.
