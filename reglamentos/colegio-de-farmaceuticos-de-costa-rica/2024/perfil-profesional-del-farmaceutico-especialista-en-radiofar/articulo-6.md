@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en radiofarmacia realiza sus funciones en todas aquellas áreas del conocimiento relacionadas a los aspectos químicos, físicos, biológicos y bioquímicos de los radiofármacos para su diseño, preparación, control de calidad administración y dispensación a los pacientes que los requieren.

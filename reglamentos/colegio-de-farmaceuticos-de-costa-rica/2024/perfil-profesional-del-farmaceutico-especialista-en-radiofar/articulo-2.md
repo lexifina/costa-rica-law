@@ -1,0 +1,4 @@
+Artículo 2.- Especialidad en radiofarmacia:
+La radiofarmacia es la especialidad de la farmacia que estudia los aspectos químicos, físicos, biológicos y bioquímicos de los radiofármacos para su diseño, preparación, control de calidad administración y dispensación a los pacientes que los requieren.
+El profesional farmacéutico especialista en radiofarmacia es responsable de la radiofarmacia en cualquier organización, empresa pública o privada que brinde estos servicios. Además, debe contar con licencia de radioperador en medicina nuclear vigente del Ministerio de Salud de Costa Rica.
+El profesional farmacéutico especialista en radiofarmacia se responsabiliza por el buen uso de los radiofármacos y la adecuada gestión de sus residuos. También se encarga de la utilización de nucleidos como trazadores, así como en su empleo en procedimientos de diagnóstico y terapia.
