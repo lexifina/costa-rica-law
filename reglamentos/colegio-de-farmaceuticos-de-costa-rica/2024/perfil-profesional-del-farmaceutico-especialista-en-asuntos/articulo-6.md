@@ -1,0 +1,1 @@
+Artículo 6. No asistenciales. El profesional farmacéutico especialista en asuntos regulatorios cuenta con los conocimientos en el ámbito de la farmacia industrial y la regulación y política farmacéutica, lo cual le permiten ser aplicados en las oficinas de asuntos regulatorios.
