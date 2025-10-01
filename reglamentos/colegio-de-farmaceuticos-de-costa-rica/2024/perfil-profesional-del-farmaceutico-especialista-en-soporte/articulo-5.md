@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en soporte nutricional clínico realiza sus funciones en todos aquellos servicios farmacéuticos relacionados a brindar el seguimiento de los pacientes con condiciones energético-proteicas deficientes, y nutrición parenteral.
