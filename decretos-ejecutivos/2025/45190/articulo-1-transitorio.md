@@ -1,0 +1,2 @@
+DISPOSICIÓN TRANSITORIA
+TRANSITORIO I- El plazo establecido en el Artículo 2 del presente reglamento, no será aplicable para el nombramiento del representante de los servicios especiales que se debe realizar al amparo del transitorio II de la Ley 10676, razón por la cual, las asociaciones debidamente constituidas deberán presentar el nombre de los representantes y las inscripciones que demuestren la vigencia y existencia de sus organizaciones a más tardar el 01 de septiembre del 2025.
