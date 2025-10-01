@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en salud pública realiza sus funciones en todos aquellos servicios farmacéuticos relacionados a la enfermedad oncológica o crónica con tratamiento no curativo aplicando la farmacoterapia, de manera que procure brindar los mejores resultados posibles y una mejor calidad de vida en los pacientes.

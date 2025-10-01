@@ -1,0 +1,1 @@
+Artículo 7.- Docencia. El profesional farmacéutico especialista en salud pública podrá participar en la formación académica universitaria de grado, posgrado y formación continua de los profesionales en farmacia.
