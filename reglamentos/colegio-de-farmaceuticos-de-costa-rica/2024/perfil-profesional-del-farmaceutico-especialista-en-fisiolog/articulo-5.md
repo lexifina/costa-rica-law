@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en fisiología realiza sus funciones en todos aquellos servicios farmacéuticos relacionados al funcionamiento y mecanismos de los sistemas biológicos, tanto a nivel de sistemas, de órganos, órganos individuales, tejidos, células y biomoléculas que llevan a cabo las funciones químicas y físicas en un sistema vivo.

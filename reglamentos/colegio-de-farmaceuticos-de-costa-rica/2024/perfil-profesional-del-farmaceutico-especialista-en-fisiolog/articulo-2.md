@@ -1,0 +1,3 @@
+Artículo 2.- Especialidad en fisiología:
+La fisiología es una rama de las ciencias biomédicas encargada de estudiar el funcionamiento y mecanismos de los sistemas biológicos, tanto a nivel de sistemas, de órganos, órganos individuales, tejidos, células y biomoléculas que llevan a cabo las funciones químicas y físicas en un sistema vivo.
+El profesional farmacéutico especialista en fisiología, además de aportar sus conocimientos en las áreas de investigación biomédica y educación superior, también colabora en servicios de salud en el ámbito público y privado al identificar factores fisiológicos que pueden alterar la respuesta farmacológica de un medicamento.

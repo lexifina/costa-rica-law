@@ -1,0 +1,1 @@
+Artículo 6.- Investigación. El profesional farmacéutico especialista en fisiología cuenta con los conocimientos en el método científico, metodología de la investigación e investigación clínica, lo cual le permiten trabajar en el diseño, ejecución y asesorías de investigaciones relacionadas a la fisiología.
