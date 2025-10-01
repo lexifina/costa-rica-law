@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Ejecutivo número 45069-H del 17 de junio de 2025, publicado en el Alcance N°82 a La Gaceta N° 123 del 04 de julio de 2025 mediante el cual se actualizó el impuesto a partir del 1° de julio de 2025, a partir de la vigencia del presente decreto.
