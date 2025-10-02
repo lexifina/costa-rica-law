@@ -1,0 +1,1 @@
+Artículo 13.-Servicios de TIC de terceros, Infraestructura como servicio, Aplicaciones para la Gestión de TIC. La Unidad de Informática ha definido las aplicaciones y servicios externos para la gestión de TIC, que están identificados en el Perfil Tecnológico en Servicios de Terceros.

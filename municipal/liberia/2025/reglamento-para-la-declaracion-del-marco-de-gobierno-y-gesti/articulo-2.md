@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Las disposiciones establecidas en este reglamento son aplicables al Comité Gerencial de Tecnología de Información y Comunicaciones (CGTIC), así como los dueños de los procesos establecidos en la declaración de este marco de gobierno y gestión de la Municipalidad de Liberia.
