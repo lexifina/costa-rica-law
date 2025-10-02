@@ -1,0 +1,1 @@
+Artículo 16.-Partida Presupuestaria para el pago de tiempo extraordinario. Todo departamento municipal, que, por su naturaleza, sea propenso a atender situaciones imprevisibles, deberá planificar dentro de su funcionamiento, la presupuestación de contenido suficiente para afrontar la erogación por pago de tiempo extraordinario.
