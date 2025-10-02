@@ -14,3 +14,4 @@ Reglamento para la solicitud autorización, reconocimiento y compensación del t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-10-02 | la propia norma |
+| 2 | 2025-10-02 | Reglamento municipal 43 (2025-02-25) |

@@ -4,3 +4,5 @@ Si las condiciones por las cuales los funcionarios han estado laborando tiempo e
 B- Todo trabajador deberá al menos laborar de forma efectiva, un mínimo de media hora posterior a la jornada laboral ordinaria, para que se reconozca su pago por concepto de tiempo extraordinario.
 C- La jornada extraordinaria no podrá exceder de 4 horas por día, salvo los sábados, domingos, feriados, de asuetos o descansos declarados por norma expresa en que se podrá laborar un máximo de 12 horas por día.
 D- El tiempo del traslado o desplazamiento, ya sea en vehículo municipal o particular del funcionario llamado a realizar labores en tiempo extraordinario, no constituye tiempo efectivo de trabajo, por lo cual no será reconocido para el pago correspondiente de la jornada extraordinaria.
+Se exceptúan de la limitación establecida en el presente artículo los puestos que, por la naturaleza de sus funciones y las necesidades institucionales, requieran jornadas extraordinarias continuas para garantizar la operatividad.
+(Así adicionado el párrafo anterior en session N° 43-2025 del 25 de febrero del 2025)
