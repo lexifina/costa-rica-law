@@ -1,0 +1,1 @@
+Artículo 17.-Límite y Justificación de Modificaciones. Se establece un máximo de diez (10) modificaciones presupuestarias de aprobación del concejo por año. Toda solicitud de modificación deberá estar rigurosamente justificada, demostrando su necesidad, urgencia y su impacto en el cumplimiento de metas del POA.

@@ -1,0 +1,1 @@
+Artículo 11.-Vinculación Obligatoria con la Planificación. No se incluirá ninguna partida de gasto en el proyecto de presupuesto que no esté explícitamente codificada y referenciada a una meta del Plan Operativo Anual (POA). La Unidad de Planificación deberá validar dicha vinculación antes de que la Unidad de Presupuesto consolide la información.

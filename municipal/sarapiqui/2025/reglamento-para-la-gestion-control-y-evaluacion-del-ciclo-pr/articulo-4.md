@@ -1,0 +1,1 @@
+Artículo 4º-Principios Rectores. El ciclo presupuestario se regirá por los principios de legalidad, anualidad, universalidad, equilibrio, transparencia, rendición de cuentas, participación ciudadana, eficiencia, eficacia y el principio de vinculación plan-presupuesto.

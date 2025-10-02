@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para la Alcaldía, el Concejo Municipal, las comisiones del concejo, la auditoría interna, las jefaturas de las unidades administrativas y técnicas, así como para todo funcionario involucrado en el ciclo presupuestario de la Municipalidad de Sarapiquí y sus órganos dependientes.

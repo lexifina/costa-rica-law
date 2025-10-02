@@ -1,0 +1,1 @@
+Artículo 9º-De la Auditoría Interna. Ejercerá su función fiscalizadora de conformidad con la ley, evaluando el sistema de control interno del ciclo presupuestario y emitiendo las recomendaciones pertinentes para su fortalecimiento.

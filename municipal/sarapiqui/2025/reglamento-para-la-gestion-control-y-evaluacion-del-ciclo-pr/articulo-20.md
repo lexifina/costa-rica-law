@@ -1,0 +1,1 @@
+Artículo 20.-Evaluación Anual. Al finalizar el período presupuestario, la Alcaldía realizará una evaluación final del cumplimiento del presupuesto y del POA, cuyos resultados serán insumo obligatorio para la formulación del siguiente ciclo.
