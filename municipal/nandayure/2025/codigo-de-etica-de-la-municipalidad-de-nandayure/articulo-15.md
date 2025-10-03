@@ -1,0 +1,1 @@
+Artículo 15.-Presentación de denuncias. Las denuncias pueden presentarse por escrito o verbalmente, según lo permita la situación. Se admitirá la denuncia anónima siempre que venga acompañada de elementos suficientes que permitan abrir una investigación preliminar. De lo contrario, se procederá al archivo motivado.

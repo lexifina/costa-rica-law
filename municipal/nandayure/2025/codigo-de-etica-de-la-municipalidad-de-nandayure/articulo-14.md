@@ -1,0 +1,1 @@
+Artículo 14.-Garantía de confidencialidad. Durante todo el proceso de atención de una denuncia, se garantizará la confidencialidad del denunciante y de toda información que permita identificarlo, incluso después de finalizado el procedimiento, salvo orden judicial o disposición legal expresa.

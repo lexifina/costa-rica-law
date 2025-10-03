@@ -1,0 +1,1 @@
+Artículo 13.-Deber de denunciar. Todo funcionario y colaborador tiene el deber de informar, por los canales establecidos, cualquier hecho que razonablemente pueda constituir una violación al presente Código o a la normativa vigente. La omisión de este deber puede ser sancionada administrativamente.

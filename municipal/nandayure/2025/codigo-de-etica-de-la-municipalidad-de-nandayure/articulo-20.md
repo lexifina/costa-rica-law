@@ -1,0 +1,1 @@
+Artículo 20-Registro y reporte de denuncias. Toda denuncia que sea procesada deberá regirse conforme al debido proceso. Las dependencias competentes deberán remitir un informe trimestral al Comité con un resumen de las denuncias tramitadas, acciones adoptadas y estado de resolución. El Comité informará a la Alcaldía y al Concejo para su control interno y toma de decisiones.

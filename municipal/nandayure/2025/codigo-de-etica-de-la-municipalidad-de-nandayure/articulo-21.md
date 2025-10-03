@@ -1,0 +1,1 @@
+Artículo 21.-Vigencia. El presente Código de Ética rige a partir de su publicación en el Diario Oficial y sustituye cualquier norma, directriz o manual previo en materia de principios y conducta ética dentro de la Municipalidad de Nandayure.
