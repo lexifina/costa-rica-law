@@ -1,0 +1,2 @@
+Artículo 39.- Cierre parcial o total de la vía
+Cuando se deba efectuar el cierre parcial o total de la vía para la ejecución de los trabajos a que refiere el presente Reglamento, el solicitante deberá contar con el respectivo permiso de la Dirección General de Ingeniería de Tránsito del MOPT, asimismo, cumplir con la señalización y demás condiciones que ésta establezca, conforme lo dispuesto en el Reglamento de Dispositivos de Seguridad y Control Temporal de Tránsito para la Ejecución de Trabajos en las Vías, Decreto Ejecutivo No. 38799-MOPT del 10 de noviembre de 2014.

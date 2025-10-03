@@ -1,0 +1,2 @@
+Artículo 21.- Responsabilidad Civil extracontractual por vicios ocultos.
+El MOPT se encuentra facultado para reclamar al permisionario, la indemnización por daños y perjuicios en razón de vicios ocultos originados por los trabajos realizados en el derecho de vía; lo anterior de conformidad con lo estipulado en el artículo 1045 del Código Civil, Ley No. 30 del 19 de abril de 1885 y sus reformas y 868 de ese mismo cuerpo legal y demás normativa que resulte aplicable.

@@ -1,0 +1,2 @@
+Artículo 34.- Modificaciones a la Infraestructura de Telecomunicaciones
+Toda modificación a la infraestructura de telecomunicaciones que implique rotura de elementos de infraestructura vial, deberá ser comunicado al Departamento de Previsión Vial, debiéndose cumplir, además, con el procedimiento dispuesto en el capítulo II del presente Reglamento, para el otorgamiento del permiso respectivo y realizar a su vez, los trámites pertinentes ante los gobiernos locales, en los casos que corresponda.

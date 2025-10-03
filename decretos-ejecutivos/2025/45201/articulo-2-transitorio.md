@@ -1,0 +1,2 @@
+TRANSITORIO II
+En el caso de proyectos desarrollados por instituciones públicas u organismos locales encargados de la gestión del servicio público de agua potable y alcantarillado sanitario, que hayan sido presupuestados previo a la entrada en vigencia del presente reglamento, podrán ser ejecutados sin observar lo dispuesto en el Anexo 1 en lo que respecta al asfaltado completo del ancho del carril, cuando se coloquen tuberías de 80cm o más diámetro, o cuya rotura abarque más del 50% del ancho de un carril.

@@ -1,0 +1,2 @@
+TRANSITORIO VII
+El pago del Canon establecido en este reglamento no aplicará para los permisos otorgados antes de la entrada en vigencia del presente cuerpo normativo. Una vez ajustados los plazos, conforme se establece en el transitorio anterior y pasado el período temporal que se establezca, el canon se cobrará según lo dispuesto en la Resolución No. MH-DGTRES- 0010-2024 de las diez horas y treinta minutos del veintidós de mayo de dos mil veinticuatro, modificada mediante Fe de Erratas, que se publicó en el diario oficial La Gaceta No. 131 del 17 de julio de 2024.

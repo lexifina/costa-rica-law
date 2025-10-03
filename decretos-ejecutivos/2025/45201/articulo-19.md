@@ -1,0 +1,4 @@
+Artículo 19.- De la finalización de los trabajos y comunicación por parte del solicitante
+Una vez ejecutados los trabajos y dentro del plazo de 8 días hábiles después de su finalización, el solicitante deberá comunicarlo por escrito al Departamento de Previsión Vial.
+Cuando se trate de rotura de vías, con tal comunicación deberá adjuntar lo indicado en el Anexo 2 de este reglamento. Corresponde a la Dirección de Ingeniería de la División de Obras Públicas, revisar y avalar los informes que se presenten según lo estipulado en dicho anexo.
+La División de Obras Públicas contará con un plazo de 2 meses a partir de la comunicación por parte del solicitante, para hacer las verificaciones respectivas e informarle a éste las correcciones que debe realizar y el plazo en que debe ejecutarlas, cuando así corresponda o bien, para comunicarle que los trabajos de reparación se realizaron a satisfacción.

@@ -1,0 +1,3 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I
+Las gestiones presentadas con anterioridad a la entrada en vigencia de este reglamento, continuarán sustanciándose procedimentalmente, en todos sus trámites y recursos por las disposiciones que regían a la fecha de su inicio. Las gestiones que se encuentren en la fase de presentación de requisitos, deberán cumplir con su entrega en un plazo máximo de 6 meses contados a partir de la entrada en vigencia del presente reglamento. Sin embargo, el solicitante estará facultado para solicitar expresamente a la Administración el archivo de su gestión, a efectos de iniciar una nueva solicitud a tramitarse conforme a lo dispuesto en este cuerpo normativo.

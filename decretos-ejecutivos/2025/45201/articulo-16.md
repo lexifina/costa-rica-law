@@ -1,0 +1,2 @@
+Artículo 16.- Inoperancia del silencio positivo.
+En el trámite para la obtención del permiso para la rotura de elementos de infraestructura vial o la ejecución de trabajos en el derecho de vía de la Red Vial Nacional, con el objeto de ejecutar obras destinadas a la prestación de servicios públicos y servicios de telecomunicaciones, no opera el silencio positivo, en virtud de estar vinculado con la tutela de bienes de dominio público.

@@ -1,0 +1,3 @@
+Artículo 27.- Instalación de Infraestructura de Telecomunicaciones
+El lugar definido para la instalación de infraestructura de telecomunicaciones en el derecho de vía de la red vial nacional debe obedecer a criterios técnicos, según los requerimientos de cobertura y calidad de servicio; no obstante, deberá respetar lo dispuesto en la Ley No. 7600.
+Como complemento de lo anterior, por un aspecto de seguridad vial, los postes de telecomunicaciones que se instalen en el derecho de vía deben tener una distancia de separación de 10 metros respecto del borde interno de las esquinas, asimismo, cumplir con el Manual SCV Guía para el Análisis y Diseño de Seguridad Vial de Márgenes de Carreteras.

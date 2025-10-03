@@ -1,0 +1,2 @@
+Artículo 18.- Comunicación sobre el inicio de los trabajos
+El solicitante deberá comunicar al Departamento de Previsión Vial, la fecha en que iniciará la obra a la dirección de correo electrónico roturas@mopt.go.cr. Esta comunicación deberá remitirla con 15 días naturales de antelación al inicio de ésta. El Departamento de Previsión Vial coordinará a lo interno de la División de Obras Públicas y sus Regionales, las acciones necesarias para realizar la fiscalización a que refiere el artículo anterior.

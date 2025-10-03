@@ -1,0 +1,3 @@
+Artículo 7.- Registro y control de los permisos
+Una vez que entre en funcionamiento el módulo de roturas del sistema SIPREVI, el Departamento de Previsión Vial llevará un registro de todos los permisos que otorgue, el cual deberá incluir, entre otros aspectos que se consideren pertinentes: el nombre de la persona física o jurídica en favor de la cual se emitió el permiso, el tipo de permiso, el costo de la obra a realizar en el derecho de vía, el monto de la garantía, dirección exacta y/o geolocalización en la cual se efectuarán los trabajos, fecha de vencimiento del permiso y sus prórrogas.
+Asimismo, tendrá un inventario de las verificaciones sobre reparación de las vías y ejecución de garantías.
