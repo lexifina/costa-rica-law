@@ -1,0 +1,1 @@
+Artículo 21. Solicitud de ampliación. Una vez recibida, la Comisión Investigadora contará con un plazo de tres (3) días hábiles para solicitar ampliación o aclaración de la denuncia, si lo estima necesario para determinar su admisibilidad. La persona denunciante deberá atender el requerimiento en un plazo máximo de tres (3) días hábiles, contados a partir de su notificación.

@@ -1,0 +1,2 @@
+Artículo 87. Conservación de expedientes. Los expedientes físicos o digitales relacionados con procedimientos tramitados al amparo del presente reglamento deberán ser archivados por un plazo mínimo de diez (10) años, contados a partir de la fecha de la resolución final. Su custodia estará a cargo de la Secretaría de la Junta Directiva, en coordinación con la Asesoría Legal del Comité.
+(Nota de Sinalevi: El presente numeral aparece como artículo 87. No obstante del análisis se deduce que en realidad corresponde al artículo 48 del reglamento)

@@ -1,0 +1,1 @@
+Artículo 36. Investidura y deberes. La designación mediante reglamento confiere investidura formal a las personas integrantes de la Comisión, quienes desde su nombramiento adquieren plena responsabilidad funcional, quedando obligadas a actuar con neutralidad, confidencialidad, objetividad y sujeción irrestricta al debido proceso y a los principios rectores de este reglamento.

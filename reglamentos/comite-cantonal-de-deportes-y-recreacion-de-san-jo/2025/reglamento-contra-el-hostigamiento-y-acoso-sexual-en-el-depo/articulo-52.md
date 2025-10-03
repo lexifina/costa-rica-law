@@ -1,0 +1,1 @@
+Artículo 52. Promoción de cultura organizacional sana. Estas personas deberán ser agentes activos en la promoción de una cultura institucional basada en el respeto, la igualdad de género, la no discriminación y la prevención de toda forma de violencia sexual.

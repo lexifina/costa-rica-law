@@ -1,0 +1,1 @@
+Artículo 39. Garantías de actuación. La Comisión actuará con independencia funcional, confidencialidad, neutralidad e imparcialidad. Las personas integrantes deberán excusarse obligatoriamente en caso de vínculos personales, laborales, jerárquicos o de interés con las partes involucradas, procediéndose en tales casos a convocar a la persona suplente correspondiente.

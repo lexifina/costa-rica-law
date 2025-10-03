@@ -1,0 +1,1 @@
+Artículo 19. Recepción y remisión de la denuncia. La denuncia deberá presentarse ante la Secretaría de la Junta Directiva del Comité. Esta contará con un plazo máximo de veinticuatro (24) horas hábiles para remitirla oficialmente a la Comisión Investigadora.

@@ -1,0 +1,1 @@
+Artículo 22. Admisibilidad y apertura del procedimiento. Conforme al análisis preliminar, la Comisión Investigadora determinará si la denuncia es admisible. De serlo, dará inicio al procedimiento formal de investigación. Si no lo fuera, se archivará mediante resolución motivada.

@@ -1,0 +1,1 @@
+Artículo 32. Acciones afirmativas con población vulnerable. El Comité procurará medidas adicionales de resguardo para niñas, niños, adolescentes, mujeres, personas con discapacidad, adultos mayores, personas LGBTQ+ y otras poblaciones en situación de especial vulnerabilidad, mediante protocolos específicos, atención diferenciada y mecanismos accesibles de denuncia.

@@ -1,0 +1,1 @@
+Artículo 16. Responsabilidad institucional. La omisión en el deber de prevenir, atender o investigar una denuncia de hostigamiento o acoso sexual por parte de las autoridades del Comité será considerada una falta grave, que conlleva responsabilidad administrativa y eventualmente civil o penal, conforme al principio de debida diligencia reforzada.

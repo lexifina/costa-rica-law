@@ -1,0 +1,1 @@
+Artículo 57. Obligación de adecuación. Todas las dependencias, programas, entrenadores, delegaciones, asociaciones deportivas y personas usuarias vinculadas con el Comité deberán adecuar sus actuaciones a lo dispuesto en este reglamento.

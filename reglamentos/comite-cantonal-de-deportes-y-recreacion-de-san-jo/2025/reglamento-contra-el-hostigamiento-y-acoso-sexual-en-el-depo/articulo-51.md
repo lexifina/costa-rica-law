@@ -1,0 +1,1 @@
+Artículo 51. Omisión de deberes. La omisión de actuación diligente, el encubrimiento, la inacción ante denuncias o hechos evidentes de acoso sexual por parte de estas personas constituirá una falta grave o muy grave, según corresponda, y será sancionada disciplinariamente conforme al presente reglamento y demás normativa aplicable.

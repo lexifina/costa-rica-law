@@ -1,0 +1,1 @@
+Artículo 58. Revisión periódica. El Comité deberá revisar y actualizar este reglamento al menos cada tres (3) años o cuando sobrevengan reformas normativas, criterios jurisprudenciales o recomendaciones técnicas relevantes que así lo aconsejen.

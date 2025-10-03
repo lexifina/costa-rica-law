@@ -1,0 +1,1 @@
+Artículo 18. Legitimación para denunciar. Están legitimadas para presentar denuncias por hostigamiento o acoso sexual: a)Las personas directamente afectadas, b) Representantes legales de personas menores de edad o en condición de discapacidad y c) Cualquier persona que tenga conocimiento directo de los hechos, en resguardo del interés institucional y el bienestar deportivo.

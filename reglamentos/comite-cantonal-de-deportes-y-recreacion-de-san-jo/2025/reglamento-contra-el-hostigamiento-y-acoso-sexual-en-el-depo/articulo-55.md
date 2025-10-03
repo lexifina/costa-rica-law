@@ -1,0 +1,1 @@
+Artículo 55. Inclusión en procesos de inducción. Toda persona que se incorpore a labores, entrenamientos o eventos deportivos organizados por el Comité deberá recibir una inducción básica sobre las disposiciones contenidas en este reglamento, los canales de denuncia y los principios de convivencia y respeto que rigen la actividad deportiva.

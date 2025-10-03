@@ -1,0 +1,1 @@
+Artículo 54. Capacitaciones periódicas obligatorias. Las personas funcionarias, entrenadoras y vinculadas a programas institucionales deberán asistir a capacitaciones anuales obligatorias sobre prevención del acoso sexual, cultura de igualdad y ética deportiva, organizadas o validadas por el Comité.

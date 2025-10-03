@@ -1,0 +1,1 @@
+Artículo 23. Medidas cautelares. Desde la admisión de la denuncia, el Comité podrá aplicar medidas cautelares proporcionales para resguardar a la persona denunciante, testigos o terceros afectados, tales como: a) Separación de espacios físicos o de funciones, b) Prohibición de contacto, c) Reubicación temporal y d) Suspensión preventiva de funciones, cuando proceda.
