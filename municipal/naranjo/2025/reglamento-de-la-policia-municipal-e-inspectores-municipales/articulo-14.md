@@ -1,0 +1,1 @@
+Artículo 14.-Estructura del cuerpo policial: La estructura organizacional de la Policía Municipal de Naranjo corresponderá a la establecida en el organigrama institucional; así como el Manual Descriptivo de Puestos Municipal; sin perjuicio de su modificación, para lo cual se debe seguir los procedimientos técnico-jurídicos establecidos al efecto.

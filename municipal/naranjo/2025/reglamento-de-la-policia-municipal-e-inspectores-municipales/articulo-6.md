@@ -1,0 +1,3 @@
+CAPÍTULO III
+Régimen de Empleo de la Policía Municipal
+Artículo 06º-Reclutamiento y selección: Para el proceso de reclutamiento y selección del personal municipal que ocupe cargos en la Policía Municipal e Inspectores Municipales de Tránsito, deberá tomarse en consideración el régimen de empleo contenido en el Código Municipal, la Ley Marco de Empleo Público, en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Naranjo, el Manual para el Reclutamiento y Selección de Personal de la Municipalidad de Naranjo y la demás reglamentación interna que la Municipalidad de Naranjo, tenga al efecto.

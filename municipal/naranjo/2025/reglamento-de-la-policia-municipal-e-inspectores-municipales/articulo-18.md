@@ -1,0 +1,4 @@
+Artículo 18.-Competencia de la Policía Municipal de Tránsito: De conformidad con el artículo 214 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, ley N° 9078 y sus reformas y el Reglamento para el Funcionamiento de los Cuerpos Especiales de Inspectores Municipales de Tránsito, Decreto Ejecutivo N° 38164-MOPT, son atribuciones de los Inspectores Municipales de Tránsito, las siguientes:
+a) Confeccionar boletas de citación por las infracciones previstas en la ley nº9078 y sus reformas, dentro del ámbito geográfico de competencia territorial del cantón de Naranjo.
+b) Atender accidentes de tránsito, siguiendo los procedimientos de la ley nº9078 y sus reformas; siempre y cuando, el personal de la Policía Municipal, acreditado como Inspectores Municipales de Tránsito, cuente con la capacitación correspondiente emitida por la instancia estatal competente.
+c) Cualquier otra función indicada en la normativa atinente y aplicable.

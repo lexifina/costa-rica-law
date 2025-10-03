@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones Finales
+Artículo 21.-Normas de aplicación supletoria. En todo aquello no previsto en el presente Reglamento, se aplicará supletoriamente el Código Municipal, la Ley General de Administración Pública, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Naranjo, Código de Trabajo, Ley General de Policía, Ley General de Policía, ley Nº 7410, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y el Reglamento para el Funcionamiento de los Cuerpos Especiales de Inspectores de Tránsito, Decreto Ejecutivo N° 38164-MOPT y demás normativa vigente y aplicable.

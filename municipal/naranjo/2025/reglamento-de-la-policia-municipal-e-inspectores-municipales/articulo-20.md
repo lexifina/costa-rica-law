@@ -1,0 +1,3 @@
+CAPÍTULO V
+Régimen Sancionatorio
+Artículo 20.-Régimen sancionatorio disciplinario. El régimen sancionatorio disciplinario que se aplica a quienes ocupen cargos en la Policía Municipal e Inspector de Tránsito, será el mismo aplicable a todos los funcionarios municipales, sea el contenido en el Código Municipal, la Ley General de la Administración Pública, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Naranjo y el Código de Trabajo, cuando en derecho corresponda. Sin perjuicio de lo anterior, el incumplimiento demostrado de los deberes y obligaciones establecidas en el presente Reglamento, será falta grave, considerado según el caso en concreto, previo derecho de defensa y debido proceso (procedimiento administrativo correspondiente).
