@@ -1,0 +1,1 @@
+Artículo 11. Sanciones. En caso de incumplir total o parcialmente con el suministro de información, la Administración Tributaria iniciará el procedimiento para aplicar las sanciones establecidas en el artículo 83 del Código de Normas y Procedimientos Tributarios.

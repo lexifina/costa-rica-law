@@ -1,0 +1,1 @@
+Artículo 7. Disponibilidad de los formularios de declaración. El formulario de declaración citado en esta resolución estará disponible a través del sistema TRIBU-CR. Las instrucciones de llenado para completar el formulario se encuentran en el anexo adjunto a la presente resolución.
