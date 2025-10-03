@@ -1,0 +1,1 @@
+Artículo 2º-Las columnas salariales globales que establecen la distribución de las clases y salarios indicados en el artículo 1 de la presente Directriz, se encuentran disponibles en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: https://www.empleopublico. mideplan.go.cr/
