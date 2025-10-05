@@ -20,3 +20,4 @@ Reglamento para la Regulación y Explotación de Servicios de Transporte Terrest
 | 5 | 2017-03-29 | Decreto Ejecutivo 40338 (2017-03-29) |
 | 6 | 2023-04-19 | Decreto Ejecutivo 44002 (2023-04-19) |
 | 7 | 2025-09-19 | Decreto Ejecutivo 45200 (2025-09-19) |
+| 8 | 2025-10-05 | Decreto Ejecutivo 45311 (2025-10-05) |
