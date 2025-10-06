@@ -1,0 +1,1 @@
+Artículo 3. Deber de retención. El deber de retención, liquidación y pago de la retención por el Impuesto sobre Ganancias y Pérdidas de Capital establecidas en los artículos 1 y 2 anteriores, recaerá sobre el adquirente del bien inmueble en condición de agente de retención.

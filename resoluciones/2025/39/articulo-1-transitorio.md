@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. La retención del 2% establecida en el artículo 1 de la presente resolución aplicará a partir del momento en que la Administración Tributaria ponga a disposición los formularios correspondientes, lo cual se informará mediante resolución de alcance general.
