@@ -1,0 +1,1 @@
+Artículo 8º - Derogatoria. Se deja sin efecto la resolución DGT-R-058- 2019 de las ocho y cinco horas del tres de octubre de dos mil diecinueve, publicada en La Gaceta N°196 del 16 de octubre de 2019 y sus modificaciones.
