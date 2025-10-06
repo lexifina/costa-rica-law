@@ -1,0 +1,1 @@
+Artículo 3.- Sin perjuicio de lo dispuesto en los artículos anteriores, las cédulas de identidad expedidas con las características aprobadas por este Tribunal en el Decreto N.° 9-2016 y sus reformas, publicado en La Gaceta N.° 156 del 16 de agosto de 2016, mantendrán su validez hasta la fecha que en ellas se indique.
