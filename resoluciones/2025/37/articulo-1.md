@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante resolución N° 0037 del 9 de noviembre de 2026, se acordó modificar la presente norma. De conformidad con el numeral 3 de la norma antes mencionada a misma empezará a regir a partir del 18 de enero de 2027, por lo que a partir de esa fecha se harán las respectivas modificaciones)
 MH-DGT-RES-0037-2025. "Resolución que regula los trámites de Inscripción, modificación de datos y desinscripción en el Registro Único Tributario". San José, a las quince horas con cuarenta minutos del día veintidós de julio de dos mil veinticinco.
 CONSIDERANDO:
 I. Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley N°4755 del 3 de mayo de 1971 y sus reformas, en adelante Código Tributario, faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
