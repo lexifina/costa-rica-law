@@ -1,0 +1,1 @@
+Artículo 10.- Evaluación de la calidad del servicio y avisos en la oficina virtual. La Administración Tributaria se reserva el derecho de realizar encuestas sobre los servicios u otros temas tributarios; así como publicar avisos o cualquier otro tipo de comunicado por medio de la OVI.

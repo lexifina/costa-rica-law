@@ -1,0 +1,1 @@
+Artículo 12.- Requisitos técnicos para el uso de la oficina virtual. Los requisitos técnicos para el uso de la OVI estarán disponibles al pie del espacio de acceso general de la misma oficina virtual.

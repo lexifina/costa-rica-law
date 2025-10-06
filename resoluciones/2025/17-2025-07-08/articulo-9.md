@@ -1,0 +1,1 @@
+Artículo 9.- Autorización de terceros El usuario podrá cumplir con las obligaciones tributarias, tanto a nivel personal, como de terceros que así lo autoricen a realizar dicho trámite, según los lineamientos que al efecto establezca la Dirección General de Tributación, mediante resolución de alcance general.

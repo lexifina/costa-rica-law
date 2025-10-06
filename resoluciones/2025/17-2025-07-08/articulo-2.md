@@ -1,0 +1,10 @@
+Artículo 2.- Creación de cuenta de usuario para el uso de la oficina virtual. Los usuarios que requieran ingresar a la oficina virtual de acceso restringido deben crear una cuenta para acceso identificado, para lo cual deberán seguir los siguientes pasos:
+a) Acceder a la oficina virtual.
+b) Seleccionar la opción "crear usuario".
+c) Seleccionar el tipo de identificación y completar los campos relativos a dicha identificación, según se indica a continuación:
+i. Cédula de identificación persona física: número de identificación, fecha de nacimiento, fecha de vencimiento y número de consecutivo del documento de identificación.
+ii. Número de identificación tributario especial, NITE: número de identificación, fecha de vencimiento del documento de identificación. Los usuarios que ya cuentan con un NITE asignado mantendrán dicha identificación. En el caso de usuarios nuevos, de previo al trámite de creación de cuenta en OVI deberán solicitar la asignación de un NITE, desde el acceso general de la oficina virtual o de forma presencial en las oficinas de la Dirección General de Tributación abiertas al público.
+d) Para continuar con la creación de la cuenta de usuario, deberá completar los campos correspondientes con su cuenta de correo electrónico y número de teléfono móvil, y validarlos, para lo cual deberá registrar el código de verificación que le será enviado a cada uno de ellos.
+e) Leer y aceptar las condiciones generales de uso de la oficina virtual.
+f) Para concluir con la creación de usuario se realiza una verificación final donde debe registrarse el código de verificación que será enviado al correo electrónico del usuario.
+g) Una vez creada la cuenta de usuario, el sistema remitirá una contraseña temporal al correo electrónico anteriormente indicado, la cual tendrá una vigencia de 24 horas y deberá cambiarla en el primer ingreso. Igualmente podrá ingresar en la opción "Generar contraseña / Olvidé contraseña", para crearla de acuerdo con las condiciones requeridas por el sistema.

@@ -1,0 +1,3 @@
+Artículo 5.- Opciones para acceder a la oficina virtual una vez creada la cuenta de usuario. El usuario que ha realizado la creación de su cuenta en la oficina virtual y quiere acceder a ella identificado podrá hacerlo mediante las siguientes dos opciones:
+1. Con usuario y contraseña. En este caso se aplicará el doble factor de autenticación, para lo cual se le remitirá un código de seguridad al correo electrónico y/o teléfono móvil registrados previamente, para que lo digite y valide.
+2. Mediante el uso de un certificado digital emitido en Costa Rica, de conformidad con la Ley N° 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos. Para estos efectos, el sistema valida que el certificado es correcto, y realiza la autenticación respectiva.
