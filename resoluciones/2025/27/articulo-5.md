@@ -1,0 +1,1 @@
+Artículo 5. Derogatorias. Se deja sin efecto el artículo 4 de la resolución DGTR- 41-2019 de las ocho y cinco horas del dieciocho de julio de dos mil diecinueve, así como cualquier referencia que se haga del formulario D-187 "Declaración Contribución Parafiscal Cruz Roja Costarricense - Ley 9355", en dicha resolución.
