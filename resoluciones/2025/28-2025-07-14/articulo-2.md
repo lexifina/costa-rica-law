@@ -1,3 +1,4 @@
-Artículo 3. Vigencia. Rige a partir del 4 de agosto del 2025.-
+Artículo 3. Vigencia. Rige a partir del seis de octubre del 2025.
+(Así reformado por el artículo 16 de la resolución N° MH-DGT-RES-0043-2025 del 27 de agosto de 2025)
 Publíquese una vez.
-(Nota de Sinalevi: En la publicación de este norma, se consignó este artículo con el número 3°. Del análisis se deduce que en realidad corresponde al artículo N° 2)
+(Nota de Sinalevi: En la publicación de esta norma, se consignó este artículo con el número 3°. Del análisis se deduce que en realidad corresponde al artículo N° 2)
