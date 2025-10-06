@@ -1,0 +1,2 @@
+Artículo 9.- Plazo para la atención de las solicitudes. La atención de las solicitudes se realizará dentro de los plazos establecidos en las leyes y reglamentos que regulan la materia, según el tipo de solicitud.
+En los casos en que no se establezca un plazo, se tomará en cuenta el plazo establecido en la Ley N° 9097 del 26 de octubre del 2012, denominada Ley de Regulación del derecho de petición.

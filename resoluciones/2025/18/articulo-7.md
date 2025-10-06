@@ -1,0 +1,2 @@
+Artículo 7.- Fecha en que se tienen por recibidas las solicitudes. Las solicitudes de información, peticiones y/o consultas tributarias, que se presenten por medio de la OVI en días y horas hábiles se tendrán por recibidas en esa misma fecha. Las que se remitan en días y horas inhábiles se tendrán por recibidas el día hábil siguiente al de la transmisión.
+Lo indicado también aplica para el caso de respuestas en cumplimiento de requerimientos realizados por la Administración Tributaria.

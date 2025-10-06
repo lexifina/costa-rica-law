@@ -1,0 +1,3 @@
+Artículo 8.- Medio para recibir notificaciones. Al momento de presentar el trámite, el usuario podrá señalar como medio para recibir notificaciones: el correo electrónico registrado al momento de inscribirse en el Registro Único Hacendario, o el indicado al crear el usuario en la oficina virtual en caso de la que la persona no esté inscrita en el Registro citado y al buzón hacendario si este fuera su canal de comunicación preferente.
+Durante la tramitación de la solicitud el usuario puede modificar el correo electrónico o elegir recibir notificaciones mediante el buzón hacendario.
+En todos los casos el sistema tomará para realizar la notificación el último medio seleccionado.

@@ -1,0 +1,2 @@
+Artículo 3.- Tipos de solicitudes. El usuario podrá presentar en la OVI las solicitudes contempladas en el artículo 53 del Reglamento de Procedimiento Tributario y que se señalan a continuación: solicitudes de información, peticiones fundamentadas en el artículo 102 del Código de Normas y Procedimientos Tributarios y consultas tributarias amparadas en el artículo 119 de la normativa indicada.
+La lista de trámites que se realizan en la OVI se mantendrá actualizada en la propia oficina virtual.

@@ -1,0 +1,1 @@
+Artículo 10.- Disconformidad del obligado tributario. En caso de disconformidad con lo resuelto, en el tanto se trate de alguno de los actos administrativos señalados en el artículo 156 del Código Tributario, el obligado tributario podrá plantear los recursos correspondientes, derecho que se le otorgará conforme a la normativa que regula la materia de su gestión.
