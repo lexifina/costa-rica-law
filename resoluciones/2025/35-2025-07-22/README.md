@@ -14,3 +14,4 @@ Uso de los formularios "Impuesto de rentas de capital mobiliario para las person
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-10-06 | la propia norma |
+| 2 | 2025-10-06 | Resolución 47 (2025-09-17) |
