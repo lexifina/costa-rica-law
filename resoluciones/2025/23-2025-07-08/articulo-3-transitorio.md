@@ -1,0 +1,2 @@
+TRANSITORIO III. Los obligados tributarios, cuando así corresponda, deberán aplicar la reducción establecida en el artículo 88 del Código de Normas y Procedimientos Tributarios e indicarlo en el formulario de autoliquidación de sanciones por infracciones administrativas, en la casilla denominada "Importe de la sanción".
+(Así adicionado por el artículo 3° de la resolución N° MH-DGT-RES-0046-2025 del 17 de setiembre del 2025)
