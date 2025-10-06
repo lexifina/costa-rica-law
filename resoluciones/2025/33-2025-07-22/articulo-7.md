@@ -1,0 +1,1 @@
+Artículo 7. Derogatorias. Se dejan sin efecto, la resolución NºDGT-R-36-2019 de las ocho y cinco horas del 28 de junio de 2019; y la resolución NºDGT-R-20-2020 de las ocho horas cinco minutos del 11 de agosto del 2020.

@@ -1,0 +1,1 @@
+Artículo 2. Disponibilidad de los formularios. Los formularios citados en esta resolución estarán disponibles a través del sistema TRIBU-CR. Las instrucciones de llenado para completar dichos formularios se encuentran en los anexos adjuntos a la presente resolución, según se indicó en el artículo anterior.
