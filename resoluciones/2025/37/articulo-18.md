@@ -1,0 +1,1 @@
+Artículo 18. Sanciones. El incumplimiento de los plazos en el trámite de inscripción, modificación y desinscripción en el RUT, será sancionado de acuerdo con lo establecido en los artículos 78 y 150 del Código de Normas y Procedimientos Tributarios.

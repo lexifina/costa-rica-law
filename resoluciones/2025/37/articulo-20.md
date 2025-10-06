@@ -1,0 +1,1 @@
+Artículo 20. Domicilio fiscal no localizado. En el RUT se identificarán a los obligados tributarios cuyo domicilio fiscal registrado se haya determinado como infructuoso, por lo que para su fijación la Administración Tributaria procederá conforme a lo establecido en el artículo 39 del Reglamento de Procedimiento Tributario e iniciarse el procedimiento sancionador respectivo.

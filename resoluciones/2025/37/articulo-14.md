@@ -1,0 +1,2 @@
+Artículo 14. Disponibilidad de las declaraciones electrónicas. Las declaraciones citadas en el artículo 13 de la presente resolución están disponibles en TRIBUCR, por lo que se debe cumplir con las condiciones generales para el uso de este sistema.
+Los documentos presentados en otros medios y formatos, con la intención de realizar inscripción, modificación o desinscripción de datos en el RUT, se tendrán por no presentados con los efectos legales que ello conlleva, sin necesidad de notificación alguna al interesado.

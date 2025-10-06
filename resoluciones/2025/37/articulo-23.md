@@ -1,0 +1,1 @@
+Artículo 23. Atributos fiscales generados en el Registro Único Tributario. La Administración Tributaria podrá generar atributos fiscales para identificar obligados tributarios o para tramitar algún beneficio fiscal, con base a la información recibida para registros especiales, en las declaraciones de inscripción y modificación del RUT.

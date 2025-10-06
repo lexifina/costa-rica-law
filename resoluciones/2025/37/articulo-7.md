@@ -1,0 +1,1 @@
+Artículo 7. Clasificación utilizada para las actividades económicas. Las actividades económicas utilizadas en el RUT se basan en el manual de Clasificación de Actividades Económicas de Costa Rica (CAECR-2011), adaptado de la Clasificación Industrial Internacional de todas las Actividades Económicas (CIIU versión 4) de las Naciones Unidas.

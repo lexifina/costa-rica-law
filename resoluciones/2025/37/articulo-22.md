@@ -1,0 +1,1 @@
+Artículo 22. Buzón Electrónico. La Administración Tributaria podrá realizar notificaciones en el buzón electrónico, siempre que el obligado tributario lo haya señalado como medio para recibir notificaciones en las declaraciones del Registro Único Tributario de acuerdo con lo establecido en el artículo 137 del Código de Normas y Procedimientos Tributarios.
