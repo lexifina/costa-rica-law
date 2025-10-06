@@ -1,0 +1,3 @@
+Artículo 12.- Responsabilidad en el uso de las claves de acceso al sistema. La clave de acceso es de uso personal. Queda absolutamente prohibido al usuario del Sistema Integrado de Gestión Tributaria TRIBU-CR, facilitar a un tercero el uso de las credenciales de acceso, para acceder a los servicios electrónicos que brinda la Dirección General de Tributación, a través de su sitio Web.
+En todo caso, el uso de la clave es responsabilidad exclusiva del usuario, el cual deberá actuar con la debida diligencia y tomar las medidas de seguridad necesarias para mantener bajo estricto control y evitar toda utilización no autorizada.
+En caso de riesgo sobre la confidencialidad de la clave deberá proceder inmediatamente, bajo su responsabilidad, al cambio de esta en el sistema.

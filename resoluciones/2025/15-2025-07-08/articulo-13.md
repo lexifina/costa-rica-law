@@ -1,0 +1,1 @@
+Artículo 13º-Derogatorias. A partir de la vigencia de la presente resolución, se deroga en todos sus extremos, la resolución DGT-R-016-2021 de las doce horas quince minutos del veintiséis de marzo de dos mil veintiuno.
