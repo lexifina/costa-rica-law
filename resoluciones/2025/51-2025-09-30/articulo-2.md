@@ -1,0 +1,1 @@
+Artículo 2. Formulario para la autoliquidación y pago de la obligación tributaria por retención del Impuesto sobre Ganancias y Pérdidas de Capital. El agente de retención deberá liquidar el impuesto utilizando el Sistema en línea TRIBU-CR mediante el formulario denominado "Retenciones de Ganancias de Capital - No Domiciliado 129", visible en el Anexo 1 de la presente resolución.
