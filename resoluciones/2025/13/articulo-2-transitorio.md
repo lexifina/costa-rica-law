@@ -1,0 +1,1 @@
+Transitorio II. Todas las personas jurídicas inactivas que ya se encuentren registradas ante la Administración Tributaria al momento de la entrada de vigencia de la presente resolución, deberán ingresar al Sistema TRIBU-CR, y proceder a la actualización de los datos que le requiera la Administración Tributaria conforme lo establece el artículo 4 de la presente resolución.
