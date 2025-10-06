@@ -1,0 +1,1 @@
+Artículo 7.-Derogatorias. Se deroga la resolución DGT-R-31- 2016 de las ocho horas del 24 de mayo de 2016, denominada "Resolución sobre la Presentación de información ante la Administración Tributaria".

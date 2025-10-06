@@ -1,0 +1,1 @@
+Artículo 4.- Idioma de la información a presentar. La información deberá ser suministrada en idioma español y en caso de constar en otro idioma, debe estar acompañada de la correspondiente traducción realizada por un traductor oficial conforme lo establece el artículo 133 inciso e) del Reglamento de Procedimiento Tributario.

@@ -1,0 +1,1 @@
+Artículo 5.-Plazo para el suministro de información. El obligado tributario deberá cumplir con los requerimientos de información que le notifique la Administración Tributaria dentro del plazo legal o reglamentario señalado en el requerimiento que se le notifique.
