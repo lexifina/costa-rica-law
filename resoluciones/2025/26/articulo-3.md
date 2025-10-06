@@ -1,0 +1,1 @@
+Artículo 3.-Plazo para presentar la declaración informativa. La declaración informativa de precios de transferencia deberá presentarse dentro de los seis meses siguientes al término del período fiscal que tuviere autorizado el contribuyente, y comprenderá todas las operaciones realizadas con sus vinculadas durante el período del impuesto sobre las utilidades.

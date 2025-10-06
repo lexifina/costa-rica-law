@@ -1,0 +1,1 @@
+Artículo 7.-Derogatorias. Se dejan sin efecto las resoluciones: Declaración informativa de Precios de Transferencia. DGT-R-44-2016 de las 8:00 horas del 26 de agosto del 2016 y Modificación de la Resolución DGT-R-44-2016, "Declaración informativa de Precios de Transferencia". DGT-R-28-2017 de las 8:05 horas del 22 de mayo de 2017.

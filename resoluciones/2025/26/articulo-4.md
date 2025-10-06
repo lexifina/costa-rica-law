@@ -1,0 +1,4 @@
+Artículo 4.-Formulario de declaración. El formulario para presentar la declaración informativa estará disponible a través de la oficina virtual del "Sistema Integrado de Gestión Tributaria TRIBU-CR". El modelo por utilizar y su instructivo se pueden visualizar en los anexos 1 y 2.
+El formato e instrucciones de los formularios pueden ser modificados por la Administración Tributaria, según la pertinencia y necesidad para el cumplimiento del control tributario al que está obligado a cumplir sin requerir al efecto una resolución que los implemente.
+La Dirección General de Tributación publicará estas modificaciones en el sitio Web del Ministerio de Hacienda, con al menos un mes de anticipación a la fecha de su presentación.
+En aquellos casos en que el nuevo formulario se encuentre disponible dentro de un plazo menor al mes indicado en el párrafo anterior, se deberá utilizar el formulario anterior a la modificación.
