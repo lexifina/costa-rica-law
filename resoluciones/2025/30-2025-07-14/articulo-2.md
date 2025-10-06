@@ -1,0 +1,1 @@
+Artículo 2. Plazo de presentación. La respectiva declaración deberá presentarse mensualmente y, con base en ella, efectuar el pago dentro de los primeros quince días naturales del mes siguiente al que se refiera dicha declaración.
