@@ -1,1 +1,0 @@
-Artículo 6º—Presentación de documentos. Todos los documentos y demás atestados deben ser presentados en español, de manera digital a la dirección electrónica Contratacion_Administrativa@bancobcr.com con indicación del nombre, el número de cédula, dirección, correo electrónico, teléfono, domicilio y lugar para recibir notificaciones.

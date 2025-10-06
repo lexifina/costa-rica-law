@@ -1,1 +1,0 @@
-Artículo 7º—Conformación del expediente. La Oficina Administración de Bienes es responsable de conformar un expediente digital para cada solicitud de inscripción, incorporando en él todos los documentos técnicos y legales que aporten, el estudio de las solicitudes y todas las actuaciones internas o externas que tengan relación con la solicitud.

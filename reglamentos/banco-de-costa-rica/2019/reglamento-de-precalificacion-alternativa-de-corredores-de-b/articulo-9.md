@@ -1,2 +1,0 @@
-Artículo 9º—Dictado del acto de aprobación o rechazo de la solicitud de inscripción y notificación. El acto de aprobación o rechazo de la solicitud de inscripción a este Reglamento debe ser dictado por la Comisión de Ventas de Bienes Adquiridos en Pago de Obligaciones, para lo cual cuenta con el plazo de hasta treinta días hábiles contados a partir de la fecha de recepción de los atestados.
-Este acto debe ser notificado a los solicitantes en el lugar señalado dentro de los tres días hábiles siguientes a su emisión.

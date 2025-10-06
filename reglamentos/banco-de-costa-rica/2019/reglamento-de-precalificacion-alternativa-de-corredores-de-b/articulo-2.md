@@ -1,1 +1,0 @@
-Artículo 2º—Cobertura. La contratación de corredores de bienes es responsabilidad de la Oficina Administración de Bienes en coordinación con la Oficina de Contratación Administrativa, ambas del Banco de Costa Rica.

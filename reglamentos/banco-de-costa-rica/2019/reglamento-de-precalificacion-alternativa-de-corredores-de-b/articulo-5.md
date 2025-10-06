@@ -1,2 +1,0 @@
-Artículo 5º—Requisitos para integrar el registro de elegibles. Los corredores interesados en conformar el Registro de Elegibles deben presentar la solicitud y los requisitos ante la Oficina de Contratación Administrativa, en cualquier momento del año.
-Los requisitos mínimos con que debe cumplir el corredor de bienes que desea inscribirse en el Registro de Elegibles se detallan en el anexo 1 de las Disposiciones administrativas de precalificación alternativa de corredores de bienes para la venta de bienes adquiridos.
