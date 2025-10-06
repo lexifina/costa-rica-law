@@ -1,3 +1,2 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 56.-Este Reglamento deroga todos los anteriores reglamentos que se le opongan o que estuvieren en vigencia conforme a las disposiciones similares.
+Artículo 56.-De las infracciones. Se considerarán infracciones todos los actos u omisiones, contrarios a las disposiciones aquí contempladas. La Municipalidad podrá aplicar lo estipulado en la normativa nacional vigente para establecer cualquier sanción correspondiente que se aplicará a las personas que desacaten lo señalado en el presente reglamento, así como también lo estipulado en las Leyes N° 8839 sobre la Gestión Integral de Residuos y la N° 9047 en cuanto al consumo y venta de bebidas con contenido alcohólico, los Decretos Ejecutivos N° 31626-S sobre Tenencia Responsable de Animales de Compañía y N° 37185-S-MEICMTSS-MP-H-SP sobre Control del Tabaco; y la Ley de Bienestar Animal.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 55 al artículo 56)

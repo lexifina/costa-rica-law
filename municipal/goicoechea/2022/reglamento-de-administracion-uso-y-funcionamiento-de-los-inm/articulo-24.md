@@ -1,1 +1,2 @@
-Artículo 24.-Restricción horaria. Las actividades que se desarrollen en los Salones Comunales solo podrán realizarse en un horario comprendido entre las siete y las veintidós horas; respetando las disposiciones de este Reglamento, con excepción de honras fúnebres que podrán tener un horario extendido más allá de las veintidós horas.
+Artículo 24.-Actividades prohibidas. En las instalaciones de los Salones Comunales no se podrán realizar actividades ilícitas. Asimismo, resulta improcedente la utilización de estas instalaciones para su uso por parte de partidos políticos y organizaciones religiosas, con excepción de honras fúnebres.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 23 al artículo 24)

@@ -1,4 +1,2 @@
-CAPÍTULO ll
-Ámbito de aplicación exclusivo
-para los salones comunales
-Artículo 22.-Acceso a las instalaciones. La organización que administra el Salón Comunal deberá garantizar a la comunidad el acceso al uso y disposición de las instalaciones comunales que recibe, sin distinción de ningún tipo. Sin embargo, podrá hacer uso de su derecho de admisión, en caso de presentarse personas bajo los efectos del alcohol o sustancias ilícitas, o llevando a cabo acciones que puedan contravenir el orden público.
+Artículo 22.-De la prohibición de venta, distribución o consumo de sustancias. Queda prohibida la venta, distribución y consumo de bebidas alcohólicas, tabaco y sustancias ilícitas en los inmuebles de la Municipalidad, así como fumar o mantener encendidos productos que expidan humo, gases o vapores, en cualquiera de sus formas o en dispositivos, incluidos cigarrillos, pipas, cigarrillo electrónico, vaporizadores y similares, utilizados para concentrar o expedir el humo, gases o vapores.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 21 al artículo 22)

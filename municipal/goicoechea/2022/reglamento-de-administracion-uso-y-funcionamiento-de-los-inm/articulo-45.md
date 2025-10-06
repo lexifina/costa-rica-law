@@ -1,1 +1,2 @@
-Artículo 45.-Sobre el deber de cuidado. Toda persona usuaria tiene el deber de defender y cuidar el patrimonio que contienen estos espacios públicos, bien sean animales, plantas, mobiliario urbano y/o infraestructura temporal o permanentemente, así como las herramientas, equipos y medios con los que se brinda mantenimiento, al igual que la infraestructura de los servicios públicos como telefonía fija, electricidad, redes, alumbrado, videovigilancia, agua potable y servida.
+Artículo 45.-Sobre el aporte municipal. La Municipalidad brindará el mantenimiento y financiará el mejoramiento continuo de los parques y zonas verdes públicas.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 44 al artículo 45)

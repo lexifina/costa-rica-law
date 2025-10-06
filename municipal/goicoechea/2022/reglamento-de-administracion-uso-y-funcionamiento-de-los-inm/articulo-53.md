@@ -1,1 +1,6 @@
-Artículo 53.-Sobre la presencia de mascotas. Las mascotas deben estar provistas de correa y ser conducidas en todo momento por sus responsables. Estos últimos deben evitar que sus mascotas causen molestias a otras personas usuarias y demás animales presentes. Las personas responsables deben recoger y disponer adecuadamente de las deposiciones de sus mascotas, impidiendo que estas evacuen en las áreas de canchas, equipos biomecánicos, juegos y zonas para personas menores de edad. Mediante la respectiva rotulación y señalización se deberán dar las instrucciones a la comunidad del uso respectivo y el manejo de los animales domésticos.
+Artículo 53.-Sobre la conservación de especies animales. Para la conservación de las diferentes especies animales que habitan los parques y zonas verdes, no se permitirá:
+a) Alimentarlos.
+b) Abandonar otros animales de ningún tipo.
+c) Inquietarlos, ya sea por las personas usuarias o sus mascotas.
+d) La práctica de la puntería con cualquier tipo de arma o instrumento, así como la cacería.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 52 al artículo 53)

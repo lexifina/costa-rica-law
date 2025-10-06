@@ -1,5 +1,2 @@
-Artículo 52.-Sobre la conservación de especies animales. Para la conservación de las diferentes especies animales que habitan los parques y zonas verdes, no se permitirá:
-a) Alimentarlos.
-b) Abandonar otros animales de ningún tipo.
-c) Inquietarlos, ya sea por las personas usuarias o sus mascotas.
-d) La práctica de la puntería con cualquier tipo de arma o instrumento, así como la cacería.
+Artículo 52.-De las actividades socioculturales. Para realizar actividades socioculturales se requiere presentar ante la Alcaldía y la entidad administradora, una solicitud formal por escrito, en original o mediante correo electrónico, definiendo con claridad el nombre de la actividad, firma y cédula de la persona responsable, la fecha y cantidad de días de duración de la actividad, descripción detallada, tipo de estructuras que se instalarán, público meta y cantidad de participantes. La Municipalidad procurará el uso equitativo del espacio público, evitando la monopolización por algún grupo específico, de manera que se realice la debida coordinación a través de la persona encargada del Proceso de Cultura.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 51 al artículo 52)

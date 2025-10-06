@@ -1,1 +1,2 @@
-Artículo 33.-Exoneración municipal. La Municipalidad propietaria del bien inmueble al momento de firmar el convenio otorgando la cesión de uso de los bienes, se exonera absolutamente de todo tipo de responsabilidades ante cualquier daño o perjuicio a alguna persona jurídica o física, que pueda sufrirse con motivo del uso y administración del bien inmueble cedido.
+Artículo 33.-Actividades conjuntas con la municipalidad. La Municipalidad en coordinación con la organización adjudicataria, podrán llevar a cabo actividades en las instalaciones del Salón Comunal, previa calendarización.
+(Así modificada su numeración en sesión N° 40 del 6 de octubre de 2025, que lo traspaso del antiguo artículo 32 al artículo 33)
