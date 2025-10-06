@@ -1,0 +1,4 @@
+Artículo 2. Adiciónese un transitorio segundo y un transitorio tercero a la Resolución MHDGT-RES-0023-2025 de las dieciséis horas diecisiete minutos del ocho de julio de dos mil veinticinco, los cuales indicarán:
+"TRANSITORIO II. El formulario de autoliquidación de sanciones por infracciones administrativas, que se dispone en la presente resolución, es de uso temporal, hasta tanto se habilite en el nuevo sistema TRIBU-CR el módulo de sanciones.
+La Dirección General de Tributación comunicará mediante resolución de alcance general, el momento en que se habilitará el módulo de sanciones en el nuevo sistema TRIBU-CR".
+"TRANSITORIO III. Los obligados tributarios, cuando así corresponda, deberán aplicar la reducción establecida en el artículo 88 del Código de Normas y Procedimientos Tributarios e indicarlo en el formulario de autoliquidación de sanciones por infracciones administrativas, en la casilla denominada "Importe de la sanción".

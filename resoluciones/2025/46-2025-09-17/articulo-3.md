@@ -1,0 +1,1 @@
+Artículo 3. Se modifica el anexo a la Resolución MH-DGT-RES-0023-2025 de las dieciséis horas diecisiete minutos del ocho de julio de dos mil veinticinco, el cual se encuentra visible al final de la presente resolución.
