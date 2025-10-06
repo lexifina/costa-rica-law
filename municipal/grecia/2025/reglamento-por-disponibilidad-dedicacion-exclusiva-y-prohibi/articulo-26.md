@@ -1,0 +1,1 @@
+Artículo 26°-Los servidores que disfruten de los beneficios del Régimen de Dedicación Exclusiva, pueden renunciar a dicho régimen, comunicándolo por escrito al Departamento de Recursos Humanos y a la Auditoría Interna, con un mes de anticipación como mínimo, y no podrán suscribir un nuevo contrato en un período de dos años después de haber presentado la renuncia.

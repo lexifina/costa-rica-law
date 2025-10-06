@@ -1,0 +1,2 @@
+Artículo 36°-Derechos adquiridos: La compensación por disponibilidad al ser contractual y temporal, no genera derechos adquiridos ni a futuro, para el servidor municipal que la disfruta, por lo que la Corporación Municipal, justificadamente, podrá rescindirla o modificarla durante su vigencia, sin generar responsabilidad ni indemnización alguna por ello, pero deberá notificarlo al servidor afectado durante la vigencia del contrato y por los procedimientos adecuados.
+Esta condición regirá para las nuevas contrataciones a partir de la vigencia del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 17°-La Municipalidad de Grecia a través de la Auditoría Interna verificará, de forma regular y de conformidad con los procedimientos que al respecto establezca, el fiel cumplimiento de todas las disposiciones de este Reglamento.

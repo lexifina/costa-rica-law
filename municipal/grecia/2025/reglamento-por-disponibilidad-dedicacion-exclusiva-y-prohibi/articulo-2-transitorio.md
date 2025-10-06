@@ -1,0 +1,1 @@
+Transitorio 2°-La Municipalidad presupuestará las sumas necesarias para la cancelación de estas compensaciones económicas en el primer presupuesto extraordinario que se realice a partir de la publicación en La Gaceta del presente reglamento, y deberá incluir las partidas suficientes para cubrir estos rubros en los presupuestos ordinarios siguientes.

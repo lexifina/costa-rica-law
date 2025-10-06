@@ -1,0 +1,2 @@
+Artículo 25°-El servidor que desee acogerse al Régimen de Dedicación Exclusiva y que cumpla con los requisitos que se señala este reglamento, deberá solicitarlo a la oficina de Recursos Humanos de la Municipalidad de Grecia.
+Una vez suscrito el contrato entre el servidor y la institución, la oficina de Recursos Humanos lo tramitará para su refrendo ante el Alcalde, adjuntando para ello una certificación firmada por el jefe de personal en donde conste que en el caso concurren todas las condiciones y requisitos.

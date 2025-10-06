@@ -1,0 +1,1 @@
+Artículo 20°-El trabajador debe comunicar a su superior inmediato y al señor Alcalde, los medios por los cuales estará disponible para establecer un canal de comunicación efectivo, a fin de cumplir con lo que establecen las responsabilidades que en puntos anteriores se escriben.

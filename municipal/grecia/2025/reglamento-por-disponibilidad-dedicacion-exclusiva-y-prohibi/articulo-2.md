@@ -1,0 +1,1 @@
+Artículo 2º-Dedicación Exclusiva: La dedicación exclusiva consiste en una restricción, derivada de acuerdo contractual o norma legal, al ejercicio liberal de la profesión que requiere el puesto en el cual ha sido nombrado y que conlleva una compensación económica porcentual al salario base, para aquellos servidores municipales de nivel profesional.
