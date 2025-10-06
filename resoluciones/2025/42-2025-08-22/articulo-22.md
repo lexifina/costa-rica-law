@@ -1,0 +1,1 @@
+Artículo 22. Procedimiento para la declaración de las declaraciones rectificativas autoliquidativas. Para la presentación de declaraciones rectificativas autoliquidativas de periodos anteriores a la entrada en vigor de TRIBU-CR, el obligado tributario deberá presentar dicha declaración a través del sistema TRIBU-CR.

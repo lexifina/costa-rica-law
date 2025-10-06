@@ -1,0 +1,2 @@
+Artículo 10. Declaración informativa de rentas pasivas de fuente extranjera de capital inmobiliario. Se encuentran obligados a presentar esta declaración toda entidad no calificada, que pertenezca a un grupo multinacional, y que obtenga rentas de capital inmobiliario de bienes situados o derechos utilizados económicamente fuera del territorio nacional, lo anterior, de conformidad con los artículos 1, 2 bis y 27 ter, numeral 1 de la Ley del Impuesto sobre la Renta.
+La información se suministrará de acuerdo con lo indicado en los anexos 18-I y 19-I.

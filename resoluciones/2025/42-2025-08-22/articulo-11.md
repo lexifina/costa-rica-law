@@ -1,0 +1,2 @@
+Artículo 11. Declaración informativa Rentas Pasivas de Fuente Extranjera de ganancias de capital. Se encuentran obligados a presentar esta declaración toda entidad no calificada que pertenezca a un grupo multinacional y que obtenga una ganancia o pérdida de capital por la venta de bienes y derechos utilizados económicamente fuera del territorio nacional, lo anterior de conformidad a lo indicado en los artículos 1, 2 bis y 27 ter, numeral 3 de la Ley del Impuesto sobre la Renta.
+La información se suministrará de acuerdo con lo indicado en los anexos 22-I y 23-I.

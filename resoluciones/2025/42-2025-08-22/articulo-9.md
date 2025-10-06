@@ -1,0 +1,3 @@
+Artículo 9. Declaración informativa de retenciones en la fuente por salarios, jubilaciones y otros pagos laborales. Se encuentran obligados a presentar esta declaración los patronos o empleadores que paguen, acrediten o transfieran por el trabajo personal dependiente o por concepto de jubilación o pensión u otras remuneraciones por servicios personales de personas domiciliadas en el país.
+Para tal efecto se deberá considerar lo establecido en los artículos 23, 32 y 33 de la Ley del Impuesto sobre la Renta.
+Los obligados tributarios deberán suministrar la información de acuerdo con lo indicado en los anexos 7-I, 8-I y 9-I.
