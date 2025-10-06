@@ -1,0 +1,1 @@
+Artículo 2.- Disponibilidad del formulario. El formulario de autoliquidación de sanciones por infracciones administrativas, establecido en esta resolución, estará disponible en el sistema TRIBU-CR, accesible desde la página web del Ministerio de Hacienda www.hacienda.go.cr
