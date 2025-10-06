@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución N° N°MH-DGT-RES-0047-2025 del 17 de setiembre del 2025 se establece lo siguiente: " Se ordena trasladar por única vez el plazo para la presentación y pago de todas las declaraciones autoliquidativas con vencimiento al 15 de octubre de 2025, y la presentación de las declaraciones informativas de los períodos de julio y agosto 2025 para el día 24 de octubre de 2025, razón por la cual los obligados tributarios no incurrirán en la comisión de infracción por presentación tardía de dichas declaraciones, ni procederá el cobro de intereses, siempre y cuando cumplan con obligación en la presentación a más tardar el día 24 de octubre del 2025, las cuales deberán realizarse en el Sistema Integrado de Gestión Tributaria TRIBU-CR")
 Resolución Nº MH-DGT-RES-0039-2025.- "Retención del Impuesto sobre Ganancias y Pérdidas del Capital de bienes inmuebles y uso del formulario del Impuesto de traspaso de Bienes Inmuebles y aplicación de la reducción del 20% establecida en la Ley para la atracción de inversionistas, rentistas y pensionados Nº9996". -
 San José a las dieciséis horas con cuarenta y dos minutos del veintidós de julio de dos mil veinticinco.
 CONSIDERANDO
