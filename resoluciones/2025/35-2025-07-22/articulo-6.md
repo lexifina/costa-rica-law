@@ -1,0 +1,1 @@
+Artículo 6. Derogatorias. Deróguese la Resolución NºDGT-R-44-2019 de las ocho horas cinco minutos del 29 de julio de 2009 y la resolución NºDGT-R-47-2019 de las diez horas treinta minutos del 16 de agosto de 2009.
