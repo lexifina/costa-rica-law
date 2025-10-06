@@ -14,3 +14,4 @@ Uso del formulario para el canon de reserva del espectro radioeléctrico SUTEL y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-10-06 | la propia norma |
+| 2 | 2025-10-06 | Resolución 43 (2025-08-27) |
