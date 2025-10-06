@@ -1,0 +1,1 @@
+Artículo 9.- Acceso del tercero autorizado a la Oficina Virtual. El tercero autorizado podrá acceder a la Oficina Virtual, identificándose con su usuario y contraseña, o certificado digital. Si el sistema detecta que tiene perfil autorizado para acceder en nombre de otra u otras personas, se habilitará una ventana donde podrá seleccionar con qué perfil o rol quiere acceder.

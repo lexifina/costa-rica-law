@@ -1,0 +1,1 @@
+Artículo 6.- Consulta de autorizaciones. En el sistema, el usuario autorizante puede consultar los terceros que haya autorizado, las autorizaciones otorgadas y el estado de éstas. Asimismo, el tercero autorizado puede consultar el nombre del usuario que lo autorizó y las autorizaciones otorgadas.

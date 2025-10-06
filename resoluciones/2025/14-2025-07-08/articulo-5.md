@@ -1,0 +1,2 @@
+Artículo 5.- Gestiones sobre la autorización otorgada a terceros. El usuario que autoriza puede revocar, suspender, rehabilitar y modificar las autorizaciones a terceros, en cuyo caso el sistema le enviará un aviso al autorizante y al tercero autorizado. En el caso de modificaciones, el tercero autorizado deberá aceptar la modificación de la autorización para que ésta sea efectiva.
+El tercero autorizado puede revocar la autorización en el sistema, lo cual no requiere aprobación del autorizante. En todos los casos, el sistema enviará un aviso a ambas partes.
