@@ -1,0 +1,2 @@
+Artículo 11.-Normas complementarias. En lo especificado en el presente reglamento se recurrirá supletoriamente al Manual de Normas y Procedimientos Disciplinarios de Instituto Nacional de la Música, Criterios de Evaluación del Instituto Nacional de la Música, a la normativa del Centro Nacional de la Música y al ordenamiento administrativo costarricense.
+El presente reglamento fue aprobado por la Junta Directiva del Centro Nacional de la Música según acuerdo número once de la sesión 019-2025, celebrada el 18 de agosto de 2025.

@@ -1,0 +1,1 @@
+Artículo 8º-Manual de Normas y Procedimientos Disciplinarios. En el uso de las aulas y de las instalaciones del Instituto Nacional de la Música, deberá acatarse la normativa interna del Manual de Normas y Procedimientos Disciplinarios del Instituto Nacional de la Música, cuya inobservancia se sancionará de conformidad con dicha norma.

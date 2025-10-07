@@ -1,0 +1,1 @@
+Artículo 9º-Sanciones. Cualquier contravención al presente Reglamento Interno para el Uso del Edificio del Instituto Nacional de la Música, constituye una falta grave conforme al artículo 24 del Manual de Normas y Procedimientos Disciplinarios del Instituto Nacional de la Música, previo otorgamiento del debido proceso en este regulado.

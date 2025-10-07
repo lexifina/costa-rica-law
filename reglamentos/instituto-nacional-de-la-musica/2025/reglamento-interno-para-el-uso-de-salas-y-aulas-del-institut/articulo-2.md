@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento es de observancia obligatoria para estudiantes del INM, padres de familia de los estudiantes, profesores, músicos en calidad de invitados, personal administrativo del Centro Nacional de la Música, proveedores de servicios y cualquier otro usuario del Edificio del Instituto Nacional de la Música.
