@@ -1,0 +1,1 @@
+Artículo 2º-Nombrar al señor Minor Sequeira Solano, cédula de identidad 1-0679-0655, como representante de la Caja Costarricense de Seguro Social ante la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
