@@ -1,0 +1,1 @@
+Artículo 2º-Nombrar al señor Jaime Wright Samuels, cédula de identidad 1-1030-0981, como representante de las organizaciones de ciegos legalmente constituidas en nuestro país ante la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
