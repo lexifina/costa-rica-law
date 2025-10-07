@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de permisos de uso en la zona marítimo terrestr
 | --- | --- | --- |
 | 1 | 2021-06-21 | la propia norma |
 | 2 | 2023-07-04 | Reglamento municipal 166 (2023-07-04) |
+| 3 | 2025-10-07 | Reglamento municipal 75 (2025-10-07) |

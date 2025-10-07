@@ -1,1 +1,2 @@
-Artículo 11.-Vigencia del permiso de uso. Los permisos de uso se otorgarán por un plazo de dos años (24 meses), el cual será prorrogable por plazos iguales y las prórrogas que se otorguen no deben superar los 16 años en total. A solicitud del interesado, se podrá mantener vigente hasta tanto no sea aprobado el plan regulador costero del área respectiva.
+Artículo 11.-Vigencia del permiso de uso. Los permisos de uso se otorgarán por un plazo de cinco años, el cual será prorrogable por plazos iguales y las prórrogas que se otorguen no deben superar los 15 años en total. A solicitud del interesado, se podrá mantener vigente hasta tanto no sea aprobado el plan regulador costero del área respectiva.
+(Así reformado mediante sesión ordinaria N° 075 del 07 de octubre del 2025)
