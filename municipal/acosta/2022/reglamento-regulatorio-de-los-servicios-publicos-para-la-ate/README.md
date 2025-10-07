@@ -14,3 +14,4 @@ Reglamento regulatorio de los servicios públicos para la atención a la gestió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-09 | la propia norma |
+| 2 | 2025-10-07 | Reglamento municipal 39 (2025-10-07) |

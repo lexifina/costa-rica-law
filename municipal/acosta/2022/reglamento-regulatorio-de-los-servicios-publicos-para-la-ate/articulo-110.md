@@ -1,8 +1,10 @@
-Artículo 110. Tasa por el Servicio. El servicio de limpieza de vías se cobra por metro lineal de frente de la propiedad. En el caso de las servidumbres y similares, la tasa de cobro se calcula por la cantidad de metros lineales de frente del lote que tiene acceso frente a calle pública y se divide de manera proporcional entre las unidades servidas que se encuentran dentro de dicha servidumbre. La Municipalidad calculará esta tasa en forma anual y las cobrará en tractos trimestrales sobre saldo vencido. El cobro por la disposición final de los residuos generados por este servicio estará incluido dentro de los costos a considerar dentro de la tarifa y se debe trasferir al departamento que realiza el servicio de gestión de residuos.
-Para el cálculo de la tasa trimestral se tomará en cuenta la siguiente ecuación
-= {(CE + UD+GA )/ ? mL } / 4
+Artículo 110. Tasa por el servicio: por los servicios los montos se fijarán tomando en consideración el costo efectivo de lo invertido por la municipalidad para mantener cada uno de los servicios urbanos, más un diez por ciento (10%) de utilidad para su desarrollo; tal suma se cobrará proporcionalmente entre los contribuyentes del distrito, según el valor de la propiedad, más un 5% sobre el coste efectivo de acuerdo al artículo 4 de la Ley 10141 para brindar servicios de salud animal municipal. La Municipalidad calculará esta tasa en forma anual y la cobrará en tractos trimestrales sobre saldo vencido. Para el cálculo de la tasa se tomará en cuenta la siguiente ecuación
+T={(CE ++(CE*UD)+(CE*GA)+( 5 I}I}*VIB
+I= Imponible (suma del valor de los bienes inmuebles donde se brinda el servicio)
 CE= Costo Efectivo
-UD= 10% Utilidad para el Desarrollo del Servicio
-GA= 10% para gastos administrativos
-? mL= Suma total de los metros lineales que se les brinda el servicio de limpieza de vías
-T= Tasa del servicio individualizado mL= metro lineal
+UD= 10 Utilidad para el Desarrollo del Servicio
+GA= 10 para gastos administrativos
+VIB= Valor el bien inmueble
+T= Tasa del servicio individualizado
+CE* 5 Monto bienestar Animal
+(Así reformado en sesión N° 39 del 7 de octubre de 2025)
