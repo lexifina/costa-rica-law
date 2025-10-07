@@ -1,1 +1,2 @@
-Artículo 9º—De los documentos de trámite. La DSAG será la responsable de proporcionar toda aquella documentación que permita respaldar los procesos de solicitud y uso del servicio de transporte.
+Artículo 9. Uso de transporte mediante aplicaciones digitales
+En la modalidad de transporte público o colectivo, se autoriza el uso de plataformas digitales o aplicaciones móviles que ofrezcan servicios de transporte público o privado, incluidos taxis y vehículos particulares, siempre y cuando estos servicios estén debidamente regulados y autorizados por las autoridades competentes del Gobierno de la República de Costa Rica o internacional cuando se trata de la utilización de éstas en el extranjero para viajes fuera del país.

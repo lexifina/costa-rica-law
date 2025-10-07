@@ -1,8 +1,3 @@
-Artículo 35.—Prohibiciones de los Conductores. Los conductores de los vehículos institucionales no podrán realizar lo siguiente:
-a. Hacer intercambio de accesorios o de componentes de los vehículos sin la debida autorización.
-b. Emplear los materiales, implementos, herramientas, repuestos y accesorios del vehículo, para fines distintos a la limpieza, el mantenimiento y el funcionamiento del vehículo institucional.
-c. Permitir que personas particulares que no son funcionarios de la institución, viajen en los vehículos oficiales, si no cuentan con la autorizaron expresa.
-d. Ceder la conducción del vehículo a personas no autorizadas, excepto cuando se trate de situaciones imprevistas y de comprobada emergencia.
-e. Colocar adornos o calcomanías, tanto en el interior como en el exterior de los vehículos, ni mantener objetos que generen reflejos innecesarios que dificulten la visibilidad o perturben el buen manejo.
-f. Extraer el combustible del vehículo para inyectarlo a otro vehículo de la institución o privados.
-g. Utilizar teléfonos celulares mientras se conduce el vehículo, solamente podrá hacerlo con el correspondiente dispositivo (manos libres).
+Artículo 35. Requerimientos para la solicitud de adelantos de efectivo
+Los usuarios podrán solicitar adelantos para cubrir los gastos de transporte de viajes o giras que deban realizarse en el futuro, tanto a nivel nacional como internacional. Para ello, se entenderá por adelanto la suma de dinero estimada y previamente autorizada por la dependencia correspondiente, entregada al usuario antes del inicio del viaje o gira, con el propósito de que disponga de los recursos necesarios. El monto del adelanto deberá calcularse con base en una estimación razonable y ajustada a la realidad.
+Los usuarios que reciban adelantos asumirán la obligación de rendir cuentas ante la institución, debiendo presentar los comprobantes correspondientes al finalizar el viaje o gira, conforme a los requisitos establecidos para cada tipo de servicio. Asimismo, deberán realizar la liquidación respectiva, consignando la diferencia entre el monto adelantado y el efectivamente utilizado, ya sea a favor o en contra de la institución.

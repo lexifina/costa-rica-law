@@ -1,3 +1,2 @@
-CAPÍTULO VII
-De la modalidad del servicio de transporte contratado
-Artículo 23.—Del Proceso de Contratación. El SINAES para solventar el servicio de transporte, deberá mediante un proceso de contratación administrativa realizar la contratación de un proveedor que suministre el servicio de transporte de conformidad con las necesidades institucionales.
+Artículo 23. De la autorización de los conductores colaboradores
+Tratándose de funcionarios que se ofrezcan para colaborar en la conducción de vehículos oficiales, estos requerirán de autorización previa de su jefe inmediato y, mediante esta autorización, se debe dar fe que se cumplan todos los requisitos para desempeñar esta función.

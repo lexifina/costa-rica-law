@@ -1,11 +1,11 @@
-CAPÍTULO X
-Deberes de los usuarios del servicio
-y las prohibiciones
-Artículo 32.-Deberes de los usuarios. Son deberes de los usuarios del servicio de transporte los siguientes:
-a. Entregar el formulario de solicitud de transporte con la información completa.
-b. Dar aviso formal a la DSAG sobre la cancelación o cambios en la solicitud con 24 horas de anticipación.
-c. Iniciar y finalizar el servicio de transporte en la Sede del SINAES, salvo cuando la distancia entre el punto de destino sea menor desde la casa de habitación del funcionario, y este se encuentre laborando bajo la modalidad de teletrabajo, o bien en excepciones motivadas y previamente autorizadas por la jefatura superior.
-d. Portar el documento que lo acredite como funcionario del SINAES, cuando su posición cuente con el mismo.
-e. Cumplir las horas establecidas en la solicitud de servicio de transporte.
-f. Utilizar el cinturón de seguridad.
-(Así reformado mediante acta N° acta 1642-2022 del 9 de diciembre de 2022)
+CAPITULO VI
+DEL SERVICIO DE TRANSPORTE PÚBLICO O COLECTIVOS
+Artículo 32. Requisitos para el uso del transporte público o colectivos
+El uso de la modalidad de servicios de transporte público será autorizado cuando se cumplan algunas de las siguientes situaciones:
+• Cuando el viaje o gira no implique el traslado de equipos electrónicos u otros bienes de valor, cuya seguridad y comodidad de transporte no puedan garantizarse adecuadamente mediante servicios públicos o colectivos.
+• Cuando el destino del viaje o gira se encuentre dentro o en las cercanías del Gran Área Metropolitana (GAM) y exista disponibilidad adecuada de servicios de transporte público.
+• Cuando los horarios de los servicios de transporte público permitan el cumplimiento oportuno de las actividades o eventos programados.
+• Cuando el destino se ubique en un lugar cercano a las instalaciones del SINAES o a la residencia del usuario, y las condiciones de seguridad lo permitan.
+• Cuando la utilización del transporte público no implique tiempos de traslado excesivos que generen costos adicionales para la institución, como viáticos, hospedaje u horas extraordinarias del personal.
+• Cuando la administración, mediante una justificación debidamente fundamentada, determine que el uso del transporte público es la opción más conveniente en términos de eficiencia, seguridad, representación institucional o gestión del tiempo.
+El uso del transporte público deberá ajustarse a criterios de racionalidad y optimización de recursos, garantizando el cumplimiento eficiente de las actividades institucionales.

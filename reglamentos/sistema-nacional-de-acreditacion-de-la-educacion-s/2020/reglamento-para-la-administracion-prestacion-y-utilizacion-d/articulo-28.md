@@ -1,1 +1,4 @@
-Artículo 28.—Sobre el reglamento que regula este servicio. La DSAG en conjunto con la Asesoría Legal serán los responsables de elaborar en un plazo no mayor a tres meses a partir de la aprobación de este Reglamento, el “Reglamento para el arrendamiento del servicio de transporte y pago de kilometraje de vehículos propios de funcionarios del SINAES”, debidamente aprobado por la CGR; así como establecer los procedimientos, registros, formularios y controles apropiados para la entrada en vigencia de esta modalidad.
+CAPITULO V
+DEL SERVICIO DE TRANSPORTE CONTRATADO
+Artículo 28. Proceso de contratación del servicio de transporte
+El SINAES podrá adquirir servicios de transporte mediante un procedimiento de contratación administrativa, conforme a lo dispuesto en la Ley General de Contratación Pública y demás normativas aplicables relacionadas. Para tales efectos, la contratación deberá realizarse con un proveedor que garantice la prestación del servicio según las necesidades institucionales. La DSAG será responsable de gestionar este proceso a través de la Proveeduría Institucional.

@@ -1,7 +1,5 @@
-CAPÍTULO IV
-De la prestación del servicio de transporte
-Artículo 10.—Modalidades de servicio. El SINAES contará con las siguientes modalidades de servicio de transporte:
-a. Vehículo Institucional: Vehículo propiedad de SINAES para uso exclusivo del servicio de transportes de usuarios y materiales de la Institución.
-b. Vehículos o Unidades de Transporte contratadas: Es la modalidad de contratación de servicios de transporte a terceros a través de un proceso de contratación administrativa.
-c. Arrendamiento de vehículos de funcionarios y pago de kilometraje: Esta modalidad se rige conforme el Reglamento para el arrendamiento del servicio de transporte y pago de kilometraje de vehículos propios de funcionarios del SINAES aprobado por la CGR, para aquellos vehículos de funcionarios de SINAES que se sometan al cumplimiento de los respectivos requisitos dictados en dicho Reglamento
-d. Pago por servicio de taxi u otro servicio público de transporte legal: previa autorización de acuerdo con lo que indica este Reglamento.
+Artículo 10. Lugar de inicio y finalización del viaje
+Para el transporte dentro del territorio nacional, el punto de inicio y finalización de todo viaje
+o gira será, por regla general, las instalaciones del SINAES. No obstante, se establecen las siguientes excepciones:
+• Optimización de costos por menor distancia: Cuando el usuario se encuentre en modalidad de teletrabajo y se determine que iniciar y finalizar el viaje desde su domicilio representa una menor distancia y, por tal motivo, refleje un menor costo y una mayor eficiencia para la institución. En estos casos, el usuario deberá presentar un análisis comparativo de costos entre ambas rutas para su debida justificación. De no presentarse esta justificación, no procederá la autorización.
+• Eventos o actividades fuera del horario laboral: Cuando el evento o actividad inicie antes o a las 7:00 horas, o finalice después o a las 17:00 horas, se podrá autorizar como punto de inicio y finalización la casa de habitación del usuario o un lugar cercano de su preferencia, con el fin de garantizar su seguridad e integridad, así como asegurar el cumplimiento de los horarios establecidos.

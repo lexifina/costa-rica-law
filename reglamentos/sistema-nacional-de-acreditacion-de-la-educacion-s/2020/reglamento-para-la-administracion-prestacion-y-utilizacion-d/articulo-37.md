@@ -1,3 +1,2 @@
-CAPÍTULO XII
-Disposiciones finales
-Artículo 37.—Sobre cualquier situación no prevista en este reglamento. La Dirección Ejecutiva del SINAES resolverá cualquier situación no prevista en este reglamento.
+Artículo 37. Determinación del monto para adelantos de efectivo
+El cálculo del monto a reconocer por concepto de adelantos para el uso de transporte público o colectivo se realizará con base en las tarifas autorizadas por el organismo regulador correspondiente. En el caso de los servicios de autobús y taxi, dichas tarifas son definidas por la Autoridad Reguladora de los Servicios Públicos (ARESEP). El monto por girar será determinado a partir de una estimación razonable de las tarifas oficiales vigentes y deberá contar con la aprobación de dirección o jefatura.

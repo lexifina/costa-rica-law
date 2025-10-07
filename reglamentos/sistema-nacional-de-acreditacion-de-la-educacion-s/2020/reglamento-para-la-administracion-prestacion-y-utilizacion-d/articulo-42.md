@@ -1,0 +1,2 @@
+Artículo 42. Limitaciones por incumplimiento
+No se autorizará un nuevo viaje ni se podrá otorgar adelanto alguno al usuario que no haya presentado la liquidación del viaje anterior dentro del plazo establecido o que no haya aportado la información requerida. Esta restricción no aplicará en aquellos casos en los que, por la proximidad del siguiente viaje, resulte materialmente imposible cumplir con dicha obligación. La DSAG, a través del Área Financiera, deberá rechazar cualquier solicitud que incumpla esta disposición.

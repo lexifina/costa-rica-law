@@ -1,4 +1,10 @@
-CAPÍTULO III
-Del control y administración
-del servicio de transporte
-Artículo 6º—División responsable. La DSAG, será la encargada de velar por el trámite, uso y control de las solicitudes de transporte requeridos por los usuarios para el cumplimiento de sus actividades, así como por el pago o desembolsos que generen los mismos. Sin embargo, cada Jefatura de División tendrá la responsabilidad de programar a lo interno las actividades que requiera transporte para el cumplimiento de sus fines y deberán hacer la solicitud formal a la DSAG con suficiente antelación.
+Artículo 6. Presupuesto
+Las direcciones de división serán responsables de informar oportunamente sus proyecciones y necesidades de transporte. Por su parte, la DSAG asumirá la responsabilidad de estimar los costos y asignar los recursos presupuestarios destinados a la prestación de los servicios de transporte institucional, en todas sus modalidades, tanto a nivel nacional como internacional. Para la formulación y ejecución del presupuesto de transporte, se deberán considerar los siguientes aspectos:
+• La DSAG, en conjunto con las direcciones de cada área, deberán proyectar anualmente los requerimientos de transporte, asegurando su alineación con los objetivos estratégicos y las metas establecidas en el Plan Anual Operativo.
+• La planificación y ejecución del gasto deberá priorizar la eficiencia, transparencia y uso racional de los recursos institucionales.
+• La DSAG, a través de la instancia financiera competente, deberá incluir en el presupuesto ordinario del año correspondiente los recursos destinados al transporte, con base en las proyecciones presentadas por las jefaturas o direcciones respectivas.
+• En caso de que la estimación del gasto supere los recursos disponibles, la distribución y asignación de fondos se realizará conforme a los criterios de prioridades establecidas en los lineamientos institucionales y con previa autorización de la Dirección Ejecutiva.
+• La DSAG deberá realizar un seguimiento periódico de la ejecución presupuestaria en conjunto con las jefaturas o direcciones correspondientes, a fin de garantizar el cumplimiento de la planificación establecida.
+• La DSAG podrán efectuar modificaciones presupuestarias para reforzar las partidas de transporte, únicamente cuando existan recursos disponibles y en cumplimiento de la normativa presupuestaria vigente.
+• No se reconocerán gastos de transporte si el servicio no ha sido autorizado previamente y no cuenta con la debida asignación presupuestaria aprobada.-
+• La autorización de cualquier viaje o gira estará sujeta a la verificación previa de disponibilidad presupuestaria o la factibilidad de su modificación.

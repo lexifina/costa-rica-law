@@ -1,0 +1,2 @@
+Artículo 49. Sanciones
+La falsedad en la información será sancionada conforme a la normativa vigente establecida en el Reglamento Autónomo de Trabajo del SINAES, de acuerdo con la gravedad de la falta cometida. Asimismo, el incumplimiento de cualquiera de las disposiciones establecidas en el presente reglamento podrá dar lugar a la imposición de sanciones disciplinarias, civiles o penales, según corresponda, previa aplicación del debido proceso.

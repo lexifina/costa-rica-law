@@ -1,9 +1,3 @@
-Artículo 34.—Prohibiciones de los usuarios. Está prohibido al usuario del servicio:
-a. Inducir al conductor a infringir lo estipulado en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y demás disposiciones legales, reglamentarias, o de normativa técnica atinente.
-b. Mantener al conductor en el lugar de visita por más tiempo del autorizado en la solicitud de transportes, sin previa autorización.
-c. Modificar el itinerario por asuntos que no correspondan a funciones propias de la Institución, salvo caso de emergencia de salud.
-d. Utilizar los vehículos del servicio contratado para la atención de actividades que no correspondan a las propias del SINAES.
-e. Variar las condiciones del servicio de transporte previamente autorizadas, excepto situaciones de fuerza mayor.
-f. Solicitar al conductor el traslado de terceros no autorizados previamente.
-g. Solicitar al conductor en el caso de los servicios contratados, el traslado a la casa de habitación.
-h. Tomar licor o utilizar drogas enervantes o fumar dentro del vehículo durante el servicio, según lo establece la normativa vigente.
+Artículo 34. Aplicación de adelantos de efectivo
+En los casos en que el uso de la modalidad de servicios de transporte público o colectivo requiera que el usuario incurra en gastos directos, normalmente en efectivo, la institución podrá gestionar un depósito previo mediante la opción de adelantos de dinero, conforme a lo dispuesto en el Reglamento de Gasto de Viaje y Transporte para el Sector Público Costarricense.
+La opción de adelanto de dinero al usuario aplicará exclusivamente para servicios de transporte público o colectivo, ya sean terrestres o marítimos. Por tanto, queda prohibido su uso para el pago de viajes aéreos, en estas situaciones, será la institución la encargada de gestionar la compra de los boletos aéreos, conforme a lo dispuesto en la normativa de contratación pública. La DSAG será responsable de verificar el cumplimiento de los requisitos establecidos y de garantizar la correcta gestión y justificación de los recursos asignados.

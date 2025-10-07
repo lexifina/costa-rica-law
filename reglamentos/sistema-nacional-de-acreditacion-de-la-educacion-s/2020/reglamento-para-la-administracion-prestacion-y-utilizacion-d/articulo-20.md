@@ -1,4 +1,2 @@
-CAPÍTULO VI
-De las autorizaciones para conducir vehículos
-Artículo 20.—Operador de equipo móvil o conductor:
-Los operadores de equipo móvil, desde su nombramiento, quedan autorizados para conducir los vehículos que les sean asignados, previo refrendo de la acción de personal por parte la Unidad de Talento Humano.
+Artículo 20. Del mantenimiento preventivo y correctivo de los vehículos institucionales
+Todo vehículo institucional deberá ser sometido a un mantenimiento preventivo y correctivo periódico, con el fin de prolongarle su vida útil y de prevenir cualquier tipo de percance o accidente. Para lo cual se llevará un registro oficial debidamente foliado, por vehículo de las revisiones técnicas y del mantenimiento que se ha dado.

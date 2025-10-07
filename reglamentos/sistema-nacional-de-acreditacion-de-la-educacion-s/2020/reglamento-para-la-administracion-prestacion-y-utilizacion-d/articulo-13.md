@@ -1,4 +1,5 @@
-CAPÍTULO V
-De la modalidad del servicio
-de transporte con vehículo institucional
-Artículo 13.—Clasificación de los vehículos institucionales. Para efectos de esta modalidad, los vehículos propiedad de SINAES, serán únicamente de uso oficial, es decir, destinado a aquellos servicios regulares de transporte de las diferentes actividades propias para alcanzar el fin público; quedando excluida cualquier posibilidad de otorgar la clasificación de uso discrecional o semidiscrecional.
+Artículo 13. Asignación de unidades de transporte
+Cuando se reciban solicitudes de transporte que coincidan en fecha, hora y destino, la DSAG deberá coordinar un único servicio de transporte compartido para los usuarios. No obstante, se podrá autorizar el uso de unidades adicionales en los siguientes casos:
+• Cuando la demanda de usuarios supere la capacidad máxima de la unidad de transporte disponible, en cuyo caso se dispondrá de una o más unidades adicionales según corresponda.
+• Cuando, por razones de eficiencia operativa y/o económica, resulte más conveniente asignar múltiples unidades de transporte que partan desde distintos puntos hacia un destino común, en lugar de una única unidad con múltiples paradas o desvíos.
+• Cuando la DSAG, mediante justificación debidamente fundamentada, considere que la asignación de más de una unidad de transporte mejora las condiciones de seguridad y optimiza el tiempo de traslado del usuario. Para lo cual deberá comunicarlo previamente al área usuaria.

@@ -1,0 +1,2 @@
+Artículo 40. Cancelación o suspensión de un viaje o gira
+Si un viaje o gira es cancelado, suspendido o pospuesto y, sobre este, se ha otorgado previamente un adelanto de dinero, el usuario deberá notificar el hecho a la DSAG y reintegrar la totalidad del monto recibido en un plazo máximo de tres días hábiles a partir de la notificación oficial. El incumplimiento de esta obligación podrá dar lugar a la aplicación de sanciones administrativas conforme a la normativa vigente.

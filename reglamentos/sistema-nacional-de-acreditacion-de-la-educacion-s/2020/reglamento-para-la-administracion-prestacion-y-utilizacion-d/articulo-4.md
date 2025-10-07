@@ -1,12 +1,5 @@
-Artículo 4º—Definiciones. Para efectos de este Reglamento se utilizarán las siguientes definiciones:
-• Vehículo o unidad contratada: Alquiler de vehículos, debidamente inscritos en el registro de proveedores del SINAES.
-• Vehículo particular: Vehículo de uso particular y propiedad de un tercero.
-• Vehículo Institucional: vehículo automotor propiedad de SINAES
-• Conductor u Operador de equipo móvil. Funcionario nombrado para las labores de conducción de los vehículos institucionales.
-• Pasajero(a): Usuario del servicio de transporte que utiliza la institución que haya sido autorizado, (funcionario o tercero) para viajar en un vehículo arrendado.
-• Encargado de Gira: Persona autorizada como responsable de la gira y usuario de un vehículo.
-• Formulario de Control: Fórmula de control interno que se utiliza para la solicitud del transporte.
-• Pago de kilometraje: Pago que se realiza al funcionario, por el uso del vehículo de su propiedad, que en el cumplimiento de sus funciones deba desplazarse, y resulte más económico y razonable que se pague un monto por la utilización de dichos vehículos.
-• DSAG: División de Servicios de Apoyo a la Gestión.
-• CNA: Consejo Nacional de Acreditación.
-• CGR: Contraloría General de la República.
+Artículo 4. Usuarios del servicio de transporte institucional
+El servicio de transporte institucional estará destinado exclusivamente a las siguientes personas usuarias:
+• Funcionarios de la institución: Comprende a aquellos con nombramientos en propiedad, interinos o bajo régimen de servicios especiales, así como a pasantes y practicantes, siempre que se encuentren en el ejercicio activo de sus funciones y cuenten con un contrato vigente que los acredite como tales.
+• Miembros del Consejo Nacional de Acreditación (CNA): Siempre que dispongan de un nombramiento vigente y ejerzan activamente sus funciones.
+• Personas externas debidamente autorizadas: Incluye funcionarios de otras instituciones públicas o privadas, contratistas, evaluadores externos, consultores, asesores, expositores o conferencistas, entre otros, cuya labor esté directamente vinculada con actividades oficiales de interés institucional. Para estos usuarios, el acceso al servicio de transporte deberá fundamentarse en la necesidad de realizar diligencias oficiales, siempre y cuando estén fuera de las responsabilidades que le han sido asignadas. La autorización para el uso del transporte por parte de personas externas deberá ser otorgada de manera expresa por la dirección de la división o área correspondiente que tenga a cargo la supervisión de la actividad.

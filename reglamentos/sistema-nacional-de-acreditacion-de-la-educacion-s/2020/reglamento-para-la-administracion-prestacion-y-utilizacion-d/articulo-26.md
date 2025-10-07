@@ -1,4 +1,4 @@
-CAPÍTULO VIII
-De la modalidad del servicio de transporte arrendamiento
-de vehículos de funcionarios y pago de kilometraje
-Artículo 26.—Sobre la utilización de la modalidad de arrendamiento de vehículos de funcionarios y pago de kilometraje. El vehículo de uso personal de un funcionario del SINAES, podrá ser utilizado bajo la modalidad de arrendamiento y pago de kilometraje, en aquellos casos en que exista la necesidad institucional del servicio y sea más conveniente, oportuno y razonable dicha modalidad.
+Artículo 26. Trámite y autorización
+La utilización de la modalidad de kilometraje estará regulada por el “Reglamento para el Pago de Kilometraje del SINAES”, aprobado por la CNA, así como por los lineamientos internos que se emitan para su correcta aplicación.
+Para optar por el reconocimiento de gastos por concepto de kilometraje, el funcionario deberá presentar la solicitud ante la DSAG, previamente autorizada por la dirección o jefatura respectiva, quien será responsable de verificar y garantizar que la actividad por realizar se enmarque en las disposiciones establecidas en el reglamento de kilometraje. Esto incluye tanto las actividades propias del cumplimiento de funciones laborales, como aquellas asignadas que respondan a intereses institucionales debidamente justificados.
+Una vez recibida la solicitud, la DSAG procederá con su evaluación y validación, verificando que la documentación esté completa y asegurando que se cumplan todos los requisitos establecidos en la normativa vigente. En caso de considerarla procedente, se gestionará el trámite de pago correspondiente.

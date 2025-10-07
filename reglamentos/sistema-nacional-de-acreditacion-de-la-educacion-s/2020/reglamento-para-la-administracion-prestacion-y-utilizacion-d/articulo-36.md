@@ -1,3 +1,10 @@
-CAPÍTULO XI
-De las sanciones
-Artículo 36.—Sanciones. En caso de falsedad de la información presentada en el formulario de autorización o en el comprobante que debe adjuntar, se aplicará la normativa sancionatoria vigente en el Reglamento Autónomo de Trabajo de SINAES de conformidad con la falta cometida. Asimismo, el incumplimiento de cualquiera de las disposiciones aquí establecidas obligará a la imposición de las medidas disciplinarias, civiles o penales, previo cumplimiento del debido proceso.
+Artículo 36. Procedimiento para la solicitud de adelanto de efectivo
+Los usuarios que requieran un adelanto deberán presentar la solicitud mediante el formulario oficial establecido por la administración. Dicho formulario deberá contener, como mínimo, la siguiente información:
+• Nombre del usuario solicitante.
+• Destinos por visitar.
+• Propósito de la misión o justificación del viaje o gira.
+• Período estimado del viaje.
+• Monto solicitado.
+• Firma del usuario solicitante.
+• Firma de la persona responsable de autorizar el viaje.
+• Revisión y visto bueno de la DSAG.
