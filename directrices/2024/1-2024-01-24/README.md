@@ -14,3 +14,4 @@ Directriz de contenidos de un programa de capacitación básica para comisiones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-16 | la propia norma |
+| 2 | 2025-10-08 | Directriz 1 (2025-10-08) |
