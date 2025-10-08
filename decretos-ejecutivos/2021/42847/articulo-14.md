@@ -238,10 +238,10 @@ Aprobación de un programa de estudios de posgrado (residencia médica) de tres 
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Psiquiatría en un Hospital de Tercer Nivel, Regional, Periférico o Centro Especializado, perteneciente o adscrito a una Universidad.
 14.54 Especialidad Médica en Radiología e Imágenes Médicas.
-Se reconocen como sinónimos de esta especialidad, los siguientes términos: Radiodiagnóstico; Diagnóstico por Imagen; Radiología; Radiología e Imagenología; Imagenología.
+Se reconocen como sinónimos de esta especialidad, los siguientes términos: Radiodiagnóstico; Diagnóstico por Imagen; Radiología; Radiología e Imagenología; Imagenología, Imágenes Diagnósticas y Radiología.
 Requisitos específicos:
 Aprobación de cuatro (4) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Radiología e Imágenes Médicas, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
-(Así reformado el punto 14.54 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(Así reformado el punto 14.54 anterior mediante sesión ordinaria N° 2025-10-08 celebrada el 08 de octubre de 2025)
 14.55 Especialidad Médica en Oncología Radioterápica.
 Se reconoce como sinónimo de esta Especialidad, el siguiente término: Radioterapia.
 Requisitos específicos:
