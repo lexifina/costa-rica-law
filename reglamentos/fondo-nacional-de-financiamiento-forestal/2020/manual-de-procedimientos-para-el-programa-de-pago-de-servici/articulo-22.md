@@ -1,4 +1,5 @@
-Artículo 22.- Actividad reforestación y SAF bloque.
+Artículo 22.- Actividad reforestación, SAF bloque y SIPMABE.
+(Así reformado el párrafo anterior mediante sesión N° 9 del 8 de octubre de 2025)
 22.1. Establecer la plantación forestal que genere los servicios ambientales, según los términos planteados en el estudio técnico de reforestación o SAF bloque propuesto y aprobado por Fonafifo.
 22.2. Mantener la plantación forestal durante el plazo de vigencia del contrato, ejecutando todas las acciones de mantenimiento y manejo silvicultural, establecidas por la ciencia y la técnica.
 22.3. Cumplir con los volúmenes mínimos de crecimiento de la plantación de acuerdo con las tablas y mecanismos de cálculo dispuestos oficialmente por el MINAE.
@@ -9,3 +10,5 @@ Artículo 22.- Actividad reforestación y SAF bloque.
 22.8. Se reconocerán aquellas plantaciones que como máximo se han establecido 12 meses anteriores a la fecha de firma del contrato. En este caso, los pagos se inician a partir de la formalización y la inscripción de la Afectación a la Ley Forestal; y no se tramitarán pagos retroactivos, sino a partir de la fecha de firma del contrato.
 22.9. En los proyectos de turnos cortos, rápido y mediano crecimiento de reforestación, solo se aceptarán proyectos que utilicen material reproductivo con mejoramiento genético, con tolerancia a plagas y enfermedades y con disponibilidad de semillas o clones certificados; cuya procedencia esté certificada por la ONS. El Regente Forestal debe certificar el origen del material vegetativo mejorado cuando exista o en su defecto el origen del material seleccionado para la plantación.
 22.10. Documentar la incidencia de ataques por plagas o enfermedades (estimación del grado de afectación y la cuantía del área o cantidad de árboles afectados), remitiendo al Fonafifo información del estado de la plantación, durante la vigencia del contrato.
+22.11 En los proyectos de reforestación, rápido y mediano crecimiento y SIPMABE, solo se aceptarán proyectos que utilicen material reproductivo con mejoramiento genético, con tolerancia a plagas y enfermedades y con disponibilidad de semillas o clones certificados.
+(Así adicionado el punto anterior mediante sesión N° 9 del 8 de octubre de 2025)
