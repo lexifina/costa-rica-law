@@ -1,0 +1,1 @@
+Artículo 21.-Multa e intereses moratorios. La persona poseedora o propietaria que haga caso omiso del pago de los trabajos ejecutados, en el tiempo establecido, deberá cancelar por concepto de multa un cincuenta por ciento (50%) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios.

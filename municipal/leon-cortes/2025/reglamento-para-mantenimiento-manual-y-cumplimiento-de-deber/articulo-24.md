@@ -1,0 +1,1 @@
+Artículo 24.-Tarifa para el cobro de obras realizadas por la Municipalidad. El cálculo de la tarifa se realizará por metros lineales, considerando el estudio de costos actualizado, que está dirigido a las vías públicas, los cuales serán revisados y ajustados anualmente por la Unidad Técnica de Gestión Vial, en colaboración con la Jefatura de Administración Hacendaria.

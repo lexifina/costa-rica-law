@@ -1,0 +1,1 @@
+Artículo 29.-Derechos de vías. En los caseríos, barrios, pueblos y comunidad en general se deberá disponer de los derechos de vía, cuya medida mínima es dada en la Ley General de Caminos Públicos y sus reformas.

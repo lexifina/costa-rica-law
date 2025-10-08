@@ -1,0 +1,1 @@
+Artículo 27.-Funciones del Director de la Unidad Técnica de Gestión Vial. La persona Directora de la Unidad Técnica de la Municipalidad, designará un funcionario que en conjunto con la o el Promotor(a) Social serán responsables de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual, para la realización adecuada de estas tareas.

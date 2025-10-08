@@ -1,0 +1,1 @@
+Artículo 22.-Cobro administrativo. La persona poseedora o propietaria que haga caso omiso del pago de los trabajos ejecutados, será sujeto de los procedimientos de cobro administrativo y judicial que establece el Reglamento respectivo de la Municipalidad de León Cortés, así como de cualquier otra normativa reguladora aplicable al asunto.

@@ -1,0 +1,1 @@
+Artículo 16.-De las personas obligadas al pago: Será responsabilidad directa del propietario, poseedor, ocupante o usufructuario quien no podrá invocar contra la Administración ninguna cláusula suscrita entre privados que exima al propietario del pago de las tarifas aquí previstas.

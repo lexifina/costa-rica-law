@@ -1,0 +1,1 @@
+Artículo 10.-Redacción de las notificaciones para los y las vecinas de la comunidad. La persona Promotora Social o en su defecto en quien el director de la Unidad Técnica de Gestión Vial Municipal, delegue esta función, será el encargado de la redacción y confección del expediente para cada caso.

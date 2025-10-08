@@ -1,0 +1,1 @@
+Artículo 28.-Canalización de aguas. La Municipalidad, por medio de la Unidad Técnica de Gestión Vial Municipal, velara por que la canalización de aguas esté de conformidad con el artículo 20 de la Ley General de Caminos.

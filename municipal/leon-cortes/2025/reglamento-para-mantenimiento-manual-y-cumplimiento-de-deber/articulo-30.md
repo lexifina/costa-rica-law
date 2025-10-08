@@ -1,0 +1,1 @@
+Artículo 30.-Formularios. Para efectos del artículo anterior, la Unidad Técnica de Gestión Vial, creará un formulario donde solicite de manera expresa la recuperación del derecho de vía, previa información de la comunidad, para que ubique la cerca donde corresponde y permitiendo que se cumpla con el derecho de vía respectivo, en un plazo de 10 días hábiles como máximo.
