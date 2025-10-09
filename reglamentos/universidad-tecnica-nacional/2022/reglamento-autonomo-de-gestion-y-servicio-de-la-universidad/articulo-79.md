@@ -7,7 +7,7 @@ e. El Auditor General debe resolver las autorizaciones previas para nombramiento
 f. Dar la inducción específica del puesto a sus colaboradores.
 g. Gestionar la capacitación que requieran sus colaboradores.
 h. Velar porque las personas servidoras bajo su coordinación y supervisión, cumplan con las obligaciones señaladas en este reglamento y otra normativa vigente.
-i. [imagen] Tomar las precauciones necesarias para prevenir posibles accidentes y riesgos laborales.
+i. Tomar las precauciones necesarias para prevenir posibles accidentes y riesgos laborales.
 j. Programar y velar por el efectivo cumplimiento del disfrute de las vacaciones de sus colaboradores, de modo tal que no se produzcan acumulaciones indebidas.
 k. Evaluar el desempeño de todos sus colaboradores.
 l. Reportar a la Dirección o Coordinación de Gestión de Desarrollo Humano, según corresponda, en el término improrrogable de tres días hábiles, las faltas graves en que pudieran haber incurrido las personas servidoras a su cargo en el desarrollo de su trabajo.

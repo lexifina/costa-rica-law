@@ -1,7 +1,6 @@
 Artículo 80. Prohibiciones. Adicionalmente a las prohibiciones que se establecen en el presente reglamento y otras normas del ordenamiento jurídico administrativo, se prohíbe a la persona servidora de la UTN, lo siguiente:
 a. Recibir en horas laborales, visitas de carácter personal para tratar asuntos ajenos a su función, que interrumpan el desarrollo normal de sus funciones.
-b. Hacer uso de teléfono y demás instrumentos de comunicación propios de la
-institución para asuntos personales o ajenos a las funciones de su cargo.
+b. Hacer uso de teléfono y demás instrumentos de comunicación propios de la institución para asuntos personales o ajenos a las funciones de su cargo.
 c. Hacer uso excesivo de teléfonos celulares y acceder a redes sociales durante la jornada de trabajo, que provoquen retrasos o interrupción en sus deberes laborales.
 d. Hacer uso indebido o no autorizado de los útiles, materiales, productos elaborados internamente, herramienta, mobiliario y equipos, activos intangibles o semovientes de la UTN.
 e. Disponer para sí o para terceros, materiales o productos propiedad de la UTN, cualquiera que sea el estado en que se encuentren.

@@ -3,4 +3,5 @@ Las llegadas tardías injustificadas, computables al final de un mismo mes calen
 a. Dos llegadas tardías amonestación escrita.
 b. Tres llegadas tardías suspensión sin goce de salario por dos días.
 c. Por cuatro llegadas tardías, despido sin responsabilidad patronal.
-(Reformado mediante Acuerdo 11 tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2022, celebrada el miércoles 30 de noviembre de 2022 a las once horas, según el Artículo 16 del Capítulo IX. Dirección General de Asuntos Jurídicos).
+(Reformado mediante Acuerdo 11 tomado por el Consejo Universitario en la
+Sesión Ordinaria No. 30-2022, celebrada el miércoles 30 de noviembre de 2022 a las once horas, según el Artículo 16 del Capítulo IX. Dirección General de Asuntos Jurídicos).

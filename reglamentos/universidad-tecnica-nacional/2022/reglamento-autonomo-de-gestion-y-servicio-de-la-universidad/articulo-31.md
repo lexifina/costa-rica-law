@@ -1,4 +1,5 @@
-CAPÍTULO VIII VACACIONES Y DÍAS FERIADOS
+CAPÍTULO VIII
+VACACIONES Y DÍAS FERIADOS
 Artículo 31. Vacaciones. Toda persona servidora tiene derecho a vacaciones anuales, previa coordinación con la jefatura inmediata, que se disfrutan de la siguiente manera:
 a. Después de 50 semanas de servicio y hasta los 9 años y 50 semanas, goza de 22 días hábiles.
 b. Después de 9 años y 50 semanas, goza de 30 días hábiles.

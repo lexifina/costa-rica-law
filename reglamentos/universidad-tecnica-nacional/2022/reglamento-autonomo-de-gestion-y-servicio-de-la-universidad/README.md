@@ -16,3 +16,4 @@ Reglamento autónomo de gestión y servicio de la Universidad Técnica Nacional
 | 1 | 2022-07-28 | la propia norma |
 | 2 | 2022-11-30 | Reglamento 30 (2022-11-30) |
 | 3 | 2023-03-23 | Reglamento 7 (2023-03-23) |
+| 4 | 2025-10-09 | Reglamento 25 (2025-10-09) |

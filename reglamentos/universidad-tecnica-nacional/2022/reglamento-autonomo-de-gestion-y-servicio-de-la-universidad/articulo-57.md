@@ -7,6 +7,6 @@ c. Hijos o hijas mayores de edad de la persona funcionaria en condición de estu
 d. Hijos o hijas de la persona funcionaria con alguna discapacidad comprobada documentalmente, que requieran acompañamiento en la atención médica.
 e. Padre o madre adultos mayores de la persona funcionaria, que requieran acompañamiento recomendado documentalmente en la atención médica.
 f. Cónyuge o personas convivientes en unión de hecho comprobada de la persona funcionaria, que requieran acompañamiento recomendado documentalmente en la atención médica.
-g. Cónyuge o convivientes en unión de hecho comprobada de la persona funcionaria con alguna discapacidad demostrada documentalmente, que requieran acompañamiento en la atención médica.
+g. Cónyuge o convivientes en unión de hecho comprobada de la persona Página | 19 funcionaria con alguna discapacidad demostrada documentalmente, que requieran acompañamiento en la atención médica.
 Para la aplicación del permiso, la persona funcionaria debe presentar, sin excepción, los documentos o comprobantes correspondientes ante el Área o Dirección de Gestión de Desarrollo Humano; además de informar a la jefatura inmediata sobre la gestión, para justificar la ausencia de las horas no laboradas, a más tardar, UN DÍA HABIL después de haber asistido a la cita o procedimiento médico.
-(Así reformado mediante Sesión Ordinaria N° 7-2023 del 23 de marzo de 2023)
+(Reformado mediante Acuerdo 2 tomado por el Consejo Universitario en la Sesión Ordinaria No. 7-2023, celebrada el jueves 23 de marzo del 2023, a las nueve horas, según el Artículo 2 del Capítulo II. Cumplimiento de Acuerdo).
