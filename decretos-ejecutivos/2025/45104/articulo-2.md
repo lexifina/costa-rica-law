@@ -1,1 +1,0 @@
-Artículo 2°- Deróguese el Decreto Ejecutivo número 44973-H de fecha 7 de abril de 2025, publicado en el Alcance número 52 a La Gaceta número 75, de fecha 28 de abril de 2025, a partir de la vigencia del presente decreto.
