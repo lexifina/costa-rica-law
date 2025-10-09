@@ -1,1 +1,2 @@
-Artículo 10. De la aprobación técnica del contrato de Dedicación Exclusiva. La Dirección o Coordinación de Gestión de Desarrollo Humano, según corresponda, tiene a cargo la aprobación técnica de los contratos, prórrogas o addendum de Dedicación Exclusiva.
+Artículo 10. Del visto bueno técnico del contrato de Dedicación Exclusiva.
+La DGDH o CGDH, según corresponda, tiene a cargo la aprobación técnica de los contratos, prórrogas o addendum de Dedicación Exclusiva.

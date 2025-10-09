@@ -14,3 +14,4 @@ Reglamento de dedicación exclusiva de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-19 | la propia norma |
+| 2 | 2025-10-09 | Reglamento 25 (2025-10-09) |

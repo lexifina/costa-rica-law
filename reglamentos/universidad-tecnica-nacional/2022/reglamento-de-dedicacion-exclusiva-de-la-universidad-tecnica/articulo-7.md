@@ -1,16 +1,18 @@
-d. Clase: puesto o conjunto de puestos lo suficientemente similares en cuanto a deberes, responsabilidades y autoridad, para que se les pueda aplicar el mismo título a cada una de estos, exigir a quienes hayan de ocupar los mismos requisitos y asignarles la misma remuneración en condiciones de trabajo similares.
-e. Contrato de Dedicación Exclusiva: documento que refiere el acuerdo entre las partes que lo conforman, en el cual, se estipulan las condiciones del incentivo económico que se otorga.
-f. Dedicación Exclusiva: régimen de naturaleza contractual que surge por iniciativa de la Administración, cuando se identifica la necesidad de que quien ostente un cargo público se desempeñe en ese puesto de manera exclusiva, lo cual implica que no ejerza su profesión liberal ni profesiones relacionadas con dicho cargo en ninguna otra institución pública o privada, por un periodo de tiempo definido. Es de carácter potestativo, salvo para aquellas profesiones que por disposición legal especial tengan restringido el ejercicio liberal cuando se desempeñan en función pública. Únicamente, puede ser otorgada a las personas funcionarias del sector público que firmen el respectivo contrato. Su incentivo económico se otorga dependiendo del grado académico y las características del puesto. Es el ejercicio profesional de la persona servidora únicamente para la Universidad, regulado con base en el Reglamento de Dedicación Exclusiva de la Universidad Técnica Nacional y normativa relacionada con la materia.
-g. Descenso: el movimiento de la persona servidora de un puesto a otro de nivel salarial de una clase inferior.
-h. Permuta: intercambio de plazas comprendidas en un mismo grupo ocupacional o de la misma categoría.
-i. Prórroga de contrato: extensión del plazo del contrato, sin modificar las demás condiciones del contrato original.
-j. Puesto: conjunto de tareas y responsabilidades permanentes que requieren la atención de la persona servidora durante la totalidad o parte de la jornada de trabajo.
-k. Refrendo: acto administrativo de aprobación en el que se le otorga eficacia a un contrato, que previamente ha sido suscrito por las partes contratantes.
-l. Régimen de Dedicación Exclusiva: sistema que crea el otorgamiento del incentivo económico por Dedicación Exclusiva a las personas servidoras de la Universidad Técnica Nacional, de conformidad con la normativa vigente que regula la materia.
-m. Reubicación: es el movimiento de la persona servidora con su puesto entre las diferentes unidades organizativas.
-n. Suspensión temporal del contrato: acto mediante el cual, temporalmente no se aplican las condiciones del Régimen de Dedicación Exclusiva. Las suspensiones temporales de este pueden originarse por incapacidades, permisos o suspensiones sin goce de salario, entre otros.
-o. Traslado: movimiento de una persona servidora pública de un puesto a otro, sea en la misma organización en la que labora o entre instituciones, órganos y empresas del Estado.
-Artículo 6. De las abreviaturas. En este Reglamento se entiende por:
-a. UTN: Universidad Técnica Nacional
-b. CFPTE: Centro de Formación Pedagógica y Tecnología Educativa
-c. DGDH: Dirección de Gestión de Desarrollo Humano
+CAPITULO II
+REQUISITOS Y CONTRATO DE DEDICACIÓN EXCLUSIVA
+Artículo 7. De los requisitos de ingreso y permanencia en el Régimen de Dedicación Exclusiva o prórroga del Contrato. Para ingresar y permanecer en el régimen de Dedicación Exclusiva, se debe cumplir con las siguientes etapas y requisitos:
+a. La jefatura inmediata solicita, mediante oficio, al ASI o CGDH según corresponda, la verificación del cumplimiento de los requisitos establecidos en los incisos d), e), f), g), h), i) de este artículo por parte de la persona servidora, para ingresar al régimen de dedicación exclusiva y el ASI o CGDH notifica a la jefatura correspondiente la continuación del trámite.
+b. Una vez recibida la notificación positiva del ASI o CGDH, según corresponda, la jefatura inmediata realiza -ante la autoridad competente- la justificación escrita debidamente razonada y fundamentada a la luz de la normativa y criterios técnicos de disponer de manera exclusiva de la formación profesional de la persona servidora, en razón de las funciones que desempeña, en la cual se consigne la necesidad institucional de dicha exclusividad y que prevalezca el interés público.
+c. La acreditación mediante resolución administrativa razonada por parte del (de la) Rector (a) o a quien este (a) delegue; sobre la necesidad institucional y la relación de costo oportunidad de otorgar dicho incentivo económico, en razón de las funciones que ejerza la persona servidora y el beneficio para el interés público.
+d. Ser profesional, con el grado académico de bachillerato o licenciatura universitaria.
+e. Estar nombrado para desempeñar un puesto, cuyo requisito exija el grado académico que corresponda, según se indica en el inciso anterior.
+f. Estar nombrado con una jornada de tiempo completo, salvo causas atribuibles a la Administración.
+g. Estar nombrado en un puesto que ejerzan funciones de:
+i. Dirección.
+ii. Jefatura.
+iii. Coordinación de áreas de gestión de las Sedes
+iv. Personas servidoras cuyas funciones ameriten la exclusividad y permanencia en la Universidad.
+v. Profesiones que por disposición legal especial tengan restringido el ejercicio liberal cuando se desempeñan en función pública.
+h. No ejercer labores académicas en otras instituciones, excepto que sean de educación superior universitaria, hasta por un máximo de medio tiempo y que no exista superposición de horario.
+i. Estar incorporado al Colegio Profesional respectivo y encontrarse al día en el pago de las obligaciones, según las funciones a desempeñar y el grado académico que exige el cargo, cuando exista la entidad profesional. j. Firmar el respectivo contrato, prórroga o addendum con la autoridad competente, según corresponda.
+k. Visto bueno técnico al respectivo contrato, prórroga o addendum correspondiente, por parte del ASI o CGDH, según corresponda.
