@@ -1,1 +1,0 @@
-Artículo 6º-Informantes del modelo electrónico D-153. (Derogado por el artículo 9 (actual artículo 11) de la resolución N° MH-DGT-RES-0055-2025 del 9 de octubre de 2025, "Uso del Formulario de la Declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico")

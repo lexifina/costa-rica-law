@@ -1,2 +1,0 @@
-Artículo 25.—Derogatoria. A partir de la vigencia de la presente resolución se deroga en todos sus extremos, la resolución DGT-R-041 -2014 del 24 de setiembre del 2014, publicada en La Gaceta N° 187 del 30 de setiembre del 2014.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 217 del 9 de noviembre del 2015, página N° 36. Anteriormente decía " A partir de la vigencia de la presente resolución se deroga en todos sus extremos, la resolución DGT-R-041 -2011 del 24 de setiembre del 2014, publicada en La Gaceta N° 187 del 30 de setiembre del 2014."

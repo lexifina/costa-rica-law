@@ -1,1 +1,0 @@
-Artículo 21.—Declaraciones informativas de periodos anteriores. Todas aquellas declaraciones pendientes de presentar de períodos anteriores a la vigencia de la presente resolución deben ser elaboradas mediante el programa DECLAR@7, así como la declaración que rectifique lo informado mediante los formularios o versiones anteriores.
