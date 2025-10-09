@@ -1,2 +1,0 @@
-Del Área Auditoría Operacional
-Artículo 15.—Definición y propósito. El Área Auditoria Operacional es responsable de auditar las funciones de la administración orientadas al cumplimiento de los objetivos y las metas debidamente aprobadas por las instancias pertinentes y determinar la eficiencia y eficacia de los procesos de la gestión universitaria y de brindar servicios preventivos según la normativa vigente. Su propósito es contribuir a una mejor gestión de las actividades sustantivas de la Universidad.

@@ -1,1 +1,0 @@
-Artículo 48.—Fundamentación de la desestimación o archivo de denuncias. La desestimación o archivo de las denuncias deberá ser debidamente motivada, acreditando los argumentos valorados para tomar esa decisión. Dichos argumentos deberán constar en el expediente de denuncia.

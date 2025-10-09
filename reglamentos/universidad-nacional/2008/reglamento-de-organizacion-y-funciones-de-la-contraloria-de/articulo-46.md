@@ -1,1 +1,0 @@
-Artículo 46.—Seguimiento. La Contraloría Universitaria de acuerdo con sus procedimientos determinará los casos en que dará seguimiento de las denuncias que remita a la Administración, con el fin de que cumpla su obligación de atenderlas.

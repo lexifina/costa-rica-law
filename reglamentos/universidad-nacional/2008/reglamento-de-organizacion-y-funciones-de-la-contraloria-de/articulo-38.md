@@ -1,1 +1,0 @@
-Artículo 38.—Comunicación de implementación de disposiciones derivadas de recomendaciones de auditoría. Para facilitar el seguimiento de las disposiciones derivadas de recomendaciones de auditoría, la unidad correspondiente deberá referirse por escrito, según el procedimiento vigente, sobre su puesta en ejecución.

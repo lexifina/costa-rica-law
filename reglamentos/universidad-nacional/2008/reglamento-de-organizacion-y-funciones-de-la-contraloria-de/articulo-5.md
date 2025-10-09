@@ -1,2 +1,0 @@
-Artículo 5º—Estructura Organizativa. La estructura organizativa de la Contraloría Universitaria es dispuesta por el Contralor y debe ser concordante con su razón de ser y con la normativa que regula la institución, a efecto de garantizar, entre otros, una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.
-Modificado según oficio Nº SCU-1113-2008

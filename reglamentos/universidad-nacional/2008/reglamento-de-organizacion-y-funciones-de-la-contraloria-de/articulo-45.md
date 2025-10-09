@@ -1,1 +1,0 @@
-Artículo 45.—Direccionamiento de las denuncias. La Contraloría Universitaria procurará que la Administración atiendan las denuncias relacionadas con sus competencias específicas, de conformidad con lo establecido en la Ley General de Control Interno y demás normativa vigente.

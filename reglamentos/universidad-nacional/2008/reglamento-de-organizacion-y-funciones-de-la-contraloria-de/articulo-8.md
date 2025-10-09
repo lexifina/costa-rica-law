@@ -1,1 +1,0 @@
-Artículo 8º—Control y administración de impedimentos del personal. El Contralor debe establecer medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o situaciones que pongan en duda o peligro (de hecho o de apariencia) la objetividad e independencia de la Contraloría.

@@ -1,3 +1,0 @@
-CAPÍTULO III
-Comunicación y seguimiento de resultados
-Artículo 31.—Comunicación de resultados. La Contraloría comunicará a las unidades pertinentes el producto técnico de los servicios de auditoría y preventivos que brinda, según las normas, lineamientos y directrices para el ejercicio de la Auditoría de aceptación general emitidas por la Contraloría General de la República. Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá según lo establecido en el artículo 36 de la Ley General de Control Interno. Cuando esté dirigido al Consejo Universitario, se procederá según lo establecido en el artículo 37 de la citada Ley.

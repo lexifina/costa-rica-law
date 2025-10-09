@@ -1,3 +1,0 @@
-Del Área Auditoría de Tecnología
-y Sistemas Informáticos
-Artículo 21.—Definición y propósito. El Área Auditoría de Tecnología y Sistemas Informáticos es responsable de auditar la tecnología y los sistemas de información computarizada de la Universidad, y de brindar servicios preventivos según la normativa vigente y asistencia técnica en actividades de programación y sistematización de los procesos de auditoría. Su finalidad es coadyuvar en el fortalecimiento de la tecnología y los sistemas universitarios de información automáticos y en el desarrollo técnico especializado de las funciones de la Contraloría Un iversitaria.
