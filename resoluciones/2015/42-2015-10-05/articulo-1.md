@@ -34,14 +34,14 @@ ENTRE OBLIGADOS
 TRIBUTARIOS
 Artículo 1º-Modelos electrónicos de declaraciones informativas. Para el suministro general de información previsiblemente pertinente, derivada de las relaciones económicas, financieras o profesionales que se realicen con obligados tributarios, se establecen los siguientes modelos electrónicos de declaraciones informativas:
 a. D-150 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las utilidades".
-b. D-151 "Declaración anual de clientes, proveedores y gastos específicos".
+b. D-151 "Declaración anual de clientes, proveedores y gastos específicos". (Derogado por el artículo 9 (actual artículo 11) de la resolución N° MH-DGT-RES-0055-2025 del 9 de octubre de 2025, "Uso del Formulario de la Declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico")
 c. D-152 "Declaración anual resumen de retenciones impuestos únicos y definitivos".
-d. D-153 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas".
+d. D-153 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas". Derogado por el artículo 9 (actual artículo 11) de la resolución N° MH-DGT-RES-0055-2025 del 9 de octubre de 2025, "Uso del Formulario de la Declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico")
 e. D-155 "Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas e impuesto sobre la renta"
 f. D-157 "Declaración trimestral resumen de impuesto de salida del territorio nacional".
 (Así derogado el inciso anterior por el artículo 11 de la resolución N° MH-DGT-RES-0041-2025 del 7 de agosto del 2025 "Resolución sobre el uso de los Formularios de Declaraciones Informativas denominadas: "Informativa Resumen de Impuesto de Salida del Territorio Nacional por vía aérea" e "Informativa de Compras y Ventas en Subastas Agropecuarias")
 g. D-158 "Declaración anual, compras y ventas subastas agropecuarias".
 (Así derogado el inciso anterior por el artículo 11 de la resolución N° MH-DGT-RES-0041-2025 del 7 de agosto del 2025 "Resolución sobre el uso de los Formularios de Declaraciones Informativas denominadas: "Informativa Resumen de Impuesto de Salida del Territorio Nacional por vía aérea" e "Informativa de Compras y Ventas en Subastas Agropecuarias")
-h. D-160 "Declaración trimestral resumen de impresión de facturas y otros documentos".
-i. D-161 "Declaración trimestral resumen de cajas registradoras".
+h. D-160 "Declaración trimestral resumen de impresión de facturas y otros documentos". Derogado por el artículo 9 (actual artículo 11) de la resolución N° MH-DGT-RES-0055-2025 del 9 de octubre de 2025, "Uso del Formulario de la Declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico")
+i. D-161 "Declaración trimestral resumen de cajas registradoras". Derogado por el artículo 9(actual artículo 11) de la resolución N° MH-DGT-RES-0055-2025 del 9 de octubre de 2025, "Uso del Formulario de la Declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico")
 Cada uno de los modelos de declaración informativa, en adelante "declaración", debe incluir la información de todas sus oficinas, agencias y sucursales de forma consolidada, según corresponda.
