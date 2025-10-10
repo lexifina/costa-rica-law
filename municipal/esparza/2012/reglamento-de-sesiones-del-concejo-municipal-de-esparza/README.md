@@ -17,3 +17,4 @@ Reglamento de sesiones del Concejo Municipal de Esparza
 | 2 | 2015-02-03 | Reglamento municipal 0 (2015-02-03) |
 | 3 | 2020-07-08 | Reglamento municipal 0 (2020-07-08) |
 | 4 | 2024-07-16 | Reglamento municipal 0 (2024-07-16) |
+| 5 | 2025-10-10 | Reglamento municipal 0 (2025-10-10) |
