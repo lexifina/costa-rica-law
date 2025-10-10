@@ -1,6 +1,6 @@
 # Ley sobre Derechos de Autor y Derechos Conexos
 
-Ley N° 6683 del 1982-10-14. SINALEVI, ficha 3396: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3396&param2=128057&param3=1>.
+Ley N° 6683 del 1982-10-14. SINALEVI, ficha 3396: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3396&param2=147948&param3=1>.
 
 Publicada en La Gaceta N° 212 del 1982-11-04.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 8 | 2010-05-13 | Ley 8834 | 2010-05-03 |
 | 5 de 8 | 2020-10-28 | Ley 9858 | 2020-10-16 |
 | 6 de 8 | 2021-12-01 | Ley 9957 | 2021-04-14 |
+| 7 de 8 | 2025-10-10 | Ley 10744 | 2025-08-26 |
