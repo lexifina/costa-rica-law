@@ -1,0 +1,1 @@
+Artículo 5º-Convenio. La transferencia de recursos se formalizará mediante un convenio entre la Municipalidad de Esparza y la Cruz Roja Costarricense- Comité Auxiliar del Cantón de Esparza, en el cual se establecerán los alcances del acuerdo, los mecanismos de seguimiento y control, y las obligaciones de cada parte.

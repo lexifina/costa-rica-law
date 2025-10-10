@@ -1,0 +1,1 @@
+Artículo 3º-Uso de los Recursos. Los recursos transferidos a la Cruz Roja Costarricense- Comité Auxiliar del Cantón de Esparza se destinarán a compra de ambulancias, equipamiento de ambulancias, mejoras en infraestructura y equipamiento médico, excluyendo gastos operativos y salarios.
