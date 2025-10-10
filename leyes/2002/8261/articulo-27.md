@@ -5,7 +5,8 @@ b) Una persona representante por cada una de las universidades públicas.
 c) Tres personas representantes de las universidades privadas.
 d) Dos personas representantes de las instituciones de educación parauniversitaria.
 e) Veinte personas representantes de los partidos políticos representados en la Asamblea Legislativa, quienes serán designadas de manera proporcional a la conformación de este Poder.
-f) Cinco personas representantes de los grupos étnicos, quienes procederán del grupo étnico respectivo.
+f) Cinco personas representantes de los grupos étnicos, quienes procederán del grupo étnico respectivo. Al menos dos representantes deberán ser personas jóvenes indígenas.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 10748 del 1° de setiembre de 2025)
 g) Cinco personas representantes de las organizaciones no gubernamentales.
 h) Dos personas representantes de las asociaciones de desarrollo.
 i) Dos personas representantes de las asociaciones o fundaciones integradas por personas con discapacidad, debidamente reconocidas por el Consejo Nacional de Rehabilitación y Educación Especial. Esos representantes deben ser personas con discapacidad.

@@ -21,8 +21,12 @@ n) El derecho de las personas jóvenes a tener acceso a una vivienda digna
 (Así adicionado el inciso anterior por el artículo 2° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
 ñ) El derecho al deporte, por medio de la existencia de espacios deportivos integrales y efectivos, en donde se les garantice su uso cotidiano.
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 9917 del 19 de noviembre del 2020)
-o) El derecho a no sufrir ninguna forma de violencia en el espacio público, por medio de mecanismos que promuevan el resguardo de su vida, integridad y seguridad en este.
+o) El derecho a la preservación y promoción de su identidad cultural, incluyendo el acceso y participación en prácticas tradicionales, idioma, rituales y manifestaciones culturales propias de sus pueblos indígenas.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025)
+p) El derecho a no sufrir ninguna forma de violencia en el espacio público, por medio de mecanismos que promuevan el resguardo de su vida, integridad y seguridad en este.
 (Así adicionado el inciso anterior por el artículo 9 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
-p) El derecho a la ciudad, sin discriminación de ningún tipo en los espacios urbanos y comunitarios.
+(Así modificada la numeración del inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025, que lo traspaso del antiguo inciso o) al inciso p))
+q) El derecho a la ciudad, sin discriminación de ningún tipo en los espacios urbanos y comunitarios.
 (Así adicionado el inciso anterior por el artículo 9 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
+(Así modificada la numeración del inciso anterior por el artículo 1° de la ley N° 10748 del 1° de setiembre de 2025, que lo traspaso del antiguo inciso p) al inciso q))
 Las personas adolescentes gozarán de los derechos contemplados en el Código de la Niñez y la Adolescencia, Ley Nº 7739.
