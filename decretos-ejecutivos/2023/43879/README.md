@@ -14,3 +14,4 @@ Reglamento a la ley de promoción y regulación de recursos energéticos distrib
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-01 | la propia norma |
+| 2 | 2025-10-10 | Decreto Ejecutivo 45294 (2025-10-10) |
