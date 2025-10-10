@@ -1,0 +1,1 @@
+Artículo 16.- Objetivo del Comité Técnico. El objetivo del Comité es facilitar la comunicación y coordinación entre todas las instancias del SNH, para coadyuvar al cumplimiento de la PNH y su Plan de Acción.

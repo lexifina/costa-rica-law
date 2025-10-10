@@ -1,0 +1,3 @@
+Secretaría Técnica
+Artículo 12.- Conformación de la Secretaría Técnica. La Secretaria Técnica recaerá sobre la Secretaría Sectorial de Vivienda, Hábitat y Territorio, de conformidad con el artículo 2 inciso 45) y el artículo 22 del Reglamento del Sistema Nacional de Planificación, Decreto Ejecutivo 37735- PLAN de 6 de mayo del 2013.
+En caso de que la Ministra o el Ministro de Vivienda y Asentamientos Humanos no ostentare la rectoría del sector que atienda los temas de vivienda, hábitat y territorio, según lo que establezca el Reglamento Orgánico del Poder Ejecutivo que se encuentre vigente, la Coordinación del SNH designará a las personas funcionarias que laborarán en la Secretaría Técnica del SNH, una de las cuales asumirá el cargo de Secretario(a) Técnico(a) del SNH.
