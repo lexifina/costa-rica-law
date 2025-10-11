@@ -1,0 +1,1 @@
+Artículo 5º-La asignación del equipo no constituye un derecho adquirido ni parte de los beneficios salariales del funcionario, y puede ser retirada en cualquier momento a discreción de la jefatura correspondiente.

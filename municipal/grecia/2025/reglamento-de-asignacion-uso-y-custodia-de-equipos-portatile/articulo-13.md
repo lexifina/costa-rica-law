@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones Finales
+Artículo 13.-Revisión de asignaciones: Una vez que este Reglamento entre en vigor, y durante un plazo de tres meses, las asignaciones vigentes de equipos de cómputo portátil serán revisadas por las jefaturas, o por el área a quien estas deleguen dicha tarea. El objetivo de esta revisión será evaluar la necesidad y conveniencia institucional de cada asignación. Como resultado, se procederá a retirar los equipos cuya asignación ya no sea justificada y a formalizar los contratos o convenios correspondientes para aquellos que continúen bajo la responsabilidad de sus actuales usuarios.

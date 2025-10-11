@@ -1,0 +1,1 @@
+Artículo 11.-Las faltas graves derivadas del incumplimiento de estas responsabilidades también pueden conllevar sanciones administrativas conforme al Reglamento Autónomo de Organización y Servicios (RAOS).

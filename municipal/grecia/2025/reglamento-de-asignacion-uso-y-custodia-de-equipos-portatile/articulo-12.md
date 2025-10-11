@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Normativa Aplicable
+Artículo 12.-Normativa aplicable: La asignación de equipos de cómputo portátil para uso y custodia de los funcionarios estará sujeta, además de lo dispuesto en este Reglamento, a la normativa que rige las actuaciones de la Administración Pública, conforme a su jerarquía. Esto incluye, sin limitarse a, los principios constitucionales y legales en materia de tecnología de la información, las disposiciones de la Ley de Control Interno emitidas por la Contraloría General de la República, la normativa sobre activos del Estado, contabilidad estatal y presupuesto, así como cualquier otra disposición de acatamiento general dictada por los jerarcas de la Institución en el ejercicio legítimo de sus potestades.

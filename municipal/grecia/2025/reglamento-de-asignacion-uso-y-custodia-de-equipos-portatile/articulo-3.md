@@ -1,0 +1,4 @@
+CAPÍTULO II
+Asignación de los Equipos Portátiles
+Artículo 3º-Se podrá autorizar la asignación de equipos de cómputo portátil, ya sea adquiridos por la Municipalidad o alquilados, a los funcionarios nombrados en propiedad o en condición interina, para su uso y custodia durante el ejercicio exclusivo de las funciones correspondientes a los puestos que desempeñan. Esta asignación deberá estar justificada por razones de necesidad y conveniencia institucional, directamente relacionadas con las funciones del funcionario o los servicios que presta.
+El equipo de cómputo portátil podrá asignarse tanto para las labores ordinarias del funcionario como para un propósito o proyecto específico. En todo caso, será obligatoria la formalización de un Acta Administrativa de Asignación de Equipo de Cómputo en el momento de la entrega del equipo
