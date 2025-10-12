@@ -1,0 +1,24 @@
+No. 45020-S
+EL PRESIDENTE DE LA REPUBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley No. 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública"; 1,2,3,4 y 7 de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley No. 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".
+Considerando
+1. Que es función del Estado velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos.
+2. Que la Ley General de Salud dispone que las personas físicas o jurídicas públicas o privadas que requieran brindar servicios de salud y afines, deberán obtener el permiso del Ministerio de Salud, previo a su instalación y operación; para lo cual deben garantizar que reúnen o cumplen los requisitos legales generales y particulares establecidos.
+3. Que el Ministerio de Salud, por sus competencias legales y por su función de rectoría de velar por la salud de la población, está en la obligación de tomar las providencias necesarias para salvaguardar la salud de los habitantes, por lo cual establece normas con el fin de cumplir con la misión que le corresponde.
+4. Que es función del Estado velar por la atracción y consolidación de las inversiones en el país, promoviendo la resolución de permisos y autorizaciones de manera expedita, sin que esto implique el dejar de lado los mandatos constitucionales y legales de velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos, para garantizar, en materia de salud y ambiente.
+5. Que el artículo 31 del Decreto Ejecutivo N°43432-S del 9 de marzo del 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud", establece la necesidad de crear normativa específica para definir los estándares que se deben solicitar a cada tipo de servicio de salud según la actividad a desarrollar en complemento a los requisitos generales establecidos en dicho reglamento; para así obtener la habilitación por parte del Ministerio de Salud.
+6. Que mediante el Decreto Ejecutivo No. 41304-S del 09 de mayo de 2018 se oficializó la "Norma para la habilitación de servicios de hemodiálisis".
+7. Que se ha estimado pertinente y adecuado actualizar la "Norma para la habilitación de servicios de hemodiálisis", de acuerdo con los conocimientos científicos y técnicos más recientes.
+8. Que de conformidad con lo dispuesto en el artículo 361 de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", el presente Decreto Ejecutivo fue sometido a consulta pública ante la ciudadanía y sectores interesados, en la plataforma virtual del Sistema de Control Previo (SICOPRE) del Ministerio de Economía, Industria y Comercio. Como resultado de este proceso se recibieron observaciones por parte de varios administrados, las cuales fueron atendidas.
+9. Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No. 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No. DMRDAR-INF-079-2025 emitido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+Por tanto,
+DECRETAN:
+OFICIALIZACIÓN DE LA "NORMA PARA LA HABILITACIÓN DE SERVICIOS
+DE HEMODIALISIS" Y DEROGATORIA DEL DECRETO EJECUTIVO NO. 41304-
+S DEL 09 DE MAYO DE 2018 "OFICIALIZACIÓN Y DECLARATORIA DE
+INTERÉS PÚBLICO Y NACIONAL DE LA "NORMA PARA LA HABILITACIÓN
+DE SERVICIOS DE HEMODIÁLISIS"
+Artículo 1º- Oficialícese para efectos de aplicación obligatoria la "Norma para la habilitación de servicios de hemodiálisis" para todos los servicios de este tipo públicos, privados y mixtos, que soliciten el permiso de habilitación tanto de primera vez como de renovación, según legajo anexo el cual forma parte integral del presente Decreto Ejecutivo.
+Esta norma se debe aplicar como complemento a las disposiciones generales (requisitos, procedimientos, plazos y demás) establecidas en el Decreto Ejecutivo N°43432-S del 9 de marzo del 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud" o normativa que lo sustituya.
+A partir de la entrada en vigencia de esta norma todas las inspecciones de habilitación de este tipo de servicios de salud, ya sean por primera vez, renovación o control, se deben regir de acuerdo con las disposiciones de la presente norma.

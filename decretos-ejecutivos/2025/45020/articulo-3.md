@@ -1,0 +1,1 @@
+Artículo 3º- Deróguese el Decreto Ejecutivo No. 41304-S del 09 de mayo de 2018 "Oficialización y declaratoria de interés público y nacional de la "Norma para la habilitación de servicios de hemodiálisis".
