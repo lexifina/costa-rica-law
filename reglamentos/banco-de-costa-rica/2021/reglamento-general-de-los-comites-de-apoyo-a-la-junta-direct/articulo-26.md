@@ -9,5 +9,7 @@ Este comité es presidido por el gerente corporativo de operaciones y está conf
 . Gerente corporativo de transformación
 . Gerente corporativo de TI
 . Gerente corporativo de riesgo
-Cuando se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, puede estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya, quién cuenta con voz, pero sin voto.
-El Comité de Continuidad del Negocio está facultado para requerir la asistencia permanente de invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto.
+Para un mejor balance de conocimientos y competencias, es preferible pero no indispensable, que las personas que conformen este comité cuenten como mínimo, con un grado académico en al menos alguna de las siguientes áreas: ciencias económicas, derecho, ingenierías, ciencias de las tecnologías de información o carrera afín según el perfil del puesto; o experiencia mínima de tres años en labores afines.
+El Comité de Continuidad del Negocio cuenta con la facultad de requerir la asistencia de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda, quienes tienen voz, pero no voto:
+. Gerente de área CISO
+(Así reformado mediante sesión N° 50-25 del 13 de octubre del 2025)

@@ -19,7 +19,8 @@ o. Recomendar para aprobación de Junta Directiva General el sistema de informac
 p. Conocer y recomendar al Órgano de Dirección, los temas que correspondan, en materia de gobernanza corporativa, transparencia y rendición de cuentas hacia las partes interesadas.
 q. Implementar y dar seguimiento a las recomendaciones emitidas por los reguladores y auditores internos y externos.
 r. Aprobar las campañas publicitarias y patrocinios por encima de los trescientos millones de colones.
-s. Cumplir con las funciones establecidas en el acuerdo Conassif 12-21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786.
+s. Cumplir con las responsabilidades de vigilancia establecidas en el artículo 8 del acuerdo Conassif 12-21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786.
+(Así reformado el inciso anterior mediante sesión N° 50-25 del 13 de octubre del 2025)
 Funciones relacionadas con temas vinculados a la gestión comercial:
 t. Analizar, aprobar y dar seguimiento a los planes comerciales, sus modificaciones y sus respectivos índices de medición; así como, resolver las propuestas de otras áreas relacionados con estos planes.
 u. Aprobar las propuestas de negocios del área comercial.

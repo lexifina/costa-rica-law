@@ -20,3 +20,4 @@ Reglamento general de los comités de apoyo a la Junta Directiva General y Admin
 | 5 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
 | 6 | 2024-06-10 | Reglamento 26 (2024-06-10) |
 | 7 | 2025-03-17 | Reglamento 14 (2025-03-17) |
+| 8 | 2025-10-13 | Reglamento 50 (2025-10-13) |

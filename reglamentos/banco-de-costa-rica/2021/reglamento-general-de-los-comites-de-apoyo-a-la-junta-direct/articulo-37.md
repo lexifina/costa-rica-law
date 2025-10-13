@@ -1,6 +1,6 @@
 Capítulo IV
-De las relaciones internas y externas, la secretaría, actas, libros de actas y
-comunicación de acuerdos
+De las relaciones internas y externas, la secretaría, actas, libros de actas y comunicación
+de acuerdos
 Artículo 37. De las relaciones internas y externas
-Cada uno de los comités debe cumplir los acuerdos de los otros órganos colegiados internos o externos, superintendencias, autoridades de gobierno y autoridades internacionales, de acuerdo con la temática que a cada uno le corresponda, cuando así lo indique la legislación aplicable; asimismo, debe reportar mediante el formulario 23-ZD las situaciones que sean de interés a los órganos correspondientes.
-En el caso del Comité Corporativo de Auditoría, este debe propiciar la comunicación entre las juntas directivas, la Administración Superior, las auditorías internas, los auditores externos y entes supervisores.
+Cada uno de los comités debe cumplir los acuerdos de los otros órganos colegiados internos o externos, superintendencias, autoridades de gobierno y autoridades internacionales, de acuerdo con la temática que a cada uno le corresponda, cuando así lo indique la legislación aplicable; asimismo, debe reportar mediante el formulario 23-ZD las situaciones que sean de interés a los órganos colegiados correspondientes.
+(Así reformado mediante sesión N° 50-25 del 13 de octubre del 2025)
