@@ -1,1 +1,0 @@
-Artículo 3º—Se entiende por mantenimiento de parque y zonas verdes, aquella actividad técnica y artesanal, así como el costo financiero que realiza la Municipalidad a través de sus distintas dependencias, para la atención del parque ubicado en el distrito de Ciudad Quesada, distrito primero del Cantón de San Carlos.,

@@ -1,1 +1,0 @@
-Artículo 4º—Los respectivos servicios que presta la Municipalidad, en relación con el mantenimiento de parques y zonas verdes relacionados con los bienes inmuebles ubicados en el distrito primero son: agua, recolección de desechos sólidos y aseo de vías, estos servicios son de acuerdo con el costo efectivo de lo invertido por la Municipalidad.
