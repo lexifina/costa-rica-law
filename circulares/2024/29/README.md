@@ -13,3 +13,4 @@ Atención y pago de ayudas económicas a personas con discapacidad, adultas mayo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-06 | la propia norma |
+| 2 | 2025-10-13 | Circular 196 (2025-10-13) |
