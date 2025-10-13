@@ -1,4 +1,4 @@
-Artículo 2º—Corresponde a la Municipalidad de Buenos Aires:
+Artículo 2º-Corresponde a la Municipalidad de Buenos Aires:
 a) Señalar los horarios de funcionamiento.
 b) Señalar las actividades y destinos que se le den a los locales de conformidad, con las necesidades de la comunidad, previo el estudio respectivo de desarrollo urbano.
 c) Establecer los sistemas de vigilancia que considere necesarios.
@@ -8,5 +8,5 @@ f) Recalificar los alquileres en forma quinquenal, según lo dispone la Ley Nº 
 g) Establecer los sistemas de cobros adecuados de los alquileres de los locales y las multas y sanciones correspondientes por morosidad e indisciplina.
 h) Establecer los controles para mantener una adecuada higiene y seguridad para el usuario, en coordinación con otras autoridades competentes, como el Ministerio de Salud, la Fuerza Pública, la Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros.
 i) La Municipalidad coordinará y resolverá todos los asuntos relacionados con el mercado, a través de un Administrador y el Alcalde Municipal, como responsable de la custodia de los bienes de la institución. En caso de darse un desacuerdo entre las partes, el Concejo Municipal deberá resolver esas diferencias, según procedimiento establecido en este Reglamento.
-j): De manera excepcional, y previo estudio de Comisión que se nombre para dicho fin, el Concejo autorizará la sesión de derechos de un local del Mercado Municipal, el inquilino deberá plantear la solicitud, con las pruebas pertinentes, en el entendido que al ser de forma excepcional, dicha solicitud obedece a situaciones de índole de salud, o cualquier otra que genere la imposibilidad no antojadiza, del inquilino de permanecer como tal, de aprobarse la sesión de derechos, el inquilino que cede, deberá cancelar un canon mismo que será el equivalente a doce meses de alquiler del local que se sesiona, con base al alquiler vigente a la fecha de la autorización de la sesión, el nuevo inquilino, deberá cumplir con los requisitos del Reglamento Autónomo de Organización, Funcionamiento y Administración del Mercado Municipal de Buenos Aires, y firmar el correspondiente contrato. El inquilino solicitante de sesión de derechos de alquiler de local en el Mercado de Buenos Aires, con la solicitud, además de las pruebas pertinentes, deberá demostrar que ha sido inquilino, por más de cinco años.
+j) (Derogado mediante sesión ordinaria N° 76-2025 del 13 de octubre del 2025)
 (Así adicionado el inciso anterior en sesión N° 22-2016 del 10 de octubre del 2016)

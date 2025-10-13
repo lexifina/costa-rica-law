@@ -1,0 +1,2 @@
+Artículo 8º bis.-Base del remate. Cuando quede disponible un local municipal, la Proveeduría Municipal iniciará un procedimiento de remate, conforme las disposiciones contenidas en la Ley y el Reglamento General de Contratación Pública. La base del Remate será el monto que resulte de la sumatoria de diez mensualidades del arrendamiento de ese local.
+(Así adicionado mediante sesión ordinaria N° 76-2025 del 13 de octubre del 2025)
