@@ -1,0 +1,1 @@
+Artículo 18.-Previsión presupuestaria. El PANI deberá incluir en su presupuesto anual o mediante modificaciones las partidas necesarias para atender la compensación por disponibilidad, transporte y alimentación.

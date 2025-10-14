@@ -1,0 +1,1 @@
+Artículo 11.-Elaboración de roles. El superior inmediato elaborará los roles de disponibilidad, asegurando participación equitativa entre los puestos afectados y comunicándolos al Departamento de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 4º-Eliminación de la compensación. La compensación podrá eliminarse cuando desaparezcan las condiciones objetivas que justificaron la sujeción del puesto al régimen de disponibilidad, mediante acto administrativo motivado emitido por la Presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 10.-Contrato por disponibilidad. Toda persona servidora afectada deberá suscribir un contrato con el PANI, en la persona de la Presidencia Ejecutiva. Los contratos tendrán una duración mínima de un mes y máxima de seis meses, prorrogables automáticamente si se mantienen las condiciones que los motivaron.

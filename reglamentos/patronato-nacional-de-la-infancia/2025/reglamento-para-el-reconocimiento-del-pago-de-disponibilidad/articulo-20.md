@@ -1,0 +1,1 @@
+Artículo 20.-Derogatoria. Se deroga el Reglamento de Compensación Económica por Disponibilidad para el personal con categoría de plaza de Tía Sustituta del PANI, aprobado en sesión ordinaria JD 97-0071 de 1° de setiembre de 1997 y publicado en La Gaceta N° 190 del 3 de octubre de 1997.

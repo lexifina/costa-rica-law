@@ -1,0 +1,1 @@
+Artículo 9º-Roles de disponibilidad. La disponibilidad se organizará mediante roles mensuales o excepcionales, según lo determinen las necesidades del servicio. La Presidencia Ejecutiva definirá los roles específicos, procurando rotación equitativa cuando exista personal suficiente.
