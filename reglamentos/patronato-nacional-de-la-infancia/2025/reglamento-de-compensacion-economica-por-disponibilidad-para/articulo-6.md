@@ -1,0 +1,1 @@
+Artículo 6º-Gastos de transporte. El PANI cubrirá los gastos de transporte que se generen por traslados relacionados con la disponibilidad, conforme a la normativa emitida por la Contraloría General de la República.

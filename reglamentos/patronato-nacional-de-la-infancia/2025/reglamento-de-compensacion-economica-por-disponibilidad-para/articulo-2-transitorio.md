@@ -1,0 +1,5 @@
+Transitorio II.-De acuerdo con el oficio N° MH-STAP-OF-0148-2025 de fecha 21 de febrero del 2025, de la Secretaría Técnica de la Autoridad Presupuestaria, para el caso de las Asistentes de Servicios Infantiles se estableció un salario global de ¢557.174,00 (quinientos cincuenta y siete mil ciento setenta y cuatro colones con 00/100); en puestos afectos a disponibilidad pasa a ¢611.978,00 (seiscientos once mil novecientos setenta y ocho colones con 00/100) mensuales. Debido a su naturaleza temporal y de ejercicio rotativo, así como por estar dirigida a la afectación de un puesto, cualquier ajuste salarial se realizará conforme a oficios y resoluciones vigentes de la Autoridad Presupuestaria.
+.Artículo 009) aparte 02)
+Instruir al Departamento de Recursos Humanos, gestionar la publicación de este reglamento, en el Diario Oficial La Gaceta y su posterior comunicación a la Comisión Institucional CIDH, para su actualización en la ruta, así como a las instancias que considere pertinentes.
+Se declara acuerdo firme por unanimidad de los presentes. La votación se realiza con cuatro miembros de Junta Directiva.
+Publíquese.

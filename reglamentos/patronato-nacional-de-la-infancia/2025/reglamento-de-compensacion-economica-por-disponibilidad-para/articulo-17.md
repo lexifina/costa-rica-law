@@ -1,0 +1,1 @@
+Artículo 17.-Consecuencias del incumplimiento. El incumplimiento dará lugar a sanciones disciplinarias, respetando el debido proceso. De comprobarse, la persona servidora deberá reintegrar las sumas recibidas desde la fecha de incumplimiento.
