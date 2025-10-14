@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Artículo 48.—Zona de Comercio Lineal Sector Centro Comercial Plaza Country-Río San Rafael. El sector desde la esquina Noreste del CRCC hasta el Río San Rafael tendrá uso de Zona de Comercio Lineal (ZCL) pero aplicable hasta que se construya la radial propuesta a conectar con la autopista Próspero Fernández.
-(Así reformado mediante sesión Nº 208, celebrada el 24 de abril del 2006)
+Artículo 48. Zona de Comercio Lineal Sector Centro Comercial Plaza Country-Río San Rafael
+El sector desde la esquina Noreste del CRCC hasta el Río San Rafael tendrá uso de Zona de Comercio Lineal (ZCL) pero aplicable hasta que se construya la radial propuesta a conectar con la autopista Próspero Fernández.

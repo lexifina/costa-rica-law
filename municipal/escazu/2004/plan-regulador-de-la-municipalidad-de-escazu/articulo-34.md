@@ -1,4 +1,5 @@
-Artículo 34.—Precio de la licencia. Para que una licencia surta sus efectos es indispensable que su importe haya sido cancelado. El precio de la licencia por la exhibición de rótulos en el cantón de Escazú es la siguiente:
+Artículo 34. Precio de la licencia
+Para que una licencia surta sus efectos es indispensable que su importe haya sido cancelado. El precio de la licencia por la exhibición de rótulos en el cantón de Escazú es la siguiente:
 1. Anuncios adosados a las fachadas de los edificios, independientemente de su estructura, material o tamaño (permitidos por este Reglamento) excepto los luminosos: cuatro por ciento (4%) del salario mínimo.
 2. Anuncios con soporte independiente, ubicados dentro de propiedad privada, independientemente de su estructura, material, altura o tamaño (permitidos por este Reglamento): diez por ciento (10%) del salario mínimo.
 3. Cualquier tipo de rótulo o anuncio permitido por este Reglamento que funcione con sistemas de iluminación incorporados a su funcionamiento (rótulos de neón y sistemas similares, y rótulos con iluminación interna): veinte por ciento (20%) del salario mínimo.

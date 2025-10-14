@@ -1,20 +1,23 @@
-Artículo 14.—Zona de parques y facilidades comunales.
+Artículo 14. Zona de parques y facilidades comunales
 14.1. Definición.
 Se reconocen dos tipos de estas zonas: las áreas públicas verdes (plazas, parques, campos de juego) y las destinadas para las edificaciones de salud, seguridad, educación, oficinas de servicios públicos, actividades comunales, deporte y recreo.
 14.2. Área de parques y facilidades comunales.
-Todo aquel que urbanice o fraccione terrenos de más de 1.000 metros cuadrados, con excepción de los ubicados dentro de los cuadrantes urbanos de las cabeceras de los tres distritos que conforman el cantón (de acuerdo con la delimitación definida en el artículo 14.5 de este Reglamento), cederá gratuitamente un 10 % del área total por fraccionar o urbanizar al uso público de parques y facilidades comunales.
+Todo aquel que urbanice o fraccione terrenos de más de 900 metros cuadrados, con excepción de los ubicados dentro de los cuadrantes urbanos de las cabeceras de los tres distritos que conforman el cantón (de acuerdo con la delimitación definida en el artículo 14.7 de este Reglamento), cederá gratuitamente un 10 % del área total por fraccionar o urbanizar al uso público de parques y facilidades comunales.
 Al menos una tercera parte de este 10% se aplicará a la construcción de parques; si quien fracciona o urbaniza no las ha acondicionado debidamente, incluyendo el enzacatado e instalación de mobiliario y juegos, el fraccionamiento no podrá ser aceptado por la Municipalidad.
-Los dos tercios restantes, que en principio están indicados en los planos constructivos aprobados por la Municipalidad, servirán para instalar facilidades comunales, y si no, la Municipalidad decidirá el destino de los lotes en consulta con los adquirientes, con el .n de satisfacer a la mayoría de estos.
+Los dos tercios restantes, que en principio están indicados en los planos constructivos aprobados por la Municipalidad, servirán para instalar facilidades comunales, y si no, la Municipalidad decidirá el destino de los lotes en consulta con los adquirientes, con el fin de satisfacer a la mayoría de estos.
 14.3. Servicios complementarios.
 Dentro de las áreas de parques y facilidades comunales se permitirán (además de las instalaciones y usos mencionados en el artículo 14.1.) las construcciones complementarias tales como baños públicos, casetas de vigilancia y de autobuses, refugios para la lluvia y similares, siempre y cuando no superen el 10 % de la totalidad del área verde.
-4.4. Unidad de Salud Integral de segundo nivel.
-La Municipalidad, con base en los lineamientos emanados de la Caja Costarricense de Seguro Social (CCSS) definirá, luego de los estudios técnicos necesarios, una área no menor de 7.000 m2 para una posible "Área de Salud de Segundo Nivel" por ubicarse en el cantón de Escazú. Este terreno deberá estar cerca de vías importantes, con fácil acceso de la comunidad, así como libre de restricciones naturales que pudieran interferir con este proyecto tales como zonas inundables, con fallas geológicas, deslizamientos o similares. Una vez ubicado el terreno apropiado, este gozará de Zonificación especial dentro de la categoría "Área de Servicios Comunales". Podrá ubicarse en cualquiera de las zonas dentro del área urbana definida en el Plan Regulador como un uso conforme. En caso de no poder ser adquirido por los medios convencionales, será expropiado con base en el carácter de interés público del proyecto.
-4.5. Colegio Técnico Vocacional.
+14.4. Unidad de Salud Integral de segundo nivel.
+La Municipalidad, con base en los lineamientos emanados de la Caja Costarricense de Seguro Social (CCSS) definirá, luego de los estudios técnicos necesarios, un área no menor de 7000 metros cuadrados para una posible "Área de Salud de Segundo Nivel" por ubicarse en el cantón de Escazú. Este terreno deberá estar cerca de vías importantes, con fácil acceso de la comunidad, así como libre de restricciones naturales que pudieran interferir con este proyecto tales como zonas inundables, con fallas geológicas, deslizamientos o similares. Una vez ubicado el terreno apropiado, este gozará de Zonificación especial dentro de la categoría "Área de Servicios Comunales". Podrá ubicarse en cualquiera de las zonas dentro del área urbana definida en el Plan Regulador como un uso conforme. En caso de no poder ser adquirido por los medios convencionales, será expropiado con base en el carácter de interés público del proyecto.
+14.5. Colegio Técnico Vocacional.
 La Municipalidad, con base en los lineamientos emanados del Ministerio de Educación Pública, luego de los estudios técnicos necesarios, ubicará un área no menor de una hectárea para un Colegio Técnico Profesional para el cantón. Este terreno deberá estar ubicado preferiblemente cerca del lugar de residencia de la mayoría de los alumnos que vayan a utilizar el Colegio y libre de amenazas naturales, dentro del área urbana definida en el Plan Regulador. Una vez ubicado el terreno apropiado, este gozará de Zonificación especial dentro de la categoría "Área de Servicios Comunales", como un uso conforme. En caso de no poder ser adquirido por los medios convencionales, será expropiado con base en el carácter de interés público del proyecto.
 14.6. Cambio de tierra por impuestos.
-Según lo descrito en el artículo 10.3 de este capítulo, se autoriza a la Municipalidad para adquirir tierras de interés para la comunidad mediante la negociación con el propietario.
+Según lo descrito en el artículo 4.4 de este capítulo, se autoriza a la Municipalidad para adquirir tierras de interés para la comunidad mediante la negociación con el propietario.
 14.7. Definición de cuadrantes urbanos.
 Para efectos del artículo 40 de la Ley de Planificación Urbana se definen los cuadrantes de los tres distritos de la siguiente manera:
-14.7.1. Cuadrante urbano de Escazú: La zona comprendida entre las calles 8 y 5ª, y las avenidas 9 y 12.
-14.7.2. Cuadrante urbano de San Rafael: Cuadras al este y oeste respectivamente de la plaza de San Rafael, incluyendo esta.
-14.7.3. Cuadrante urbano de San Antonio:. Todas las cuadras alrededor de la Iglesia e inclusive el parque.
+14.7.1. Cuadrante urbano de Escazú
+La zona comprendida entre las calles 8 y 5ª, y las avenidas 9 y 12.
+14.7.2. Cuadrante urbano de San Rafael
+Cuadras al este y oeste respectivamente de la plaza de San Rafael, incluyendo esta.
+14.7.3. Cuadrante urbano de San Antonio
+Todas las cuadras alrededor de la Iglesia e inclusive el parque.

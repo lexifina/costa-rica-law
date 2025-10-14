@@ -1,1 +1,2 @@
-Artículo 47.—Zona de Interés Patrimonial Cuadrante Urbano de Escazú. El Concejo Municipal deberá asignar los fondos necesarios para contratar los estudios que por etapas deberán ir efectuándose para que en el término de 10 años se concluyan los proyectos específicos que se contemplan en el artículo 16.5.3 de la Zona de Interés Especial Patrimonial del Cuadrante Urbano de Escazú.
+Artículo 47. Zona de Interés Patrimonial Cuadrante Urbano de Escazú
+El Concejo Municipal deberá asignar los fondos necesarios para contratar los estudios que por etapas deberán ir efectuándose para que en el término de 10 años se concluyan los proyectos específicos que se contemplan en el artículo 16.5.3 de la Zona de Interés Especial Patrimonial del Cuadrante Urbano de Escazú.
