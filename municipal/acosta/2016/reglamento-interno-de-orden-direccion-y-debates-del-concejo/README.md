@@ -14,3 +14,4 @@ Reglamento interno de orden, dirección y debates del concejo municipal del Catn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-23 | la propia norma |
+| 2 | 2025-10-14 | Reglamento municipal 40 (2025-10-14) |

@@ -1,1 +1,1 @@
-Artículo 45.—Para que la revisión del acuerdo pueda aceptarse, deberá someterse a votación y alcanzar la misma mayoría que exige la ley para ser aprobado, no la misma cantidad de votos que obtuvo al momento de aprobarlo.
+Artículo 45°-Para que la revisión del acuerdo pueda aceptarse, deberá someterse a votación y alcanzar la misma mayoría que exige la ley para ser aprobado, no la misma cantidad de votos que obtuvo al momento de aprobarlo.

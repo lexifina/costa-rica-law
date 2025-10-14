@@ -1,1 +1,1 @@
-Artículo 77.—El control de tiempos autorizados en el presente Reglamento será competencia de la presidencia. Al darse el vencimiento de los tiempos establecidos, la Presidencia, quien le indicará al exponente que el tiempo ha llegado a su fin.
+Artículo 77°-El control de tiempos autorizados en el presente Reglamento será competencia de la presidencia. Al darse el vencimiento de los tiempos establecidos, la Presidencia, quien le indicará al exponente que el tiempo ha llegado a su fin.

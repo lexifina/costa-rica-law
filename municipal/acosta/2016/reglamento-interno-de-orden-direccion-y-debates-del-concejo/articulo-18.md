@@ -1,1 +1,1 @@
-Artículo 18.—Será obligación de todos los miembros del Gobierno Local y los particulares, guardar el debido respeto en todas las sesiones que el Concejo realice así como acatar las disposiciones contenidas en este Reglamento.
+Artículo 18°-Será obligación de todos los miembros del Gobierno Local y los particulares, guardar el debido respeto en todas las sesiones que el Concejo realice así como acatar las disposiciones contenidas en este Reglamento.

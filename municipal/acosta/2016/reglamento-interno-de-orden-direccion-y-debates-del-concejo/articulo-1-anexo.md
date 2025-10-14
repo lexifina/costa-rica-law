@@ -1,4 +1,5 @@
-ANEXO N° 1
-FORMULARIO DE AUDIENCIA OTORGADA
-POR EL CONCEJO MUNICIPAL
-[imagen]
+ANEXO No. 1. FORMULARIO DE
+AUDIENCIA OTORGADA POR EL CONCEJO MUNICIPAL MUNICIPALIDAD
+DE ACOSTA CONCEJO MUNICIPAL FORMULARIO PARA EL OTORGAMIENTO
+DE AUDIENCIA La/ el
+suscrito(a),_____________________________________________, actuando en calidad de Secretaría del Concejo Municipal de Acosta, previa recepción formal de solicitud para el otorgamiento de audiencia por parte de este órgano y de conformidad con lo establecido en el artículo 30 del REGLAMENTO INTERNO DE ORDEN, DIRECCIÓN Y DEBATES DEL CONCEJO MUNICIPAL DEL CANTÓN DE ACOSTA, hago de su conocimiento que se le otorga formal audiencia en sesión del día ____________ del mes de__________________ del año________. FIRMA Y SELLO. NOTAS: 1. Los interesados deberán presentarse vestidos con formal decoro. 2. Se ruega ser puntuales a su cita. 3. Sólo se permite tratar el tema para el cual fue solicitada, oportunamente, la audiencia. 4. Se cuenta con un tiempo máximo de cuarenta minutos para realizar una exposición resumida y precisa del tema objeto de la audiencia, a lo cual se contará con un lapso de veinte minutos para que los miembros del Concejo efectúen sus intervenciones. 5. La Presidencia del Concejo posee la facultad de retirar del recinto a toda aquella persona que se propase en expresiones, se presente en estado de embriaguez, pretenda en forma violenta asumir el uso de la palabra, amenace la integridad de los Regidores, Síndicos o al Alcalde, así como cualquier otra actitud que riña con el debido comportamiento, teniéndose la potestad de hacer el llamado a la Fuerza Pública. 4. La resolución que el Concejo Municipal le dé al tema objeto de la audiencia se comunicará a los interesados en tiempo y forma oportuna, por los medios para atender notificaciones que al efecto haya indicado en su solicitud.

@@ -1,1 +1,1 @@
-Artículo 24.—Le corresponde a la Presidencia la comprobación del número de miembros presentes, que puedan ejercer legalmente sus puestos y así tener la mayoría necesaria para que el órgano sea funcional.
+Artículo 24°-Le corresponde a la Presidencia la comprobación del número de miembros presentes, que puedan ejercer legalmente sus puestos y así tener la mayoría necesaria para que el órgano sea funcional.

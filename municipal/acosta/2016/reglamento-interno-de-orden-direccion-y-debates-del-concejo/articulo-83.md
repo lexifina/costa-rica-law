@@ -1,10 +1,12 @@
-Artículo 83.—Se establecen las Comisiones Permanentes, con sus respectivas funciones:
-1. Hacienda y Presupuesto: analizará todo lo relacionado a Presupuesto y Hacienda Municipal, de conformidad con el Título IV del Código Municipal
+Artículo 83°-Se establecen las Comisiones Permanentes, con sus respectivas funciones:
+1. Hacienda y Presupuesto: analizará todo lo relacionado a
+Presupuesto y Hacienda Municipal, de conformidad con el Título IV del Código Municipal.
 2. Obras Públicas: analizará todo lo relacionado con proyectos de obra pública que se desarrollen o se pretende desarrollar en el cantón, sean del Gobierno Local como del Nacional, sus instituciones, asociaciones de desarrollo y específicas, así como todos aquellos temas referidos a la planificación y control del desarrollo urbano que se da en el cantón.
 3. Asuntos Sociales: estudiará y recomendará políticas a seguir en el campo social dando énfasis a programas y proyectos de prevención contra el consumo de drogas ilícitas, programas de seguridad ciudadana y otros que logren una verdadera participación de la ciudadanía, en cooperación directa con grupos organizados.
 4. Gobierno y Administración: analizará asuntos relacionados con la organización municipal en materia de administración municipal, relaciones con el Gobierno Central, Asamblea Legislativa, Concejos de Distrito, Gobiernos Municipales y otras instituciones del estado con las cuales se requiera coordinación y cooperación.
 5. Asuntos Jurídicos: será la encargada de crear y presentar ante el Concejo todos los proyectos de Reglamentos, analizará y recomendará al Concejo las propuestas ante los proyectos de ley, así como cualquier otra recomendación que en el campo estrictamente legal el Concejo lo solicite.
-6. Asuntos Ambientales: será la encargada de estudiar, planificar y recomendar todo lo relacionado con la protección del medio ambiente.
+6. Asuntos Ambientales: será la encargada de estudiar, planificar y recomendar todo lo relacionado con todo lo relacionado del medio ambiente y desarrollo sostenible.
 7. Asuntos Culturales: analizará y recomendará todo lo concerniente con la expansión y divulgación cultural en el cantón, asimismo impulsará actividades que conlleven al rescate de tradiciones populares propias de la identidad nacional o cantonal, así como cualquier otra iniciativa de esta índole que el Concejo le asigne.
-8. Condición de la Mujer: analizará e impulsará políticas locales para la igualdad y equidad de género para lo cual trazará políticas de colaboración con instituciones públicas y privadas que desarrollen programas de asesoría y ayuda directa para las mujeres.
-9. COMAD: analizará e impulsará políticas locales para la igualdad y equidad de las personas con discapacidad.
+8. Asuntos de Discapacidad y Adulto Mayor (Comudam) Comisión encargada de la atención y políticas para personas con discapacidad y adultos mayores.
+9. Condición de la Mujer: analizará e impulsará políticas locales para la igualdad y equidad de género para lo cual trazará políticas de colaboración con instituciones públicas y privadas que desarrollen programas de asesoría y ayuda directa para las mujeres.
+10. Seguridad: con la finalidad de coordinar, supervisar y proponer acciones relacionadas con la seguridad ciudadana dentro del cantón.

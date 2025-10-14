@@ -1,1 +1,1 @@
-Artículo 97.—Las Comisiones atenderán al público, que así lo solicite, en sus sesiones regulares, siempre y cuando los temas tratados estén relacionadas con asuntos encomendados a la Comisión respectiva y así se hará constar en el dictamen correspondiente a esa sesión.
+Artículo 97°-Las Comisiones atenderán al público, que así lo solicite, en sus sesiones regulares, siempre y cuando los temas tratados estén relacionadas con asuntos encomendados a la Comisión respectiva y así se hará constar en el dictamen correspondiente a esa sesión.

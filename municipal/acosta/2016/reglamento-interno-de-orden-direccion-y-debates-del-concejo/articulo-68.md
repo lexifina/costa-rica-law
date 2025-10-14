@@ -1,1 +1,1 @@
-Artículo 68.—Para obtener la autorización del uso de la palabra, se hará levantando la mano en forma visible o bien poniéndose de pie y manifestando, a viva voz, en forma respetuosa “Señor(a) Presidente, pido la palabra”
+Artículo 68°-Para obtener la autorización del uso de la palabra, se hará levantando la mano en forma visible o bien poniéndose de pie y manifestando, a viva voz, en forma respetuosa "Señor(a) Presidente(a), pido la palabra"

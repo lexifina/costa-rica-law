@@ -9,6 +9,6 @@ El Concejo Municipal de la Municipalidad del Cantón de Acosta, conforme a las p
 REGLAMENTO INTERNO DE ORDEN, DIRECCIÓN
 Y DEBATES DEL CONCEJO MUNICIPAL
 DEL CANTÓN DE ACOSTA
-CAPÍTULO I
-Disposiciones generales
-Artículo 1º—Este Reglamento regulará la organización y funcionamiento de las sesiones del Concejo Municipal y sus Comisiones.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 40-2025 del 14 de octubre del 2025, publicada en el Alcance Digital N° 146 a La Gaceta N° 213 del 12 de noviembre del 2025, y se transcribe a continuación:)
+CAPÍTULO I DISPOSICIONES GENERALES.
+Artículo 1°-Este Reglamento regulará la organización y funcionamiento de las sesiones del Concejo Municipal y sus Comisiones.

@@ -1,3 +1,2 @@
-SECCIÓN VII
-De los dictámenes de comisión
-Artículo 52.—Los dictámenes de las Comisiones, serán incluidas en el orden del día, siguiendo el orden cronológico en que fueron presentadas a la Secretaría, según ésta consigne hora y fecha de presentación en cada documento. El orden de presentación será el mismo que se seguirá para conocerlas en el Concejo, salvo las razonesque por extrema urgencia se deba variar dicho orden de lectura.
+SECCIÓN VII DE LOS DICTÁMENES DE COMISIÓN.
+Artículo 52°-Los dictámenes de las Comisiones, serán incluidas en el orden del día, siguiendo el orden cronológico en que fueron presentadas a la Secretaría, según ésta consigne hora y fecha de presentación en cada documento. El orden de presentación será el mismo que se seguirá para conocerlas en el Concejo, salvo las razones que por extrema urgencia se deba variar dicho orden de lectura.

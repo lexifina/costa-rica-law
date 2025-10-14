@@ -1,1 +1,1 @@
-Artículo 64.—Las sesiones del Concejo no tendrán una duración mayor de dos horas y media, a partir de dos horas de iniciada la sesión.
+Artículo 64°- Las sesiones del Concejo no tendrán una duración superior a dos (2) horas, salvo que mediante acuerdo expreso y por mayoría de los presentes se decida continuar con la sesión más allá de dicho límite.

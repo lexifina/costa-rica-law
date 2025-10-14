@@ -1,1 +1,1 @@
-Artículo 101.—El pago de dietas y viáticos a las regidurías y sindicaturas se hará de conformidad con lo dispuesto en el Código Municipal y demás directrices que al efecto emita la Contraloría General de la República.
+Artículo 101°-El pago de dietas y viáticos a las regidurías y sindicaturas se hará de conformidad con lo dispuesto en el Código Municipal, reglamento interno y demás directrices que al efecto emita la Contraloría General de la República.

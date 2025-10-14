@@ -1,1 +1,1 @@
-Artículo 71.—Las manifestaciones propias de las regidurías que éstos deseen que no consten en actas, lo harán saber así con la debida antelación a la Secretaría. Si la previsión anterior no se hace con la debida antelación, la Secretaría deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.
+Artículo 71°-Las manifestaciones propias de las regidurías la Secretaría deberá consignarlas en el acta respectiva, sin que sea posible cambiarlas posteriormente.

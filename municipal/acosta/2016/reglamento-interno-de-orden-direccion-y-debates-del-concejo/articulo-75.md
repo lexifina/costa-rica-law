@@ -1,1 +1,1 @@
-Artículo 75.—La Presidencia, no dará curso o declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes con la marcha de la Corporación Municipal o que simplemente tiendan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto.
+Artículo 75°-La Presidencia, no dará curso o declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes con la marcha de la Corporación Municipal o que simplemente tiendan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto.
