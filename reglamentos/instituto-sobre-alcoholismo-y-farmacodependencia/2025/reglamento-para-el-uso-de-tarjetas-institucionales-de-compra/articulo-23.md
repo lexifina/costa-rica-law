@@ -1,0 +1,1 @@
+Artículo 23: Es responsabilidad del Subproceso Financiero la solicitud, modificación o cancelación de tarjetas, así como verificar que el tope de cada tarjeta se ajuste a las necesidades del Centro Funcional y autorizaciones vigentes.

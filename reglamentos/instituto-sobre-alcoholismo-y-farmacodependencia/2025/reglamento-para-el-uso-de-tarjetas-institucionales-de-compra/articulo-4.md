@@ -1,0 +1,1 @@
+Artículo 4. Todos los funcionarios que de forma directa o indirecta participen en los procesos de emisión, uso y control de las adquisiciones donde operen las tarjetas como medio de pago, serán responsables del uso que se haga de dichos medios de pago.

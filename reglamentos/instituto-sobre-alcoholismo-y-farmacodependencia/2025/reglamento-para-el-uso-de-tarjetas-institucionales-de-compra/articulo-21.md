@@ -1,0 +1,1 @@
+Artículo 21: Cuando se deba realizar la adquisición de un bien o servicio, por un monto superior al asignado, el superior del tarjetahabiente enviará la solicitud correspondiente mediante correo electrónico para aumentar el monto requerido.
