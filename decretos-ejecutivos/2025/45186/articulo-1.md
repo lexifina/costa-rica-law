@@ -1,0 +1,15 @@
+N° 45186-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 11, 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública N° 6227 del 1° de diciembre de 1978, en el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Administradora Acueducto Rural de Santa Eduviges San Diego de Santa Cruz de Turrialba, cédula jurídica número tres-cero cero dos- trescientos treinta mil quinientos doce, se inscribió en el Registro de Asociaciones del Registro Público Nacional desde el día veintisiete de octubre de dos mil diez, al tomo quinientos cinco, asiento quince mil novecientos ochenta y dos.
+III.-Que el artículo 32 de la Ley de Asociaciones establece: ".. En cualquier momento, el Ministerio de Justicia y Paz, revocará este beneficio, si desaparecen los motivos por los cuales fue concedido. (...)" Asimismo, el ordinal 33 bis del Reglamento a la Ley de Asociaciones, agrega: "La declaratoria de utilidad pública será revocable en cualquier momento, no obstante. en caso de la no presentación o presentación incompleta del informe de labores, se prevendrá a la asociación, una única vez, por el plazo de diez días hábiles. Asimismo, la derogatoria de la utilidad pública se realizará mediante resolución razonada resultante del procedimiento de derogatoria del beneficio de utilidad pública el cual, se regirá por lo establecido en la Ley General de Administración Pública (...)".
+IV.-Que la Asociación Administradora Acueducto Rural de Santa Eduviges San Diego de Santa Cruz de Turrialba, por medio de su representante legal la señora Luz Marina Hidalgo Umaña, portadora de la cédula de identidad número uno-cero cuatrocientos setenta-cero quinientos dos, incumplió con la presentación del informe anual de labores correspondiente al año 2023 así como del 2024, no presentando elementos de valor que permitan acreditar justificación valida de dichos incumplimientos. Por tanto,
+Decretan:
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+DE LA ASOCIACIÓN ADMINISTRADORA ACUEDUCTO
+RURAL DE SANTA EDUVIGES SAN DIEGO
+DE SANTA CRUZ DE TURRIALBA
+Artículo 1°-Dejar sin efecto el Decreto Ejecutivo N° 42096-MJP del 4 de noviembre de 2019, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Administradora Acueducto Rural de Santa Eduviges San Diego de Santa Cruz de Turrialba, cédula jurídica tres-cero cero dos-trescientos treinta mil quinientos doce.
