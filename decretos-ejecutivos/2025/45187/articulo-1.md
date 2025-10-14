@@ -1,0 +1,15 @@
+N° 45187-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+El MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 11, 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública N° 6227 del 1° de diciembre de 1978, en el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Administradora del Acueducto de Cot de Oreamuno, cédula jurídica número tres-cero cero dos-doscientos noventa mil setenta y nueve, se inscribió en el Registro de Asociaciones del Registro Público el veintinueve de noviembre de dos mil cuatro, al tomo cuatrocientos setenta y nueve, asiento once mil trescientos seis.
+III.-Que el artículo 32 de la Ley de Asociaciones establece: "(.) En cualquier momento, el Ministerio de Justicia y Paz, revocará este beneficio, si desaparecen los motivos por los cuales fue concedido. (...) ". Finalmente, el numeral 33 ter del Reglamento a la "Ley de Asociaciones, indica: "En caso de que alguna asociación renuncie a la declaratoria de utilidad pública, deberá presentar la documentación correspondiente ante la Asesoría Jurídica del Ministerio de Justicia y Paz quien, sin más trámite, procederá a realizar la derogatoria."
+IV.-Que la Asociación Administradora del Acueducto de Cot de Oreamuno, fue declarada de utilidad pública por el Ministerio de Justicia y Paz, mediante Decreto Ejecutivo NO36120J del primero de julio de dos mil diez, publicado en el Diario Oficial La Gaceta, Alcance N O 157 del trece de agosto de dos mil diez.
+V.-Que con oficio ASADA-COT-JD-0095-2024 de fecha cinco de noviembre de dos mil veinticuatro, el presidente de la junta directiva de la Asociación Administradora del Acueducto de Cot de Oreamuno, señor Carlos Luis Méndez Méndez, portador de la cédula de identidad número tres-cero trescientos treinta y siete-cero trescientos veintinueve, comunicó la renuncia de la asociación al beneficio de la declaratoria de utilidad pública otorgada por el Ministerio de Justicia y Paz. Por tanto,
+Decretan
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+DE LA ASOCIACIÓN ADMINISTRADORA DEL ACUEDUCTO
+DE COT DE OREAMUNO
+Artículo 1º-Dejar sin efecto el Decreto Ejecutivo NO36120-J del primero de julio de dos mil diez, publicado en el Diario Oficial La Gaceta, Alcance N° 157 del trece de agosto de dos mil diez, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Administradora del Acueducto de Cot de Oreamuno, cédula jurídica número tres-cero cero dos-doscientos noventa mil setenta y nueve.
