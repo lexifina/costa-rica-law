@@ -1,0 +1,1 @@
+Artículo 44.- Inversiones de ingresos exceptuados al SCSP. Los ingresos públicos o en custodia pública de las entidades públicas o privadas que se encuentren exceptuados del SCSP, únicamente podrán ser invertidos en valores emitidos de forma directa por el MH, en las condiciones que defina la Dirección General de Gestión de Deuda Pública.

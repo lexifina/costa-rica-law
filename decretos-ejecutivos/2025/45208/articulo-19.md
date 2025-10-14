@@ -1,0 +1,2 @@
+Artículo 19.-Disposición de los Recursos. Para poder acceder a los ingresos depositados en las Cuentas Escriturales, cada entidad deberá tramitar los accesos y perfiles a los sistemas definidos por la TN; en casos especiales la TN autorizará el uso de formularios para tramitación de los pagos.
+La entidad es responsable de mantener su información actualizada en los registros que mantiene la TN y de comunicar por los medios previamente definidos de notificación, en caso de que se presenten modificaciones.

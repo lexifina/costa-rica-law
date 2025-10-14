@@ -1,0 +1,1 @@
+Artículo 109.-Inversiones en MH de ingresos públicos o en custodia pública, exceptuados del SCSP. Los ingresos públicos o en custodia pública de las entidades públicas o privadas que se encuentren exceptuados del SCSP, podrán ser invertidos en valores emitidos por MH de forma directa, en las condiciones que defina la Dirección General de Gestión de Deuda Pública del MH.

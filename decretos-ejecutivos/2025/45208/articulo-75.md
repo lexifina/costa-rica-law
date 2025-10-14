@@ -1,0 +1,1 @@
+Artículo 75.-Gestión del riesgo de liquidez. Para mitigar el riesgo de liquidez, la TN estará facultada de conformidad con el artículo número 24 de la Ley Nº10495, para constituir la reserva de efectivo, la reserva de liquidez que considere necesarias y/o disponer de un plan de financiamiento contingente, en los términos del presente reglamento.

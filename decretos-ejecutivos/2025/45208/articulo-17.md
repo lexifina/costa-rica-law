@@ -1,0 +1,1 @@
+Artículo 17.- Fondos Especiales. Todos los ingresos públicos, de origen público o en custodia pública de los fondos especiales que no estén indicados en las excepciones señaladas en el artículo 18 de la Ley Nº 10495, deben estar depositados dentro del SCSP.

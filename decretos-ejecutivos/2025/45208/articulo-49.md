@@ -1,0 +1,1 @@
+Artículo 49.- Incumplimiento y traslado al SCSP. En caso de que los portales de recaudación no generen la información señalada en el artículo anterior y no puedan interoperar con el Sistema Centralizado de Recaudación, la entidad deberá prescindir de este y operar con el SCSP de la TN.

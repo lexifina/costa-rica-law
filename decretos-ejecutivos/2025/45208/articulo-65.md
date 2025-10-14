@@ -1,0 +1,1 @@
+Artículo 65.-Medios de pago al exterior. En cuanto a los pagos que las entidades deban realizar a los beneficiarios fuera del territorio nacional, estos se ejecutarán por medio de la plataforma que la TN determine, cuya utilización será de carácter obligatorio para todas las entidades (incluyendo las que no son parte del SCSP).

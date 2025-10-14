@@ -1,0 +1,1 @@
+Transitorio III.- Instrumentos técnicos y jurídicos previos a la publicación de este reglamento. Aquellos instrumentos técnicos y jurídicos suscritos por la TN, que se encuentren vigentes, se mantendrán hasta su vencimiento.

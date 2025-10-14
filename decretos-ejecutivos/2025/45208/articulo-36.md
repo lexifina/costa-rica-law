@@ -1,0 +1,1 @@
+Artículo 36.-Monitoreo y Supervisión. La 1N realizará un monitoreo continuo de la información intercambiada con el SDJ, en el SCSP, asegurando la precisión y oportunidad en los registros contables. Se establecerán mecanismos de supervisión para detectar y corregir cualquier anomalía en el proceso de integración.

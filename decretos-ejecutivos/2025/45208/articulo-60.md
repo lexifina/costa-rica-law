@@ -1,0 +1,1 @@
+Artículo 60.-Acceso a plataforma tecnológica de pagos. Para la realización de los pagos estarán a disposición de las entidades las plataformas administradas por la 1N. El acceso a dichas plataformas debe realizarse mediante firma digital u otro mecanismo de seguridad que se establezca a futuro, siguiendo los lineamientos establecidos por la 1N.

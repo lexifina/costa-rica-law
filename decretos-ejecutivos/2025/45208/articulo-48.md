@@ -1,0 +1,5 @@
+Artículo 48.- Entidades dentro del SCSP con portal propio de captación de ingresos. Los Sistemas de captación de ingresos con los que cuenten las entidades dentro del SCSP deberán de interoperar con el Sistema centralizado de recaudación, de tal forma que los portales propios de captación ya existentes suministren la información necesaria para el registro del ingreso en el Sistema centralizado de recaudación.
+Las entidades que cuentan con portales propios de recaudación deberán:
+1. Recolectar información de acuerdo con las normas internacionales de contabilidad del sector público y el clasificador presupuestario, que permita identificar al depositante, tipo de ingreso, monto del ingreso recaudado y moneda.
+2. Garantizar trazabilidad de las operaciones, transparencia, seguridad, automatización, interoperabilidad e intercambio de información con el Sistema centralizado de captación de ingresos.
+3. Permitir el control de parte de entes fiscalizadores, tanto internos o externos, mediante accesos o módulos para el monitoreo de las operaciones de ingresos.

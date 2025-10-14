@@ -1,0 +1,1 @@
+Artículo 95.-Responsabilidades de la· administración activa. El cumplimiento del bloque de legalidad, relacionado al cumplimiento operacional y el acceso a la información, será responsabilidad de la administración activa de cada entidad.

@@ -1,0 +1,1 @@
+Artículo 12.- Uso de plataformas orientadas a la ciudadanía. Las entidades que no participan en el SCSP podrán utilizar plataformas propias para la gestión y registro de sus ingresos y pagos, cumpliendo los parámetros y requisitos establecidos por la TN y que deberán poner a disposición de la ciudadanía.

@@ -1,0 +1,2 @@
+Artículo 56.- Publicación de márgenes de comisiones. La TN publicará en la página web del MH los márgenes de comisiones por tipo de servicio que se han pactado en los convenios existentes, por lo que las entidades que están fuera del SCSP deberán incluir dicha información como referencia para garantizar que el servicio se preste a un precio mínimo y con la calidad requerida.
+Los márgenes de comisiones por tipo de servicio podrán ser ajustados, en ese caso, los mismos serán actualizados por la TN y publicados en la página web del MH.

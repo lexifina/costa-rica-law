@@ -1,0 +1,1 @@
+Artículo 100.-Sujetos consultantes. Podrán interponer la gestión de solicitud de criterio vinculante a la TN, todos los entes, órganos y empresas públicas, establecidos en los artículos números 16 y 18 de la Ley Nº 10495, serán inadmisibles las consultas de personas fisicas y sujetos de derecho privado que no custodien recursos públicos.

@@ -1,0 +1,1 @@
+Artículo 31.- Del Principio de Gratuidad en los trámites de los depósitos judiciales. El traslado de los Depósitos Judiciales por medio del SDJ, estará libre de cualquier tasa e impuesto a los terceros que tengan ingresos en custodia pública.

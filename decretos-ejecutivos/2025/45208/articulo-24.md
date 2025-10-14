@@ -1,0 +1,1 @@
+Artículo 24.- De la titularidad de los ingresos dinerarios objeto de trámite en el SDJ. Los flujos de ingresos y pagos que se reciben y gestionan en el SDJ individualizados en cada expediente, pertenecen y se encuentran a nombre de las personas físicas y jurídicas que sean parte, en el proceso judicial respectivo.

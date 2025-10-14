@@ -1,0 +1,1 @@
+Artículo 57.-Responsabilidad de control interno de la Entidad. La entidad que administra o custodia los recursos de estos acuerdos deberán velar por el cumplimiento de las cláusulas suscritas siguiendo las normas de control interno. Esto no excluye la potestad de fiscalización por órganos de control externos.

@@ -1,0 +1,6 @@
+Artículo 28.- De la gestión de la liquidez e información de los Depósitos Judiciales:
+Corresponderá al P J la gestión del SDJ para el manejo y control de los recursos dinerarios por parte de los despachos u oficinas judiciales en el cumplimiento de su función.
+Dicho sistema electrónico respetará la titularidad de los recursos tramitados o incorporados, mantendrá la confiabilidad, celeridad, medidas de control y seguridad necesarias, conforme las especificaciones técnicas que establezca el Poder Judicial.
+Aquellos ingresos dinerarios del SDJ que se encuentren sin movimiento en un plazo mayor a un mes, el banco convenido presentará un informe mensual a la TN y deberá depositarlos en las cuentas de liquidez designadas en el SCSP a nombre de la autoridad judicial, así mismo el banco convenido solicitará cuando sea necesario a la TN el fondeo de la cuenta para la continuidad de los procesos respectivos.
+La entidad bancaria deberá comunicar de forma mensual a la TN, un reporte de antigüedad de saldos registrales que se encuentren depositados en el SDJ.
+Toda la gestión operativa será mediante acuerdo con la entidad bancaria y la TN que asumirá las responsabilidades de servicios financieros para la gestión del SDJ.

@@ -1,0 +1,1 @@
+Artículo 77.- Simulación de escenarios y pruebas de estrés. La 1N creará diferentes escenarios como una repentina disminución de ingresos, un aumento inesperado de gastos, o la incapacidad de acceder a financiamiento para evaluar cómo estos eventos afectarían la liquidez, identificar posibles vulnerabilidades y preparar estrategias de mitigación.

@@ -1,0 +1,1 @@
+Artículo 97.-Facultad consultiva vinculante. La TN, como parte de sus competencias constitucionales y legales, ejerce la facultad consultiva vinculante, de las gestiones interpuestas por los sujetos legitimados consultantes.

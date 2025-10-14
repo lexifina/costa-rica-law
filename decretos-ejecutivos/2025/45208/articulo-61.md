@@ -1,0 +1,1 @@
+Artículo 61.-Mecanismos de pago digital o electrónico. La TN autorizará los mecanismos de pago digital o electrónico, para el cumplimiento de las obligaciones financieras de las entidades del Sector Público.

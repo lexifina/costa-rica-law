@@ -1,0 +1,1 @@
+Artículo 107.- Obligatoriedad en el cumplimiento de la normativa. La administración activa de cada entidad está en el deber de cumplir y acatar las disposiciones puntuadas en las directrices, circulares y demás normativa emitida por la TN referente al SCSP.

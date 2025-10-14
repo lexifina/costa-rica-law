@@ -1,0 +1,5 @@
+Artículo 39.-Condiciones para el reconocimiento de rendimientos por excepción sobre saldos en el SCSP a entidades públicas o privadas afectas a la Ley Nº 10495. Los ingresos de las entidades públicas o privadas que se encuentren en el SCSP se les reconocerá rendimientos como excepción, para lo que deberán cumplir las siguientes condiciones:
+1. Que los ingresos públicos no formen parte ni provengan del presupuesto nacional.
+2. Que la utilización de los ingresos se requiera a un plazo mayor de doce meses calendario de acuerdo con la programación financiera, la cual debe considerar las estimaciones plurianuales de los ingresos, gastos y financiamiento distribuidos institucionalmente.
+3. Que sean proyectos que derivan de las prioridades y resultados estratégicos o que se desprenden del Plan Nacional de Desarrollo e Inversión Pública para período plurianual, acotado por las disponibilidades financieras, la cual será certificada por la administración activa.
+4. Que los ingresos se encuentren en los estados financieros en condición de superávit específico.

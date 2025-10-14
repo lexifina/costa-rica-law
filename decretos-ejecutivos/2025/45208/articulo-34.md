@@ -1,0 +1,1 @@
+Artículo 34.- De la regulación del funcionamiento del SDJ. Corresponderá a la Corte Suprema de Justicia la valoración, aprobación y emisión de normas reglamentarias que regulen el funcionamiento del SDJ, por su parte, a la 1N le corresponderá la elaboración de las normas que regulen la relación financiera y de liquidez con el banco convenido.

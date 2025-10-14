@@ -1,0 +1,2 @@
+Artículo 104.- Plazo para la atención de criterios. Las solicitudes de criterio, su análisis, estudio y respuesta, dada la especialidad de la materia, se atenderán dentro del plazo de treinta días hábiles, a partir de su ingreso a los canales oficiales de notificación de la TN y cumplidos los requisitos de admisibilidad por el sujeto consultante.
+El criterio vinculante evacuado por la TN fuera del plazo mantendrá su validez y eficacia.

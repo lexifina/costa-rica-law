@@ -1,0 +1,2 @@
+Artículo 110. -Entidades privadas administradoras o custodias de ingresos públicos. Las entidades privadas que administren o custodien ingresos públicos o reciban transferencias de forma gratuita o sin contraprestación alguna, y que no administren los correspondientes fondos por medio del SCSP, están obligadas a brindar a la TN la información sobre los flujos y saldos diarios de las cuentas bancarias donde los recursos sean depositados y administrados.
+La TN establecerá los mecanismos operacionales y los plazos para que las entidades le envíen dichas informaciones.

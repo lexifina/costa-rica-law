@@ -1,0 +1,1 @@
+Artículo 92.-Plazo para el envío de la información. La TN dará un plazo de diez días hábiles, a partir del cierre de cada mes, para la actualización del registro respectivo, y podrá otorgar una prórroga de cinco días hábiles adicionales, previa justificación fundamentada, por parte de la entidad requerida.

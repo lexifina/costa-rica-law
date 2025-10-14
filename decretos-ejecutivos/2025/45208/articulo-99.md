@@ -1,0 +1,1 @@
+Artículo 99.-Asuntos sujetos a solicitud de criterio ante la TN del MH. Los criterios técnicojurídicos, que emita la TN, con carácter vinculante deberán estar circunscritos, al análisis y el ámbito de aplicación, del principio de la Unidad de Caja, término descrito en el artículo número 3, inciso b) de la Ley Nº 10495.

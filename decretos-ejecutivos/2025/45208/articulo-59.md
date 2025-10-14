@@ -1,0 +1,1 @@
+Artículo 59.- Obligatoriedad del uso del Sistema centralizado de pagos. Todas las entidades bajo el SCSP deberán usar la plataforma que disponga la 1N sin excepción, pagando las obligaciones al beneficiario final y titular del pago a la cuenta IBAN correspondiente en el Sistema Financiero Nacional mediante SINPE.

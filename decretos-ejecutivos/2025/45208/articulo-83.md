@@ -1,0 +1,1 @@
+Artículo 83.- Gestión de la reserva de liquidez. La TN podrá invertir los recursos que conforman la reserva de liquidez, en activos de mayor liquidez y de seguridad, de los que trata el presente reglamento, procurando que el plazo de redención calce con las obligaciones a pagar.

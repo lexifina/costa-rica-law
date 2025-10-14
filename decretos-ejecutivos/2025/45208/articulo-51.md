@@ -1,0 +1,3 @@
+Artículo 51.-Traslado de los Ingresos Captados. Todos los recursos que recauden administren o custodien las entidades públicas o privadas, así como aquellos ingresos de origen público que reciban de forma gratuita o sin contraprestación alguna, deberán de ser trasladados en tiempo y forma al SCSP según se indica en el artículo número 45 de este reglamento.
+En caso de requerirse, la TN podrá emitir regulaciones relacionadas con las formas y fechas de acreditación de los recursos que ingresan al SCSP.
+Para efectos de la recaudación en el exterior, la TN emitirá las disposiciones para los procesos de obro, pago, depósito y registro de los ingresos correspondientes.

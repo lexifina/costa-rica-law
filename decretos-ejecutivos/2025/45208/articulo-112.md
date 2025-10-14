@@ -1,0 +1,1 @@
+Artículo 112.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 33950-H del 26 de julio del 2007, publicado en "La Gaceta Nº 172" de 7 de setiembre del 2007, denominado Reglamento para el funcionamiento de la Caja Única del Estado.

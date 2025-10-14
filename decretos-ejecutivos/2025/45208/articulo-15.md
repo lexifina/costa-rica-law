@@ -1,0 +1,4 @@
+Artículo 15.- Titularidad. Las cuentas escriturales del SCSP identificarán al titular de los ingresos y facilitarán el desglose de estos según las necesidades de gestión de las entidades depositantes.
+Los ingresos del Presupuesto Nacional, a excepción de las transferencias, no tienen titularidad en el SCSP.
+Los ingresos provenientes de transferencias del presupuesto nacional o presupuesto público, los ingresos públicos o de origen público de las entidades, de actividades que no fo1man parte de dichos presupuestos, bien como los depósitos de terceros en custodia pública, tendrán su titularidad en el SCSP y estarán disponibles para su uso conforme las regulaciones establecidas por la TN en la normativa respectiva.
+La titularidad de las Cuentas Escriturales estará definida de acuerdo con el fin de éstas y con la normativa establecida por la TN.

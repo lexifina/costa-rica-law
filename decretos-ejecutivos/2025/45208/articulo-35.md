@@ -1,0 +1,2 @@
+Artículo 35.- Registro Automático de Información en el SCSP. La 1N será responsable de mantener la interoperabilidad de la información recibida del SDJ en sus plataformas. Este registro deberá ser preciso y oportuno, facilitando el monitoreo y la supervisión continua de los recursos.
+La 1N será responsable de registrar automáticamente la información recibida del SDJ en sus plataformas. Este registro deberá ser preciso y oportuno, facilitando el monitoreo y la supervisión continua de los recursos.

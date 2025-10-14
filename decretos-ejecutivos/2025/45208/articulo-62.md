@@ -1,0 +1,1 @@
+Artículo 62.-Otros medios de pagos habilitados por la TN. La 1N podrá autorizar otros pagos fuera de las plataformas establecidas cuando ésta no brinde el servicio que requiera la entidad previa solicitud formal y razonada de la entidad.

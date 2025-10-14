@@ -1,0 +1,1 @@
+Artículo 70.- Alcance. La programación de caja deberá comprender todos los flujos de entradas y salidas de caja de cualquier naturaleza, sean recursos tributarios o no tributarios, presupuestarios o no presupuestarios, incluso depósitos de terceros en el SCSP.

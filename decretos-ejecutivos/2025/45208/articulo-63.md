@@ -1,0 +1,1 @@
+Artículo 63.-Lineamientos en el proceso de pagos. La TN emitirá los lineamientos y reglas operativas para el proceso de pagos que permita a las entidades el cumplimiento de las obligaciones una vez cumplido la programación financiera.

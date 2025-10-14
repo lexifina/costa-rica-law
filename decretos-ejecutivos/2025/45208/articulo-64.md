@@ -1,0 +1,1 @@
+Artículo 64.-Lineamiento especial para los pagos de las municipalidades y concejos de distrito. La TN emitirá los lineamientos y reglas operativas para el proceso de todos los pagos que deban realizar las municipalidades y concejos de distrito mediante el Sistema centralizado de pagos. La TN asignará a estas entidades una cuenta especial de depósito para los pagos señalados.

@@ -1,0 +1,1 @@
+Artículo 52.- Plataformas de captación de ingresos de entidades fuera del SCSP. Las entidades públicas o privadas, no incluidas, dentro del SCSP, que administren o custodien ingresos públicos, deben de gestionar la captación de los recursos, mediante plataformas, con acceso a la ciudadanía para la realización de pagos de bienes o servicios.

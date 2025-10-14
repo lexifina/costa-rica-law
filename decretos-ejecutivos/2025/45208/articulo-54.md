@@ -1,0 +1,3 @@
+Artículo 54.-Estructura de costos y comisiones en los acuerdos. La TN velará por que las comisiones pactadas en los instrumentos técnicos y legales suscritos se ajusten a la estructura de costos, acorde a los estándares requeridos del servicio, además de sus plazos, formas de acreditación y trazabilidad e interoperabilidad de la información, a las cuentas del SCSP.
+Los instrumentos técnicos y legales deberán ser suscritos en forma centralizada por la TN, con las comisiones más bajas y siempre y cuando cumplan con la calidad requerida del servicio y a favor de la ciudadanía.
+Para los casos de otros servicios que brinde la Tesorería, deberán sujetarse esta al principio de servicio al costo.

@@ -1,0 +1,1 @@
+Transitorio IV.- Sobre la vigencia del reconocimiento de rendimientos con base en una referencia razonable de mercado. El reconocimiento de los rendimientos con base en una referencia razonable de mercado, contemplados en el artículo número 40 de este reglamento, aplicarán a partir de que se cuente con contenido presupuestario.

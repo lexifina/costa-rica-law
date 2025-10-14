@@ -1,0 +1,1 @@
+Artículo 26.- De la coordinación entre el PJ y la TN para la implementación del SDJ como auxiliar del SCSP. Entre el P J y la TN se adoptarán las medidas necesarias para articular la información respecto del funcionamiento del SDJ con el SCSP.

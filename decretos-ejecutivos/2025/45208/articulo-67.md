@@ -1,0 +1,1 @@
+Artículo 67.- Informes de pagos al exterior realizados por las entidades fuera de la plataforma de la TN. Las entidades con ingresos públicos que realicen pagos al exterior sin utilizar los sistemas de la TN deberán informar sobre los mismos a esta dependencia, a efectos de evaluar si se realizó con un mecanismo de pago al más bajo costo y calidad requerida.

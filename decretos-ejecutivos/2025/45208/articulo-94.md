@@ -1,0 +1,1 @@
+Artículo 94.-Parámetro de gradualidad en el traslado de recursos al SCSP. El Registro actualizado de cuentas y saldos de liquidez pública se utilizará por la TN como uno de los parámetros de gradualidad, en el traslado al SCSP, de los recursos de las entidades sujetas a este reglamento.

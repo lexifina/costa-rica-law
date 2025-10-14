@@ -1,0 +1,1 @@
+Artículo 42.- Fideicomisos. Los ingresos públicos y en custodia pública que tengan los Fideicomisos sujetos al SCSP no podrán ser invertidos ni administrados en contradicción con las normas de gestión de los recursos financieros, directrices y lineamientos establecidas por la TN.
