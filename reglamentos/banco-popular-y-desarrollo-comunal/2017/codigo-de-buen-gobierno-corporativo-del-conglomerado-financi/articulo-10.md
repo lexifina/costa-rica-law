@@ -1,3 +1,3 @@
-Artículo 10º. Conformación de la Asamblea de Trabajadores y Trabajadoras del Banco Popular.
-La Asamblea de Trabajadores y Trabajadoras del Banco Popular (en adelante la Asamblea), es el órgano de representación de los trabajadores y trabajadoras, la cual está integrada por 290 delegados distribuidos de la siguiente forma:
-[imagen]
+Artículo 10º. Conformación de la Asamblea de Trabajadores y Trabajadoras del Banco Popular. La Asamblea de Trabajadores y Trabajadoras del Banco Popular (en adelante la Asamblea), es el órgano de representación de los trabajadores y trabajadoras, la cual está integrada por 290 delegados distribuidos de la siguiente forma:
+• 40 representantes del Sector Comunal.
+• 250 representantes de los sectores: Solidarista, Cooperativo Tradicional, Cooperativo de Autogestión, Profesional, Magistral, Sindical Confederado, Sindical no Confederado, Artesanal e Independiente, distribuidos proporcionalmente según la cantidad de copropietarios (as) del Banco que pertenezcan a cada sector.

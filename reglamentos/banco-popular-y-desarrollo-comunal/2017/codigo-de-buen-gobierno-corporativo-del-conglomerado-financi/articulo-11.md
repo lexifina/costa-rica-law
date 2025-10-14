@@ -8,4 +8,4 @@ e. Conocer del informe de labores y resultados del ejercicio anual que la Junta 
 f. Conocer del informe general de la Superintendencia General de Entidades Financieras, cuyas recomendaciones le serán vinculantes.
 g. Integrar la Comisión Permanente de la Mujer.
 h. Integrar el Comité de Vigilancia.
-i. Cualquier otra función que se indique en las disposiciones aplicables.
+i. Cualquier otra función que se indique en las disposiciones aplicable.

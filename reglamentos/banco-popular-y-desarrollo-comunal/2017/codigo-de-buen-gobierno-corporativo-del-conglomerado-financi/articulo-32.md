@@ -1,2 +1,3 @@
-Artículo 32º. Sobre el trato con los/las copropietarios(as) del Banco Popular.
-El Banco Popular es propiedad de los trabajadores y las trabajadoras del país por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos.
+Artículo 32º. Sobre el trato con los/las copropietarios(as) del Banco Popular. El Banco Popular es propiedad de los trabajadores y las trabajadoras del país por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos.
+Como consecuencia del principio de transparencia e igualdad que guía la actuación del Conglomerado Financiero, el Banco Popular debe procurar que todos sus copropietarios y copropietarias puedan tener acceso a una información correcta, veraz, oportuna y sustancialmente igual dentro del mismo espacio de tiempo.
+Tratándose de las Sociedades Anónimas que integran el Conglomerado, el Banco Popular es su único accionista. En el caso de la sociedad Popular Servicios Compartidos S.R.L., el Banco Popular figura como su único cuotista.
