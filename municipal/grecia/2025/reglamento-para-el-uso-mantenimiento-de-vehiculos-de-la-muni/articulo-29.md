@@ -1,0 +1,1 @@
+Artículo 29°.-De los daños de los vehículos de la flotilla en general: Será responsable aquel funcionario municipal que, por falta de cuidado o negligencia, ocasione daños a un vehículo e la flotilla municipal en circulación o estacionado, por cuanto estará en la obligación de cancelar el monto del daño causado, sin perjuicio de la sanción disciplinaria que se imponga.

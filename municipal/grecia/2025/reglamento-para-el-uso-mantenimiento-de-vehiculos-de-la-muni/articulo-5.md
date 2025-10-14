@@ -1,0 +1,6 @@
+Artículo 5°-Los Tipos de Servicios de Transporte: Se podrán prestar los servicios de transporte bajo las siguientes modalidades:
+a. Servicio ocasional: Consiste en poner a disposición de la dependencia usuaria solicitante un vehículo con el propósito de efectuar un traslado específico.
+b. Servicio temporal: Préstamo que lleva consigo la disponibilidad de un vehículo al servicio de la dependencia usuaria solicitante, durante un periodo determinado.
+c. Servicio permanente: Se da cuando la necesidad del servicio justifica el uso permanente de vehículos por parte de una dependencia administrativa. Además de los vehículos adquiridos para los servicios que son de Acueducto, Policía, Reciclaje, Inspección de Basura y Aseo de Vías.
+d. Servicios externos: Si la institución no cuenta internamente con los medios para llenar una necesidad de transporte existente, o en caso de necesidad urgente, la dependencia administrativa de la Municipalidad encargada del área de control vehicular podrá solicitar bajo la aprobación de la Alcaldía, la contratación de servicios externos (públicos o particulares), cuyas condiciones variarán de acuerdo con los requerimientos de cada servicio.
+Los vehículos asignados por la Ley Nº8114, serán de uso exclusivo de la Unidad Técnica de Gestión Vial Municipal.

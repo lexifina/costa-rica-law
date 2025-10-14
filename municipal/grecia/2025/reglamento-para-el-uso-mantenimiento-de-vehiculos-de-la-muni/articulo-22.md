@@ -1,0 +1,1 @@
+Artículo 22°. - El vehículo de uso administrativo para uso del titular de la Alcaldía sólo podrá ser conducido por titular de la Alcaldía, vicealcaldía, sus asesores o el chofer institucional designado para conducirlo.

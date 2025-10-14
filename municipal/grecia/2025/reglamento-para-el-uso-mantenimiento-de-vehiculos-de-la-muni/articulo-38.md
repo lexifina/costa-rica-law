@@ -1,0 +1,1 @@
+Artículo 38 °. -Derogatoria: Este reglamento deroga el reglamento para el uso de vehículos municipales publicado en el Alcance de La Gaceta N.º 87 del 7 de mayo del año 1993, y cualquier disposición anterior que se le oponga.

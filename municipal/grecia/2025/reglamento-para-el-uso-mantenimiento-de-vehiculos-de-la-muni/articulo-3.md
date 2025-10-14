@@ -1,0 +1,1 @@
+Artículo 3°-Las disposiciones contenidas en el presente reglamento son de acatamiento obligatorio para todas las personas usuarias de vehículos municipales propiedad de la Municipalidad y de los vehículos alquilados.
