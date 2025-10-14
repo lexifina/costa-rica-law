@@ -14,3 +14,4 @@ Reglamento a la ley N° 9967, Ley contra el hostigamiento y acoso sexual en el d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-24 | la propia norma |
+| 2 | 2025-10-14 | Decreto Ejecutivo 45283 (2025-10-14) |
