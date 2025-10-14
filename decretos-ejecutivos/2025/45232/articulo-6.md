@@ -1,0 +1,3 @@
+Artículo 6. Competencias del Benemérito Cuerpo de Bomberos de Costa Rica. Corresponde al Benemérito Cuerpo de Bomberos de Costa Rica:
+a) Responder a los incidentes donde exista o pueda existir una amenaza, peligro o daño para la vida humana y animal, relacionada con enjambres y colmenas de abejas, abejas exóticas ornamentales y exóticas ornamentales asilvestradas, quien responderá y atenderá las solicitudes conforme a sus protocolos internos establecidos.
+b) En el caso de que el incidente genere riesgos de lesiones por ataques de abejas, abejas exóticas ornamentales asilvestradas o que haya amenaza inminente a la vida humana o animal, podrá proceder con la eliminación del enjambre o colmena.

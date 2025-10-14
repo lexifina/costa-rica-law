@@ -1,0 +1,3 @@
+Artículo 7. Competencias del Ministerio de Ambiente y Energía. Es competencia del Ministerio de Ambiente y Energía (MINAE):
+a) El manejo y uso sostenible de la biodiversidad, y la conservación del ambiente, las abejas silvestres nativas y las abejas exóticas declaradas silvestres en su país de origen, a través de la formulación, planificación y ejecución de políticas nacionales relacionadas con el uso sostenible de recursos naturales y la protección al ambiente, incluida la biodiversidad y la conservación de especies.
+b) La recuperación, reubicación y el manejo de enjambres y colmenas de abejas silvestres, en caso de ser estrictamente necesario y de acuerdo con un análisis técnico que elabore dicho Ministerio, según sus competencias.

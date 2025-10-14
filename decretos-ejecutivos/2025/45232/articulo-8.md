@@ -1,0 +1,1 @@
+Artículo 8. Competencia de la Dirección de Extensión Agropecuaria. Es competencia de la Dirección de Extensión Agropecuaria (DNEA) del Ministerio de Agricultura y Ganadería, a través de sus oficinas regionales ubicadas en todo el territorio nacional, capacitar a los apicultores en temas de buenas prácticas de producción agrícola.
