@@ -1,6 +1,6 @@
 CAPÍTULO II
 De las Subespecialidades Médicas
-Artículo 16. De las sub especialidades médicas reconocidas por el Colegio de Médicos y Cirujanos. El Colegio de Médicos y Cirujanos, reconoce oficialmente las siguientes Subespecialidades Médicas:
+Artículo 16. De las subespecialidades médicas reconocidas por el Colegio de Médicos y Cirujanos. El Colegio de Médicos y Cirujanos, reconoce oficialmente las siguientes Subespecialidades Médicas:
 16.1. Subespecialidades Médicas de Anatomía Patológica
 16.1.1. Citopatología.
 Requisitos específicos:
@@ -179,6 +179,11 @@ Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: 
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina Reproductiva, en un Hospital de Tercer Nivel o Centro de Fertilización, perteneciente o adscrito a una Universidad. Este programa debe contemplar y garantizar como mínimo aspectos clínicos en las áreas de Andrología (endocrinología e infertilidad masculina), Endocrinología, Genética, Biología Reproductiva. Además, deberá contar con estudios complementarios en Cirugía Reproductiva, Ultrasonido y Consejería Psicológica.
+(*)16.10.6 Andrología Clínica
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo dos (2) años en la Subespecialidad de Andrología Clínica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*) (Así incluida la subespecialidad 16.10.6) anterior en sesión ordinaria 2025-10-15, celebrada el 15 de octubre de 2025)
 16.11. Subespecialidades Médicas de Medicina de Emergencias
 16.11.1. Medicina de Emergencias Pediátricas.
 Requisitos específicos:
@@ -551,6 +556,11 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Urología en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación mínima de 1 año en un Programa de Estudios Posgrado (residencia médica) en la Subespecialidad en Urología Oncológica, en un hospital de tercer nivel o centro especializado perteneciente o adscrito a una Universidad.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*) 16.24.5. Andrología Clínica
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo dos (2) años en la Subespecialidad de Andrología Clínica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*) (Así incluida la subespecialidad 16.24.5) anterior en sesión ordinaria 2025-10-15, celebrada el 15 de octubre de 2025)
 (*)16.25. Subespecialidades Médicas de Gastroenterología.
 16.25.1. Hepatología.
 Requisitos específicos:
@@ -575,3 +585,10 @@ Requisitos específicos:
 a. Estar debidamente inscrito como especialista en Geriatría y Gerontología, en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de 1 (un) año en la subespecialidad en Geriatría Neurológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (*) (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2025-06- 18, celebrada el 18 de junio de 2025)
+16.29. Subespecialidades Médicas de Endocrinología
+(Así incluida la subespecialidad 16.29) anterior en sesión ordinaria 2025-10-15, celebrada el 15 de octubre de 2025)
+(*)16.29.1. Andrología Clínica
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Endocrinología, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo dos (2) años en la Subespecialidad de Andrología Clínica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*) (Así incluida la subespecialidad 16.29.1) anterior en sesión ordinaria 2025-10-15, celebrada el 15 de octubre de 2025)
