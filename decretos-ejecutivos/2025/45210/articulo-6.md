@@ -1,0 +1,1 @@
+Artículo 6º-Cuotas. La Dirección General de Gestión de Deuda Pública definirá los valores nominales mínimos, múltiplos, montos de emisión, los cuales se comunicarán mediante los mecanismos usualmente empleados por los emisores en el mercado de valores.

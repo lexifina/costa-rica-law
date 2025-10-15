@@ -1,0 +1,2 @@
+Artículo 5º-Forma de Emisión y Liquidación. Los títulos podrán emitirse en forma estandarizada y desmaterializada. Asimismo, la Dirección General de Gestión de Deuda Pública podrá realizar emisiones desestandarizadas lo cual se llevará a cabo a través de las plataformas informáticas disponibles para tales efectos.
+La liquidación se realizará conforme lo defina la Dirección General de Gestión de Deuda Pública, lo cual se comunicará mediante los mecanismos usualmente empleados por los emisores en el mercado de valores.

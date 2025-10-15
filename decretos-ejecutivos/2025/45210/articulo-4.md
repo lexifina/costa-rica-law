@@ -1,0 +1,1 @@
+Artículo 4º-Plazos. Se emitirán los títulos valores en moneda nacional en los plazos de emisión, según la estrategia y plan de emisión que defina el Ministerio de Hacienda a través de la Dirección General de Gestión de Deuda Pública.
