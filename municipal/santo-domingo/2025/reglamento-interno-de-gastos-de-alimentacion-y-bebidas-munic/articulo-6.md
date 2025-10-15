@@ -1,0 +1,9 @@
+Artículo 6º-Gastos autorizados: En los siguientes casos, la Municipalidad podrá autorizar gastos de alimentación y bebidas, siempre siguiendo los principios de austeridad, razonabilidad y control interno.
+a) En sesiones o reuniones del Concejo Municipal que se prolonguen más de cuatro horas desde su inicio, debido a la complejidad de los temas tratados que requieren atención continua.
+b) En eventos de capacitación que se realicen en lugares alejados de la sede de la institución pública, o cuando la actividad se prolongue más de cuatro horas y coincida con uno de los tres tiempos principales de comidas.
+c) En reuniones oficiales técnicas o de coordinación, tanto dentro como fuera de las instalaciones municipales, con la participación de funcionarios municipales y otros invitados, para el desarrollo de planes, asesoramiento, análisis y toma de decisiones, cuando la duración sea igual o mayor a cuatro horas.
+d) En actividades institucionales clasificadas como protocolarias y sociales, en las que participen tanto funcionarios municipales como personas ajenas a la institución.
+e) En actividades organizadas por la Municipalidad para cumplir sus fines, tales como recepciones, aniversarios, conferencias y festividades importantes.
+f) En actividades excepcionales realizadas por la Gestión de Recursos Humanos y otras actividades de interés institucional que requieran servicios de alimentación.
+g) En emergencias cantonales que impliquen la movilización de personal municipal y de otras instituciones o voluntarios, con una duración mayor a cuatro horas y coincidiendo con un tiempo de comida principal.
+h) En el caso de personal municipal operativo y técnico que realice labores de reparación urgente para la continuidad del servicio de agua potable, fuera de su jornada laboral, por más de cuatro horas. En ningún caso se autorizará para la realización de dichas labores en jornada ordinaria.

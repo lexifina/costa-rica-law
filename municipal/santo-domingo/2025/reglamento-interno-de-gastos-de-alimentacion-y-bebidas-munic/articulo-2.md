@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: Este reglamento es aplicable a todas las personas funcionarias de la Municipalidad de Santo Domingo, incluida la Secretaría del Concejo Municipal y el personal de la Auditoría Interna. El incumplimiento de sus disposiciones dará lugar a responsabilidades administrativas, civiles o penales, según corresponda.

@@ -1,0 +1,3 @@
+CAPÍTULO ll
+Gastos de alimentación y bebidas
+Artículo 5º-Subpartidas presupuestarias a utilizar: Los gastos relacionados con alimentos y bebidas se imputarán a la subpartida presupuestaria correspondiente, la cual cubre los servicios de comida y otros servicios de restaurantes brindados al personal de la Municipalidad, en los casos establecidos en el artículo 5° de este reglamento. En el caso de actividades de capacitación, protocolarias, culturales o sociales, cuando solo se cubra el servicio de alimentos, se imputará a la subpartida de alimentos y bebidas. Si la contratación incluye otros servicios o bienes proporcionados por el mismo proveedor, estos se imputarán a las subpartidas correspondientes de capacitación y protocolo.

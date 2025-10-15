@@ -1,0 +1,1 @@
+Artículo 8º-Prohibición de otros gastos: Bajo ninguna circunstancia se autoriza la compra de bebidas alcohólicas, ni de alimentos o bebidas de alto costo, lujosas o excesivas, de acuerdo con el principio de racionalidad establecido en este reglamento.

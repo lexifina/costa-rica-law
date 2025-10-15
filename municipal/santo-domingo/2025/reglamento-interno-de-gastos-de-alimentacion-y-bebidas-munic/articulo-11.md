@@ -1,0 +1,1 @@
+Artículo 11.-Supervisión y responsabilidades: La persona encargada del proceso de gastos será responsable de garantizar que el procedimiento se cumpla conforme a lo establecido en este reglamento, Los costos estarán bajo el control de cada responsable y su jefatura, quienes deberán vigilar el cumplimiento de los límites de la partida presupuestaria correspondiente.

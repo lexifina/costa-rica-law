@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento y responsabilidades
+Artículo 9º-Planificación del gasto: Para realizar los gastos regulados por este reglamento, se deberá presentar por escrito una solicitud de visto bueno a la Alcaldía o a la Dirección correspondiente. La solicitud deberá detallar la actividad a realizar (capacitación, reunión protocolaria o de trabajo) y su relación con el Plan Anual Operativo, así como los motivos por los cuales se requiere la alimentación. En casos de emergencias cantonales o reparaciones urgentes para restablecer el servicio de agua potable, que no puedan planificarse previamente, será necesaria la autorización de la Alcaldía o la Dirección correspondiente.
