@@ -1,0 +1,1 @@
+Artículo 4°.- En caso de que la persona profesional en medicina especialista en ginecología y obstetricia incumpla el procedimiento médico dispuesto en este Decreto Ejecutivo, será sujeto a las acciones administrativas disciplinarias que correspondan

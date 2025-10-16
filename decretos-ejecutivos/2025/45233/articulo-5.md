@@ -1,0 +1,1 @@
+Artículo 5°.- La Norma Técnica oficializada por el presente Decreto Ejecutivo se pone a disposición, para ser consultada por las personas interesadas o vinculadas, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr y la versión impresa estará disponible en la Dirección de Servicios de Salud de dicho Ministerio.
