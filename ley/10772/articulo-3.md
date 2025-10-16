@@ -1,0 +1,2 @@
+ARTÍCULO 3- Incorporación de recursos en el presupuesto ordinario y extraordinario de la República. Todos los recursos autorizados por este financiamiento se incorporarán al presupuesto de la República, mediante la aprobación de presupuestos extraordinarios autorizados por la Asamblea Legislativa.
+Los ahorros generados por la aplicación de esta ley no podrán ser utilizados en nuevos gastos y deberán ser eliminados del presupuesto de la República.
