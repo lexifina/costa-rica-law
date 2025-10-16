@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Funcionamiento de los Mercados Municipal
 | --- | --- | --- |
 | 1 | 2016-02-19 | la propia norma |
 | 2 | 2024-11-28 | Reglamento municipal 47 (2024-11-28) |
+| 3 | 2025-10-16 | Reglamento municipal 122 (2025-10-16) |
