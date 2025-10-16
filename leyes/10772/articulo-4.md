@@ -1,0 +1,1 @@
+ARTÍCULO 4- Administración de los recursos. El prestatario administrará los recursos del Contrato de Préstamo N. º CCR 1037 01 P, que financian el Programa de Apoyo Presupuestario "Implementación de la Política Agroambiental y la Iniciativa Agropaisajes Sostenibles", de conformidad con el principio de unidad de caja.
