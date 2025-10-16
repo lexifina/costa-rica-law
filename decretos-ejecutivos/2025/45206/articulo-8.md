@@ -1,0 +1,1 @@
+Artículo 8º-Conformación del expediente: La Unidad Gestora conformará un expediente que trasladará al Jefe de Programa Presupuestario que corresponda, quien verificará y certificará el contenido presupuestario para atender el reclamo administrativo.

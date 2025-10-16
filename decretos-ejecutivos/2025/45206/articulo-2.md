@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este Reglamento, regula el procedimiento aplicable a los reclamos administrativos en observancia de los derechos y obligaciones derivados de los procedimientos de contratación pública llevados a cabo por la Dirección de Proveeduría Institucional del Ministerio de Educación Pública (MEP), a través del Sistema Digital Unificado.

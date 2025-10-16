@@ -1,0 +1,1 @@
+Artículo 11.-Gestión de pago: Una vez aprobada la resolución de pago en el Sistema respectivo, el Administrador del Contrato, la trasladará al Jefe de Programa Presupuestario correspondiente, quién realizará las gestiones de pago ante la Dirección Financiera.
