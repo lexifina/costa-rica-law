@@ -1,0 +1,1 @@
+Artículo 41: Reposición y depósito de dinero. Si realizado el arqueo, se determina un faltante de dinero, éste deberá reponerse al fondo por parte del encargado del fondo de Caja Chica de forma inmediata y si fuera un sobrante de dinero deberá depositarse a la cuenta general de la Municipalidad, una vez concluido el arqueo.

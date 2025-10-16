@@ -1,0 +1,1 @@
+Artículo 52.- Ningún(a) funcionario(a) de la Municipalidad o a su servicio, con excepción de la persona titular de la Tesorería municipal, quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de dos (02) días hábiles.

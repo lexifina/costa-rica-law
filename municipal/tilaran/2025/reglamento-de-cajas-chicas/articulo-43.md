@@ -1,0 +1,1 @@
+Artículo 43: Necesidad de uso del fondo en ausencia del encargado. Si por caso fortuito o fuerza mayor el encargado del fondo se ausenta de su puesto y es necesaria la utilización del fondo, se realizará un arqueo en presencia de la Alcaldía y la Coordinación del departamento de Contabilidad, y se realizará el traspaso de fondo correspondiente con constancia escrita de este acto.

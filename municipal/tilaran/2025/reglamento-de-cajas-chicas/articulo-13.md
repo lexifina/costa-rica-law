@@ -1,0 +1,1 @@
+Artículo 13.- Se permitirá la solicitud de un máximo de cuatro (4) vales por funcionario con el fin de atender de manera oportuna y eficiente situaciones de emergencia que puedan presentarse simultáneamente en distintas áreas.

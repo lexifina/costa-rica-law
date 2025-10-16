@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la liquidación
+Artículo 19.- Plazos de liquidación. Los anticipos de las Cajas Chicas 1, 2 y 3, deberán ser liquidados dentro de los dos días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor, el funcionario que lo retira no pueda hacerlo en el plazo establecido. Cuando estas circunstancias se presenten, se deberá justificar y documentar la razón o razones de la excepción, con las firmas del funcionario encargado del anticipo y de su superior inmediato. En caso de que la liquidación no se realice en los plazos establecidos la Tesorería tendrá la potestad de anular el procedimiento justificando que los plazos para la presentación de documentos son extemporáneos.

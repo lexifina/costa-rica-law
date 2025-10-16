@@ -1,0 +1,2 @@
+Artículo 6º- Ningún pago por caja chica podrá exceder el monto del 50% del fondo establecido para caja chica en cada una de las cajas del Programa I, II y III, salvo caso fortuito o fuerza mayor y debidamente acreditados en la solicitud que requiera un monto mayor, deberá ser aprobado por la Alcaldía Municipal.
+El monto total fijado para el fondo de caja chica se distribuirá de manera equitativa entre las tres cajas chicas auxiliares autorizadas una para la Administración programa I (33.3%), otra para el programa II (33.3%) y una para el programa III (33.3%).

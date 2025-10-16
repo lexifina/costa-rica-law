@@ -1,0 +1,1 @@
+Artículo 9º- Las Cajas Chicas recibirá devoluciones de dinero en efectivo, cuando hayan sido previamente entregados de esa forma. Cuando los vales se entreguen al funcionario solicitante mediante transferencia electrónica o depósito bancario este deberá de ser devuelto mediante la misma forma en que se transfirió el dinero.

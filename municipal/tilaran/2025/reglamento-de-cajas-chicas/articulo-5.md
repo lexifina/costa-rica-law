@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del funcionamiento
+Artículo 5º- La custodia del fondo de caja chica será responsabilidad de la Tesorería según el Código Municipal, la Ley de Contratación Pública, la Ley de Administración Financiera de la República y Presupuestos Públicos, el Reglamento a la Ley de Contratación Pública y demás normativa conexa y aplicable en la materia, correspondiéndole a su titular revisar semestralmente ese fondo para proponer ante el Concejo Municipal, por medio de la Alcaldía Municipal, el aumento que se estime conveniente, ajustándose preferiblemente a las estimaciones de la Contaduría para satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

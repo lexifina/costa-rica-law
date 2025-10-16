@@ -1,0 +1,1 @@
+Artículo 49.- El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales ni usarse para fines distintos para el que fue creado, así como tampoco utilizarse para actuaciones distintas a las autorizadas por la normativa vigente y este reglamento.

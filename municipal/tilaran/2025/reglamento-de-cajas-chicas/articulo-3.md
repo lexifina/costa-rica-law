@@ -1,0 +1,1 @@
+Artículo 3º: Principios rectores: Serán principios rectores para la adquisición de bienes y servicios mediante el fondo de caja chica los de legalidad, eficiencia, eficacia, razonabilidad, racionalidad, pertinencia, austeridad y conveniencia.

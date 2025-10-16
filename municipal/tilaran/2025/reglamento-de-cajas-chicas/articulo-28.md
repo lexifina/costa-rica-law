@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Mecanismos de control
+Artículo 28.- Es responsabilidad de la Tesorería Municipal, en su condición de encargada de las Cajas Chicas, diseñar y mantener un adecuado sistema de control del fondo autorizado en caja chica, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno para la Contraloría General de la República y demás órganos Sujetos a su Fiscalización, la Ley de Administración Financiera de La República y Presupuestos Públicos, el Código Municipal y el Manual de Procedimientos Financiero-Contables aprobado por el Concejo Municipal.

@@ -1,0 +1,7 @@
+Artículo 4º- Este reglamento se acoge a la excepción prevista en el artículo 3, inciso g), de la Ley de Contratación Pública N° 9986, así como en el artículo 12 de su Reglamento, en lo que respecta a la utilización de fondos de caja chica. Esta excepción será aplicable únicamente cuando el monto de la erogación no exceda el diez por ciento (10%) del umbral establecido para la licitación reducida.
+La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones:
+a) Que la solución sea indispensable e impostergable para la continuidad del servicio o la atención de una necesidad urgente.
+b) Que la adquisición no resulte más onerosa que la que se obtendría mediante el procedimiento ordinario de contratación aplicable.
+c) Que se acredite debidamente el análisis de costo-beneficio que justifique la contratación directa.
+d) Que no exista fraccionamiento del objeto contractual con el fin de evadir los procedimientos ordinarios establecidos por la ley.
+e) La contratación por proveedor único, según la normativa de compras públicas, se refiere a la adquisición de bienes, servicios u obras a un solo proveedor, cuando existe una justificación técnica o legal que lo avala. Esta modalidad se considera una excepción a la regla general de la libre concurrencia y competencia, por lo que su aplicación debe ser rigurosa y estar debidamente fundamentada.

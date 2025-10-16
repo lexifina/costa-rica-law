@@ -1,0 +1,1 @@
+Artículo 18.- Contra las resoluciones de adjudicación no cabrá recurso alguno, debido a la escasa cuantía y sumariedad del procedimiento. En caso de que un funcionario realice una resolución de adjudicación de manera incorrecta, la Tesorería Municipal indicará por medio de oficio a la unidad correspondiente para anular el proceso correspondiente.
