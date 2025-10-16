@@ -1,0 +1,1 @@
+ARTICULO 14. DE LOS HONORARIOS. Los honorarios profesionales por la dirección de los procesos de cobro judicial serán cancelados directamente a la Municipalidad de Los Chiles, conforme las reglas definidas por los artículos 16 y 22 del Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado.

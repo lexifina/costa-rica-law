@@ -1,0 +1,1 @@
+ARTÍCULO 10. TRASLADO DE LAS CONSTANCIAS DE NOTIFICACIÓN PERSONAL. Una vez concluido el procedimiento de cobro administrativo el expediente será trasladado mediante oficio formal a la sección de cobro judicial.

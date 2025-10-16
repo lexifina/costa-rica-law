@@ -1,0 +1,7 @@
+ARTICULO 21. INCUMPLIMIENTOS GRAVES. La Municipalidad considerará como incumplimiento grave las siguientes causales:
+a) Cuando el incumplimiento en la presentación de los informes mensuales sobre el comportamiento de los casos a nivel judicial se prolongue por más de tres meses consecutivos.
+b) Cuando no se realicen los actos procesales en forma oportuna, conforme lo regulado en este reglamento, en el proceso de contratación, o bien, según lo establecido por las normas procesales y prevenciones judiciales aplicables al efecto y como efecto de ello se produzca el rechazo de la demanda, la declaratoria de deserción o no se satisfaga en forma parcial o total la pretensión procesal.
+c) Cuando se cargue en la factura de honorarios y/o gastos algún monto no acorde con los parámetros de cálculo fijados al momento de desarrollar la contratación administrativa de los profesionales o no establecida en los instrumentos regulatorios aplicables al efecto y la Municipalidad realizare el pago inducido a error.
+d) Cuando el abogado director de un proceso dejare pendientes actos procesales de un caso que ya fue concluido por pago del obligado tributario y se diere un perjuicio grave al obligado tributario.
+e) Persistir en incumplimiento de presentación de facturas de cobro de honorarios y/o gastos procesales dentro del período presupuestario donde nació la obligación de pago, siempre que hubiere existido apercibimiento escrito.
+f) Cualquier otra causal que en atención a su gravedad o complejidad justifique que se le considere como falta grave.

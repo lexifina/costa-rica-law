@@ -1,0 +1,1 @@
+ARTÍCULO 7. DEL EXPEDIENTE ADMINISTRATIVO. La sección de cobro administrativo estará obligada a conformar un expediente administrativo por cada obligado tributario o dinerario en cobro administrativo, en el cual se deberán incluir todos los documentos que integran el procedimiento, debidamente foliados, sellados y en estricto orden lógico y cronológico.

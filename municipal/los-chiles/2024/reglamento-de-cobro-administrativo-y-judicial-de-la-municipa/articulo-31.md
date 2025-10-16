@@ -1,0 +1,1 @@
+ARTICULO 31. DEL PAGO DE PRIMA MINIMA EN LOS FRACCIONAMIENTOS DE DEUDA. Una vez autorizada la suscripción de un arreglo de pago por concepto de deudas tributarias, el sujeto pasivo deberá cancelar el 20% del total de la deuda por concepto de prima; el saldo restante será distribuido en forma proporcional a la cantidad de cuotas en que se aprobó el arreglo de pago.

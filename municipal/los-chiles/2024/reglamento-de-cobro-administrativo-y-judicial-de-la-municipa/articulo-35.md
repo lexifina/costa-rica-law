@@ -1,0 +1,1 @@
+ARTICULO 35. REVISIÓN PERIÓDICA. Al menos una vez por año, el Departamento de Cobro realizará una revisión de las cuentas posibles a declarar como incobrables e informará a la Alcaldía y al Concejo Municipal, en el mes de febrero de cada año.

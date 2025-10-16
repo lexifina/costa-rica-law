@@ -1,0 +1,5 @@
+ARTÍCULO 13. DE LA ASIGNACIÓN DE CASOS. Si el procedimiento de cobro judicial es promovido por abogados internos de la Municipalidad, los procesos se tramitarán por orden de ingreso.
+En caso de que el proceso judicial de cobro lo realicen abogados externos aplicarán las siguientes reglas:
+a) Los abogados externos serán designados mediante proceso de contratación administrativa promovido al efecto.
+b) Al inicio de una contratación los casos se asignarán mediante un sistema rotativo igualitario, esto durante los primeros seis meses de contrato, no obstante, transcurrido este plazo se variará el sistema de asignación a uno basado en la recuperación efectiva que genere cada abogado, lo cual se determinará mediante valoración cualitativa y cuantitativa que al efecto realizará el departamento de cobro judicial en coordinación con el Departamento Legal y la Dirección Financiera, debiendo dejarse escrita de lo resuelto.
+c) La periodicidad y cantidad de casos asignados queda a discreción de la Municipalidad conforme la capacidad instalada, presupuesto y en general cualquier otro aspecto de interés institucional que al efecto se considera pertinente.

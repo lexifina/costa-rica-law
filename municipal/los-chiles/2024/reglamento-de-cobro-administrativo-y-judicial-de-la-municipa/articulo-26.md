@@ -1,0 +1,1 @@
+ARTICULO 26. SUPUESTOS EN QUE PROCEDE LA AUTORIZACIÓN DE FRACCIONAMIENTO DE LA DEUDA TRIBUTARIA. Los arreglos de pago los podrán celebrar todas aquellas personas físicas o jurídicas que enfrenten una situación económico-financiera transitoria que les hace imposible cumplir con la obligación tributaria o dineraria municipal.

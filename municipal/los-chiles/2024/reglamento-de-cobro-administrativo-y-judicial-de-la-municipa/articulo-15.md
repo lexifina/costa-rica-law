@@ -1,0 +1,1 @@
+ARTICULO 15. DE LOS COSTOS PROCESALES. Los costos procesales serán cubiertos por la Municipalidad conforme lista que se definirá al efecto por la sección de Cobro Judicial y serán cobrados al obligado tributario.

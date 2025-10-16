@@ -1,0 +1,3 @@
+CAPITULO SEGUNDO
+INCUMPLIMIENTOS Y SANCIONES
+ARTICULO 18. REGIMEN DE SANCIONES PARA LOS ABOGADOS EXTERNOS. Cuando un abogado externo contratado para la dirección de procesos de cobro judicial incumpliere las obligaciones derivadas del presente reglamento o las que fueren definidas en el respectivo proceso de contratación se configurara en un incumplimiento, el cual se calificara como leve, intermedio o grave, previa instrucción de un procedimiento administrativo ordinario sancionador, conforme las reglas del debido proceso, derecho de defensa y las disposiciones procesales definidas para el por el LIBRO SEGUNDO DE LA LEY GENERAL DE LA ADMINISTRACIÓN PÚBLICA.

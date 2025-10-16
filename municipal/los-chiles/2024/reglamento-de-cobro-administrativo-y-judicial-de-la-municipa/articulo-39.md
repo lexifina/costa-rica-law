@@ -1,0 +1,1 @@
+ARTÍCULO 39. PAGO DE UNA DEUDA DECLARADA INCOBRABLE. La declaratoria de incobrabilidad no significará la eliminación de la deuda, por lo que bien podría ser cancelada por el deudor, incluso en caso de que esta hubiere alcanzado la condición de obligación natural, siendo el pago legítimo.
