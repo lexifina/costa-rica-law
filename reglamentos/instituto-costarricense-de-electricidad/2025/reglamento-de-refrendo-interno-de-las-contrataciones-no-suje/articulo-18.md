@@ -1,0 +1,1 @@
+Artículo 18.-Derogatoria. Este documento deroga el Reglamento para la aprobación interna de las contrataciones y convenios no sujetos a refrendo contralor, aprobado por el Consejo Directivo en el artículo 9 de la Sesión 5920 del 24 de agosto del 2010, publicado en La Gaceta 176 del 09 de setiembre del 2010, código SE.5920.9.

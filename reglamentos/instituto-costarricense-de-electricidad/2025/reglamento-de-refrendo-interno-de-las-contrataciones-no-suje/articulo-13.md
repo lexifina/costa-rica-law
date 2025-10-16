@@ -1,0 +1,8 @@
+Artículo 13.-Requisitos de la gestión. Toda solicitud de refrendo interno deberá tramitarse a través de la Dirección Proveeduría, por medio del SICOP y, en los casos en que exista expediente físico, éste deberá ser remitido a la Dirección Contratación para el análisis correspondiente. La solicitud debe contener los siguientes requisitos:
+a) Partes contratantes, el objeto contractual, monto de adjudicación, versión final del cartel que aplica a la contratación, número de contratación, así como el tipo de procedimiento de concurso empleado.
+b) Certificación u otro medio que permita constatar que se cuenta con el contenido presupuestario para cubrir la erogación respectiva.
+c) En virtud de lo dispuesto en el Artículo 23 del Reglamento al Título II a la Ley 8660 se presume la aptitud y capacidad de actuar de todo oferente y adjudicatario durante todo el procedimiento de contratación.
+d) Los estudios técnicos que sustenten la selección del objeto contractual y el acto de adjudicación emitido por quien tenga competencia para ello.
+e) Garantía de cumplimiento suficiente en monto y vigente, cuando corresponda.
+f) Comprobante de que el Contratista se encuentra al día en sus obligaciones con la Caja Costarricense de Seguro Social.
+En el caso de que la contratación se realice utilizando medios electrónicos, la información y cumplimiento de requisitos que se detallan en el presente reglamento se verificarán en línea, utilizando para ello las herramientas tecnológicas y bases de datos disponibles; aplicando en todo momento el principio de equivalencia funcional y demás normativa aplicable en la materia, incluyendo la Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454.
