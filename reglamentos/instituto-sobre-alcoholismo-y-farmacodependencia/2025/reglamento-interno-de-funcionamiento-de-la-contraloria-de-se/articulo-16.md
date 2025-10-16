@@ -1,0 +1,5 @@
+ARTÍCULO 16- De los derechos de la persona usuaria. Conforme lo establecido en el artículo 31 de la Ley 9158, son derechos de la persona usuaria los siguientes:
+a) Recibir de las diferentes áreas del IAFA, servicios de óptima calidad, de forma efectiva, continua e innovadora.
+b) Plantear gestiones respecto de los servicios que reciben de las diferentes áreas del IAFA, sobre las actuaciones de las personas funcionarias, en el ejercicio de sus labores, cuando se estime que afectan, directa o indirectamente, los servicios prestados o la imagen organizacional.
+c) Recibir, de los funcionarios, empleados, colaboradores o representantes de las organizaciones que brindan servicios, un trato respetuoso y una respuesta oportuna a su gestión.
+d) Para la protección de los derechos señalados en los incisos anteriores, las gestiones del Instituto deberán sujetarse a los principios fundamentales de continuidad y efectividad, adaptación a todo cambio en el régimen legal o necesidad social que satisfagan y la igualdad en el trato de las personas usuarias, según lo establecido en el ordenamiento jurídico.

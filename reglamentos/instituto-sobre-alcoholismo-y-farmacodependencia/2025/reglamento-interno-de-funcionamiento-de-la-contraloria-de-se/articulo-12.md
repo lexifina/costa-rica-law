@@ -1,0 +1,2 @@
+CAPÍTULO VI. Gestiones de las personas usuarias ante la Contraloría de Servicios.
+ARTÍCULO 12- Gestión ante la Contraloría de Servicios de las personas usuarias. Se comprenderá por gestión de la persona usuaria de los servicios del IAFA presentada ante la Contraloría de Servicios, toda disconformidad, consulta, denuncia, sugerencia o felicitación respecto de la forma o contenido en la cual se brinda un servicio.

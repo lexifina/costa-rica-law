@@ -1,0 +1,1 @@
+ARTÍCULO 9- De la persona Contralora de Servicios. La Contraloría de Servicios del IAFA funciona bajo la responsabilidad de la persona Contralora, que velará por el cumplimiento de sus objetivos mediante el ejercicio de sus funciones y el cumplimiento de sus planes anuales de trabajo, en el marco de la normativa vigente.

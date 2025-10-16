@@ -1,0 +1,2 @@
+ARTÍCULO 18- Plan anual de Trabajo de Contraloría de Servicios. La Contraloría de Servicios deberá presentar al Jerarca de la Institución un plan anual de trabajo que sirva de base para evaluar el informe anual de labores. Dicho Plan de trabajo deberá ser aprobado por la Junta Directiva en caso de que así corresponda, y que su contenido deberá ser consensuado con las acciones estratégicas que se perciban de este órgano colegiado.
+Una copia de dicho plan deberá presentarse a la Secretaría Técnica de MIDEPLAN, a más tardar el 30 de noviembre de cada año.

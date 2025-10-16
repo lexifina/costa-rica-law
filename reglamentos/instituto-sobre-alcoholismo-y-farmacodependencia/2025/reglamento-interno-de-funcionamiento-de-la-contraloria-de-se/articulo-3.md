@@ -1,0 +1,1 @@
+ARTÍCULO 3- El objetivo del presente reglamento. Es facilitar el contacto de la persona usuaria con la Institución y contribuir con la prestación de los servicios que esta ofrece, para obtener una respuesta congruente con sus solicitudes, en procura de brindar un servicio eficiente y eficaz.

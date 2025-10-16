@@ -1,0 +1,2 @@
+ARTÍCULO 8- Que el Reglamento Autónomo de Servicio del IAFA en su artículo 5° establece: Organización. La estructura organizativa del Instituto estará compuesta por la Dirección Superior, que la integrarán la Junta Directiva y la Dirección General.
+Dependerán directamente de la Junta Directiva la Dirección General, la Auditoría Interna y la Contraloría de Servicios dependen directamente de la Junta Directiva.
