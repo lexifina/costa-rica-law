@@ -12,7 +12,7 @@ a.- cuando ese familiar presente una discapacidad que lo coloque en situación d
 b.- cuando padezca una enfermedad terminal o cuando presente una condición de salud delicada por un accidente grave, que le impida atenderse por su propia cuenta.
 2. La persona gestionante debe indicar en su nota:
 - Nombre completo, puesto que desempeña, oficina o despacho donde se destaca y su condición a lo interno de la institución: propietario (a) o interino (a). (Este último punto, con el único fin de establecer el tiempo durante el cual se puede otorgar el beneficio, toda vez que en el caso de las personas que se encuentran interinas, éste no puede exceder a su último nombramiento registrado. Por lo tanto, en casos de interinazgo se debe anotar la fecha de inicio y fin del último nombramiento). Asimismo, deberá indicar si la plaza que ocupa es ordinaria o extraordinaria.
--? La razón por la cual solicita el beneficio.
+- La razón por la cual solicita el beneficio.
 - La persona que requiere de sus cuidados.
 - Especificar si el permiso requerido es para cuidar a persona enferma, a una persona en fase terminal o a una persona menor de edad.
 - El vínculo que existe entre la persona gestionante y la que requiere de sus cuidados (sea consanguíneo o de afinidad).
@@ -36,6 +36,7 @@ e) Reducción remunerada o no remunerada de la jornada laboral, en un tercio de 
 7. La institución queda facultada para que durante el disfrute del beneficio se le dé seguimiento a la condición de la persona que requiere los cuidados, así como del cumplimiento de las obligaciones por parte de la persona servidora judicial.
 8. A efecto de dar seguimiento a los beneficios otorgados, queda a criterio de este Órgano Colegiado designar las tareas o funciones a la dependencia que considere es la competente para llevarlas a cabo según sus atribuciones.
 9. Todos los beneficios que se otorguen son excepcionales y no generan derechos. La disponibilidad y el zonaje se mantendrán siempre y cuando el beneficio no exceda un mes, en caso de superar ese lapso, tales pluses se suspenderán hasta el regreso a las labores normales del servidor judicial.
+(Nota de Sinalevi: Mediante circular N° 197-2025 del 16 de octubre de 2025, se dispuso actualizar la presente norma en el sentido de que: "A partir del presente acuerdo, los permisos con goce de salario para cuidar a familiares enfermos se otorgarán por un plazo máximo de cinco días hábiles, pero sin sustitución de personal, en atención a las restricciones presupuestarias que enfrenta este Poder de la República.")
 Es entendido que esta circular deja sin efecto las circulares número 216-2014 y 2-2022.
 Publíquese una vez en el Boletín Judicial.
 San José, 30 de agosto de 2024

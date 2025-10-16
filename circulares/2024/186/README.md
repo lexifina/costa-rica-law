@@ -13,3 +13,4 @@ Protocolo sobre el procedimiento para la solicitud y otorgamiento de permisos pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-08-30 | la propia norma |
+| 2 | 2025-10-16 | Circular 197 (2025-10-16) |
