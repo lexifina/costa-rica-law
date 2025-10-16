@@ -29,7 +29,8 @@ La norma se divide en los siguientes rubros:
 3.5. Seguridad e higiene.
 4 Especificaciones
 4.1. Recurso Humano
-4.1.1 El establecimiento debe tener un profesional especialista en ginecología y obstetricia con subespecialidad en medicina reproductiva, debidamente inscrito en el Colegio de Médicos y Cirujanos de Costa Rica y autorizado para ejercer su profesión, quien dirigirá y será responsable del establecimiento.
+4.1.1 El establecimiento debe tener un profesional que sea subespecialista en medicina reproductiva o especialista en ginecología y obstetricia, debidamente inscrito en el Colegio de Médicos y Cirujanos de Costa Rica y autorizado para ejercer su profesión, quien coordinará y será responsable de la gestión general del establecimiento.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 45317 del 16 de octubre del 2025)
 4.1.2 El establecimiento debe tener un profesional en ciencias de la salud acreditado por su colegio profesional correspondiente, en técnicas de reproducción asistida, que le habilite para la realización de técnicas de alta complejidad, debidamente inscrito y autorizado para ejercer su profesión , quien dirigirá y será responsable del laboratorio de FIV-TE.
 4.1.3 El establecimiento debe tener al menos dos profesionales en Microbiología y Química Clínica, Medicina Humana, Medicina Veterinaria o Biología Humana, acreditados por su colegio profesional correspondiente en técnicas de reproducción asistida, debidamente inscrito y autorizado para ejercer su profesión, quienes serán responsables de ejecutar los procesos de trabajo en el laboratorio de FIV-TE.
 4.1.4 El establecimiento debe tener al menos a un profesional con especialidad en ginecología y obstetricia y en reproducción humana, debidamente inscrito en el Colegio de Médicos y Cirujanos de Costa Rica y autorizado para ejercer su profesión, con experiencia comprobada en punción folicular y transferencia embrionaria, el cual será responsable del procedimiento.
@@ -161,8 +162,8 @@ La norma se divide en los siguientes rubros:
 4.3.5.13 Insumes para anestesia local
 4.3.5. 14 Sueros para terapia intravenosa.
 4.3.5.15 Jabón líquido.
-4.3.5.16 Alcohol.
-4.3.5.17 Yoduro de povidona.
+4.3.5.16 (Derogado por el artículo 2° del decreto ejecutivo N° 45317 del 16 de octubre de 2025)
+4.3.5.17 (Derogado por el artículo 2° del decreto ejecutivo N° 45317 del 16 de octubre de 2025)
 4.3.5.18 Suministro de oxígeno para la realización del proceso anestésico.
 4.3.6 El área de aspiración folicular y transferencia embrionaria debe contar con los siguientes medicamentos anestésicos, coadyuvantes y líquidos para el período trans-anestésico:
 4.3.6.1 Oxígeno.

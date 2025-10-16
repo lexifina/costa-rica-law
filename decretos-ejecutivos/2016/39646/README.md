@@ -14,3 +14,4 @@ Norma para la habilitación de establecimientos de salud que realizan la técnic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-26 | la propia norma |
+| 2 | 2025-10-16 | Decreto Ejecutivo 45317 (2025-10-16) |
