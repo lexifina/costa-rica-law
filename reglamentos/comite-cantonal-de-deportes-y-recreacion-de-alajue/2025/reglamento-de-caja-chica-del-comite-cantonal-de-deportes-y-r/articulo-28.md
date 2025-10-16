@@ -1,0 +1,1 @@
+Artículo No 28 - Formalización de la liquidación del vale La liquidación del vale queda formalizada cuando el responsable de la caja chica revisa todos los requisitos y estampa su firma y sello de recibido conforme y será responsabilidad de quien firma o autorizó el vale, constatar el ingreso de los bienes y servicios adquiridos.

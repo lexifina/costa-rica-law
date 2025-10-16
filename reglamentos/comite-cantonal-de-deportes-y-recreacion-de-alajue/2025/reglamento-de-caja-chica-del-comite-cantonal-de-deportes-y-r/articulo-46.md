@@ -1,0 +1,2 @@
+Artículo No. 46.- Custodia de fondos
+Corresponderá al custodio de fondos de caja chica de la institución velar por el cumplimiento de este Reglamento, asimismo el encargado -custodio- de fondo de caja chica rendirá un informe trimestral de la gestión de la caja chica al Director Administrativo. En los casos de violaciones al reglamento, El Director Administrativo deberá rendir informe de inmediato a la Junta Directiva para el inicio de los procedimientos disciplinarios correspondientes.

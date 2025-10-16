@@ -1,0 +1,2 @@
+Artículo No.8 - Composición del fondo:
+La caja chica mantendrá siempre el total de los montos asignados a cada fondo y estarán conformados por dinero en efectivo, vales liquidados junto con sus respectivos comprobantes de pago, vales pendientes de liquidación y vales de adelanto de efectivo pendientes de liquidar En ningún momento ni por motivo alguno, se podrá sustituir esos valores por otros de naturaleza distinta a los autorizados en este Reglamento

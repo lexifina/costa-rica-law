@@ -1,0 +1,4 @@
+CAPITULO V
+LIQUIDACION Y ARQUEOS
+Artículo No 29 - Arqueos.
+Se deberán efectuar verificaciones o arqueos sorpresivos totales a la Caja Chica al menos una vez al mes por parte de la Dirección Administrativa, con el propósito de verificar, supervisar y controlar la correcta aplicación del presente reglamento y las sanas prácticas de Administración. si se presentaran dudas sobre el manejo de la Caja Chica se podrá solicitar la colaboración de los funcionarios de la Auditoria de la Municipalidad de Alajuela con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoria vigentes y de las sanas prácticas de administración. El responsable del fondo de caja chica realizará semanalmente un arqueo para el cierre de la Caja y en caso de detectar alguna inconsistencia lo comunicará de inmediato al Director Administrativo, para lo cual emitirá un informe al respecto.

@@ -1,0 +1,7 @@
+CAPITOLO II
+DEL FUNCIONAMIENTO
+Artículo No. 4 - Utilización del fondo de Caja Chica.
+El fondo de Caja Chica, se utilizará para cubrir los gastos en adquisición de bienes y servicios siempre y cuando el bien sea registrado y asignado siguiendo los procedimientos de administración y que por conveniencia, eficiencia y oportunidad se considere como la mejor forma de realizarlo, además urgencias y necesidades según criterio y autorización del Director Administrativo o el Director Deportivo, siempre y cuando se cuente con el disponible presupuestario, tales como:
+a) Gastos para el traslado, transporte diversa índole, alimentación, viáticos y hospedaje en el territorio nacional.
+b) Gastos por la compra de materiales, suministros electromecánicos, eléctricos, y de otra índole, insumos químicos agrícolas, materiales, mobiliario, equipo, herramientas y servicios para la buena marcha operacional y mantenimiento del Comité Cantonal de Deportes y Recreación de Alajuela y sus instalaciones deportivas y de servicio.
+c) Cualquier otro pago cuando la compra sea califica como urgente e imprevisible o que se determine la conveniencia y necesidad de la misma, así como por considerarse gastos menores, donde el costo administrativo de tramitarlos por otra modalidad supere los beneficios por conveniencia, eficiencia y oportunidad, simplicidad, celeridad sean considerados como la mejor forma de realizarlo.

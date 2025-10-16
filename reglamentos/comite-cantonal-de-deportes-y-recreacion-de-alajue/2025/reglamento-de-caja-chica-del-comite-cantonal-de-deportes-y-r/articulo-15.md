@@ -1,0 +1,2 @@
+Artículo No.15 - Compra de activos.
+La compra de activos fijos sujetos a depreciación mediante caja chica, será tramitada por el fondo asignado a la Proveeduría CODEA, y/o Dirección Deportiva y deberá seguirse el procedimiento de entrada en las bodegas del CODEA y el registro contable correspondiente; por lo que una vez ingresado a la institución deberá plaquearse. La Proveeduría deberá establecer mecanismos que garanticen el cumplimiento de dicho trámite, bajo la vigilancia y de información y contabilidad, para efectos de Control Interno.

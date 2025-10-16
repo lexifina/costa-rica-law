@@ -1,0 +1,2 @@
+Artículo No. 36 -Veracidad de los comprobantes.
+Todos los documentos comprobantes deben estar limpios de borrones y tachaduras, para que se puedan hacer efectivos. Cualquier indicio que produzca duda sobre la veracidad de lo consignado en ellos, autorizará al encargado de custodiar y administrar el fondo de Caja Chica para no cubrir el monto al que el documento alterado respalda. Por lo que el solicitante deberá asumir el importe.

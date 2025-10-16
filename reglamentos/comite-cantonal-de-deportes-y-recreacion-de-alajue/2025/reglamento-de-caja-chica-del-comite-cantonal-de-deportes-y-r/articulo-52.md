@@ -1,0 +1,1 @@
+Articulo No. 52 - Incumplimiento y tramite disciplinario. El incumplimiento de cualquiera de las obligaciones contenidas en el presente Reglamento se comunicará a la Junta Directiva del CODEA en el plazo no mayor a siete días hábiles desde que la Administración tuvo conocimiento del hecho, para el inicio de la aplicación de las medidas disciplinarias correspondientes.

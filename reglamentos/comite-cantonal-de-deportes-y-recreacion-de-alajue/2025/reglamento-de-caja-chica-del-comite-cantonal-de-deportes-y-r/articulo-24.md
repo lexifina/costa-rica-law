@@ -1,0 +1,2 @@
+Artículo No. 24. - Vale provisional para viáticos
+La suma máxima a autorizar por concepto de viáticos dentro del territorio nacional, será el equivalente de una semana hábil de viáticos totales, con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para funcionarios Públicos emitido por la Contraloría General de la República, y sujeto al límite máximo definido en el Artículo 19 de este Reglamento de conformidad con las directrices de la Contraloría General de la República.
