@@ -20,3 +20,6 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 45176 del 29 de agosto de 2025)
 (Reformado por el artículo 1° de la ley N° 10756 del 18 de setiembre de 2025)
 (Reformado por el artículo 2° de la ley N° 10769 del 9 de octubre de 2025)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
+(Modificado por el artículo 3° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
+(Modificado por el artículo 4° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
