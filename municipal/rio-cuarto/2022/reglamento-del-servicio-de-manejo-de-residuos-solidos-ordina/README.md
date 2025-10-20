@@ -14,3 +14,4 @@ Reglamento del servicio de manejo de residuos sólidos ordinarios no valorizable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-18 | la propia norma |
+| 2 | 2025-10-20 | Reglamento municipal 83 (2025-10-20) |
