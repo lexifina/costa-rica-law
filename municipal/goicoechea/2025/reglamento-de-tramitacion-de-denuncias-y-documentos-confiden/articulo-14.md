@@ -1,0 +1,1 @@
+Artículo 14.-Del traslado de la denuncia a la Administración Activa o a la Auditoría Interna: El Concejo Municipal, luego de analizar el contenido de las denuncias presentadas, podrá trasladar a la Administración Activa o a la Auditoría Interna la misma para su atención cuando éstas no se encuentren dentro del ámbito de competencia del Concejo Municipal.
