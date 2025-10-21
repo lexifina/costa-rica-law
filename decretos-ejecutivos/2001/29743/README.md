@@ -18,3 +18,4 @@ Reglamento de Vida Máxima Autorizada para las Unidades de Transporte Colectivo 
 | 3 | 2023-11-16 | Decreto Ejecutivo 44275 (2023-11-16) |
 | 4 | 2025-01-20 | Decreto Ejecutivo 44881 (2025-01-20) |
 | 5 | 2025-09-19 | Decreto Ejecutivo 45200 (2025-09-19) |
+| 6 | 2025-10-21 | Decreto Ejecutivo 45280 (2025-10-21) |
