@@ -14,3 +14,4 @@ Moratoria para el otorgamiento de nuevos permisos de servicios especiales de tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-24 | la propia norma |
+| 2 | 2025-10-21 | Decreto Ejecutivo 45280 (2025-10-21) |
