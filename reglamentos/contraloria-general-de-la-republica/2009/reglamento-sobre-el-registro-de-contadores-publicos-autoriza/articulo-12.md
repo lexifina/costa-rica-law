@@ -1,2 +1,0 @@
-Artículo 12.—Procedimiento de exclusión del registro. La Contraloría General de la República tan pronto tenga conocimiento de alguna de las causas que motivan la exclusión del contador público autorizado del registro, la acreditará y mediante acto motivado comunicará la exclusión al contador público autorizado.
-Contra lo resuelto, caben los recursos de revocatoria y apelación, de acuerdo con lo dispuesto en el artículo 9º del presente reglamento.

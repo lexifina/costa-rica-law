@@ -1,3 +1,0 @@
-Artículo 7º—Plazo, requerimientos de información y suspensiones. La Contraloría General de la República resolverá la solicitud de inscripción en un plazo de diez días hábiles a partir de su presentación.
-En el conocimiento de la gestión, podrá requerir por escrito la información que estime necesaria para que en un plazo razonable acredite el cumplimiento del trámite, lo cual suspenderá el plazo de la gestión.
-En caso de que el contador público autorizado no atienda los requerimientos en el plazo concedido al efecto, se procederá sin más trámite, al archivo de la gestión, comunicándole esta situación al interesado.

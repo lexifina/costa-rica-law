@@ -1,1 +1,0 @@
-Artículo 15.—Obligatoriedad. Este Reglamento es de carácter vinculante para los sujetos señalados en su ámbito de aplicación. Su inobservancia, puede dar lugar a la aplicación de las responsabilidades que establece el Código Electoral y las demás disposiciones concordantes.

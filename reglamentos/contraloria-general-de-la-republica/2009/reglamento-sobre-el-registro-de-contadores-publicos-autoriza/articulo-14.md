@@ -1,1 +1,0 @@
-Artículo 14.—Administración del registro. El registro de contadores públicos será administrado por la Contraloría General de la República, cuyo acceso, mantenimiento y custodia de la información relacionada, se regirá por los procedimientos internos que al respecto establezca la Gerencia de la División de Fiscalización Operativa y Evaluativa.

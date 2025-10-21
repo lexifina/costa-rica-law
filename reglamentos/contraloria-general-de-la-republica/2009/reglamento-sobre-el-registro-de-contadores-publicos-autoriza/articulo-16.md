@@ -1,1 +1,0 @@
-Artículo 16.—Derogatoria. Se deroga el “Reglamento sobre el Pago de los Gastos de los Partidos Políticos” emitido por la Contraloría General de la República mediante resolución Nº 6-DI-AA-2001 de las 10:00 horas del 30 de noviembre del 2001, publicado en La Gaceta Nº 236 del 7 de diciembre del 2001.
