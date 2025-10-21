@@ -1,0 +1,5 @@
+Artículo 5º-Obligaciones de la Auditoría Interna. La Auditoría Interna será responsable de:
+1. Aplicar el presente reglamento en lo que a su competencia corresponde.
+2. El (la) Auditor(a) Interno(a) será responsable de resguardar y mantener la seguridad de los libros por autorizar, así como de los registros y sellos necesarios para esta función.
+En caso de ausencia, esta responsabilidad recaerá en el funcionario que el (la) Auditor(a) Interno(a) haya designado previamente por escrito. Si no hay designación previa, se aplicará el procedimiento interno para la asignación temporal de funciones dentro de la Auditoría Interna, debiendo documentarse dicha asignación.
+3. Contar con un registro para el control individual de los libros autorizados de forma física, que contenga el historial del libro, con las respectivas aperturas y cierres, de forma consecutiva y cronológica. El registro debe incluir al menos la siguiente información: Número de asiento, Dependencia u Órgano solicitante, Nombre del libro, tipo de trámite, Fecha de recibido, Fecha de entrega, Funcionario que recibe, Número de tomo, Cantidad de folios, Observaciones.

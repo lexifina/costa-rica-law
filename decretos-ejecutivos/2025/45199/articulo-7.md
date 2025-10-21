@@ -1,0 +1,1 @@
+Artículo 7º-Consultas relacionadas con el trámite y uso de los libros. Las consultas relacionadas con el trámite de autorización de libros deberán presentarse por escrito ante la Auditoría Interna. Estas serán atendidas en un plazo máximo de diez días hábiles.

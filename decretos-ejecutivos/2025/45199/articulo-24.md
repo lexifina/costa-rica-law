@@ -1,0 +1,1 @@
+Artículo 24.-Disposición y custodia del libro después del cierre. Corresponde a la Dependencia u Órgano que solicitó la autorización del libro custodiar el libro cerrado de conformidad con lo dispuesto por la normativa vigente.

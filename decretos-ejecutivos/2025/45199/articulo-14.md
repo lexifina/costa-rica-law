@@ -1,0 +1,2 @@
+Artículo 14.-Acta de destrucción de libros. Deberá levantarse un acta que registre la destrucción de un libro, identificando plenamente sus características y la razón para hacerlo.
+La destrucción deberá llevarse a cabo en presencia de la persona Coordinador o Encargado de fiscalizar libros en la Auditoría Interna y un testigo, quienes firmarán el acta correspondiente. Además, en el registro de control debe quedar constancia de su destrucción.

@@ -1,0 +1,1 @@
+Artículo 11.-Sello de autorización de libros. La Auditoría Interna deberá plasmar en la parte superior derecha de cada folio físico, el sello correspondiente a la autorización del libro; esto con el fin de asegurar razonablemente que no se utilizarán hojas distintas que puedan alterar la información.

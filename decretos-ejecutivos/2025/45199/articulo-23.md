@@ -1,0 +1,1 @@
+Artículo 23.-Entrega de libro cerrado. Una vez que la persona encargada realiza el proceso de cierre del libro se emite un memorando o nota en que consta la devolución del libro cerrado a la instancia correspondiente.
