@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento regula el uso, mantenimiento y control de todos los vehículos automotores de la Municipalidad del Cantón Central de Cartago, con el propósito de que éstos cumplan apropiadamente los fines a que se designan de acuerdo con los principios de una sana administración de los recursos municipales.

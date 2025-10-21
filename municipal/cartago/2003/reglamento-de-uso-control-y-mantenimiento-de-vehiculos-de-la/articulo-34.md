@@ -1,2 +1,0 @@
-Artículo 34.—Seguridad de los vehículos. El funcionario o empleado autorizado que conduzca un vehículo municipal será responsable por la seguridad de la unidad a su cargo.
-Los vehículos oficiales no deberán dejarse abandonados o estacionados donde se ponga en peligro su seguridad, sus piezas complementarias, materiales, o equipos que transporte. Se deberá buscar lugares seguros y protegidos para su estacionamiento.

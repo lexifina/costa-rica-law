@@ -1,1 +1,0 @@
-Artículo 19.—Programación de los servicios. El Departamento de Transportes realizará una programación periódica de los servicios de transportes en vehículos de uso administrativo, de acuerdo con las solicitudes presentadas, atendidas en estricto orden cronológico de presentación, la capacidad de servicio y el vehículo que mejor se adapte a las condiciones del servicio solicitado.

@@ -1,1 +1,0 @@
-Artículo 45.—Prohibición de intercambio de accesorios. Los conductores de vehículos municipales no podrán hacer intercambio de accesorios entre las unidades, si no cuentan con la aprobación del jefe del Departamento de Transportes.

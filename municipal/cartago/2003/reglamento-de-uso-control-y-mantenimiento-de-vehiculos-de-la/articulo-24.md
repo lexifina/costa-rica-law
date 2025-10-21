@@ -1,1 +1,0 @@
-Artículo 24.—Licencia de conducir. Todos los conductores autorizados para conducir vehículos municipales, deberán portar la licencia de conducir, debidamente actualizada y deberá coincidir con el tipo de vehículo a utilizar

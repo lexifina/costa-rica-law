@@ -1,1 +1,0 @@
-Artículo 29.—Transporte de particulares. Es absolutamente prohibido transportar particulares en los vehículos propiedad de la Municipalidad, salvo que éstos brinden algún servicio o trabajo especial a la institución y se tenga la autorización correspondiente. En este caso la autorización deberá ser emitida por la oficina de la alcaldía.

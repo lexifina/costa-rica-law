@@ -1,1 +1,0 @@
-Artículo 53.—Prohibición de arreglos extrajudiciales. Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales, en caso de accidentes con vehículos de uso municipal, únicamente de indicarle al particular que se apersone o se comunique con el alcalde para efectuar las gestiones correspondientes.

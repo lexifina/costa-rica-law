@@ -1,1 +1,0 @@
-Artículo 47.—Prohibición de estacionamiento. Los vehículos de la Municipalidad no deberán ser estacionados o aparcados por sus conductores frente a cantinas, tabernas o similares, ni frente a locales cuya fama riña con la moral y las buenas costumbres, salvo que la función que realice así lo amerite y por el tiempo estrictamente necesario.
