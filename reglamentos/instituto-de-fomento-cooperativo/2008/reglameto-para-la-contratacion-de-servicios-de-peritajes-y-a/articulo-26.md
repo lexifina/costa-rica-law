@@ -1,1 +1,0 @@
-Artículo 26.—Verificación por parte del Proceso de Operaciones. El Proceso de Operaciones procederá a verificar que el informe cumple con todos los requisitos indicados en el artículo 23 de este Reglamento.

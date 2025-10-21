@@ -1,1 +1,0 @@
-Artículo 33.—Proceso administrativo. Para la aplicación del inciso b) del artículo 31 del presente Reglamento, el proceso administrativo disciplinario estará a cargo del Proceso de Operaciones, y será el ordinario de la Ley General de la Administración Pública. La aplicación de la sanción corresponde a la Junta Directiva.

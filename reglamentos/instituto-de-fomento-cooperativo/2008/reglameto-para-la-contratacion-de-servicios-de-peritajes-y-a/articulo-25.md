@@ -1,1 +1,0 @@
-Artículo 25.—Plazo de presentación de informe. En el plazo de cinco (5) días hábiles, el perito valuador presentará al Proceso de Operaciones el informe de avalúo, con el contenido y formatos aquí estipulados.

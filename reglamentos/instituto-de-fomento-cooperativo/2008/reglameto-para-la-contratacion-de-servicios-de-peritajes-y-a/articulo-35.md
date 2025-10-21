@@ -1,4 +1,0 @@
-CAPÍTULO IX
-Criterios de evaluación de los servicios profesionales
-Artículo 35.—Criterios de evaluación de los servicios profesionales. El Proceso de Operaciones elaborará y enviará a la Dirección Ejecutiva informes trimestrales sobre las contrataciones de peritos valuadores y los respectivos avalúos y/o peritajes realizados. Con base en dichos informes la Dirección Ejecutiva tomará las acciones que correspondan, inclusive la exclusión de alguno (s) de los profesionales del rol de peritos de la Institución, si procede.
-Los servicios prestados por los peritos valuadores, pueden ser calificados como muy satisfactorios, satisfactorios o insatisfactorios, de acuerdo a los lineamientos emitidos por el Proceso de Operaciones, los cuales deberán ser notificados a los peritos, previo a su aplicación.

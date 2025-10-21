@@ -1,1 +1,0 @@
-Artículo 7º—Finalización de la contratación por mutuo acuerdo. Cuando un perito valuador por razones de interés público no pueda continuar brindando sus servicios al INFOCOOP, notificará al Proceso de Operaciones y se procederá conforme a la rescisión por mutuo acuerdo señalada en el Reglamento a la Ley de Contratación Administrativa.

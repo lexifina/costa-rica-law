@@ -1,1 +1,0 @@
-Artículo 8º—Suscripción de contratos. Una vez seleccionados los peritos valuadores, se suscribirán los respectivos contratos y garantías por la vigencia que establezcan las normas legales correspondientes.

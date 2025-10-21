@@ -1,1 +1,0 @@
-Artículo 19.—Del depósito de honorarios. Es requisito ineludible que los honorarios de peritos valuadores sean depositados por la cooperativa en el INFOCOOP previamente a la asignación formal del perito; en caso de que entre el depósito y el costo final del avalúo se presenten diferencias se reintegrará a la cooperativa o se cobrará la diferencia, según sea el caso.

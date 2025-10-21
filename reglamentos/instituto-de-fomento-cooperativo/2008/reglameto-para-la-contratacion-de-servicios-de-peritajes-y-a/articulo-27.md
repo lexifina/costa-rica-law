@@ -1,1 +1,0 @@
-Artículo 27.—Plazo para subsanar informes. En caso de que el Proceso de Operaciones determine alguna deficiencia, procederá a comunicarlo al perito valuador, para que sea subsanado en un plazo de máximo de tres días hábiles.

@@ -1,1 +1,0 @@
-Artículo 39.—Derogatorias. El presente Reglamento deroga expresamente el Reglamento para Servicios de Peritajes y Avalúos en el INFOCOOP, aprobado por Junta Directiva en acuerdo de sesión Nº 2708 artículo único, inciso 4.1, del 08/01/98 comunicado en oficio JD 025-98.

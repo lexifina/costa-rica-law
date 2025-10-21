@@ -1,2 +1,0 @@
-Artículo 14.—Avalúos solicitados por la cooperativa. En caso de que la cooperativa requiera realizar un avalúo de bienes muebles e inmuebles con peritos valuadores autorizados del rol de INFOCOOP, se deberá respetar lo indicado en los artículos 13 y 23 de este Reglamento.
-Los avalúos realizados por peritos del rol del INFOCOOP que no cumplan lo indicado en los artículos 12 y 20 no podrán ser utilizados para futuras solicitudes de crédito ante el INFOCOOP.
