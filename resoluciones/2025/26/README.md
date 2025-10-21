@@ -15,3 +15,4 @@ Presentación de la declaración informativa en materia de precios de transferen
 | --- | --- | --- |
 | 1 | 2025-10-06 | la propia norma |
 | 2 | 2025-10-06 | Resolución 43 (2025-08-27) |
+| 3 | 2025-10-21 | Resolución 1 (2025-10-21) |

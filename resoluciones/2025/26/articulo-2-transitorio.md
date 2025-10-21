@@ -1,0 +1,2 @@
+Transitorio II.-Presentación de declaración informativa período fiscal 2025. Tratándose de la declaración informativa de precios de transferencia del período fiscal 2025, el plazo para su presentación vence el 30 de junio de 2026, independientemente que se trate de contribuyentes con periodo fiscal ordinario -con fecha de cierre al 31 de diciembre de 2025-, o periodo fiscal especial -con fecha de cierre anterior al 31 de diciembre de 2025.
+(Así adicionado por el artículo 1° de la resolución N° MH-DGT-RES-TEMPORAL-0001-2025 del 21 de octubre de 2025)
