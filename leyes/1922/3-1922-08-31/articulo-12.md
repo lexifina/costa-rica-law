@@ -1,4 +1,1 @@
-Artículo 12.- No podrán establecerse billares públicos, sin el pago
-del impuesto respectivo. La patente no podrá concederse para lugares
-donde no haya empleados de policía que los vigilen, ni para puntos que no
-sean céntricos.
+Artículo 12.- (Derogado por el artículo único de la ley N° 10759 del 15 de octubre de 2025)
