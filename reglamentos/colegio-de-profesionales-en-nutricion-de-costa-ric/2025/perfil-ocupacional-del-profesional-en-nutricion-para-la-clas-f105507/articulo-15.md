@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Funciones en Nutrición Pública
+Artículo 15.-Competencia en nutrición pública. Es competencia del nutricionista que se desempeña en esta área planificar, dirigir, coordinar y evaluar programas de Nutrición Pública a nivel nacional o internacional. Además, le compete la formulación y gestión de políticas públicas en nutrición, integración e interpretación de información epidemiológica para la toma de decisiones, liderar equipos de trabajo interdisciplinarios, así como la vigilancia y análisis crítico de la situación nutricional a nivel poblacional para proponer una adecuada respuesta por parte del sistema de salud.

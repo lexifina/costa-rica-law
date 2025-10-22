@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Funciones Asistenciales
+Artículo 5°-Competencia asistencial. Es competencia del nutricionista que labora en este campo la planificación, dirección, coordinación y evaluación de los servicios de nutrición y servicios de alimentación en el ámbito institucional y hospitalario a nivel nacional. Además, es responsable de la gestión de personal de perfil profesional, toma de decisiones gerenciales, formulación de normativa técnica, establecimiento de objetivos institucionales y desarrollo de planes, programas y proyectos con incidencia en el estado alimentario y situación nutricional de la población en general.
