@@ -1,0 +1,2 @@
+Artículo 17: Quórum para las sesiones de las comisiones de Fiestas Cívicas.
+El quórum para que pueda sesionar válidamente la Comisión de Fiestas Cívicas será el de la mayoría simple de sus integrantes, sea con tres de sus miembros.

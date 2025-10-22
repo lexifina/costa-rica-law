@@ -1,0 +1,1 @@
+Artículo 26. Comunicación a la Comisión sobre los fondos y donaciones recibidos. Todos los fondos y las donaciones que perciba la Comisión de Fiestas Cívicas deberán ser comunicados por el Tesorero en la sesión próxima inmediata que realice la Comisión, y deberán constar en el acta respectiva.

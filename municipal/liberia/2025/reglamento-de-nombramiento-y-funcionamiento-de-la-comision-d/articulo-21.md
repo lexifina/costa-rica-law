@@ -1,0 +1,2 @@
+Artículo 21: Autorizaciones para la celebración de las Fiestas Cívicas
+La Celebración de las Fiestas Cívicas se realizarán en la Plaza Camilo Reyes, debiendo solicitar el permiso al Concejo Municipal. Asimismo, le corresponde establecer las acciones que deben adoptarse para garantizar la devolución del sitio en las mismas condiciones a las originalmente entregadas o hacerse responsable por cualquier daño causado a los mismos.

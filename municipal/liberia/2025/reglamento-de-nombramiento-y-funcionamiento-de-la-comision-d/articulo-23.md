@@ -1,0 +1,3 @@
+Artículo 23-El presupuesto de la comisión. El presupuesto de la comisión podrá conformarse de la siguiente manera:
+a) Recursos incluidos en el presupuesto ordinario municipal, respaldados en la correspondiente estimación de ingresos, que incluya tanto recursos propios como los generados por el remate del campo ferial o puestos, y entidades estatales debidamente autorizadas por ley, entre otras fuentes de ingreso que estén acordes con la normativa vigente. La comisión no recibirá aportes en dinero, las donaciones que reciba deberán ser realizado mediante depósito en la cuenta corriente de la Municipalidad de Liberia.
+b) Recursos de la Ley N°9156 denominada "Ley Reguladora de los Derechos de Salida del Territorio Nacional".

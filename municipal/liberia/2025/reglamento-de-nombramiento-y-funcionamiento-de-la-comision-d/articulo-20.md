@@ -1,0 +1,1 @@
+Artículo 20: Legalización de libros. Los libros de actas a cargo del Secretario y los libros contables a cargo del Tesorero y del Contador, serán llevados máximo 10 días hábiles posterior al nombramiento de la comisión a la Auditoría Interna Municipal para su debida legalización.

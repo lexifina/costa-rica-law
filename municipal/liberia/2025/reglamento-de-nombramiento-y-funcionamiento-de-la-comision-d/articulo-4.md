@@ -1,0 +1,1 @@
+Artículo 4: La comisión de Fiestas Cívicas integrada por funcionarios es un órgano colegiado perteneciente a la Municipalidad de Liberia, cuya titularidad corresponde a un conjunto de personas físicas, sujetas a las disposiciones del Concejo Municipal como su superior jerárquico.

@@ -1,0 +1,1 @@
+Artículo 24-Ejecución de los gastos. Para la ejecución de los gastos deberán observarse las regulaciones establecidas en la Ley General de Contratación Pública y su Reglamento, y otras que le resulten aplicables.
