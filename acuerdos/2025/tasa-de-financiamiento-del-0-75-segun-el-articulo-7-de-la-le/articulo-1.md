@@ -1,0 +1,3 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+SISTEMA DE EMERGENCIAS 9-1-1
+El Sistema de Emergencias 9-1-1 comunica a todos los proveedores de telecomunicaciones recaudadores de la tasa de financiamiento del 0.75%, según el artículo 7 de la Ley 7566, que a partir de esta fecha se da inicio formal del proceso de inscripción, desinscripción y modificación mediante los siguientes formularios: F-FI-008 Solicitud de variación del contribuyente de la tasa parafiscal del Sistema de Emergencias 9-1-1, F-FI-009 Declaración jurada mensual de la tasa parafiscal del Sistema de Emergencias 9-1- 1 y F-FI-010 formulario de Autoliquidación de Sanciones Administrativas, los cuales pueden ser solicitados al correo electrónico recaudacion@911.go.cr.
