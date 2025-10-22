@@ -1,0 +1,6 @@
+Capítulo 4:
+Roles y Responsabilidades
+Artículo 8: Responsabilidad de la Corporación Municipal
+El Departamento de Patentes Municipales, previo a otorgar la autorización de comercio al aire libre, deberá obtener sendos Informes Técnicos de los departamentos Unidad Técnica de Gestión Vial y Departamento de Control Constructivo, que demuestren que la utilización de dichos espacios y mobiliarios, no contravienen el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012. En el caso de la contaminación sonora esta quedará bajo el control del Ministerio de Salud, área rectora y competente en la materia.
+Así mismo, la Corporación Municipal deberá asegurar que esta autorización no contraviene su Plan de Movilidad Activa Sostenible ni su Plan Vial Quinquenal de Conservación y Desarrollo, así como lo establecido en el Reglamento de Movilidad Peatonal.
+Los informes técnicos antes mencionados, deberán ser rendidos por ambas áreas dichas, en el plazo perentorio de tres días hábiles.

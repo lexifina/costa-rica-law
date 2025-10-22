@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE LA CRUZ
+El Concejo Municipal de la Municipalidad La Cruz, mediante el Acuerdo # 3-6 de la Sesión Ordinaria #109-2025, verificada por la Municipalidad La Cruz, el día 17 de setiembre del año 2025, autoriza la segunda publicación, en forma definitiva, del Reglamento de Comercio al Aire Libre de la Municipalidad de La Cruz Guanacaste., ttranscurrido el plazo de la primera publicación del Proyecto de Reglamento Comercio al Aire Libre, el cual fue autorizado por El Concejo Municipal de la Municipalidad de La Cruz, mediante el Acuerdo # 1-3 de la Sesión Ordinaria # 29-2023, celebrada el día 24 de mayo del 2023, y publicado el día jueves 21 de agosto del 2025, en el Diario Oficial La Gaceta. Alcance N° 106 a La Gaceta N° 155, sin que a la fecha correspondiente se presentaran oposiciones, se publica en forma definitiva
+REGLAMENTO DE COMERCIO AL AIRE LIBRE DE LA MUNICIPALIDAD DE
+LA CRUZ GUANACASTE
+Capítulo 1:
+Objetivo y alcance
+Artículo 1. Objeto
+Este reglamento tiene como objeto tutelar las actividades lucrativas que se derivan de la Ley de Comercio al Aire Libre, Ley No. 10.126 y normas conexas, para autorizar a las personas licenciatarias el desarrollo temporal de la actividad comercial en los espacios públicos, tales como aceras, parques, plazas, vía pública, calles u otros lugares públicos, adyacentes a los respectivos establecimientos comerciales, con la intención de promover y ampliar el comercio, el aprovechamiento del espacio público, la seguridad ciudadana y generar mayor actividad económica, en un marco de respeto del derecho al libre tránsito, la accesibilidad, el mantenimiento y la protección de los espacios públicos.

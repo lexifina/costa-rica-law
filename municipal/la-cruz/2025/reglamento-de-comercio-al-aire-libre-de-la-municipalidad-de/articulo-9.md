@@ -1,0 +1,3 @@
+Artículo 9: Notificaciones e inspecciones
+La Unidad Técnica de Gestión Vial, así como el Depto. De Inspección y notificación municipal serán los encargados de realizar periódicamente las inspecciones de las vías peatonales del Cantón, con el fin de verificar el cumplimiento del artículo 8 de este reglamento.
+En caso de que Unidad Técnica de Gestión Vial técnicamente determine la necesidad de mantenimiento, rehabilitación o construcción del espacio público donde una persona licenciataria tenga autorización de comercio al aire libre, procederá a realizar la notificación respectiva 8 días hábiles antes a la obra a esta persona licenciataria.

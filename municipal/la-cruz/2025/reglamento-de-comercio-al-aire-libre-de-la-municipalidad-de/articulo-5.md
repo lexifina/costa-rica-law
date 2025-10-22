@@ -1,0 +1,2 @@
+Artículo 5: Plazo de otorgamiento de la autorización de comercio al aire libre
+La autorización de comercio al aire libre se da para el desarrollo temporal de la actividad comercial en los espacios públicos, que corresponderá por plazo de un año, la autorización podrá ser prorrogable por el mismo plazo de otorgación previa solitud del licenciatario con 30 días naturales antes del vencimiento, sujeto a estudio de la administración concedente.
