@@ -1,0 +1,12 @@
+Artículo 16.-Funciones en nutrición pública.
+a) Participar en la implementación de proyectos y actividades de promoción de la salud, en el campo alimentario-nutricional, en todos los grupos de población y en los diferentes escenarios: familiar, comunitario, educativo, ambientes de trabajo y servicios de salud.
+b) Apoyar a los grupos organizados y equipos interdisciplinarios, en el campo de la nutrición, enfocado en la promoción de la salud y sus determinantes.
+c) Participar en el análisis de los datos obtenidos mediante valoraciones nutricionales antropométricas, bioquímicas, consumo de alimentos y dietéticas - a individuos y grupos, así como dar seguimiento y control a los usuarios.
+d) Colaborar en los procesos de elaboración, actualización, aplicación, seguimiento y evaluación de planes, programas, proyectos, estudios, instrumentos y emisión de normativa técnica, referidos a alimentación y nutrición, orientados a la protección de la salud de la población.
+e) Coordinar la adecuada ejecución de los procesos operativos estándar.
+f) Brindar acompañamiento técnico a colegas y profesionales de otras disciplinas, personas y entes usuarios y público en general, en materia propia de su competencia, para promover la protección y el mejoramiento de la salud alimentaria de la población.
+g) Integrar equipos transdisciplinarios, interdisciplinarios y multidisciplinarios en inspecciones de establecimientos de interés sanitario relacionados con alimentación y nutrición.
+h) Participar en la ejecución de programas o proyectos relacionados con la alimentación, nutrición y seguridad alimentaria, implementados por organismos nacionales e internacionales.
+i) Inspeccionar servicios de alimentación al público y expendio de alimentos, sodas y comedores escolares y todos los establecimientos que brindan alimentación a grupos a fin de garantizar el cumplimiento de las regulaciones sanitarias vigentes. j) Participar en el control del registro sanitario y etiquetado nutricional de productos alimenticios que se expenden en los establecimientos comerciales del área geográfica para verificar cumplimiento de la normativa.
+k) Participar junto con otros profesionales en la habilitación de centros infantiles, centros de atención al adulto mayor, centros de atención nutricional y establecimientos de salud.
+l) Coordinar con actores sociales de la comunidad actividades de seguridad alimentaria nutricional y promoción de una sana cultura alimentaria-nutricional en todos los grupos etarios de la comunidad.
