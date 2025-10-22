@@ -13,3 +13,4 @@ Integración y deberes de los "Equipos de Gestión de Riesgos" del Sistema Espec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-13 | la propia norma |
+| 2 | 2025-10-22 | Circular 198 (2025-10-22) |
