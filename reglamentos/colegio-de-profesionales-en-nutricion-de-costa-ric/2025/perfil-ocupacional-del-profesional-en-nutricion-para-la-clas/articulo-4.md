@@ -1,0 +1,13 @@
+CAPÍTULO III
+Ámbito de acción de la profesión
+Artículo 4º-Ámbito de acción: el profesional ubicado en la clase Nutricionista 2 (N2) desarrolla sus actividades en el sector público, privado o ambos, tanto a nivel nacional como en organismos internacionales, aplicando sus conocimientos, habilidades, destrezas, actitudes y aptitudes en nutrición relacionadas con:
+a) dietética,
+b) dieto terapia,
+c) nutrición clínica,
+e) nutrición pública,
+f) seguridad alimentaria y nutricional,
+g) servicios de alimentación,
+h) industria alimentaria y de nutrientes*
+i) investigación,
+j) docencia y educación nutricional
+*El área de industria alimentaria y de nutrientes actualmente se desempeña únicamente en el sector privado.
