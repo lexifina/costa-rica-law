@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Funciones en Docencia
+Artículo 9º-Competencia en docencia. Le compete al nutricionista que labora en este campo la conducción, control y evaluación de programas de educación universitaria formal a nivel de grado y posgrado para la formación de profesionales en Nutrición y otros profesionales de las ciencias de la salud. Además, es responsable de la coordinación de departamentos o unidades académicas, de personal docente y administrativo, toma de decisiones administrativas, implementación de estrategias pedagógicas efectivas, orientación de objetivos e implementación de planes y proyectos académicos en educación superior.
