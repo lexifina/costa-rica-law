@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-12 | la propia norma |
+| 2 | 2025-10-22 | Reglamento municipal 76 (2025-10-22) |
