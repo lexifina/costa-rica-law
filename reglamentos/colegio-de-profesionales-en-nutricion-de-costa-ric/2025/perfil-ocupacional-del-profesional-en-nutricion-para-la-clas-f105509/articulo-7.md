@@ -1,0 +1,3 @@
+CAPÍTULO V
+Funciones en investigación
+Artículo 7º-Competencia en investigación. Al nutricionista que trabaja en esta área le compete la gestión y coordinación de labores técnico-profesionales en el campo de la nutrición como responsable del equipo de investigación o de manera independiente en investigaciones cuyos resultados servirán de insumo para el desarrollo de programas o políticas de trascendencia regional o nacional para contribuir a la solución de problemas nutricionales complejos con fundamento en la evidencia científica y con estricto apego a los principios éticos que rigen su profesión y bioéticos propios de la investigación.
