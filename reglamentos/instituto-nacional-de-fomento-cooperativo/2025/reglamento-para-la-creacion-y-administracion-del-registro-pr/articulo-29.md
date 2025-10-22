@@ -1,0 +1,2 @@
+Artículo 29. Informe positivo recomendador del MEIC
+La propuesta de Reglamento para la creación y administración del registro precalificado de peritos externos y la prestación de sus servicios ante el departamento de financiamiento del INFOCOOP, fue sometida a análisis y aprobación de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio, la cual se acredita que cumple con los principios de Mejora Regulatoria de acuerdo al informe emitido por la Dirección de Mejora Regulatoria número: DMR-DAR-INF-236-2025, del diecisiete de octubre del 2025.

@@ -1,0 +1,2 @@
+Artículo 12. Confidencialidad.
+El profesional o empresa de peritaje registrado deberá guardar la confidencialidad y exclusividad de la información y material del que sea titular o que posea del INFOCOOP, y a la cual tenga acceso, en virtud del secreto profesional y el acceso a la información de las cooperativas, y cualquier tercero que tenga participación directa en el trámite llevado en Financiamiento.
