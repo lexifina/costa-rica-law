@@ -1,4 +1,4 @@
-Artículo 4°-Definiciones o terminologías a considerar en este Reglamento.
+Artículo 4.-Definiciones o terminologías a considerar en este Reglamento.
 Aportes LPT: Corresponden a las contribuciones obreras y patronales que surgen con motivo de la entrada en vigor de la Ley de Protección al Trabajador y son los establecidos en el artículo 13 ibidem.
 CCSS: Siglas que identifican a la Caja Costarricense de Seguro Social. Institución autónoma a la cual le corresponde el gobierno y la administración de los seguros sociales.
 Costas procesales: Cantidad de dinero en que incurre la CCSS, durante la tramitación de un proceso de cobro judicial.
@@ -9,8 +9,8 @@ Cuota Obrera: Es el aporte que realiza un trabajador a la CCSS por razón de su 
 Cuota Patronal: Es el aporte que realiza una persona física o jurídica a la CCSS debido a su relación laboral como empleador con sus trabajadores.
 Cuota de Trabajador Independiente: Es el aporte que realiza un trabajador independiente a la CCSS, debido a su actividad generadora de ingresos.
 DESAF: Siglas que identifican a la Dirección de Desarrollo Social y Asignaciones Familiares.
-Estado de cuenta: documento emitido por la CCSS que contiene el detalle de los períodos, conceptos y montos adeudados por el cotizante a una fecha determinada
-Facturas por servicios médicos: Costo asignado a las prestaciones del Seguro de Salud, brindadas al trabajador asegurado cuyo patrono se encuentra moroso por más de un mes en el pago de las cuotas obrero-patronales, así como al trabajador independiente que presente esta situación.
+Estado de cuenta: documento emitido por la CCSS que contiene el detalle de los períodos, conceptos y montos adeudados por el cotizante a una fecha determinada Facturas por servicios médicos: Costo asignado a las prestaciones del Seguro de Salud, brindadas al trabajador asegurado cuyo patrono se encuentra moroso por más de un mes en el pago de las cuotas obrero-patronales, así como al trabajador independiente que presente
+esta situación.
 FODESAF: Siglas que identifican al Fondo de Desarrollo Social y Asignaciones Familiares.
 Gastos administrativos: Cantidad de dinero en que incurre la CCSS, en la gestión administrativa y judicial de cobro.
 Honorarios: Retribución o pago por servicios de Abogacía y Notariado.
@@ -25,5 +25,5 @@ Recargo: Se refiere a los montos que se cobran por presentación tardía de las 
 SICERE: Siglas que identifican al Sistema Centralizado de Recaudación de la CCSS.
 Sociedad disuelta: Es aquella persona jurídica a la que se le suspende el desarrollo de su actividad social y entra en el proceso para terminar su operación y llegar a su liquidación, como consecuencia de la falta de pago, por tres periodos consecutivos del impuesto a las personas jurídicas (Artículo 7 de la Ley N° 9428), o en su defecto aquellas que suspenden el desarrollo de su actividad social conforme lo establecido en el artículo 201 siguientes y concordantes del Código de Comercio.
 Trabajador Independiente: Para los efectos del presente Reglamento, se entenderá como trabajador independiente aquella persona física que de manera autónoma ejecuta una actividad económica o trabajo sin subordinación y que puede organizarse a través de una unidad económica, con el fin de ordenar los recursos e insumos que le permitan producir bienes o servicios generadores de ingresos de carácter no salarial, asumiendo los riesgos de dicha actividad. El trabajador independiente ejerce el control de las actividades y por cuenta propia toma las decisiones más importantes de una unidad económica. Puede trabajar solo o en colaboración con otros trabajadores independientes y proporcionar o no trabajo a terceros.
-Trabajador Independiente inactivo: toda persona física que se encuentra inscrita como trabajador independiente en los registros de la Caja, pero que suspendió su actividad como tal, mediante los procedimientos y trámites formales para tales efectos
+Trabajador Independiente inactivo: toda persona física que se encuentra inscrita como trabajador independiente en los registros de la Caja, pero que suspendió su actividad como tal, mediante los procedimientos y trámites formales para tales efectos.
 Unidad económica: persona jurídica a través de la cual se desarrolla un trabajo o actividad económica.

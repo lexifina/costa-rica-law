@@ -1,8 +1,5 @@
-SECCIÓN VI
-Patrono y Trabajadores Independientes
-con procedimientos administrativos
 Artículo 11.-De los patronos y trabajadores independientes con procedimientos administrativos para el cobro de períodos retroactivos.
-Para efectos de condonar multas, recargos e intereses de los patronos y trabajadores independientes que tengan períodos retroactivos, la deuda debe encontrarse firme en sede administrativa y debidamente facturada en el Sistema Centralizado de Recaudación, en adelante (SICERE).
+Para efectos de condonar multas, recargos, intereses y facturas por servicios médicos de los patronos y trabajadores independientes que tengan períodos retroactivos, la deuda debe encontrarse firme en sede administrativa y debidamente facturada en el Sistema Centralizado de Recaudación, en adelante (SICERE).
 Si el procedimiento de inspección se encuentra con el informe resolutivo notificado, el administrado deberá presentar ante el Servicio de Inspección un escrito mediante el cual renuncia a presentar los recursos que le asisten, en sede administrativa contra dicha resolución.
-Si el procedimiento de inspección se encuentra en la fase recursiva, el administrado deberá presentar ante la CCSS, un escrito mediante el cual desiste de los recursos interpuestos, así como a cualquier reclamación futura en esta instancia.
-Realizado lo anterior, el Servicio de Inspección procederá a gestionar la facturación adicional por períodos retroactivos, con el fin de que el interesado presente la solicitud de condonación, conforme lo establecido en el artículo 5 de este reglamento.-
+Si el procedimiento de inspección se encuentra en la fase recursiva, el administrado deberá presentar ante la CCSS, un escrito mediante el cual desiste de los recursos interpuestos, así como a cualquier reclamación futura en esta instancia, sin perjuicio de las acciones judiciales que el administrado decida interponer en la vía contencioso-administrativa.
+Realizado lo anterior, el Servicio de Inspección procederá a gestionar la facturación adicional por períodos retroactivos, con el fin de que el interesado presente la solicitud de condonación, conforme lo establecido en el artículo 5 de este reglamento.

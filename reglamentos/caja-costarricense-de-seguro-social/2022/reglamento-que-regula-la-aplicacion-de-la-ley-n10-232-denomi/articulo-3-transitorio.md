@@ -1,2 +1,4 @@
-Transitorio III. Se modifica el plazo establecido en el artículo 5°, y en el párrafo primero y segundo del Transitorio II del presente reglamento, con el fin de ampliarlos al 14 de noviembre de 2024, a efectos de que los patronos y trabajadores independientes puedan presentar hasta esa fecha, las solicitudes de condonación a que se refieren esos artículos.
-(Así adicionado en sesión N° 9394 del 7 de diciembre de 2023)
+Transitorio III
+Los trabajadores independientes que a la fecha de la publicación de la reforma al presente reglamento con motivo de la promulgación de la Ley N°10.604, registren la suscripción de un convenio de pago por condonación y la presentación de una solicitud de prescripción conforme la Ley N°10.363 y su reglamento, podrán solicitar por una única vez, la condonación de multas, intereses, recargos y facturas de servicios médicos con base en lo dispuesto en la Ley N°10.604 y este reglamento, cuando se acredite lo siguiente:
+a)Que la solicitud de prescripción fue resuelta de forma favorable a estos y en un plazo mayor al establecido en el artículo N°31 del Reglamento de aseguramiento contributivo delos trabajadores independientes.
+b)Que la finalización por incumplimiento del convenio de pago por condonación, se realizó en una fecha posterior a la presentación de la solicitud de prescripción.
