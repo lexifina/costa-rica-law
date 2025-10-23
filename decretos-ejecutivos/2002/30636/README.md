@@ -15,3 +15,4 @@ Crea el Registro Oficial de Certificadores de Uso Conforme del Suelo
 | --- | --- | --- |
 | 1 | 2002-08-28 | la propia norma |
 | 2 | 2024-06-12 | SINALEVI (sin norma nombrada) |
+| 3 | 2025-10-23 | SINALEVI (sin norma nombrada) |
