@@ -26,3 +26,4 @@ Reglamento que Regula la Formalización de Acuerdos de Pago por deudas de Patron
 | 11 | 2024-03-21 | Reglamento 9422 (2024-03-21) |
 | 12 | 2024-05-30 | Reglamento 9453 (2024-05-30) |
 | 13 | 2024-07-23 | Reglamento 9468 (2024-07-23) |
+| 14 | 2025-10-23 | Reglamento 9550 (2025-10-23) |
