@@ -1,1 +1,0 @@
-Artículo 19.—Será responsabilidad del gestor capacitar al personal encargado del manejo de residuos, dotarlo de equipo de protección personal, identificación, ropa de trabajo con aditamentos reflectivos y demás implementos así como condiciones laborales conforme a la normativa vigente en materia laboral y de salud ocupacional.

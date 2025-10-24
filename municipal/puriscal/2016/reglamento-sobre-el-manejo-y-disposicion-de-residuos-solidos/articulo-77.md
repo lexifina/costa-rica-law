@@ -1,1 +1,0 @@
-Artículo 77.—Se prohíbe a toda persona, distinta a las del servicio de recolección o aseo de vías, remover o extraer el contenido total o parcial de los recipientes para residuos sólidos ordinarios, una vez colocados en el sitio de recolección.

@@ -1,1 +1,0 @@
-Artículo 13.—Toda edificación para uso multifamiliar de cualquier tipo, institucional y comercial u otras que la municipalidad determine, tendrán un sistema de almacenamiento colectivo de residuos sólidos ordinarios que deberá considerar la separación de los residuos desde la fuente, para lo cual deberán cumplir en la ley GIRS 8839, en el artículo 13 y su reglamento.

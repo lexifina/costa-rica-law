@@ -1,1 +1,0 @@
-Artículo 31.—Cuando por naturaleza de los productos que ofrecen los vendedores ambulantes y los de puestos fijos en vías y áreas públicas se generan residuos, deberán disponer de recipientes para el depósito de estas, accesibles al público.

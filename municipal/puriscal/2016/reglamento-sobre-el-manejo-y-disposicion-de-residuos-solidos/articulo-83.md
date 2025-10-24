@@ -1,1 +1,0 @@
-Artículo 83.—Se prohíbe la disposición o abandono de basuras, cualquiera sea su procedencia, a cielo abierto, en vías o áreas públicas, en lotes de terreno y en los cuerpos de aguas superficiales o subterráneas.

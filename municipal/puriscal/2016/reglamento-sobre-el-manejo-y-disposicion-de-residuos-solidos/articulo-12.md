@@ -1,1 +1,0 @@
-Artículo 12.—Ante la imposibilidad de una recolección puerta a puerta, en caso de ser necesario la municipalidad puede establecer establecerá un el sistema de almacenamiento colectivo de residuos, de acuerdo con las características del equipo de recolección y transporte que utilice.

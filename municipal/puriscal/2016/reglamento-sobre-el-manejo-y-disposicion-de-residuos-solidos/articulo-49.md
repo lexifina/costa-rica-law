@@ -1,1 +1,0 @@
-Artículo 49.—Los residuos de manejo especial que se originen en las unidades habitacionales deberán ser recolectados en horarios y rutas definidos y comunicados al usuario, mientras no exista o no estén disponibles en el país otras opciones de manejo o alternativas tecnológicas para la valorización o tratamiento de estos residuos.

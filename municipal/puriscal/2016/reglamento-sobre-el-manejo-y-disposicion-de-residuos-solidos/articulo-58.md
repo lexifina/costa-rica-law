@@ -1,1 +1,0 @@
-Artículo 58.—Las estaciones de transferencia para su operación deberán contar con el permiso sanitario de funcionamiento, de acuerdo a lo establecido en el Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud.

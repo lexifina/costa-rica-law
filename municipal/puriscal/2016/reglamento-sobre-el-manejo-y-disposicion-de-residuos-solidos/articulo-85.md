@@ -1,1 +1,0 @@
-Artículo 85.—Queda prohibida la entrega de animales muertos, excretas de animales residuos provenientes de fincas, tampoco se recogerán residuos de jardín, árboles de navidad, residuos peligrosos, residuos infectocontagiosos. Para el caso de los residuos electrónicos, se promoverán campañas trimestrales de recolección y disposición de los mismos.

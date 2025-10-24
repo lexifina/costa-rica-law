@@ -1,1 +1,0 @@
-Artículo 45.—Las empresas, organizaciones o instituciones que se dediquen o realicen procesos de reciclaje de residuos sólidos deben de cumplir con los requerimientos que establece la legislación vigente.

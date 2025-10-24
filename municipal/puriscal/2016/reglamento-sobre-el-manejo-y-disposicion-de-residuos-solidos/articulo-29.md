@@ -1,1 +1,0 @@
-Artículo 29.—Los recipientes para almacenar de residuos que se refieren los artículos anteriores, serán para uso exclusivo de los peatones, y no se podrá depositar en ellos residuos generados en el interior de las edificaciones.

@@ -1,1 +1,0 @@
-Artículo 67.—La zona de descarga contará con techumbre que cubra la tolva o ranura y el vehículo recolector en la zona de descarga. La altura de la techumbre será como mínimo 6 metros y cada carril de descarga deberá tener una anchura mínima de 3 metros.

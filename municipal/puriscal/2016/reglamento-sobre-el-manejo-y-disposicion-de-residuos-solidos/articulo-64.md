@@ -1,1 +1,0 @@
-Artículo 64.—Las estaciones de transferencia deberán contar con programas permanentes para el control de fauna nociva que cuenten como mínimo los productos utilizados en la fumigación y la fecha de las mismas.

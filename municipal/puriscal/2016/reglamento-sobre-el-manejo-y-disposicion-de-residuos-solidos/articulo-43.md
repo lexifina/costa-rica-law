@@ -1,1 +1,0 @@
-Artículo 43.—Las empresas, organizaciones o instituciones que se dediquen a la valorización de los residuos sólidos ordinarios deben realizar las acciones necesarias para que los sistemas utilizados sean técnica, financiera, social y ambientalmente sostenibles.

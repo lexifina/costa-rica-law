@@ -1,1 +1,0 @@
-Artículo 81.—Queda prohibida la disposición de residuos sólidos ordinarios en los cuerpos receptores definidos en el Reglamento de Vertido y Reúso de Aguas Residuales Decreto Nº 26042-S-MINAE, así como caños, alcantarillas, vías y parajes públicos y propiedades públicas y privadas no autorizadas para tal fin.

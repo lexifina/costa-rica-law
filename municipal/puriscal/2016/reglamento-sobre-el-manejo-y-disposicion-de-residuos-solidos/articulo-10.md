@@ -1,1 +1,0 @@
-Artículo 10.—Las bolsas conteniendo residuos sólidos ordinarios se colocarán en un sitio de fácil acceso y recolección según rutas y horarios establecidos por el servicio de recolección, evitando la obstrucción peatonal, vehicular y escorrentía de las aguas pluviales.

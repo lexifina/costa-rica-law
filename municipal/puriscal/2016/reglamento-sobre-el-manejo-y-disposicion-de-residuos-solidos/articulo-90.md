@@ -1,3 +1,0 @@
-Artículo 90.—De las inspecciones. Los funcionarios municipales encargados de las labores de inspección deberán corroborar en el campo los casos que se pueden generar como prohibiciones o infracciones al presente reglamento, podrán hacerse acompañar de funcionarios del Ministerio de Salud o la Fuerza Pública, a raíz de denuncia o percibimiento de dicha situación.
-El procedimiento para realizar la inspección deberá ser el mismo que se sigue para cubrir otro tipo de inspecciones, se deberá generar un reporte que será trasladado a las personas encargadas de las unidades de servicios comunales y gestión ambiental quienes realizarán el procedimiento correspondiente.
-Puriscal, 29 de enero del 2016.

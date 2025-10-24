@@ -1,1 +1,0 @@
-Artículo 50.—Los residuos de manejo especial que se originen en empresas, locales comerciales, industrias u otros deberán ser manejados y dispuestos por estos entes, aplicando la responsabilidad extendida al productor, claramente establecidos en las clausulas o normativa de la adquisición de bienes y servicios.

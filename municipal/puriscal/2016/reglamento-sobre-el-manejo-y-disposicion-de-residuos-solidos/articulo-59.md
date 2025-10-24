@@ -1,1 +1,0 @@
-Artículo 59.—Las estaciones de transferencia deberán contar con sistemas que garanticen los límites máximos permitidos que les sean aplicables en materia de emisiones a la atmósfera, vertido de aguas residuales, ruido y vibraciones; de acuerdo con la reglamentación vigente.
