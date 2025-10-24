@@ -1,0 +1,1 @@
+Artículo 76. Para el caso del pago de la liquidación de vacaciones por finalización de relación laboral este se realizará en base al promedio de las remuneraciones ordinarias y extraordinarias devengados de los últimos seis meses.

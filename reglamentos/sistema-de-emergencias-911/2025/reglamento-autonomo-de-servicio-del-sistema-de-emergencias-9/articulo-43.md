@@ -1,0 +1,1 @@
+Artículo 43. El sistema de pago será de forma mensual con adelantos quincenales, podrá hacerse por medio de depósito o transferencia bancaria a la cuenta que la persona notifique y que pertenezca a un banco del sector público.

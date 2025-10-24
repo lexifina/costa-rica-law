@@ -1,0 +1,1 @@
+Artículo 62. Los ascensos interinos podrán efectuarse a la persona funcionaria que temporalmente asuma la totalidad de un puesto superior, cuyo titular se ausente o se requiera atender una necesidad impostergable bajo las condiciones que se definan en la norma institucional.

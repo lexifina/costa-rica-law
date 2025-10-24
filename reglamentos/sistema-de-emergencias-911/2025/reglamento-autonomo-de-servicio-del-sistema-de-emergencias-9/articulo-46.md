@@ -1,0 +1,1 @@
+Artículo 46. Pago de anualidad, el incentivo por anualidad se concederá únicamente mediante la evaluación del desempeño para aquellos servidores que hayan cumplido con una calificación mínima de "muy bueno" o nivel 3 de 80 a 89.99, según la política vigente.

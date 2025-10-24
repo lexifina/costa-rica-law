@@ -1,0 +1,1 @@
+Artículo 120. Para el caso de formación profesional, el 9-1-1 asumirá, conforme al acuerdo respectivo y a la normativa presupuestaria aplicable, el pago directo a la entidad que brinde el programa de formación, sin que ello implique la entrega de recursos económicos individuales a las personas funcionarias participantes.

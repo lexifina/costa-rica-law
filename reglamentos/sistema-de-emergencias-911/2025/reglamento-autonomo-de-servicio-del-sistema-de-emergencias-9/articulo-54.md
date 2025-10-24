@@ -1,0 +1,3 @@
+Artículo 54. El porcentaje por dedicación exclusiva será calculado sobre el salario base del puesto que desempeña. Las personas funcionarias que contaban con un contrato de dedicación exclusiva antes de la entrada en vigor de la Ley N° 9635, se mantendrán según lo indicado en artículo 5 del Reglamento de dicha Ley. El personal que adquiera este sobresueldo por primera vez, se le aplicarán los porcentajes definidos en el artículo 35 de la Ley N° 2166, de la siguiente forma:
+a. 25% para profesionales con el nivel de licenciatura u grado académico superior.
+b. 10% para profesionales con el nivel de bachiller universitario.

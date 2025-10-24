@@ -1,0 +1,1 @@
+Artículo 129. El 9-1-1 establecerá las comisiones de salud ocupacional que, a juicio del Consejo de Salud Ocupacional, sean necesarias, en los términos que expresamente señala el ordenamiento jurídico.

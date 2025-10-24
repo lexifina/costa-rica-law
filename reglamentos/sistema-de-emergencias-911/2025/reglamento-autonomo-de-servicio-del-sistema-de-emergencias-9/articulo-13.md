@@ -1,0 +1,1 @@
+Artículo 13. El expediente de personal será confidencial y sólo tendrán acceso a éste: el titular del expediente, la Dirección, Capital Humano, la Auditoría Interna, el Superior Jerárquico inmediato de la persona funcionaria y cualquier otra instancia que permita la normativa.

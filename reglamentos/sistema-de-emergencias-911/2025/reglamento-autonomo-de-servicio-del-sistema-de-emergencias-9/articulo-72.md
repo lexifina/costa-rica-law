@@ -1,0 +1,1 @@
+Artículo 72. El período de vacaciones se podrá dividir en tres fracciones, como máximo, adicional a los recesos en períodos especiales. Se exceptúan los casos de las personas funcionarias que cuenten con saldos de periodos anteriores.

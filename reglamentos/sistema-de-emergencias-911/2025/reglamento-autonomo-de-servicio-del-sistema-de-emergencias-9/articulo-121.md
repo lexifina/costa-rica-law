@@ -1,0 +1,1 @@
+Artículo 121. Según los objetivos de formación profesional fijados por el 9-1-1 en los planes institucionales respectivos, la institución podrá asumir directamente, en el marco de los acuerdos suscritos a el costo de matrícula, materias, laboratorios, carné, requisitos y derechos de graduación u otros rubros estrictamente vinculados al programa de formación.

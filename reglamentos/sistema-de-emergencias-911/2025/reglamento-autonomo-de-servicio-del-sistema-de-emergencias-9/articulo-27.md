@@ -1,0 +1,1 @@
+Artículo 27. El Superior Jerárquico de la Unidad comunicará en cada caso al personal a cargo, el requerimiento de laborar horas extraordinarias, procurando que sea con la debida anticipación. El no laborar el tiempo extraordinario podrá ser considerado como falta grave para los efectos de una posible sanción, salvo causa justificada.

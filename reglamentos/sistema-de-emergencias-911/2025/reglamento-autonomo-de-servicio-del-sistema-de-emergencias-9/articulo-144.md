@@ -1,0 +1,2 @@
+Artículo 144. En defecto de disposiciones propias de este reglamento, se tendrán como supletorias en primer lugar las disposiciones de derecho público que configuran el llamado derecho laboral administrativo y, en segundo término, los principios y disposiciones del Código de Trabajo.
+Todo lo que no se encuentre definido en este Reglamento será regulado por medio de las políticas y procedimientos administrativos.

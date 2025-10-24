@@ -1,0 +1,1 @@
+Artículo 17. Toda persona funcionaria del 9-1-1, estará amparado, por una acción de personal que deberá contener, en términos amplios, las cláusulas y estipulaciones particulares que regulen la prestación de servicios, según lo dispuesto en los artículos 23 y 24 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 7. Toda plaza vacante debe seguir el proceso concursal correspondiente y la persona deberá cumplir con el proceso de reclutamiento y selección, con excepción de los puestos que se encuentren sujetos al plan de sucesión.

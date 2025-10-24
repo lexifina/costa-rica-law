@@ -1,0 +1,1 @@
+Artículo 82. El 9-1-1 promoverá la posibilidad de ingreso a personas con discapacidad y al derecho al empleo adecuado a sus condiciones y necesidades personales, en los puestos que por sus características puedan ser ocupados.

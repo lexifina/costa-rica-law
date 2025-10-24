@@ -1,0 +1,1 @@
+Artículo 20. El 9-1-1 brindará a la persona funcionaria copia del movimiento de personal, considerando estas últimas como los cambios que ocurran en su vida laboral siempre que sean formalmente acordados.

@@ -1,0 +1,1 @@
+Artículo 59. Cuando se presente un traslado de una persona de una institución pública al 9-1-1 y el nuevo cargo que asuma requiere el pago del porcentaje de dedicación exclusiva o carrera profesional, estos serán reconocidos de acuerdo con las condiciones establecidas en la Ley N°9635.

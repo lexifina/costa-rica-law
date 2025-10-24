@@ -1,0 +1,2 @@
+Artículo 111. Una vez cumplidos los seis meses, el permiso podrá ser prorrogado durante el tiempo que médicamente sea necesario, para lo cual la funcionaria interesada presentará un certificado médico emitido por un profesional en el cual se justifique la ampliación de dicho periodo.
+Para cualquiera que sea el acuerdo, se deberá registrar por escrito la solicitud de la funcionaria y el visto bueno de su Superior Jerárquico.

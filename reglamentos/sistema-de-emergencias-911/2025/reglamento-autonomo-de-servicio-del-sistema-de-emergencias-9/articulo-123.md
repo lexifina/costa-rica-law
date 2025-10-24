@@ -1,0 +1,1 @@
+Artículo 123. Estos recursos se ejecutarán mediante los mecanismos institucionales previstos en los convenios respectivos y serán fiscalizados por Capital Humano para determinar que su uso se empleó estrictamente en el programa de formación y capacitación.

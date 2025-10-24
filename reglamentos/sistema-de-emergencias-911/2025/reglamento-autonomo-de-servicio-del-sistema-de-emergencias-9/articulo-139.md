@@ -1,0 +1,1 @@
+Artículo 139. El Sistema de Emergencias 9-1-1 deberá incluir al estudiante dentro del seguro de riesgos de trabajo durante el tiempo que ejecute la pasantía, práctica supervisada o trabajo comunal universitario y estudiantil

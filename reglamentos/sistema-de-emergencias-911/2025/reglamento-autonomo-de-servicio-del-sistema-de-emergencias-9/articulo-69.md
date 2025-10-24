@@ -1,0 +1,1 @@
+Artículo 69. La Carrera Administrativa se sujetará a las disposiciones que se establecen en la normativa institucional, el presente Reglamento o a las que en el futuro convengan los representantes del Sistema y el personal.

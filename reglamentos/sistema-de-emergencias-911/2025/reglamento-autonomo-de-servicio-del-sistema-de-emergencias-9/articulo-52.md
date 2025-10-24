@@ -1,0 +1,1 @@
+Artículo 52. El pago de sobresueldos al ser de naturaleza contractual y temporal no constituye un beneficio permanente ni un derecho adquirido, por lo que, una vez finalizado el contrato o extinguidas las condiciones que dieron origen al pago, la Administración no tendrá la obligación de renovarlo.

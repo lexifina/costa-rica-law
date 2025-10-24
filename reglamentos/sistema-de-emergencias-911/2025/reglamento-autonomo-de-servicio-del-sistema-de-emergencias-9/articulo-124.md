@@ -1,0 +1,10 @@
+Artículo 124. La selección de participantes se hará bajo criterios de objetividad, transparencia y alineación institucional definidos en políticas internas. Las personas funcionarias que voluntariamente decidan participar en programas de formación profesional desarrollados en el marco de acuerdos suscritos por el 9-1-1 tendrán las siguientes obligaciones:
+a. Suscribir un contrato con el 9-1-1, en el cual los términos del contrato serán entre la persona funcionaria y la Institución, y las condiciones estipuladas se entenderán por aceptadas por los interesados.
+b. Cumplir con los requisitos de asistencia, rendimiento académico y entrega de productos o evaluaciones que se establezcan en el programa o en el convenio respectivo.
+c. No interrumpir los estudios, salvo circunstancias ajenas a su control e injerencia que así lo obliguen, así como informar oportunamente a su Superior Jerárquico y a la Unidad de Capital Humano sobre cualquier situación que afecte su participación o desempeño.
+d. Presentar al 9-1-1 las certificaciones, constancias, informes o trabajos finales derivados del proceso, según lo requiera el convenio.
+e. Laborar el doble del tiempo invertido en el proceso, posterior a la finalización de este.
+f. Rendir una garantía por un monto estimado del 20% del costo total del programa, la cual podrá otorgarse mediante los mecanismos dispuestos para rendir garantías conforme al ordenamiento jurídico costarricense.
+g. En caso de que la persona funcionaria presente su renuncia o sea despedida antes de cumplir con el tiempo que debe laborar por haber sido beneficiario del programa, este deberá cancelar al 9-1-1 el monto proporcional de los salarios por el período no laborado.
+h. Aplicar en el ejercicio de sus funciones los conocimientos adquiridos, en coherencia con las necesidades institucionales que justificaron su participación.
+i. Respetar las condiciones establecidas en las políticas internas, convenios de cooperación y acuerdos específicos, evitando cualquier conducta que implique un incumplimiento contractual o disciplinario.

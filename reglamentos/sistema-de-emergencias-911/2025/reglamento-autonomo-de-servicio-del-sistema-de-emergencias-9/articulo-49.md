@@ -1,0 +1,1 @@
+Artículo 49. Los recargos no pueden exceder más de tres meses consecutivos, ya que podría convertirse en una condición permanente, lo que estaría causando una modificación al contrato de trabajo y afectando los intereses de la persona funcionaria.

@@ -1,0 +1,2 @@
+Capítulo III. De la relación de empleo
+Artículo 16. Las relaciones de empleo entre las personas funcionarias y el 9-1-1 se regirán de conformidad con las disposiciones del presente Reglamento, las políticas que emita la administración para normar los diferentes procesos y procedimientos, así como otras leyes, reglamentos y disposiciones conexas y complementarias, con lo cual la persona funcionaria debe conocer dichas disposiciones.

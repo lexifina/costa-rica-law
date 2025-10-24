@@ -1,0 +1,1 @@
+Artículo 114. No se concederán permisos sin goce de salario, cuando la persona funcionaria tenga vacaciones acumuladas de periodos cumplidos, que permitan en su totalidad o proporcionalmente el tiempo requerido. Se exceptúa de lo regulado en esta norma los permisos por asuntos sindicales.

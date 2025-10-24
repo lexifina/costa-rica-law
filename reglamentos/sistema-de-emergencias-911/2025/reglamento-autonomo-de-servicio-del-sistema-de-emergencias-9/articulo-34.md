@@ -1,0 +1,1 @@
+Artículo 34. En el caso del personal operador y supervisor, el Superior Jerárquico inmediato establecerá mediante roles de trabajo el o los días libres por semana, que se deberán asignar dependiendo de la Jornada Laboral. Dichos días debe quedar claramente establecidos para todos los efectos y por escrito.
