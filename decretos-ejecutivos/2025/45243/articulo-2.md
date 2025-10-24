@@ -1,0 +1,3 @@
+Artículo 2.-Del Ministro(a) de Ciencia, Innovación, Tecnología y Telecomunicaciones.
+El ministro(a) es la persona jerarca suprema del MICITT responsable de los programas específicos que se ejecuten en las áreas sustantivas de Ciencia, Tecnología, Innovación y Telecomunicaciones. Además, es rector(a) del Sector y del Sistema Nacional de Ciencia, Tecnología e Innovación.
+Bajo su dependencia tendrá un(a) viceministro(a) de Ciencia, Tecnología e Innovación; y un(a) viceministro(a) de Telecomunicaciones; seis Unidades Asesoras o Staff; una Unidad de apoyo operativo transversal; la Dirección de Gobernanza Digital y Certificadores de Firma Digital; la Dirección de Ciberseguridad, y la Dirección Administrativa Financiera, para cumplir con sus funciones.

@@ -1,0 +1,1 @@
+Artículo 12.- Estructura de la Secretaría de Planificación Institucional y Sectorial. La Secretaría de Planificación Institucional y Sectorial estará conformada por dos unidades: Unidad de Planificación y Control y la Unidad de Estudios y Estadísticas.

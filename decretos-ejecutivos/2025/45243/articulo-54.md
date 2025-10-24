@@ -1,0 +1,15 @@
+Artículo 54.- Funciones de la Dirección de Apropiación Social del Conocimiento. Las funciones de la Dirección de Apropiación Social del Conocimiento son las siguientes:
+a. Proponer a las autoridades del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones, las políticas públicas que permitan a la población una ruta clara de acceso, de uso responsable y de desarrollo de oportunidades para la producción del conocimiento en Ciencia, Tecnología e Innovación (CTI).
+b. Asesorar a las autoridades ministeriales, para la toma de decisiones a nivel institucional, sectorial y nacional, en temas relacionados con democratización y apropiación social de la Ciencia, la Tecnología y la Innovación.
+c. Promover estrategias para la articulación y conformación de alianzas y redes entre la Academia, Empresa, Estado y Sociedad, que favorezcan la cultura y formación en Ciencia y Tecnología.
+d. Propiciar que el enfoque de género, territorialidad e igualdad sea explícito y demostrable en el acceso, la formación, empleo, producción y disfrute de los productos de la ciencia y la tecnología.
+e. Promover el uso de información sobre el entorno del Sistema Nacional de Ciencia, Tecnología e Innovación, su relación con poblaciones diversas y las tendencias internacionales, así como el análisis de carácter político y técnico a partir de los indicadores nacionales e internacionales de ciencia, tecnología e innovación que sustenten el diseño de las políticas públicas.
+f. Impulsar mecanismos de cooperación y alianzas estratégicas de apoyo y asesoramiento, dentro de su ámbito de competencia, para fortalecer las capacidades de los actores del Sistema Nacional de Ciencia, Tecnología e Innovación.
+g. Fomentar una cultura científica que permita a las personas la aprehensión de la ciencia y la tecnología considerando los contextos, intereses y necesidades de las diferentes poblaciones meta.
+h. Solicitar a la instancia ministerial competente a temas de Innovación, los criterios técnicos necesarios para un adecuado abordaje y una adecuada administración de los Laboratorios de Innovación Comunitaria (LINC) del país.
+i. Dirigir la gestión de los Centros Comunitarios Inteligentes (CECI) como mecanismos para el cierre de brechas y creación de op01tunidades en el desarrollo de competencias digitales.
+j. Establecer, dirigir y liderar, cuando corresponda, mesas de trabajo, comités multisectoriales, entre otros, para propiciar la articulación y coordinación de los actores del Sistema Nacional de Ciencia, Tecnología e Innovación, en ámbitos de su competencia.
+k. Analizar los resultados de la política pública para asegurar el cumplimiento de los objetivos establecidos a través del Plan Nacional de Ciencia, Tecnología e Innovación y otros instrumentos de
+planificación.
+l. Promover la visibilización de los aportes de la comunidad científica al desarrollo de la ciencia y la tecnología a través de mecanismos de reconocimiento diversos para la comunidad científica costarricense.
+m. Cualquier otra función que se le designe según el marco normativo de su competencia.

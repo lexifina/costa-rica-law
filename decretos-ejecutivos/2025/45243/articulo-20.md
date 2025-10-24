@@ -1,0 +1,17 @@
+Artículo 20.-Funciones de la Unidad de Cooperación Internacional. Las funciones de la Unidad de Cooperación Internacional son las siguientes:
+a) Estudiar la realidad de la ciencia, tecnología, innovación y telecomunicaciones en el ámbito Internacional, con el fin de establecer las prioridades globales en la temática e identificar áreas de trabajo, fuentes cooperantes y proyectos de cooperación.
+b) Proponer la orientación estratégica de las relaciones internacionales y la cooperación internacional del Ministerio, en el corto, mediano y largo plazo, basados en las políticas, planes, programas y proyectos que se hayan definido en materia de ciencia, tecnología, innovación y telecomunicaciones.
+c) Colaborar en el cumplimiento de los compromisos internacionales adquiridos por el sector y por los jefes de Estado, para responder a la legislación internacional y a los lineamientos nacionales.
+d) Identificar y fomentar en el ámbito internacional, tanto gubernamental como privado, nuevas oportunidades para la consecución de recursos financieros y de asistencia técnica para proyectos en ciencia, tecnología, innovación y telecomunicaciones.
+e) Apoyar la formulación de proyectos de cooperación en el marco de las necesidades del sector ciencia, tecnología, innovación y telecomunicaciones y la política de cooperación establecida por el Estado.
+f) Gestionar las solicitudes de oferta y demanda de cooperación internacional del Ministerio y remitir a las entidades correspondientes para su respectivo trámite.
+g) Participar en el proceso de formulación y negociación de los proyectos de cooperación internacional, de conformidad con los procedimientos establecidos por las entidades rectoras en la materia.
+h) Elaborar y mantener actualizado un registro de todos los programas, proyectos, iniciativas y acciones de cooperación internacional que haya gestionado el Ministerio y las entidades del sector.
+i) Dar seguimiento a la ejecución de los programas y proyectos de cooperación del Ministerio, en el marco de sus competencias.
+j) Ejercer como enlace institucional de cooperación internacional y mantener una estricta coordinación con el Ministerio de Planificación Nacional y Política Económica, el Ministerio de Relaciones Exteriores y Culto, y los entes de cooperación internacional.
+k) Asesorar y apoyar a las autoridades superiores, dependencias institucionales y entidades del sector en asuntos de cooperación y relaciones internacionales.
+l) Coordinar la participación de jerarcas y funcionarios del Ministerio en misiones diplomáticas y representaciones internacionales sobre ciencia, tecnología, innovación y telecomunicaciones, y colaborar con el sector respecto a estas participaciones en caso de que sea necesario.
+m) Informar a las dependencias institucionales y entidades del sector, sobre las ofertas de cooperación internacional que, en materia de ciencia, tecnología, innovación y telecomunicaciones promuevan cooperantes externos.
+n) Facilitar la tramitación de instrumentos de cooperación necesarios para la obtención de recursos y la generación de alianzas y colaboraciones internacionales, que contribuyan al cumplimiento de las prioridades institucionales y sectoriales definidas en los diferentes instrumentos de planificación.
+o) Promover relaciones de amistad y cooperación con otros países, organizaciones y/o entidades, en el ámbito de competencias del Ministerio, por medio de las embajadas y misiones diplomáticas en el país.
+p) Cualquier otra función que se le designe según el marco normativo de su competencia.

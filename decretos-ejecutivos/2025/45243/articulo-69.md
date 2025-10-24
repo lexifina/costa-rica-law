@@ -1,0 +1,1 @@
+Artículo 69.- Deróguese los artículos 28 al 36 del Decreto n.º 38166-MICITI y por tanto las Secciones I, II, III, IV del Capítulo VII de ese decreto, con excepción de los actuales artículos 37, 38, y 39 que se mantienen vigentes.

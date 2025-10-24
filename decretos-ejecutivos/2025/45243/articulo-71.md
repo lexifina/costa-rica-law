@@ -1,0 +1,1 @@
+Artículo 71.- Deróguese el Decreto n.° 39094-MICITI "Reglamento de Organización de las Áreas que dependen del Viceministro de Ciencia y Tecnología y Unidades Staff que dependen del Ministro de Ciencia, Tecnología y Telecomunicaciones", del 26 de mayo de 2015, publicado en el Diario Oficial La Gaceta n.° 156 del 12 de agosto de 2015.
