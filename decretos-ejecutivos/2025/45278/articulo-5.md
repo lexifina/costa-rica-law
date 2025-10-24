@@ -1,0 +1,2 @@
+Artículo 5.- Valoración de la prueba
+La valoración de los medios probatorios aportados por los solicitantes corresponderá a la Dirección de Asuntos Laborales, la cual analizará los documentos y pruebas presentados conforme a los principios de sana crítica, objetividad y legalidad, verificando su pertinencia, autenticidad y suficiencia para acreditar la condición de persona ex estibadora y demás requisitos establecidos en la Ley N°7955 y este reglamento.

@@ -1,0 +1,4 @@
+Artículo 7.- Plazo para cumplir prevenciones
+Cuando la Dirección de Asuntos Laborales determine que la documentación aportada por el solicitante correspondiente a declaración jurada ante notario público, no cumple con los requisitos de este reglamento, podrá prevenir al interesado para que subsane lo requerido.
+La prevención deberá notificarse de manera formal, señalando de forma clara y detallada los documentos o elementos faltantes o defectuosos, y otorgando un plazo improrrogable de diez días hábiles para su cumplimiento, contados a partir del día siguiente de la notificación.
+Transcurrido dicho plazo sin que se haya atendido la prevención de manera satisfactoria se resolverá la solicitud con base en la documentación que se encuentra en el expediente, valorando de conformidad a este reglamento y la Ley N°7955.
