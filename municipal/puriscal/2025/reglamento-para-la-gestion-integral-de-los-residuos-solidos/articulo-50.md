@@ -1,0 +1,1 @@
+Artículo 50. Nuevas Construcciones. Cuando se soliciten los permisos de construcción y/o remodelación, será requisito presentar la aprobación del diseño y localización de los sistemas de almacenamiento colectivo de residuos por parte del Departamento de Gestion Ambiental, el cual podrá consultar con el Departamento de gestión de proyectos cualquier caso que lo amerite.

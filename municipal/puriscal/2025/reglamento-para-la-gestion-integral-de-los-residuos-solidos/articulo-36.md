@@ -1,0 +1,3 @@
+Artículo 36.- Residuos No Valorizables. Corresponde a los residuos no peligrosos y sin alternativas viables de recuperación que no se incluyen en alguna de las clasificaciones anteriores, así como los tipificados como tales en el Artículo 24 del presente reglamento. Incluye residuos de los servicios sanitarios, del barrido y residuos de tela.
+Artículo 36.- Restos de Animales en la Vía Pública. La Municipalidad proveerá la gestión sanitaria de animales muertos que se encuentren en la vía pública o espacios públicos y cuyo generador se desconozca. Se prohíbe mezclar residuos ordinarios con restos de animales.
+Nota de Sinalevi: En la publicación de esta norma se consignó dos veces el artículo N°36

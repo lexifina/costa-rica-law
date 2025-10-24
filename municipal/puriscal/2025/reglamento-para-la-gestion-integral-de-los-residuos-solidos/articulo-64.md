@@ -1,0 +1,1 @@
+Artículo 64.- Fiscalización. La Municipalidad, a través del Departamento de gestión ambiental, establecerá un registro de los centros de recuperación de residuos valorizables en el Cantón y fiscalizará su operación en conjunto con el Ministerio de Salud.

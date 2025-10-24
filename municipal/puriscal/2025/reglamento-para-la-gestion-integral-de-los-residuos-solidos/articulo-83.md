@@ -1,0 +1,1 @@
+Artículo 83.- Inventario de sitios Clandestinos El Departamento de Gestion Ambiental, en coordinación con el Departamento de Servicios públicos, deberán levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.

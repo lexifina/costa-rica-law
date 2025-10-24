@@ -1,0 +1,1 @@
+Artículo 92.- Puntos estratégicos ocasionales. Son puntos que se utilizarán para la recolección de residuos valorizables de manera ocasional. La Municipalidad informará por todos los medios de comunicación disponibles, las características de cada punto estratégico ocasional en la fecha y horario en que se habilite a la comunidad.

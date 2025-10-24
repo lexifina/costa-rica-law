@@ -1,0 +1,1 @@
+Artículo 3. -Alcance. El presente reglamento es de acatamiento obligatorio para todas las personas físicas o jurídicas, públicas o privadas, generadoras de residuos sólidos que se encuentren localizados dentro del territorio oficial del Cantón de Puriscal y para quienes estén fuera del territorio, pero utilicen los sistemas de tratamiento o disposición final en el cantón.

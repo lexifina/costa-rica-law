@@ -1,0 +1,2 @@
+Artículo 27.- Residuos de Jardín. Corresponde a residuos del mantenimiento y podas de jardines o zonas verdes e incluye zacate, hojas, tallos y ramas. Estos residuos son biodegradables y podrían incluirse en una sola categoría junto a los residuos orgánicos tipificados en el artículo 28 del presente reglamento.
+El tratamiento final de este tipo de residuos dependerá de las capacidades municipales o locales para gestionarlos adecuadamente. Su manejo ideal es el compostaje cumpliendo así con el Plan Nacional de Compostaje 2020-2050.

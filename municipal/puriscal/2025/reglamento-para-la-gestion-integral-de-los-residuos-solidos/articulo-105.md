@@ -1,0 +1,1 @@
+Artículo 105.- Sanciones Administrativas. A toda aquella persona física o jurídica, acreedora de una sanción por acción o por omisión, por falta leve, falta grave o sujeta al traslado de una denuncia por falta gravísima al Tribunal Ambiental Administrativo, se le deberá respetar el procedimiento administrativo establecido en la Ley General de la Administración Pública Nº 6227.
