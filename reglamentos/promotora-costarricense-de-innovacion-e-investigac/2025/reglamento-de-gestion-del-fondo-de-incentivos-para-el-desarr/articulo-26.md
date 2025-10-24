@@ -1,0 +1,1 @@
+Artículo 26°. De la falta grave por incurrir en una conducta de prohibición. Constituirá falta grave de la persona funcionaria que incurra en alguna de las conductas de prohibición mencionadas en el presente Reglamento, todo de conformidad con la normativa vigente y procedimientos institucionales aplicables.

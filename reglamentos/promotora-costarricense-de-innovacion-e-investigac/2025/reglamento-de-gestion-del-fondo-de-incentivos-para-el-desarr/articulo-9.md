@@ -1,0 +1,2 @@
+Artículo 9° -Destino de los recursos.
+Los recursos del Fondo se destinarán para financiar acciones de promoción de ciencia, tecnología e innovación, así como para el desarrollo de empresas existentes, nuevas empresas innovadoras y de base tecnológica, conforme a las disposiciones que rigen la materia y los mecanismos de fomento dispuestos en este Reglamento, quedando sujetos a disponibilidad presupuestaria.

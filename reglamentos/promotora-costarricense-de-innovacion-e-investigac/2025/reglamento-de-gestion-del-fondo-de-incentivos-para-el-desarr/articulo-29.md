@@ -1,0 +1,2 @@
+Artículo 29°. -Sanciones.
+El incumplimiento de las disposiciones establecidas en el presente Reglamento dará lugar a la aplicación de las medidas correctivas, disciplinarias o sancionatorias que correspondan, según la naturaleza de la falta y la persona responsable, conforme a los procedimientos administrativos establecidos en la normativa interna de la Promotora, lo dispuesto en la Ley N.º 6227, "Ley General de la Administración Pública", que regula la responsabilidad de los funcionarios públicos por el incumplimiento de sus deberes.

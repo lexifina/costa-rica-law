@@ -1,0 +1,1 @@
+Artículo 35°- La Promotora establecerá un sistema de gestión de calidad, de valoración de riesgos y normas para asegurar la transparencia en el otorgamiento de incentivos, de conformidad con la Ley N.º 9971, su Reglamento y la Ley N.º 7169.

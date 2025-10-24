@@ -1,0 +1,3 @@
+Artículo 4°- Del presupuesto del Fondo de Incentivos.
+La Promotora velará para que el presupuesto asignado se utilice para los fines establecidos en el presente Reglamento, asegurando su correcta administración, ejecución y fiscalización, conforme a principios de eficiencia administrativa, trazabilidad, transparencia y mejora continua. Esta gestión deberá responder a las prioridades del ecosistema nacional de innovación y a las necesidades identificadas mediante análisis técnicos, garantizando el uso estratégico, controlado y orientado a resultados de los recursos públicos asignado, conforme a la normativa vigente y aplicable.
+.

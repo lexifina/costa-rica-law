@@ -1,0 +1,3 @@
+Artículo 24°- Del debido proceso.
+El presunto incumplimiento se gestionará conforme el procedimiento administrativo correspondiente, según las condiciones previstas en los procedimientos internos de la Promotora y demás normativa vigente y aplicable.
+Corresponderá a la Gerencia General de la Promotora, girar la instrucción del inicio del procedimiento administrativo, previa recomendación de la Unidad Técnica, conforme las disposiciones del presente Reglamento, que ameriten el trámite de dicho procedimiento, el cual se regirá por las disposiciones del procedimiento ordinario señalado en la Ley N.º 6227, "Ley General de la Administración Pública" y demás normativa conexa vigente y aplicable.
