@@ -1,0 +1,3 @@
+CAPÍTULO II
+Operación Interna de la Comisión de Control Interno
+Artículo 14. Dirección y sesiones de la CCI. La CCI estará presidida por el Alcalde Municipal o su representante y sesionará periódicamente de conformidad al cronograma que convengan sus miembros en función de las necesidades administrativas para cumplir con el mantenimiento y fortalecimiento del SCI y del Sistema Específico de Valoración de Riesgos; así como para el seguimiento de planes de acción correspondientes. Estas serán convocadas por el Alcalde. En casos de excepción al cronograma, los demás miembros de la CCI podrán solicitar reuniones extraordinarias, previa aprobación del Alcalde.

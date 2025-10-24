@@ -1,0 +1,1 @@
+Artículo 13. Participación en la CCI. Todos los integrantes de la CCI deben cumplir con las responsabilidades descritas en el artículo 8 del presente Reglamento. Dicha Comisión contará con asesoría legal cuando se considere necesario, mediante la consulta correspondiente por escrito.

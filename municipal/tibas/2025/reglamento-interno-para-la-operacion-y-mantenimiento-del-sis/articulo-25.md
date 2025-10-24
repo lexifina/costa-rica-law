@@ -1,0 +1,1 @@
+Artículo 25. Seguimiento. Tanto los Titulares Subordinados, Directores, como la CCI, darán seguimiento e informarán periódicamente a las instancias indicadas en el inciso a) y b) del artículo 20 del presente Reglamento, sobre las gestiones realizadas para el fortalecimiento del SCI.

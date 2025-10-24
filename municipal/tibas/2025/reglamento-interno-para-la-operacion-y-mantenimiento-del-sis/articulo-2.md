@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todos los funcionarios de la Municipalidad de Tibás, que por jerarquía o delegación ejecuten funciones decisorias, resolutorias, directivas como parte de la administración activa, por lo tanto, se consideran Titulares Subordinados.

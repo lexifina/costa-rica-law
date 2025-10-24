@@ -1,0 +1,3 @@
+CAPÍTULO III
+Modelo de Madurez
+Artículo 32. Actividades periódicas para el seguimiento. La Municipalidad de Tibás al menos una vez al año aplicará el llenado de la Herramienta del Modelo de Madurez, misma que ayudará a medir el progreso en la escala de evolución del Proceso de Control Interno. A partir de dicha herramienta, se plantearán diversas acciones que promuevan y guíen la mejora institucional para un mayor cumplimiento de las Normas de Control Interno para el Sector Público. El aplicar esta herramienta anualmente permitirá llevar un seguimiento del progreso con respecto a la mejora de los cinco componentes del Sistema de Control Interno.

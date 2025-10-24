@@ -1,0 +1,1 @@
+Artículo 23. Resultados de la Autoevaluación. La CCI, elaborará un informe de los resultados obtenidos de la autoevaluación a nivel institucional. El mismo deberá incluir un análisis estadístico y las conclusiones correspondientes. Dicho documento deberá ser presentado al Máximo Jerarca Administrativo.

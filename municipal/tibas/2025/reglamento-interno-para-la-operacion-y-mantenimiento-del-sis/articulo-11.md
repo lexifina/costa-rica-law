@@ -1,0 +1,1 @@
+Artículo 11. Función de la CCI. Se constituye la Comisión Municipal de Control Interno, como órgano de apoyo del Máximo Jerarca Administrativo (Alcalde), con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento del SCI.

@@ -1,0 +1,1 @@
+Artículo 30. Actividad permanente. De acuerdo con el objetivo de la LGCI y el compromiso de la Administración Activa, la valoración y gestión de riesgos se convierte en una responsabilidad y práctica permanente para todo titular subordinado. Quedando todos ellos sujetos a aplicar la metodología institucional que se defina para tal efecto.
