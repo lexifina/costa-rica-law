@@ -1,0 +1,3 @@
+Artículo 4°. -De la actualización o modificación del Reglamento. Le corresponde al o la auditor (a) interno
+(a) presentar las actualizaciones o modificaciones ante el Consejo Directivo del Instituto Costarricense sobre Drogas, quien debe conocerlo en un plazo máximo de 30 días hábiles a partir de su recepción. Una vez aprobado, el (la) auditor (a) tiene un plazo de 15 días hábiles para someterlo a la aprobación de la Contraloría General de la República.
+La formulación, modificación, aprobación y promulgación de este Reglamento se realizará conforme a la normativa dispuesta por la Contraloría General de la República.

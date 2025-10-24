@@ -1,0 +1,1 @@
+Artículo 52°. -Admisión de las denuncias anónimas. Las denuncias anónimas serán atendidas a criterios de la auditora o auditor Interno, en caso de que se aporten elementos de convicción suficientes, así como medios probatorios idóneos en que se respalde, que permitan iniciar la investigación; de lo contrario se archivará la denuncia.

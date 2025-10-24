@@ -1,0 +1,1 @@
+Artículo 54°. -Fundamentación del acto de desestimación y archivo de una denuncia. La Auditoría Interna para desestimar o archivar una denuncia debe emitir un acto debidamente motivado, razonado y fundamentado, en el que expresamente se indique la causal utilizada para la desestimación y archivo, así como el detalle del análisis que llevo a dicha conclusión.

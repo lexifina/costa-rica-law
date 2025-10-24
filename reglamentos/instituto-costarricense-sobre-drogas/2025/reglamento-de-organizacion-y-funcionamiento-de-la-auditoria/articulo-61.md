@@ -1,0 +1,2 @@
+Artículo 61°. - Solicitud de información escrita sobre la implantación de recomendaciones. La Auditoría podrá solicitar a la persona responsable de la implantación de las recomendaciones y disposiciones o a quien corresponda, referirse por escrito, sobre los períodos estimados para su cumplimiento, o bien, al progreso alcanzado en relación con su implementación.
+Lo anterior, sin perjuicio de los análisis y verificaciones que ejecutará la Auditoría Interna sobre la información suministrada y cualquier otra relacionada.

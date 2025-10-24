@@ -1,0 +1,1 @@
+Artículo 2°. -Ámbito de aplicación. Lo dispuesto en este Reglamento es de obligatorio cumplimiento para los funcionarios de la Auditoría Interna y para los servidores de la administración activa del ICD en lo que les resulte aplicable.

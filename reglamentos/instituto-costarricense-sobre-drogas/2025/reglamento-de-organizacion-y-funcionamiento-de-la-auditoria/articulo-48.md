@@ -1,0 +1,4 @@
+CAPÍTULO IX
+DE LAS DENUNCIAS.
+Artículo 48°. -Recepción y trámite de denuncias. La auditora interna o auditor interno dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los recursos administrados por el ICD y su presentación podrá hacerse en forma escrita, verbal, por la vía telefónica o por cualquier otro medio. La Auditoría Interna deberá valorar los hechos denunciados con el propósito de determinar si procede atender la denuncia, trasladarla o desestimarla, observando lo dispuesto en la
+Ley General de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito y lo que disponga al respecto la Contraloría General de la República.

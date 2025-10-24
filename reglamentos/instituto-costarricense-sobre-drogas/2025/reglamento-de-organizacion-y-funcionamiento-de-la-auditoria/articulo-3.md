@@ -1,0 +1,1 @@
+Artículo 3°. -Ámbito de acción. La auditoría interna ejercerá sus competencias en todos los órganos, dependencia y unidades del Instituto Costarricense sobre Drogas; para lo cual definirá y mantendrá actualizado el ámbito de acción, denominado Universo Auditable, el cual será revisado y actualizado como parte de su proceso de planificación estratégica y operativa.

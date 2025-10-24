@@ -1,0 +1,1 @@
+Artículo 12°. -Jerarquía del Auditor o Auditora interno. La auditora o el auditor interno será el superior jerárquico inmediato de la Auditoría Interna del ICD y en esa condición ejercerá todas las funciones que le son propias en el manejo del personal de su unidad, de acuerdo con el marco jurídico que rige para el Instituto Costarricense sobre Drogas.

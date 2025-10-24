@@ -1,0 +1,3 @@
+Sección II
+Deberes, potestades y prohibiciones de los funcionarios de Auditoría
+Artículo 21°. -Sobre el acceso a la información. Las personas funcionarias de la Auditoría Interna en el ámbito de sus potestades tiene libre acceso, en cualquier momento a todos los libros, archivos, valores y documentos públicos del Instituto; además, podrá solicitar de manera formal informes, datos y documentos necesarios, en estricto acatamiento del principio de transparencia administrativa que amparan los incisos c), e) y f) del artículo 8 de la Ley de Protección de la Persona frente al tratamiento de sus datos personales N.º 8968 y de conformidad con el artículo 136 incisos a) y b) de la Ley N.º 8204.
