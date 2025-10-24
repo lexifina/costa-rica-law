@@ -1,0 +1,2 @@
+Artículo 2º. Ámbito de aplicación
+El presente reglamento regula las actividades, objetivos, funciones y atribuciones de la Auditoría Interna de la Municipalidad de Monteverde, es de carácter obligatorio para la persona titular de la auditoría, el personal de la auditoría interna, el Concejo Municipal, Alcaldía Municipal, personas titulares subordinadas, demás personal de la Municipalidad de Monteverde y órganos sujetos a control en la materia que les fuere aplicable.

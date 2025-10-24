@@ -1,0 +1,2 @@
+Artículo 8º. Enunciados o códigos éticos
+El auditor, subauditor y los funcionarios de la auditoría interna deberán observar las normas éticas que rige su profesión, que se caracterizan por valores de: integridad, probidad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que se establezca en la normativa institucional o el Código de Ética de la Auditoría Interna en caso de su creación y otra normativa que sea aplicable.

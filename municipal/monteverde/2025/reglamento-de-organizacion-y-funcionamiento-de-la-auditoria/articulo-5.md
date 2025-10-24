@@ -1,0 +1,2 @@
+Artículo 5º. Ámbito de Acción
+La Auditoría Interna aplicará sus potestades de manera objetiva, independiente y asesora a todas las dependencias que integra la Municipalidad de Monteverde, a los entes u órganos públicos a los que la institución le traslade fondos por voluntad propia, amparado a una autorización legal que le permite tomar esa decisión y a los entes privados a los que la institución gire o transfiera fondos, independientemente de si la ley obliga a la institución a trasladar esos fondos o la autoriza en forma genérica.

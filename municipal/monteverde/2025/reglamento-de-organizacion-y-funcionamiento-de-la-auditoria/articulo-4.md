@@ -1,0 +1,7 @@
+TITULO II
+ORGANIZACIÓN DE LA AUDITORIA INTERNA
+CAPITULO I
+Concepto Funcional de la Auditoría Interna
+Artículo 4º. Concepto de la Auditoría Interna
+La Auditoría Interna proporciona seguridad al ente u órgano mediante la actividad independiente, objetiva y asesora. Está diseñada para validar y mejorar las operaciones, garantizando que la actuación del jerarca y la administración se ajuste al marco legal y técnico, así como a prácticas sanas, que da valor agregado y mejora las operaciones de la institución, contribuye a que se alcancen los objetivos institucionales, mediante un enfoque sistemático y profesional para evaluar y mejorar la efectividad de administración del riesgos, del control y de los procesos de dirección en las entidades y los órganos sujetos a esta Ley, proporcionando a la ciudadanía una garantía razonable de que la actuación del Jerarca y la del resto de la administración se ejecutan conforme al marco legal y técnico y a las sanas prácticas, todo esto de conformidad como lo establece la Ley General de Control Interno.
+La seguridad que ofrece la auditoría interna al ente u órgano se logra cuando se emiten adecuadas recomendaciones y opiniones y la administración las atiende de acuerdo con el alcance de su plan de trabajo, verifica el apego de la administración al ordenamiento jurídico, técnico, y el cumplimiento, validez y suficiencia del sistema de control interno, lo que le permite validar las operaciones respectivas.

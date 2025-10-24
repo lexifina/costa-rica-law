@@ -1,0 +1,3 @@
+Artículo 37. Sobre modificaciones a los puestos de los funcionarios de la Auditoría Interna
+Interno, estime que han variado sustancial y permanentemente las tareas y responsabilidades del puesto que ocupan él o los funcionarios de la Auditoría Interna, podrá solicitar por escrito debidamente justificado ante Recursos Humanos el estudio correspondiente para la transformación o reasignación del puesto.
+Por lo que Recursos Humanos, procederá al estudio respectivo en un plazo no mayor a 60 días hábiles, teniendo como resultado del estudio la resolución técnica. Lo resuelto por Recursos Humanos le será comunicado al Auditor Interno, durante el plazo indicado y si procede lo elevará al Concejo Municipal para su aprobación.

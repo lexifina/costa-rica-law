@@ -1,0 +1,3 @@
+Artículo 34. Administración de los recursos
+La Auditoría Interna debe tener libertad para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza, conforme lo dicten sus necesidades para cumplir con su Plan Anual de Trabajo. Para el cambio de destino de los recursos asignados a la Auditoría Interna, el jerarca deberá valorar el criterio del titular de dicha unidad, en resguardo de su independencia funcional y de criterio y de la prestación de los servicios atinentes a la actividad.
+En lo relativo a la administración de los recursos disponibles para su gestión, la Auditoría Interna deberá aplicar lo estipulado en la Ley General de Control Interno N°8292 y la normativa establecida por la Contraloría General de la República.

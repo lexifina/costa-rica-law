@@ -1,0 +1,2 @@
+Artículo 12. Participación en grupos de trabajo o comisiones de la administración
+El Auditor Interno y los funcionarios de auditoria no deben ser parte de grupos de trabajo o comisiones que ejerzan funciones propias de la administración activa. Cuando el jerarca solicite su participación en estos grupos o comisiones debe ser coordinada, ésta deberá ser exclusivamente en función asesora, en asuntos de su competencia, y no podrá tener carácter permanente, todo esto en resguardo de su objetividad e independencia de criterio.

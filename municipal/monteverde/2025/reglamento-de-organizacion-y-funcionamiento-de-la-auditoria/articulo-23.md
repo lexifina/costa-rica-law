@@ -1,0 +1,2 @@
+Artículo 23. Ausencia temporal del titular de la Auditoría Interna
+Las ausencias temporales del titular de la Auditoría Interna serán suplidas por un funcionario de la Auditoría Interna, con apego a las normas legales, lineamientos y políticas institucionales que operan para tal efecto. Para esta gestión se debe seguir lo dispuesto en los "Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República", y sus reformas, emitido por la Contraloría General de la República.

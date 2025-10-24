@@ -1,0 +1,3 @@
+Artículo 31. Asignación de recursos
+De acuerdo con lo que establece la Ley General de Control Interno N°8292 y las directrices establecidas por la Contraloría General de la República al respecto, el Concejo Municipal debe aprobar la asignación de recurso humano, material, tecnológico, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión.
+Corresponderá al jerarca promulgar las disposiciones institucionales para regular el procedimiento, los plazos y el trámite interno de las solicitudes de dotación de recursos para la Auditoría Interna. Durante la preparación de las regulaciones se realizará la coordinación pertinente con la Auditoría Interna.

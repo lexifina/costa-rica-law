@@ -1,0 +1,1 @@
+Artículo 26. Deberes éticosEs deber de los funcionarios de la auditoría respetar los lineamientos éticos y morales establecidos por el Código Municipal, la reglamentación interna de la Municipalidad de Monteverde, así como la normativa vigente y concordante, y los lineamientos que para estos efectos brinda la Contraloría General de la República.

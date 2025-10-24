@@ -1,0 +1,2 @@
+Artículo 52. Seguimiento de recomendaciones
+La Auditoría Interna debe dar seguimiento a las recomendaciones emitidas en sus informes para asegurar que se implementen adecuadamente. Esto incluye la verificación de las acciones ccorrectivas tomadas por la administración y la evaluación de su efectividad. El seguimiento debe ser documentado y los resultados deben ser informados a las partes interesadas, también deberá dársele seguimiento a las disposiciones emitidas por la Contraloría General de la República.

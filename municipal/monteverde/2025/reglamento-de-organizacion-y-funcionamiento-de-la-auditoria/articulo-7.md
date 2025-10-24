@@ -1,0 +1,1 @@
+Artículo 7º Misión, visión y principales políticas que regirán el accionar de la auditoría internaLa Auditoría Interna establecerá y mantendrá actualizadas la visión, misión y principales políticas y procedimientos que regirán el accionar de la auditoría interna. Estas deberán ser congruentes con la visión, misión y objetivos institucionales.

@@ -1,0 +1,2 @@
+Artículo 20. Dependencia del subaditor
+Al Subaditor(a) le corresponderá apoyar al auditor(a) interno(a) en el cargo de sus funciones, de acuerdo con las funciones que el auditor(a) interno(a) le consignen, debiendo sustituirle en sus ausencias temporales y responder ante él o ella por su gestión. Dependerá jerárquicamente del Concejo Municipal, sin demérito de independencia funcional. Dicha relación de puestos deberá contemplarse en el manual institucional de puestos.

@@ -1,0 +1,2 @@
+Artículo 22. Regulaciones administrativas
+Las regulaciones administrativas tendientes al Auditor Interno serán nombradas en otros instrumentos que serán de decisión y aprobación por el Concejo Municipal en coordinación con la persona titular de la Auditoría Interna. Lo anterior, de conformidad con lo que dictan los lineamientos que sobre las gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República y cualquier otra normativa técnica y jurídica que le resulte aplicable.
