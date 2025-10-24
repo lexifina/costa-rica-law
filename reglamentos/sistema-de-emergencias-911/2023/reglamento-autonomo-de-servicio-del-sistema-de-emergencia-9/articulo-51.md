@@ -1,2 +1,0 @@
-Artículo 51. Toda persona funcionaria tiene derecho a solicitar un traslado interno a otra unidad en la misma clase de puesto que ostenta u otras dentro de la misma serie con categorías inferiores. En caso de que el traslado solicitado sea a una categoría inferior, la persona debe aceptar el rebajo salarial correspondiente.
-Dicha solicitud será presentada ante la Dirección para su aprobación previa recomendación no vinculante de Capital Humano y en ella constará tanto la firma del Superior Jerárquico que autoriza el traslado como la del que recibe a la persona.

@@ -1,3 +1,0 @@
-Artículo 87.- Para todos los casos anteriormente señalados se deberán presentar los comprobantes correspondientes debidamente autorizados ante el Superior Jerárquico inmediato y remitir los originales a Capital Humano, al reintegrarse a sus funciones. En caso de que el documento probatorio no se presente en el plazo establecido, la persona funcionaria deberá pactar con su Superior Jerárquico como se tramitarán los días otorgados, para lo cual se hará comunicación inmediata a Capital Humano.
-(Así reformado y publicado en La Gaceta N° 146 del 9 d agosto de 2024)
-(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 86 al artículo 87)

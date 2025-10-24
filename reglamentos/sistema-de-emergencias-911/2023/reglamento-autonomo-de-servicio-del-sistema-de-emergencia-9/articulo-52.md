@@ -1,1 +1,0 @@
-Artículo 52. En igualdad de condiciones sobre la solicitud de traslado, en caso de que hubiera varias de estas, se preferiría al personal nombrado en propiedad o de mayor antigüedad. Bajo estas condiciones y en tanto el traslado se realice sin la plaza, el Superior Jerárquico de la persona que solicita el movimiento no podrá oponerse al mismo.

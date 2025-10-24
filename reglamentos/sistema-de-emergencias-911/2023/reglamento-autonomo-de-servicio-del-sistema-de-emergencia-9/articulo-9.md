@@ -1,1 +1,0 @@
-Artículo 9. En consecución con el artículo anterior, este personal operativo debe cumplir con un proceso de capacitación previo a la prestación del servicio, por lo que su periodo de prueba se tomará a partir del momento en que inicien sus labores efectivas de manera formal.

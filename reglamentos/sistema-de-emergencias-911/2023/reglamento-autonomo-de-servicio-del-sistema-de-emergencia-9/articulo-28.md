@@ -1,3 +1,0 @@
-Artículo 28. El 9-1-1 presta el servicio las 24 horas del día, todos los días del año. Para ello el personal se desempeñará en alguno de los siguientes horarios:
-a. Personal Operador y Supervisor: dentro de una jornada de 48 horas semanales o su homólogo, se distribuirá un horario que cumpla con la necesidad de brindar el servicio público encargado al 9-1-1.
-b. Personal Administrativo: Jornada ordinaria y máxima de 48 horas por semana, de lunes a viernes en horario que cumpla con la necesidad del servicio que se brinda el cual será definido y variado de forma escrita por la Dirección, previa recomendación no vinculante de Capital Humano.

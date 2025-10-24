@@ -1,1 +1,0 @@
-Artículo 21. El 9-1-1 podrá dar por concluida la relación de empleo con las personas funcionarias de conformidad con lo dispuesto en el presente Reglamento, el Código de Trabajo, la Ley General de la Administración Pública y demás normas o jurisprudencia aplicable.

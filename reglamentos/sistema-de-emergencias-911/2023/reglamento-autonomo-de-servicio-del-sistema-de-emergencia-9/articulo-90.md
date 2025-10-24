@@ -1,2 +1,0 @@
-Artículo 90. Los permisos con goce de salario detallados en los artículos anteriores serán aprobados por el Superior Jerárquico inmediato previa justificación que debe entregar la persona funcionaria por escrito, así como adjuntar los documentos que sustenten el derecho a tomar dicho permiso.
-(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 89 al artículo 90)

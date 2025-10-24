@@ -1,1 +1,0 @@
-Artículo 35. Todos los días del año son hábiles, excepto los feriados y los días de descanso existentes por disposición legal, o convenio entre las partes conforme lo regulado en los artículos 147 y 148 del Código de Trabajo.

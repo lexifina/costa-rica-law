@@ -1,1 +1,0 @@
-Artículo 24. Las personas funcionarias están obligados obligadas al desempeño de sus labores durante todos los días hábiles e inhábiles dependiendo del trabajo para el cual hayan sido contratados y los horarios debidamente establecidos, sin concederse privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, salvo disposición legal en contrario.

@@ -1,3 +1,0 @@
-Artículo 112.Cuando una persona funcionaria supere los 18 meses de incapacidad continua podrá solicitar la finalización del contrato de trabajo con responsabilidad patronal con base en el artículo 79 del Código de Trabajo, quedando el resultado de su petición sujeto a estudio y recomendación de profesional competente.
-Para los casos de riesgos del trabajo, el plazo de la incapacidad será de 24 meses, conforme lo dispone el artículo 237 del Código de Trabajo.
-(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 111 al artículo 112)

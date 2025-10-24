@@ -1,2 +1,0 @@
-Artículo 117. En defecto de disposiciones propias de este reglamento, se tendrán como supletorias en primer lugar las disposiciones de derecho público que configuran el llamado derecho laboral administrativo y, en segundo término, los principios y disposiciones del Código de Trabajo.
-(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 116 al artículo 117)

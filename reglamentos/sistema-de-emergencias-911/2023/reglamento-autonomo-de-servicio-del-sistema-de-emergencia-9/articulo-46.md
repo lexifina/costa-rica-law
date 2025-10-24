@@ -1,3 +1,0 @@
-Capítulo VIII
-Movimientos de Personal
-Artículo 46. De conformidad con la Ley Constitutiva del Sistema de Emergencias 9-1-1, la decisión final sobre nombramientos, ascensos, traslados, terminación de los contratos de trabajo y demás actos que comprometan al 9-1-1 como Patrono, son facultad y responsabilidad de la Dirección. En forma general o específica, la Dirección delegará en los Superiores Jerárquicos de cada Unidad y particularmente en Capital Humano, la atención de los aspectos técnicos de la administración de personal, significando esta delegación la normal división del trabajo, necesaria para que se cumplan a cabalidad los objetivos del 9-1-1 en dicha materia.

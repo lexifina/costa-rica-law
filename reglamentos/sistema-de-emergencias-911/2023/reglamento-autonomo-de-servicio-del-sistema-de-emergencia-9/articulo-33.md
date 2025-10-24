@@ -1,1 +1,0 @@
-Artículo 33. En el caso del personal operador y supervisor, el Superior Jerárquico inmediato establecerá mediante roles de trabajo el día libre por semana, que se deberá asignar dependiendo del tipo de horario. Dicho día debe quedar claramente establecido para todos los efectos y por escrito.

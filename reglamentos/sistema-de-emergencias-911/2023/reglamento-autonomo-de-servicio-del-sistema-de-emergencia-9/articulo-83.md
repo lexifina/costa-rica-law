@@ -1,2 +1,0 @@
-Artículo 83. La Dirección es la dependencia que tiene autoridad para ordenar el despido, siempre con base en las disposiciones y procedimientos establecidos en el en presente Reglamento, Código de Trabajo y en la Ley General de la Administración Pública, y se aplica sin perjuicio de las responsabilidades de orden administrativo, civil o penal en que hubiera incurrido la persona con sus faltas.
-(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 82 al artículo 83)
