@@ -1,0 +1,1 @@
+Artículo 14º. Ausencia del (la) Presidente (a) o Secretario (a). En caso de ausencia, por cualquier motivo, del (la) Presidente (a) o del (la) Secretario (a), estos serán sustituidos (as) por (la) el Vicepresidente. Si ambos estuvieran ausentes, el (al) Secretario será sustituido (a) por uno (a) de los (as) tres Vocales.

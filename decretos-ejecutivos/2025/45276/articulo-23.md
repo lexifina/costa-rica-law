@@ -1,0 +1,1 @@
+Artículo 23°. - Afiliación de otros (as) miembros de cuerpos policiales. Las personas funcionarias de los cuerpos policiales que no estén adscritos al Ministerio de Seguridad Pública, pero se encuentren al amparo de la Ley General de Policía y la Ley General de Migración y Extranjería, pueden afiliarse a la Sociedad de Socorro Mutuo.

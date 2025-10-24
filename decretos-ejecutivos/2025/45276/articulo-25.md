@@ -1,0 +1,1 @@
+Artículo 25°. - Derogatoria. Deróguese el Decreto Ejecutivo N° 34377, Reglamento de la Sociedad de Socorro Mutuo de los funcionarios de la Guardia de Asistencia Rural y Guardia Civil, del 24 de enero del 2008 y el Decreto Ejecutivo N.º 43844-SP Reglamento de la Sociedad de Socorro Mutuo de las personas funcionarias del Ministerio de Seguridad Pública, del 22 de junio de 2022.

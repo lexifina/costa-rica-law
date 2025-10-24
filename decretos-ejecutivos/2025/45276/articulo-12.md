@@ -1,0 +1,1 @@
+Artículo 12º- Auditoría externa. Durante el primer trimestre de cada año, la Junta Directiva contratará una auditoría externa. El informe de dicha auditoría debe de enviarse con copia al (la) Ministro (a) de Seguridad Pública y al (la) fiscal (a) de la Sociedad de Socorro Mutuo.

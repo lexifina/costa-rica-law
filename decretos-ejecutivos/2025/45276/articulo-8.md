@@ -1,0 +1,1 @@
+Artículo 8º- De la persona Administradora. La Sociedad de Socorro Mutuo, tendrá un (a) administrador (a), quien no debe ser funcionario (a) del Ministerio de Seguridad Pública. La persona que ejerza dicho cargo, será nombrada por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 24°. - Celebración de convenios de cooperación. El Ministerio de Seguridad Pública podrá suscribir convenios de cooperación con la Sociedad de Socorro Mutuo en actividades orientadas al cumplimiento de sus fines, en tanto se encuentre amparada por la legislación vigente.

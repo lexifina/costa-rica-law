@@ -1,0 +1,1 @@
+Artículo 21°. - Póliza de fidelidad. El (la) Tesorero (a) deberá obtener una póliza de fidelidad por el valor que la Junta Directiva determine. La Junta Directiva podrá acordar la obligatoriedad de suscribir pólizas de fidelidad a otras personas miembros de la Junta Directiva y a las personas que actúen como administradoras de la Sociedad.

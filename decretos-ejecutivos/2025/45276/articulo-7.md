@@ -1,0 +1,1 @@
+Artículo 7º- Representación paritaria. En la conformación de la Junta Directiva, se debe de garantizar la representación paritaria de ambos géneros, pudiendo existir diferencia entre el total de mujeres y hombres, de no más de una persona.

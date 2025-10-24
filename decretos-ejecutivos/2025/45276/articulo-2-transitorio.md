@@ -1,0 +1,1 @@
+Transitorio II. Las personas funcionarias del Ministerio de Gobernación y Policía que, al entrar en vigor el presente Reglamento, se encuentren afiliadas a la Sociedad de Socorro Mutuo, conservarán sus derechos.
