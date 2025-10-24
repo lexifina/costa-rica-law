@@ -1,0 +1,1 @@
+Artículo 16.-Actividades municipales. La Municipalidad podrá organizar en los espacios públicos las actividades que considere oportunas, para lo cual la Administración debe igualmente velar por el mantenimiento del parque y cumplir con las mismas disposiciones establecidas en el capítulo tercero.

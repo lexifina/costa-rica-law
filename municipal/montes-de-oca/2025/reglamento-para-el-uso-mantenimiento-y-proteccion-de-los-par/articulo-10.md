@@ -1,0 +1,1 @@
+Artículo 10.-Sobre la seguridad. La Fuerza Pública es la autoridad responsable de garantizar la seguridad en los espacios públicos, en coordinación con aquellas instancias municipales que puedan dar soporte en la misma materia, o en materia similar según su competencia específica.

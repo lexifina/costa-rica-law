@@ -1,0 +1,1 @@
+Artículo 21.-La Municipalidad procurará la creación de parques caninos, siempre que exista un espacio público adecuado para este fin, que cumpla con los criterios técnicos existentes y la disponibilidad presupuestaria requerida para su creación y mantenimiento.
