@@ -1,0 +1,1 @@
+Artículo 11.-Cuando se trate de un bien que pueda ser identificado mediante el estudio correspondiente en el Registro Nacional, la jefatura policial procederá a coordinar con la Institución administrativa competente o con la autoridad judicial de la localidad, para determinar si existe algún proceso que amerite ponerlo a la orden de cualquiera de esas autoridades.

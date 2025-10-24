@@ -1,0 +1,1 @@
+Artículo 20.-En el caso de desechos peligrosos (explosivos, inflamables, reactivos, tóxicos al ambiente, biológicos o infecciosos), corresponde a la jefatura policial del Ministerio realizar las gestiones pertinentes con las personas autorizadas para la gestión de residuos, conforme a la normativa del Ministerio de Salud y la Ley para la Gestión Integral de Residuos N° 8839.

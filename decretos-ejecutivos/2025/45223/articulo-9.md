@@ -1,0 +1,1 @@
+Artículo 9º-Cuando sea posible identificar y localizar a la persona propietaria o interesada, la jefatura policial podrá proceder con la entrega respectiva, siempre que se acredite previamente la titularidad del bien y su identidad con documento válido. La carga de la prueba recae sobre la persona interesada, admitiéndose toda aquella reconocida por el derecho común.

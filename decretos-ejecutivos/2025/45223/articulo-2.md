@@ -1,0 +1,1 @@
+Artículo 2º-Este Reglamento será de acatamiento obligatorio, para todas las personas funcionarias policiales o administrativas, que tengan relación, participación y responsabilidad, con la materia regulada en el presente Reglamento.

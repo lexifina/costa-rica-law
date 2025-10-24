@@ -1,0 +1,1 @@
+Artículo 16.-Cuando la jefatura policial determine que el bien no es aprovechable para el Ministerio, deberá informar a la Dirección del Cuerpo Policial correspondiente, detallando las razones de su decisión. Será esta Dirección la encargada de tomar la decisión final, una vez realizado el trámite establecido en el numeral 14.

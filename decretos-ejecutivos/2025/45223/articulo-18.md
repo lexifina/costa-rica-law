@@ -1,0 +1,1 @@
+Artículo 18.-Una vez recopilada la información semestral, corresponde a la Dirección del Cuerpo Policial correspondiente, en conjunto con el personal jurídico, emitir la resolución administrativa que disponga la disposición final de los bienes.

@@ -1,0 +1,1 @@
+Artículo 21.-Los bienes que, por cualquier motivo, no puedan ser entregados a sus propietarios, aprovechados o donados, serán destruidos a costa de los recursos del Ministerio, de acuerdo con la Ley para la Gestión Integral de Residuos N° 8839 y demás normativa aplicable.
