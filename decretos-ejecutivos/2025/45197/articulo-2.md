@@ -1,0 +1,1 @@
+Artículo 2. -Deróguense los artículos 5 y 12 del Decreto Ejecutivo Nº. 36043-MAG-SP-MS, Regulaciones permanentes para la implementación de una ayuda temporal por pobreza coyuntural en el sector pesquero costarricense por declaratorias de vedas, de 13 de mayo de 2010.

@@ -1,0 +1,1 @@
+Transitorio Único: La ejecución del subsidio de veda por parte del Instituto Mixto de Ayuda Social del año dos mil veinticinco, se realizará con las normas que se encontraban vigentes de previo a la publicación del presente Decreto Ejecutivo.
