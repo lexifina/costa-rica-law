@@ -1,0 +1,1 @@
+Artículo 7- La Administración Municipal podrá conceder una o más transferencias de efectivo al mismo sujeto privado durante el plazo de la declaratoria, siempre que no se trate de proyectos de ejecución simultánea para evitar la confusión de responsabilidades que asume el sujeto privado ante cada proyecto.

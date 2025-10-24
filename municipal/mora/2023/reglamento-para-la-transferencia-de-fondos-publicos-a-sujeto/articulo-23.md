@@ -1,0 +1,3 @@
+Artículo 23- Resolución Administrativa Alcaldía Municipal y traslado del Expediente al Concejo Municipal
+Una vez recibido por parte de la Alcaldía Municipal el expediente administrativo, deberá con fundamento en el dictamen emitido por la Comisión Técnica de Idoneidad, emitir una resolución administrativa que contenga la recomendación expresa no vinculante que deberá remitir al Concejo Municipal, debiendo indicar en dicha resolución la dirección o lugar señalado por el sujeto privado para oír notificaciones.
+Una vez dictada la resolución administrativa, esta deberá ser trasladada junto al expediente administrativo para el Concejo Municipal en un plazo no mayor a diez días naturales.

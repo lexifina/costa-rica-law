@@ -1,0 +1,2 @@
+Artículo 12- Expediente Administrativo.
+La Alcaldía Municipal como Órgano Superior Administrativo deberá recibir la solicitud de declaratoria y documentación adjunta de la persona física o jurídica interesada, a fin de que verifique previa y preliminarmente que la solicitud presentada tenga relación directa con lo regulado en esta normativa; realizada tal verificación deberá conformar un expediente administrativo debidamente ordenado y foliado, a fin de que se traslade en un plazo no mayor a quince días naturales a la Comisión Técnica de Idoneidad.

@@ -1,0 +1,2 @@
+Artículo 15- Requerimiento de información adicional o apoyo técnico.
+La Comisión Técnica de Idoneidad podrá solicitar al sujeto privado, así como a cualquier departamento municipal, la información que considere necesaria, con el fin de constatar, adicionar, aclarar o subsanar información contenida en la solicitud presentada. Asimismo, podrá solicitar el apoyo técnico, financiero o legal para orientar el proceso de toma de decisiones.

@@ -1,0 +1,1 @@
+Artículo 44- Finiquito del convenio. Una vez finiquitado el proyecto los Departamento de Planificación Municipal y Dirección Administrativa Financiera procederán a remitir el expediente administrativo a la Alcaldía Municipal, a fin de que se proceda a otorgar el finiquito del convenio de cooperación suscrito las partes.

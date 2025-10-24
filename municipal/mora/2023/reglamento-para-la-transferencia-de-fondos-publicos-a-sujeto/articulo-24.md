@@ -1,0 +1,4 @@
+TÍTULO II
+ATRIBUCIONES DEL CONCEJO MUNICIPAL
+Artículo 24- Una vez recibida la resolución respectiva con el expediente administrativo por parte de la Alcaldía Municipal, el Concejo Municipal contará con un plazo improrrogable de quince días naturales para analizar tal recomendación no vinculante, a fin de determinar la procedencia o no del otorgamiento o denegatoria de la idoneidad del sujeto privado. En caso de que se deniegue tal declaratoria el Concejo Municipal se verá obligado a fundamentar el acto administrativo.
+Firme el acuerdo de Concejo Municipal que otorgue o deniegue la declaración de idoneidad del sujeto privado, deberá el Concejo Municipal proceder a notificar al sujeto privado, lo anterior a través de los medios legales pertinentes y con las formalidades que establece el ordenamiento jurídico.

@@ -1,0 +1,3 @@
+Artículo 29-Responsabilidad de seguimiento
+Durante la vigencia de la calificación de idoneidad otorgada, la Alcaldía Municipal deberá verificar, previa transferencia de nuevos recursos al sujeto calificado como idóneo, que éste mantiene vigente su representación legal y que no existe en el expediente documentación que señale eventuales incumplimientos.
+Será responsabilidad de la Alcaldía cumplir con lo estipulado en los párrafos finales y segundo de los artículos 7 y 25 de la Ley Orgánica de la Contraloría General de la República y en las Normas de Control Interno para el Sector Público, en lo referente a la implementación de los mecanismos de control necesarios y suficientes para verificar el correcto uso y destino de los beneficios otorgados a sujetos privados.

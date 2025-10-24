@@ -1,0 +1,2 @@
+Artículo 17- Coordinación entre administraciones públicas.
+En aquellos casos en los que el sujeto privado solicitante de la calificación de idoneidad indique que alguno de los requerimientos ya hubiera sido presentado ante otra entidad u órgano de la Administración Pública, la administración concedente deberá coordinar con ésta su obtención por los medios a su alcance, para no solicitarla al administrado, en cumplimiento de lo dispuesto en el artículo 8 de la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos, N°. 8220.

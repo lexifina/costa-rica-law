@@ -1,0 +1,3 @@
+Artículo 18- Omisión de requisitos por parte del sujeto privado.
+Si la solicitud presentada por el sujeto privado no contempla la totalidad de requisitos establecidos en el presente reglamento para el otorgamiento de la calificación de idoneidad, la Comisión Técnica de Idoneidad prevendrá a dicho sujeto y mediante un acto administrativo formal sobre los requisitos omitidos o información faltante necesaria para continuar con el trámite, otorgando para dichos efectos un plazo improrrogable de quien días hábiles para su cumplimiento.
+De no cumplirse con lo prevenido dentro del plazo establecido, dicha Comisión comunicará tal incumplimiento a la Alcaldía Municipal para que dicho Jerarca declare el archivo de la gestión.
