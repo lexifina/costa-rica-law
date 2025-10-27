@@ -1,0 +1,7 @@
+Artículo 6º-Prohibiciones. En cuanto al trámite y pago de horas extra en la Municipalidad de Mora, se establecen las siguientes prohibiciones:
+a) El Departamento de Gestión Humana no tramitará reportes de tiempo extraordinario, después de un mes de haber sido laborado.
+b) El Departamento de Gestión Humana no podrá tramitar el pago de tiempo extraordinario de personas funcionarias pertenecientes a departamentos o unidades que hayan alcanzado el tope máximo establecido por la administración.
+c) Se prohíbe la autorización para que una persona funcionaria trabaje en forma permanente la jornada ordinaria y extraordinaria de manera conjunta.
+d) En ningún caso la jornada extraordinaria, sumando a la ordinaria, no podrá exceder de doce horas, de conformidad con lo establecido en el artículo 140 del Código de Trabajo. Con la excepción del personal de policía municipal por ser un cuerpo especial con una jornada de 12 horas de manera ordinaria por roles de trabajo.
+e) No se podrá autorizar jornada extraordinaria a una misma persona en forma habitual, en virtud de que desnaturaliza el carácter extraordinario de este tipo de jornada. Salvo justificación de urgencia de las áreas del cementerio, policía, comisión de emergencias y secretaria del Concejo Municipal, que, por la naturaleza de sus funciones y horario, no puede supeditarse a este artículo del presente Reglamento.
+f) No procederá el pago de horas extras cuando la persona funcionaria debe laborar fuera de su jornada laboral por negligencia o falta en el cumplimiento de su trabajo.
