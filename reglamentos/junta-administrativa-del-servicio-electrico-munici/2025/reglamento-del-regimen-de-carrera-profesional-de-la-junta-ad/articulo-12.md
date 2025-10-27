@@ -1,0 +1,8 @@
+Artículo 12.- El Departamento Talento Humano estudiará las solicitudes de reconocimiento y de ajuste que reciba y comunicará a las personas peticionarias, el resultado de las gestiones.
+Las solicitudes favorables al ingreso al régimen, al reconocimiento de atestados o, en general, aquellas que provoquen algún ajuste serán elevadas por el Departamento Talento Humano mediante un estudio técnico recomendativo a la Gerencia General para su eventual
+ratificación.
+En el caso de que las solicitudes fueren denegadas por parte del citado departamento, las personas interesadas podrán presentar recursos de revocatoria y apelación en un plazo de tres días hábiles contados a partir del día siguiente de recibir la comunicación. De ser así, el referido departamento deberá pronunciarse y si revoca, se procederá en el mismo sentido que se indica en el párrafo anterior.
+En caso contrario, elevará la apelación a la Gerencia General para su resolución definitiva.
+Lo resuelto por la Gerencia le pondrá fin a la vía administrativa.
+Si se determinara que hay que realizar una prevención, se le apercibirá a la persona interesada para que, en un plazo de tres días a un mes, según el tipo de información que se requiera, se completen los datos o documentos que se estiman incompletos. De no cumplirse con lo prevenido en el plazo otorgado, el Departamento de Talento Humano, sin más trámite, archivará la gestión.
+En caso de que la persona funcionaria presente la documentación fuera del plazo otorgado y el asunto ya estuviera archivado, se iniciarán las diligencias como un nuevo trámite, para efectos del reconocimiento y/o ajuste respectivo.

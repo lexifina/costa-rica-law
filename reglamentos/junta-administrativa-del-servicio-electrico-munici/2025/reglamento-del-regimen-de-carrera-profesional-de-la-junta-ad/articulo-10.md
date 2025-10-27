@@ -1,0 +1,1 @@
+Artículo 10.- Si se hubiere alcanzado el número máximo de 20 puntos previstos para los cursos de aprovechamiento y, aun así, existieren excedentes, estos podrán ser computados para la modalidad de participación a razón de 1 punto por cada 80 horas naturales de instrucción efectiva, salvo que se haya agotado también el límite de 20 puntos por actividades de participación.

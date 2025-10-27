@@ -1,0 +1,1 @@
+Artículo 15.- El acto emitido por la Gerencia General, que apruebe el reconocimiento, con base en el informe del Departamento Talento Humano, implicará la emisión de la respectiva acción de personal para proceder con el efectivo pago.

@@ -1,0 +1,1 @@
+TRANSITORIO II.- La Comisión de Carrera Profesional mantendrá sus funciones hasta que se resuelvan las solicitudes presentadas antes de entrar en vigor el presente reglamento. Una vez atendidos esos pendientes, se informará a la Gerencia General para que se disponga la disolución de dicha comisión.

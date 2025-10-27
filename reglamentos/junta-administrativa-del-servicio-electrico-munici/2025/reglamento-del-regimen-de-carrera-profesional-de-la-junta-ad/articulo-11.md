@@ -1,0 +1,2 @@
+CAPÍTULO VII DISPOSICIONES VARIAS
+Artículo 11.- Las personas funcionarias profesionales que reúnan los requisitos señalados en este reglamento, para obtener los beneficios del régimen de carrera profesional, deberán presentar ante el Departamento Talento Humano, por los medios que al efecto se establezcan, el detalle del reconocimiento y ajustes que solicita. Junto con ese requerimiento se deberán aportar los documentos necesarios para probar y fundamentar la petición.
