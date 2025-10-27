@@ -1,0 +1,5 @@
+CAPÍTULO III
+Gestión de la disponibilidad
+Artículo 8°-Determinación de los puestos sujetos a disponibilidad. Podrán estar afectos al régimen de disponibilidad, únicamente aquellos puestos cuyas funciones se encuentran directamente vinculadas con la atención de los sistemas de soporte informático, telecomunicación y electricidad, requeridos para asegurar la continuidad de aquellos servicios que operan en un horario de 24 horas al día, los 7 días naturales de la semana.
+La Dirección de la División correspondiente o la dependencia equivalente, solicitará por escrito a la División Transformación y Estrategia del Banco la incorporación de dichos puestos a ese régimen, para lo cual deberá adjuntar las razones que estime existen para ello.
+La Dirección de la División correspondiente o la dependencia equivalente, deberá realizar un análisis cada año, de los eventos presentados en relación con los montos pagados por el ejercicio efectivo de este régimen, así como otros gastos en que se haya incurrido por concepto de disponibilidad, con el fin de definir si se mantienen las mismas condiciones, o el mismo número de puestos afecto al régimen de disponibilidad.

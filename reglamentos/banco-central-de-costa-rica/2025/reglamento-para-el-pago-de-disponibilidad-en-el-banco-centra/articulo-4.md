@@ -1,0 +1,13 @@
+CAPÍTULO II
+De la compensación económica
+1Artículo 4°-Compensación económica. Es el pago con que se retribuye la persona trabajadora por el cumplimiento del rol semanal de disponibilidad, entendido éste como el tiempo efectivo disponible durante una semana normal de trabajo y que cubre los siguientes periodos:
+1Modificado según artículo 16 del acta de la sesión 5419-2009, celebrada el 1° de abril del 2009. Publicado en La Gaceta 83 del 30 de abril del 2009. Rige a partir de su publicación en La Gaceta
+- dos (2) días no hábiles que representan los dos días semanales de descanso que el Banco Central reconoce a sus trabajadores y que normalmente son el sábado y el domingo de cada semana (48 horas máximo entre ambos días),
+- el tiempo fuera de su jornada ordinaria en los restantes cinco (5) días hábiles (16 horas diarias máximo para un total de 80 horas máximo).
+Para el personal del Banco Central de Costa Rica que se ubique en la Escala Regular de Salario Básico más Pluses o en la Escala Regular de Salarios Únicos, la compensación económica será equivalente al 15% del salario de la categoría en la que esté ubicado la persona funcionaria en la Escala Salarial Regular Global, por lo que de cada tercio de disponibilidad tendrá una compensación equivalente a 0.9375% (15%/16).
+Para los puestos remunerados de conformidad con la Escala Regular de Salarios Únicos del Banco Central de Costa Rica, la base será el salario mensual asignado a la categoría respectiva.
+Para los puestos sujetos al régimen de salario global regulado en la Ley N.º 10159 y su reglamento, se aplicará la Columna Salarial Global aprobada por el Mideplan, utilizando la diferencia específica autorizada para puestos con disponibilidad.
+La disponibilidad se retribuirá mediante el monto que determine la escala o columna salarial vigente que incorpore el factor disponibilidad, de conformidad con las directrices emitidas por la autoridad competente, sin cálculo porcentual adicional sobre la base remunerativa.
+El monto resultante se pagará de manera proporcional al tiempo efectivamente asignado en el rol de disponibilidad y no generará derechos permanentes.
+La Gerencia o la unidad competente en materia de gestión salarial emitirá los lineamientos técnicos necesarios para la determinación operativa, actualización y liquidación de este reconocimiento, de conformidad con las directrices que emita el Mideplan y la normativa presupuestaria aplicable.
+Debido a su naturaleza temporal y de ejercicio rotativo, así como por estar dirigida a la afectación de un puesto, la compensación económica por el ejercicio efectivo de la disponibilidad no genera derechos permanentes para la persona trabajadora afectada.

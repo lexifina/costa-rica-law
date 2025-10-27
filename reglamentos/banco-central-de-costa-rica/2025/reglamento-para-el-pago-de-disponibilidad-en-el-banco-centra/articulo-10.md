@@ -1,0 +1,1 @@
+Artículo 10.-De los roles para el ejercicio de la disponibilidad. La persona que ocupe el puesto de director o gerente de Departamento en donde existan puestos sujetos al régimen de disponibilidad, establecerá un rol semanal para el ejercicio efectivo de las condiciones del régimen, para lo cual deberá aplicar la igualdad de participación en él.

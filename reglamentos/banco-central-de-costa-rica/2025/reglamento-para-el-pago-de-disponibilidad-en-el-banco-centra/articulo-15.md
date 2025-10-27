@@ -1,0 +1,1 @@
+Artículo 15.-Consecuencias del incumplimiento. Cuando la persona trabajadora que ocupa una plaza sometida al régimen de disponibilidad incumpla alguna de las disposiciones del presente Reglamento, le serán aplicadas en lo conducente y según la gravedad de su conducta, las disposiciones contenidas en el Reglamento Autónomo de Servicios.
