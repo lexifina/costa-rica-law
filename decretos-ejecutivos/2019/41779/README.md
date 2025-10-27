@@ -28,3 +28,4 @@ Reglamento de la Ley del Impuesto sobre el Valor Agregado
 | 13 | 2023-12-04 | Decreto Ejecutivo 44306 (2023-12-04) |
 | 14 | 2024-12-05 | Decreto Ejecutivo 44899 (2024-12-05) |
 | 15 | 2025-08-14 | Decreto Ejecutivo 45236 (2025-08-14) |
+| 16 | 2025-10-27 | Decreto Ejecutivo 45306 (2025-10-27) |

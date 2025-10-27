@@ -8,7 +8,8 @@ d.Las exportaciones y las operaciones relacionadas con estas, entendidas estas �
 e.La venta de bienes y prestación de servicios a contribuyentes del Régimen deZonas Francas.
 f.La prestación de servicios por contribuyentes del impuesto, según el artículo 4 dela Ley, cuando sean consumidos fuera del territorio nacional.
 g.La venta de bienes y servicios incluidos en el numeral 3 del artículo 11 de la Ley.
-h.La venta de bienes y servicios a los entes públicos o privados, que por disposiciónde leyes especiales gocen de exención del impuesto, las cuales se encuentranincluidas en los numerales 15), 17), 18), 19), 24), 32), 33) y 34) del artículo 8 de la Ley, y en el tanto estas entidades cumplan con los requisitos que se establezcan por la Dirección General de Hacienda para conceder la autorización de exenciónen sus adquisiciones.
+h. La venta de bienes y servicios a los entes públicos o privados, que por disposición de leyes especiales gocen de exención del impuesto. las cuales se encuentran incluidas en los numerales 15), 17), 18), 19), 24), 32), 33), 34) y 36) del artículo 8 de la Ley. y en el tanto estas entidades cumplan con los requisitos que se establezcan por la Dirección General de Hacienda para conceder la autorización de exención en sus adquisiciones.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45306 del 27 de octubre del 2025)
 i.Las operaciones con diplomáticos en aplicación del principio de reciprocidad.
 j. Los servicios de transporte aéreo internacional incluidos en el inciso 1) subinciso a) del artículo 11 de la Ley.
 (Así adicionado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 43254 del 23 de setiembre de 2021)
