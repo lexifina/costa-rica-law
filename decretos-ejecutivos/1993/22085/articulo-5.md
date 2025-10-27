@@ -1,1 +1,0 @@
-5°—EL MEIC deberá comunicar en forma escrita a la CNV a más tardar el día nueve del mes calendario siguiente al de cierre del cálculo del IPC, el nivel que alcanzó este índice con dos decimales de aproximación. Si el día nueve no fuere hábil, la comunicación deberá hacerla el MEIC el día hábil inmediato anterior.

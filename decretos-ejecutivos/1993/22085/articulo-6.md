@@ -1,5 +1,0 @@
-60—En caso de que por alguna razón el MEIC no le comunicare oportunamente el nivel del índice de precios al consumidor o IPC a la CNV, esta procederá de la siguiente forma:
-i) Tomará la última variación mensual del IPC que se conoce y con base en ella calculará un factor de incremento diario de la UD según metodología establecida en el artículo cuarto de este Decreto.
-ii) Con base en este factor de incremente diario de la UD, la CNV procederá a informar, un día hábil a la vez, el valor de la UD para el día hábil siguiente hasta que se disponga de la cuantificación del cambio en el IPC efectivo del mes anterior. Cada uno de estos valores diarios de la UD se darán a conocer a más tardar a las 15 horas del día hábil anterior a la vigencia de la información a publicar.
-iii) En caso de que el día hábil siguiente sea varios días después, la información entregada por la CNV deberá cubrir también los días no hábiles.
-iv) Una vez conocida la variación del IPC del mes calendario recién finalizado, la CNV procederá a calcular e informar la tabla con los valores diarios de la UD de los días que restan hasta el día diez del mes calendario siguiente.
