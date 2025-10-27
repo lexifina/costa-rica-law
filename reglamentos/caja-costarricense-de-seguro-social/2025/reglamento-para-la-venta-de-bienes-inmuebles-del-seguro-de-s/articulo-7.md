@@ -1,0 +1,1 @@
+Artículo 7º-Del precio base para la venta. El Área Control de Activos determinará el precio base del inmueble que se pretende enajenar, mediante un avalúo pericial realizado por el profesional a cargo y con competencia para dicha labor, el cual no podrá superar un año de emitido.
