@@ -22,6 +22,8 @@ viii. Traspasos de valores de fondos de pensión o de capitalización laboral, d
 . Otros que determine el Superintendente de Pensiones mediante Acuerdo.
 x. Traslado de valores de una cuenta especial de custodia de emisores accionarios a una cuenta de custodia de un inversionista.
 (Así reformado el inciso anterior por acuerdo N° SGV-A-265 del 4 de mayo de 2022. Notesé que no existe el inciso XIX)
+xi. Traslado de valores derivados del servicio de subcustodia brindado a custodios extranjeros o infraestructuras de mercados financieros.
+(Así adicionado el acápite anterior mediante acuerdo N° SGV-A-7-2025 del 27 de octubre de 2025)
 Cualquier otro traslado relacionado con fondos de pensión o de capitalización laboral no contemplado en este Acuerdo debe ser autorizado previamente por la Superintendencia de Pensiones (SUPEN).
 2. Traspasos onerosos diferentes de la compra venta y el reporto:
 a) Dación en pago: Se debe acreditar la preexistencia de la respectiva obligación. Tal preexistencia podrá acreditarse mediante certificación de un contador público o a través de una declaración otorgada bajo la fe de juramento con fines exclusivamente probatorios, en las cuales conste la fecha de vencimiento de la obligación y su cuantía, diferenciando claramente el monto que se adeuda por concepto de capital e intereses. Además, se debe adjuntar copia certificada notarialmente del contrato de dación en pago, el cual debe especificar los valores y sus características (emisor, instrumento, código ISIN, valor facial) entregados como dación en pago.

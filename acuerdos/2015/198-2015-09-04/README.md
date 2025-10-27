@@ -17,3 +17,4 @@ Acuerdo para la implantación del Reglamento de Custodia
 | 2 | 2016-06-28 | Acuerdo 217 (2016-06-28) |
 | 3 | 2017-03-28 | Acuerdo 223 (2017-03-28) |
 | 4 | 2022-05-04 | Acuerdo 265 (2022-05-04) |
+| 5 | 2025-10-27 | Acuerdo 7 (2025-10-27) |

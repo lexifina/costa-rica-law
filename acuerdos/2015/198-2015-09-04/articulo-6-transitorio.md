@@ -1,0 +1,2 @@
+Transitorio VII. La reforma al inciso c) del artículo 2. Conciliaciones del SGV-A-198 Acuerdo para la implantación del Reglamento de Custodia, rige a partir del 31 de enero del 2026.
+(Así adicionado mediante acuerdo N° SGV-A-7-2025 del 27 de octubre de 2025. Nótese que no existe un transitorio VI. No obstante; el sistema exige una numeración consecutiva por lo que se ha adicionado como un transitorio VI.)
