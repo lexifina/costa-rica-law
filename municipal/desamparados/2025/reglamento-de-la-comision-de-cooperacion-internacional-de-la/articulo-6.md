@@ -1,0 +1,1 @@
+Artículo 6º-Sesiones de la comisión: La comisión tiene la obligación de sesionar una vez al mes de manera ordinaria, siempre y cuando posea temas trasladados. En cuanto a las sesiones extraordinarias estas podrán ser convocadas con cuarenta y ocho horas de antelación cuando la coordinación así lo requiera o por solicitud de al menos las dos terceras partes de sus miembros.

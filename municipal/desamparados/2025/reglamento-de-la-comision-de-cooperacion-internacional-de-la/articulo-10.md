@@ -1,0 +1,1 @@
+Artículo 10.-Pertinencia y justificación: Todos los viajes de funcionarios de la corporación o miembros del Concejo Municipal por razones laborales y funciones propias de la Municipalidad, deben justificar y mostrar previa su autorización, la pertinencia, consistencia con las funciones propias y asegurando el potencial beneficio para la corporación.

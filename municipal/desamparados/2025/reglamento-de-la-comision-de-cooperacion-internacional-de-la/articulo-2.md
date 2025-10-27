@@ -1,0 +1,1 @@
+Artículo 2º-Naturaleza: La Municipalidad cuenta con autonomía política, administrativa y financiera, y dentro de sus atribuciones establece la capacidad y deber de concretar, con personas o entidades nacionales o extranjeras, pactos convenios o contratos necesarios para el cumplimiento de sus funciones, según lo establece el artículo 9 del Código Municipal.

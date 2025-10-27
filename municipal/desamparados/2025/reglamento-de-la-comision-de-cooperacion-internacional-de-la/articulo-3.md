@@ -1,0 +1,1 @@
+Artículo 3º-Objetivo: El presente reglamento tiene como objetivo normar la creación, y las funciones específicas de la comisión de Cooperación internacional del Concejo Municipal de Desamparados. Siendo este órgano de gran potencial para buscar alianzas y cooperación tendiente a mejorar el desarrollo y fortalecimiento de las capacidades institucionales del municipio.
