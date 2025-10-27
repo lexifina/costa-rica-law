@@ -1,0 +1,1 @@
+Artículo 27.-Régimen Sancionatorio Disciplinario. El régimen sancionatorio disciplinario que aplica a quienes ocupen cargos en la Policía Municipal e inspector de tránsito, será el mismo aplicable a todos los funcionarios municipales establecido en las diferentes normativas aplicables.

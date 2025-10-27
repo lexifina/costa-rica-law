@@ -1,0 +1,2 @@
+Artículo 5º-Disponibilidad Presupuestaria. El alcance de la Policía Municipal está sujeto a la disponibilidad de recursos presupuestarios por parte de la Municipalidad. De tal forma, la imposibilidad de realizar alguna de estas acciones por razones presupuestarias, no podrá tenerse como una omisión administrativa.
+Será financiada por los recursos que establezcan las distintas leyes, recursos propios de los demás servicios relacionados a la seguridad ciudadana, donaciones realizadas por los distintos entes cooperantes y por cualquier otro medio lícito de financiamiento.

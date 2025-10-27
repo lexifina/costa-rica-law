@@ -1,0 +1,1 @@
+Artículo 14.-Delimitación Jurisdiccional. Para afectos de delimitación de la jurisdicción territorial de la Policía Municipal de tránsito se dará sobre el territorio del cantón de Tibás incluyendo rutas Nacionales como cantonales

@@ -1,0 +1,1 @@
+Artículo 17.-Reclutamiento y selección. Para el proceso de reclutamiento y selección del personal municipal que ocupe cargos en la Policía Municipal e Inspectores Municipales de Tránsito, deberá tomarse en consideración el régimen de empleo contenido en el Código Municipal, la Ley Marco de Empleo Público, en el Reglamentos internos de la Municipalidad de Tibás vigentes.
