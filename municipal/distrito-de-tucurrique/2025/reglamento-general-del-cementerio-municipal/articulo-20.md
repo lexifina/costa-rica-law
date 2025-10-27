@@ -1,0 +1,1 @@
+Artículo 20.-Cualquier daño o deterioro ocasionado por la construcción de una bóveda, será reparado de inmediato por el responsable. En caso contrario, el costo de la reparación será cargado a su cuenta y constituirá gravamen sobre el derecho respectivo.

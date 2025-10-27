@@ -1,0 +1,1 @@
+Artículo 33.-Vencido el período de arrendamiento La Municipalidad quedará facultada para exhumar y trasladar al osario general los restos contenidos en el respectivo nicho o por incumplimiento del artículo 13 de este reglamento lo cual faculta a la administración de disponer del o los derechos a nombre del arrendatario.

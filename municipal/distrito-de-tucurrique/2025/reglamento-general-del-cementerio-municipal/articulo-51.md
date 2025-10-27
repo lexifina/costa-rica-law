@@ -1,0 +1,1 @@
+Artículo 51.-El acta para traslado de restos deberá contener la autorización de los arrendatarios de ambas bóvedas en caso de traslado dentro del cementerio o del arrendatario de la bóveda que contenga los restos en caso de traslado a otro cementerio. En este último caso se requerirá la constancia de La Administración, donde se indique que se ha reservado para tal fin.

@@ -1,0 +1,1 @@
+Artículo 18.-Las tapas de los nichos deberán dar a los callejones de acceso y las lápidas o placas de identificación se colocarán sobre las bóvedas en forma tal que denotan el nicho a que hacen referencia.

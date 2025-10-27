@@ -1,0 +1,1 @@
+Artículo 59.-La Administración se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en todas las instalaciones del cementerio, tanto en su terreno propio como en los derechos arrendados.

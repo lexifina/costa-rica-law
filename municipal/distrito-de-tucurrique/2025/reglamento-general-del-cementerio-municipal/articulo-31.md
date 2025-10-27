@@ -1,0 +1,1 @@
+Artículo 31.-El arrendamiento de un nicho municipal solo será renovable una vez a juicio del Concejo Municipal cuando las circunstancias lo permitieran y ameriten, esto por el período máximo de dos años, sin posibilidad de renovación.

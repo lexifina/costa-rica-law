@@ -1,0 +1,1 @@
+Artículo 29.-Cuando los nichos municipales o bóvedas particulares, por la acción del tiempo, por movimientos telúricos, por negligencia o por cualquier otro motivo se deterioren, o amenacen la salud pública, el arrendatario está en la obligación de acatar el artículo 27 del presente reglamento.

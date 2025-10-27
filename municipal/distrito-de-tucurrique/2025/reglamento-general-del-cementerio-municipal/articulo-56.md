@@ -1,0 +1,1 @@
+Artículo 56.-El Registro de Exhumaciones y Traslados debe contener: nombre del propietario del derecho donde se practica la exhumación, nombre, calidades y fecha de enterramiento del cadáver a exhumar, transcripción de la orden de autoridad competente que autorice la exhumación.

@@ -1,0 +1,1 @@
+Artículo 61.-El Intendente Municipal y el Encargado del Cementerio tienen la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los arrendatarios de derechos se obligan a cumplirlos íntegramente, así lo harán constar en el contrato respectivo.

@@ -1,0 +1,1 @@
+Artículo 3º-En todas las materias que este Reglamento no deja a decisión del Concejo Municipal, es vinculante la decisión del Intendente Municipal, sin perjuicio de ser recurrida la decisión de este último ante el Concejo Municipal de Distrito.

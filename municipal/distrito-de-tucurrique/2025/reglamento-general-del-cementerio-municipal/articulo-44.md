@@ -1,0 +1,1 @@
+Artículo 44.-En concordancia con las leyes respectivas, las exhumaciones se consideran de dos tipos: ordinarias y extraordinarias. Las primeras son las que se efectúan después de cinco años de inhumados los restos y las segundas son las que se efectúan dentro de los primeros cinco años posteriores a la inhumación.

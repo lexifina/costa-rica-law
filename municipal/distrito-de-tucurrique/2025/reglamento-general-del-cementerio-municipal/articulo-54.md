@@ -1,0 +1,1 @@
+Artículo 54.-El Registro de Propietarios contendrá la siguiente información: nombre, apellidos y número de cédula del propietario, número del lote, estado de cuenta, correo electrónico y número telefónico del propietario, así como su dirección de habitación.

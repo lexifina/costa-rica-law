@@ -1,0 +1,1 @@
+Artículo 7º-Para el arrendamiento de derechos, el pago correspondiente debe efectuarse de contado ante Caja Municipal, según se establezca previo estudio tarifario aprobado por el Concejo Municipal y presentado por la Administración. En igualdad de condiciones, se dará prioridad para arrendar derechos a los vecinos del distrito de Tucurrique.

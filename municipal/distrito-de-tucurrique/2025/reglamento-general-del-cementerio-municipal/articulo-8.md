@@ -1,0 +1,1 @@
+Artículo 8º-Los traspasos de derechos se harán ante La Municipalidad mediante nota escrita y firmada por ambas partes, este acto debe realizarse frente a un funcionario con poder suficiente otorgado por la Intendencia Municipal. La Municipalidad tiene facultad para aceptar o no el traspaso, advirtiendo la existencia del presente Reglamento.

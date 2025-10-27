@@ -1,0 +1,1 @@
+Artículo 52.-A partir del momento en que los restos de una persona han salido del Cementerio, La Municipalidad salva su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda.

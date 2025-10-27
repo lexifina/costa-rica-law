@@ -1,0 +1,1 @@
+Artículo 19.-La supervisión y construcción de bóvedas serán autorizadas por el Departamento de Construcciones del Concejo Municipal del Distrito de Tucurrique, el cual está facultado solicitar la demolición de la obra si no cumple con lo establecido en el presente reglamento.
