@@ -1,4 +1,0 @@
-Artículo 16.—En caso de detectarse que el establecimiento no cuenta con la respectiva licencia de expendio de bebidas con contenido alcohólico o que no cuenta con algún requisito esencial para su funcionamiento vigente, se procederá a la clausura del establecimiento en forma inmediata por la autoridades municipales y o autoridades gubernamentales, y se le dará orden de apertura hasta tanto el interesado subsane el incumplimiento y proceda a la cancelación de la multa correspondiente que se establecerá de la siguiente manera:
-• En la primera vez, con la clausura de la actividad y el pago de un salario base,
-• En la segunda, clausura de la actividad y la imposición de diez salarios base y
-• Al ser reincidente se procederá a la integración de un órgano del debido proceso de conformidad con el Código Municipal y la Ley General de la Administración pública con la finalidad de proceder a la cancelación de la licencia, según sea el caso.

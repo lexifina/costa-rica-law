@@ -1,1 +1,0 @@
-Artículo 9º—No se autorizará ni permitirá la explotación de una patente de licores en forma conjunta con patentes comerciales incompatibles o no asociadas de manera directa o indirecta por este reglamento a la comercialización, expendio y consumo de bebidas con contenido alcohólico.

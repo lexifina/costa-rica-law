@@ -1,1 +1,0 @@
-Artículo 2º—El presente reglamento aplica para todas las personas físicas, jurídicas, privadas, públicas, nacionales o extranjeras que comercialicen o expendan bebidas con contenido alcohólico; así como para aquellos que las consuman en vías y sitios públicos.
