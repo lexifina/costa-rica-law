@@ -1,0 +1,2 @@
+ARTÍCULO 10- Presupuestos de las instituciones públicas. Las instituciones públicas nombradas en los artículos anteriores, en los anteproyectos de presupuestos que formulen, conforme a sus posibilidades, contendrán la previsión de gasto para el desarrollo de acciones de prevención y atención de los trastornos de la conducta alimentaria, de conformidad con las atribuciones de la presente ley.
+Los órganos de gobierno y autónomos harán lo propio, de acuerdo con los lineamientos del ejercicio presupuesta! que determinen.
