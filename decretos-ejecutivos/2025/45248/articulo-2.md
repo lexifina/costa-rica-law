@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Nº 44667-MOPT Reglamento Aeronáutico Costarricense Cartas Aeronáuticas del 25 de junio de 2024 y cualquier otra disposición normativa de igual o inferior rango que se le oponga.
