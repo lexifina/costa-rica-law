@@ -1,1 +1,0 @@
-Artículo 43. - Otras regulaciones internas. El Auditor General podrá emitir disposiciones a través de circulares o lineamientos internos, con el propósito de definir, detallar y adicionar lo dispuesto en este Reglamento, siempre y cuando no se contravenga lo establecido en las leyes y demás normativa aplicable a las Auditorías Internas.

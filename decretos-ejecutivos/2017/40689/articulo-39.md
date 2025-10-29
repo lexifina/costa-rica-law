@@ -1,1 +1,0 @@
-Artículo 39. -Recordatorio de plazos: La Auditoría Interna en sus informes u oficio de remisión, deberá realizar un recordatorio de los plazos dispuestos en la Ley General de Control Interno, que deben ser observados por el jerarca o los titulares subordinados para ordenar o resolver lo que corresponda.
