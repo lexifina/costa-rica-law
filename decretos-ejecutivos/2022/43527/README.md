@@ -15,3 +15,4 @@ Categoría especial para la regularización migratoria de personas extranjeras p
 | --- | --- | --- |
 | 1 | 2022-05-23 | la propia norma |
 | 2 | 2023-11-30 | Decreto Ejecutivo 44281 (2023-11-30) |
+| 3 | 2025-10-29 | Decreto Ejecutivo 45355 (2025-10-29) |

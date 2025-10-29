@@ -1,2 +1,10 @@
-Artículo 7º-Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República. San José, a los cinco días del mes de mayo de dos mil veintidós.
+Artículo 7. No obstante lo dispuesto en el artículo anterior, en aquellas actividades agropecuarias que se desarrollen de manera continua durante todo el año, la persona empleadora podrá solicitar la renovación de la permanencia legal de las personas trabajadoras previamente autorizadas a su favor, para lo cual deberá:
+1) Reactivar, antes del vencimiento del plazo originalmente autorizado, el mecanismo establecido en el artículo 3 del presente Decreto.
+2) Demostrar mediante la planilla de aseguramiento ante la Caja Costarricense del Seguro Social que las personas trabajadoras se han mantenido laborando a su cargo, en la zona y durante el plazo originalmente autorizado.
+Durante el tiempo que el MTSS analiza la solicitud de renovación, las personas trabajadoras se podrán mantener laborando para la persona empleadora.
+En caso de que el MTSS recomiende la renovación de la permanencia legal, las personas trabajadoras podrán permanecer en territorio nacional conforme a las condiciones autorizadas, sin necesidad de egresar. De lo contrario, corresponderá a la persona empleadora asumir la responsabilidad del egreso de las personas trabajadoras a su país.
+El MTSS notificará a la persona empleadora el resultado de la autorización de renovación, conforme al nuevo análisis ocupacional, con copia al MAG, a la DGME, Ministerio de Salud y a cualquier otra entidad que se integre vía protocolo.
+Recibida la notificación, la DGME deberá revisar y validar que los pagos indicados en el inciso b) del artículo 3 del presente Decreto hayan sido realizados debidamente.
+En caso afirmativo, deberá de coordinarse entre la persona empleadora y la DGME, la oficina regional en la que se tramitará la nueva documentación de las personas trabajadoras extranjeras.
+Mediante el Protocolo general para la atención de la migración laboral para la época de cosechas agrícolas, al presente Decreto se establecerán las oficinas de la DGME en las que se entregará el documento SITLAM renovado, el cual otorgará los mismos beneficios que los indicados en el artículo 5 de este Decreto.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45355 del 29 de octubre del 2025)

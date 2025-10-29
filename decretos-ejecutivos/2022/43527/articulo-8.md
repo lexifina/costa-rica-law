@@ -1,0 +1,2 @@
+Artículo 8. Las especificaciones procedimentales para la presentación de los requisitos, el ingreso, la documentación, la renovación del permiso y el egreso de las personas extranjeras al amparo del presente Decreto, serán establecidas mediante el Protocolo general para la atención de la migración laboral para la época de cosechas agrícolas que elaborarán el Ministerio de Salud, el MAG, el MTSS y la DGME.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45355 del 29 de octubre del 2025)
