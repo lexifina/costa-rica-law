@@ -1,0 +1,4 @@
+ARTÍCULO 7- Estrategia de comunicación. Las instituciones del Estado que tienen responsabilidades en el tema de la prevención de los TCA deberán, de acuerdo con los recursos disponibles y sus competencias:
+a) Crear espacios informativos para niños, niñas, adolescentes y adultos sobre los efectos adversos de los trastornos de la conducta alimentaria en la salud, la manera de prevenirlos, reducir factores de riesgo y las instancias públicas donde se brinda atención.
+b) Instrumentar acciones de participación en las redes sociales de internet, con la finalidad de brindar información precisa, objetiva y con base en criterios científicos de los trastornos de la conducta alimentaria.
+c) Establecer instancias de articulación para abordar acciones estratégicas de prevención de las TCA a nivel nacional, regional y comunal.
