@@ -1,1 +1,1 @@
-TRANSITORIO IV- Durante el plazo de dieciocho meses, después de publicado este Código en La Gaceta, la Corte Suprema de Justicia dictará el Reglamento de Organización Interna de la Jurisdicción Agraria.
+TRANSITORIO IV- (Derogado por el artículo 2° de la ley N° 10779 del 29 de octubre de 2025)

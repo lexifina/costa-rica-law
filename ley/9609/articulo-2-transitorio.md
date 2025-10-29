@@ -1,1 +1,1 @@
-TRANSITORIO II- El Poder Judicial deberá designar en el plazo de seis meses, a partir de la entrada en vigencia de este Código, un equipo de personas juzgadoras conciliadoras especialistas en derecho agrario y ambiental.
+TRANSITORIO II- (Derogado por el artículo 2° de la ley N° 10779 del 29 de octubre de 2025)
