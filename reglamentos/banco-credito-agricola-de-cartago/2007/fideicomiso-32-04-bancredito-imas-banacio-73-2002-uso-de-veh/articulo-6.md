@@ -1,1 +1,7 @@
-Artículo 6º—En todo caso, la funcionaria(o) que solicite el uso del vehículo particular, deberá fundamentar los motivos y objetivos que cumplirá el funcionario(a), así como la importancia de la realización de las actividades para las que se preste el vehículo.
+Artículo 6. -Disponibilidad de vehículos y control de ingreso y salida: El uso de los vehículos del fideicomiso se supedita a su disponibilidad y previa autorización de uso, para lo cual se observará el siguiente procedimiento:
+1. Las personas trabajadoras tendrán acceso común a un calendario para uso de vehículos, allí según la necesidad reservarán los días y horarios de uso.
+2. Previa o inmediatamente después de haber efectuado el registro en el calendario la persona trabajadora deberá gestionar la solicitud formal mediante el FORMULARIO DE SOLICITUD DE VEHÍCULOS.
+3. En caso de que la solicitud sea aceptada, agregará tal circunstancia a la reserva efectuada en el calendario y en el evento que la solicitud sea denegada eliminará de inmediato la reserva efectuada.
+4. Las solicitudes para uso de los vehículos deberán presentarse al menos con un día hábil de anticipación a la fecha prevista, salvo casos de emergencia.
+5. La Gerencia de la Unidad Ejecutora del Fideicomiso es quien autorizará el uso de los vehículos, para lo cual determinará la viabilidad de las solicitudes según la disponibilidad del vehículo, la necesidad y prioridad de la gestión a realizar por el fideicomiso.
+6. Respecto al ingreso o salida de vehículos, respectivamente, las personas trabajadoras y el encargado de ejercer dicho control, deberán utilizar en toda oportunidad el FORMULARIO PARA EL REGISTRO DE INGRESO Y SALIDA DE VEHÍCULOS.

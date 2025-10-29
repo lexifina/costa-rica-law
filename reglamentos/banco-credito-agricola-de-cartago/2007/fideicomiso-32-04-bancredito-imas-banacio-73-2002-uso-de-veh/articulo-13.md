@@ -1,1 +1,2 @@
-Artículo 13.—El pago del kilometraje procederá únicamente cuando la (el) funcionaria(o) utilice el vehículo de su propiedad.
+Mantenimiento Y Reparación De vehículos.
+Artículo 13. -Programación del mantenimiento: La Unidad Ejecutora realizará la programación y definirá las características técnicas para el mantenimiento preventivo y correctivo de los vehículos de FIDEIMAS, definiendo su periodicidad y los términos en que se llevará a cabo. Para lo cual se observarán las reglas en materia de contratación pública aplicables.

@@ -1,1 +1,2 @@
-Artículo 10.—En ningún caso, se autorizará uso del vehículo para labores o gestiones del FIDEICOMISO, si la (el) propietaria(o) no cumple con los requisitos establecidos en este Reglamento, caso contrario, el uso del vehículo será por cuenta y riesgo de la (del) funcionaria(o), quedando el FIDEICOMISO relevado a toda responsabilidad.
+Sanciones.
+Artículo 10. -Sanciones: Las sanciones ante el incumplimiento de las presentes disposiciones o las que deriven de ello, sean de manera directa o indirecta, por dolo o culpa se establecerán según su gravedad al tenor de lo establecido en el Reglamento Interno de Trabajo.

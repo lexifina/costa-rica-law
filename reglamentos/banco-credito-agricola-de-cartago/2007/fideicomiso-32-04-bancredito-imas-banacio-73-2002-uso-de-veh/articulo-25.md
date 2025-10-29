@@ -1,1 +1,0 @@
-Artículo 25.—En todo caso, el FIDUCIARIO podrá excluir del registro respectivo, a quienes incumplan con tas disposiciones contenidas en este reglamento. Lo anterior, sin perjuicio de aplicar las medidas disciplinarias respectivas.

@@ -1,13 +1,2 @@
-Artículo 14.—Todos los funcionarios que se acojan a las disposiciones de este Reglamento, deberán utilizar, sin excepción, el formulario diseñado para la liquidación de gastos por concepto de kilometraje, el que contendrá como mínimo:
-a) Número de documento.
-b) Nombre de la (del) funcionaria(o) y número de cédula.
-c) Cantidad de kilómetros recorridos.
-d) Día de salida y de regreso.
-e) Lugares visitados.
-f) Actividades llevadas a cabo.
-g) Nombre de la persona, organización, grupo, empresa o institución
-que visitó.
-h) Nombre y firma de la Gerente de la Unidad Ejecutora que autorizó el uso del vehículo particular de la (del) funcionaria(o).
-i) Reporte del kilometraje de salida y regreso de cada gira.
-j) Firma y número de cédula de la (del) funcionaria (o) propietaria(o).
-k) Nombre y firma del funcionario que revisa el kilometraje recorrido.
+Artículo 14. -De la selección y contratación de talleres para mantenimiento y reparación de vehículos: Lo relativo a la selección y contratación de talleres para el mantenimiento y reparación de los vehículos del Fideicomiso se regirá por la legislación vigente en materia de contratación pública, así como la normativa interna que al respecto ha definido el Fideicomiso para la obtención de este tipo de servicios.
+La Unidad Ejecutora deberá asegurar que el Fideicomiso tenga acceso oportuno a este tipo de servicios, para lo cual deberá planificar adecuadamente las contrataciones del servicio.
