@@ -1,2 +1,2 @@
-Artículo 169.- Corresponderá al MOPT, el control y verificación de cumplimientos, en materia de navegación y seguridad, de las naves o embarcaciones dedicadas a las actividades pesqueras y velar porque las mismas se mantengan en óptimas condiciones de funcionamiento y operatividad y estén dotadas de los equipos apropiados para los propósitos y la naturaleza a la cual están destinadas y son utilizadas.
-Para ello la Dirección de Navegación y Seguridad de la División Marítima Portuaria del MOPT, observará el fiel cumplimiento del sistema de revisión técnica anual establecido en el Reglamento de Inspección para Embarcaciones Nacionales.
+Artículo 169. Sesiones de la Mesa. La Mesa se reunirá ordinariamente al menos una por trimestre y extraordinariamente cuando lo convoque el INCOPESCA. Podrá sesionar de forma presencial o virtual.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 45360 del 29 de octubre del 2025)

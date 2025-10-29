@@ -15,3 +15,4 @@ Reglamento a la Ley de Pesca y Acuicultura N° 8436
 | --- | --- | --- |
 | 1 | 2011-09-30 | la propia norma |
 | 2 | 2016-01-25 | Decreto Ejecutivo 39458 (2016-01-25) |
+| 3 | 2025-10-29 | Decreto Ejecutivo 45360 (2025-10-29) |

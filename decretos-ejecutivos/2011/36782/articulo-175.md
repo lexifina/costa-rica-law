@@ -1,0 +1,2 @@
+Artículo 175.- El capitán de la embarcación, deberá realizar una revisión periódica de los medicamentos contenidos en el botiquín, con el fin de verificar su estado y fecha de caducidad, así mismo los demás artículos del botiquín deberán estar en buenas condiciones higiénicas.
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 45360 del 29 de octubre del 2025, que lo traspasó del antiguo artículo 167 al artículo 175)
