@@ -1,0 +1,2 @@
+Artículo 4: Modificanse los artículos 2° y 6° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2025, Ley No. 10.620, publicada en el Alcance No. 197, a La Gaceta No. 230 del 6 de diciembre de 2024, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 139 a la Gaceta N° 204 del 30 de octubre de 2025)

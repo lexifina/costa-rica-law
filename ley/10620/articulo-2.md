@@ -23,3 +23,27 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
 (Modificado por el artículo 3° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
 (Modificado por el artículo 4° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
+(Reformado por el artículo 2° de la ley N° 10801 del 29 de octubre de 2025)
+(Reformado por el artículo 3° de la ley N° 10801 del 29 de octubre de 2025)
+(Reformado por el artículo 4° de la ley N° 10801 del 29 de octubre de 2025)
+(Mediante el artículo 6° de la ley N° 10801 del 29 de octubre de 2025, se acordó eliminar de este numeral los puestos, en la forma que se indica a continuación:
+1.1.1.1.206.000 - MINISTERIO DE HACIENDA
+RELACIÓN DE PUESTOS DE SERVICIOS ESPECIALES PARA EL AÑO 2025
+Programa 136-05 Rectoría del Subsistema de Contabilidad.
+-Puesto n.° 369721 Oficinista de Servicio Civil 1.
+-Puesto n.° 369722 Oficinista de Servicio Civil 1.
+1.1.1.1.209.000 - MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+RELACIÓN DE PUESTOS DE SERVICIOS ESPECIALES PARA EL AÑO 2025
+Programa 332-00 Consejo Nacional de Vialidad (Conavi).
+-Puesto n.° 000204 Profesional Jefe de Servicio Civil 2.
+-Puesto n.° 380148 Profesional Jefe de Servicio Civil 1.
+-Puesto n.° 381871 Profesional de Servicio Civil 3.
+-Puesto n.° 381890 Profesional de Servicio Civil 3.
+1.1.1.1.219.000-MINISTERIO DE AMBIENTE Y ENERGÍA
+RELACIÓN DE PUESTOS DE CARGOS FIJOS
+PARA EL AÑO 2025
+Programa 879-00 Actividades Centrales.
+- Puesto n.° 373849 Profesional de Servicio Civil 1A.
+Programa 880-00 Sistema Nacional de Áreas de Conservación (Sinac).
+Página: 991
+- Puesto n.° 381290 Profesional Jefe de Servicio Civil 2.")
