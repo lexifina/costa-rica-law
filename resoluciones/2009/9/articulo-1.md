@@ -145,7 +145,10 @@ La auditoría interna, en cumplimiento de sus funciones, debe brindar servicios 
 1.7 Rendición de cuentassobre el SCI
 El jerarca y los titulares subordinados, según sus competencias, deben disponer y ejecutar un proceso periódico, formal y oportuno de rendición de cuentas sobre el diseño, el funcionamiento, la evaluación y el perfeccionamiento del SCI, ante los diversos sujetos interesados.
 1.8 Contribución del SCI al gobierno corporativo
-El SCI debe contribuir al desempeño eficaz y eficiente de las actividades relacionadas con el gobierno corporativo, considerando las normas, prácticas y procedimientos de conformidad con las cuales la institución es dirigida y controlada, así como la regulación de las relaciones que se producen al interior de ella y de las que se mantengan con sujetos externos.
+El SCI debe contribuir al fortalecimiento y desempeño efectivo del Gobierno Corporativo institucional, mediante normas, prácticas, procedimientos y el funcionamiento de órganos técnicos de apoyo que respalden la toma de decisiones estratégicas; promoviendo la legalidad, eficiencia, transparencia y la gestión efectiva del riesgo para el cumplimiento de objetivos, así como, la generación y preservación de valor público.
+Cada entidad deberá definir, formalizar, implementar, evaluar y actualizar periódicamente su marco de Gobierno Corporativo, describiendo su estructura, principios, roles, responsabilidades y procesos, de forma que se asegure la segregación de las funciones de gestión, supervisión y aseguramiento independiente, conforme a su naturaleza jurídica, tamaño, complejidad operativa y modelo de gobernanza. Dicho marco deberá garantizar la independencia funcional y de criterio de la Auditoría Interna.
+En las entidades del sector público financiero, el Gobierno Corporativo se regirá por la normativa del CONASSIF; sin embargo, deberán asegurar su coherencia y alineamiento con estas Normas, los principios y deberes de la Ley N.° 8292.
+(Así reformado el punto 1.8) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
 1.9 Vinculación del SCI con la calidad
 El jerarca y los titulares subordinados, según sus competencias, deben promover un compromiso institucional con la calidad y apoyarse en el SCI para propiciar la materialización de ese compromiso en todas las actividades y actuaciones de la organización. A los efectos, deben establecer las políticas y las actividades de control pertinentes para gestionar y verificar la calidad de la gestión, para asegurar su conformidad con las necesidades institucionales, a la luz de los objetivos, y con base en un enfoque de mejoramiento continuo.
 1.10 Aplicación de las normas generales en instituciones de menor tamaño
@@ -200,6 +203,104 @@ Cuando por situaciones excepcionales, por disponibilidad de recursos, la separac
 El jerarca y los titulares subordinados, según sus competencias, deben procurar la rotación sistemática de las labores entre quienes realizan tareas o funciones afines, siempre y cuando la naturaleza de tales labores permita aplicar esa medida.
 2.6 Ambiente de control en instituciones de menor tamaño
 El jerarca y los titulares subordinados de las instituciones de menor tamaño, según sus competencias, deben demostrar su apoyo constante al SCI, mediante sus manifestaciones y actuaciones diarias, y la estricta observancia de valores éticos, lo cual a su vez deben incentivar en todos los funcionarios de la institución. Así también, deben velar porque se disponga de una organización que propicie el logro de los objetivos, mediante la que se definan claramente las relaciones de jerarquía, se asigne la autoridad y responsabilidad de los funcionarios, se utilicen canales de comunicación apropiados y se apliquen procesos que permitan contar con el personal necesario para el cumplimiento de las funciones que se le asignen.
+2.7 Comité de Auditoría
+El Comité de Auditoría es un órgano técnico con juicio independiente que brinda asesoría técnica y estratégica no vinculante al jerarca institucional, en materia de fortalecimiento del SCI, gestión integral de riesgos y análisis de resultados derivados de la auditoría interna, auditorías externas y demás instancias de control.
+El Comité no ejerce funciones operativas ni de supervisión directa, ni sustituye a la Auditoría Interna, cuya independencia funcional y de criterio está garantizada conforme a lo dispuesto en la Ley N.° 8292. En consecuencia, no revisará ni aprobará los productos emitidos por la Auditoría Interna; su rol es analítico y asesor, orientado a valorar la coherencia entre los riesgos, los controles y las decisiones del jerarca.
+El Comité actúa como instancia de apoyo al jerarca para la articulación estratégica de la gestión de riesgos y la coordinación con los mecanismos de aseguramiento independiente, sin generar estructuras paralelas ni duplicar funciones existentes.
+(Así adicionado el punto 2.7) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.1 Establecimiento del Comité de Auditoría
+Deberán constituir de manera permanente un Comité de Auditoría aquellas instituciones públicas que gestionen activos totales iguales o superiores a 50.560.000 unidades de desarrollo (UD) según su valor al 31 de diciembre del año anterior al ejercicio fiscal vigente1.
+1Unidad de cuenta que incorpora mensualmente los cambios en el IPC del mes inmediato anterior, según lo indicado por el Banco Central al 30 de diciembre del periodo anterior.
+La Contraloría General podrá, mediante resolución motivada, ajustar el umbral y aplicar criterios complementarios relacionados con la criticidad del servicio, la complejidad operativa y el perfil de riesgos institucional, a efectos de determinar la obligatoriedad de constituir ese Comité.
+Las entidades que cuenten con una instancia existente que ejerza funciones equivalentes a las del Comité de Auditoría podrán mantenerla o adaptarla, siempre que se acredite su correspondencia funcional con las responsabilidades establecidas en estas Normas; se formalice mediante acto administrativo debidamente motivado la equiparación o adecuación respectiva, y se garantice la independencia funcional e idoneidad técnica de sus integrantes.
+En todo caso, la institución deberá ajustar su normativa interna para asegurar que ese Comité o la instancia equivalente opere de conformidad con los principios, funciones y responsabilidades previstos en estas Normas.
+Cada institución deberá verificar anualmente, con base en el total de activos reflejados en sus estados financieros aprobados, si alcanza el umbral establecido. En caso de descender por debajo de dicho monto, el Comité o la instancia equivalente deberá mantenerse como órgano técnico permanente, con el fin de preservar la continuidad, madurez y estabilidad del SCI.
+El Comité o su instancia equivalente se constituirá como un órgano técnico de asesoría estratégica no vinculante al jerarca institucional, sin duplicar las funciones de la Auditoría Interna ni de otras unidades de control interno, y respetando su independencia funcional y de criterio. La constitución del Comité no implicará la creación de plazas adicionales, sino la formalización de un órgano técnico con personal existente, procurando la disponibilidad de tiempo y recursos para el cumplimiento de sus funciones.
+(Así adicionado el punto 2.7.1) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.2 Estructura técnica del Comité de Auditoría
+El Comité de Auditoría o su instancia equivalente será designado por el jerarca institucional, mediante un proceso formal que verifique los requisitos técnicos, éticos e independencia de sus integrantes, y estará conformado por al menos tres (3) miembros con idoneidad técnica comprobada en auditoría, control interno, gestión de riesgos, finanzas públicas o gobierno corporativo, de manera que sus integrantes no participen en la ejecución directa de procesos operativos, a fin de resguardar su independencia técnica.
+El Comité de Auditoría podrá integrarse con personal institucional de áreas estratégicas transversales -planificación, gestión de riesgos, asesoría jurídica, cumplimiento o gobierno corporativo-, siempre que dichas personas no tengan responsabilidad directa en la ejecución de los procesos revisados por el Comité y no comprometa la imparcialidad técnica de éste.
+El Reglamento de Funcionamiento del Comité de Auditoría definirá los criterios objetivos mínimos -formación, experiencia y certificaciones- que acrediten la idoneidad requerida para sus miembros. Cada integrante deberá suscribir anualmente una declaración jurada de independencia y de ausencia de conflictos de interés, conforme a los lineamientos institucionales de ética y transparencia.
+El jerarca institucional no integrará el Comité, a fin de preservar la objetividad e independencia de sus análisis. Podrá asistir a las sesiones por invitación, con derecho a voz pero sin voto.
+La Auditoría Interna no formará parte del Comité de Auditoría ni ejercerá funciones decisorias. No obstante, participará de forma continua en las sesiones en calidad de asesora técnica e invitada, con acceso a la información necesaria para el cumplimiento de sus funciones, con voz pero sin voto, y sin asumir responsabilidades operativas dentro del Comité. En todo momento deberá preservarse la independencia funcional y de criterio de la Auditoría Interna.
+No procederá el reconocimiento de dietas ni de remuneraciones adicionales a los miembros que integren el Comité de Auditoría. Podrá considerarse la participación de expertos externos ad honorem, siempre que cuenten con idoneidad técnica debidamente acreditada y suscriban las declaraciones de confidencialidad e independencia correspondientes.
+(Así adicionado el punto 2.7.2) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.3 Funciones del Comité de Auditoría
+El Comité de Auditoría ejercerá las siguientes funciones de asesoría técnica y estratégica, sin ejecución operativa, supervisión directa ni sustitución de las metodologías o procedimientos a cargo de otras unidades de control interno o de la Auditoría Interna:
+1. Asesorar al jerarca institucional en los temas relacionados con el funcionamiento del SCI, la gestión integral de riesgos y el fortalecimiento del Gobierno Corporativo, con el propósito de promover una conducción institucional efectiva, transparente y orientada a resultados.
+2. Analizar periódicamente la confiabilidad, oportunidad, integridad y trazabilidad de la información financiera presentada al jerarca, valorando su utilidad para la toma de decisiones estratégicas y la rendición de cuentas institucional.
+3. Identificar y analizar riesgos críticos y sus causas estructurales con base en los insumos técnicos de la Auditoría Interna, las unidades de control interno, las áreas de gestión de riesgos, las auditorías externas, la Contraloría General y otros órganos de supervisión externa, sin sustituir las funciones propias de dichas instancias.
+4. Alertar al jerarca institucional sobre riesgos o situaciones que requieran atención inmediata, cuando puedan comprometer la legalidad, continuidad del servicio, objetivos estratégicos o integridad del patrimonio público.
+5. Recomendar medidas estratégicas y de fortalecimiento del control interno, cuando identifique deficiencias sistemáticas o riesgos de incumplimiento en la atención de disposiciones, recomendaciones o alertas.
+6. Cuando el Comité identifique inacción, demora indebida o urgencia significativa en la atención de alertas críticas por parte del jerarca, deberá comunicar directamente dichos resultados a las instancias externas competentes, conforme al marco legal vigente, incluyendo órganos de control, supervisión o autoridades judiciales.
+7. Conocer el plan anual de auditoría interna y sus eventuales modificaciones, únicamente con el propósito de asesorar al jerarca sobre su alineación con los riesgos estratégicos institucionales y con las actividades de otras instancias de control, sin intervenir en su aprobación ni ejecución.
+8. Dar seguimiento estratégico al cumplimiento de las recomendaciones, disposiciones y solicitudes emitidas por la Auditoría Interna, las auditorías externas, la Contraloría General y otros entes de supervisión, identificando su grado de avance, antigüedad, riesgos de incumplimiento y obstáculos críticos. Este seguimiento no sustituye la labor metodológica ni el monitoreo técnico a cargo de las unidades de control interno o de la Auditoría Interna; su finalidad es fortalecer la trazabilidad, efectividad y coordinación del Sistema de Control Interno.
+9. Emitir un informe anual dirigido al jerarca institucional, que incluya los principales análisis realizados, el estado de cumplimiento de las recomendaciones formuladas por el propio Comité, las acciones sugeridas para fortalecer el Sistema de Control Interno y el Gobierno Corporativo, así como las medidas adoptadas por el jerarca para su atención. Dichos informes deberán documentarse en actas digitales que aseguren su integridad, trazabilidad, confidencialidad y conservación, conforme al marco legal vigente y a los principios de transparencia y rendición de cuentas.
+(Así adicionado el punto 2.7.3) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.4 Reglamento de organización y funcionamiento del Comité de Auditoría
+El Comité de Auditoría operará conforme a un reglamento formal, elaborado y aprobado por el jerarca institucional, en el cual se establecerán, como mínimo, los siguientes elementos:
+a) Aspectos organizativos:
+· El objetivo y alcance del Comité, en el marco del Sistema de Control Interno y del Gobierno Corporativo institucional.
+· La estructura y composición del Comité según las necesidades y características de la entidad.
+· Los criterios objetivos mínimos para acreditar la idoneidad técnica de sus miembros, incluyendo formación, experiencia y certificaciones.
+b) Designación y permanencia:
+· Los procedimientos de designación, remoción y sustitución, asegurando la transparencia y trazabilidad del proceso.
+· La duración de la designación y los períodos de renovación, procurando asegurar la continuidad operativa sin comprometer la independencia y objetividad del Comité.
+c) Independencia y ética:
+· La obligación de suscribir anualmente una declaración jurada de independencia y ausencia de conflictos de interés, así como la sujeción al código de ética institucional.
+· Los mecanismos de gestión de conflictos de interés, incluyendo la presentación y actualización de declaraciones, así como su resolución oportuna.
+d) Funcionamiento operativo:
+· La frecuencia mínima de reuniones, las reglas de convocatoria y la definición del quórum requerido para deliberar válidamente.
+· Los mecanismos de deliberación y adopción de acuerdos, respetando su naturaleza de órgano asesor, no decisor.
+· Los procedimientos para la documentación de las sesiones, garantizando la trazabilidad, integridad, confidencialidad y conservación de la información, conforme a la normativa aplicable.
+· Metodología para evaluar el impacto de las recomendaciones emitidas por el Comité, asegurando que se determinen las mejoras efectivas y medibles aportadas al Sistema de Control Interno.
+e) Interacción y coordinación institucional:
+· Los criterios y condiciones para la participación y coordinación con el Auditor Interno, respetando sus funciones legales y su independencia técnica.
+· Los mecanismos de articulación y coordinación técnica con las Unidades de Control Interno institucionales y con los órganos de control y supervisión externos.
+f) Comunicación y transparencia:
+· El proceso para la elaboración y remisión de informes técnicos al jerarca institucional, incluyendo la periodicidad y los requisitos mínimos de contenido.
+· La publicación anual de un resumen ejecutivo de los temas tratados por el Comité, los principales avances y las métricas de seguimiento en el portal institucional, salvaguardando la confidencialidad de la información sensible.
+g) Revisión periódica y mejora continua:
+· El reglamento deberá garantizar que el Comité mantenga su carácter técnico y su rol exclusivo de asesoría al jerarca, sin ejercer funciones operativas, de ejecución, supervisión directa o control sobre la Auditoría Interna, conforme a la Ley N.º 8292.
+· El jerarca institucional deberá revisar periódicamente la vigencia y pertinencia del reglamento, considerando la evolución del entorno de riesgos, los cambios organizativos o los resultados de las evaluaciones sobre el desempeño del Comité.
+(Así adicionado el punto 2.7.4) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.5 Constitución o adecuación del Comité de Auditoría
+Las entidades que, al 31 de diciembre del año anterior al ejercicio fiscal vigente, gestionen activos totales iguales o superiores al umbral establecido en la norma 2.7.1 y no cuenten con un Comité de Auditoría ni con una instancia equivalente conforme a lo dispuesto en estas Normas, dispondrán de un plazo máximo de doce (12) meses, contados a partir de la entrada en vigencia de la presente resolución, para constituir el Comité y aprobar su reglamento de funcionamiento.
+Para las instituciones que alcancen el umbral de activos en ejercicios fiscales posteriores, el plazo de doce (12) meses se contará a partir de la fecha de aprobación de los estados financieros en los cuales se determine que la entidad alcanzó el umbral previsto en la norma 2.7.1.
+La constitución e implementación del Comité deberá desarrollarse de forma proporcional y gradual, según la complejidad organizativa y las capacidades institucionales, conforme a las siguientes fases:
+a) Fase 1 - Constitución del Comité de Auditoría (hasta 6 meses)
+· Elaborar y aprobar el reglamento de funcionamiento del Comité de Auditoría.
+· Designar a sus integrantes, verificando su idoneidad técnica, independencia y ausencia de conflictos de interés.
+· Constituir e instalar formalmente el Comité mediante la primera sesión, dejando constancia en acta de su conformación, acuerdos iniciales y compromisos de operación.
+b) Fase 2 - Entendimiento institucional y plan de implementación (hasta 9 meses).
+· Desarrollar un diagnóstico integral del SCI y del Gobierno Corporativo institucional, identificando las instancias que intervienen en la gestión de riesgos, la Auditoría Interna y otras funciones de supervisión, a fin de articular armónicamente el Comité con las estructuras existentes, evitando duplicidades y promoviendo coherencia y coordinación institucional.
+· Elaborar un plan de implementación del funcionamiento continuo, que defina mecanismos, responsables, cronograma y metas de corto plazo orientadas a garantizar su operatividad efectiva, la articulación con las demás instancias de control y la generación de valor estratégico.
+· Ajustar normativa interna para asegurar que ese Comité o la instancia equivalente opere de conformidad con los principios, funciones y responsabilidades previstos en estas Normas.
+· Presentar al jerarca institucional un primer informe de avance del plan de implementación, en el que se detallen los progresos alcanzados y las acciones pendientes para el funcionamiento sostenido del Comité.
+c) Fase 3 Operatividad plena (hasta 12 meses).
+· Definir y formalizar el plan anual de trabajo del Comité.
+· Implementar en su totalidad los mecanismos para el funcionamiento continuo y coordinación con el resto de instancias de control.
+· Presentar al jerarca un informe de cierre del plan de implementación, que documente el estado operativo del Comité, los resultados alcanzados y las acciones pendientes.
+El jerarca institucional deberá asegurar la viabilidad operativa del Comité de Auditoría, velando por disponer el tiempo, los medios y el respaldo administrativo necesario para el cumplimiento de sus funciones.
+En casos debidamente justificados, el jerarca podrá solicitar a la Contraloría General de la República una prórroga de hasta tres (3) meses, presentando la solicitud con al menos treinta (30) días hábiles de antelación al vencimiento del plazo original, acompañada de una justificación razonada, el detalle de las acciones ejecutadas y un cronograma actualizado.
+La presente norma será aplicable tanto a las instituciones que, al momento de entrada en vigencia de esta reforma, alcancen el umbral de activos establecido para la constitución obligatoria del Comité de Auditoría, como a aquellas que en ejercicios posteriores lleguen a dicho umbral o decidan constituirlo voluntariamente, conforme a los principios de gradualidad, proporcionalidad y mejora continua.
+(Así adicionado el punto 2.7.5) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
+2.7.6 Evaluación del Comité de Auditoría
+El jerarca institucional deberá evaluar al menos anualmente la eficacia, independencia y aporte estratégico del Comité de Auditoría, con el fin de asegurar su desempeño continuo, su coherencia con las funciones definidas en estas Normas y su contribución efectiva al fortalecimiento del Sistema de Control Interno.
+La evaluación podrá realizarse internamente o con apoyo de instancias externas especializadas, e incluirá, como mínimo, los siguientes ámbitos de análisis:
+a) Composición e independencia:
+· La idoneidad técnica y diversidad profesional de sus integrantes, con base en los criterios definidos en el Reglamento de Funcionamiento y su capacidad para emitir juicios independientes.
+· El nivel de independencia, imparcialidad y objetividad demostrado por el Comité en sus análisis y recomendaciones.
+b) Calidad técnica y relevancia estratégica:
+· La calidad técnica de su asesoría al jerarca, evaluada según criterios de rigor, pertinencia y oportunidad.
+· La relevancia y aplicabilidad práctica de sus recomendaciones, especialmente en relación con los riesgos y prioridades estratégicas.
+· El grado de cumplimiento efectivo de sus funciones conforme a la normativa y al reglamento de funcionamiento.
+c) Contribución al fortalecimiento del Sistema de Control Interno:
+· La contribución efectiva del Comité al fortalecimiento y madurez del Sistema de Control Interno, y a la toma de decisiones estratégicas institucionales, demostrada por el impacto y aplicabilidad de sus recomendaciones.
+· La evaluación deberá considerar el contexto institucional y los recursos disponibles, con el fin de determinar si las deficiencias observadas son atribuibles a la gestión del Comité o a limitaciones impuestas por la Administración.
+El jerarca institucional deberá documentar los resultados de esta evaluación y utilizarlos como insumo para la mejora continua del Comité, su composición o su reglamento de funcionamiento, según corresponda.
+Cuando se identifiquen deficiencias relevantes en el funcionamiento del Comité, el jerarca deberá adoptar medidas correctivas oportunas, incluyendo, cuando sea necesario, la sustitución de integrantes, la revisión de su perfil técnico o el rediseño del esquema de trabajo del Comité.
+(Así adicionado el punto 2.7.6) anterior por el artículo 1° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
 CAPÍTULO III: NORMAS SOBRE VALORACIÓN DEL RIESGO[5]
 [5]Este Capítulo incorpora lo establecido en los artículos 2 f), 14, 18 y 19 de la LGCI.
 3.1 Valoración del riesgo
@@ -401,7 +502,10 @@ Tareas cuya concentración en las competencias de una sola persona, podría perm
 Gestión documental
 Conjunto de actividades realizadas por la institución con el fin de controlar, almacenar y recuperar, de manera oportuna y eficiente, la información producida o recibida en el desarrollo de sus actividades.
 Gobierno corporativo
-Sistema de normas, prácticas y procedimientos por el cual la institución es dirigida y controlada, incluyendo la regulación de las relaciones que se producen al interior de una institución y la conducción de las que se mantengan con sujetos externos.
+Es el marco mediante el cual una institución pública dirige, supervisa y controla su gestión, con el propósito de garantizar una administración efectiva, íntegra, transparente y sujeta al principio de legalidad, orientada al cumplimiento de sus objetivos institucionales y a la creación y preservación de valor público.
+Este marco establece las reglas, estructuras, roles y procesos que delimitan y articulan las funciones de gestión, supervisión y aseguramiento, determinando la forma en que se adoptan las decisiones estratégicas, la participación de los distintos actores institucionales, cómo se supervisa su implementación y las responsabilidades derivadas de la rendición de cuentas sobre los resultados y el uso de los recursos públicos.
+El Gobierno Corporativo articula e integra el SCI la gestión de riesgos, la Auditoría Interna como componente orgánico independiente de ese Sistema, el cumplimiento normativo y los demás mecanismos de supervisión estratégica.
+(Así reformada la definición anterior por el artículo 2° de la resolución N° R-DC-00123-2025 del 30 de octubre del 2025)
 Impacto De la gestión institucional:
 Efecto que la gestión de una entidad pública debe genera en la sociedad a la cual se debe, mediante la consecución de los fines encomendados. Las entidades públicas deben priorizar sus actividades en función de su impacto en el logro de esos fines.
 Del riesgo:
