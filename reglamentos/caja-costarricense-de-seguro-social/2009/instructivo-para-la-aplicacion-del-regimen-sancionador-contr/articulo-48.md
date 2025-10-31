@@ -1,1 +1,0 @@
-Artículo 48.—De los recursos. Salvo que la normativa especial de contratación administrativa disponga expresamente lo contrario, sólo cabrán recursos contra el acto final de procedimiento de conformidad con el régimen recursivo dispuesto por la Ley General de la Administración Pública, de acuerdo con lo dispuesto por el Reglamento a la Ley de Contratación Administrativa.

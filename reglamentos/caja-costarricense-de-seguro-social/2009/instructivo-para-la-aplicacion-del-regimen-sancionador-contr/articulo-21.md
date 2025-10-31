@@ -1,1 +1,0 @@
-Artículo 21.—De la imputación. El traslado de cargos se equiparará a una “acusación formal” mediante una instrucción de cargos que tiene que realizarse con la descripción en detalle, precisa y clara, del hecho que se le imputa y la concomitante calificación legal del hecho, estableciendo las bases jurídicas de la falta y la concreta sanción aplicable.

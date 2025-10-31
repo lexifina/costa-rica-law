@@ -1,1 +1,0 @@
-Artículo 44.—De los arreglos de pago. Corresponderá a las unidades de cobro administrativo adscritas a la Gerencia Financiera, formalizar los arreglos de pago, de acuerdo con las políticas institucionales aplicables.

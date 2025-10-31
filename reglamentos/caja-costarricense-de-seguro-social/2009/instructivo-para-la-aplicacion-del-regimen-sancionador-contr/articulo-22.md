@@ -1,4 +1,0 @@
-Artículo 22.—De las partes del procedimiento. Serán partes del procedimiento las personas físicas o jurídicas que intervienen en un procedimiento en defensa de un interés legítimo o un derecho subjetivo que pueda resultar afectado. Lo será el procedimentado a quien se le imputa una falta administrativa.
-En caso de que el procedimiento se realice con ocasión de una denuncia por parte de un tercero, regirán para él las reglas dispuestas por la Ley contra el enriquecimiento ilícito y corrupción.
-El denunciante no se considerará parte del procedimiento y será tratado como un gestionante cubierto por el derecho de petición y respuesta.
-Tampoco se considerará parte a la administración contratante, toda vez que en su sentido funcional responde a la misma administración que procedimenta en ejercicio de la potestad de imperio sancionadora.

@@ -1,2 +1,0 @@
-Artículo 10.—Del inicio del procedimiento. Podrá iniciarse un procedimiento sancionador con motivo de la denuncia, la petición de un particular, un funcionario público o como producto de una decisión oficiosa de la Administración cuando concurra el informe del administrador o encargado del contrato o un informe de Auditoría Interna.
-De previo al inicio del procedimiento sancionador, el órgano competente para ejercer la potestad sancionadora, podrá conformar un órgano de investigación preliminar, colegiado o unipersonal, cuando la complejidad de los hechos así lo amerite.

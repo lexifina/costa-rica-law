@@ -1,1 +1,0 @@
-Artículo 26.—De la evacuación de la prueba. De todos los medios o elementos de convicción tendientes a demostrar la exactitud o no de los hechos que motivan el acto final, aportados por la parte procedimentada o por la misma Administración.

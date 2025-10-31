@@ -1,2 +1,0 @@
-Artículo 34.—De la motivación del acto final. El procedimiento administrativo servirá para imponer la sanción de la falta legalmente prevista, comprobada en el procedimiento y reprochable a falta de justificación, con fundamento en la Ley de Contratación Administrativa y su Reglamento y los principios constitucionales que lo acompañan.
-En este sentido la motivación la constituirá la descripción cronológica de hechos ciertos, verdaderos y existentes al momento de dictar el acto, debidamente acreditados en el expediente del procedimiento administrativo.
