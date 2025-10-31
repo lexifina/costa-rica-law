@@ -1,0 +1,1 @@
+Artículo 2º-Cuando existan plazas vacantes en los puestos contenidos en los estratos ocupacionales TAD y la Administración Activa decida resolverlas por un proceso de concurso interno, ejecutará las acciones preparatorias y de formulación que le permitan planificar el proceso y conformar el registro de elegibles para llenarlas.

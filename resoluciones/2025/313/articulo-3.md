@@ -1,0 +1,1 @@
+Artículo 3º-Los procesos de concurso interno para los puestos clasificados en los estratos ocupacionales TAD se sujetarán a lo dispuesto en la Resolución N° DG-RES-148-2025, excepto a lo que esta dispone sobre el procedimiento de la Comprobación de idoneidad general (Fase I) y Comprobación de idoneidad específica (Fase II) y el plazo preceptuado en su artículo 8.
