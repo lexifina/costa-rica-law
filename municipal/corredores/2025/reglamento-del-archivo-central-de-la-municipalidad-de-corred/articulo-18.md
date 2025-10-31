@@ -1,0 +1,3 @@
+CAPÍTULO V
+Sobre el préstamo de documentos
+Artículo 18.-El préstamo de documentos se realizará expresamente a funcionarios de la Municipalidad de Corredores, limitando estrictamente el uso de estos, a las instalaciones de la Municipalidad de Corredores. Queda rotundamente prohibido el uso de la documentación fuera de las instancias anteriormente mencionadas, salvo en excepciones establecidas por las regulaciones específicas reglamentarias o casos de requerimientos de los Tribunales de Justicia, Contraloría General de la República u otras entidades públicas, con autorización directa por escrito del alcalde municipal, en apego a lo normado en el Artículo 19 del presente documento.

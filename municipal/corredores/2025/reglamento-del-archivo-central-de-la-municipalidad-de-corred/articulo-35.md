@@ -1,0 +1,1 @@
+Artículo 35.-La persona responsable del Archivo Central, será la encargada de inspeccionar los métodos de clasificación establecidos con el fin de asegurar el orden, descripción y clasificación de los documentos.

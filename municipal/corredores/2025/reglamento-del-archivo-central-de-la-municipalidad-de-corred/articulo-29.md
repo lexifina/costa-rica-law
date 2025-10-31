@@ -1,0 +1,1 @@
+Artículo 29.-Las personas externas que se presenten a retirar la documentación solicitada, deberán llenar la boleta de préstamo indicada en el artículo 19, inciso b) del presente reglamento, misma que debe contar con la autorización escrita del Alcalde Municipal o quien ocupe su puesto.

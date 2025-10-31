@@ -1,0 +1,1 @@
+Artículo 20.-Los expedientes o documentos que sean devueltos al Archivo Central serán revisados por el encargado de este, con el objetivo de revisar su estado, en caso de encontrarse daños en el mismo, se procederá con lo establecido en el artículo 22 del presente reglamento.

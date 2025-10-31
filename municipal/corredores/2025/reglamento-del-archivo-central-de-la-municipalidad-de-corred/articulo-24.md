@@ -1,0 +1,1 @@
+Artículo 24.-Cuando el plazo haya vencido y los funcionarios no hayan hecho devolución de la documentación, no se realizará el préstamo de otra solicitud que se efectúe, sin que antes se haya subsanado lo referente a la solicitud pendiente de devolución.

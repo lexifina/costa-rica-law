@@ -1,0 +1,1 @@
+Artículo 22.-En caso de que los documentos devueltos presenten daños, la persona encargada del Archivo Central, procederá con las gestiones correspondientes para la sanción administrativa del prestatario y este asuma el costo de la reparación o reposición según corresponda.

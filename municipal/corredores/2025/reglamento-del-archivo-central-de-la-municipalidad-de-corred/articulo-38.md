@@ -1,0 +1,1 @@
+Artículo 38.-Sobre las funciones de valoración, selección y eliminación de documentos. La valoración, selección y eliminación de documentos que han perdido vigencia administrativa legal y administrativa, serán autorizados por la Comisión Institucional de Selección y Eliminación de Documentos (CISED) en las sesiones establecidas por dicha comisión según cronograma.

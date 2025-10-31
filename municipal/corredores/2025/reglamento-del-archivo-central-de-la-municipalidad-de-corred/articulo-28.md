@@ -1,0 +1,1 @@
+Artículo 28.-Cuando el préstamo se solicite por instituciones públicas externas, se debe realizar mediante petición escrita, la cual deberá contener como elementos mínimos el nombre, el puesto que desempeña, número de teléfono, correo electrónico y extensión con el objetivo de que pueda ser localizada la persona solicitante.

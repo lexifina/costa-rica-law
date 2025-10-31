@@ -1,0 +1,1 @@
+Artículo 26.-Cuando el funcionario se ausente por un periodo mayor al tiempo otorgado debido a vacaciones, licencias o permisos, deberá devolver al Archivo Central los documentos prestados, salvo casos fortuitos o de fuerza mayor comprobada que limiten la devolución dentro del plazo establecido.

@@ -1,0 +1,1 @@
+Artículo 8º-La Administración Municipal será la responsable de designar a un funcionario suplente debidamente capacitado para asumir las funciones del puesto en caso de ausencia temporal o permanente de la persona encargada del Archivo Central de la Municipalidad de Corredores por cualquier causa (licencia, enfermedad, vacaciones, renuncia u otras).

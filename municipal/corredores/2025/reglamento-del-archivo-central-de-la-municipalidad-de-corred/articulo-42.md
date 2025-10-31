@@ -1,0 +1,1 @@
+Artículo 42.-El Archivo Central de la Municipalidad de Corredores debe acatar las disposiciones que emita la Junta Administrativa del Archivo Nacional en sus distintas resoluciones, directrices y lineamientos.

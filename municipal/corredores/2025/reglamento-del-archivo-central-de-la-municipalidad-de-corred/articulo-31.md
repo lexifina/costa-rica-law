@@ -1,0 +1,1 @@
+Artículo 31.-La transferencia de una etapa a otra se hará en estricto orden, los documentos deben venir descritos, organizados, numerados y acompañados de la respectiva lista de remisión con dos copias, una como parte del recibido y otra que será resguardada en el Archivo Central.

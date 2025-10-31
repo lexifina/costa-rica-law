@@ -1,0 +1,1 @@
+Artículo 7º-La persona encargada del Archivo Central de la Municipalidad de Corredores, será quien elabore las políticas, procedimientos, instrumentos de control y aplicación de los procesos de clasificación, descripción y evaluación de documentos a nivel municipal según la normativa nacional vigente.

@@ -1,0 +1,1 @@
+Artículo 23.-Cuando los funcionarios no realicen la devolución de los expedientes al vencimiento del plazo establecido, el Archivo Central le solicitará por escrito en los siguientes tres días hábiles, la devolución correspondiente. En caso de que el documento continue siendo requerido, el prestatario debe presentar y firmar la solicitud de prórroga para análisis y autorización.

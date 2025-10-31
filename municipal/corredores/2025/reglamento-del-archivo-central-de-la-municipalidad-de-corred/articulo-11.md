@@ -1,0 +1,1 @@
+Artículo 11.-La Municipalidad de Corredores velará porque el Archivo Central cuente con el presupuesto necesario para adquirir el mobiliario, hardware y software, materiales y suministros requeridos para el adecuado funcionamiento y conservación de los documentos.

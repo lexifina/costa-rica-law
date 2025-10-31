@@ -1,0 +1,1 @@
+Artículo 39.-La Comisión Institucional de Selección y Eliminación de Documentos (CISED) estará conformada por las personas que ocupen los puestos del Director Administrativo Financiero, Asesoría Legal y Archivo Central.

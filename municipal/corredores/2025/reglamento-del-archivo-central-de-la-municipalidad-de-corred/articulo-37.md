@@ -1,0 +1,1 @@
+Artículo 37.-Sobre la función de describir documentos. La descripción de los documentos en los Archivos de Gestión, se realizará por medio de las listas de remisión o herramientas que cada departamento considere pertinente, previa autorización de la persona encargada del Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 17.-El proceso de ingreso de los documentos al Archivo Central de la Municipalidad de Corredores, se realizará por medio de una lista de remisión vigente, especificando el contenido de los expedientes.

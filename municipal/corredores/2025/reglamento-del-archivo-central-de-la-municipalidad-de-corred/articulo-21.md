@@ -1,0 +1,1 @@
+Artículo 21.-Los expedientes de funcionarios inactivos de la Municipalidad de Corredores, revisten carácter de confidencialidad, por lo cual solamente tendrán acceso la persona interesada o aquellos según lo establecido en el artículo 18 de este reglamento.

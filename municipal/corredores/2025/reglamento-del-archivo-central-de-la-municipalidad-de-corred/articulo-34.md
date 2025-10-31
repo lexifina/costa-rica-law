@@ -1,0 +1,1 @@
+Artículo 34.-La persona responsable del Archivo Central será la encargada de asesorar y capacitar como mínimo una vez a año, a los funcionarios de Archivos de Gestión sobre el método de clasificación que se llevará a cabo.
