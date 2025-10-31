@@ -1,0 +1,1 @@
+Artículo 13.-Las normas de selección, nombramiento y sanciones previstas en el Código Municipal, y en el Reglamento Autónomo de Servicios de la Municipalidad del cantón de Mora y en el Manual de Clase de Puestos, será aplicable a la Policía Municipal, sin perjuicio de lo que se regule en los artículos siguientes.

@@ -1,0 +1,2 @@
+Artículo 36.-La Comisión Permanente de Seguridad deberá ser juramentada por el Concejo Municipal y permanecerán en sus cargos por un período de dos años, contados a partir de la fecha del nombramiento según el acuerdo municipal respectivo, salvo casos de suspensión o renuncias en que se nombrará sustituto en el acto.
+En ningún caso podrán los nombramientos a los que se refiere este artículo exceder del periodo de cuatro años del gobierno municipal que los nombró.

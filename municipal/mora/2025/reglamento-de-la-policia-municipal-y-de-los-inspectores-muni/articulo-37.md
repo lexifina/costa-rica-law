@@ -1,0 +1,1 @@
+Artículo 37.-Los miembros de la Comisión Permanente de Seguridad desempeñarán el cargo en forma Ad honoren y tendrá subordinación directa ante el Concejo Municipal, según lo dispuesto en el artículo 29 de este reglamento.

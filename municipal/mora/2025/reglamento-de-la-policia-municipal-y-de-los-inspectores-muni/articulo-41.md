@@ -1,0 +1,1 @@
+Artículo 41.-Los inspectores municipales de tránsito deberán cumplir las disposiciones, las obligaciones, los protocolos y el ámbito geográfico de competencia territorial debidamente demarcado mediante señalización vertical y definido por la Dirección General de la Policía de Tránsito, así como con la reglamentación respectiva.

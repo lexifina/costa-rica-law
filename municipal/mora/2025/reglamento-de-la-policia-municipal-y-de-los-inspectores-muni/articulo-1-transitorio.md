@@ -1,0 +1,2 @@
+Artículo Transitorio I: La amplitud funcional de la Policía Municipal estará condicionada a las posibilidades del recurso humano y presupuestario con que cuente la misma. De tal manera que, para asumir en su plenitud las atribuciones a que se refiere el artículo segundo del presente Reglamento se deberá considerar el fortalecimiento del recurso humano de la Policía Municipal, así como de la capacidad presupuestaria de esta Municipalidad. Segunda publicación.
+Rige a partir de su publicación.
