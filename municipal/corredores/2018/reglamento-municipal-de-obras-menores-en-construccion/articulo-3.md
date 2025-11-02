@@ -1,5 +1,0 @@
-CAPÍTULO
-Construcciones menores
-Artículo 3°—Se considera construcción menor, todo tipo de reparación, remodelación, ampliación, construcción, o similar, avalada por el DDU que haya sido solicitada cumpliendo los requisitos establecidos en este Reglamento y que, por sus características, no altere los sistemas vitales de una obra, tales como estructural, eléctrico, mecánico, datos y telefonía, cubiertas o similares, y de control constructivo municipal.
-No serán parte de estas obras, los muros de retención, rellenos estructurales, ni estructuras que deban soportar más de 500 kg de carga viva.
-En cuanto al valor máximo de la obra, este será de (diez) salarios base, según lo dispuesto en el artículo N° 2 de la Ley 7337 del 5 de mayo de 1993 que se encuentre vigente; por su parte, en cuanto a su área, no podrá exceder los 35 mts2. La obra debe de cumplir con los requisitos mínimos establecidos en el Código Sísmico de Costa Rica 2002(CSCR 2002 o vigente a la fecha). La obra referirá exclusivamente a viviendas de un (1) piso o planta, y sus acabados serán preferentemente modestos.

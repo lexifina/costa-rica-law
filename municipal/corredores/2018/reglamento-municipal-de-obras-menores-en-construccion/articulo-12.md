@@ -1,1 +1,0 @@
-Artículo 12.—En caso de que el solicitante cumpla con todos los requisitos establecidos en este Reglamento, se le girará el permiso en un plazo máximo de ocho días hábiles; esta Municipalidad podrá realizar inspección previa, durante y posterior, para efectos de verificar que las obras cumplan y se ajusten a lo normado.

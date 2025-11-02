@@ -1,1 +1,0 @@
-Artículo 7º—EI D.D.U. será el encargado de determinar el monto por costo para conceder el permiso, conforme al artículo 70 de la LPU, para lo cual se requerirá de un plano o croquis con los detalles de la obra. La tasación se consignará en el permiso de construcción respectivo.
