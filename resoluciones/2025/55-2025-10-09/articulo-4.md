@@ -1,0 +1,1 @@
+Artículo 4º-Periodicidad de la información a suministrar y plazo de presentación de la declaración. La declaración informativa "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico", debe presentarse en forma mensual, dentro de los diez días naturales del mes siguiente de aquel que corresponde declarar.

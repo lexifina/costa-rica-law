@@ -1,0 +1,2 @@
+Artículo 2º-Forma de consignar la información. Los obligados a presentar dicha declaración, en adelante "informantes", deben suministrar la información en el formulario, medio y plazo que se establece en la presente resolución, sin necesidad de un nuevo requerimiento por parte de la Administración Tributaria.
+El informante deberá suministrar los datos solicitados sobre la persona física o jurídica, en adelante "informados", con la cual haya realizado operaciones económicas, financieras o profesionales que no estén amparados en un comprobante electrónico debidamente validado.

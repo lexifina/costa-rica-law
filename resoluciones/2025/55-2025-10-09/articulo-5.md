@@ -1,0 +1,1 @@
+Artículo 5º-Medio de presentación. La declaración "Informativa Resumen Mensual de Clientes, Proveedores y Gastos Específicos que no estén amparados en un comprobante electrónico", debe presentarse obligatoriamente a través de la oficina virtual del portal TRIBU-CR. La presentación de la declaración por otro medio y formato se tendrá por no presentada.

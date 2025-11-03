@@ -1,0 +1,1 @@
+Artículo 6º-Disponibilidad del formulario. El formulario informativo dispuesto en esta resolución estará disponible a través de portal TRIBU-CR. Las instrucciones de dicho formulario se encuentran en el anexo adjunto a la presente resolución.
