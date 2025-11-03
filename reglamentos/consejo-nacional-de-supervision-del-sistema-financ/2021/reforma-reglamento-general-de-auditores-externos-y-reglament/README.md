@@ -14,3 +14,4 @@ Reforma Reglamento general de auditores externos y Reglamento sobre Administraci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-30 | la propia norma |
+| 2 | 2025-11-03 | Reglamento 1981 (2025-11-03) |
