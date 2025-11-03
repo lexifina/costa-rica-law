@@ -1,7 +1,5 @@
-CAPÍTULO III
-Sanciones
-Artículo 7º—Las sanciones por incumplimiento de la Ley de Patentes de la Municipalidad de Corredores, La Ley de Ventas Ambulantes y El Reglamento a la Ley de Ventas Ambulantes y Estacionarias del Cantón de Corredores, previo debido proceso serán las siguientes.
-a) Suspensión de la licencia,
-b) Clausura de la actividad
-c) Imposición de Multa. Por una primera vez, la suma de quince mil colones exactos (¢ 15.000,00)
-d) Imposición de Multa. Las siguientes veces de ¢ 30.000,00 mas el 25% del valor total de la mercadería decomisada, y cancelación de la patente o licencia en caso de poseerla.
+CAPÍTULO IV - Sanciones
+Artículo 7º-Sobre la multa económica para la recuperación de la mercadería.
+El infractor que desee recuperar mercadería decomisada o estructuras, chinamos o puestos de venta decomisados por actividad comercial ilegal, deberá cancelar una multa administrativa equivalente a un salario base de oficinista 1 del Poder Judicial, conforme al artículo 2 de la Ley N.º 7337, la cual se establece como sanción administrativa por los gastos y gestiones que la Municipalidad realiza en dicho procedimiento. El pago se efectuará en las cajas municipales o en cajas externas debidamente autorizadas.
+Asimismo, el infractor deberá acreditar la propiedad de la mercadería decomisada mediante facturas debidamente timbradas a su nombre, o, en caso de productos importados, mediante la documentación aduanera que respalde la importación legal a su nombre.
+(Así reformado mediante sesión N° 76 del 03 de noviembre del 2025)

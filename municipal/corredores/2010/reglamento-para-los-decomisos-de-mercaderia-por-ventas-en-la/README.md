@@ -14,3 +14,4 @@ Reglamento para los decomisos de mercadería por ventas en las vías públicas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-18 | la propia norma |
+| 2 | 2025-11-03 | Reglamento municipal 76 (2025-11-03) |
