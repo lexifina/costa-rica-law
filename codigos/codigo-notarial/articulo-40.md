@@ -1,2 +1,2 @@
-ARTÍCULO 40.- Capacidad de las personas
-Los notarios deberán apreciar la capacidad de las personas físicas, comprobar la existencia de las personas jurídicas, las facultades de los representantes y, en general, cualquier dato o requisito exigido por la ley para la validez o eficacia de la actuación.
+Artículo 40- Capacidad de las personas. Los notarios deberán apreciar con sus sentidos, o los apoyos y medios tecnológicos debidamente autorizados para ese efecto por vía reglamentaria, la capacidad de las personas físicas, comprobar la existencia de las personas jurídicas, las facultades de los representantes y, en general, cualquier dato o requisito exigido por la ley para la validez o eficacia de la actuación.
+(Así reformado por el artículo 3° de la ley para la Autorización para el ejercicio del notariado de personas con discapacidad visual y discapacidad auditiva, N° 10754 del 11 de setiembre de 2025)

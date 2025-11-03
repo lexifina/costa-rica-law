@@ -1,3 +1,3 @@
-ARTÍCULO 39.- Identificación de los comparecientes
-Los notarios deben identificar, cuidadosamente y sin lugar a dudas, a las partes y los otros intervinientes en los actos o contratos que autoricen. Los identificarán con base en los documentos legalmente previstos para el efecto y cualquier otro que consideren idóneo.
-En el acto o contrato notarial, deben indicar el documento de identificación y dejarse copia en el archivo de referencias, cuando lo consideren pertinente.
+Artículo 39- Identificación de los comparecientes. Los notarios deben identificar, cuidadosamente y sin lugar a dudas, a las partes y los otros intervinientes en los actos o contratos que autoricen. Los identificarán con base en los documentos legalmente previstos para el efecto y cualquier otro que consideren idóneo.
+En el acto o contrato notarial, deben indicar el documento de identificación y dejarse copia en el archivo de referencias. Cuando lo consideren pertinente, los notarios podrán conservar, en su archivo de referencias, grabaciones con audio o video de los actos jurídicos que realicen.
+(Así reformado por el artículo 3° de la ley para la Autorización para el ejercicio del notariado de personas con discapacidad visual y discapacidad auditiva, N° 10754 del 11 de setiembre de 2025)
