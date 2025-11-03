@@ -1,1 +1,0 @@
-Artículo 11º-Sobre la falta de presentación de documentos. En caso de que el solicitante de una determinada licencia de construcción falte con alguno de los requisitos anteriormente mencionados, se procederá conforme a la Ley N°8220 y su Reglamento.

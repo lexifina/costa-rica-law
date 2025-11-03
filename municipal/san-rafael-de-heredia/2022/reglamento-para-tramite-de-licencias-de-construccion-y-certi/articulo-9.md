@@ -1,1 +1,0 @@
-Artículo 9°-Responsabilidad de la Obra. El propietario y el Ingeniero responsable serán responsables de los datos que consten en un determinado proyecto. La Municipalidad solo será responsable de los datos de alineamiento y niveles.

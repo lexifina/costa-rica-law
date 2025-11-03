@@ -1,1 +1,0 @@
-Artículo 10°-Sanciones. La infracción a cualquier regla expuesta en el presente reglamento o normativa que regule el desarrollo urbano del cantón de San Rafael, ameritará la ejecución de las sanciones correspondientes, de conformidad con lo dispuesto en el Capítulo VII del presente reglamento.

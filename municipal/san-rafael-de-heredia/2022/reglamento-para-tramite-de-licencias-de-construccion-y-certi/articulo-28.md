@@ -1,9 +1,0 @@
-Artículo 28°-Requisitos para solicitud de aprobación del desfogue pluvial. Para solicitar la aprobación del desfogue pluvial para un determinado proyecto, se deberá cumplir con los siguientes requisitos:
-a) Carta de solicitud formal, en donde se describa en forma detallada el proyecto a realizar, y se incluya al menos un croquis de la obra a realizar.
-b) Certificación Literal del Inmueble.
-c) Copia del plano catastrado, sin cortes o tachaduras.
-d) Certificado de uso de suelo.
-e) Estudios hidrológicos e hidráulicos detallados con las memorias de cálculo correspondientes, donde se especifique el caudal que genera la propiedad sin desarrollar y el caudal que se desfogara una vez que el proyecto se desarrolle. El caudal que genera finalmente el proyecto deberá ser un 25% menor que el generado por la propiedad sin desarrollarla. Además, el estudio deberá utilizar como mínimo un periodo de retorno igual o mayor a 50 años. En dicho análisis se debe indicar el sistema de desfogue a implementar con las medidas de mitigación correspondiente.
-f) El caudal de salida del sistema de mitigación o amortiguamiento pluvial debe ser analizado considerando los periodos de retorno de 5, 10, 15, 20 y 25 años, y el caudal máximo a desfogar deberá ser 25% menor que el generado con la finca sin desarrollar, para cada uno de los periodos de retorno anteriormente mencionados. Para el análisis de dicho aspecto se recomienda utilizar el teorema de Torricelli, el cual es una aplicación del principio de Bernoulli, el cual para comprobar el caudal de salida el sistema de retardo propone la siguiente formula:
-[imagen]
-g) Todos los estudios deben ser elaborados y firmados por un profesional responsable debidamente inscrito ante el CFIA.
