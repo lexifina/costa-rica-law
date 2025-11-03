@@ -22,3 +22,4 @@ Reglamento general de auditores externos
 | 7 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
 | 8 | 2021-11-16 | Reglamento 1700 (2021-11-16) |
 | 9 | 2022-09-26 | Reglamento 1759 (2022-09-26) |
+| 10 | 2025-11-03 | Reglamento 1981 (2025-11-03) |
