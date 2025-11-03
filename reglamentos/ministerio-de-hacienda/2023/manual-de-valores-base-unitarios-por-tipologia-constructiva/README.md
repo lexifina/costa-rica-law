@@ -14,3 +14,4 @@ Manual de valores base unitarios por tipología constructiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-28 | la propia norma |
+| 2 | 2025-11-03 | Resolución 4 (2025-11-03) |

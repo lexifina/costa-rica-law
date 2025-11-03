@@ -698,29 +698,31 @@ Pisos | Madera, cerámica o similar de mediana calidad.
 Baños | Un cuarto de baño tipo normal.
 Otros | Marcos de ventanas en madera o aluminio. Cocina tipo normal. Diseño sencillo y acabado normal. De ua o dos plantas. Área promedio de 64,00 m² a 100,00 m².
 VALOR | ¢435 000 / m²
-[imagen] | Edificios de Apartamentos
-[imagen] | Tipo AP01
-Vida Útil | 65 años.
-Estructura | Columnas y vigas de concreto armado, prefabricado o perfiles metálicos.
-Paredes | Bloques de concreto con repello quemado, prefabricado. Paredes internas de madera laminada o láminas de yeso, cemento y fibra de vidrio o similar, repello quemado con pintura acrílica económica. Alturas de 2,40 m a 3,00 m.
-Cubierta | Cerchas de perfiles metálicos. Láminas onduladas de hierro galvanizado N°28. Canoas y bajantes de hierro galvanizado expuestas.
-Cielos | Viguetas expuestas o láminas de yeso, cemento y fibra de vidrio o similar.
-Entrepisos | Perfiles metálicos con láminas de hierro galvanizado y losa de concreto colado en sitio.
-Pisos | Cerámica económica.
-Baños | Un cuarto de baño tipo normal.
-Otros | Puertas en madera laminada, cerrajería económica, ventanas con marcos de madera, algunas veces de aluminio, marcos de puertas en madera. Cocina tipo económica. Instalación electromecánica básica. Edificios de una a cinco plantas.
-VALOR | ¢395 000 / m²
-[imagen] Tipo AP02
-Vida Útil | 80 años.
-Estructura | Columnas y vigas de concreto armado, prefabricado o perfiles metálicos.
-Paredes | Bloques de concreto con repello quemado, láminas de yeso, cemento y fibra de vidrio o similar. Repello con acabado afinado y pintura acrílica o de aceite de regular calidad. Alturas de 2,40 m a 3,50 m.
-Cubierta | Cerchas de perfiles metálicos. Láminas onduladas de hierro galvanizado N°28. Canoas y bajantes de hierro galvanizado o PVC.
-Cielos | Viguetas expuestas, láminas de yeso, cemento y fibra de vidrio o similar, concreto lanzado.
-Entrepisos | Viguetas prefabricadas doble T o similar o coladas, con losa de concreto.
-Pisos | Porcelanato o cerámica económica.
-Baños | Un cuarto de baño tipo bueno.
-Otros | Dos dormitorios, balcón y closets. Puertas de tablero en caobilla o similar, puertas internas de madera laminada, cerrajería de mediana calidad, ventanas con marcos de madera o aluminio. Cocina tipo buena. Fachadas especialmente diseñadas con aleros artesonados. Agua distribuida a presión mediante bomba eléctrica, intercomunicadores, planta eléctrica de emergencia. Espacio para un vehículo por apartamento. Instalación electromecánica básica. Puede tener ascensor. Edificios de una a diez plantas, pueden presentar comercio en la primera planta.
-VALOR | ¢465 000 / m²
+(*)6.1.15.1 Tipo AP01 | 6.1.15.1 Tipo AP01
+Vida Útil 50 años. | Vida Útil 50 años.
+Estructura Contenedores reciclados de acero inoxidable o aluminio, anclados sobre cimientos de concreto elevados del suelo. Puede tener contrapisos de concreto sobre los cuales se asienta el contenedor. | Estructura Contenedores reciclados de acero inoxidable o aluminio, anclados sobre cimientos de concreto elevados del suelo. Puede tener contrapisos de concreto sobre los cuales se asienta el contenedor.
+Paredes Recubrimiento en el exterior con pintura epóxica y en el interior con material aislante térmico, láminas de yeso, cemento y fibra de vidrio, madera, PVC o similar a un forro. Altura interna 2,40 m. | Paredes Recubrimiento en el exterior con pintura epóxica y en el interior con material aislante térmico, láminas de yeso, cemento y fibra de vidrio, madera, PVC o similar a un forro. Altura interna 2,40 m.
+Cubierta Este elemento corresponde a la parte superior del contenedor. En algunos casos, se adapta una estructura de perfiles metálicos con láminas de hierro galvanizado, con canoas y bajantes de hierro expuestos u ocultos. | Cubierta Este elemento corresponde a la parte superior del contenedor. En algunos casos, se adapta una estructura de perfiles metálicos con láminas de hierro galvanizado, con canoas y bajantes de hierro expuestos u ocultos.
+Cielos Láminas de yeso, cemento y fibra de vidrio o similar con aislante térmico, tablilla PVC. | Cielos Láminas de yeso, cemento y fibra de vidrio o similar con aislante térmico, tablilla PVC.
+Entrepisos La estructura del contenedor conforma el entrepiso, cuando se trata de dos o más plantas. | Entrepisos La estructura del contenedor conforma el entrepiso, cuando se trata de dos o más plantas.
+Pisos Cerámica o porcelanato de mediana calidad, madera laminada, piso vinílico. | Pisos Cerámica o porcelanato de mediana calidad, madera laminada, piso vinílico.
+Baños Un cuarto de baño tipo normal. | Baños Un cuarto de baño tipo normal.
+Otros Diseño variado. Puerta de vidrio y metal, cerrajería de buena calidad, ventanas con vidrios temperados, marcos en ventanas y puertas de metal. Cocineta, muebles en melamina. Instalación electromecánica básica independiente y aire acondicionado. Calentador de agua y conexión a tanque séptico. Espacio habitable de 15m² o 30m² por apartamento (1 Contenedor 20FT High Cube Reffer). Edificios de una o más plantas. En caso de localizarse otras obras o instalaciones separadas, se valoran por aparte. | Otros Diseño variado. Puerta de vidrio y metal, cerrajería de buena calidad, ventanas con vidrios temperados, marcos en ventanas y puertas de metal. Cocineta, muebles en melamina. Instalación electromecánica básica independiente y aire acondicionado. Calentador de agua y conexión a tanque séptico. Espacio habitable de 15m² o 30m² por apartamento (1 Contenedor 20FT High Cube Reffer). Edificios de una o más plantas. En caso de localizarse otras obras o instalaciones separadas, se valoran por aparte.
+VALOR ¢15 000 000 / módulo | VALOR ¢15 000 000 / módulo
+(*)(Así reformado el punto 6.1.15.2 Tipo AP01 anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025)
+(*)6.1.15.2 Tipo AP02
+Vida Útil 50 años.
+Estructura Contenedores reciclados de acero inoxidable o aluminio, anclados sobre cimientos de concreto elevados del suelo. Puede tener contrapisos de concreto sobre los cuales se asienta el contenedor.
+Paredes Recubrimiento en el exterior con pintura epóxica y en el interior con material aislante térmico, láminas de yeso, cemento y fibra de vidrio o similar a un forro. Altura interna 2,40 m.
+Cubierta Este elemento corresponde a la parte superior del contenedor. En algunos casos, se adapta una estructura de perfiles metálicos con láminas de hierro galvanizado, con canoas y bajantes de hierro expuestos u ocultos.
+Cielos Láminas de yeso, cemento y fibra de vidrio o similar con aislante térmico, tablilla PVC.
+Entrepisos La estructura del contenedor conforma el entrepiso, cuando se trata de dos o más plantas.
+Pisos Cerámica o porcelanato de buena calidad, madera laminada, piso vinílico.
+Baños Dos baños tipo normal.
+Otros Diseños variados. Puerta de vidrio y metal, cerrajería de buena calidad, ventanas con vidrios temperados, marcos en ventanas y puertas de metal. Cocineta, muebles en melamina. Instalación electromecánica básica independiente y aire acondicionado. Calentador de agua y conexión a tanque séptico. El diseño consiste en la unión de varios contenedores sobre la superficie del terreno o superpuestos formando varias plantas. Espacio habitable de 60m² o 90m² por módulo o contenedor. (2 Contenedores 40FT High Cube Reffer). En caso de localizarse otras obras o instalaciones separadas, se valoran por aparte.
+VALOR ¢25 000 000 / módulo
+Nota: Las tipologías correspondientes a apartamentos en contenedor deben cumplir con las especificaciones técnicas, normativas y regulaciones de construcción que rigen en el país.
+(*)(Así reformado el punto 6.1.15.2 Tipo AP02 anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025)
 [imagen] Tipo AP03
 Vida Útil | 95 años.
 Estructura | Columnas y vigas de concreto armado, prefabricado o perfiles metálicos.
@@ -976,29 +978,32 @@ VALOR | ¢495 000 / m²
 | |
 Nota: Los centros comerciales se definen en el presente manual como edificios de una o más plantas, para uso comercial, oficinas, diversión y deporte. Presentan locales comerciales, oficinas, áreas de comidas, cines, bodegas, centros de negocios y áreas de deporte. Amplios pasillos de circulación, baterías de servicios sanitarios en las diferentes plantas, amplias áreas de uso común para relajación o reunión, con elementos decorativos, estacionamiento bajo techo, todos los servicios en un solo edificio. Escaleras eléctricas, bandas transportadoras y ascensores. En un centro comercial los estacionamientos externos al edificio, se valoran por aparte. La cantidad de plantas y locales comerciales, puede o no coincidir con el CC que se está valorando, por lo que no debe interpretarse como un parámetro de definición para la tipificación, sino como una guía para la valoración.
 [imagen] Edificios de Oficinas
-[imagen] Tipo EO01
-Vida Útil | 80 años.
-Estructura | Mampostería integral o prefabricado.
-Paredes | Externas de bloques de concreto con repello quemado, divisiones internas en láminas de cemento, fibra de vidrio y malla electrosoldada o similar. Altura de paredes en la primera planta mayor que en las restantes.
-Cubierta | Cerchas de perfiles metálicos. Láminas onduladas de hierro galvanizado. Canoas y bajantes de hierro galvanizado.
-Cielos | Láminas de poliestireno expandido, suspendido con marco de aluminio.
-Entrepisos | Prefabricados con viguetas pretensadas o similar, con losa de concreto armado.
-Pisos | Terrazo, cerámica económica o similar.
-Baños | Dos cuartos de baño tipo económico por planta.
-Otros | Estos edificios presentan acabados sencillos, ventanas con marcos de aluminio. Edificios de una a cinco plantas. La primera puede estar dedicada a comercio.
-VALOR | ¢400 000 / m²
-| |
-[imagen] Tipo EO02
-Vida Útil | 100 años.
-Estructura | Columnas y vigas de concreto armado, prefabricado o perfiles metálicos.
-Paredes | Externas de bloques de concreto con repello fino o láminas de yeso, cemento y fibra de vidrio o similar. Divisiones internas de láminas livianos en láminas de cemento, fibra de vidrio y malla electrosoldada o similar. Altura de paredes en la primera planta mayor que en las restantes.
-Cubierta | Cerchas de perfiles metálicos. Láminas de hierro galvanizado, tipo canaleta estructural esmaltada. Canoas y bajantes de hierro galvanizado.
-Cielos | Láminas de poliestireno expandido, suspendido con marco de aluminio.
-Entrepisos | Prefabricados con viguetas pretensadas o similar, con losa de concreto.
-Pisos | Cerámica de mediana calidad o similar.
-Baños | Dos cuartos de baño tipo normal por planta.
-Otros | Presentan acabados sencillos, ventanas con marcos de aluminio, no incluye ascensor. Edificios de una a cinco plantas. La primera puede estar dedicada a comercio.
-VALOR | ¢480 000 / m²
+(*) 6.1.20.1 Tipo EO01
+Vida Útil 50 años.
+Estructura Contenedores reciclados de acero inoxidable o aluminio, anclados sobre cimientos de concreto elevados del suelo. Puede tener contrapisos de concreto sobre los cuales se asienta el contenedor.
+Paredes Recubrimiento en el exterior con pintura epóxica y en el interior con material aislante térmico, láminas de yeso, cemento y fibra de vidrio o similar a un forro. Altura interna 2,40 m.
+Cubierta Este elemento corresponde a la parte superior del contenedor. En algunos casos, se adapta una estructura de perfiles metálicos con láminas de hierro galvanizado, con canoas y bajantes de hierro expuestos u ocultos.
+Cielos Láminas de yeso, cemento y fibra de vidrio o similar con aislante térmico, tablilla PVC.
+Entrepisos La estructura del contenedor conforma el entrepiso, cuando se trata de dos o más plantas.
+Pisos Cerámica o porcelanato de mediana calidad, madera laminada, piso vinílico.
+Baños Un cuarto de baño tipo normal.
+Otros Puerta de vidrio y metal, cerrajería de buena calidad, ventanas con vidrios temperados, marcos en ventanas y puertas de metal. Cableado eléctrico, iluminación LED, tomas de corriente, red de datos, etc. Una unidad de aire acondicionado tipo split o minisplit. El diseño consiste en la unión de varios contenedores sobre la superficie del terreno o superpuestos formando varias plantas. Espacio habitable de 15m² o 30m² por módulo o contenedor (1 Contenedor 20FT High Cube Reffer).
+En caso de localizarse otras obras o instalaciones separadas, se valoran por aparte.
+VALOR ¢7 350 000 / módulo
+(*)(Así reformado el punto 6.1.15.2 Tipo AP01 anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025)
+(*)6.1.20.2. Tipo EO02
+Vida Útil 50 años.
+Estructura Contenedores reciclados de acero inoxidable o aluminio, anclados sobre cimientos de concreto elevados del suelo. Puede tener ontrapisos de concreto sobre los cuales se asienta el contenedor.
+Paredes Recubrimiento en el exterior con pintura epóxica y en el interior con material aislante térmico, láminas de yeso, cemento y fibra de vidrio o similar a un forro. Altura interna 2,40 m.
+Cubierta Este elemento corresponde a la parte superior del contenedor. En algunos casos, se adapta una estructura de perfiles metálicos con láminas de hierro galvanizado, con canoas y bajantes de hierro expuestos u ocultos.
+Cielos Láminas de yeso, cemento y fibra de vidrio o similar con aislante térmico, tablilla PVC.
+Entrepisos La estructura del contenedor conforma el entrepiso, cuando se trata de dos o más plantas.
+Pisos Cerámica o porcelanato de mediana calidad, madera laminada, piso vinílico.
+Baños Dos baños tipo normal.
+Otros Puerta de vidrio y metal, cerrajería de buena calidad, ventanas con vidrios temperados, marcos en ventanas y puertas de metal. Conectores entre contenedores de metal o muro seco. Cableado eléctrico, iluminación LED, tomas de corriente, red de datos, etc. Una unidad de aire acondicionado tipo split o minisplit. El diseño consiste en la unión de varios contenedores sobre la superficie del terreno o superpuestos formando varias plantas. Espacio habitable de 60m² o 90m² por módulo o contenedor. (2 Contenedores 40FT High Cube Reffer). En caso de localizarse otras obras o instalaciones separadas, se valoran por aparte.
+VALOR ¢18 600 000 / módulo
+Nota: Las tipologías correspondientes a oficinas en contenedor deben cumplir con las especificaciones técnicas, normativas y regulaciones de construcción que rigen en el país.
+(*)(Así reformado el punto 6.1.15.2 Tipo AP01 anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025)
 [imagen] Tipo EO03
 Vida Útil | 105 años.
 Estructura | Columnas y vigas de concreto armado, prefabricado o perfiles metálicos.
@@ -2315,6 +2320,8 @@ TMA4 | Tanque agua | 40 | Metal asentados en metal | Capacidad prom. 2,500,00 m�
 TME1 | Tanque agua | 40 | Metal elevados en metal | Capacidad prom. 38,00 m³ | u | 30 000 000,00
 TME2 | Tanque agua | 40 | Metal elevados en metal | Capacidad prom.113,00 m³ | u | 72 000 000,00
 TME3 | Tanque agua | 40 | Metal elevados en metal | Capacidad prom.175,00 m³ | u | 97 000 000,00
+PLT1 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Planta de tratamiento (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | 50 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Bloques de concreto 12 cm x 20 cm x 40 cm (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Capacidad superior a 75.00 m3 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | M3 | 150.000.00
+PLT2 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Planta de tratamiento (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | 50 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Bloques de concreto 12 cm x 20 cm x 40 cm (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | Capacidad superior a 75.00 m3 (*)(Así adicionado o el punto anterior mediante resolución N° NH-DGT-TEMPORAL-RES-0004-2025 del 3 de noviembre del 2025) | M3 | 600.00.00
 Fuente: MINISTERIO DE HACIENDA, DIRECCIÓN GENERAL DE TRIBUTACIÓN, ÓRGANO DE NORMALIZACIÓN TÉCNICA
 Obras complementarias y equipo, parte 11
 Tipología | Uso | Vida Útil años | Material | Otros | Unidad de medida | Valor ?
