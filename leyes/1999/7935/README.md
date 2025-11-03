@@ -1,6 +1,6 @@
 # Ley Integral para la Persona Adulta Mayor
 
-Ley N° 7935 del 1999-10-25. SINALEVI, ficha 43655: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43655&param2=146101&param3=1>.
+Ley N° 7935 del 1999-10-25. SINALEVI, ficha 43655: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43655&param2=148301&param3=1>.
 
 Publicada en La Gaceta N° 221 del 1999-11-15.
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 12 de 15 | 2023-05-30 | Ley 10322 | 2023-05-12 |
 | 13 de 15 | 2024-04-04 | Ley 10455 | 2024-03-19 |
 | 14 de 15 | 2025-05-30 | Ley 10719 | 2025-05-13 |
+| 15 de 15 | 2025-11-03 | Ley 10766 | 2025-10-21 |
