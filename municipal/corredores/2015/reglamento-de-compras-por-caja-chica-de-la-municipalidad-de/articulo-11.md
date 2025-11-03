@@ -1,2 +1,0 @@
-Artículo 11.—El Encargado de la caja chica preparará el reembolso correspondiente en los formularios diseñados al efecto, indicando el número de factura, la fecha, el monto, la Dirección o Sección que efectuó el gasto, número de la solicitud de caja chica, el detalle del servicio, el bien adquirido y la partida presupuestaria afectada.
-Este reembolso deberá ser aprobado por el superior inmediato del Encargado de la caja chica, previendo la realización del mismo a partir del momento en que se alcance un 75% de su ejecución.

@@ -1,1 +1,0 @@
-Artículo 21.—Para la liquidación del adelanto que sea reintegrado sin ser utilizado por el funcionario que lo solicitó, deberá indicar al reverso del formulario las razones que tuvo para no efectuar la compra y esa justificación deberá contar con el visto bueno de la Jefatura de la Sección o Dirección correspondiente.

@@ -1,1 +1,0 @@
-Artículo 4°—La Alcaldía o aquel: funcionario que en su ausencia quede debidamente autorizado por ésta, podrán autorizar compras mayores de 200.000.00 (doscientos mil colones) del fondo y hasta 300.000.00 (trescientos mil colones) cuando la urgencia lo amerite con la debida justificación por escrito.

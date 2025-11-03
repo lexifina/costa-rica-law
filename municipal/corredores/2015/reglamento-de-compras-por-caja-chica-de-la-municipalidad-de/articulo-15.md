@@ -1,1 +1,0 @@
-Artículo 15.—Los dineros dados a los funcionarios para realizar las compras por medio del Fondo de caja chica se entregarán mediante un formulario “Vale de caja chica”, mismo que se utilizará para la adquisición de los productos declarados en la correspondiente “Solicitud Interna de Compra”.

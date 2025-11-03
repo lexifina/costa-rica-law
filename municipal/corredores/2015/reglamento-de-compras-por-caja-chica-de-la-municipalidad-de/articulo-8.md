@@ -1,1 +1,0 @@
-Artículo 8°—El fondo que se establece al amparo de este reglamento operará como “Fondo Fijo”, lo que requiere que en todo momento el Encargado del Fondo tenga la suma total asignada, bien sea el dinero en efectivo, adelantos de caja chica en tránsito o comprobantes debidamente cancelados, pudiendo darse una combinación de los tres casos mencionados.
