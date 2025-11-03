@@ -1,6 +1,6 @@
 # Crea la Red Nacional de Cuido y Desarrollo Infantil
 
-Ley N° 9220 del 2014-03-24. SINALEVI, ficha 77044: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77044&param2=143017&param3=1>.
+Ley N° 9220 del 2014-03-24. SINALEVI, ficha 77044: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77044&param2=148296&param3=1>.
 
 Publicada en La Gaceta N° 78 del 2014-04-24.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 2021-03-02 | Ley 9941 | 2021-02-15 |
 | 3 de 5 | 2021-10-07 | Ley 10038 | 2021-09-29 |
 | 4 de 5 | 2024-10-31 | Ley 10540 | 2024-10-09 |
+| 5 de 5 | 2025-11-03 | Ley 10767 | 2025-10-21 |
