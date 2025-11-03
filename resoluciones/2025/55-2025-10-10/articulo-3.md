@@ -1,0 +1,1 @@
+Artículo 3.- En aquellos establecimientos donde se elaboren y/o procesen de forma simultánea distintos productos contemplados en las tablas precedentes, regirá la frecuencia de inspección mayor, a efecto de asegurar una vigilancia sanitaria acorde y proporcional al riesgo más elevado.
