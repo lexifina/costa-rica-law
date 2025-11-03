@@ -1,1 +1,0 @@
-Artículo 15.—Rendición de cuentas del Auditor. El Auditor Interno responderá por su gestión ante el Concejo Municipal. Deberá rendirle los informes anuales de trabajo y el informe de fin de gestión, cuando termine su relación de servicio.

@@ -1,3 +1,0 @@
-CAPÍTULO V
-Desempeño de la Auditoría Interna
-Artículo 32.—Planificación estratégica. La Auditoría Interna contará con un proceso de planificación estratégica integral, que culminara en la formulación del plan estratégico, contar con un adecuado sistema de administración de los riesgos y potencialidades atribuibles a la Auditoría Interna, así como un análisis de aspectos tales como sus competencias, su universo auditable, sus factores claves de éxito, el aporte a las ideas rectoras y objetivos estratégicos institucionales (misión, visión, valores, etc.)
