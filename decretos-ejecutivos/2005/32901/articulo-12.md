@@ -1,1 +1,0 @@
-Artículo 12.—La resolución sobre la solicitud para descartar material documental, de acuerdo con lo estipulado en este Reglamento, se tomará por mayoría de votos presentes. En caso de empate, decidirá el Director(a) de Bibliotecas Públicas con doble voto.

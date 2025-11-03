@@ -1,1 +1,0 @@
-Artículo 9º—El Comité de Descarte realizará sus sesiones ordinarias en el edificio administrativo de la Dirección General del SINABI y se trasladará a cada Biblioteca Pública cuando se requiere verificar el descarte.
