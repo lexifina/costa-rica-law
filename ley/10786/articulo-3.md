@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Asociación Obras del Espíritu Santo, enviará, anualmente, los estados financieros auditados, sobre estas labores, a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos, para lo que corresponda.
