@@ -1,0 +1,30 @@
+Nº 45277 -MICITT
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CIENCIA, INNOVACIÓN, TECNOLOGÍA Y
+TELECOMUNICACIONES
+Con fundamento en lo dispuesto en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; y el artículo 13 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, Nº 8454 del 30 de agosto del 2005.
+CONSIDERANDO:
+l. Que existe un Convenio Marco de Cooperación Técnica y Científica entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Guatemala, suscrito en la ciudad de San José, Costa Rica, el 5 de agosto de 2014; y que, en virtud de dicho Convenio Marco, conforme a lo establecido en el artículo 121, inciso 4), de la Constitución Política, es posible respaldar el Acuerdo Complementario suscrito, al tratarse de un instrumento de menor jerarquía sustentado en un convenio internacional de rango superior debidamente ratificado.
+II. Que el ·artículo 13 de la Ley N.0 8454 establece la posibilidad de homologar· certificados digitales emitidos en el extranjero, siempre que se cumpla con alguno de los supuestos previstos en dicho artículo, lo que permite reconocer su validez jurídica en el territorio nacional, en armonía con el marco legal vigente.
+III. Que el presente Acuerdo tiene por objeto establecer el reconocimiento recíproco de la firma digital certificada o firma electrónica avanzada -ambas consideradas equivalentes- entre la República de Costa Rica y la República de Guatemala, con el propósito de promover un ecosistema más ágil, seguro y confiable, que impulse el comercio electrónico 'y fortalezca la cooperación entre ambas administraciones públicas.
+Por tanto;
+DECRETAN:
+Artículo 1º.- Apruébese, en todas y cada una de sus partes, el Acuerdo Complementario suscrito entre el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (MICITT) de la República de Costa Rica y el Ministerio de Economía (MINECO) de la República de Guatemala, firmado por la parte costarricense en San José, Costa Rica, el catorce de agosto de dos mil veinticinco, y por la parte guatemalteca en la ciudad de Guatemala, Guatemala, el veinte de agosto de dos mil veinticinco. El texto del Acuerdo es el siguiente:
+ACUERDO COMPLEMENTARIO
+SOBRE COOPERACIÓN EN LA HOMOLOGACIÓN DE LA
+FIRMA DIGITAL CERTIFICADA (COSTA RICA) Y LA
+FIRMA ELECTRÓNICA AVANZADA (GUATEMALA)
+ENTRE EL MINISTERIO DE CIENCIA, INNOVACIÓN,
+TECNOLOGÍA Y TELECOMUNICACIONES DE LA
+REPÚBLICA DE COSTA RICA Y EL MINISTERIO DE
+ECONOMÍA DE LA REPÚBLICA DE GUATEMALA
+PAULA BOGANTES ZAMORA, mayor de edad, costarricense, Máster en Comercio y Mercados Internacionales, vecina de Escazú, portadora de la cédula de identidad número uno ochocientos cincuenta y ocho setecientos setenta. y uno (1 858-771), en su condición de MINISTRA DE CIENCIA, INNOVACIÓN, TECNOLOGÍA Y TELECOMUNICACIONES, nombrada por medio del Acuerdo Presidencial No.194-P, publicado en el Diario Oficial La Gaceta Nº 26 de fecha 13 de febrero de 2023, y ADRIANA GABRIELA GARCÍA PACHECO, mayor de edad, guatemalteca, Administradora, con domicilio en el departamento de Guatemala, República de Guatemala, me identifico con el Documento Personal de Identificación -DPI- con Código Único de Identificación -CUI- Número dos mil trescientos setenta y cinco espacio sesenta y dos mil ochocientos sesenta y tres espacio cero ciento uno (2375 62863 0101), extendido por el Registro Nacional de las Personas de la República de Guatemala, actúo en mi calidad de MINISTRA DE ECONOMÍA DEL MINISTERIO DE ECONOMÍA -MlNECO-, representación que acredito con: a) Acuerdo Gubernativo número trece de fecha quince de enero de dos mil veinticuatro, emitido por el Presidente de la República de Guatemala; y b) Acta número ciento setenta y uno (171) de fecha quince de enero de dos mil veinticuatro del Libro de Actas de la Secretaría General del Ministerio de Economía de la República de Guatemala; ambas comparecemos con el objeto siguiente,
+El Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (MICITT) de la República de Costa Rica y El Ministerio de Economía (MINECO) de la República de Guatemala, (en adelante denominados individualmente "el Participante" y conjuntamente "los1 Participantes"),
+RECONOCIENDQ que el Acuerdo Marco de Cooperación Técnica y Científica entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Guatemala, suscrito en la ciudad de San José Costa Rica, el 05 de agosto de 2014, establece en su Artículo 1 Objetivo, que:
+"El objetivo fundamental del presente Acuerdo, es la promoción de la cooperación técnica y científica entre los dos países, a través de la formulación y ejecución de programas y proyectos específicos en áreas de interés común con pertinencia y congruencia con las políticas públicas nacionales, derechos humanos y equidad entre otros.
+CONSIDERANDO la importancia de la implementación de la firma digital certificada y la firma electrónica avanzada, que contribuya con incrementar la eficiencia, la competitividad y promover el desarrollo de ambos países representados por los Participantes;
+RESPETANDO los principios de igualdad y beneficio mutuo;
+DESEANDO profundizar y desarrollar la cooperación en la validación de la firma digital certificada y la firma electrónica avanzada con la visión de agilizar procesos de diversa índole entre los Participantes;
+CONVENCIDOS de que la cooperación en materia de la firma digital certificada y firma electrónica avanzada y procesos de verificación, así como la facilitación de las transacciones electrónicas transfronterizas y la interacción electrónica entre las personas contribuirá en el desarrollo de ambos países;
+Se ha alcanzado el sigu1ente Acuerdo:
+ARTÍCULO 1. OBJETIVO. El objetivo del presente Acuerdo Complementario es promover la cooperación entre los Participantes en el reconocimiento de la firma digital certificada y firma electrónica avanzada (ambas equivalentes) para su homologación, en cumplimiento con las regulaciones de cada uno de los Participantes, sin contravenir el respectivo ordenamiento jurídico interno.
