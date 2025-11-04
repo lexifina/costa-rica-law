@@ -1,0 +1,1 @@
+Artículo 61.- Resguardo de la identidad del denunciante. Todo papel de trabajo, razón de archivo o comunicación a terceros generado por la Auditoría Interna como resultado de la denuncia que recibiera, debe omitir la identidad del denunciante.

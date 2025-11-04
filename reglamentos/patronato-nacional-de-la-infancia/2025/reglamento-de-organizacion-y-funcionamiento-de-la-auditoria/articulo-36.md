@@ -1,0 +1,1 @@
+Artículo 36.- Petición de un directivo a la Auditoría Interna. Toda petición de trabajo o criterio que un Directivo requiera de la Auditoría Interna se hará mediante un acuerdo de la Junta Directiva, por ser el cuerpo colegiado el superior jerárquico de la Auditoría Interna.

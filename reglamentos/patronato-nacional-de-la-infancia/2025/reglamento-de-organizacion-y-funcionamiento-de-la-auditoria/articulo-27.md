@@ -1,0 +1,1 @@
+Artículo 27.- Ejecución del presupuesto de la Auditoría Interna. Corresponderá al Auditor(a) Interno(a) autorizar los documentos de ejecución presupuestaria que procedan y todo requerimiento de modificación al presupuesto anual asignado.

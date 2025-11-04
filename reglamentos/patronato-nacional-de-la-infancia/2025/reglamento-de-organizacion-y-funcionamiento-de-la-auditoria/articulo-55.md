@@ -1,0 +1,1 @@
+Artículo 55.- Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación. De lo contrario, la Auditoría Interna procederá a archivarlas.

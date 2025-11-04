@@ -1,0 +1,5 @@
+Artículo 18.-Ausencia permanente del Auditor(a) Interno(a). En los casos que la ausencia del Auditor(a) Interno(a) sea permanente, se deberá atender lo siguiente:
+a. Ameritará que la Junta Directiva gestione la autorización de la Contraloría General de la República, de previo a resolver un nombramiento definido (interino) en la plaza dispuesta para la persona titular de la Auditoría Interna, ello mientras la Institución realiza el concurso requerido por la ley para designar a la persona que ocupe el puesto en propiedad.
+b. El nombramiento definido podrá recaer en la persona que ostenta la titularidad del puesto de Subauditor(a) Interno (a), una persona funcionaria de la Auditoría Interna, o en su defecto, en una persona funcionario externo a la unidad, en ese orden.
+c. En la selección de la persona en quien recae el nombramiento definido, deberá privar el cumplimiento de los requisitos de idoneidad aplicables para ejercer el cargo.
+d. Se deberán observar las regulaciones del ente contralor, en cuanto a plazos, acciones, responsables, requerimientos y comunicaciones para el trámite del nombramiento definido.

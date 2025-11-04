@@ -1,0 +1,1 @@
+Artículo 23.- Archivo permanente. La Auditoría Interna tendrá información sobre las regulaciones legales y de otro tipo que afecten su ámbito de acción y su actividad, mediante sistemas de información y archivos impresos, digitales, electrónicos y de cualquier otra naturaleza que mantenga la entidad.

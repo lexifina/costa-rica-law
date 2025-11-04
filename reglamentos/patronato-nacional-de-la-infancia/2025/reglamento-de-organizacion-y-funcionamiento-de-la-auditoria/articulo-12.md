@@ -1,0 +1,1 @@
+Artículo 12.- Dirección de la Auditoría Interna. La persona que ocupe el cargo de la Dirección de la Auditoría Interna es la persona superior jerárquica del personal de la Auditoría Interna, y tiene a su cargo la dirección superior y administración de ésta.

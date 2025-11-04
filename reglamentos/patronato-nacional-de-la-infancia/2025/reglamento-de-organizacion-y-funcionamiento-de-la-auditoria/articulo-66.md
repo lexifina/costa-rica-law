@@ -1,0 +1,1 @@
+Artículo 66.- Incumplimiento injustificado de recomendaciones aceptadas. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implementación de las recomendaciones por parte del funcionario responsable, lo pondrá en conocimiento del Jerarca o Consejo de Gobierno, según el artículo 42 de la Ley General de Control Interno.

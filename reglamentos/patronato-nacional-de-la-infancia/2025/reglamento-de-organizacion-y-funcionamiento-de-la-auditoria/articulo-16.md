@@ -1,0 +1,1 @@
+Artículo 16.- Evaluaciones de Desempeño del Auditor(a) Interno(a). La evaluación del desempeño del Auditor(a) Interno(a) serán aplicadas por el Presidente(a) Ejecutivo(a), en su calidad de Presidente de la Junta Directiva, conforme a la normativa existente en la institución.

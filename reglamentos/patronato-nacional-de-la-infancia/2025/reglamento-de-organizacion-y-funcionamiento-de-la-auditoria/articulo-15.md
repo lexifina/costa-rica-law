@@ -1,0 +1,1 @@
+Artículo 15.-Vacaciones y permisos del Auditor(a) Interno(a). Las vacaciones y los permisos con o sin goce de salario del Auditor(a) Interno(a), serán conocidas y resueltas por el Presidente Ejecutivo y en caso de no ser aprobadas por éste, podrá presentarse la solicitud a la Junta Directiva.

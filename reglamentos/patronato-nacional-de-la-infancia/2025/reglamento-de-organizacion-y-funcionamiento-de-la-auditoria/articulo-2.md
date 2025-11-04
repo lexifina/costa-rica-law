@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Lo consignado en el Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y funcionarios del Patronato Nacional de la Infancia, en lo que les resulte aplicable.
