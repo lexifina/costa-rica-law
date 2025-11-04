@@ -14,3 +14,4 @@ Oficialización y declaratoria de interés público y nacional de la "Norma para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-15 | la propia norma |
+| 2 | 2025-11-04 | Decreto Ejecutivo 45439 (2025-11-04) |
