@@ -1,0 +1,1 @@
+Artículo 28. -En cumplimiento del horario de tiempo extraordinario deberá aplicarse lo establecido en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Pablo de Heredia, referente al tema de la cobertura de las pólizas de riesgos de trabajos.

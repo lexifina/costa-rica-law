@@ -1,0 +1,3 @@
+CAPÍTULO IV
+SOBRE LOS SISTEMAS DE CONTROL
+Artículo 20. -Registro de asistencia. Todo funcionario (a) a quien se le autorice laborar tiempo extraordinario, deberá efectuar los registros respectivos de entrada y salida en el sistema de marca establecido por la Municipalidad, incluso por medio de otros instrumentos tecnológicos, donde se demuestre el tiempo laborado, salvo casos especiales debidamente autorizados por la jefatura inmediata o el patrono respectivo, mediante una nota de justificación que deberá acompañar el formulario o informe técnico de horas extraordinarias que se envía al Departamento de Recursos Humanos.

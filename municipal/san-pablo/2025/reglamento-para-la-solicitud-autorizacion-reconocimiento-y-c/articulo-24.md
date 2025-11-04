@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 24.- Incumplimientos al Reglamentos.- incumplimientos a las disposiciones establecidas en el presente reglamento constituirán causales de responsabilidad administrativa y podrán ser objeto de sanción disciplinaria, conforme a las faltas e infracciones tipificadas en el Código Municipal, la Ley de Administración Financiera de la República y Presupuestos Públicos, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, la Ley General de Control Interno, y, en general, en el bloque de legalidad vigente, según corresponda al caso concreto.
