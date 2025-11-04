@@ -15,3 +15,4 @@ Oficializa y declara de interés público y nacional de la "Norma para la habili
 | --- | --- | --- |
 | 1 | 2021-10-17 | la propia norma |
 | 2 | 2025-11-04 | Decreto Ejecutivo 45439 (2025-11-04) |
+| 3 | 2025-11-04 | Decreto Ejecutivo 45440 (2025-11-04) |
