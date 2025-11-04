@@ -1,5 +1,4 @@
-Artículo 2.- Acrónimos y Definiciones.
-Para el otorgamiento de los permisos o autorizaciones que regula el presente Reglamento, la Dirección General de Ingeniería de Tránsito, el Ministerio de Salud y la Municipalidad respectiva, deberán velar por el cumplimiento de todas las normas y requerimientos técnicos y de seguridad correspondientes a cada caso en particular. En virtud de ello, los interesados deberán observar los acrónimos que se detallan a continuación y ajustarse a las siguientes definiciones:
+Artículo 2.- Acrónimos y Definiciones. Para el otorgamiento de los permisos o autorizaciones que regula el presente Reglamento, la Dirección General de Ingeniería de Tránsito, el Ministerio de Salud y la Municipalidad respectiva, deberán velar por el cumplimiento de todas las normas y requerimientos técnicos y de seguridad correspondientes a cada caso en particular. En virtud de ello, los interesados deberán observar los acrónimos que se detallan a continuación y ajustarse a las siguientes definiciones:
 1) Acrónimos.
 a) ACC: Área Central Comercial de San José. Abarca el área comprendida entre calle 42 y calle 23 inclusive, y entre avenida 9 y avenida 22 inclusive.
 b) CTP: Consejo de Transporte Público.
@@ -29,3 +28,7 @@ n) Tramo: se refiere a una sección de una calle o carretera.
 o) Utilización de un tramo de vía: se refiere al uso extraordinario de un tramo de vía pública con el fin de realizar actividades organizadas, distintas a aquellas para las cuales fue diseñada la vía, y cuyo desarrollo no se efectúa en un mismo sitio, sino que se moviliza constantemente a lo largo de un recorrido previamente determinado.
 p) Ventanilla Única: Plataforma informática a la que la ciudadanía puede dirigirse para presentar la documentación requerida por el Ministerio de Obras Públicas y Transportes y el Ministerio de Salud, a fin de obtener el permiso para el cierre y utilización de vías públicas.
 q) Vía pública: toda vía por la que haya libre circulación.
+r) Exoneración: Acto administrativo fundamentado, emitido por el Ministro de Obras Públicas y Transportes, mediante el cual se dispensa la obligación del pago por el costo operativo del evento deportivo.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45328 del 4 de noviembre del 2025)
+s) Gratuidad de la Actividad: Evento organizado sin costo de inscripción para los participantes.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45328 del 4 de noviembre del 2025)

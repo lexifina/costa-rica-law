@@ -14,3 +14,4 @@ Reglamento a la Ley para regular eventos deportivos en vías públicas terrestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-09 | la propia norma |
+| 2 | 2025-11-04 | Decreto Ejecutivo 45328 (2025-11-04) |
