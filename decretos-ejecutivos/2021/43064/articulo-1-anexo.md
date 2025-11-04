@@ -27,14 +27,17 @@ l) KED: Del inglés KED, acrónimo de "Kendrick Extrication Device", traducido a
 m) LED: Del inglés LED, acrónimo de "Light Emitting Diode", traducido al idioma español como "Diodo emisor de luz", es un dispositivo electrónico semiconductor que emite luz cuando se le aplica electricidad.
 n) Lux (lx): Es la unidad derivada del Sistema Internacional de Unidades para la iluminancia o nivel de iluminación.
 o) Médico responsable del servicio de atención a pacientes: Persona con grado académico de profesional en medicina y cirugía, y capacitación en soporte avanzado de vida, que ejerce la conducción técnica de la atención a las personas en el servicio de ambulancia. Esta persona asume la responsabilidad y el compromiso ante el Ministerio de Salud, por el debido cumplimiento por parte del servicio, de lo dispuesto en la Ley General de Salud, normativa sanitaria vigente y demás disposiciones emitidas por el Ministerio en relación al funcionamiento del servicio. Este será responsable de todo el proceso de atención al paciente. Este término es equivalente a las figuras de Director Médico, Médico Jefe u otros similares.
-p) MVE: Certificado del Curso de Manejo de Vehículos de Emergencia o similar.
-q) TEM: Técnico en Emergencias Médicas.
+p) MVE: Manejo de Vehículos de Emergencia.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
+q) TEM: Tecnólogo en Emergencias Médicas. Es el recurso humano capacitado para la atención de emergencias extrahospitalarias, con formación universitaria o parauniversitaria y respaldado por un centro académico acreditado por el Consejo Nacional de Rectores (CONARE) o el Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
 r) Transporte de emergencias: Según el riesgo vital para las personas, se puede definir como, aquel en donde la persona necesita asistencia inmediata, porque se encuentra en situaciones de riesgo vital inminente.
 s) Transporte de no urgencias: Según el riesgo vital para las personas, se puede definir como, aquel en donde la persona presenta una situación clínica estable. Por ejemplo, un paciente que ha sido dado de alta, pero necesita ser trasladado a su domicilio.
 t) Transporte programado: Según el riesgo vital para las personas, se puede definir como, aquel en donde la persona presenta una situación clínica estable y se traslada a los centros de salud de manera periódica para recibir atención en salud. Son actividades sujetas a programación.
 u) Transporte primario: Según el carácter del transporte, se puede definir como aquel que se realiza desde el lugar donde se produce la demanda sanitaria hasta el servicio de salud donde será atendido. El carácter de primario, se lo da el hecho de que la persona toma por primera vez contacto con los equipos de atención prehospitalaria y no por el medio de transporte usado o la gravedad del evento. Se conoce también como transporte prehospitalario.
 v) Transporte secundario: Según el carácter del transporte, se puede definir como aquel que se realiza entre dos centros de salud. Admite muchas variantes y por lo tanto los medios empleados también pueden cambiar.
-w) Transporte terciario: Según el carácter del transporte, se puede definir como aquel que se realiza dentro del propio centro hospitalario.
+w) Transporte terciario: Según el carácter del transporte, se puede definir como aquel que no está relacionado directamente con la atención médica, y que se ocupa principalmente del traslado de pacientes dados de alta o en situaciones no asistenciales. Ejemplos de este tipo de transporte incluyen el traslado de órganos para trasplantes, el traslado de pacientes a citas médicas programadas de seguimiento, el transporte de personas a centros de rehabilitación, traslados a hospitales para estudios médicos no urgentes, y el traslado de personas con discapacidad a centros de atención especializada.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
 x) Trasporte de urgencias: Según el riesgo vital para las personas, se puede definir como, aquel en donde las personas presentan patologías que puedan entrañar riesgo vital o disfunción orgánica grave. Se realiza el traslado tras declararse una indicación diagnóstica o terapéutica precisa y una vez estabilizadas las funciones vitales del paciente.
 y) Vatio (W): Unidad de potencia del sistema internacional que da lugar a la producción de 1 julio por segundo.
 V.-Especificaciones.
@@ -45,7 +48,8 @@ Las especificaciones de la norma están clasificadas en los siguientes rubros.
 4. Documentación y gestión de la información.
 5 Seguridad.
 1º-Recurso Humano.
-1.1 La ambulancia de soporte avanzado, debe tener durante el tiempo de operación, alguna de las siguientes configuraciones en su tripulación:
+1.1 La ambulancia de soporte avanzado debe contar, durante su tiempo de operación, con un conductor con capacitación mínima de APA y en MVE, inscrito en el Registro Nacional de Asistentes de Primeros Auxilios (APA) y Asistentes de Emergencias Médicas (AEM) del Ministerio de Salud, de conformidad con lo establecido en los artículos 35, 36, 37, 38 y 39 del Decreto Ejecutivo N° 44893-S del 7 de enero del 2025 "Reglamento de Atención Extrahospitalaria", así como un acompañante con capacitación mínima de TEM, autorizado por el Colegio de Médicos y Cirujanos de Costa Rica.
+(Así reformado el punto 1.1) anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
 1.1.1 Un conductor con capacitación mínima de TEM con MVE y un acompañante con capacitación mínima de TEM.
 1.1.2 Un conductor con capacitación mínima de APA con MVE y dos acompañantes con capacitación mínima de TEM.
 1.2 En todo caso la empresa o entidad en sus instalaciones, debe tener en su planilla, un médico responsable del servicio de atención a pacientes, con capacitación en soporte avanzado de vida.
@@ -96,16 +100,20 @@ Las especificaciones de la norma están clasificadas en los siguientes rubros.
 2.6.1 Debe tener un sistema de aire acondicionado, que cubra por separado la cabina de conductor y el compartimiento del paciente.
 2.7 Mobiliario:
 2.7.1 El interior del compartimiento del paciente debe permitir la instalación del mobiliario para el almacenaje de los dispositivos médicos, medicamentos e insumos.
-2.7.2 El interior del compartimiento del paciente puede tener un asiento longitudinal del tipo cajón o butacas individuales alineadas con sus dispositivos de seguridad.
-2.7.3 Asiento en la cabecera de la camilla, que contará con cinturón de seguridad.
+2.7.2 El interior del compartimiento del paciente puede incluir, de manera opcional, un asiento longitudinal tipo cajón o butacas individuales que alcancen la cabecera de la camilla y cada plaza con sus dispositivos de seguridad.
+(Así reformado el punto 2.7.2) anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
+2.7.3 El interior del compartimiento del paciente puede incluir, de manera opcional, un asiento en la cabecera de la camilla, el cual deberá contar con cinturón de seguridad.
+(Así reformado el punto 2.7.3) anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
 3º-Equipo y Material.
 3.1 Equipo para el traslado del paciente:
 3.1.1 Camilla principal, la cual debe cumplir con las siguientes características:
 3.1.1.1 Con patas abatibles o retráctiles que permitan su operación en dos alturas y manejo por un operador.
 3.1.1.2 Respaldo reclinable con un mecanismo de bloqueo que permita seleccionar varias posiciones.
 3.1.1.3 Barandas laterales abatibles, ubicadas una a cada lado de la camilla.
-3.1.1.4 Dimensiones mínimas: Largo 180 cm y Ancho 60 cm.
-3.1.1.5. Capacidad mínima de soporte de peso de 170 Kg.
+3.1.1.4 La camilla principal deberá tener un largo mínimo de 170 centímetros y un ancho mínimo de 50 centímetros. Estas dimensiones deberán medirse sobre la estructura total del equipo, considerando los puntos más externos en los ejes longitudinal (largo) y transversal (ancho).
+(Así reformado el punto 3.1.1.4) anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
+3.1.1.5 La camilla principal deberá ser capaz de soportar una carga mínima de 150 kilogramos.
+(Así reformado el punto 3.1.1.5) anterior por el artículo 1° del decreto ejecutivo N° 45439 del 4 de noviembre del 2025)
 3.1.1.6 Incluir dos cinturones de fijación dotados con hebillas, de cierre seguro y ubicados transversalmente al paciente.
 3.1.1.7 La fijación de la camilla al vehículo debe incluir un sistema seguro de anclaje de acuerdo al modelo de la camilla, que impida los movimientos transversales, longitudinales y los desplazamientos propios de aceleraciones, frenadas bruscas, colisiones o accidentes.
 3.1.1.8 El anclaje debe operarse manualmente y con un desacople rápido.
