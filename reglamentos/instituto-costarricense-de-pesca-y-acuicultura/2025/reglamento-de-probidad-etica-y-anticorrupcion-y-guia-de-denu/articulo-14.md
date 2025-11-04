@@ -1,0 +1,1 @@
+Artículo 14.-Aprovechamiento indebido del cargo. Se prohíbe utilizar el cargo o su influencia para obtener beneficios personales, ejercer favoritismo o incidir indebidamente en decisiones institucionales.

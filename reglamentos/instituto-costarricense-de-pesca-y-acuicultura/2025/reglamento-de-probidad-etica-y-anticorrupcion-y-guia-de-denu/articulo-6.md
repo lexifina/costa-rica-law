@@ -1,0 +1,1 @@
+Artículo 6°-Transparencia institucional. El personal deberá rendir cuentas sobre sus actuaciones, facilitar la fiscalización y proteger los recursos públicos. Ninguna información podrá ser ocultada o tergiversada, salvo aquella amparada por reserva legal.

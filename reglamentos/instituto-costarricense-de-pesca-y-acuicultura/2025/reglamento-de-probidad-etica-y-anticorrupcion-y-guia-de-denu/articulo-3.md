@@ -1,0 +1,1 @@
+Artículo 3°-Principios rectores. El cumplimiento de este reglamento se fundamenta en los principios de legalidad, transparencia, rendición de cuentas, integridad, objetividad, imparcialidad, responsabilidad, eficiencia, equidad, justicia, buena fe y servicio al interés público celeridad, confidencialidad y la participación ciudadana.

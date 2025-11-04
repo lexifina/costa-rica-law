@@ -1,0 +1,1 @@
+Artículo 13.-Deber de abstención. El personal deberá inhibirse de intervenir en asuntos donde exista vínculo personal, familiar, económico o cualquier otra causa que comprometa su objetividad, incluso si esto implica la atención en los servicios que ofrece el INCOPESCA.

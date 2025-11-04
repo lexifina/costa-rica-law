@@ -1,0 +1,1 @@
+Artículo 23.-Protección al denunciante. El INCOPESCA, resguardara la identidad del denunciante, sin embargo en caso de que por factores externos esta se llegue a conocer, queda terminantemente prohibida cualquier represalia, sanción o perjuicio contra quien denuncie de buena fe. El INCOPESCA adoptará medidas de resguardo a su integridad y situación laboral.

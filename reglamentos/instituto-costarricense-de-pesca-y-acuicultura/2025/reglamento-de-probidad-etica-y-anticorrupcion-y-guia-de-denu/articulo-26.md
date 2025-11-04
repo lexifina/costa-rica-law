@@ -1,0 +1,1 @@
+Artículo 26.-Integración. Estará conformada por funcionarios designados por la Presidencia Ejecutiva, quien ha garantizado el equilibrio de género, transparencia y conocimiento en materia de ética pública.

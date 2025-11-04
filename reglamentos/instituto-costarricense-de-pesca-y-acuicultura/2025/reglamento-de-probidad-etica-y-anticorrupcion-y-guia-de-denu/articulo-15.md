@@ -1,0 +1,1 @@
+Artículo 15.-Participación política. El uso del cargo o recursos institucionales para favorecer agrupaciones políticas o candidaturas está prohibido, asimismo se encuentra prohibido el apoyo a agrupaciones políticas o candidaturas en redes sociales.

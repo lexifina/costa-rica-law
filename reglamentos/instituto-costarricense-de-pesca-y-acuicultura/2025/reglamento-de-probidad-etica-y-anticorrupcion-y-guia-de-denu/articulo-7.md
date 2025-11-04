@@ -1,0 +1,1 @@
+Artículo 7°-Lealtad institucional y comportamiento digno. Las personas servidoras deben comportarse con respeto, cortesía y profesionalismo, evitando actos, expresiones o gestos que afecten la imagen del Instituto o la dignidad de la función pública, uso responsable del tiempo laboral y la obligación de denunciar hechos relacionados con actos de corrupción.

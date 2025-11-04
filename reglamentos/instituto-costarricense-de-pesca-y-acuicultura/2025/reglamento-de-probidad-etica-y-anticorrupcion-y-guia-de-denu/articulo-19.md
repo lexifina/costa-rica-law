@@ -1,0 +1,1 @@
+Artículo 19.-Uso de redes sociales. El personal debe ejercer prudencia en el uso de redes sociales, evitando publicaciones, fotografías o comentarios que comprometan la imagen del INCOPESCA o difundan información interna.

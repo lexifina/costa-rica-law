@@ -1,0 +1,1 @@
+Artículo 18.-Conducta en espacios públicos. Quien porte el uniforme o identificación institucional deberá mantener una conducta decorosa, acorde con los principios de respeto, neutralidad y ética pública.

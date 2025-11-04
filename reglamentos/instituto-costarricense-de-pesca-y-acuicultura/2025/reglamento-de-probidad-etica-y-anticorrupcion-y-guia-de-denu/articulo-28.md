@@ -1,0 +1,1 @@
+Artículo 28.-Vigencia. El presente reglamento entrará en vigor a partir de su aprobación por la Junta Directiva y divulgación al personal interno. Dicho reglamento será revisado y actualizado de ser necesario cada tres años.

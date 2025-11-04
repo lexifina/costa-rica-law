@@ -1,0 +1,1 @@
+Artículo 9°-Prohibición de recibir beneficios. Se prohíbe solicitar o aceptar obsequios, donaciones, favores o beneficios en razón del cargo. Esto incluye dinero, comidas, productos pesqueros, o cualquier otro detalle que sea entregado en razón del cargo. Esta disposición se extiende a familiares hasta el tercer grado de consanguinidad y segundo de afinidad.
