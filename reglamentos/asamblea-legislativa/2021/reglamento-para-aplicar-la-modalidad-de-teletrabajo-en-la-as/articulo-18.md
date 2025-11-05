@@ -1,7 +1,11 @@
-ARTÍCULO 18.- Integración y funciones de la Comisión Institucional de Teletrabajo La Comisión Institucional de Teletrabajo será conformada por el Director o Directora del Departamento de Recursos Humanos, quien la coordinará. Queda autorizada para delegar la coordinación en otro Director o Directora de Departamento. La integrarán los Directores de los siguientes Departamentos o sus representantes: Tecnologías de Información(*), DEI, Legal y Salud.
-(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Informática")
+ARTÍCULO 18.- Integración y funciones de la Comisión Institucional de Teletrabajo
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
+La Comisión Institucional de Teletrabajo será conformada por el Gerente (a) del Departamento de Recursos Humanos, quien la coordinará. Queda autorizada para delegar la coordinación en otro Gerente (a) de Departamento. La integrarán las Gerencias de los siguientes Departamentos o sus representantes: Tecnologías de Información, DEI, Legal y Salud.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 Le corresponderá a la Comisión Institucional de Teletrabajo, las siguientes funciones:
-a) Realizar el análisis de las diferentes solicitudes que se presenten para ingresar al programa de teletrabajo; por lo tanto, deberá analizar y valorar la información aportada y solicitar la adicional que considere necesaria, a efectos de poder emitir una recomendación a la Dirección Ejecutiva para los efectos correspondientes.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
+a) Emitir lineamientos generales para la aplicación de la modalidad de teletrabajo en la Asamblea Legislativa.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 b) Promocionar, apoyar e impulsar el teletrabajo dentro de la Asamblea Legislativa, para lo cual podrá contar con el apoyo de los diferentes órganos que lo integran y las demás dependencias de la institución.
 c) Nombrar subcomisiones o grupos técnicos de apoyo de carácter no permanente, y efectuar el análisis de las funciones o las actividades que solicite superior autorizante, en términos de si son o no teletrabajables, para lo cual contará con el apoyo de los perfiles que, a los efectos, elaborará el Departamento de Recursos Humanos.
 d) Recibir los informes periódicos de desempeño de los superiores autorizantes que cuenten con personal en la modalidad de teletrabajo y trasladarlos para su análisis y observaciones a la Dirección del Departamento de Desarrollo Estratégico Institucional.

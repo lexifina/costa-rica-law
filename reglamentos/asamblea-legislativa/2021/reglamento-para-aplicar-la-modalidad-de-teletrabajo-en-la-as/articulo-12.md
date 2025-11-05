@@ -1,14 +1,17 @@
 ARTÍCULO 12.- Funciones del superior autorizante, que implementa la modalidad de teletrabajo
 Son funciones del superior autorizante:
-a) Solicitar a la Comisión Institucional de Teletrabajo el criterio y la recomendación para determinar si las funciones de un puesto se pueden realizar, en la modalidad de teletrabajo.
+a) Autorizar o no el ingreso a la modalidad de teletrabajo de las personas funcionarias a su cargo, previo análisis de viabilidad de ese programa según las funciones y el perfil de la persona solicitante.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 b) Determinar si las habilidades y las competencias de un funcionario o funcionaria se ajustan para que sea incluido en la metodología para realizar sus funciones, parcial o totalmente, en la modalidad de teletrabajo.
 c) Consentir en que el servidor solicitante proceda a la firma del contrato, mediante el cual se está acogiendo a la modalidad de teletrabajo, de conformidad con este reglamento. Caso contrario, razonar la negativa del caso.
 d) Definir los criterios y los procedimientos mediante los cuales se evaluará el rendimiento e informar a las personas que deseen someterse a modalidad, previo a la firma del contrato, y que eventualmente podría devenir en la rescisión de este. Los criterios de medición, evaluación y control del teletrabajador serán previamente determinados entre el funcionario y el superior autorizante, en el acuerdo a suscribir, procurando el cumplimiento de los objetivos y las metas de la dependencia. Además, serán actualizados en el momento que se considere oportuno con la presencia de ambas partes.
 e) Verificar el cumplimiento de las metas y los objetivos acordados por parte de las personas teletrabajadoras.
 f) Verificar, durante la vigencia de la modalidad de teletrabajo, el cumplimiento por parte de las personas teletrabajadoras, los requerimientos mínimos en cuanto al espacio físico y las condiciones en donde se desarrollarán las tareas.
 g) Cumplir con la reglamentación y las directrices correspondientes al programa de teletrabajo.
-h) Una vez que la Comisión Institucional de Teletrabajo recomienda la inclusión de determinado funcionario o funcionaria de un departamento u órgano de fracción política en el programa y el director ejecutivo lo ratifica mediante la firma de los respectivos contratos, el superior autorizante, deberá remitir al Departamento de Recursos Humanos la lista de los funcionarios y las funcionarias acogidas a la modalidad, con copia de los contratos respectivos.
+h) Una vez que recomienda la inclusión de determinado funcionario o funcionaria de un departamento u órgano de fracción política en el programa y la gerencia general lo ratifica mediante la firma de los respectivos contratos, el superior autorizante, deberá remitir al Departamento de Recursos Humanos la lista de los funcionarios y las funcionarias acogidas a la modalidad, con un original de los contratos respectivos.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 i) Llevar los registros de la información relativa al teletrabajo y emitir informes trimestrales sobre los resultados y el desempeño del teletrabajo en su dependencia, y hacer llegar un original de estos a la Comisión Institucional de Teletrabajo. Mantener actualizadas las actividades y los puestos que son factibles de incorporar al programa de teletrabajo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 j) Determinar si la información a la cual tiene acceso el teletrabajador es de carácter confidencial y sensible a los intereses de la Asamblea Legislativa, y proceder de acuerdo con el cumplimiento de las disposiciones establecidas.
 k) Planificar las actividades y establecer las metas con las que se evaluará el rendimiento
 del teletrabajador.
