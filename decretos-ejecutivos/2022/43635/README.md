@@ -17,3 +17,4 @@ Integración del Consejo de Transporte Público
 | 2 | 2023-01-17 | Decreto Ejecutivo 43873 (2023-01-17) |
 | 3 | 2023-05-25 | Decreto Ejecutivo 44174 (2023-05-25) |
 | 4 | 2024-03-13 | Decreto Ejecutivo 44550 (2024-03-13) |
+| 5 | 2025-11-05 | Decreto Ejecutivo 45302 (2025-11-05) |
