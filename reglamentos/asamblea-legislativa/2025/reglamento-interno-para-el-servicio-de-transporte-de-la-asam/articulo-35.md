@@ -9,11 +9,10 @@ En la mayoría de los casos la suplencia es para la atención y realización de 
 e) La suplencia de los funcionarios autorizados como choferes suplentes no podrán ejercerse en su horario o jornada ordinaria de trabajo, ni afectar el desempeño de las labores que realiza en el departamento u oficina donde esta nombrado.
 f) Por la naturaleza del servicio y por Control Interno, los choferes suplentes pasan a las órdenes, regulaciones, responsabilidades, control y directrices de la Jefatura del Área de Transportes, como superior jerárquico durante el inicio y finalización de la prestación del servicio de transporte.
 g) Los requisitos para ser choferes suplentes son, los mismos que para optar por un puesto de chofer regular:
-a. Ser funcionario legislativo.
-b. Conclusión de estudios de Enseñanza General Básica.
-c. Cédula de identidad al día.
-d. Experiencia de manejo mínimo cuatro cinco años.
-e. Licencia vigente para conducir vehículo tipo B1.
+a) Ser funcionario legislativo.
+b) Los requisitos que indique el Manual de Clases Administrativas de la Asamblea Legislativa para esta categoría.
+c) Cédula de identidad al día. Publíquese. Acuerdo Firme.
+(Así reformado el inciso g) anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 h) Comprometerse a guardar la discrecionalidad, las normas de buena conducta y respeto durante el ejercicio de la suplencia. Entender que durante la prestación del servicio de transportes no puede pretender dejar de prestar el servicio por una decisión personal o unilateral.
 i) Durante la suplencia no se podrá conducir en estado de ebriedad, drogas o fármacos que alteren y pongan en riesgo su integridad y la de los pasajeros durante la prestación del servicio.
 j) La Administración asignará a los choferes suplentes:
