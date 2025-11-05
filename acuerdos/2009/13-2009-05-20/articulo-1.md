@@ -366,6 +366,16 @@ Conclusión de estudios de Enseñanza General Básica.
 Experiencia mínima de dos años en la ejecución de labores relacionadas con el cargo.
 Licencia vigente para conducir vehículo tipo B1."
 (*) (Así reformado el punto anterior en sesión N° 049 del 9 de mayo de 2023)
+(*) Requisitos alternativos dentro de la clase de Operador de Equipo Móvil
+. Conclusión de estudios de Enseñanza General Básica.
+. Experiencia mínima de dos años en la ejecución de labores relacionadas con el cargo.
+. Licencia vigente para conducir vehículo tipo B1.
+ó
+. Conclusión de I y II Ciclo de Educación General Básica.
+. Experiencia mínima de cuatro años en la ejecución de labores
+. relacionadas con el cargo.
+. Licencia vigente para conducir vehículo tipo B1.
+(*)(Así adicionado los requisitos anteriores mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
 ESTRATO CALIFICADO
 Este estrato abarca clases que se encuentran en la base de la estructura ocupacional. Estas ocupaciones se caracterizan por incluir procesos de trabajo cuya ejecución necesita una mayor cualificación ocupacional.
 La formación académica requerida puede ser satisfecha al poseer un diploma de Educación Media y un diploma que le califique para el oficio específico, obtenido tanto en un colegio técnico profesional como en otras instituciones de naturaleza similar. En ocasiones la formación académica puede ser menor a las exigencias indicadas, siempre que el trabajador posea pericia en el desempeño del trabajo.
