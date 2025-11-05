@@ -14,3 +14,4 @@ Reglamento de comisiones y departamentos de salud ocupacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-29 | la propia norma |
+| 2 | 2025-11-05 | Directriz 2 (2025-11-05) |
