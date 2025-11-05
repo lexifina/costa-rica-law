@@ -13,3 +13,4 @@ Modificación de la competencia territorial del Juzgado Contravencional de Monte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-07 | la propia norma |
+| 2 | 2025-11-05 | Circular 211 (2025-11-05) |
