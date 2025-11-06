@@ -1,0 +1,1 @@
+Artículo 2º-De la aplicación de otra normativa. La disposición indicada en el artículo anterior no exime del cumplimiento de las demás disposiciones establecidas en otras leyes y reglamentos que le sean vinculantes al producto.
