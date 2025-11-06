@@ -1,0 +1,7 @@
+ARTÍCULO 9- Adiciónense los siguientes transitorios a la Ley 6746, Crea Fondo Juntas Educación y Administrativas Oficiales, de 29 de abril de 1982. Los textos son los siguientes.
+TRANSITORIO I- A la Dirección de Gestión y Desarrollo Regional del Ministerio de Educación Pública le corresponderá la distribución del año 2026, de conformidad con lo dispuesto en el artículo 6 de la presente ley. Para esos efectos, la Dirección Financiera deberá trasladar oportunamente los perfiles de los sistemas oficiales utilizados y procedimiento vigente.
+TRANSITORIO II- La Dirección de Informática de Gestión del Ministerio de Educación Pública deberá atender con prioridad las modificaciones en los sistemas de información oficiales que deriven de los cambios en la distribución de los recursos del fondo, conforme a las disposiciones establecidas en el artículo 6 de la presente ley.
+TRANSITORIO III- Durante lo que resta del año 2024, los recursos que no sean transferidos a las juntas de educación y administrativas de la distribución de los recursos del fondo de la Ley 6746, realizado desde inicio del año, por la aplicación de saldos disponibles, podrán ser redireccionados por el MEP para atender déficit identificados en los estudios económicos que realiza la Dirección de Gestión yDesarrollo Regional del MEP.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, al día seis del mes de octubre del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.

@@ -1,0 +1,2 @@
+ARTÍCULO 7- Refórmese el artículo 10 de la Ley 6746, Crea Fondo Juntas Educación y Administrativas Oficiales, de 29 de abril de 1982. El texto es el siguiente:
+Artículo 10- Las rentas o subvenciones que, por imperativo de esta ley, perciben actualmente las juntas de educación y las juntas administrativas se mantendrán para el fin que fueron creadas, son inembargables y no podrán redirigirse a financiar instancias o áreas ajenas a los centros educativos.
