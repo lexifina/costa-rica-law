@@ -1,0 +1,1 @@
+Artículo 11.- Documentación. Con el fin de documentar el consentimiento informado, pueden ser utilizados medios físicos o digitales. Para todas las unidades de atención no gubernamentales, el Consejo Nacional de Cuidados Paliativos debe elaborar un documento único.

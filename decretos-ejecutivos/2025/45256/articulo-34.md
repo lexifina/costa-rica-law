@@ -1,0 +1,1 @@
+Artículo 34.- Control y supervisión. Las Contralorías de Servicio de las unidades de atención en cuidados paliativos son las encargadas en primera instancia de supervisar y evaluar la prestación de los servicios de cuidados paliativos, pudiendo los usuarios recurrir a ellas cuando consideren que se han violentado sus derechos.

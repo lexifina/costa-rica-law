@@ -1,0 +1,3 @@
+CAPITULOIII
+DOCUMENTOS DE VOLUNTADES ANTICIPADAS.
+Artículo 15.- Garantía del derecho de voluntad anticipada. Los profesionales encargados de la atención en las unidades de atención en cuidados paliativos deben garantizar el derecho de las personas, en pleno uso de sus facultades, a expresar su voluntad de manera anticipada con respecto a intervenciones médicas que se requieren realizar para salvaguardar la vida de la persona o las funciones vitales de su organismo, por un equipo de salud, mediante su manifestación libre y voluntaria, la cual se señalará por escrito en una declaración de voluntades anticipadas.

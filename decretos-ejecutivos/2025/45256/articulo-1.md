@@ -1,0 +1,19 @@
+Nº. 45256-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146) de la Constitución Política; 25, 27 inciso 1), 28, párrafo 2), inciso b) y 103 inciso 1) de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4 y 7 de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley No. 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud" y la Ley No. 10245 del 05 de mayo de 2022 "Ley de Cuidados Paliativos".
+CONSIDERANDO:
+1. Que la salud de la población es tanto un derecho fundamental, como un bien de interés público tutelado por el Estado.
+2. Que es competencia del Ministerio de Salud definir la política, la regulación, la planificación y la coordinación de todas las actividades públicas y privadas relacionadas con la salud.
+3. Que es función del Estado velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos, en un marco de transparencia y eficiencia en la gestión.
+4. Que el papel rector del Ministerio de Salud implica garantizar la salud de la población, estableciendo las condiciones para el cumplimiento de los principios de equidad, universalidad y solidaridad, mediante el ejercicio de la rectoría sobre las personas físicas y jurídicas relacionadas con la salud, y la ejecución de programas prioritarios, para contribuir al logro de la calidad de vida de la población y al desarrollo del país.
+5. Que la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud" y la Ley No. 10245 del 05 de mayo de 2022 "Ley de Cuidados Paliativos", regulan las actividades de atención en cuidados paliativos a todos los habitantes de la República, independientemente de su edad, condición social o enfermedad.
+6. Que en la Ley No. 10245 del 05 de mayo del 2022 "Ley de Cuidados Paliativos", se estableció que el Poder Ejecutivo debe reglamentar dicha ley, siendo responsable el Ministerio de Salud de vigilar que las organizaciones públicas, privadas y mixtas, que se dediquen a brindar servicios de salud en cuidados paliativos, actúen en consonancia con la citada ley y con el presente reglamento, en cuanto a la calidad del servicio, accesibilidad y todos los valores implícitos en ellos, contemplando las sanciones que se apliquen a los establecimientos prestadores de servicios de cuidados paliativos, que no cumplan con esta normativa. Por lo que se hace necesario y oportuno emitir la presente reglamentación.
+7. Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045-MP-MEIC del 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y sus reformas, la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos.
+8. Que el presente Decreto Ejecutivo fue sometido a consulta pública mediante la página web del Ministerio de Salud, esto en atención del artículo 361 de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública". Como resultado de este proceso no recibieron observaciones por parte de los administrados.
+Por tanto,
+DECRETAN:
+REGLAMENTO A LA LEY No. 10245 DEL 05 DE MAYO DE 2022 "LEY DE CUIDADOS PALIATIVOS".
+CAPÍTULO l.
+DISPOSICIONES GENERALES.
+Artículo 1.- Objetivo. El presente reglamento regula la aplicación de la Ley No. 10245 del 05 de mayo de 2022 "Ley de Cuidados Paliativos", mediante normas y procedimientos aplicables a la atención en cuidados paliativos a todos los habitantes de la República, independientemente de su edad, condición social o enfermedad.

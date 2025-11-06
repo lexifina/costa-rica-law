@@ -1,0 +1,1 @@
+Artículo 29.- Derechos del personal. Los encargados de las unidades de atención en cuidados paliativos están en la obligación de velar por la buena salud emocional y prevención del síndrome de desgaste profesional al personal que brinda atención de cuidados paliativos.

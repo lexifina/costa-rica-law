@@ -1,0 +1,1 @@
+Artículo 35.- Derogatoria. Deróguese el Decreto Ejecutivo No. 36656-S del 12 de abril de 2011 "Creación del Consejo Nacional de Cuidados Paliativos, publicado en La Gaceta No.139 del 19 de julio de 2011.
