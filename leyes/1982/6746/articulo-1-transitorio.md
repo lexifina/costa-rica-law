@@ -1,0 +1,2 @@
+TRANSITORIO I- A la Dirección de Gestión y Desarrollo Regional del Ministerio de Educación Pública le corresponderá la distribución del año 2026, de conformidad con lo dispuesto en el artículo 6 de la presente ley. Para esos efectos, la Dirección Financiera deberá trasladar oportunamente los perfiles de los sistemas oficiales utilizados y procedimiento vigente.
+(Así adicionado por el artículo 9° de la ley N° 10757 del 6 de octubre de 2025)

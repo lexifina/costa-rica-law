@@ -1,0 +1,2 @@
+TRANSITORIO III- Durante lo que resta del año 2024, los recursos que no sean transferidos a las juntas de educación y administrativas de la distribución de los recursos del fondo de la Ley 6746, realizado desde inicio del año, por la aplicación de saldos disponibles, podrán ser redireccionados por el MEP para atender déficit identificados en los estudios económicos que realiza la Dirección de Gestión y Desarrollo Regional del MEP.
+(Así adicionado por el artículo 9° de la ley N° 10757 del 6 de octubre de 2025)

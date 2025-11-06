@@ -1,6 +1,6 @@
 # Crea Fondo Juntas Educación y Administrativas Oficiales
 
-Ley N° 6746 del 1982-04-29. SINALEVI, ficha 33885: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33885&param2=118956&param3=1>.
+Ley N° 6746 del 1982-04-29. SINALEVI, ficha 33885: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33885&param2=148358&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1982-04-29 | Ley 6746 | 1982-04-29 |
 | 2 de 4 | 1982-04-29 | SINALEVI | 1982-04-29 |
 | 3 de 4 | 2018-12-04 | Ley 9635 | 2018-12-03 |
+| 4 de 4 | 2025-11-06 | Ley 10757 | 2025-10-06 |

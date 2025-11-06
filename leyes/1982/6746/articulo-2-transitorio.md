@@ -1,0 +1,2 @@
+TRANSITORIO II- La Dirección de Informática de Gestión del Ministerio de Educación Pública deberá atender con prioridad las modificaciones en los sistemas de información oficiales que deriven de los cambios en la distribución de los recursos del fondo, conforme a las disposiciones establecidas en el artículo 6 de la presente ley.
+(Así adicionado por el artículo 9° de la ley N° 10757 del 6 de octubre de 2025)

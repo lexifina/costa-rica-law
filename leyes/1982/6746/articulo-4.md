@@ -1,6 +1,4 @@
-ARTICULO 4º.- El Ministerio de Hacienda depositará en el Banco Central
-el fondo correspondiente en en los plazos indicados en el artículo
-anterior. Con estos depósitos el Banco Central abrirá una cuenta especial
-denominada Fondo de las juntas de educación y juntas administrativas de las
-instituciones de enseñanza oficial del país, dependientes del Ministerio de
-Educación Pública.
+Artículo 4- La asignación de recursos al fondo deberá constituirse en una prioridad dentro del presupuesto del Ministerio de Educación Pública.
+En adelante, la asignación de recursos al fondo no podrá ser menor al monto presupuestado en el año anterior y, como mínimo, deberá aumentarse por inflación acumulada. Sin embargo, el Ministerio de Educación Pública deberá realizar una revisión quinquenal de dicho fondo, donde se evalúe la asignación de estos recursos de acuerdo con la clasificación de los centros educativos, ya sea unidocentes, direcciones uno, dos, tres, cuatro y cinco, y asegurando que las necesidades de las juntas se cubren plenamente. Esta distribución podrá reasignarse dentro del presupuesto de este Ministerio, de acuerdo con sus necesidades.
+Los recursos de las juntas de educación no podrán ser inferiores al monto presupuestado en el año anterior y, como mínimo, deberá aumentarse por inflación acumulada. De esta forma, la distribución establecida en el artículo 6 de la Ley 6746 se alcanzará progresivamente, mediante la asignación de nuevos recursos para las juntas administrativas.
+(Así reformado por el artículo 1° de la ley N° 10757 del 6 de octubre de 2025)
