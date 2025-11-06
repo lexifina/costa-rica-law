@@ -1,0 +1,1 @@
+Artículo 13.-Este reglamento deroga los acuerdos 1.3. del Acta de la Sesión Extraordinaria Nº 20/2002 del dieciséis de setiembre del año dos mil dos; el Artículo Nº 6, Punto Nº14 del acta de la Sesión Ordinaria Nro. 150-2023 del día 13 de marzo 2023, y todas las disposiciones que se opongan a lo establecido en el presente Reglamento.

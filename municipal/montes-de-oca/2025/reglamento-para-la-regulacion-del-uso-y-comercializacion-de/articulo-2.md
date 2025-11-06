@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento se aplica a todas las personas físicas o jurídicas, públicas o privadas, que fabriquen, transporten, almacenen, comercialicen, distribuyan o utilicen pólvora o artículos pirotécnicos dentro del cantón de Montes de Oca.

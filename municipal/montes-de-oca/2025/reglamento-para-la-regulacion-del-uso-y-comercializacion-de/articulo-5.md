@@ -1,0 +1,1 @@
+Artículo 5º-Restricciones de uso. El uso de pólvora lumínica está permitido únicamente durante la temporada autorizada o en actividades debidamente autorizadas por la Municipalidad, entre las 17:00 y las 22:00 horas. Esta disposición debe respetar las disposiciones normativas del Ministerio de Salud y no exime del cumplimiento de la prohibición de venta vigente.

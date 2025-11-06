@@ -1,0 +1,1 @@
+Artículo 6º-Requisitos para la comercialización. No se otorgarán permisos municipales para la comercialización de pólvora, por lo que la venta de pólvora en el cantón queda prohibida, sin perjuicio de que las autoridades nacionales otorguen autorizaciones sectoriales.

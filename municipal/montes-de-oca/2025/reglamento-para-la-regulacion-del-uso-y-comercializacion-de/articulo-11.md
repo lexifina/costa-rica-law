@@ -1,0 +1,1 @@
+Artículo 11.-Sanciones. La violación de las disposiciones de este reglamento dará lugar a las siguientes sanciones: Decomiso de producto pirotécnico; suspensión temporal o definitiva de la licencia comercial y Denuncia ante las autoridades competentes, si corresponde.
