@@ -1,0 +1,4 @@
+ARTÍCULO 26- Operaciones no regulares
+1. Las líneas aéreas de cada Parte, tienen el derecho de llevar tráfico internacional tipo chárter de pasajeros (y su equipaje de acompañamiento) y/o carga (incluido, pero no limitado a una combinación de pasajeros / carga).
+2. Cada Parte, en condiciones de reciprocidad, deberá responder sin demora las solicitudes de operaciones no regulares o chárter, a las líneas aéreas que están debidamente autorizadas a operar en el territorio de la otra Parte.
+3. Las disposiciones relativas a la Aplicación de las Leyes, Reconocimiento de Certificados y Licencias, Seguridad Operacional, Seguridad de la Aviación, Cobros a las Usuarios, Derechos Aduaneros y Control Aduanero, impuestos, Conversión de Divisas y Transferencia de Fondos, Actividades Comerciales, Estadísticas y Consultas, también son aplicables a los vuelos no regulares o chárter operados por las líneas aéreas de una Parte hacia y desde el territorio de la otra Parte.
