@@ -1,4 +1,2 @@
-ARTICULO 8º.- Las juntas de educación y las juntas administrativas,
-deberán invertir, preferentemente, las rentas o subvenciones que reciban de
-lo que dispone esta ley, en material didáctico, mobiliario y equipo, y
-materiales de oficina.
+Artículo 8- Las juntas de educación o juntas administrativas deberán priorizar la inversión de estos fondos en el pago de los servicios públicos, servicios profesionales, materiales didácticos y suministros de higiene, aseo y limpieza, antes de utilizar los recursos para el pago de los demás gastos administrativos y de operación, o la inversión en la mejora de las condiciones de los centros educativos. Lo anterior deberá ser sistematizado en el reglamento de esta ley y en el Reglamento General de Juntas de Educación y Juntas Administrativas.
+(Así reformado por el artículo 6° de la ley N° 10757 del 6 de octubre de 2025)

@@ -1,0 +1,2 @@
+ARTÍCULO 2- Refórmese el artículo 5 de la Ley 6746, Crea Fondo de Juntas Educación y Administrativas Oficiales, de 29 de abril de 1982. El texto es el siguiente:
+Artículo 5- La Tesorería Nacional, a través del Departamento Financiero del Ministerio de Educación Pública, girará a las juntas de educación y a las juntas administrativas la suma que corresponda a cada una de ellas, para la atención de los gastos administrativos y operativos del centro educativo.

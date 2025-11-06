@@ -1,3 +1,1 @@
-ARTICULO 3º.- La recaudación del fondo señalado en el artículo
-anterior, se hará por cuotas trimestrales vencida, de acuerdo con lo que se
-establece en el artículo siguiente.
+ARTICULO 3º.- (Derogado 8° de la ley N° 10757 del 6 de octubre de 2025)
