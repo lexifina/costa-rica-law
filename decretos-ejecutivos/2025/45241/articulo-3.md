@@ -1,0 +1,1 @@
+Artículo 3° . Alcance. Este reglamento se aplicará a todas las Municipalidades de Costa Rica, los Concejos Municipales de Distrito, a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (en adelante CNE) y al Ministerio de Hacienda.

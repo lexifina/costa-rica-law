@@ -1,0 +1,1 @@
+Artículo 19°. Informar a la ciudadanía. Las municipalidades deberán informar de manera periódica y transparente a la ciudadanía sobre el uso del FGRM, así como sobre los programas o proyectos financiados con el mismo.

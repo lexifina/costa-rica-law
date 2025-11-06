@@ -1,0 +1,1 @@
+Artículo 9°. Certificación de los ingresos del FGRM. La unidad responsable de la administración financiera o el encargado de administrar los recursos de cada municipalidad en la subcuenta asignada, cuando corresponda, deberá certificar a la CGR la existencia de esos ingresos.

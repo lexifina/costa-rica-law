@@ -1,0 +1,1 @@
+Artículo 7°. Superávit en el FGRM. Si al final de la ejecución presupuestaria de cada año queda un remanente (un "superávit" del FGRM), ese dinero se mantiene en el mismo FGRM, no se debe mover y el siguiente año se deberá volver a presupuestar junto con el nuevo ingreso proveniente del 3% del superávit presupuestario libre de las municipalidades.
