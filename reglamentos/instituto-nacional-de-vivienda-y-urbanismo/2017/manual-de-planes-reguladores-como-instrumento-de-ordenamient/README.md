@@ -15,3 +15,4 @@ Manual de planes reguladores como instrumento de ordenamiento territorial
 | --- | --- | --- |
 | 1 | 2018-01-31 | la propia norma |
 | 2 | 2021-12-02 | Reglamento 6520 (2021-12-02) |
+| 3 | 2025-11-06 | Reglamento 28 (2025-11-06) |

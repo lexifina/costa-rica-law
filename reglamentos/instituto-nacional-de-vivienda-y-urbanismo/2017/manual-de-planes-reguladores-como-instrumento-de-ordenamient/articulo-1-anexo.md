@@ -1,24 +1,8 @@
-ANEXOS
-Anexo 1: Contenidos de los Términos de Referencia para
-la Fase de elaboración del Plan Regulador
-Los Términos de Referencia se formulan para el desarrollo de las siguientes etapas de la Fase de elaboración del Plan Regulador :
-Segunda etapa: Diagnóstico territorial
-Tercera etapa: Formulación de la propuesta
-Cuarta etapa: Asesoría, revisión y adopción de un Plan Regulador nuevo
-Además, implican el abordaje de los ejes físico espacial, social, económico, político institucional, jurídico, así como el eje ambiental. Entendiendo que el eje ambiental se refiere al desarrollo de la variable ambiental, por lo que supone la generación, análisis e integración de los productos solicitados por la SETENA en el Plan Regulador y los Reglamentos de Desarrollo Urbano.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
-Los Términos de Referencia deben contemplar lo dispuesto en la Ley de Planificación Urbana. Además, es recomendable que los Términos de Referencia incluyan al menos lo indicado seguidamente:
-Objetivos de la contratación
-Conformación del Equipo Planificador de acuerdo a la dimensión y complejidad del Área de Planificación delimitada preliminarmente
-Perfil de los profesionales del Equipo Planificador y de la persona coordinadora, considerando lo indicado en el Anexo 2 del presente Manual
-Alcance, condiciones y garantías de la contratación
-Responsabilidades
-Productos esperados y entregables de cada una de las Etapas contempladas en este Manual
-Plazos
-Plan de Trabajo general
-Cronograma general
-Requisitos de admisibilidad
-Criterios de selección y calificación
-Gestión de pago
-Formalización y verificación contractual
-Asimismo, es recomendable que en los Términos de Referencia se indiquen las actividades que son responsabilidad del Equipo Planificador, así como aquellas que son responsabilidad de la persona coordinadora. Además, cabe indicar que la labor tanto del Equipo Planificador, como la persona coordinadora no culmina hasta tanto no se cuente con una resolución de aprobación de la propuesta de Plan Regulador y Reglamentos de Desarrollo Urbano por parte del INVU.
+ANEXO 1. MATRIZ PARA LA ELABORACIÓN DE LA POLÍTICA DE DESARROLLO URBANO
+COMPONENTE | INSUMOS | PASOS / REQUERIMIENTOS | INTERROGANTES | PRODUCTO
+Análisis del problema | Análisis Unificado del Diagnóstico Territorial Hallazgos de los procesos participativos | Diagnóstico de la situación Análisis de causalidades (árbol de problemas- causas-efectos) Definición y jerarquización de acciones | ¿Cuáles son los antecedentes?, ¿Qué está pasando actualmente? y ¿Por qué es importante? ¿Qué es lo que más preocupante en el territorio?, ¿Cómo afecta a la ciudad?, ¿Qué sucede por causa del problema? y ¿Por qué ocurre este problema? ¿Cómo debería ser el cantón? y ¿Qué debe mejorar? ¿Qué se puede hacer para mejorar la situación? y ¿Cómo se implementarán estas medidas? | Árbol de problemas (Identificación del problema, causas y efectos) Construcción de la situación deseada Definición y jerarquización de acciones
+Principios y normativa en que se fundamenta | Principios en que se puede sustentar la propuesta Normativa nacional | Responder a la interrogante | ¿Qué principios guiarán las acciones y decisiones del desarrollo urbano? y ¿Por qué son importantes estos principios? ¿Qué leyes o normas guían el desarrollo urbano? y ¿Por qué es relevante esta normativa? | Principios Normativa
+Horizonte temporal | Construcción de la situación deseada Objetivos de desarrollo urbano | Responder a la interrogante | ¿Cuál es el plazo para cumplir los objetivos de desarrollo urbano? | Horizonte temporal
+Ejes-Objetivos de Desarrollo Urbano | Árbol de problemas (Identificación del problema, causas y efectos) Construcción de la situación deseada Definición y jerarquización de acciones | Agrupación de acciones jerarquizadas por Eje (Físico-Espacial, Ambiental, Socioeconómico y Político Institucional) Pasar el árbol de problemas a positivo para obtener el árbol de objetivos Formular el objetivo central con la ayuda del problema central del árbol de problemas respondiendo a la interrogante Formular los objetivos específicos con la ayuda del árbol de objetivos, los ejes formulados y la interrogante | ¿Cuáles son los enfoques prioritarios para el desarrollo del cantón? y ¿Qué áreas o temas específicos se abordarán en cada eje? ¿Qué que se quiere lograr? y ¿Cuáles son los pasos específicos para lograr el objetivo? | Ejes Objetivo central Objetivos específicos
+Acciones estratégicas | Ejes Objetivo central Objetivos específicos | Responder a la interrogante | ¿Qué pasos se deben dar? y ¿Cómo se ejecutarán estas acciones? | Acciones estratégicas por cada uno de los objetivos específicos
+Actores sociales | Diagnóstico Territorial Procesos participativos | Responder a la interrogante | ¿Quiénes podrían estar involucrados en el desarrollo futuro de nuestro cantón? | Identificación de actores sociales que inciden o podrían incidir en el territorio
