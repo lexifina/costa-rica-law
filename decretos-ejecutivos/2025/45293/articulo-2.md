@@ -1,0 +1,2 @@
+Artículo 2º—Oficina responsable del trámite. La Gestión de Servicios de Apoyo de la Dirección General de Migración y Extranjería, será la unidad responsable, de ejecutar los trámites establecidos en el artículo anterior, en relación con los vehículos asignados a esa institución.
+(Incluido este numeral mediante Fe de Erratas y publicada en el Alcance Digital N° 155 a La Gaceta N° 227 del 3 de diciembre de 2025, página N° 2)
