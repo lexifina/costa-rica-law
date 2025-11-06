@@ -1,0 +1,1 @@
+Artículo 34.- Inconsistencias. Cualquier inconsistencia de diseño o diagramación que se presente durante la revisión le será comunicado al cliente para que realice las correcciones necesarias. El trabajo no será procesado hasta que sean subsanados los errores. El cliente tiene 3 días hábiles para presentar dicho subsane.

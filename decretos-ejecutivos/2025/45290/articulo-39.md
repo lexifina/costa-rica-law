@@ -1,0 +1,1 @@
+Artículo 39.- Cantidad de pruebas. Se entregarán hasta un máximo de dos pruebas para correcciones. La tercera prueba será para la aprobación. En caso de que el cliente solicite otra prueba para corrección, su solicitud será valorada por la jefatura de Arte y Diseño.

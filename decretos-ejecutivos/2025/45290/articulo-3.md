@@ -1,0 +1,1 @@
+Artículo 3.- Obligación del uso de Sistema Integrado de Compras Públicas (SICOP). Toda venta de los productos de artes gráficas será tramitada de conformidad con la Ley Nº 9986, Ley General de Contratación Pública, y su reglamento Decreto Nº 43808-H.

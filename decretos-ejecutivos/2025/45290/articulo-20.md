@@ -1,0 +1,1 @@
+Artículo 20.- Garantía de cumplimiento. En el caso de que en la contratación se contemple el pago de garantía de cumplimento, la IN deberá cumplir con este requisito, según la disposición de presupuesto para este fin, y motivar las razones por las cuales se adquiere el compromiso de ofertar en esos términos.

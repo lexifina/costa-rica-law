@@ -1,0 +1,1 @@
+Artículo 38.- Plazo. El cliente cuenta con un máximo de 5 días hábiles para realizar la revisión correspondiente y enviar las correcciones o la aprobación. Si el cliente necesita más tiempo, deberá solicitarlo de forma escrita, justificando el motivo e indicando un plazo razonable para el envío de las correcciones o la aprobación.

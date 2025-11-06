@@ -1,0 +1,1 @@
+Artículo 40.- Acta de Visto Bueno. La prueba lleva adjunta una boleta que el responsable del trabajo deberá firmar, y que servirá a la Unidad de Arte, Diseño e Impresión Digital, como respaldo de que el cliente ha realizado la revisión del trabajo.

@@ -1,0 +1,1 @@
+Artículo 4.- Firma Digital de documentos: Todos los documentos digitales que se presenten o envíen para los trámites de contratación, debe ser firmados digitalmente conforme los artículos 8 y 9 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454, de 30 de agosto de 2005 publicada en la Gaceta Nº 197 del 13 de octubre de 2005.

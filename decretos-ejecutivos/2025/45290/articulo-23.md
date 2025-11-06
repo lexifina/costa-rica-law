@@ -1,0 +1,2 @@
+Artículo 23.- Análisis empaque. La IN al momento de ofertar analizará la forma de empaque solicitada en el cartel, esto con el fin de verificar su viabilidad, debido a que se deben considerar varios factores como: peso, tamaño, grosor, acabado de cada producto y así evitar que el mismo se dañe en su traslado.
+En caso de que en el cartel no se especifique este aspecto, la IN definirá el empaque, según el criterio técnico que garantice la adecuada manipulación y almacenamiento, acorde con las características del producto.

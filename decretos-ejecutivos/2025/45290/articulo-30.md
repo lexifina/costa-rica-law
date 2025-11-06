@@ -1,0 +1,1 @@
+Artículo 30.- Limitaciones. No se aceptan textos, fotografías, logos y gráficos e insertos en los programas Publisher, Power Point, Page Maker, Corel Draw, Canvas u otro que no sean los programas mencionados en el artículo 25 del presente reglamento.

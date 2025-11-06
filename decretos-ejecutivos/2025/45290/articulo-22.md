@@ -1,0 +1,1 @@
+Artículo 22.- Análisis técnico previo a ofertar. La IN revisará toda la información contenida en el cartel, con el fin de realizar un análisis técnico y administrativo correspondiente para definir la posibilidad de presentar la oferta formal según el procedimiento establecido para este fin.

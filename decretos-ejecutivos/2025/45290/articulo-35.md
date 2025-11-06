@@ -1,0 +1,1 @@
+Artículo 35.- Responsabilidad. El material presentado como Artes Final no será manipulado por los diseñadores de la Unidad de Arte, Diseño e Impresión Digital, por lo que, si existiera alguna inconsistencia de diseño o aspectos técnicos durante el proceso de impresión, será responsabilidad de la persona que diseñó y diagramó originalmente el trabajo.

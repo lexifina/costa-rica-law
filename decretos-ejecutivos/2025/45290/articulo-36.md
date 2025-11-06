@@ -1,0 +1,1 @@
+Artículo 36.- Otras especificaciones técnicas. Para conocer con detalle las especificaciones técnicas que debe cumplir un arte final se debe contactar a la Unidad de Arte, Diseño e Impresión Digital de la Imprenta Nacional.

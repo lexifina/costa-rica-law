@@ -1,0 +1,1 @@
+Artículo 9.- Análisis de la capacidad de producción. Conforme a cada solicitud de cotización la IN analizará si cuenta con la capacidad de producción en lo que se refiere a: materiales, cantidades, tipos de acabados y tiempos de entrega de los diferentes productos que solicite el cliente.
