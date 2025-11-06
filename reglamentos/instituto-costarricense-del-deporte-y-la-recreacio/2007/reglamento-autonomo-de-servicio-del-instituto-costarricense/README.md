@@ -18,3 +18,4 @@ Reglamento Autónomo de Servicio del Instituto Costarricense del Deporte y la Re
 | 3 | 2011-03-31 | Reglamento 751 (2011-03-31) |
 | 4 | 2017-06-01 | Reglamento 1016 (2017-06-01) |
 | 5 | 2025-07-16 | Reglamento 0 (2025-07-16) |
+| 6 | 2025-11-06 | Reglamento 41 (2025-11-06) |
