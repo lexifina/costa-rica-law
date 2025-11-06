@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la Junta Directiva del Consejo de Transport
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-12 | la propia norma |
+| 2 | 2025-11-06 | Decreto Ejecutivo 45353 (2025-11-06) |
