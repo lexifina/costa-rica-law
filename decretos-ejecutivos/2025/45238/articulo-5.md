@@ -1,0 +1,1 @@
+Artículo 5°.- Las instituciones que forman parte de esta Comisión deben presentar ante COENOS. en forma periódica según acuerdo, los informes sobre las afectaciones causadas por el fenómeno ENOS y cualquier otro fenómeno climático relevante.

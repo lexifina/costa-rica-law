@@ -1,0 +1,1 @@
+Artículo 13.º Las instituciones de acuerdo con el artículo 2 °, una vez publicado el presente Decreto Ejecutivo tendrán un mes de tiempo para designar sus representantes, titular y suplente. los cuales durarán en sus funciones tres años, pudiendo ser prorrogada su designación por las instituciones, de acuerdo con el desarrollo de las funciones de COENOS.

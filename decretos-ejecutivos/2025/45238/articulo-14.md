@@ -1,0 +1,1 @@
+Artículo 14.º Deróguese el Decreto Ejecutivo Nº 26300-MINAE del 17 de junio de 1997, denominado Creación Comisión Técnica Consultiva Nacional del Fenómeno ENOS, publicado en el periódico oficial La Gaceta Nº 183 del 24 de setiembre de 1997.

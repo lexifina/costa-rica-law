@@ -1,0 +1,1 @@
+Artículo 10.º Se insta a los Ministerios y demás instituciones del Estado a cooperar en el suministro la información que requiera la COENOS. para el estudio. análisis y elaboración de propuestas técnicas de producción. procesamiento. manejo y sistematización de la información referente al Fenómeno ENOS.
