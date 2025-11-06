@@ -1,0 +1,1 @@
+Artículo 20.- Es obligatorio respetar el orden numérico de llegada de los animales a los corrales para su venta en la subasta, una vez ingresados los animales, deben estar como máximo veinticuatro horas en las instalaciones, si se excede este tiempo se les debe brindar alimentación.

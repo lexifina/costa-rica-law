@@ -1,0 +1,5 @@
+CAPÍTULO II
+Del otorgamiento del Certificado Veterinario de Operación para el funcionamiento de
+las subastas
+Artículo 4.- Toda persona física o jurídica interesada en obtener el Certificado Veterinario de Operación para establecer una subasta ganadera, además de los requisitos dispuestos en el artículo 7 del Reglamento General para el Otorgamiento del Certificado Veterinario de Operación, Decreto Ejecutivo N° 34859-MAG, y en los artículos 1 y 6 del Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales, Decreto Ejecutivo N° 39887-S-MINAE, deberá contar con un Médico Veterinario Oficializado por el SENASA contratado mediante los entes contratantes a los cuales SENASA les haya otorgado dicha condición.
+En cualquier momento, después de emitido el Certificado Veterinario de Operación, el SENASA valorará, por medio de una inspección, el diseño de las instalaciones y procesos que se desarrollen en las mismas, para determinar que éstas cumplan con las directrices o normativas sanitarias, manejo adecuado del ganado, bienestar animal y prevención y control de enfermedades zoonóticas. En caso de incumplimiento el CVO puede ser cancelado.

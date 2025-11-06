@@ -1,0 +1,1 @@
+Artículo 32.- Los propietarios de la subasta, organizadores, empleados y funcionarios de las instancias públicas, deberán velar por el cumplimiento y acatamiento de las disposiciones establecidas en el presente Reglamento.

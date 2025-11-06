@@ -1,0 +1,1 @@
+Artículo 17.- A petición del vendedor y bajo su responsabilidad, al momento de subastarse los animales, se podrá informar al público de aquellas características o condiciones que a su juicio pudieran dar como resultado un mejor precio de sus animales.

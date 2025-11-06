@@ -1,0 +1,3 @@
+Artículo 8.- El comprador deberá pagar a la subasta el valor del semoviente subastado y la subasta al vendedor a través de alguno de los mecanismos legales de pago.
+Si se presenta alguna diferencia de criterio en cuanto al precio de los animales subastados, se deberá utilizar el registro digital para resolver la controversia.
+Los encargados y el personal de las subastas deberán colaborar en la prevención y represión del delito de legitimación de capitales, y de las acciones que puedan servir para financiar actividades y organizaciones terroristas, conforme lo establece la Ley N° 7786, Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso No Autorizado, actividades Conexas, legitimación de capitales y financiamiento al terrorismo.
