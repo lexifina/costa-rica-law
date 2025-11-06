@@ -1,0 +1,1 @@
+Artículo 27.- DE LA FISCALIZACIÓN. La Administración Municipal mediante la Oficina asignada por la Administración Municipal, deberá velar por el ajuste y cumplimiento de las disposiciones contenidas en el presente Reglamento; e informar a la Alcaldía el incumplimiento de las cláusulas de este Reglamento.

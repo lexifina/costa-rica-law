@@ -1,0 +1,2 @@
+CAPÍTULO II.-ÁMBITO DE APLICACIÓN EXCLUSIVO PARA LOS SALONES COMUNALES
+Artículo 22.- ACCESO A LAS INSTALACIONES. La Organización que administra el Salón Comunal deberá garantizar a la comunidad el acceso al uso y disposición de las instalaciones comunales que recibe, sin distinción de ningún tipo. Sin embargo, podrá hacer uso de su derecho de admisión, en caso de presentarse personas bajo los efectos del alcohol o sustancias ilícitas, o llevando a cabo acciones que puedan contravenir la seguridad y el orden público.

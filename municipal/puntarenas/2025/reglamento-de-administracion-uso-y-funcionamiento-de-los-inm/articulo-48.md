@@ -1,0 +1,1 @@
+Artículo 48.- SOBRE EL CUIDADO DE LAS PERSONAS MENORES DE EDAD. Las personas menores de edad podrán permanecer en los parques y zonas verdes siempre al cuidado de una persona adulta, quien será la persona responsable de la conducta de la persona menor y del correcto uso que este haga de los juegos disponibles.
