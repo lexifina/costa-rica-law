@@ -1,3 +1,0 @@
-CAPÍTULO II
-Tecnología de la Información
-Artículo 10°—Tecnologías. Los recursos requeridos para el ejercicio de la actividad podrán ser suministrados por el (la) teletrabajador (a), siempre que satisfagan las exigencias propias de las tareas asignadas y se ajusten a los lineamientos establecidos por la Dirección de Informática del MOPT. También, puede ser suministrado por el MOPT, de acuerdo a la disponibilidad presupuestaria. Al cese del contrato en el primer supuesto, la citada Dirección eliminará cualquier restricción establecida en su equipo de cómputo o líneas de comunicación; mientras en el segundo caso, deberá restituir el equipo institucional.

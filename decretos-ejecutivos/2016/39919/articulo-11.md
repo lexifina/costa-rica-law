@@ -1,1 +1,0 @@
-Artículo 11°—De la Adenda. Las características, condiciones y requisitos específicos del puesto del (la) teletrabajador (a) quedarán estipuladas en la Adenda al contrato laboral que se incluirá para cada teletrabajador (a).

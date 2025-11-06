@@ -1,1 +1,0 @@
-Artículo 6°—Cambio de modalidad de contrato laboral. Cuando las condiciones que dieron lugar a la contratación bajo la modalidad de teletrabajo concluyan, el (la) funcionario (a) prestará sus servicios al MOPT, conforme a las reglas del contrato laboral regular, aplicables a los demás funcionarios del MOPT.
