@@ -16,3 +16,4 @@ Manual de Procedimientos para la Resolución de Visados y Certificaciones de Pla
 | 1 | 2009-07-13 | la propia norma |
 | 2 | 2011-09-19 | Resolución 4 (2011-09-19) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2025-11-06 | Decreto Ejecutivo 45745 (2025-11-06) |

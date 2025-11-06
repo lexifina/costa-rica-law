@@ -12,36 +12,13 @@ VI. Contenido
 6.2.7 Realizar estudios registrales y catastrales que contribuyan a la actualización de los registros.
 6.2.8 Elaborar y mantener actualizado el archivo de la tenencia de tierra, dentro de las Áreas Silvestres Protegidas, administradas por el (SINAC).
 6.3 Los procedimientos para la tramitación de visados y certificaciones serán:
-6.3.1 De los requisitos.
-6.3.1.1 Para la tramitación de solicitudes de visado el interesado deberá aportar:
-- Solicitud escrita que incluya: nombre completo del solicitante, firma, número de cédula de identidad y número telefónico donde pueda ser localizado; lugar o medio para recibir notificaciones.
-- Original de la minuta de calificación de la Dirección de Catastro Nacional, en la que se indique la solicitud del visado del SINAC – MINAET.
-- Copia del plano con el sello de recibido de Catastro Nacional donde se consigne el número de documento de presentación.
-- DOS copias del plano debidamente firmadas por el profesional responsable, y que tengan incluidas las correcciones indicadas por el Catastro Nacional.
-- Visado previo de otras instituciones cuando así se requiera.
-- Documentos probatorios de posesión, de tratarse de planos para tramitar una Información Posesoria.
-- Si por algún motivo externo a esta oficina, el plano debe ser sellado nuevamente (visado), se deberán aportar las copias selladas anteriormente para su anulación.
-(Nota: Mediante resolución R-SINAC-CONAC-04-2012 del 19 de setiembre de 2011, el Consejo Nacional de Áreas de Conservación acordó interpretar auténticamente el punto 6.3.1.1) anterior de la siguiente manera: "...6.3.1.1 Para la tramitación de solicitudes de visado el interesado deberá aportar: …
-- Documentos probatorios de posesión, de tratarse de planos para tramitar una Información Posesoria, los siguientes:
-Ο Declaración jurada del solicitante que claramente indique:
-1. Identificación del notario ante quien se realiza la declaración.
-2. Nombre y calidades del declarante y poseedor.
-3. Apercibimiento legal de que en caso de incurrir en perjurio o falso testimonio será penado de conformidad con la ley.
-4. Ubicación de la propiedad de conformidad en la hoja donde corresponda, con la indicación de las coordenadas.
-5. Tamaño en metros cuadrados de la propiedad.
-6. Descripción detallada de la cadena posesoria anterior a la creación del ASP.
-7. Manifestación expresa de haber poseído el área con anterioridad a la creación del ASP y la cantidad de años.
-8. Manifestación expresa de haber realizado actos de posesión compatibles con la naturaleza del área o con el medio ambiente.
-9. Mención de los colindantes y que no existen problemas de linderos con ellos.
-10. Indicación de tres testigos que en su momento darán fe de los hechos declarados ante la jurisdicción agraria correspondiente, una vez que inicie el proceso de información posesoria...". Asimismo se indica que el Consejo Nacional de Áreas de Conservación aclara que con la acción de solicitar los documentos aludidos como prueba de la posesión, tratándose de visado de planos para información posesoria, no está sustituyendo ni ejerciendo competencias propias de los órganos jurisdiccionales, en el en encargo de valorar la posesión en el contexto de un procedimiento no contencioso de diligencias de información posesoria, de conformidad con la normativa vigente.)
-6.3.1.2 Para la tramitación de solicitudes de certificación el interesado deberá aportar:
-- Solicitud escrita que incluya: nombre completo del solicitante, firma, número de cédula de identidad y número telefónico donde pueda ser localizado; número de plano, nombre completo del propietario, finalidad de la solicitud.
-- Plano original o copia certificada extendida por el Catastro Nacional o por Notario Público (copia fiel y exacta, timbres de Ley en papel de seguridad, según la regulaciones del Código Notarial) y una fotocopia legible del mismo del tamaño real al plano original, por lo tanto no se aceptan reducciones o fotocopias parciales del plano.
-- Timbres de Ley al momento de presentar la solicitud.
-6.3.2 De la revisión de los requisitos y recepción de la solicitud.
-6.3.2.1 Toda solicitud se tramitará oficialmente de acuerdo con el principio de “primero en tiempo, primero en derecho”.
-6.3.2.2 A efectos de recibir la solicitud, el funcionario público quien recibe procederá a anotar nombre completo, área y número de documento de Catastro, en el registro de “Control de Entrega” (SII-001), asignándole un número consecutivo de registro.
-6.3.2.3 Una vez realizado lo anterior, se procederá a revisar los requisitos, debiendo toda solicitud cumplir con los mismos, si esta cumple con ellos el funcionario encargado, procederá a elaborar la boleta de “Comprobante de Recibo”; (SII-002). Si faltara algún requisito o si se deben complementar los mismos, se concederá un plazo improrrogable de 10 días hábiles para tal efecto, plazo en el cual quedará suspendido su trámite.
+6.3.1 De los requisitos. (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.1.1 Para la tramitación de solicitudes de visado el interesado deberá aportar: (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.1.2 Para la tramitación de solicitudes de certificación el interesado deberá aportar: (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.2 . De la revisión de los requisitos y recepción de la solicitud.
+6.3.2.1 Toda solicitud se tramitará oficialmente de acuerdo con el principio de "primero en tiempo, primero en derecho".
+6.3.2.2 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.2.3 Una vez realizado lo anterior, se procederá a revisar los requisitos, debiendo toda solicitud cumplir con los mismos, si esta cumple con ellos el funcionario encargado, procederá a elaborar la boleta de "Comprobante de Recibo"; (SII-002). Si faltara algún requisito o si se deben complementar los mismos, se concederá un plazo improrrogable de 10 días hábiles para tal efecto, plazo en el cual quedará suspendido su trámite.
 6.3.2.4 De no presentarse la documentación e información solicitada dentro del plazo otorgado para tal efecto, o si la misma se presenta incompleta o no se ajusta a lo requerido, se archivará la gestión sin trámite alguno, de conformidad con los artículos 285 y 340 de la Ley General de la Administración Pública.
 6.3.2.5 No se aceptarán fotocopias de planos diferentes a la escala original, aún estando certificadas por el Catastro Nacional, excepto las fotocopias de microfilm.
 6.3.3 Del estudio técnico de los visados.
@@ -52,9 +29,9 @@ VI. Contenido
 - Se considerará indispensable la total colaboración del interesado para permitir el acceso al predio a inspeccionar, así como también el aporte de cualquier documentación extra que se solicite.
 6.3.3.5 Si el estudio técnico determina que el inmueble se ubica FUERA DE LOS LIMITES DE LAS AREAS SILVESTRES, se le insertará a los planos un sello donde se indicará tal situación. (SII-005), Dicho sello, debe quedar preferiblemente al frente del plano. En caso de no ser posible, se insertará al frente un sello que indique que el visado está al dorso.
 6.3.3.6 Si el estudio técnico determina que el inmueble se ubica DENTRO DE LOS LIMITES DE UN PARQUE NACIONAL, UNA RESERVA BIOLOGICA, UNA RESERVA FORESTAL, UNA ZONA PROTECTORA O UN HUMEDAL, se le insertará a los planos un sello donde se indicará tal situación (SII-006). En los casos en que el estudio técnico determine que el inmueble se ubica DENTRO DE LOS LIMITES DE UN REFUGIO NACIONAL DE VIDA SILVESTRE, se le insertará a los planos un sello donde se indicará tal situación (SII-007)
-6.3.3.7. En los casos de visado de planos cuya localización indique que se ubican dentro de alguna Área Silvestre Protegida administrada por MINAET y a su vez, dentro de la Zona Marítimo Terrestre, y que no correspondan a fincas debidamente inscritas por particulares, se tramitarán sólo para efectos de “Permiso de Uso”. Para estos casos se le insertará a los planos un sello donde se indicará tal situación (SII-008), debiendo indicarse en el plano que es un terreno en Administración del Ministerio de Ambiente y Energía (*), cédula jurídica número 2-100-042014 y Para Permiso de Uso. Deberá indicar amarre a dos mojones mínimo del Instituto Geográfico Nacional (I.G.N.) y el respectivo visado de esta institución. En ningún caso el visado de estos planos no implica el otorgamiento del Permiso de Uso, para lo cual el interesado deberá realizar el trámite correspondiente.
+6.3.3.7.En los casos de visado de planos cuya localización indique que se ubican dentro de alguna Área Silvestre Protegida administrada por MINAET y a su vez, dentro de la Zona Marítimo Terrestre, y que no correspondan a fincas debidamente inscritas por particulares, se tramitarán sólo para efectos de "Permiso de Uso". Para estos casos se le insertará a los planos un sello donde se indicará tal situación (SII-008), debiendo indicarse en el plano que es un terreno en Administración del Ministerio de Ambiente y Energía (*), cédula jurídica número 2-100-042014 y Para Permiso de Uso. Deberá indicar amarre a dos mojones mínimo del Instituto Geográfico Nacional (I.G.N.) y el respectivo visado de esta institución. En ningún caso el visado de estos planos no implica el otorgamiento del Permiso de Uso, para lo cual el interesado deberá realizar el trámite correspondiente.
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-6.3.3.8. Para cada uno de los planos visados, se elaborará una “Ficha de Información” (SII-009) y luego se localizará en el mapa de Tenencia de la Tierra, que para cada Área Silvestre Protegida tendrá el Área de Conservación, con su número de parcela, el cual corresponde a una identificación que llevará orden ascendente e individual para cada Área Silvestre Protegida.
+6.3.3.8. Para cada uno de los planos visados, se elaborará una "Ficha de Información" (SII-009) y luego se localizará en el mapa de Tenencia de la Tierra, que para cada Área Silvestre Protegida tendrá el Área de Conservación, con su número de parcela, el cual corresponde a una identificación que llevará orden ascendente e individual para cada Área Silvestre Protegida.
 6.3.3.9. Cada uno de los casos de planos que se vayan a visar se incluirá en un Registro Diario de Visados (SII-010), que para esos efectos mantendrá el técnico calificador. En este registro deberán constar los datos contenidos en el plano y mencionar los estudios realizados para su aprobación.
 6.3.3.10. Cuando la Dirección del Catastro Nacional solicite otros visados además del visado de MINAET, el interesado deberá obtenerlos previamente.
 6.3.3.11. Para aquellas solicitudes de visado que deban repetirse, el interesado deberá aportar las copias con el visado anterior al el momento que solicita el resello, para su anulación, o en su defecto aportar una nota en la que testifique la destrucción de dichas copias.
@@ -63,16 +40,15 @@ VI. Contenido
 6.3.4 Del estudio técnico de las certificaciones.
 6.3.4.1. En el caso de certificaciones, el estudio técnico consistirá básicamente, en confrontar la ubicación geográfica consignada en el plano catastrado aportado contra el mapa oficial de los límites de las Áreas Silvestres Protegidas contenidos en los archivos, que para estos efectos mantendrá el Área de Conservación, para determinar si se encuentra DENTRO O FUERA DE LOS LIMITES DE LAS AREAS SILVESTRES PROTEGIDAS legalmente establecidas.
 6.3.4.2. Cada uno de los casos de planos que se vayan a certificar se incluirá en un Registro Diario (SII-011), que para esos efectos mantendrá el técnico calificador.
-6.3.4.3. Si el estudio técnico determina que el inmueble se ubica DENTRO DE LOS LIMITES DE UNA AREA SILVESTRE PROTEGIDA, se le anotará a la copia del plano tal situación, se elaborará una “ Ficha de Información “ (SII-009) y luego se ubicará en un mapa de Tenencia de la Tierra que para cada Área Silvestre Protegida mantendrá el Área de Conservación, con su número de parcela. Este número corresponde a una identificación que llevará orden ascendente e individual para cada área silvestre. Finalmente se elaborará la certificación correspondiente. (SII-012).
+6.3.4.3. Si el estudio técnico determina que el inmueble se ubica DENTRO DE LOS LIMITES DE UNA AREA SILVESTRE PROTEGIDA, se le anotará a la copia del plano tal situación, se elaborará una " Ficha de Información " (SII-009) y luego se ubicará en un mapa de Tenencia de la Tierra que para cada Área Silvestre Protegida mantendrá el Área de Conservación, con su número de parcela. Este número corresponde a una identificación que llevará orden ascendente e individual para cada área silvestre. Finalmente se elaborará la certificación correspondiente. (SII-012).
 6.3.4.4 Si el estudio técnico determina que el inmueble se ubica FUERA DE LOS LIMITES DE LAS AREAS SILVESTRES PROTEGIDAS, se le anotará a la copia del plano tal situación. Finalmente se elaborará la certificación correspondiente. (SII-013).
-6.3.5 De los plazos.
-6.3.5.1 Tanto los trámites de visados como de las certificaciones, a partir de la fecha de recepción de la solicitud, si no hubiere prevención alguna para el administrado, o que se no se requiera de otro análisis adicional, el Área de Conservación tendrá un plazo de 10 días hábiles, de acuerdo con el inciso c-) del artículo 262 de la Ley General de la Administración Pública, para la resolución del mismo.
-6.3.5.2 Si por el contrario, la solicitud requiere de algún estudio complementario como inspecciones de campo, consultas a diferentes instancias, u otras, el Área de Conservación tendrá el plazo de 30 días hábiles desde su fecha de presentación, de acuerdo con el artículo 331 de la Ley General de la Administración Pública, para la resolución del mismo.
-El Área de Conservación deberá resolver mediante resolución administrativa debidamente fundamentada; en la misma resolución deberá indicar los plazos y recursos procedentes. Dicha resolución deberá ser notificada a la parte interesada al lugar o medio señalado, y dejar constancia de lo actuado en el expediente. Para todos los casos se regirá por la Ley de Notificaciones Nº 8667 publicada en La Gaceta Nº 20 del 29 de enero del 2009.
-6.3.5.3 Los planos que se aporten para resello, cumplirán con los mismos plazos mencionados.
-6.3.6 De la vigencia.
-6.3.6.1 Todo visado y certificación otorgado por el Área de Conservación tendrá una vigencia máxima de tres meses calendario a partir de la fecha de emisión.
-6.3.6.2 Todo visado y certificación emitido por el Área de Conservación que no fuere retirado por el interesado, será anulado tres meses después de la fecha de emisión, sin responsabilidad para la Institución, procediéndose a su archivo. En caso de que el interesado se presente para su retiro pasados los tres meses deberá gestionar el trámite por primera vez.
+6.3.5 De los plazos. (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.5.1 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.5.2 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.5.3 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.6 D e la vigencia. (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.6.1 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
+6.3.6.2 (Derogado por el artículo 19 del Reglamento para la emisión de visados y/o certificaciones de planos del SINAC, aprobado mediante decreto ejecutivo N° 45745 del 6 de noviembre del 2025)
 6.3.7 De la firma.
 6.3.7.1. Tanto en el caso de los visados como de las certificaciones, los firmará el Director o Directora del Área de Conservación correspondiente, previa firma del funcionario autorizado que realizó el estudio técnico.
 6.3.8 Del archivo de planos.
@@ -101,7 +77,7 @@ ___CERTIFICACION ___ORIGINAL
 ___COPIA CERTIFICADA
 NÚMERO DE SOLICITUD | NÚMERO DE PLANO O DOCUMENTO
 |
-TOTAL DE SOLICITUDES………… RECIBE …………………………..
+TOTAL DE SOLICITUDES.... RECIBE ............
 Notificaciones al tel. ________________con__________________
 Observaciones__________________________________________
 ______________________________________________________
@@ -152,7 +128,7 @@ TEXTO DE VISADO FUERA DE A.S.P.
 MINISTERIO DEL AMBIENTE Y ENERGÍA (*)
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
-VISADO Nº ………….….. 200 ………....Fecha…………
+VISADO Nº ........ 200 .......Fecha....
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica FUERA DE AREA SILVESTRE PROTEGIDA administrada por este Ministerio y legalmente establecida. Se exceptúa de lo anterior el artículo 33 de la Ley Forestal 7575 del 16-04-96. Se autoriza para efectos catastrales la inscripción de este plano.---
 .....................................................................................................
 Firma responsable estudio Nombre y Firma autorizada
@@ -161,7 +137,7 @@ TEXTO DE VISADO DENTRO DE A.S.P.
 MINISTERIO DEL AMBIENTE Y ENERGÍA(*)
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
-VISADO Nº ................... 200 .............Fecha…………
+VISADO Nº ................... 200 .............Fecha....
 Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO de...................................................................... según Decreto Ejecutivo o Ley Nº......................................................... del ......................... lo dispuesto en la Ley Forestal Nº 7575 del 16 de abril de 1996 y legislación conexa. Se autoriza para efectos catastrales la inscripción de este plano.
 ....................................................................................................
 Firma calificador Nombre y Firma autorizada
@@ -171,7 +147,7 @@ MINISTERIO DE AMBIENTE Y ENERGÍA (*)
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
 VISADO Nº ................... 200 .............
-Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE…....................................……………………………..según Decreto Ejecutivo o Ley Nº..............................................del....................lo dispuesto en la Ley Forestal Nº 7575 del 16 de abril de 1996, la Ley de Conservación de Vida Silvestre 7317 del 07 de diciembre de 1992 y legislación conexa. Se autoriza para efectos catastrales la inscripción de este plano.
+Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE..................................................según Decreto Ejecutivo o Ley Nº..............................................del....................lo dispuesto en la Ley Forestal Nº 7575 del 16 de abril de 1996, la Ley de Conservación de Vida Silvestre 7317 del 07 de diciembre de 1992 y legislación conexa. Se autoriza para efectos catastrales la inscripción de este plano.
 ....................................................................................................
 Firma calificador Nombre y Firma autorizada
 Instrucción de trabajo SII-008
@@ -180,8 +156,8 @@ SILVESTRE Y DENTRO DE ZONA MARÍTIMO TERRESTRE
 MINISTERIO DE AMBIENTE Y ENERGÍA(*)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-VISADO Nº ................... 200 .............Fecha……….
-Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE………………………..
+VISADO Nº ................... 200 .............Fecha....
+Con base en la ubicación que aparece en este plano, el inmueble que describe se ubica DENTRO DEL REFUGIO NACIONAL DE FAUNA SILVESTRE...........
 ................................................................................................... según Decreto Ejecutivo o Ley Nº........................................del............................ ESTE VISADO NO IMPLICA AUTORIZACION ALGUNA PARA TRAMITES DE INFORMACIONES POSESORIAS y corresponderá al MINISTERIO DE AMBIENTE Y ENERGIA (*)otorgar el respectivo permiso de uso. Se autoriza para efectos catastrales la inscripción de este plano.
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
 ....................................................................................................
@@ -246,22 +222,22 @@ REGISTRO DIARIO DE CERTIFICACIONES
 Nº CERTI-FICA- CION | Nº REGIS-TRO | AREA SILVES- TRE PROTE- GIDA | PRO- PIE- TARIO | Nº CATAS-TRO | AREA DE LA FINCA | FIRMA CALIFI-CADOR
 Instrucción de trabajo SII-012
 TEXTO DE CERTIFICACIONES DENTRO DE A.S.P.
-SINAC-D-AC-C-………- 20….
+SINAC-D-AC-C-...- 20..
 (Nombre y Puesto de autorizado)
 CERTIFICA QUE:
-Efectuado el estudio en las hojas cartográficas respectivas del mapa básico de Costa Rica escala 1:50.000, se ha determinado con base en la ubicación consignada en el plano catastrado número ……………. a nombre de …………………………………………., que este describe un inmueble que se ubica DENTRO DE …….………………………………………., creada según Decreto Ejecutivo ……………... Lo anterior de conformidad con la Ley Forestal 7575 del 16 de abril de 1996 y su reglamento Decreto Ejecutivo Nº 25721-MINAE del 23 de enero de 1997.
-Se extiende a solicitud del interesado, a las .…. horas del día ………. del mes de …….… del año DOS MIL …….. para efectos de ………….
+Efectuado el estudio en las hojas cartográficas respectivas del mapa básico de Costa Rica escala 1:50.000, se ha determinado con base en la ubicación consignada en el plano catastrado número ...... a nombre de ................., que este describe un inmueble que se ubica DENTRO DE ..................., creada según Decreto Ejecutivo ........ Lo anterior de conformidad con la Ley Forestal 7575 del 16 de abril de 1996 y su reglamento Decreto Ejecutivo Nº 25721-MINAE del 23 de enero de 1997.
+Se extiende a solicitud del interesado, a las ... horas del día .... del mes de .... del año DOS MIL .... para efectos de .....
 Se agregan y cancelan los timbres de ley.---
 -------------------------------------
 FIRMA AUTRIZADA
 Instrucción de trabajo SII-013
 TEXTO DE CERTIFICACIONES FUERA DE A.S.P.
-SINAC-D-AC-C-………- 20….
+SINAC-D-AC-C-...- 20..
 (Nombre y Puesto de autorizado)
 CERTIFICA QUE:
-Efectuado el estudio en las hojas cartográficas respectivas del mapa básico de Costa Rica escala 1:50.000, se ha determinado con base en la ubicación consignada en el plano catastrado número ………………... a nombre de ………………………………………………………, que este describe un inmueble que se ubica FUERA DE CUALQUIER AREA SILVESTRE PROTEGIDA SEA CUAL SEA SU CATEGORIA DE MANEJO ADMINISTRADA POR EL SISTEMA NACIONAL DE AREAS DE CONSERVACION.---
-Asimismo, certifico que para la eliminación de árboles se debe contar con el respectivo permiso (art. 27 Ley Forestal ); se debe respetar las Áreas de Protección (art. 33 y 34 de la Ley Forestal ); recomendándose además prácticas encaminadas a favorecer el equilibrio óptimo de los recursos naturales y el aprovechamiento sostenible del bosque.—
-Se extiende a solicitud del interesado, a las .…. horas del día …… del mes de ...………. del año DOS MIL ….….. para efectos de ………….
+Efectuado el estudio en las hojas cartográficas respectivas del mapa básico de Costa Rica escala 1:50.000, se ha determinado con base en la ubicación consignada en el plano catastrado número ......... a nombre de ....................., que este describe un inmueble que se ubica FUERA DE CUALQUIER AREA SILVESTRE PROTEGIDA SEA CUAL SEA SU CATEGORIA DE MANEJO ADMINISTRADA POR EL SISTEMA NACIONAL DE AREAS DE CONSERVACION.---
+Asimismo, certifico que para la eliminación de árboles se debe contar con el respectivo permiso (art. 27 Ley Forestal ); se debe respetar las Áreas de Protección (art. 33 y 34 de la Ley Forestal ); recomendándose además prácticas encaminadas a favorecer el equilibrio óptimo de los recursos naturales y el aprovechamiento sostenible del bosque.-
+Se extiende a solicitud del interesado, a las ... horas del día .. del mes de ....... del año DOS MIL ..... para efectos de .....
 Se agregan y cancelan los timbres de ley.---
 -------------------------------
 FIRMA AUTRIZADA
