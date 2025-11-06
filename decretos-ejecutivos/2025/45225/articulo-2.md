@@ -1,0 +1,1 @@
+Artículo 2.- Deróguense los artículos 31, 32, 33, 34, 35, 36, 37, 38, 39, 40, 41, 42, 43, 44, 45 y 46 del Decreto Ejecutivo Nº 41383-S del 17 de Setiembre del 2018 "Reglamento de Organización y Funcionamiento de la Secretaría Técnica de Salud Mental", publicado en el Alcance Nº 193 a La Gaceta Nº 206 del 7 de noviembre del 2018.
