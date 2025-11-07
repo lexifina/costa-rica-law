@@ -14,3 +14,4 @@ Criterios objetivos de selección y criterios de riesgo para la ejecución de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-23 | la propia norma |
+| 2 | 2025-11-07 | Resolución 5 (2025-11-07) |
