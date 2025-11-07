@@ -1,6 +1,6 @@
-Artículo 18.Considerando que:
+Artículo 18: Considerando que:
 1) La Administración no podrá fragmentar sus operaciones respecto a necesidades previsibles con el propósito de evadir el procedimiento de contratación que corresponde.
 2) Que todas aquellas contrataciones que pudieran reportar economías de escala deberán efectuarse en forma centralizada, para lo cual deberá existir la planificación de las compras respectiva, si así resulta más conveniente para el interés público.
 3) La fragmentación se reputa ilícita cuando, contándose en un mismo momento dentro del presupuesto ordinario con los recursos necesarios y habiéndose planificado las necesidades administrativas concretas, se realiza más de una contratación para el mismo objeto, con la finalidad de evadir un procedimiento más complejo.
 Se acuerda:
-El funcionario o funcionarios encargados de gestionar el inicio de los procedimientos de contratación y que incumplan con la fecha límite establecida por el Sub- Proceso de Adquisición de Bienes y Servicios para realizar las agrupaciones o para consolidar los requerimientos de consumo y así para aprovechar la economía de escala, se harán acreedores de la sanción prevista en el artículo 125, inciso w) de la Ley General de Contratación Pública.
+El funcionario o funcionarios encargados de gestionar el inicio de los procedimientos de contratación y que incumplan con las fechas límites establecidas por el Subproceso de Adquisición de Bienes y Servicios para realizar las agrupaciones o para consolidar los requerimientos de consumo y así para aprovechar la economía de escala, se harán acreedores de la sanción prevista en el artículo 125, inciso w) de la Ley General de Contratación Pública.

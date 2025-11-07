@@ -15,3 +15,4 @@ Distribución de competencias en contratación administrativa para el Instituto 
 | --- | --- | --- |
 | 1 | 2023-03-20 | la propia norma |
 | 2 | 2023-03-29 | Acuerdo 0 (2023-03-29) |
+| 3 | 2025-11-07 | Acuerdo 3 (2025-11-07) |

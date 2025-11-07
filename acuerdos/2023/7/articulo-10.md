@@ -1,1 +1,1 @@
-Artículo 10. Se delega en la Jefatura del Sub-Proceso de Adquisición de Bienes y Servicios la firma de los actos de declaratoria de infructuosidad de todos los procedimientos de compras, donde la razón de dicha declaratoria sea porque no se recibieron ofertas dentro del proceso.
+Artículo 10: Se delega en la Jefatura del Sub Proceso de Adquisición de Bienes y Servicios la firma de los actos de declaratoria de infructuosidad de todos los procedimientos de compras, donde la razón de dicha declaratoria sea porque no se recibieron ofertas dentro del proceso.
