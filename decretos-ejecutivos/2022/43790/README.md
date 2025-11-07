@@ -18,3 +18,4 @@ Reglamentación de lista de bienes que conforman la canasta básica tributaria p
 | 3 | 2023-06-08 | Decreto Ejecutivo 44067 (2023-06-08) |
 | 4 | 2023-11-07 | Resolución 45 (2023-11-07) |
 | 5 | 2024-11-07 | Resolución 55 (2024-11-07) |
+| 6 | 2025-11-07 | Resolución 61 (2025-11-07) |
