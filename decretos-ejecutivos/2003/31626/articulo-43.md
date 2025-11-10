@@ -1,1 +1,1 @@
-Artículo 43.—Queda prohibida la compra y la venta de animales de compañía, que no se sujete a las disposiciones de este reglamento, en las vías y espacios libres públicos o privados de concurrencia pública, así como en los establecimientos que manipulan y expenden alimentos de consumo humano emplazamientos no autorizados.
+Artículo 43.- (Derogado por el artículo 19 del Reglamento para regular los establecimientos de crianza y comercialización de perros y gatos, aprobado mediante decreto ejecutivo N° 45344 del 10 de noviembre de 2025)

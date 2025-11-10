@@ -15,3 +15,4 @@ Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañí
 | --- | --- | --- |
 | 1 | 2004-02-06 | la propia norma |
 | 2 | 2011-02-24 | Decreto Ejecutivo 36476 (2011-02-24) |
+| 3 | 2025-11-10 | Decreto Ejecutivo 45344 (2025-11-10) |
