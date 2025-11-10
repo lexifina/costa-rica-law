@@ -1,1 +1,0 @@
-Artículo 16.—El Municipio proveerá al inquilino de un carné de identificación, que contará en su fotografía. En tal documento se indicará: Nombre y apellidos, estado civil, nombre de su esposa, o compañera, número de cédula de identidad y número y clase del local. Será firmado por el Ejecutivo Municipal, sin cuya firma y sello no tendrá valor.

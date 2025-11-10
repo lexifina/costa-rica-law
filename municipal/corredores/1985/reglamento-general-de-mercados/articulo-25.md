@@ -1,1 +1,0 @@
-Artículo 25.—El alquiler será satisfecho, el primer día hábil de cada mes, en la Tesorería del Municipio. Si se cancela luego de dicha fecha, el inquilino reconocerá una multa del ... por ciento. En todo caso, la falta de pago de una mensualidad dará derecho para gestionar el desahucio.

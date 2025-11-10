@@ -1,1 +1,0 @@
-Artículo 12.—Solo será reconocido como inquilino permanente aquel que resulte favorecido por una adjudicación, que haya firmado el contrato respectivo y se encuentre al día en el pago del valor del arrendamiento.

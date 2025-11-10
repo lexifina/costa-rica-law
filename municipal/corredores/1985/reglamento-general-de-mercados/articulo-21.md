@@ -1,1 +1,0 @@
-Artículo 21.—Ningún inquilino podrá vender o expender artículo o mercancía diferente a aquella para la cual le fue adjudicado o concedido" el puesto. La infracción autorizará al Municipio) para disponer la cancelación administrativa del Contrato.

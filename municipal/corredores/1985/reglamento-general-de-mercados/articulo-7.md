@@ -1,1 +1,0 @@
-Artículo 7°—A excepción de los casos expresamente señalados por este Reglamento ninguna persona podrá permanecer dentro del mercado luego de la hora de clausura salvo el empleado del mismo, cuadrilla de aseo o personal de vigilancia.

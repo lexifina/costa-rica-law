@@ -1,1 +1,0 @@
-Artículo 13.—El puesto transitorio será permitido en el caso que la Municipalidad por razón de conveniencia y de mejoramiento en el servicio, acordare su funcionamiento. El pago del derecho de piso, será diario y se hará mediante la cancelación del respectivo recibo ante la Tesorería de la Corporación.

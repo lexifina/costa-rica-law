@@ -1,2 +1,0 @@
-Transitorio 2°—La vigencia de contrato de alquileres relativos a los locales que operan en el mercado provisional de Ciudad Neily, cesará al entrar en operación el nuevo edificio destinado también a mercado. Los locales se sacarán a licitación pero, en igualdad de condiciones, se dará preferencia a la persona que demuestre estar ocupando local en el viejo mercado, al amparo de contrato debidamente firmado y depositado en el municipio.
-(Así adicionado y publicado en La Gaceta No. 169 de 06 de setiembre de 1985).
