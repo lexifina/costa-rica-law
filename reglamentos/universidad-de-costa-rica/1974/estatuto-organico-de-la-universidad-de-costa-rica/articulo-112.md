@@ -5,16 +5,19 @@ En ausencias temporales del Director y mientras duren estas, el cargo será ejer
 (Así reformado el párrafo anterior mediante sesión N° 147 del 27 de abril del 2022)
 En caso de impedimento, que implique inhibición o recusación de la persona que ocupa la dirección de la Sede, el subdirector o la subdirectora de la Sede deberá sustituirla, y en el caso de que el impedimento recaiga sobre ambos, corresponderá al rector o a la rectora el conocimiento y resolución exclusivamente de ese asunto concreto.
 (Así adicionado el párrafo anterior mediante sesión N° 147 del 27 de abril del 2022)
-Corresponde al Director de Sede:
+Corresponde al director o a la directora de sede regional:
+(Así reformado el párrafo anterior en sesión N° 155 del 10 de noviembre de 2025)
 a) Ejecutar los acuerdos y las políticas emanadas de la Asamblea de Sede y de los órganos superiores de la Universidad.
 b) Servir de medio obligatorio de comunicación entre la Sede y las autoridades de la Universidad.
 c) Representar a la Sede en todas las actividades que favorezcan el desarrollo de la Universidad.
-ch) ch)Ejercer en la Sede las potestades de superior jerárquico inmediato de los funcionarios y su autoridad sobre los estudiantes.
+ch) Ejercer en la Sede las potestades de superior jerárquico inmediato de los funcionarios y su autoridad sobre los estudiantes.
 d) Proponer al Rector las medidas que estime necesarias para el mejor desarrollo de las actividades de la Sede.
 e) Convocar a la Asamblea de Sede y presidirla, en su ausencia presidirá el Subdirector y en ausencia de ambos, el miembro que en el acto se designe.
 f) Convocar y presidir las reuniones de Departamento de la Sede, cuando se trate de la elección del Director de Departamento y del nombramiento de personal en Régimen Académico.
 g) Nombrar al Director de Departamento escogido por la reunión de profesores y escoger al Director de Departamento de una terna presentada por los profesores del departamento, cuando éste no cuente con al menos 10 profesores en Régimen Académico.
 h) Nombrar a los coordinadores generales y a los Directores de Recintos, de una terna propuesta por la Asamblea de Sede, de conformidad con el Reglamento de la Sede respectiva.
+h bis) Nombrar y remover a la persona que desempeñe el cargo de jefatura administrativa de la sede, según las condiciones dispuestas en los artículos 95 y 96.
+(Así adicionado el inciso anterior en sesión N° 155 del 10 de noviembre de 2025)
 i) Nombrar comisiones para el estudio de asuntos determinados.
 j) Proponer al Vicerrector respectivo el nombramiento del personal administrativo y técnico que requiera la Sede.
 k) Acordar licencias, con o sin goce de salario, que no excedan de diez días hábiles, a los funcionarios de la Sede, conforme al reglamento correspondiente.
