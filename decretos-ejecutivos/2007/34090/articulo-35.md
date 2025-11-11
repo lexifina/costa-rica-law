@@ -1,2 +1,0 @@
-Artículo 35.—Los procesos de nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de personal, deberán contar con la autorización del Auditor Interno, conforme al artículo 24 de la LGCI y las disposiciones administrativas institucionales que correspondan.
-Se considerarán nulos los movimientos de personal que se ejecuten sin la autorización del Auditor Interno, además, constituirá incumplimiento de lo dispuesto en la LGCI y sometido a las causales de responsabilidad establecidas en el capítulo V de la LGCI.

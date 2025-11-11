@@ -1,1 +1,0 @@
-Artículo 90.—Si la denuncia fue presentada con el nombre, calidades y dirección para notificaciones, la Auditoría Interna deberá comunicarle el trámite dado a su gestión, sea la desestimación, atención, archivo o traslado a la administración activa u otras instancias.

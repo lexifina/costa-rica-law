@@ -1,1 +1,0 @@
-Artículo 59.—El Auditor Interno diseñará, documentará, implantará, administrará y controlará el cumplimiento de los procesos establecidos para efectuar los servicios de auditoria, los preventivos y los de apoyo; los cuales estarán definidos en el Manual de Procedimientos.

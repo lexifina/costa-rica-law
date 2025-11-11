@@ -1,1 +1,0 @@
-Artículo 88.—La Auditoría Interna analizará y trasladará a la Administración Activa las denuncias que por su naturaleza le correspondan, la que deberá atenderlas, tomar acciones correctivas e informar los resultados finales a esta unidad fiscalizadora para que ésta a su vez, comunique a los denunciantes la conclusión del trámite.

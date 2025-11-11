@@ -1,1 +1,0 @@
-Artículo 87.—Se analizará el contenido y razonabilidad de las denuncias presentadas anónimamente; si contienen elementos suficientes y prueba idónea que permita valorar los hechos en cuestión, se aceptará, sino se archivara mediante escrito que se anexará y mantendrá adjunto a la denuncia.

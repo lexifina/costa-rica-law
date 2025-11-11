@@ -1,1 +1,0 @@
-Artículo 93.—Deróguese el Reglamento para la Dirección de Auditoría Interna del Ministerio de Gobernación y Policía, emitido según Decreto Nº 20121-G, publicado en La Gaceta Nº 6, del 09 de enero de 1991 y las disposiciones legales anteriores que se opongan a las estipuladas en este reglamento.
