@@ -1,0 +1,1 @@
+Artículo 16.-Asuntos pendientes. Cuando la Presidencia del Comité levante la sesión estando en discusión algún punto, será tratado en la sesión siguiente, debiendo incluirse como primer punto del orden del día de la siguiente sesión que se programe.

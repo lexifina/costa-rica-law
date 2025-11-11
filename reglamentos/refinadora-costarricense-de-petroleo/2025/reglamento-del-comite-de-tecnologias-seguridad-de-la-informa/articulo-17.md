@@ -1,0 +1,1 @@
+Artículo 17.-Prioridad de asuntos. El Comité dará prioridad, en la tramitación de los asuntos regulares que conozca, a los asuntos en materia estratégica de tecnologías, de ciberseguridad, de seguridad de la información, e inversión tecnológica, en ese orden.

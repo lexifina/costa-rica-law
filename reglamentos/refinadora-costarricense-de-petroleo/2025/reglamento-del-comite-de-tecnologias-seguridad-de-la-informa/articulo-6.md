@@ -1,0 +1,5 @@
+Artículo 6°-Sesiones. El Comité se reunirá ordinariamente cada dos meses, o cada vez que sea convocado por la Presidencia, conforme al orden del día que se establezca.
+Las sesiones del Comité serán privadas y deberán grabarse en audio y video. De cada sesión se elaborará un acta de conformidad con lo establecido en el artículo 56 de la Ley General de la Administración Pública, Ley N° 6227.
+Podrán participar en las sesiones del Comité, personas internas y externas a la Empresa, cuando así lo disponga el órgano colegiado mediante un acuerdo y se consigne en la convocatoria de la sesión, salvo el personal del área técnica y de ciberseguridad, quienes podrán asistir a solicitud de la Secretaría Técnica y sin necesidad de acuerdo previo. Estas personas tendrán voz, pero sin voto.
+El Comité podrá declarar por unanimidad, la confidencialidad de la información que se conoce, mediante acto debidamente motivado, conforme el artículo 273 de la Ley General de la Administración Pública.
+Las personas integrantes del Comité no devengarán pago de dietas por su participación en las sesiones.

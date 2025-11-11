@@ -1,0 +1,1 @@
+Artículo 14.-Votación. Las personas integrantes del Comité deberán votar cada uno de los asuntos sometidos a su conocimiento, también podrán salvar su voto en forma razonada. La abstención, el impedimento y la recusación, se regirán conforme a las reglas para los órganos colegiados, establecidas en la Ley General de la Administración Pública.

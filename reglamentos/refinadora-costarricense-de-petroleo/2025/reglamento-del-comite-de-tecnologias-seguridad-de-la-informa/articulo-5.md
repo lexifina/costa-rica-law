@@ -1,0 +1,1 @@
+Artículo 5°-Suplencias. En caso de ausencia de la persona que ostente la Presidencia del Comité, el cargo lo asumirá la persona a cargo de la Vicepresidencia. En caso de ausencia de la persona que ocupa la Secretaría Técnica del Comité, será sustituido por quien esté reemplazando al Director (a) de Tecnología.
