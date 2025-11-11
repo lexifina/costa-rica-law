@@ -14,3 +14,4 @@ Reglamento para el combate particular y obligatorio de la plaga de los cítricos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-24 | la propia norma |
+| 2 | 2025-11-11 | Decreto Ejecutivo 45359 (2025-11-11) |
