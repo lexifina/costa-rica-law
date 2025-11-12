@@ -1,0 +1,12 @@
+Artículo 22.- Actividad de Crianza, Recuperación y/o Repoblamiento de Moluscos.
+En virtud de que las actividades de crianza, recuperación y repoblamiento, como acciones concretas en beneficio de los recursos naturales, constituyen una vía complementaria al manejo tradicional de las pesquerías, tales actividades serán reconocidas en el PSEM Bosque de Mangle en tanto exista una justificación técnica emitida por el SINAC respecto a la necesidad de desarrollar tales acciones en los sitios con planes de manejo debidamente autorizados.
+En virtud de lo anterior, las acciones de crianza y repoblamiento que desarrollen las personas beneficiarias en el marco del PSEM Bosque de Mangle deberán permitir:
+i) Sustentar la explotación de los stocks naturales de recursos bentónicos en el tiempo,
+ii) Promover el desarrollo del sector pesquero artesanal mediante el fortalecimiento de su
+actividad pesquera,
+iii) Mejorar las condiciones de vida de las comunidades costeras,
+iv) Estabilizar sus fuentes de trabajo, y
+v) contribuir al crecimiento sustentable del país.
+En virtud de lo anterior, las agrupaciones de molusqueros deberán garantizar, coordinar el traslado de reproductores y su respectiva siembra y la creación de viveros en el medio; que permitan: la reproducción, el desove y generación de semilla de moluscos para mantener las poblaciones en el tiempo. La ubicación de los reproductores, los viveros y su correspondiente creación se guiará bajo la supervisión del Gestor Biólogo y la metodología aprobada por el INCOPESCA. (VER ANEXO 5).
+La actividad de crianza y/o repoblamiento de moluscos funcionará como sitios de vivero y monitoreo para la reproducción, incluyendo: colección, separación, reubicación, registro de tallas, zonas de extracción, destino (comercialización, vivero o consumo propio), crecimiento, sobrevivencia y recolección de datos
+En caso de que, por diversas causas, el recurso autorizado experimente una alta mortalidad o una disminución significativa en su población, el SINAC podrá establecer modificaciones en las condiciones de aprovechamiento, incluyendo la imposición de una veda temporal. Asimismo, se indicarán las acciones correctivas que deberán implementarse dentro del marco del contrato PSEM en Bosque de Mangle, con el fin de reponer o mitigar los efectos de dichas interacciones. Las medidas adoptadas serán comunicadas de forma oficial y por escrito a las asociaciones involucradas y al gestor biólogo responsable.
