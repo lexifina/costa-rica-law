@@ -1,0 +1,3 @@
+ARTÍCULO 4- Se reforma el artículo 54 de la Ley 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi (Banco Hipotecario de la Vivienda), de 13 de noviembre de 1986. El texto es el siguiente:
+Artículo 54- Las familias, las personas con discapacidad, las parejas jóvenes, las personas adultas mayores sin núcleo familiar, así como las mujeres que sufren situaciones de violencia de género y necesitan cambiar su residencia para garantizar su seguridad personal y la de su familia, que reciban el subsidio y cuyos ingresos sean iguales o inferiores a seis salarios mínimos previstos en esta ley, podrán obtener, del sistema, créditos habitacionales de acuerdo con su capacidad de pago y el reglamento de este Fondo.
+( ... )
