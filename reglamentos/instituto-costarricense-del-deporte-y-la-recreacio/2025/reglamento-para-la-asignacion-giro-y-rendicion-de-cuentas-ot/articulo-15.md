@@ -1,0 +1,2 @@
+Artículo 15º Contrataciones de personal en planilla, servicios especiales y remuneraciones
+- Los sujetos públicos deben de aplicar los procedimientos o principios en materia de contratación de personal; deberán regirse por lo establecido por el Código de Trabajo, Ley de administración y la Ley Marco de empleado público y velar por el cumplimiento de todas lo estipulado en ellos. Manteniendo el fin primordial del uso del aporte presentado en el plan de trabajo y presupuesto.

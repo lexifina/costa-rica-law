@@ -1,0 +1,3 @@
+Artículo 5°- Comunicación al sujeto público.
+La Dirección Nacional, a través el Departamento de Deporte y la Recreación, informará a los sujetos públicos la aprobación de los montos correspondientes para el siguiente ejercicio económico. La Autoridad Competente comunicará la estimación presupuestaria que le corresponde, con el informe elaborado por la Unidad respectiva del Departamento de Deporte y Recreación, a partir de este momento, los sujetos públicos pueden iniciar con la confección de su Presupuesto.
+El sujeto público contará con un plazo de 15 días hábiles para manifestar su interés y con 30 días hábiles adicionales para presentar su solicitud y requisitos.

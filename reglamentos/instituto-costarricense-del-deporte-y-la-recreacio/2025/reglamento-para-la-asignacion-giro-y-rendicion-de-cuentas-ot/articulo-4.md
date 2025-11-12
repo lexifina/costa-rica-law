@@ -1,0 +1,4 @@
+Artículo 4º- Del presupuesto de beneficios patrimoniales
+a. Corresponde al Consejo, definir las políticas y parámetros para la asignación de recursos para el siguiente ejercicio económico, destinados a los sujetos públicos cuyo objetivo sea para promover lo indicado en la Ley 7800 y en la PONADRAF.
+b. La autoridad competente remitirá a la Dirección Nacional, a más tardar en el mes de junio, la propuesta de distribución de recursos a los sujetos públicos que cuenten con calificación de elegibilidad vigente para el siguiente período, basada en el informe presentado por el Departamento de Deporte y Recreación, el cual podrá ser el insumo para la formulación del presupuesto ordinario.
+c. La Dirección Nacional presentará al CNDR la propuesta para que sea valorada y el acuerdo será comunicado a la Dirección Nacional y enviado a la Contraloría General de la República a más tardar el 30 de setiembre de cada año.

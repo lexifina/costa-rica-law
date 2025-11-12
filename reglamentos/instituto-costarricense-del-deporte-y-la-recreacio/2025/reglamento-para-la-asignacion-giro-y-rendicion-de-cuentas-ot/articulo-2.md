@@ -1,0 +1,1 @@
+Artículo 2º- Objetivo. El presente reglamento establece la regulación del proceso de presupuestación, asignación, giro, seguimiento y rendición de cuentas de las transferencias de beneficios patrimoniales gratuitos, con cargo al presupuesto del ICODER.

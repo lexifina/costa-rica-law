@@ -1,0 +1,3 @@
+Artículo 18º - Controles de Seguimiento.
+a. Los controles de seguimiento serán establecidos en cada ejecución del programa por parte de la Unidad correspondiente perteneciente al Departamento de Deporte y Recreación, estos se establecerán bajo los objetivos de cumplimiento del proyecto establecido.
+b. Los controles de seguimiento reconocerán a la misión y visión institucional, así como los principios establecidos en la PONADRAF. De igual manera contemplarán los fundamentos de divulgación, promoción y marca el ICODER. Los controles de seguimiento contemplarán lineamientos institucionales de capacitación, planificación, rendición de cuentas y proyección presupuestaria.
