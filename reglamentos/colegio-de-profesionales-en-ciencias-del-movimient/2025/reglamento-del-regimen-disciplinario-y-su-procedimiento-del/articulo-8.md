@@ -1,0 +1,4 @@
+Artículo - 8. Diligencia y respeto profesional.
+Es deber de las personas profesionales en Ciencias del Movimiento Humano actuar con diligencia, procurando poseer y aplicar los conocimientos necesarios para el adecuado desempeño de sus funciones. Deberán dedicar sus esfuerzos y capacidades en beneficio de la profesión.
+Asimismo, como ciudadanas y ciudadanos, y en su condición de profesionales o técnicos, deberán cumplir con los preceptos institucionales del Colegio de Profesionales en Ciencias del Movimiento Humano de Costa Rica, procurando que su ejercicio profesional genere satisfacción ética, moral y técnica por el servicio prestado.
+En todas sus actuaciones deberán observar respeto, absteniéndose de emplear términos despectivos, irrespetuosos o peyorativos, ya sea de forma oral o escrita.
