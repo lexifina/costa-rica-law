@@ -1,0 +1,5 @@
+ARTÍCULO 6- Se reforma el artículo 56 de la Ley 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi (Banco Hipotecario de la Vivienda), de 13 de noviembre de 1986. El texto es el siguiente:
+Artículo 56- Las familias que reciban el subsidio deberán inscribir el inmueble a nombre de la pareja en el matrimonio y, en caso de unión de hecho, a nombre de la mujer; asimismo, sobre el inmueble deberá constituirse el régimen de patrimonio familiar, tanto en caso de matrimonio como en unión de hecho. Cuando los adultos mayores y las personas con discapacidad sin núcleo familiar reciban el subsidio, el inmueble deberá inscribirse a su nombre. Cuando se trate de las mujeres que sufren situaciones de violencia de género y necesitan cambiar su residencia para garantizar su seguridad personal y la de su familia, el inmueble deberá inscribirse únicamente a su nombre.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, al día cuatro del mes de noviembre del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
