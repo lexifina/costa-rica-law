@@ -1,1 +1,0 @@
-Artículo 7º—En las bases de participación se determinará el monto económico con el que se beneficiará a los grupos participantes en el Festival; monto que deberá ser anualmente presupuestado por el Teatro Popular MelicoSalazar de su presupuesto ordinario.

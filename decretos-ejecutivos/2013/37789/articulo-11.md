@@ -1,1 +1,0 @@
-Artículo 11.—Se derogan los Decretos Ejecutivos Nº 18919-C del 27 de marzo de 1989, publicado en La Gaceta N° 75 del 19 de abril de 1989 y N° 19680-C del 16 de abril de 1990, publicado en La Gaceta N° 100 del 28 de mayo de 1990.

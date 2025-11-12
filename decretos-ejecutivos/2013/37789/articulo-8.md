@@ -1,1 +1,0 @@
-Artículo 8º—La Comisión Asesora se regirá por lo dispuesto en el bloque de legalidad y particularmente en la Ley General de la Administración Pública y por lo dispuesto en el presente Decreto Ejecutivo. Se reunirá ordinariamente dos veces al mes y extraordinariamente las veces que sean necesarias, levantando un acta en cada una de ellas.
