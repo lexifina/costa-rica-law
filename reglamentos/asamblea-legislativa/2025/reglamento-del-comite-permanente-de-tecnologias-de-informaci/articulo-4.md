@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Planificación
+El Copeti deberá velar por el establecimiento de un modelo estratégico formal que permita establecer la dirección organizacional, iniciativas a corto, mediano y largo plazo, incorporando las necesidades y oportunidades tecnológicas que permita establecer los requerimientos al nivel tecnológico para la sostenibilidad de las operaciones institucionales, para esto tendrá un PETI alineado con el PEI y una ETD que promueva la innovación, la modernización y el uso estratégico de las TIC's en la Asamblea Legislativa de Costa Rica.
