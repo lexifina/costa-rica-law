@@ -14,3 +14,4 @@ Procedimiento y mecanismos para la realización del examen teórico para obtener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-18 | la propia norma |
+| 2 | 2025-11-13 | Resolución 264 (2025-11-13) |
