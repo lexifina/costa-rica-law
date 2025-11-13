@@ -1,7 +1,0 @@
-Artículo 34.-Inicio. La etapa ejecutiva del cobro se tendrá por iniciada mediante la remisión del oficio en que se asignan las cuentas al abogado director del proceso; para tales efectos se remitirá el expediente que contiene toda la documentación que corresponda para proceder al cobro judicial, entre los documentos adjuntos deberá encontrarse:
-1. Oficio de remisión en el que se indique las cuentas que se trasladan al abogado director que sea asignado, con indicación del nombre del contribuyente, número de identificación, monto total adeudado que se encuentra en estado de mora.
-2. Certificación de personería jurídica del alcalde, extendida por la Secretaria del Concejo Municipal.
-3. Poder especial judicial para ejercer la representación de la Municipalidad en cada proceso.
-4. Certificación contable extendida por el Contador Municipal en los términos establecidos por el artículo 79 del Código Municipal, en la cual se detallará el monto total adeudado, el desglose por capital, intereses, multas de los adeudos por los diferentes tributos, porcentaje de interés vigente.
-5. Copia de la(s) gestiones administrativas efectuadas, en las que contendrá el número de gestión, fecha de la actuación, señas para su localización. En casos de personas jurídicas, como sujetos pasivos, corresponde al abogado externo presentar la personería jurídica correspondiente.
-6. Informes registrales de los bienes objeto de cobro, de conformidad con el artículo 70 del Código Municipal.

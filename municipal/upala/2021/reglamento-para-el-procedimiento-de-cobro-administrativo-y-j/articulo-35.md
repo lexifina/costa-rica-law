@@ -1,8 +1,0 @@
-Artículo 35.-Deberes de la Oficina de Cobro de la Municipalidad en la etapa ejecutiva. La Oficina de Cobro de la Municipalidad deberá cumplir con lo siguiente, en la etapa ejecutiva:
-a. Trasladar el expediente respectivo para efectos de iniciar la etapa ejecutiva al abogado o los abogados externos.
-b. Asignar los casos de cobro judicial.
-c. Fiscalizar la labor de los abogados externos, para ello, compete a esta Oficina recibir los informes mensuales que realicen los abogados externos de conformidad con este Reglamento, analizarlos y emitir informe sobre los mismos al Alcalde Municipal Trimestral.
-d. Solicitar al alcalde, la aplicación de las sanciones que en este Reglamento se establecen, a los abogados externos que incumplan con sus obligaciones.
-e. Solicitar al alcalde, el nombramiento de nuevos abogados mediante el respectivo proceso de contratación, o la resolución de la contratación de abogados externos.
-f. Llevar un expediente de cada uno de los abogados externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente, y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
-g. Solicitar al departamento correspondiente de la municipalidad, el avalúo de los bienes inmuebles que garanticen las obligaciones vencidas, a efectos de determinar si en la fase de remate, la municipalidad estaría interesada en solicitar la adjudicación del bien, esto en caso de ser necesario y que la municipalidad cuente con los requisitos para su implementación.

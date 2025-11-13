@@ -1,1 +1,0 @@
-Artículo 12.-Cobro Administrativo. Por cobro Administrativo se entiende toda aquella gestión que se realice para normalizar situaciones irregulares que presenten las contribuciones, tasas e impuestos de los contribuyentes, previo a recurrir a la vía judicial. El cobro Administrativo se iniciará a partir de los quince días hábiles de atraso.

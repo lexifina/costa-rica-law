@@ -1,1 +1,0 @@
-Artículo 40.-Excusa. El abogado deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o incluso en caso de amistad, con el administrado que se ha enviado a cobro judicial, lo cual comunicará por escrito a la Oficina de Cobro, dentro de las cuarenta y ocho horas siguientes al recibo de la documentación de cobro.

@@ -1,6 +1,0 @@
-Artículo 17.-Gestiones. Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la Oficina de Cobros entregará las cuentas a los abogados para el inicio de proceso de cobro judicial, así como la documentación necesaria para que inicien los trámites judiciales.
-La normativa de cobro será la siguiente:
-Para las operaciones contempladas en el inciso (b) del artículo 7 de este Reglamento, las gestiones deben iniciarse a partir día los quince días hábiles de atraso.
-A los quince días hábiles de atraso si la obligación o deuda no se ha normalizado, debe ser enviada a Cobro Judicial, sin embargo, podrá prorrogarse por una única vez el plazo hasta por otros 15 días hábiles, basado en condiciones justificadas, evidentes, razonables, lógicas y motivadas, mismas que deben ser valoradas por la Administración Tributaria. Esta prórroga será solicitada por el contribuyente, en forma escrita y con pruebas que sustenten su justificación.
-La preparación de la documentación será parte del procedimiento del cobro administrativo.
-Cuando así lo faculte la Ley y los Reglamentos, la acción judicial se iniciará en forma inmediata siempre que el incumplimiento constituya un grave riesgo para los intereses de la Hacienda Municipal.

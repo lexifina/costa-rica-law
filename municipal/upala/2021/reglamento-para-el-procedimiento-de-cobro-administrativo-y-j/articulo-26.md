@@ -1,1 +1,0 @@
-Artículo 26.-Incumplimiento. En caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá a realizar el trámite de cobro judicial; sin que se requiera de comunicación previa alguna al administrado.
