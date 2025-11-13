@@ -15,3 +15,4 @@ Manual de organización y funcionamiento de la Gaceta Universitaria para la publ
 | --- | --- | --- |
 | 1 | 2022-02-10 | la propia norma |
 | 2 | 2023-09-14 | Reglamento 24 (2023-09-14) |
+| 3 | 2025-11-13 | Reglamento 27 (2025-11-13) |
