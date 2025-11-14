@@ -1,1 +1,0 @@
-Artículo 5°- Se otorga a los operadores aéreos un plazo de noventa (90) días naturales para la implementación de la tarifa Covid Recovey Fee (CRF) en la facturación correspondiente; el cual, se computará a partir del día siguiente de la publicación del presente decreto.
