@@ -1,0 +1,2 @@
+Artículo 12. Consecuencias del Desempeño Negativo
+En caso de que un servidor obtenga resultados negativos en dos evaluaciones semestrales dentro de un período de dos años, debido a un desajuste entre sus capacidades personales y las requeridas para el desempeño exitoso de su puesto, se gestionará su reubicación a una categoría inferior acorde con sus competencias. Si dicha reubicación no fuera viable o el servidor no aceptará el cambio, se procederá a su despido con responsabilidad patronal.
