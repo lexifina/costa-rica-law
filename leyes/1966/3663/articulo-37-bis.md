@@ -1,0 +1,3 @@
+Artículo 37 bis- Cada año, en el mes de octubre, en la Asamblea General ordinaria se realizará el proceso de elección de su Junta Directiva, el nombramiento de los diez delegados ante la Asamblea de Representantes y la escogencia del miembro o los miembros que representan a cada Colegio ante la Junta Directiva general. Será atribución de la Junta Directiva general dictar un reglamento especial en el que se establezcan los elementos, las condiciones y los órganos que estimen pertinentes, para desarrollar lo dispuesto en el presente artículo.
+Dicho reglamento deberá ser elevado a conocimiento y aprobación de la Asamblea de Representantes.
+(Así adicionado por el artículo 2° de la ley N° 10562 del 23 de octubre de 2025)

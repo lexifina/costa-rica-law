@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos
 
-Ley N° 3663 del 1966-01-10. SINALEVI, ficha 12689: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12689&param2=102989&param3=1>.
+Ley N° 3663 del 1966-01-10. SINALEVI, ficha 12689: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12689&param2=148453&param3=1>.
 
 Publicada en La Gaceta N° 11 del 1966-01-15.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 7 | 2002-01-18 | Ley 8177 | 2001-12-17 |
 | 5 de 7 | 2002-05-28 | Sala Constitucional, resolución 5133 (2002-05-28) | 2002-05-28 |
 | 6 de 7 | 2016-01-13 | Ley 9333 | 2015-11-11 |
+| 7 de 7 | 2025-11-14 | Ley 10562 | 2024-10-23 |
