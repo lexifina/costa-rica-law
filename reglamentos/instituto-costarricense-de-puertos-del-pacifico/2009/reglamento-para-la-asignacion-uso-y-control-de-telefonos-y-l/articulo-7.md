@@ -1,1 +1,2 @@
-Artículo 7º—Restricciones de asignación: Ningún (a) funcionario (a) podrá tener asignada más de una línea telefónica, excepto el Presidente Ejecutivo ó el Gerente General en razón de sus funciones.
+Artículo 7º-Restricciones de asignación: Ninguna persona funcionaria podrá tener asignada más de una línea telefónica de celular excepto la persona que ocupe el puesto de presidente ejecutivo, Gerente General, Auditor (a) Interno, director (a) administrativo (a) Financiero (a) que en razón de sus funciones, están autorizadas para contar con una línea adicional de datos para conexión portátil de internet.
+(Así reformado en sesión N° 4504 del 14 de noviembre de 2025)

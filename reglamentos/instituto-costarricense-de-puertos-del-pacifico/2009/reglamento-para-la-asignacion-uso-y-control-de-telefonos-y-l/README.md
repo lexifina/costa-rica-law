@@ -15,3 +15,4 @@ Reglamento para la asignación, uso y control de teléfonos y líneas celulares 
 | --- | --- | --- |
 | 1 | 2010-01-20 | la propia norma |
 | 2 | 2011-07-28 | Reglamento 3722 (2011-07-28) |
+| 3 | 2025-11-14 | Reglamento 4504 (2025-11-14) |
