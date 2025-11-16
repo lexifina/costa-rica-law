@@ -10,3 +10,5 @@ ARTÍCULO 880.- casos de suspensión: No corre la prescripción:
 5º.- Contra la herencia yacente, mientras no haya albacea que hubiere aceptado.
 6º.- Contra los jornaleros y sirvientes domésticos, respecto a sus jornales o salarios, mientras continúen trabajando o sirviendo al que se los debe.
 7º.- A favor del deudor que con hechos ilícitos ha impedido el ejercicio de la acción de un acreedor.
+8- Cuando se trate de responsabilidad civil derivada del encubrimiento de delitos sexuales cometidos en perjuicio de personas menores de edad y personas con discapacidad, que son aquellas que tienen deficiencias físicas, limitaciones mentales, intelectuales o sensoriales a largo plazo.
+(Así adicionado el inciso anterior por el artículo 4° de la Ley contra el silencia en delitos sexuales en perjuicio de la niñez y personas con discapacidad, responsabilidad civil solidaria, deber de denuncia y garantía de cumplimiento de protocolos de investigación, N° 10813 del 16 de noviembre del 2025)
