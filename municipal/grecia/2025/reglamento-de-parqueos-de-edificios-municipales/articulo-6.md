@@ -1,0 +1,10 @@
+Artículo 6°. Sobre las responsabilidades de los propietarios de los vehículos, son las siguientes:
+a. Los usuarios deben respetar las normativas establecidas en la Ley de Tránsito y de este reglamento, así como las indicaciones del personal de seguridad.
+b. Presentar identificación y justificar su permanencia en el parqueo ante el requerimiento del oficial de seguridad o de cualquier otra autoridad administrativa del inmueble.
+c. Los vehículos deben estar debidamente estacionados dentro de los límites de cada espacio. No se permite el estacionamiento en áreas no designadas o que obstruyan el paso.
+d. Hacerse responsable económicamente de cualquier daño que cause, por dolo o culpa, a otro vehículo o a la infraestructura de las instalaciones municipales.
+e. Respetar los espacios destinados a personas con discapacidad, según lo dispuesto en la Ley N° 7600. Quien incumpla con esta norma se expone a que su vehículo sea removido del sitio, todo bajo su costo y responsabilidad.
+f. Los conductores son responsables de custodiar sus objetos personales, así como de asegurar, cerrar, activar la alarma y colocar adecuadamente cualquier otro dispositivo de seguridad con el que cuente su vehículo.
+g. Retirar de los vehículos todo objeto de valor mientras se encuentren en las instalaciones municipales, ya que la Municipalidad no se hará responsable por ningún artículo dejado en los vehículos.
+h. Solamente se hará una excepción en casos en los que, por alguna característica especial, no sea posible retirar el objeto. En estos casos, antes de dejar el vehículo solo, el conductor deberá reportar la situación al oficial de seguridad de la institución, quien le dará instrucciones sobre dónde estacionar y le proporcionará un formulario en el que se detallará el objeto. Este formulario debe estar firmado por ambas partes para tener validez.
+i. En caso de colisión o atropello dentro del parqueo, se deberá notificar inmediatamente al oficial de seguridad y llamar a las autoridades de tránsito, y al I.N.S. si fuera aplicable, y esperar su llegada. Quien no lo haga será objeto de sanciones civiles, penales y disciplinarias, según corresponda.
