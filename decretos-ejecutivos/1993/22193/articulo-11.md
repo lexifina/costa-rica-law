@@ -1,1 +1,0 @@
-Artículo 11.- El Banco Central y los demás bancos autorizados como cajeros del Gobierno, en virtud de las atribuciones y deberes que ostentan, atenderán el servicio de estos títulos, para lo cual deberán mantener información sobre el valor diario de la UD según lo publicado por la CNV y establecer los procedimientos que se consideren necesarios.

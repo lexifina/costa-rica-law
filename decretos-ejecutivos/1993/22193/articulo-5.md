@@ -1,1 +1,0 @@
-Artículo 5°.- Los títulos de cada serie tendrán la misma fecha de emisión y, según el plazo, la misma fecha de vencimiento. El monto mínimo a invertir será el equivalente en colones a 10.000 UD, mientras que montos superiores de inversión serán en múltiplos de 10.000. UD, según el valor de esta unidad en la fecha en que se realice la inversión.

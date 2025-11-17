@@ -1,2 +1,0 @@
-Artículo 9".- Para el pago de las amortizaciones semestrales a que hace referencia el artículo anterior se emitirá un título por el monto correspondiente a cada amortización. Los intereses serán pagaderos semestralmente y el monto a pagar por ese concepto se ajustará de manera que considere únicamente el saldo no amortizado del principal al inicio de cada semestre.
-En ambas modalidades de títulos, los montos en UD se expresarán con dos decimales de aproximación, utilizando el redondeo al entero más cercano cuando se requiera.

@@ -1,2 +1,0 @@
-Artículo 7°.- En el caso de los títulos amortizables al vencimiento, el pago del principal se realizará en su totalidad en la fecha de vencimiento que corresponda según el plazo del título. Al efecto se cancelará el monto en colones equivalente a la cantidad de UD que indica el título, para lo cual esta última se multiplicará por el valor en colones de la UD al día de vencimiento, según lo indicado en el Artículo 2 de este decreto.
-Los intereses serán pagaderos semestralmente, para lo cual se utilizará el valor de la UD en el día de vencimiento del cupón correspondiente.

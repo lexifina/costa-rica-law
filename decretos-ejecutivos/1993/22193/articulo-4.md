@@ -1,1 +1,0 @@
-Artículo 4°.- La Tesorería Nacional definirá los plazos de amortización de los títulos que ofrecerá en cada serie, el cual no será menor a un año, así como el periodo durante el cual podrán adquirirse, el que podrá ser de uno, dos o tres meses, según lo considere conveniente. El primer cupón devengará intereses a partir de la fecha de la adquisición del título.

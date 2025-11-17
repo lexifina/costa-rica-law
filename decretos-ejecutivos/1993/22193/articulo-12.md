@@ -1,5 +1,0 @@
-Artículo 12.- Los Títulos TUDES podrán colocarse mediante subasta o por venta directa en ventanilla. En el primer caso se podrán subastar por precio, de tal forma que los títulos se emitirán a una misma tasa y podrán transarse a su valor facial con un premio o descuento sobre el mismo. La diferencia entre el valor facial y lo pagado por cada título se tratará para efectos contables y de control de la siguiente manera:
-a) Si se coloca con premio, la diferencia positiva se registrará como una disminución del gasto por concepto de intereses.
-b) Si se coloca un descuento la diferencia negativa se registrará como un pago de intereses con cargo a las partidas presupuestarias correspondientes.
-En el caso de la venta por ventanilla la Tesorería Nacional , considerando los resultados de la subasta anterior y otros aspectos que estime relevantes, definirá el precio al que podrán colocarse los títulos.
-Para los efectos de este artículo se entenderá como valor facial el monto en UD multiplicado por el valor de esa unidad de cuenta en la fecha de la venta.
