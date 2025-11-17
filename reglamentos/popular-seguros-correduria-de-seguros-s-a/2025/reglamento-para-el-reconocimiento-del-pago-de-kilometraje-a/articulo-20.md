@@ -1,0 +1,1 @@
+Artículo 20.-Las salidas o giras con pago de kilometraje, deben proyectarse tomando como punto de partida de las oficinas de la Correduría o el punto de partida autorizado por la Gerencia Comercial sea este el domicilio registrado por el colaborador para hacer teletrabajo y viceversa.

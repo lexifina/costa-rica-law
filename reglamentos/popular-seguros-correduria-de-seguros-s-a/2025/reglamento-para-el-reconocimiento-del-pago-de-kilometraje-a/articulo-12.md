@@ -1,0 +1,1 @@
+Artículo 12.-Conforme lo previsto en este reglamento la Correduría, a título de contraprestación, reconocerá a los trabajadores autorizados del sistema, una suma por cada kilómetro recorrido, de conformidad con la tabla para el reconocimiento del kilometraje aprobada por la Gerencia General de Popular Seguros.
