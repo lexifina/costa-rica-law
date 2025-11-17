@@ -1,0 +1,1 @@
+ARTÍCULO 2- Autorización para la condonación. Se autoriza a la Municipalidad de Alvarado para que condone la totalidad de las deudas, principal, intereses, multas y demás obligaciones, sobre cuentas pendientes de cobro del servicio de agua del acueducto bajo administración del Concejo Municipal de Distrito de Cervantes.

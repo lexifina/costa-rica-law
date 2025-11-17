@@ -1,0 +1,1 @@
+ARTÍCULO 6- Beneficios adicionales. Se autoriza a la Municipalidad de Alvarado para que establezca beneficios adicionales, tales como programas de pago flexibles, ajustes en tarifas o exoneraciones, con el fin de facilitar el cumplimiento de las obligaciones relacionadas con el uso del acueducto.

@@ -1,0 +1,1 @@
+ARTÍCULO 4- Campaña de divulgación. El Concejo Municipal de Distrito de Cervantes deberá realizar una adecuada campaña de divulgación, para informar a los usuarios sobre la posibilidad de acogerse a la condonación, promoviendo la transparencia y participación ciudadana.
