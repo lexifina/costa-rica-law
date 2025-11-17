@@ -1,0 +1,17 @@
+N° 10780
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DE LOS ARTÍCULOS 3, 7, 9 Y 11 DE LA LEY 7794, CÓDIGO
+MUNICIPAL, DE 30 DE ABRIL DE 1998
+ARTÍCULO ÚNICO- Se adiciona un párrafo final a los artículos 3, 7, 9 y 11 de la Ley 7794, Código Municipal, de 30 de abril de 1998. Los textos son los siguientes:
+Artículo 3- La jurisdicción territorial de la municipalidad es el cantón respectivo, cuya cabecera es la sede del gobierno municipal.
+El gobierno y la administración de los intereses y servicios cantonales estarán a cargo del gobierno municipal.
+La municipalidad podrá ejercer las competencias municipales e invertir fondos públicos con otras municipalidades e instituciones de la Administración Pública, para el cumplimiento de fines locales, regionales o nacionales o para la construcción de obras públicas de beneficio común, de conformidad con los convenios que al efecto suscriba.
+Ante eventos naturales de emergencia local o regional, de manera extraordinaria y bajo criterios suficientemente razonados, la alcaldía municipal podrá facilitar equipo, maquinaria, vehículos y recurso humano de acuerdo con la disponibilidad y posibilidad institucional, conforme al reglamento que se emita al efecto. Una vez atendida la asistencia en colaboración para tales eventos, cada administración municipal brindará, en un plazo no mayor a quince días hábiles, un informe detallado de los recursos aportados y lugares atendidos al concejo municipal, al Comité Municipal de Emergencias y a la Comisión Nacional de Emergencias.
+Artículo 7- Mediante convenio con otras municipalidades o con el ente u órgano público competente, la municipalidad podrá llevar a cabo, conjunta o individualmente, servicios u obras en su cantón o en su región territorial. Se exceptúa de esta disposición aquella colaboración intermunicipal que se facilite para la atención de emergencias locales o regionales provocadas por eventos naturales; para ello, el concejo municipal aprobará el reglamento institucional para aplicar esta excepción, que garantice la conservación financiera de la corporación municipal y que tome en consideración el uso eficiente de los recursos públicos, de tal manera que se eviten erogaciones duplicadas de otras instituciones para la atención de un mismo evento.
+Artículo 9- Las municipalidades podrán pactar, entre sí, convenios cuya finalidad sea facilitar y posibilitar el cumplimiento de sus objetivos, lograr una mayor eficacia y eficiencia en sus acciones, así como para prestar servicios y construir obras regionales o nacionales. Se exceptúa, de esta disposición, aquella colaboración intermunicipal que se facilite para la atención de emergencias provocadas por eventos naturales, de acuerdo con lo dispuesto en los artículos 3 y 7 de esta ley.
+Artículo 11- Previo estudio de factibilidad, los convenios intermunicipales requerirán la autorización de cada concejo, la cual se obtendrá mediante votación calificada de dos terceras partes de la totalidad de sus miembros. Estos convenios tendrán fuerza de ley entre las partes. Se exceptúa, de esta disposición, aquella colaboración intermunicipal que se facilite para la atención de emergencias provocadas por eventos naturales, de acuerdo con lo dispuesto en los artículos 3 y 7 de esta ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cuatro días del mes de noviembre del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
+<span style='font-family:"Arial",sans-serif; </body>
