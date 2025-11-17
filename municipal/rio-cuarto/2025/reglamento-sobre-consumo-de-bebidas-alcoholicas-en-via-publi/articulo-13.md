@@ -1,0 +1,1 @@
+Artículo 13.-Medios de pago. La Municipalidad habilitará los medios de pago que considere pertinentes para la cancelación de la multa derivada del consumo de bebidas con contenido alcohólico en vía pública y en los sitios públicos del cantón de Río Cuarto. Siendo el medio principal el pago en las instalaciones de la Municipalidad.
