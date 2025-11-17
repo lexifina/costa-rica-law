@@ -1,6 +1,6 @@
 # Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual
 
-Ley N° 8039 del 2000-10-12. SINALEVI, ficha 44448: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44448&param2=111844&param3=1>.
+Ley N° 8039 del 2000-10-12. SINALEVI, ficha 44448: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44448&param2=148462&param3=1>.
 
 Publicada en La Gaceta N° 206 del 2000-10-27.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2008-11-26 | Ley 8686 | 2008-11-21 |
 | 4 de 6 | 2010-05-13 | Ley 8834 | 2010-05-03 |
 | 5 de 6 | 2018-04-10 | Ley 9524 | 2018-03-07 |
+| 6 de 6 | 2025-11-17 | Ley 10783 | 2025-11-04 |
