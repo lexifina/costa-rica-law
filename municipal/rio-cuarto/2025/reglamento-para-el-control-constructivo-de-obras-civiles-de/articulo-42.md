@@ -1,0 +1,1 @@
+Artículo 42.- Ejecución de la clausura. Para los efectos que conciernen a la ejecución de la clausura, se marcará con sellos o cinta la obra respectiva. Las autoridades municipales podrán solicitar la colaboración de las autoridades policiales, con el fin de facilitar el proceso de clausura de la obra civil.

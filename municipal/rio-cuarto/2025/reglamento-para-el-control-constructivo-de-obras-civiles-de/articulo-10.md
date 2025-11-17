@@ -1,0 +1,1 @@
+Artículo 10.- Cumplimiento normativo. Las obras civiles deberán respetar en todo momento la normativa relativa a la protección de la propiedad, la salud pública, la vida humana y animal que lo utilizarán, el respeto absoluto de la sostenibilidad ambiental, y el desarrollo integral que garantice el derecho a un ambiente sano y equilibrado, individual y colectivo.

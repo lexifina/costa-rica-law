@@ -1,0 +1,1 @@
+Artículo 9°. - Otorgamiento de permisos de construcción. Los requisitos y procedimientos para el trámite de permiso de construcción dependerán del tipo de obra a realizar y de la categorización en obra mayor u obra menor, según lo dispuesto en la Ley de Construcciones y de las disposiciones del presente reglamento y demás normativa aplicable.

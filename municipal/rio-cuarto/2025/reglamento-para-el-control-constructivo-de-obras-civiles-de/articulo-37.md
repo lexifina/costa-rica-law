@@ -1,0 +1,4 @@
+Capítulo VII
+Régimen sancionatorio
+Artículo 37.- Potestad sancionatoria. Toda infracción a la Ley de Construcciones y al presente Reglamento que, se cometa por parte del profesional responsable de un proyecto, del propietario del inmueble, del contratista de sus representantes legales, o por cualquier administrado en general, será sancionado conforme lo estipulan las leyes vigentes y en el presente reglamento.
+Cuando la Municipalidad constate la existencia de una obra que fue o está siendo ejecutada sin la respectiva licencia municipal o en contravención de esta y en general ante cualquiera de las infracciones previstas en este Reglamento o en la Ley de Construcciones, podrá sancionar al infractor con la imposición de una multa, clausura de la obra, desalojo y/o con la demolición de la obra, de acuerdo con las disposiciones de este capítulo.

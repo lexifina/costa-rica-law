@@ -1,0 +1,1 @@
+Artículo 20.- Caso Fortuito. En casos fortuitos, en que las condiciones naturales del área a desarrollar y de influencia varíen por causas ajenas al interesado, éste deberá tramitar nuevamente el permiso de conformidad con los requisitos y las disposiciones vigentes.

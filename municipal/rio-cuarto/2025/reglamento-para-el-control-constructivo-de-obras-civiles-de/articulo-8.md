@@ -1,0 +1,1 @@
+Artículo 8°. - Obligación de mantener el permiso de construcción en el sitio de la construcción. Será obligación del administrado, mantener en el sitio de la construcción, tanto el permiso de construcción municipal otorgado, como los planos constructivos aprobados.

@@ -1,0 +1,2 @@
+Artículo 38.- Multas. Los montos de las multas, de las sanciones en materia constructiva, deberán ser fijados reglamentariamente y se calcularán tomando como base la tarifa que se pagó por la licencia constructiva a la municipalidad.
+Por concepto de multa, el infractor deberá cancelar la suma equivalente al uno por ciento (1%) del valor de la civil que se encuentra en proceso. El valor de la obra se determinará según la tasación determinada por el Colegio Federado de Ingenieros y Arquitectos (C.F.I.A) o la autoridad competente en cada caso.

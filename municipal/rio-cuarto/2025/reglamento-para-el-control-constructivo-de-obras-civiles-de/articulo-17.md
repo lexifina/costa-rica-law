@@ -1,0 +1,2 @@
+Artículo 17.- Impuesto municipal. La Municipalidad cobrará un impuesto de construcción de hasta un 1% el cual será el que determine la administración con base a lo que establezca la ley. El valor de las construcciones será el que determine la Administración.
+La fijación de un porcentaje menor al 1% deberá realizarse mediante acto motivado emitido por el Concejo Municipal. Se considerarán como factores preponderantes para la fijación de un canon inferior al 1% el interés público, el desarrollo comunal, interés cantonal.

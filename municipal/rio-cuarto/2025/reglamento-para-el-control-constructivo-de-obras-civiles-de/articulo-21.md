@@ -1,0 +1,1 @@
+Artículo 21.- Plazo de resolución. Para la aprobación de obras y proyectos que reúnan todos los requisitos y condiciones, Control Urbano o su similar contará con treinta (30) días naturales para resolver. Dicho plazo se contará a partir del día siguiente a la presentación de la solicitud.

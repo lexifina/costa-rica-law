@@ -1,0 +1,1 @@
+Artículo 35.- Otros medios de verificación. Cuando no se logre ingresar a la propiedad para conocer de la obra civil se podrá recurrir a otros medios de inspección, pudiendo incluso realizarse a distancia, con herramientas tecnológicas (drones, fotografías aéreas satelitales, etc.), fotografías anteriores de la zona o solicitando colaboración de los vecinos.

@@ -1,0 +1,1 @@
+Artículo 2°. - Alcance. Las disposiciones del presente reglamento serán de aplicación obligatoria para todas las obras civiles en el territorio del cantón de Rio Cuarto, cuya ejecución estará a cargo primordialmente de Control Urbano o su similar.
