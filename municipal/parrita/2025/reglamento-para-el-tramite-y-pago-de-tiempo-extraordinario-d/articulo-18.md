@@ -1,0 +1,2 @@
+Artículo 18.-Para efecto de pago, la jefatura inmediata deberá incluir el reporte del Tiempo Extraordinario mediante el sistema informático municipal a más tardar al tercer día hábil posterior al cierre de envío de registros marcas.
+Se deberá adjuntar a dicho reporte, tanto la solicitud de comprobación de contenido presupuestario como la solicitud de autorización de jornada extraordinaria debidamente firmada por el Alcalde, conforme a lo señalado en el artículo 10° de este Reglamento.

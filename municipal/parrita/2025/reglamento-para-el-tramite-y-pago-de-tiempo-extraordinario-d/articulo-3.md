@@ -1,0 +1,1 @@
+Artículo 3º-La jornada extraordinaria es de carácter excepcional y temporal, para la atención de tareas especiales, que puedan ser previsibles, imprevistas e impostergables. Que sean de naturaleza ocasional y no podrán ser utilizadas para la subsanación de errores imputables al funcionario.

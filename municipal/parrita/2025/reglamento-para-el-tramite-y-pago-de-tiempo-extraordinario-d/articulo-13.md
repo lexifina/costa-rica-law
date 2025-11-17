@@ -1,0 +1,1 @@
+Artículo 13.-No se pagará tiempo extraordinario para asistir a capacitaciones. El tiempo que un funcionario invierte en capacitaciones o cursos fuera de su jornada ordinaria, no puede ser tomado como horas de trabajo extraordinario que ameriten remuneración alguna.

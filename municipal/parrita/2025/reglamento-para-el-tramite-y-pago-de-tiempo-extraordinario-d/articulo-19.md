@@ -1,0 +1,2 @@
+Artículo 19.-Recibida la solicitud de pago del tiempo extraordinario en el sistema informático municipal, el departamento de Talento Humano realizará una revisión de la solicitud y de los anexos. Posteriormente Talento Humano enviará mediante el sistema informático, a la alcaldía municipal, la solicitud de aprobación final.
+De no cumplirse, se rechazará el trámite para que la jefatura inmediata subsane lo que corresponda.

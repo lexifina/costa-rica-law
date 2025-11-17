@@ -1,0 +1,1 @@
+Artículo 15.-El registro de asistencia que contempla las marcas de entrada y salida, será el documento idóneo mediante el cual se verifique, si el tiempo extraordinario reportado por las jefaturas inmediatas es correcto. Los informes mensuales de registro de asistencia se enviarán únicamente a cada jefatura inmediata los primeros cuatro días hábiles de cada inicio de mes.

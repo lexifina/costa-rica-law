@@ -1,0 +1,1 @@
+Artículo 9º-Para la autorización de la jornada extraordinaria, aplicará los principios de economía, eficiencia y eficacia de la administración pública, así como la racionalidad, proporcionalidad y sana administración de los recursos públicos a cargo de la Municipalidad.
