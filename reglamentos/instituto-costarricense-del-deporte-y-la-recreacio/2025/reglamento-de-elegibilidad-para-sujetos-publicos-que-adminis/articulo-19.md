@@ -1,0 +1,1 @@
+Artículo 19.-Sanciones y responsabilidades. El incumplimiento de lo establecido en este Reglamento dará lugar a las sanciones previstas en la Ley 7800 y 9739, sin perjuicio de la aplicación de otras causales de responsabilidad contenidas en el ordenamiento jurídico.

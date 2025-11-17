@@ -1,0 +1,1 @@
+Artículo 18.-Renovación de la Calificación de Elegibilidad. El sujeto público cuya calificación de elegibilidad caduque deberá iniciar el procedimiento previsto en este Reglamento para optar por nuevos recursos de las leyes señaladas en el artículo primero.

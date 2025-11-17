@@ -1,0 +1,1 @@
+Artículo 5. Expediente digital. El sujeto público enviará la solicitud y requerimientos establecidos en el presente reglamento, mediante expediente digital, que contenga un índice debidamente ordenado conforme lo dispuesto en el siguiente artículo, de los requisitos generales y específicos presentados conforme lo establecido en el presente reglamento.
