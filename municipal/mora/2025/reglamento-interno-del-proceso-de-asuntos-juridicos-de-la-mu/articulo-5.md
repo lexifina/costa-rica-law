@@ -1,0 +1,1 @@
+Artículo 5º-Supletoriedad. Lo no previsto en este reglamento se regulará por las disposiciones del Código Municipal, Ley General de la Administración Pública, Reglamento Autónomo y cualquier otro que sea atinente a la materia.

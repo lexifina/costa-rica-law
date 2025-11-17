@@ -1,0 +1,1 @@
+Artículo 4º-De la reconsideración, adición o aclaración de criterios jurídicos. Los criterios jurídicos emitidos por el Proceso de Asuntos Jurídicos podrán ser reconsiderados, adicionados o aclarados según se considere pertinente.

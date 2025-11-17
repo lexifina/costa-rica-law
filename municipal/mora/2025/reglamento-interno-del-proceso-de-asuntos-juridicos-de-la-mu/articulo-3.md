@@ -1,0 +1,1 @@
+Artículo 3º-Estructura. El Proceso de Asuntos Jurídicos de la Municipalidad de Mora estará a cargo de un Encargado o Encargada del Proceso de Asuntos Jurídicos. También estará integrado por el o la Asistente Legal de los Procesos de Asuntos Jurídicos.
