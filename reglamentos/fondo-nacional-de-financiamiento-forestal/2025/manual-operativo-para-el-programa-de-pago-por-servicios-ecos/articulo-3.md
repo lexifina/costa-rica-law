@@ -1,0 +1,3 @@
+Capitulo II. Del Ingreso al Programa
+Artículo 3.- Ámbito de aplicación
+En virtud de que el SINAC e INCOPESCA realizaron, respectivamente, los Planes Generales de Manejo y los Planes de Aprovechamiento en bosques de mangle de los sectores de las Áreas de Conservación de la costa Pacífica; el PSEM de Bosque de Mangle se desarrollará en las zonas que cuenten con dichas herramientas técnicas y científicas, siendo sujetos del Programa aquellas asociaciones o cooperativas de molusqueros que, además de ubicarse en estos sectores, posean el Permiso de Uso para Extracción de Moluscos emitido por el SINAC, la Autorización de extracción del recurso Molusco que otorga INCOPESCA y cumplan con lo previsto en el presente manual.

@@ -1,0 +1,5 @@
+Capitulo III. Del Trámite de la Solicitud de Ingreso
+Artículo 7.- De la solicitud de ingreso.
+El proceso de inicio del procedimiento para optar por los beneficios del programa de Pago por Servicios Ecosistémicos Marino Costeros en Bosques de Mangle iniciará según dispone el Reglamento a la Ley N° 10507, con la identificación de las asociaciones que podrán ser potenciales personas beneficiarias, o con un aviso publicado en los sitios web del MINAE o sus colaboradores, señalando una fecha para que las asociaciones interesadas presenten sus solicitudes.
+Las solicitudes deberán ajustarse al formato establecido en este Manual en el anexo 1. Esta solicitud debe ser acompañada de los requisitos previstos y dispuestos en el presente Manual.
+Las solicitudes podrán ser presentadas ante el Ministerio de Ambiente y Energía, concretamente en el sitio web expresamente indicado e incluirse en el sistema automatizado que al efecto logre establecerse, el cual le asignará el número de expediente y la fecha de presentación. Tales solicitudes podrán ser presentadas con el apoyo del Gestor Biólogo.

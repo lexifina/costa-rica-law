@@ -1,0 +1,2 @@
+Artículo 20.- De las Visitas de Control.
+Los órganos públicos participantes en el Programa de Pago por Servicios Ecosistémicos Marino Costeros de Bosque de Mangle deberán ejercer sus acciones de control y supervisión del cumplimiento de las obligaciones asumidas por las Asociaciones y coadyuvar al éxito del proyecto. En la medida de lo posible, estas acciones serán previamente coordinadas a efecto de lograr realizar visitas conjuntas y maximizar los recursos disponibles.

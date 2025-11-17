@@ -1,0 +1,5 @@
+Capítulo VI. De las Actividades Sujetas a Pago por Servicios Ecosistémicos Marino
+Costeros de Bosques de Mangle
+Artículo 21. Actividad de Aprovechamiento Sostenible.
+Al ser esta actividad uno de los elementos más importantes del programa, Las Asociaciones de molusqueros deben comprometerse a realizar un aprovechamiento sostenible que incluye acciones con el menor impacto con la extracción de las tallas permitidas, cuotas, cantidad de días de extracción, supervisión, auto regulación para extraer sólo lo que está permitido, a través de sus miembros participantes un uso racional de los recursos autorizados para el aprovechamiento de los moluscos indicados. Estas acciones deberán tener el menor impacto posible al ecosistema y mantenerse dentro de los límites de extracción permitidos en los Permisos de uso, para asegurar el aprovechamiento en condiciones de sostenibilidad.
+Para tal fin, las Asociaciones deberán documentar la extracción de los moluscos diaria y mensual de cada asociado, apegado a lo establecido en la Ley de Pesca y acuicultura, así como en los Permisos de Uso del SINAC, debiendo remitir dicha información a INCOPESCA y SINAC.
