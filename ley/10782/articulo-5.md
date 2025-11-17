@@ -1,0 +1,1 @@
+ARTÍCULO 5- Plazo de eficacia. El plazo de eficacia de la condonación será determinado por el Concejo Municipal de Distrito de Cervantes, considerando sus necesidades financieras y la realidad económica de la población local. Se establecerá un periodo suficiente para que los usuarios puedan beneficiarse de la medida.
