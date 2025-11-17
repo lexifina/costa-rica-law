@@ -1,1 +1,0 @@
-Artículo 5º—De conformidad con los reglamentos internos que dicte el Fondo, todos los vendedores tendrán derecho de gozar de los beneficios y programas que desarrolle FOMUVEL en procura de sus fines y objetivos.

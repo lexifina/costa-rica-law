@@ -1,2 +1,0 @@
-Artículo 18.—La JPS retendrá el 1% sobre las ventas que realicen los vendedores de conformidad con lo estipulado en el artículo 26 de la Ley. La suma de las retenciones indicadas será transferida periódicamente a FOMUVEL con un detalle individualizado por vendedor.
-Para un adecuado control interno la JPS remitirá a FOMUVEL, junto con el monto total de retenciones, las nóminas de los vendedores indicando el nombre, número de cédula y monto retenido correspondiente al 1% a que se refiere la Ley.
