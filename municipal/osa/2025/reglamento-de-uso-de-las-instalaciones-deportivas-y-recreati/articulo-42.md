@@ -1,0 +1,2 @@
+ARTICULO 42. USO DE LAS INSTALACIONES DEPORTIVAS PARA EL DESARROLLO DE ESCUELAS DEPORTIVAS.
+El administrador de las instalaciones deportivas podrá destinar espacios para el desarrollo de las escuelas deportivas, en coordinación con el Comité Cantonal de Deportes, definiendo este último un día a la semana y los horarios para el desarrollo de estas actividades, el cual de ser necesario dicho día podrá cambiarse por temas de logística.

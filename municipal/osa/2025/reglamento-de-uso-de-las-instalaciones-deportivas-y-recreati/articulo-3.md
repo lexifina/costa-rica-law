@@ -1,0 +1,10 @@
+ARTÍCULO 3. INSTALACIONES DEPORTIVAS
+Son todas las instalaciones, campos, recintos y dependencias propiedad de la Municipalidad cedidas en Administración o del Comité Cantonal de Deportes y Recreación de Osa, destinadas a la práctica y desarrollo de los deportes, actividades físicas, recreativas y educativas en general. Gozarán de idéntica consideración los bienes muebles destinados a tal objeto y los adscritos de forma permanente a alguna Instalación Deportiva Municipal.
+Las características de las Instalaciones Deportivas están en consonancia con los citados objetivos y fines.
+Las Instalaciones Deportivas a las que en principio será de aplicación el presente reglamento son las siguientes:
+A) Estadio Municipal de Osa: Localizado en Ciudad Puerto Cortés, con un área de 12,470.00 metros cuadrados propiedad en proceso de traspaso por parte de INDER, entidad que mediante documento INDER-GG-DRT-RDBR-OTRC-OFI-0302-2024 reconoció la posesión legitima y la administración histórica por parte de la Municipalidad de Osa.
+B) Gimnasio Multiuso: Localizado en Ciudad Puesto Cortés, con una estructura que cuenta con 1,000.00 metros cuadrados ubicada en la misma propiedad que ocupa el Estadio Municipal de Osa.
+C) Plaza de Barrio Lourdes: Corresponde a la finca de partido Puntarenas, inmueble número de Folio Real 015825-000, que se describe según plano catastrado número P-661-1963 y que mide según registro: mide un total de 10,353.97 metros cuadrados.
+D) Plaza de Barrio Alemania: Localizada en Palmar Norte, finca de partido Puntarenas, inmueble número de Folio Real 070366-000, que según plano catastrado número P-801165- 1989 cuenta con una medida de 14,137.08 metros cuadrados.
+E) Casa del Deporte: Recinto que actualmente ocupa el Comité Cantonal como sede administrativa: Corresponde a una Oficina ubicada en Palmar Norte, dentro de la finca con plano catastrado número P-1925825-2016, y que mide 465.000 metros cuadrados.
+F) Cualquier otra instalación deportiva que pudieran integrarse en el patrimonio municipal y que esta entidad ceda al Comité Cantonal de Deportes para su administración.

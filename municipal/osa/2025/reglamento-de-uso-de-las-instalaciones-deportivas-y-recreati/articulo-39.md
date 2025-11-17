@@ -1,0 +1,4 @@
+ARTÍCULO 39. LOS EQUIPOS, ASOCIACIONES DEPORTIVAS Y FEDERACIONES DEPORTIVAS.
+INTEGRACIÓN EN EQUIPOS O ASOCIACIONES DEPORTIVAS.
+Las personas físicas tendrán derecho a integrarse en equipos, asociaciones deportivas y federaciones debidamente constituidas conforme a la legislación nacional y municipal vigente. Para efectos de este artículo, se considerarán entidades legalmente constituidas aquellas que cumplan con los requisitos formales de registro, inscripción y actualización ante las autoridades competentes, incluyendo el Registro Nacional, el Comité Cantonal de Deportes, Municipalidad de Osa, Instituto Costarricense del Deporte y la Recreación y cualquier otra entidad reguladora aplicable.
+Estas organizaciones deberán operar conforme a sus estatutos, reglamentos internos y principios de transparencia e inclusión, promoviendo un ambiente seguro, equitativo y orientado al desarrollo integral de sus miembros.

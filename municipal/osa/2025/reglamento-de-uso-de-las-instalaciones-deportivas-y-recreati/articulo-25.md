@@ -1,0 +1,2 @@
+ARTÍCULO 25. APLICACIÓN DE LAS NORMAS PARTICULARES
+Además de las disposiciones generales de este Reglamento, cada Instalación Deportiva estará sujeta a normas particulares que se especifican a continuación. En caso de conflicto entre las normas particulares y las normas generales, prevalecerán las disposiciones específicas para cada instalación, salvo que se indique lo contrario de manera expresa.

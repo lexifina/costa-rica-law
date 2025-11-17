@@ -1,0 +1,4 @@
+ARTÍCULO 24. CIERRE DE LAS INSTALACIONES DEPORTIVAS
+La Municipalidad o el Comité Cantonal de Deportes se reservan el derecho de cerrar temporalmente las instalaciones deportivas, mediante resolución o acuerdo debidamente motivado y en conformidad con la normativa vigente, por razones de salud pública, seguridad, orden público, necesidades operativas o programaciones propias, tales como competiciones, partidos, cursos u otras actividades previamente planificadas.
+Asimismo, podrán cerrar las instalaciones en días feriados oficiales, períodos de vacaciones establecidos por el gobierno central para los funcionarios públicos o cuando así lo requieran los derechos laborales del personal de la Municipalidad o del Comité Cantonal, conforme a las disposiciones aplicables.
+Siempre que sea posible, se deberá informar a los usuarios con antelación razonable sobre el cierre temporal de las instalaciones.

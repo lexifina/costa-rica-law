@@ -1,0 +1,2 @@
+ARTÍCULO 7. DESARROLLO DEL REGLAMENTO
+Se faculta expresamente al Comité Cantonal de Deportes y Recreación y a la Municipalidad de Osa, para dictar las Directrices o Circulares que estime oportunas en desarrollo de lo dispuesto en este Reglamento, en aras de obtener una mejor prestación del servicio y utilización de las Instalaciones por los usuarios, siempre que no vayan en contra de lo dispuesto en el presente Reglamento.

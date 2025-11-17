@@ -1,0 +1,3 @@
+ARTÍCULO 19. RESPONSABILIDAD DE LOS USUARIOS
+Serán responsables de los daños que causen a los edificios, bienes y demás elementos que componen las Instalaciones Deportivas, incluidos elementos naturales como plantas, árboles, césped, así como otros activos físicos, debiendo reparar íntegramente los daños causados, ya sea mediante restauración directa o compensación económica, según corresponda.
+Los padres, tutores o personas que tengan bajo su responsabilidad a menores de edad o personas con discapacidad (cuando estas últimas requieran apoyo para la toma de decisiones según lo establecido por la normativa vigente) serán responsables solidarios o subsidiarios, según el caso, por los daños que estos puedan causar en las Instalaciones Deportivas.

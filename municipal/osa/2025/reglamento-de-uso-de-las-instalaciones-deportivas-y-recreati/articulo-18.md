@@ -1,0 +1,2 @@
+ARTÍCULO 18. PROHIBICIÓN DE ACCESO.
+En el caso de que se impida el acceso al recinto de las instalaciones a alguna persona o entidad, dicho impedimento será motivo de una resolución razonada y motivada del Comité Cantonal de Deportes, contra la que cabe la interposición de los recursos que en su caso procedan, según la legislación vigente. Sumado a que caben los recursos ordinarios que estable el Código Municipal, el cual aplicará los artículos 170 o 171 según quien haya emitido el acto.

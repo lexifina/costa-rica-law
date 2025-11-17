@@ -1,0 +1,2 @@
+ARTÍCULO 26. CASOS DE EMERGENCIA.
+En caso de emergencia o situación de extrema necesidad, el personal autorizado podrá desalojar o evacuar a los usuarios de las instalaciones. El Comité Cantonal de Deportes, Municipalidad o administrador deberá contar con un plan de contingencia debidamente aprobado por el ente competente y actualizado, que incluya protocolos de evacuación, medidas de seguridad y simulacros regulares, conforme a las normativas nacionales de gestión de riesgos.

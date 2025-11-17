@@ -1,0 +1,2 @@
+ARTÍCULO 27. INSTALACIONES DEL ESTADIO MUNICIPAL DE OSA.
+Las instalaciones del Estadio Municipal de Osa podrán ser destinadas prioritariamente para la práctica del fútbol en cualquiera de sus modalidades que sean compatibles con las características del recinto. Sin embargo, podrán realizarse otras actividades deportivas, culturales o recreativas siempre que se garantice la protección del terreno de juego y la gramilla, y se cumplan con las medidas de preservación establecidas por la administración del estadio.
