@@ -1,0 +1,5 @@
+Artículo 6º-Requisitos mínimos para la operación de los Corredores de Seguros Externos Acreditados. Las personas físicas contratadas como intermediarios para la venta de seguros deberán cumplir con los siguientes requisitos mínimos:
+a) Rendir una garantía de cumplimiento mayor o igual al 2.5% del total de su cartera y mantenerse vigente durante la vigencia del contrato o bien mantener vigente las pólizas de Responsabilidad civil profesional y Fidelidad que cubran individualmente al menos un 2.5% del primaje anual facturado así como la póliza de Riesgos del Trabajo, en su calidad de patrono o trabajador independiente u otras que contemplen las coberturas antes descritas, lo cual quedará definido en el respectivo contrato que regula la relación mercantil.
+b) Aceptar y firmar contrato mercantil con Popular Seguros Correduría de Seguros S.A., donde quedarán establecidas las condiciones, deberes y obligaciones de las partes.
+c) Encontrarse inscrito y al día en el pago de sus obligaciones con la Caja Costarricense del Seguro Social y la Administración Tributaria.
+d) Cualquier otro que expresamente Popular Seguros Correduría de Seguros S.A. le consigne.

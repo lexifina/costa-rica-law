@@ -1,0 +1,5 @@
+Artículo 13.-Responsabilidad del Profesional Contratado.
+El Corredor de Seguros externo, el Proveedor de Servicios Auxiliares de Seguros Autoexpedibles; así como, el Corredor de Seguros con salario base y comisión fija y/o variable será responsable ante Popular Seguros Correduría de Seguros S.A. de cualquier daño o perjuicio que le ocasione con motivo de la deficiente atención de los clientes a su cargo y así quedará estipulado en el contrato mercantil entre ambas partes.
+Igualmente será responsable de todos los perjuicios que ocasione por el incumplimiento de las leyes, reglamentos u obligaciones derivadas de su gestión, así como del ejercicio de la actividad profesional por la cual ha sido contratado, excepto que demuestre que las causas no le son imputables.
+Popular Seguros Correduría de Seguros S.A. puede instaurar las acciones o diligencias que estime convenientes ante los órganos jurisdiccionales o administrativos correspondientes, en demanda del resarcimiento o de la actividad del profesional.
+Dichas acciones serán ejecutadas con instrucciones de la Gerencia General.
