@@ -1,0 +1,14 @@
+N° 10783
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 20 Y ADICIÓN DEL ARTÍCULO 20 BIS Y DEL
+ARTÍCULO 21 BIS A LA LEY 8039, LEY DE PROCEDIMIENTOS DE
+OBSERVANCIA DE LOS DERECHOS DE PROPIEDAD
+INTELECTUAL, DE 12 DE OCTUBRE DE 2000
+ARTÍCULO 1- Se reforma el artículo 20 de Ley 8039, Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, de 12 de octubre de 2000. El texto es el siguiente:
+Artículo 20- Integración. El Tribunal estará compuesto por cinco personas miembros titulares, dos de las cuales serán nombradas por el ministro de Justicia y Paz. La Junta Administrativa del Registro Nacional enviará tres ternas al Poder Ejecutivo, para que nombre a los tres miembros restantes. Todos los nombramientos se harán previo concurso de antecedentes y deberán ser ratificados por la Asamblea Legislativa.
+El Tribunal tendrá cinco personas como miembros suplentes, quienes serán nombradas de la misma manera que los titulares, y deberá tener los mismos requisitos, derechos y obligaciones exigidos para los titulares.
+Las personas miembros del Tribunal serán nombradas por un período de cuatro años, podrán ser reelegidas previo concurso de antecedentes, en los mismos términos indicados en el primer párrafo de este artículo. Las formalidades y disposiciones sustantivas, fijadas en el concurso de antecedentes y en el ordenamiento jurídico, se observarán igualmente para removerlos.
+La retribución a las personas integrantes del Tribunal deberá ser equivalente al sueldo de los miembros de los tribunales superiores del Poder Judicial; la del resto del personal deberá equipararse, según el caso, a la de los cargos afines del personal de los órganos del Poder Judicial, donde se desempeñen cargos iguales o similares.
+A las personas suplentes se les remunerarán sus servicios solo cuando ejerzan efectivamente la suplencia respectiva, por cualquier causa que la genere.
+El proceso del concurso y selección de las personas candidatas deberá publicarse en el sitio web oficial del Ministerio de Justicia y Paz y en el diario oficial La Gaceta, garantizando el acceso público a la información sobre requisitos, etapas y resultados del procedimiento, en cumplimiento con los principios de publicidad y transparencia administrativa.

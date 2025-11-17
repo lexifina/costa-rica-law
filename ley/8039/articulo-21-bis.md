@@ -1,0 +1,2 @@
+Artículo 21 bis- Impedimentos. Las personas integrantes del órgano colegiado se encuentran con impedimento para conocer de los asuntos, según lo dispuesto en el título I, capítulo IV, sección III de la Ley 9342, Código Procesal Civil, de 3 de febrero de 2016, y pueden ser recusadas por esas mismas causas, siendo aplicable, en lo que corresponda, lo establecido en la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
+Así adicionado por el artículo 3° de la ley N° 10783 del 4 de noviembre de 2025)
