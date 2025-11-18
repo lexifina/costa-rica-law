@@ -1,0 +1,2 @@
+ARTÍCULO 26. Cumplimiento normativo.
+Las organizaciones vinculadas deben cumplir con todas las normas y regulaciones establecidas en el presente Reglamento y demás normativa institucional emitida por los órganos competentes. El contenido de las comunicaciones debe respetar los principios de legalidad, respeto, veracidad, transparencia, confidencialidad, responsabilidad social institucional, derechos fundamentales, constitucionales y aquellos relacionados con la autodeterminación informativa.

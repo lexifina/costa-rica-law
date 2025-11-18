@@ -1,0 +1,2 @@
+ARTÍCULO 27. Responsabilidad por el contenido.
+Las organizaciones vinculadas pueden expresar opiniones o críticas en el marco del legítimo ejercicio de la libertad de expresión; sin embargo, no están exentas de responsabilidad judicial o extrajudicial por posibles infracciones. Cada organización debe asignar una persona responsable por el contenido enviado mediante el correo institucional asignado.

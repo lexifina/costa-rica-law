@@ -1,0 +1,2 @@
+ARTÍCULO 10. Cuenta oficial para envío masivo.
+El medio oficial para la distribución de correos masivos de relevancia institucional será la cuenta denominada Avisos UTN (avisosutn@utn.ac.cr), gestionada por la Dirección de Comunicación y Mercadeo. Asimismo, quedan cubiertas bajo este ámbito, las publicaciones relacionadas con actividades de integración institucional, tales como celebraciones sociales u otros eventos, las cuales deben gestionarse exclusivamente por medio de esta cuenta y cumplir con las disposiciones normativas vigentes.

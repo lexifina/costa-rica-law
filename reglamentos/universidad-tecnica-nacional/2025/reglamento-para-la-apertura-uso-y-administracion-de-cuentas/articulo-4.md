@@ -1,0 +1,3 @@
+ARTÍCULO 4. Naturaleza del correo institucional.
+Se entiende por cuenta de correo electrónico institucional aquella dirección de correo electrónico creada, administrada y asignada por la Universidad Técnica Nacional por medio de la Dirección de Gestión de Tecnologías de la Información, bajo el dominio oficial de la Institución. Su propósito exclusivo es facilitar la comunicación oficial, administrativa y académica entre las personas servidoras, personas estudiantes, dependencias institucionales u organizaciones vinculadas autorizadas.
+Dicha cuenta constituye un recurso tecnológico institucional para la comunicación, cuyo uso está sujeto a las políticas, normativas y directrices emitidas por la Universidad y sus instancias competentes.

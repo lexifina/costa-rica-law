@@ -1,0 +1,3 @@
+ARTÍCULO 9. Uso de cuentas con envío masivo.
+Las cuentas de correo electrónico institucional configuradas como listas de distribución o con capacidad de envío masivo son de uso exclusivo de las dependencias internas de la Universidad Técnica Nacional. El acceso y la utilización de dichas cuentas se limitan estrictamente al cumplimiento de fines institucionales y a la gestión universitaria en apego a la normativa vigente.
+El acceso o autorización para el uso de estas cuentas requiere la aprobación previa de la Rectoría, de los Decanatos, de la Dirección Ejecutiva del Centro de Formación Pedagógica y Tecnología Educativa o del órgano superior competente, según corresponda.

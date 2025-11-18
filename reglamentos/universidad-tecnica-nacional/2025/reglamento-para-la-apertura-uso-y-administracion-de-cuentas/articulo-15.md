@@ -1,0 +1,3 @@
+ARTÍCULO 15. Suspensión por inactividad.
+La Dirección de Gestión de Tecnologías de la Información debe suspender las cuentas de correo electrónico institucional que registren más de seis meses de inactividad. Previo a proceder con la suspensión por inactividad, debe comunicarse con la jefatura o autoridad superior responsable de la cuenta, para que esta valore la necesidad de mantenerla activa.
+De requerirse su continuidad, la autoridad competente debe presentar la justificación correspondiente. Si no se recibe respuesta o no se presenta una justificación válida en el plazo máximo de 10 días naturales, la cuenta debe ser suspendida.

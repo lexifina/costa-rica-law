@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Disposiciones finales
+ARTÍCULO 33. Responsabilidad de emisión normativa y su carácter vinculante.
+Las Direcciones de Administración Universitaria, de Gestión de Desarrollo Humano, de Gestión de Tecnologías de la Información, y de Comunicación y Mercadeo son las responsables de emitir la normativa técnica, según sus ámbitos de competencia relacionada con la aplicación del presente Reglamento, así como de divulgar y garantizar su conocimiento por parte de la comunidad universitaria y de las organizaciones vinculadas. En el caso específico de las personas estudiantes, además de los lineamientos que emitan las Direcciones de Gestión de Tecnologías de la Información y de Comunicación y Mercadeo, será también responsable la Vicerrectoría de Docencia, a través de la Dirección de Registro Universitario. Todas las personas usuarias están en la obligación de acatar la normativa específica emitida por las anteriores dependencias, en el ámbito que corresponda.

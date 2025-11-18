@@ -1,0 +1,4 @@
+ARTÍCULO 19. Uso responsable.
+Las personas estudiantes utilizan su cuenta institucional exclusivamente para fines académicos, administrativos y de comunicación con las instancias universitarias.
+El uso del correo institucional estudiantil se regula por las disposiciones establecidas en el presente Reglamento y por la normativa específica que emiten conjuntamente la Vicerrectoría de Docencia y la Dirección de Registro Universitario, debiendo observar los principios de respeto, veracidad, confidencialidad y responsabilidad social universitaria.
+El contenido de las comunicaciones debe respetar los principios de legalidad, respeto, veracidad, transparencia, confidencialidad, responsabilidad social institucional, derechos fundamentales, constitucionales y aquellos relacionados con la autodeterminación informativa.

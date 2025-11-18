@@ -1,0 +1,3 @@
+ARTÍCULO 20. Normativa complementaria.
+La Vicerrectoría de Docencia, a través de la Dirección de Registro Universitario, es responsable de emitir la normativa, lineamientos y regulaciones complementarias relacionadas con la apertura, uso, suspensión y administración del correo institucional para personas estudiantes, en armonía con el presente Reglamento y dentro del marco de las disposiciones institucionales y legales vigentes.
+Dicha normativa observa los principios de coherencia institucional, seguridad de la información, confidencialidad de los datos y uso adecuado de los recursos tecnológicos institucionales.

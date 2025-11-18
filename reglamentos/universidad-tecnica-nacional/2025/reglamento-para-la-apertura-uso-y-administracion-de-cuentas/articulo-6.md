@@ -1,0 +1,6 @@
+CAPÍTULO II
+Uso debido del Correo Electrónico Institucional
+ARTÍCULO 6. Contenido de las comunicaciones.
+Toda la información difundida o comunicación por medio de las cuentas de correo electrónico institucionales, tanto por personas servidoras y personas estudiantes, como por organizaciones vinculadas, debe ajustarse a la normativa vigente de la Universidad Técnica Nacional, incluyendo el Reglamento Autónomo de Gestión y Servicio y el Código de Deberes Éticos y Profesionales de los Funcionarios.
+El contenido de las comunicaciones debe respetar los principios de legalidad, respeto, veracidad, transparencia, confidencialidad, responsabilidad social institucional, derechos fundamentales, constitucionales y aquellos relacionados con la autodeterminación informativa.
+Este cumplimiento es obligatorio para toda persona u organización vinculada que haga uso del correo institucional, quienes deben enmarcar sus actuaciones dentro de los valores institucionales y velar porque la comunicación remitida por medios institucionales sea coherente con los principios, misión, visión, valores institucionales de la Universidad Técnica Nacional, el decoro y la ética exigidos a toda persona servidora, persona estudiante y organización vinculada.
