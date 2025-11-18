@@ -15,3 +15,4 @@ Reglamento de la policía de tránsito de la Municipalidad de Belén
 | --- | --- | --- |
 | 1 | 2022-04-20 | la propia norma |
 | 2 | 2022-10-04 | Reglamento municipal 58 (2022-10-04) |
+| 3 | 2025-11-18 | Reglamento municipal 67 (2025-11-18) |

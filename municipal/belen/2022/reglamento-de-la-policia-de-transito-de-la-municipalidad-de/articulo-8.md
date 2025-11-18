@@ -21,5 +21,6 @@ p. Formular los partes erróneamente en forma deliberada.
 q. Apropiarse indebidamente de objetos ajenos o de propiedad del Estado.
 r. Dar órdenes a sus subalternos para la ejecución de asuntos ajenos a su labor oficial.
 s. Dedicarse a tramitación de licencias, inscripción de vehículos y otros de esta índole.
-t. Usar indebidamente el dispositivo teléfono móvil laboral para asuntos personales. Se establece que se tendrán dos dispositivos teléfonos móviles uno por escuadra, si en el futuro las escuadras aumentarán, aumentaríamos el número de dispositivos teléfonos móviles, el supervisor de cada escuadra será el responsable del resguardo, cuido y uso que se le dé al dispositivo, el mismo debe quedar en base al finalizar labores.
+t) Usar indebidamente el dispositivo teléfono móvil laboral para asuntos personales. Los oficiales usarán para sus labores los dispositivos móviles que la administración les prevea, ya sea Hand Helds (colectores), tabletas u otro tipo de dispositivo que contenga línea telefónica para que cada oficial pueda responder a las solicitudes de la jefatura en cuanto a fotografías, realización de llamadas, coordinación con fiscalía, COSEVI u cualquier otra necesidad telefónica operativa que la administración le solicite al funcionario. Cada oficial será responsable del correcto uso del teléfono que se le brinde en la herramienta tecnológica que se le brinde.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 67- 2025del 18 de noviembre del 2025)
 u. Cualquier otro proceder contrario a las normas.
