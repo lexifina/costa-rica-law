@@ -1,0 +1,1 @@
+Artículo 13.-De la póliza de fidelidad: El cajero deberá estar cubierto por una Póliza de Fidelidad otorgada por el Instituto Nacional de Seguros, cuyo costo deberá ser cubierto por el propio funcionario.

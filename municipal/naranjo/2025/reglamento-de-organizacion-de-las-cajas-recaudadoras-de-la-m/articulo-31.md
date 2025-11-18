@@ -1,0 +1,1 @@
+Artículo 31.-Otros medios de pago: La Municipalidad, por medio de la Dirección Financiera y en acuerdo con el Tesorero Municipal, podrá autorizar el uso de cualquier otro medio de pago legalmente admitido, siempre que garantice la seguridad y permita un adecuado control de la recaudación.

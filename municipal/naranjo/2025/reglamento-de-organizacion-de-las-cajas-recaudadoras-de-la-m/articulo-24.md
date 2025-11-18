@@ -1,0 +1,1 @@
+Artículo 24.-Elaboración del depósito: Será responsabilidad del cajero elaborar los documentos de depósito correspondientes al dinero recaudado diariamente. Estos documentos deberán ser entregados, junto con la liquidación y demás documentación, al Departamento de Tesorería para su verificación.

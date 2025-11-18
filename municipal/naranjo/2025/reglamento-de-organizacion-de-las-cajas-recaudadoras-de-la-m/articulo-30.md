@@ -1,0 +1,1 @@
+Artículo 30.-Prohibición de cambio de cheques: Los fondos asignados a las cajas recaudadoras no podrán ser utilizados para el cambio de cheques de funcionarios o de terceras personas. Solo se podrán recibir cheques en los términos previstos en este reglamento, siempre que correspondan al pago de algún tributo municipal, con la excepción de los cheques relacionados con caja chica.

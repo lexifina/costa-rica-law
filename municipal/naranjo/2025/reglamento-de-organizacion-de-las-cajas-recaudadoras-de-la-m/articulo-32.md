@@ -1,0 +1,1 @@
+Artículo 32.-Norma supletoria: En caso de vacío en este reglamento, se aplicará supletoriamente la Ley de Administración Financiera de la República y Presupuestos Públicos y los lineamientos de la Contraloría General de la República.

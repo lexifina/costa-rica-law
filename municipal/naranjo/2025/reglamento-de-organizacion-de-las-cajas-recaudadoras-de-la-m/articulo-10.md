@@ -1,0 +1,1 @@
+Artículo 10.-Responsabilidades del Cajero: El cajero será responsable directo de los documentos, valores, enseres y equipo bajo su manejo. Además, deberá tomar las precauciones necesarias para garantizar la seguridad de sus funciones y reportar de inmediato cualquier circunstancia que afecte el desarrollo de su labor.

@@ -1,0 +1,1 @@
+Artículo 26.-Remesas parciales: A criterio del Tesorero Municipal y según el comportamiento de la recaudación diaria, los cajeros podrán elaborar remesas parciales, realizando al menos 3 o 4 depósitos al día. Cada remesa deberá ser registrada y firmada en la bitácora de recibido, como respaldo de los valores entregados para efectos de la liquidación.

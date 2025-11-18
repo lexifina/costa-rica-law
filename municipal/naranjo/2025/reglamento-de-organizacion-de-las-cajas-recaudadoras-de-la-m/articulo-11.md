@@ -1,0 +1,1 @@
+Artículo 11.-Seguridad de las cajas recaudadoras: Es responsabilidad de la administración implementar todas las medidas necesarias para garantizar la seguridad de los bienes y valores presentes en las cajas recaudadoras, así como la protección de las personas que las utilicen.

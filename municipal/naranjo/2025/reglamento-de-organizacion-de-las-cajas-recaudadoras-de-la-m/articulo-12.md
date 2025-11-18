@@ -1,0 +1,1 @@
+Artículo 12.-Horario de las Cajas Recaudadoras: Salvo en caso de horarios especiales que la administración autorice expresamente para garantizar una adecuada recaudación, las cajas recaudadoras funcionarán de lunes a viernes, de 8:00 a 15:30 horas.

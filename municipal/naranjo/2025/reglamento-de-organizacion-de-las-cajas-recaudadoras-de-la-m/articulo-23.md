@@ -1,0 +1,1 @@
+Artículo 23.-Sobrantes: Los sobrantes reportados como resultado del movimiento diario de las cajas recaudadoras, una vez verificados por el Departamento de Tesorería, deberán ser ingresados a las arcas municipales a más tardar el día hábil siguiente a su detección, mediante la emisión del respectivo comprobante de ingresos.

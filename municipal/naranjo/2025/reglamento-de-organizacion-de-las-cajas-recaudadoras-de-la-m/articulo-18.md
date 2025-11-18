@@ -1,0 +1,1 @@
+Artículo 18.-Pagos mediante cheque: Los pagos realizados mediante cheque estarán sujetos a que la Municipalidad pueda hacerlo efectivo, y esta condición deberá indicarse en el respectivo comprobante de ingreso. El cheque deberá estar girado a nombre de la Municipalidad de Naranjo.
