@@ -215,10 +215,12 @@ Requisitos específicos:
 a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Neumología.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 16.15. Subespecialidades Médicas de Neurocirugía
-16.15.1. Cirugía de Columna Vertebral.
+(*)16.15.1. Cirugía de Columna Vertebral.
+Se reconoce como sinónimo de esta subespecialidad, el siguiente término: Patología de la Columna Vertebral: Prevención, Manejo y Diagnóstico.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Columna Vertebral en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así reformado el inciso 16.15.1) anterior en sesión ordinaria 2025-11-19, celebrada el 19 de noviembre de 2025)
 16.15.2. Neurocirugía Pediátrica.
 Requisitos específicos:
 a) Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
@@ -308,10 +310,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 (*) (Así adicionada la subespecialidad anterior en sesión ordinaria 2024-10-16, celebrada el 16 de octubre de 2024)
 (**) (Así reformada la subespecialidad anterior en sesión ordinaria 2025-07-16, celebrada el 16 de julio de 2025)
 16.18. Subespecialidades Médicas de Ortopedia y Traumatología
-16.18.1. Cirugía de Columna Vertebral.
+(*)16.18.1. Cirugía de Columna Vertebral.
+Se reconoce como sinónimo de esta subespecialidad, el siguiente término: Patología de la Columna Vertebral: Prevención, Manejo y Diagnóstico.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Columna Vertebral en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Columna Vertebral en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así reformado el inciso 16.18.1) anterior en sesión ordinaria 2025-11-19, celebrada el 19 de noviembre de 2025)
 16.18.2. Cirugía en Mano.
 Se reconocen como sinónimo de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
 Requisitos específicos:
