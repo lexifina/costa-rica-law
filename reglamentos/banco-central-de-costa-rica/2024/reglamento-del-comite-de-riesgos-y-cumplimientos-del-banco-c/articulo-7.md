@@ -1,0 +1,1 @@
+Artículo 7. Asistencia de la Auditoría Interna. El Comité de Riesgos y Cumplimiento podrá invitar a participar en las sesiones al Auditor Interno o Subauditor Interno: su participación será con voz, pero sin voto, pudiendo hacer constar ambos, cuando lo consideren necesario y en las actas respectivas, sus opiniones sobre los asuntos que se debaten.
