@@ -1,0 +1,1 @@
+Transitorio I. Registro: Las personas físicas o jurídicas con colmenas. ya sea con fines comerciales o sin fines comerciales, tendrán un plazo de doce (12) meses a partir de la publicación del presente Reglamento para realizar el registro del meliponario.

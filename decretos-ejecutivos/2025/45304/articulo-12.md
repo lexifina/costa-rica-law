@@ -1,0 +1,10 @@
+TITULO IV
+CAPÍTULO ÚNICO
+REGULACIONES
+Artículo 12.- Establecimiento del meliponario: Para el establecimiento de meliponarios, el interesado deberá cumplir con las siguientes condiciones:
+a. En el entorno del meliponario se debe garantizar una abundante y diversa vegetación que sea de importancia para las especies de meliponas. Esta vegetación deberá incluir especies con hábitos arbóreos, arbustivos, herbáceos, bejucos y palmas que proporcionen recursos botánicos esenciales como polen, néctar, resinas, así como sitios adecuados para la nidificación.
+b. En el entorno del meliponario debe haber fuentes de agua limpia para suplir las necesidades de las especies demeliponinos.
+c. Establecer el meliponario lejos de sitios cercanos donde se desarrollen actividades agrícolas intensivas con uso de agroquímicos.
+d. Procurar que no exista ninguna fuente de contaminación tales como: aguas residuales domésticas o pecuarias, residuos químicos. abundancia de humo o fuego. aerosoles de pinturas. fermentos agrícolas expuestos. herbicidas. y en especial el uso indiscriminado de insecticidas, aunque sean orgánicos.
+e. La cantidad de colmenas por meliponario se establecerá según el tipo de actividad. Para la actividad con fines comerciales se permite un máximo de treinta (30) colmenas por meliponario, respetando los radios de desplazamiento según la especie (pequeñas. Medianas y grandes). Para la actividad sin fines comerciales se permite un máximo de cinco (5) colmenas.
+f. Entre el meliponario y la presencia de monocultivos (cítricos, melón, sandía, piña, tomate. chile. banano. entre otros), con uso de pesticidas debe existir una distancia mínima de quinientos metros (500 m) para especies pequeñas, dos kilómetros (2 km) para especies medianas y tres kilómetros y medio (3.5 km) para especies grandes. Si en dichos monocultivos se utiliza aeronaves para aplicar los agroquímicos o hay actividades de animales estabulados, la distancia debe superar las siguientes distancias: un kilómetro (1 Km) en especies pequeñas, dos kilómetros y medio (2.5 km) en especies medianas y cuatro kilómetros (4 km) en especies grandes.

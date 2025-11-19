@@ -1,0 +1,2 @@
+Artículo 11.- Sobre la actividad con o sin fines comerciales: Para fines comerciales, únicamente: se podrá utilizar aquellos productos y subproductos que se generen de las colmenas de las especies Tetragonisca angustula (Mariolas) y Scaptotrigona pectoralis (Soncuano). que son las más comunes empleadas en la meliponicultura de Costa Rica.
+En cuanto a las actividades sin fines comerciales. las meliponiculturas podrán hacer uso de otras especies de meliponinos, además, de las previamente mencionadas para fines comerciales.

@@ -1,0 +1,1 @@
+Artículo 4.- Ámbito de Aplicación: Este Reglamento aplica en todo el territorio nacional de Costa Rica y se extiende a todas las entidades públicas y privadas. así como personas físicas o jurídicas, relacionadas de manera directa o indirecta con la actividad de la meliponicultura.

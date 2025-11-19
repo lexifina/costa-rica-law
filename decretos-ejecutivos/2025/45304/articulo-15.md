@@ -1,0 +1,2 @@
+Artículo 15.- Prohibiciones: A las personas físicas o jurídicas que se relacionen de manera directa o indirecta con la actividad de la meliponicultura le aplican las siguientes prohibiciones:
+1. Se prohíbe el comercio, negocio, tráfico, transporte y/o trasiego de colmenas. Quien contravenga esta disposición será sancionado conforme a lo establecido en el artículo 95 de la Ley de Conservación de la Vida Silvestre N° 7317.

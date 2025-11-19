@@ -1,0 +1,1 @@
+Artículo 2.- Finalidad: Contar con un marco regulatorio que contribuya al logro de la seguridad alimentaria con soberanía, salud, conservación del medio ambiente y biodiversidad para bienestar de los costarricenses a través del desarrollo integral y sustentable de la meliponicultura.

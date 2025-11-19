@@ -1,0 +1,7 @@
+TÍTULO II
+CAPÍTULO ÚNICO
+RESPONSABILIDADES
+Artículo 5.- Exclusiones: Quedan excluidos de la aplicación del presente reglamento. toda actividad relacionada con la meliponicultura que implique el uso y acceso del recurso genético y bioquímico. en cuyo caso es competencia de CONAGEBIO. según lo establecido en la Ley de Biodiversidad Nº 7788.
+Este reglamento no se aplicará a las actividades de meliponicultura, vinculadas a las prácticas, usos y costumbres tradicionales sin fines de lucro. que se desarrollen en los terrenos declarados como territorio indígena. siempre y cuando la meliponicultura sea desarrollada por parte exclusiva de personas reconocidas como indígenas. ya sea por el Consejo de Mayores o la Asociación de Desarrollo Indígena según corresponda.
+Cualquier otra especie de meliponinos distinta a Tetragonisca angustula (Mariolas) y Scaptotrigona pectoralis (Soncuano), que se pretenda explotar comercialmente, por personas físicas o jurídicas, el interesado deberá presentar estudios científicos que fundamenten y justifiquen su posible aprovechamiento comercial sin poner en riesgo las especies y cumplir con la legislación vigente de conformidad con la Ley de Conservación de Vida Silvestre N° 7317 y su reglamento.
+Para actividades de conservación. educación. investigación. reproducción. Reintroducción, restauración y exhibición de meliponinos. regirán las disposiciones de la Ley de Conservación de la Vida Silvestre N.º 7317 sus reformas y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 9.- Solicitudes incompletas: Si la solicitud no reuniera los requisitos indicados. Se realizará una única prevención al interesado para que subsane los defectos señalados en el plazo de diez (10) días hábiles. Si transcurrido ese plazo no se subsanan los defectos indicados. se procederá con el archivo de esta de conformidad con la normativa vigente.
