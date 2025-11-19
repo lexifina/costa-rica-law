@@ -1,0 +1,6 @@
+N° 10785
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DEL DÍA NACIONAL DE LA
+CIMARRONA TRADICIONAL COSTARRICENSE
+ARTÍCULO 1- Se declara el 24 de julio de cada año como el Día Nacional de la Cimarrona Tradicional Costarricense.
