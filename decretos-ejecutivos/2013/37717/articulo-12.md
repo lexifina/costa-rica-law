@@ -15,7 +15,7 @@ Epidemiología.
 Epidemiología Clínica (Así adicionada la maestría anterior mediante sesión ordinaria N° 2015-07-15 del 15 de julio del 2015)
 Estimulación Temprana (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-02-20 del 20 de febrero del 2013)
 Farmacodependencia (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-06 del 6 de julio de 2016)
-Farmacología Clínica.
+Farmacología Clínica. Se reconoce como sinónimo de esta maestría, el siguiente término: Farmacología. (Así adicionado el párrafo anterior en sesión ordinaria 2025-11-19, celebrada el 19 de noviembre de 2025)
 Fisiología Humana.
 Gerontología. (Nota de Sinalevi: Mediante sesión N° 2021-04-28 del 28 de abril del 2021 se acordó reconocer el sinónimo de la Maestría en Gerontología Social como sinónimo de la Maestría en Gerontología)
 Gerencia de la Calidad (Así adicionada la maestría anterior mediante sesión ordinaria N° 2021-06.30 del 30 de junio del 2021)
