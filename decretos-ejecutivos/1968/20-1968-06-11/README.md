@@ -18,3 +18,4 @@ Crea Distritos Peralta La Suiza y Turrialba de Cartago
 | 3 | 1971-10-15 | Decreto Ejecutivo 2023 (1971-10-15) |
 | 4 | 1971-11-05 | Decreto Ejecutivo 2057 (1971-11-05) |
 | 5 | 2009-09-14 | Ley 8771 |
+| 6 | 2025-11-19 | Decreto Ejecutivo 45346 (2025-11-19) |
