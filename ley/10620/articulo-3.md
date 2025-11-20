@@ -5,3 +5,4 @@ Artículo 3°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 45135 del 14 de julio de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45202 del 16 de setiembre de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45245 del 16 de octubre de 2025)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45326 del 20 de noviembre del 2025)
