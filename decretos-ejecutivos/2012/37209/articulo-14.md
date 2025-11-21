@@ -1,1 +1,0 @@
-Artículo 14: Plazo. Cada uno de los estímulos que otorgará el Ministerio de Cultura y Juventud como parte del Programa será por un período de nueve meses, que van de marzo a noviembre de cada año siguiente al de la convocatoria.

@@ -1,1 +1,0 @@
-Artículo 19: Sobre la difusión de los proyectos ganadores. La información correspondiente a los proyectos ganadores será publicada en la página web del Ministerio de Cultura y Juventud, para que sea de acceso público.

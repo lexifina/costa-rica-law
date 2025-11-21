@@ -1,1 +1,0 @@
-Artículo 5: De las fechas de la convocatoria. El Colegio de Costa Rica será el órgano responsable de elaborar y publicar la convocatoria a comienzos del mes de marzo, a través de cualquier medio escrito de circulación nacional y de la página web del Ministerio de Cultura y Juventud.

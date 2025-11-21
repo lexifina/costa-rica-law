@@ -1,1 +1,0 @@
-Artículo 13: De la resolución administrativa. El Colegio de Costa Rica hará de conocimiento del Despacho del Ministro de Cultura y Juventud, el resultado de la convocatoria, con la finalidad que se proceda a la elaboración de la Resolución Administrativa correspondiente.
