@@ -14,3 +14,4 @@ Reglamento para la designación de los miembros representantes del sector privad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-30 | la propia norma |
+| 2 | 2025-11-21 | Decreto Ejecutivo 45446 (2025-11-21) |
