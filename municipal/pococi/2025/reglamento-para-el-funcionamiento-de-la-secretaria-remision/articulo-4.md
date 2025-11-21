@@ -1,0 +1,1 @@
+Artículo 4º-Independencia Administrativa. El Concejo Municipal, gozará de independencia administrativa, teniendo especialmente el deber de velar o fiscalizar el proyecto de presupuesto necesario para la unidad, que le permita el adecuado desarrollo de sus funciones.

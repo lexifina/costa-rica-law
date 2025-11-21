@@ -1,0 +1,1 @@
+Artículo 19.-Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la comisión que lo emiten. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la Comisión que no estuvieren de acuerdo, podrán rendir dictamen de minoría por separado.

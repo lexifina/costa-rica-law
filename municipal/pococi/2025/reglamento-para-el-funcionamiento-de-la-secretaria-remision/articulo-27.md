@@ -1,0 +1,1 @@
+Artículo 27.-De las Denuncias por Delitos. En los casos en los cuales la denuncia deje claro la comisión de un eventual Delito, al admitirse la misma el Concejo procederá según corresponda a remitirla a la Auditoría Interna, o en su defecto al Ministerio Público de conformidad con lo dispuesto en el capítulo II sección Primera del Código Procesal Penal.

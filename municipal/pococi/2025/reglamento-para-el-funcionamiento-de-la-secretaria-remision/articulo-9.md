@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la correspondencia
+Artículo 9º-Del recibo de la correspondencia. Será responsabilidad de la secretaria o secretario del Concejo Municipal, consecuentemente del personal a su cargo, recibir toda la correspondencia dirigida al Concejo Municipal, consignándole la respectiva "razón de recibido con su nombre y firma", la cual deberá contener obligatoriamente, hora, fecha y nombre de quien la entrega con su respectiva identificación. Caso de ser recibida mediante correo electrónico, postal o cualesquiera otro, se dejará constancia de la hora, fecha y medio respectivo, conjuntamente con el nombre del remitente. Este trámite podrá mecanizarse mediante un sello impreso que contengan los espacios necesarios para anotar la información indicada.
