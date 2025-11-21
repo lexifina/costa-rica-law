@@ -14,3 +14,4 @@ Comunicaemisión de resoluciones de la Dirección General de Servicio Civil (DE-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-08 | la propia norma |
+| 2 | 2025-11-21 | Resolución 367 (2025-11-21) |
