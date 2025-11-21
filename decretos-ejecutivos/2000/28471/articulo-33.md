@@ -1,3 +1,2 @@
-CAPITULO VIII
-De la Oficina de Prensa
-Artículo 33.—La Oficina de Prensa del Ministerio de Comercio Exterior estará a cargo de coordinar y organizar las actividades informativas y de difusión del Ministerio.
+CAPÍTULO VII: DE LA DIRECCIÓN DE ASESORÍA LEGAL
+Artículo 33.- Objeto. La Dirección de Asesoría Legal del Ministerio de Comercio Exterior tendrá a su cargo la asesoría jurídica del Ministerio en las áreas de su competencia.

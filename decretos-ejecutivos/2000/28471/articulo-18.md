@@ -1,4 +1,2 @@
-SECCION IV
-De la Unidad de Monitoreo del Comercio y la Inversión
-Artículo 18.—La Unidad de Monitoreo del Comercio y la Inversión mantendrá actualizada en sus archivos y por los medios adecuados, la información relativa al comercio internacional e inversión, de forma tal que pueda dar seguimiento a su evolución y generar los insumos y proveer la información necesaria que sea requerida por las distintas dependencias institucionales para el cumplimiento de los objetivos del Ministerio de Comercio Exterior. La Unidad de Monitoreo del Comercio y la Inversión también tendrá la función de realizar estudios de diagnóstico sobre el sector productivo nacional.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36678 del 27 de junio de 2011)
+SECCIÓN V: UNIDAD DE COMUNICACIÓN INSTITUCIONAL
+Artículo 18.- Objeto. La Unidad de Comunicación Institucional estará a cargo de coordinar y organizar las actividades informativas y de difusión del Ministerio. Así como de, fortalecer la imagen institucional a través de una asesoría oportuna y asertiva, como parte de la estrategia de comunicación institucional para la atención de los usuarios internos y externos de la institución.

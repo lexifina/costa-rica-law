@@ -1,15 +1,3 @@
-Artículo 11.—Esta Dirección estará a cargo del Director General de Comercio Exterior, a quien corresponderá:
-a) Asesorar al Ministro y al Viceministro en la definición y dirección de la política comercial externa, incluso la relacionada con Centroamérica
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-b) Implementar los lineamientos de la política comercial externa conforme hayan sido definidos por el Ministro y Viceministro.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-c) Coordinar las negociaciones comerciales bilaterales, regionales y multilaterales, incluido lo relacionado con Centroamérica y asegurar el cumplimiento de todos los compromisos asumidos en dichas negociaciones, tanto por Costa Rica como por sus contrapartes en dichos acuerdos.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-d) Colaborar en la implementación de la política arancelaria.
-e) Coordinar la adecuada representación del país ante la OMC y en los demás foros comerciales internacionales donde se negocien tratados, convenios y, en general temas de comercio.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-f) Proponer el establecimiento de mecanismos reguladores de exportaciones cuando ello sea necesario por la existencia de restricciones al ingreso de bienes costarricenses a otros países, ejecutar dichos mecanismos una vez establecidos por el Poder Ejecutivo y velar por su adecuado funcionamiento.
-g) Asegurar la correcta ejecución de las represalias comerciales que puedan adoptar las autoridades de la República al amparo de los acuerdos internacionales suscritos por Costa Rica.
-h) Coordinar y asegurar el óptimo funcionamiento de la Dirección de Negociaciones Comerciales Internacionales, la Dirección de Aplicación de Acuerdos Comerciales Internacionales y de la Unidad de Monitoreo del Comercio y la Inversión.
-i) Informar al público a través de diversos medios, incluyendo la página electrónica del Ministerio, sobre la evolución de las negociaciones en curso, así como sobre la puesta en práctica de los diferentes tratados, acuerdos y convenios sobre comercio e inversión suscritos por Costa Rica.
-j) Cualquier otra función que le sea encomendada por el Ministro o Viceministro.
+SECCIÓN II: DELEGACIÓN PERMANENTE DE COSTA RICA ANTE LA ORGANIZACIÓN
+PARA LA COOPERACIÓN Y EL DESARROLLO ECONÓMICOS (OCDE)
+Artículo 11.- Objeto. La Delegación Permanente de Costa Rica ante la Organización para la Cooperación y el Desarrollo Económicos es un órgano que forma parte de COMEX y depende de este para todos los efectos, de conformidad con lo dispuesto por el artículo 4 de la Ley Nº 9981 del 21 de mayo de 2021. Dicha Delegación ejercerá la adecuada representación del país ante la Organización para la Cooperación y el Desarrollo Económicos (OCDE), mediante iniciativas que potencien el máximo aprovechamiento de la membresía en favor de los intereses y prioridades nacionales y que contribuyan al impulso de los valores compartidos y los estándares internacionales de la organización.

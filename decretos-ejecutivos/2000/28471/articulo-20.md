@@ -1,3 +1,3 @@
-CAPITULO V
-De la Delegación Permanente de Costa Rica ante la Organización Mundial del Comercio
-Artículo 20.—La Delegación Permanente ante la OMC tendrá a su cargo el gestionar y ejecutar ante dicho foro los lineamientos de la política comercial externa del país formulados por el Ministro y Viceministro, según las instrucciones emitidas al efecto por la Dirección General de Comercio Exterior.
+CAPÍTULO V: DE LA DIRECCIÓN GENERAL DE COMERCIO EXTERIOR
+SECCIÓN I: DISPOSICIONES GENERALES
+Artículo 20.- Objeto. La Dirección General de Comercio Exterior (DGCE) tendrá a su cargo la ejecución y el seguimiento de la política comercial externa, incluso la relacionada con Centroamérica, la negociación de acuerdos comerciales internacionales y la vigilancia del cumplimiento de los compromisos asumidos por parte de Costa Rica y de sus contrapartes en estos instrumentos, así como la coordinación de la adecuada representación del país ante la Organización Mundial del Comercio (OMC) y otros foros internacionales donde se discutan temas comerciales.

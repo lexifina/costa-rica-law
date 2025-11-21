@@ -1,3 +1,3 @@
-SECCION II
-De la Dirección de Negociaciones Comerciales Internacionales
-Artículo 14.—La Dirección de Negociaciones Comerciales Internacionales tendrá a su cargo la negociación de tratados, convenios u otros instrumentos en el ámbito bilateral, regional o multilateral.
+SECCIÓN III: DEPARTAMENTO DE GESTIÓN FRONTERIZA Y DEL CONSEJO
+NACIONAL DE FACILITACIÓN DEL COMERCIO (CONAFAC)
+Artículo 14.- Objeto. El Departamento de Gestión Fronteriza y del Consejo Nacional de Facilitación del Comercio (CONAFAC) deberá velar por la implementación de mecanismos eficaces de facilitación del comercio, que fomenten el desarrollo de la infraestructura y la mejora de los procedimientos de importación, exportación y tránsito de mercancías y personas, de tal manera que se permita el acceso y la prestación de servicios a los usuarios en mejores condiciones de calidad, tiempo y costo.

@@ -1,3 +1,6 @@
-CAPITULO VI
-De la Oficialía Mayor
-Artículo 24.—La Oficialía Mayor será la instancia administrativa del Ministerio de Comercio Exterior responsable de la ejecución de las actividades relacionadas con la administración, la infraestructura informática, la proveeduría, los recursos humanos y el presupuesto del Ministerio.
+SECCIÓN II: DE LA DIRECCIÓN DE APLICACIÓN
+DE ACUERDOS COMERCIALES INTERNACIONALES
+Artículo 24.- Dirección de Aplicación de Acuerdos Comerciales Internacionales.
+1. Objeto. La Dirección de Aplicación de Acuerdos Comerciales Internacionales (DAACI) tendrá a su cargo la verificación del cumplimiento, tanto por parte del Gobierno de Costa Rica como por parte de los gobiernos de sus socios comerciales, de todas las obligaciones derivadas de los tratados, acuerdos y demás instrumentos comerciales o de inversión bilaterales, regionales o multilaterales, suscritos por el país, actuando de oficio o por denuncia. Esta Dirección también tendrá a su cargo la
+evaluación periódica de la aplicación de dichos tratados y acuerdos, tanto en términos económicos como jurídicos.
+2. Colaboración. Para tales efectos, el Ministerio de Comercio Exterior contará con la obligada colaboración de los funcionarios de los ministerios y las instituciones afines a la materia, en las áreas de su respectiva competencia. Asimismo, podrá establecer las comisiones o los grupos de trabajo que estime pertinentes, con la participación de funcionarios de dichos ministerios e instituciones, para que lo asesoren y apoyen en la aplicación de los acuerdos comerciales y de inversión suscritos por el país.

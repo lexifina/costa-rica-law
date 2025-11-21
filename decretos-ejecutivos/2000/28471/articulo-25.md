@@ -1,12 +1,23 @@
-Artículo 25.—La Oficialía Mayor estará a cargo del Oficial Mayor y Director Administrativo, a quien corresponderá
-(Así reformado el párrafo anterior mediante el artículo 1 del decreto ejecutivo N°33183 del 23 de junio del 2006).
-a) Dirigir la elaboración de los anteproyectos y proyectos del presupuesto institucional.
-b) Optimizar y reforzar los recursos informáticos actuales y requeridos en la Institución.
-c) Administrar el programa de reclutamiento y selección de personal de la Institución.
-d) Llevar el control y mantener actualizado el registro y trámites en materia de recursos humanos mediante la agilización de los servicios y su ejecución en el momento oportuno.
-e) Establecer un programa de higiene y salud ocupacional y de desarrollo social y recreación.
-f) Establecer y velar por el cumplimiento del programa de mantenimiento de la infraestructura y patrimonio institucional.
-g) Administrar y velar por el correcto uso y mantenimiento de los vehículos propiedad del Ministerio.
-h) Contribuir en la definición y divulgación de las políticas y estrategias en materia administrativa impulsadas por las autoridades superiores.
-i) Cumplir las normas y disposiciones legales y administrativas, velando por el eficiente desempeño de las funciones que le competen.
-j) Cualquier otra función que le sea encomendada por el Ministro o Viceministro, o que le corresponda de acuerdo con las leyes y reglamentos aplicables.
+Artículo 25.- Funciones.
+1. La Dirección de Aplicación de Acuerdos Comerciales Internacionales del Ministerio de Comercio
+Exterior, tendrá las siguientes funciones:
+a) Aplicar, en lo conducente, las directrices emanadas de la Dirección General de Comercio Exterior.
+b) Dar seguimiento a los compromisos asumidos por el Gobierno de Costa Rica en los tratados, convenios o cualquier otro instrumento suscrito en materia de comercio e inversión en el ámbito bilateral, regional o multilateral, en cada una de las áreas y foros que sean competencia del Ministerio de Comercio Exterior, así como velar por el cumplimiento de tales compromisos.
+c) Coordinar con las instituciones públicas competentes el cumplimiento de los compromisos referidos en el inciso anterior.
+d) Verificar el cumplimiento de las obligaciones asumidas en los tratados, convenios o cualquier otro instrumento suscrito por Costa Rica en materia de comercio e inversión, en el ámbito bilateral, regional o multilateral.
+e) Analizar la evolución de los flujos comerciales y el funcionamiento de los acuerdos, con fundamento en la información proporcionada tanto por las dependencias competentes del Ministerio o de otras carteras ministeriales, como por el sector privado, para que sobre esta base se identifiquen aspectos que deban ser objeto de negociaciones posteriores.
+f) Elaborar, semestralmente, para efectos de lo dispuesto en los incisos d) y e) anteriores, informes sobre el estado de cumplimiento de los compromisos asumidos con los principales socios comerciales de Costa Rica. Estos informes analizarán asuntos tales como la evolución de los flujos de las exportaciones e importaciones, la evolución de los flujos de inversión extranjera hacia Costa Rica y posibles medidas para facilitar y promover mayores flujos de comercio e inversión entre las partes.
+g) Identificar los obstáculos que enfrentan las exportaciones costarricenses en el exterior y promover las iniciativas del caso para procurar eliminarlos.
+h) Evaluar la aplicación de los tratados de libre comercio, acuerdos e instrumentos de comercio exterior, relativos a la aplicación de concesiones arancelarias, preferencias, contingentes, salvaguardas, impuestos compensatorios, régimen de reglas de origen, marcado de país de origen, normas técnicas y medidas fitosanitarias y sanitarias, así como otras medidas similares que se establezcan. Para estos efectos, los ministerios y las instituciones competentes en cada materia estarán obligados a prestar la debida colaboración que solicite la Dirección de Aplicación de Acuerdos Comerciales Internacionales.
+i) Preparar y publicar, una vez al año, un informe con las características señaladas en el inciso f), que pueda presentar de una manera sintetizada una evaluación global de los resultados, durante este período, de los tratados de libre comercio suscritos por el país.
+j) Coordinar con la Promotora del Comercio Exterior de Costa Rica, el mejor aprovechamiento de las oportunidades comerciales generadas por los tratados, convenios o cualquier otro instrumento suscrito por Costa Rica en materia de comercio e inversión a nivel bilateral, regional o multilateral.
+k) Podrá efectuar investigaciones sobre los temas de su interés, dentro de las competencias que le correspondan y requerir información a cualquier ente, privado o público; los segundos estarán obligados a proporcionarla, salvo que la consideren información confidencial, de conformidad con la legislación vigente. En igual forma, cuando lo estime conveniente, podrá contar con la presencia de técnicos y profesionales en áreas de interés, con el fin de que aporten criterios que sean considerados necesarios para el adecuado cumplimiento de los fines de esta Dirección.
+l) Canalizar sus resoluciones por medio de las instancias públicas correspondientes.
+m) Realizar actividades de información y divulgación al público sobre los acuerdos comerciales.
+n) Trasladar la información comercial relacionada con el sector agropecuario al Ministerio del ramo, para formular la política de seguridad alimentaria como componente de la Política Agropecuaria Nacional.
+ñ) Elaborar resoluciones en materia de aplicación de acuerdos comerciales, para su posterior publicación y coordinación con las instancias públicas que corresponda.
+o) Coordinar lo correspondiente a aquellas controversias en materia de comercio internacional entre Costa Rica y otros Estados.
+p) Fungir como Secretaría Técnica de la Comisión Administradora de Registro de Árbitros Elegibles (CARAE) creada mediante el "Reglamento del Registro de Elegibles para la Conformación de las Listas de Árbitros de los Acuerdos Comerciales Internacionales Ratificados por Costa Rica", Decreto Ejecutivo N° 35057-COMEX del 03 de febrero de 2009, o la norma que le suceda.
+q) Fungir, conjuntamente con la Dirección de Inversión, como Secretaría Técnica de la Comisión Interinstitucional para la Solución de Controversias Internacionales en materia de Comercio e Inversión (CISC) en la tramitación de los asuntos en materia de atención de controversias internacionales relacionadas con el comercio y la inversión.
+r) Cumplir cualquier otra función que le sea encomendada por el Ministro, el Viceministro o la Dirección General de Comercio Exterior.
+2. Del cumplimiento de las funciones anteriores, la Dirección presentará un informe anual ante el Consejo Consultivo de Comercio Exterior. Además, canalizará hacia el Ministro de Comercio Exterior los casos que ameriten la revisión o renegociación de un tratado, convenio o instrumento de comercio o inversión.

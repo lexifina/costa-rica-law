@@ -18,3 +18,4 @@ Reglamento Orgánico del Ministerio de Comercio Exterior.
 | 3 | 2005-05-26 | Decreto Ejecutivo 32401 (2005-05-26) |
 | 4 | 2006-06-23 | Decreto Ejecutivo 33183 (2006-06-23) |
 | 5 | 2011-06-27 | Decreto Ejecutivo 36678 (2011-06-27) |
+| 6 | 2025-11-21 | Decreto Ejecutivo 45446 (2025-11-21) |

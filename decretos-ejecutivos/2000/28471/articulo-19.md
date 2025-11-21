@@ -1,7 +1,16 @@
-Artículo 19.—La Unidad de Monitoreo del Comercio y la Inversión estará compuesta por un equipo de asesores especializados y estará a cargo de un coordinador, a quien corresponderá:
-a) Mantener actualizada en sus archivos y por los medios adecuados, la información relativa al comercio internacional, como exportaciones, importaciones y flujos de inversión extranjera directa hacia Costa Rica, entre otros; de forma tal que pueda dar seguimiento a su evolución y generar los insumos y proveer la información necesaria que sea requerida por la Dirección General de Comercio Exterior o por las distintas dependencias institucionales para el cumplimiento de los objetivos del Ministerio de Comercio Exterior.
-b) Elaborar y publicar, reportes que incluyan una síntesis de los flujos de comercio y de inversión referidos en el inciso a) de este artículo.
-c) Elaborar, de oficio o a petición de la Dirección General de Comercio Exterior o de las distintas dependencias institucionales, estudios de diagnóstico e impacto económico sobre algún sector productivo de bienes o servicios en particular.
-d) Recopilar y analizar cualquier otra información que le sea solicitada por la Dirección General de Comercio Exterior o por las distintas dependencias institucionales.
-Para efectos de cumplir con las funciones señaladas en este artículo, la Unidad de Monitoreo del Comercio y la Inversión contará con la colaboración de PROCOMER, la cual deberá proporcionar cualquier información que le sea solicitada así como el libre acceso a sus bases de datos estadísticos y el apoyo logístico necesario.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36678 del 27 de junio de 2011)
+Artículo 19.- Funciones. La Unidad de Comunicación Institucional tendrá a su cargo las siguientes funciones:
+a) Promover y organizar reuniones y visitas con los responsables de los medios de información orales, escritos, audiovisuales y otros, según lo requiera la estrategia de comunicación institucional definida por el Ministro o el Viceministro, con apoyo de los asesores técnicos.
+b) Diseñar boletines, comunicados de prensa u otros materiales de trascendencia para ser trasmitidos oportunamente a las diversas instancias del Ministerio, a la opinión pública u otros sectores a través de los distintos medios de comunicación.
+c) Preproducir, producir y posproducir materiales audiovisuales tanto de corte periodístico para las redes sociales, así como material informativo, documental y de comunicación interna.
+d) Monitorear y analizar la información generada en los programas noticiosos de radio, televisión y prensa nacional e internacional sobre asuntos que conciernen a COMEX.
+e) Mantener estrecho vínculo con los distintos comunicadores y líderes de opinión en los medios de comunicación del país.
+f) Responder en forma veraz y oportuna las consultas que formulen medios de comunicación relacionadas con la política comercial y de inversión del país, de conformidad con los lineamientos del Ministro o Viceministro.
+g) Apoyar a las dependencias de COMEX, cuando éstas lo requieran en la labor de divulgación o para transmitir información a los usuarios de los servicios que ofrece el Ministerio.
+h) Organizar conferencias de prensa, eventos, talleres, seminarios, charlas, u otras actividades de coordinación con los responsables de las distintas Direcciones de COMEX, sobre programas y proyectos institucionales para impartirlas a periodistas y personal acreditado de los medios de comunicación, así como funcionarios de otros órganos de la Administración Pública.
+i) Administrar y dar mantenimiento a la página web oficial del Ministerio y coordinar lo pertinente con las instancias institucionales para la generación de la información que se colocará en dicha plataforma.
+j) Apoyar en la creación de material multimedia de calidad para su publicación en las redes sociales con que cuente COMEX.
+k) Coordinar entrevistas en medios nacionales e internacionales y la participación en programas de opinión y secciones de opinión de los medios de comunicación.
+l) Asesorar al Ministro, Viceministra y Directores en temas de comunicación.
+m) Atender diariamente las consultas de prensa, así como alertar de manera proactiva sobre temas clave para el Ministerio de Comercio Exterior y su estrategia de comunicación.
+n) Fotografiar y registrar videos de las reuniones oficiales, actividades, visitas de personalidades internacionales y retratos oficiales de los jerarcas.
+ñ) Cualquier otra función que le sea encomendada por el Ministro o Viceministro.

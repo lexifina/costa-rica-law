@@ -1,13 +1,25 @@
-Artículo 15.—Esta Dirección estará a cargo del Director de Negociaciones Comerciales Internacionales, a quien corresponderá:
-a) Ejecutar las directrices emanadas de la Dirección General de Comercio Exterior en el cumplimiento de las funciones enumeradas en los artículos 10, 11 y 12 de este Reglamento.
-b) Elaborar o recopilar estudios sobre cada país con el cual Costa Rica celebre tratados, convenios o cualquier otro instrumento sobre comercio.
-Dichos estudios incluirán, entre otros aspectos, un perfil descriptivo del sector productivo de ese país, y un diagnóstico del marco regulatorio del comercio.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-c) Redactar las propuestas o contrapropuestas de textos base de las negociaciones comerciales.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-d) Negociar el texto de tratados, convenios y cualquier otro instrumento sobre comercio, sean éstos bilaterales, regionales o multilaterales.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-e) Una vez concluidas las negociaciones, preparar los textos y cumplir con las formalidades requeridas para que los mismos puedan ser firmados por la autoridad competente.
-f) Dar seguimiento a las negociaciones y acontecimientos en todos los foros comerciales bilaterales, regionales y multilaterales con el objeto de identificar los intereses de Costa Rica, así como de sus socios comerciales, en las diversas áreas temáticas de comercio.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 32401 del 26 de mayo del 2005)
-g) Cualquier otra función que le sea encomendada por el Ministro, Viceministro o la Dirección General de Comercio Exterior.
+Artículo 15.- Funciones. El Departamento de Gestión Fronteriza y del Consejo Nacional de Facilitación del Comercio (CONAFAC) tendrá a su cargo las siguientes funciones:
+a) Asesorar al Ministro y Viceministro de Comercio Exterior en la definición y dirección de la estrategia de facilitación del comercio del país.
+b) Proponer, evaluar y supervisar programas especializados para facilitar el comercio en Costa Rica, con atención de los mecanismos necesarios para mejorar la competitividad del país.
+c) Proponer y coordinar acciones tendientes a la reducción de tiempos y costos que limiten o dificulten la fluidez del comercio exterior.
+d) Identificar cuáles son las restricciones prácticas y otras barreras que afecten la competitividad del comercio exterior, en estrecha coordinación con el sector privado.
+e) Proponer, ejecutar y evaluar medidas técnicas y asuntos de operación logística internacional y de comercio exterior vinculados a la integración física y de procesos de los puertos, aeropuertos y puestos fronterizos terrestres.
+f) Desarrollar políticas nacionales en materia de logística internacional y de comercio exterior vinculada a la integración física y fronteriza en atención al ciclo de la política pública y su sostenibilidad.
+g) Promover acciones relacionadas con la implementación, funcionamiento y administración de plataformas tecnológicas que faciliten el comercio exterior, entre otros, la Ventanilla Única de Comercio Exterior (VUCE), la Ventanilla Única de Inversión (VUI) y el Portal de Comercio Exterior.
+h) Promover, planificar y ejecutar procesos de reingeniería de operaciones técnicas en los puestos fronterizos, atendiendo aspectos organizacionales y de carácter informático.
+i) Proponer, coordinar e implementar convenios de colaboración interinstitucionales en temas relacionados con los procedimientos operacionales de importación, exportación y tránsito de mercancías y personas.
+j) Velar por la ejecución e implementación de mejoras y modernización de la infraestructura portuaria, aeroportuaria y de puestos fronterizos terrestres.
+k) Garantizar el mantenimiento, operación y uso adecuado de la infraestructura y el equipamiento de los puestos fronterizos terrestres construidos en el marco del Programa de Integración Fronteriza (PIF), de conformidad con las disposiciones contempladas en la Ley N° 9451 del 31 de mayo de 2017, así como de otras iniciativas relacionadas, asegurando su sostenibilidad y funcionamiento continuo.
+l) Apoyar a la Dirección General de Comercio Exterior en los capítulos relacionados con facilitación del comercio que se incorporen en acuerdos comerciales bilaterales, regionales y multilaterales.
+m) Informar al público a través de diversos medios, incluyendo la página electrónica del Ministerio y el Portal de Comercio Exterior, sobre la implementación de medidas de facilitación del comercio gestionadas tanto por COMEX como por otras instituciones de control fronterizo.
+n) Promover y apoyar a los Comités Locales de Facilitación del Comercio de conformidad con lo dispuesto en el "Reglamento de Organización y Funcionamiento de los Comités Locales de Facilitación del Comercio y Creación de la Figura del Coordinador de Frontera", Decreto Ejecutivo N° 43054-H-COMEX del 10 de marzo de 2021; o la norma que le suceda.
+ñ) Velar por el adecuado funcionamiento de los Comités Locales de Facilitación del Comercio.
+o) Coordinar y asegurar el óptimo funcionamiento del Consejo Nacional de Facilitación del Comercio (CONAFAC).
+p) Fungir como Secretaría Técnica del CONAFAC de conformidad con el "Reglamento de Organización y Funcionamiento del Consejo Nacional de Facilitación del Comercio", Decreto Ejecutivo N° 41123-COMEX del 20 de marzo de 2018; o la norma que le suceda.
+q) Facilitar la coordinación y relaciones de cooperación entre las distintas entidades de control fronterizo.
+r) Asesorar a los jerarcas ministeriales en la definición y dirección de la estrategia e instrumentos de trabajo y monitoreo del CONAFAC.
+s) Coordinar y dar seguimiento a la Comisión de Tecnologías de la Información (TI) - Ventanilla Única de Comercio Exterior (VUCE), a la Comisión Normativa y Mejora de Procesos, a la Comisión Ejecutiva y a cualquier otro órgano colegiado conforme a lo establecido en el artículo 4 de la Ley N° 9430 del 04 de abril de 2017.
+t) Elaborar el anteproyecto de presupuesto para la asignación de las sumas recaudadas mediante el tributo creado por la Ley N° 9154 del 03 de julio de 2013; y velar por la debida ejecución de los montos que, sobre la base de dicha propuesta, lleguen a ser asignados a entidades y órganos de la Administración Pública en el Presupuesto Ordinario de la República para cada ejercicio económico.
+u) Proponer proyectos interinstitucionales para agilizar y hacer más eficiente el comercio exterior.
+v) Dar seguimiento a la ejecución de los proyectos de facilitación del comercio aprobados por el CONAFAC.
+w) Cualquier otra función encomendada por el Ministro o Viceministro de Comercio Exterior; o el CONAFAC.

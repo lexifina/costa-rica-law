@@ -1,9 +1,10 @@
-Artículo 34.—La Oficina de Prensa estará a cargo de un profesional, a quien corresponderá:
-a) Promover y organizar reuniones y visitas con los responsables de los medios de información orales, escritos, audiovisuales y otros para coordinar y definir estrategias a seguir en cuanto a la labor de información;
-b) Diseñar boletines, comunicados de prensa u otro material de trascendencia para ser trasmitido oportunamente a las diversas instancias del Ministerio, a la opinión pública u otros sectores a través de los distintos medios de comunicación.
-c) Monitorear y analizar la información generada en los programas noticiosos de radio, televisión y prensa escrita nacional e internacional sobre asuntos que conciernen al Ministerio de Comercio Exterior;
-d) Mantener un estrecho vínculo con los distintos medios de comunicación del país;
-e) Responder en forma veraz y oportuna las informaciones relacionadas con el Ministerio de Comercio Exterior y la política comercial y de inversión del país, de conformidad con los lineamientos del Ministro o Viceministro.
-f) Apoyar a las otras dependencias del Ministerio de Comercio Exterior, cuando éstas lo requieran en la labor de divulgación o para transmitir información a los usuarios de los servicios que ofrece el Ministerio;
-g) Organizar seminarios, charlas, talleres u otras actividades en coordinación con los responsables de las distintas Direcciones del Ministerio de Comercio Exterior, sobre programas y proyectos institucionales para impartirlas a los periodistas y funcionarios de los medios de comunicación.
-h) Cualquier otra función que le sea encomendada por el Ministro o Viceministro.
+Artículo 34.- Funciones. La Dirección de Asesoría Legal estará a cargo del Director Legal del Ministerio, a quien corresponderán, con el apoyo del personal de la Dirección, las siguientes funciones:
+a) Asesorar y tramitar para el Ministro, Viceministro y demás dependencias del Ministerio, los asuntos jurídicos que le sometan a su conocimiento en materias relacionadas con la competencia del Ministerio.
+b) Evacuar consultas de los órganos de COMEX, entidades y órganos del Sector Público y los particulares relativas a la interpretación y aplicación de leyes y normas relacionadas con la competencia del Ministerio.
+c) Elaborar y revisar los proyectos de ley, decretos, reglamentos, acuerdos, resoluciones y contratos.
+d) Examinar y dictaminar la legalidad de las resoluciones que preparen las unidades administrativas del Ministerio. Al efecto, se establece la consulta obligatoria cuando la materia por resolver involucre aspectos de interpretación y aplicación de leyes, así como cuando el acto que se dicte agote la vía administrativa.
+e) Emitir criterio en vía administrativa con respecto a todos los reclamos que presenten los servidores públicos y los administrados contra el Ministerio o alguno de sus funcionarios en materias relacionadas con la competencia de COMEX.
+f) Tramitar, en coordinación con el Departamento de Recursos Humanos, las gestiones de despido contra los funcionarios ante el Tribunal del Servicio Civil.
+g) Coordinar con la Procuraduría General de la República, la Contraloría General de la República y demás instituciones y órganos públicos, cuando la materia así lo requiera.
+h) Revisar las recomendaciones de PROCOMER relativas al otorgamiento y fiscalización de los regímenes especiales de exportación que competen al Ministerio, así como recomendar el Ministro el inicio de los procedimientos administrativos que se requieran en relación con empresas beneficiarias de dichos regímenes y dirigir tales procedimientos administrativos.
+i) Realizar cualquiera otra tarea de índole jurídica por encargo del Ministro o Viceministro.

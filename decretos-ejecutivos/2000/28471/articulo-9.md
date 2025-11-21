@@ -1,1 +1,1 @@
-Artículo 9º—El Viceministro tendrá supervisión directa sobre todo lo relacionado con nombramientos y ascensos, tanto internos como externos, así como presupuesto y asuntos financieros del Ministerio, sin perjuicio de las potestades del Ministro al respecto.
+Artículo 9.- Superior Administrativo. Un Viceministro tendrá supervisión directa sobre todo lo relacionado con nombramientos y ascensos, tanto internos como externos, así como presupuesto y asuntos financieros del Ministerio, sin perjuicio de las potestades del Ministro al respecto.

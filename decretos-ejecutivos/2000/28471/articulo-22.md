@@ -1,1 +1,4 @@
-Artículo 22.—La Delegación Permanente formará parte del Ministerio de Comercio Exterior y dependerá de él para todos los efectos.
+Artículo 22.- Organización.
+1. Para cumplir con sus funciones, la Dirección General de Comercio Exterior contará con la Dirección de Aplicación de Acuerdos Comerciales Internacionales y la Delegación Permanente de Costa Rica ante la OMC.
+2. Asimismo, con el objeto de lograr un óptimo desempeño de sus funciones, la Dirección General de Comercio Exterior contará con un equipo de asesores especializados en cada uno de los foros temáticos, áreas geográficas, foros multilaterales y regionales; que son normalmente abordados en los tratados, acuerdos y demás instrumentos comerciales o de inversión.
+3. Cuando se trate de temas relacionados con inversión o con la Organización para la Cooperación y el Desarrollo Económicos (OCDE), la Dirección General de Comercio Exterior apoyará y coordinará lo pertinente, ya sea con la Dirección de Inversión o con la Delegación Permanente de Costa Rica ante la OCDE.
