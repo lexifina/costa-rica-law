@@ -15,3 +15,4 @@ Reglamento de parques y zonas verdes de la Municipalidad de Puriscal
 | --- | --- | --- |
 | 1 | 2023-11-10 | la propia norma |
 | 2 | 2024-07-12 | Reglamento municipal 0 (2024-07-12) |
+| 3 | 2025-11-21 | Reglamento municipal 116 (2025-11-21) |
