@@ -14,3 +14,4 @@ Reglamento para regular el teletrabajo en el Ministerio de Justicia y Paz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-10 | la propia norma |
+| 2 | 2025-11-24 | Decreto Ejecutivo 45402 (2025-11-24) |

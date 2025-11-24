@@ -1,12 +1,11 @@
-Artículo 10.-Obligaciones de la Persona Teletrabajadora.
-La persona teletrabajadora estará obligada a cumplir lo acordado en el contrato de teletrabajo y las siguientes condiciones:
+Artículo 10.-Obligaciones de la persona teletrabajadora. La persona teletrabajadora, estará en la obligación de acatar lo establecido en el contrato de teletrabajo y de dar estricto cumplimiento a las condiciones que se detallan a continuación.
 a) Cumplir con el horario y la jornada laboral contratada y establecida por el Ministerio de Justicia y Paz.
 b) Estar disponible y accesible para atender asuntos de su superior inmediato, personas compañeras y personas usuarias relacionadas con sus funciones, por medio del correo institucional, Internet, vía telefónica y cualquier otro tipo de plataforma que permita la efectiva comunicación.
-c) Informar al superior inmediato cualquier eventualidad que impida la ejecución de su labor en la modalidad de teletrabajo, en un plazo no mayor a una hora, después del momento de tener conocimiento de la posible limitación.
-d) Tener la debida custodia y cuido de los documentos, herramientas e insumos de trabajo que se le faciliten para el buen desempeño de sus funciones.
+c) Informar a la jefatura inmediata, sobre cualquier eventualidad que impida la ejecución de sus labores bajo la modalidad de teletrabajo, dentro de un plazo máximo de una hora, a partir del momento en que tenga conocimiento de la limitación.
+d) Velar por la adecuada custodia, uso y conservación del equipo de cómputo, sus accesorios, así como de los documentos, herramientas e insumos de trabajo que le sean asignados para el buen desempeño de sus funciones.
 e) Atender y cumplir con el procedimiento de la asignación del trabajo establecido por la Jefatura Inmediata y la entrega del trabajo por parte de la persona teletrabajadora.
-f) Conocer y cumplir las medidas de seguridad informáticas.
-g) Presentar ante su jefatura inmediata los informes periódicos de las tareas encomendadas para el teletrabajo.
-h) Cumplir con las condiciones del entorno, ambientales, ergonómicos, equipamiento tecnológico y de conectividad con las que debe contar la persona trabajadora para desempeñarse en la modalidad de teletrabajo.
-i) Mantenerse en conectividad constante y efectiva durante toda la jornada laboral de teletrabajo, mediante los instrumentos tecnológicos que la Administración indique o que se hayan determinado en los contratos de teletrabajo.
-j) Las demás obligaciones contenidas en el contrato o acuerdo de teletrabajo, en el Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz y la legislación costarricense.
+f) Acceder a la red institucional únicamente desde dispositivos proporcionados y configurados por la institución, que cuenten con las medidas de seguridad aprobadas.
+g) Utilizar de manera adecuada las credenciales institucionales, por lo que no se deberá compartir las mismas con terceras personas, ni almacenar las contraseñas en navegadores o archivos no seguros, debiendo cambiar periódicamente las contraseñas según las políticas institucionales.
+h) No conectarse a la red institucional desde redes Wi-Fi públicas o no seguras.
+i) Informar de manera inmediata al Departamento de Tecnología de la Información de cualquier actividad sospechosa.
+(Así reformado por el artículo 1° del 45402 del 24 de noviembre de 2025)
