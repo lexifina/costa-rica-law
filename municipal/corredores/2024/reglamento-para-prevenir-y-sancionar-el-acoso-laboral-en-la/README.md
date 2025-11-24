@@ -14,3 +14,4 @@ Reglamento para prevenir y sancionar el acoso laboral en la Municipalidad de Cor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-01 | la propia norma |
+| 2 | 2025-11-24 | Reglamento municipal 79 (2025-11-24) |
