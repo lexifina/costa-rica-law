@@ -17,3 +17,4 @@ Reglamento de Arreglos de Pago de Operaciones de Crédito de la Junta de Pension
 | 2 | 2017-10-23 | Reglamento 118 (2017-10-23) |
 | 3 | 2019-05-03 | Reglamento 50 (2019-05-03) |
 | 4 | 2021-11-04 | Reglamento 123 (2021-11-04) |
+| 5 | 2025-11-25 | Reglamento 130 (2025-11-25) |
