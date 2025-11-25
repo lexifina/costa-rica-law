@@ -1,1 +1,0 @@
-Artículo 18.—Al salir cada camión o cualquier otro medio de transporte de ganado, se extenderá una orden de salida por parte de la administración de la Subasta con la cual se deberá solicitar al puesto policial más próximo la emisión de la correspondiente Guía de Transporte.

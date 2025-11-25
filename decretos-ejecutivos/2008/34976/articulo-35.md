@@ -1,1 +1,0 @@
-Artículo 35.—Cualquier conflicto que surja por la aplicación del presente Reglamento, o de otra índole, durante el desarrollo de las subastas, deberá resolverse inicialmente con el Administrador y los dueños de las mismas. Lo resuelto por éstos, en caso de inconformidad de los interesados, podrá elevarse a conocimiento del SENASA, el cual resolverá de conformidad.

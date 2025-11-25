@@ -1,1 +1,0 @@
-Articulo 5º—Toda subasta como medio de prueba de los acontecimientos del día, y en especial de los precios en que fueron subastados los animales (Corro), deberá llevar un registro magnetofónico y conservarlos por un período de treinta días naturales.
