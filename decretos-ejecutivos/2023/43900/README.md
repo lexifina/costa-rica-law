@@ -14,3 +14,4 @@ Prohibición de captura, retención a bordo, transbordo, descarga, almacenamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-28 | la propia norma |
+| 2 | 2025-11-25 | Decreto Ejecutivo 45361 (2025-11-25) |

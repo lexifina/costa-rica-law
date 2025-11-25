@@ -15,8 +15,9 @@ VIII.-Que, en esa línea, los pescadores costarricenses de palangre reconocen la
 IX.-Que a pesar de que no existe ninguna norma jurídica que lo disponga, los pescadores de palangre, unilateralmente y de manera voluntaria y participativa como un servicio ambiental, se han comprometido a la implementación de buenas prácticas para la manipulación y liberación de los tiburones martillo (Sphyrnidae) que son capturados durante la faena de pesca.
 X.-Que de manera conjunta el Ministerio de Ambiente y Energía y el Instituto Costarricense de Pesca y Acuicultura (INCOPESCA) suscribieron en el mes de octubre del 2022, un acuerdo conjunto de intenciones denominado Medidas vinculantes para la conservación, protección y gestión sostenible de las especies de tiburones regulados por las diferentes Organizaciones Regionales de Ordenación Pesquera (OROPs), convenciones internacionales tales como la Convención Internacional para el Comercio de Especies Amenazadas de Fauna y Flora Silvestres (CITES), la Convención sobre Especies Migratorias (CMS); además mediante Acuerdos de Junta Directiva del INCOPESCA y Resoluciones del SINAC; cuyo objetivo es la conservación, manejo pesquero y promoción de la gestión sostenible de los servicios ecosistémicos brindados por las especies de tiburones. Por tanto;
 Decretan:
-PROHIBICIÓN DE CAPTURA, RETENCIÓN A BORDO,
-TRANSBORDO, DESCARGA, ALMACENAMIENTO V
-COMERCIALIZACIÓN DE PRODUCTOS Y SUBPRODUCTOS
-DE LOS TIBURONES MARTILLO (SPHYRNIDAE)
-Artículo 1º-Se prohíbe la captura, retención a bordo, transbordo, descarga, almacenamiento, y comercialización de productos y subproductos de los tiburones martillo (Sphyrnidae).
+PROHIBICIÓN DE CAPTURA, RETENCIÓN A BORDO, TRANSBORDO, DESCARGA,
+ALMACENAMIENTO, TRANSITO Y COMERCIALIZACIÓN DE PRODUCTOS Y
+SUBPRODUCTOS DE LOS TIBURONES MARTILLO SPHYRNIDAE"
+(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 45361 del 25 de noviembre del 2025. Anteriormente se denominaba " PROHIBICIÓN DE CAPTURA, RETENCIÓN A BORDO, TRANSBORDO, DESCARGA, ALMACENAMIENTO Y COMERCIALIZACIÓN DE PRODUCTOS Y SUBPRODUCTOS DE LOS TIBURONES MARTILLO (SPHYRNIDAE)")
+Artículo 1: Se prohíbe la captura, retención a bordo, transbordo, descarga, almacenamiento, tránsito y comercialización de productos y subproductos de los tiburones martillo familia Sphyrnidae en aguas jurisdiccionales, puertos, aeropuertos y cualquier punto de ingreso o salida del territorio nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45361 del 25 de noviembre del 2025)
