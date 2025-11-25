@@ -15,3 +15,4 @@ Reglamento de concejos de distrito
 | --- | --- | --- |
 | 1 | 2017-11-24 | la propia norma |
 | 2 | 2024-09-03 | Reglamento municipal 18 (2024-09-03) |
+| 3 | 2025-11-25 | Reglamento municipal 82 (2025-11-25) |

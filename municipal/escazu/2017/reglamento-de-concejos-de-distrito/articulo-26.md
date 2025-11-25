@@ -1,2 +1,2 @@
-Artículo 26.-Los Concejos de Distrito contarán persona funcionaria municipal administrativa que fungirá como secretaria de estos para que brinde asistencia y apoyo administrativo, cuyo nombramiento será competencia de la Administración Municipal, de conformidad con el artículo 59 del Código Municipal.
-(Así reformado mediante sesión ordinaria N° 18 del 3 de setiembre de 2024)
+Artículo 26.-Los Concejos de Distrito contarán con una persona funcionaria municipal administrativa que fungirá como apoyo a la secretaria del Concejo de Distrito, esto para que brinde asistencia y apoyo administrativo, cuyo nombramiento será competencia de la Administración Municipal, de conformidad con el artículo 59 del Código Municipal.
+(Así reformado en sesión N° 082 del 25 de noviembre de 2025)
