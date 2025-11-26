@@ -1,0 +1,1 @@
+Artículo 18.-Medidas Especiales establecidas por la Ley General de Salud. Toda infracción a las disposiciones del presente reglamento que afecten la salud humana dará lugar a la aplicación de medidas especiales establecidas en los artículos 355, 356, 357 siguientes y concordantes de la Ley N° 5395 del 30 de octubre de 1973 "Ley General de Salud".

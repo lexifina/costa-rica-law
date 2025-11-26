@@ -1,0 +1,1 @@
+Artículo 12.- Consideraciones meteorológicas. La aplicación terrestre de agroquímicos, no se puede realizar en condiciones de humedad relativa menores a 60%, temperaturas superiores a 35°C, en presencia de lluvia y con velocidades del viento superiores a los 12 km/h, excepto cuando se trabaja con agricultura protegida.

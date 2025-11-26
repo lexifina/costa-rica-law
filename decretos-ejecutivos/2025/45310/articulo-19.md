@@ -1,0 +1,1 @@
+Artículo 19.- Infracciones Administrativas a la Ley Orgánica del Ambiente. Toda infracción a las disposiciones del presente reglamento que afecten el ambiente, dará lugar a la aplicación de medidas especiales establecidas en los artículos 98, 99, 100 y 101 de la Ley N° 7554 del 04 de octubre 1995 "Ley Orgánica del Ambiente".

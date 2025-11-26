@@ -1,0 +1,1 @@
+Artículo 13. Mantenimiento y calibración de equipos de aplicación. Se debe realizar el mantenimiento y calibración de los equipos de aplicación de agroquímicos con una frecuencia anual o menor de acuerdo con la recomendación del fabricante.
