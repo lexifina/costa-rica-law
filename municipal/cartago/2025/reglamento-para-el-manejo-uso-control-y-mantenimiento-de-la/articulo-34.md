@@ -1,0 +1,1 @@
+Articulo 34. Circulación de vehículos fuera del país. Ningún vehículo podrá circular fuera del territorio nacional sin la debida justificación de la jefatura inmediata de la unidad solicitantes, dicha justificación le corresponde al Alcalde Municipal emitir autorización por medio de oficio y notificará al Coordinador de transportes para su conocimiento.

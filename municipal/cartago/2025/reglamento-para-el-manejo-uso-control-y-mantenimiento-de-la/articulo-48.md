@@ -1,0 +1,1 @@
+Artículo 48. El conductor que, con conocimiento de un daño causado con el vehículo municipal, al mismo vehículo o a un particular, y lo oculte, asumirá la responsabilidad administrativa, civil y penal que se le demuestre.

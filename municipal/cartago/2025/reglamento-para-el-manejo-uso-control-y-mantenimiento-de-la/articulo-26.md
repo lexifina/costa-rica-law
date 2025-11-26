@@ -1,0 +1,1 @@
+Artículo 26. Inventario de vehículos. Se deberán realizar inventarios periódicos de todos los vehículos propiedad de la Municipalidad, a efecto de verificar la existencia, localización, estado físico y mecánico de todos los vehículos de la Municipalidad. Los inventarios son responsabilidad del coordinador de transportes en coordinación con la Unidad de Activos Municipal.

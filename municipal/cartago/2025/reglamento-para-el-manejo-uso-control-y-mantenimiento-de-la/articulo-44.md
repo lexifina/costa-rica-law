@@ -1,0 +1,1 @@
+Artículo 44. Obligación del Departamento de Transportes en caso de accidente o percance. El Coordinador del Departamento de Transportes investigará todo accidente de tránsito, robo, hurto o uso inadecuado en que se involucre un vehículo propiedad de la Municipalidad y rendirá un informe con recomendaciones a la Alcaldia Municipal.

@@ -1,0 +1,2 @@
+Artículo 23. Uso del lugar de estacionamiento para vehículos municipales.
+Se prohíbe el estacionamiento de vehículos particulares, en los espacios de parqueo reservado a vehículos municipales, o en su defecto, en el espacio que la Municipalidad haya contratado o destinado previamente para tal efecto, el coordinador de transportes será la persona autorizada para llevar este control y asignación de espacios dentro del parqueo ubicado en el Plantel Municipal.

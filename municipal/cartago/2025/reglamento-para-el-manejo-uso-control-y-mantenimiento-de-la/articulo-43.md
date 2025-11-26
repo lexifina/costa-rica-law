@@ -1,0 +1,8 @@
+Artículo 43. Del procedimiento en general. Si durante una gira o en cumplimiento de deberes ocurriere un accidente, el conductor y sus acompañantes deberán proceder de la siguiente manera:
+a. Dar aviso a la Policía de Tránsito y al Ente asegurador del vehículo y no mover el vehículo hasta que los mismos se apersonen al lugar y realicen su labor.
+b. Obtener información sobre las personas afectadas en el accidente y los testigos si los hubiere.
+c. Dar aviso en forma inmediata a su Jefe Inmediato.
+d. Dar aviso al Departamento de Transportes, para que se le giren instrucciones y se tomen las medidas del caso.
+e. El funcionario que condujere el vehículo municipal involucrado deberá presentar ante el Departamento de Transportes con copia a su superior inmediato, un informe que se elaborará en el formato definido por el Departamento de Transportes. Dicho informe se presentará en un término máximo de día hábil siguiente, y al mismo deberán adjuntarse una copia de la boleta de citación extendida por la autoridad de tránsito y de la boleta extendida por el funcionario del ente asegurador.
+f. Atender y cumplir con el proceso judicial. Para tal efecto, se presentará dentro del plazo legal ante el Juzgado competente a rendir declaración. También deberá someterse a todas las etapas del proceso.
+De no cumplir con lo anterior, además de la sanción disciplinaria que corresponda de conformidad con el ordenamiento jurídico, le corresponderá al conductor involucrado asumir la reparación, el papeleo, gastos y demás inconvenientes que resulten del accidente e inobservancia de lo dispuesto en este Reglamento.

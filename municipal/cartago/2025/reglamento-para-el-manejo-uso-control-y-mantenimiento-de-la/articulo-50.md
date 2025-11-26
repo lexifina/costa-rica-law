@@ -1,0 +1,3 @@
+Capítulo XI: Del régimen de sanciones
+Artículo 50. Incumplimiento de funcionarios del Departamento de Transportes. Si la Alcaldía Municipal, Direccion Administrativa financiera determina que algún funcionario del Departamento de Transportes está incumpliendo con las labores y deberes asignadas mediante el presente reglamento, podrá proceder a dar apertura a un procedimiento administrativo, con el fin de que se valore la posibilidad o no de una eventual sanción.
+Respetando lo dispuesto, entre otra normativa, por el Código de Trabajo, Código Municipal, Ley General de Administración Pública, Reglamentos Municipales y el debido proceso

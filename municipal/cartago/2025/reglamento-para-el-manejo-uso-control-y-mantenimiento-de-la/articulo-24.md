@@ -1,0 +1,1 @@
+Artículo 24. Uso de los vehículos en días inhábiles. La circulación de vehículos en horas y días inhábiles, estará restringido a casos especiales en que se amerite para desarrollar las funciones inherentes a la Municipalidad, el director de área o encargado de área u departamento, deberá hacer la solicitud del servicio justificando por qué del uso del vehículo en tiempo inhábil.

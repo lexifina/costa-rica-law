@@ -1,0 +1,1 @@
+Artículo 21. Coordinación del servicio de transporte. Las solicitudes de transporte de uso administrativo podrán unificarse o compartirse bajo criterios de razonabilidad, oportunidad y economía, dando un aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

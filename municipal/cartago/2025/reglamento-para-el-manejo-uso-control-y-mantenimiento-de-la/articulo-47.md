@@ -1,0 +1,1 @@
+Artículo 47. Reportes de Incidentes a la Alcaldía. El Coordinador del Departamento de Transportes, deberá informar mensualmente a la Alcaldía Municipal, cualquier incidente como accidente de tránsito, robo o hurto, o cualquier otro que vaya en menoscabo de un bien Municipal a su cargo.

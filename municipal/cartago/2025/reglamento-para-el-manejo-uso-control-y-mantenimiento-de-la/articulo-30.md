@@ -1,0 +1,2 @@
+Articulo 30. Autorización para conducir vehículos oficiales. La conducción de los vehículos estará a cargo de los choferes o conductores (funcionarios autorizados y acreditados para ello por el Departamento de Transportes de la Municipalidad).
+Esta autorización que emita el departamento de transportes debe ir previamente referida por la Jefatura inmediata y que deberá portar obligatoriamente todo trabajador mientras conduce el vehículo para el caso concreto de funcionarios que no son nombrados como choferes.

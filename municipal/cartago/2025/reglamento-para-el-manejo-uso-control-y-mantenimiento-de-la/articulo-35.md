@@ -1,0 +1,3 @@
+Artículo 35. Transporte de particulares. Queda terminantemente prohibido transportar a particulares en los vehículos propiedad de la Municipalidad, a menos que estén prestando un servicio o realizando alguna labor especial para la Municipalidad. La solicitud de transporte de particulares deberá hacerla cada jefatura.
+Esta autorización deberá ser solicitada por escrito a la Alcaldia Municipal para su visto bueno. Es crucial enfatizar que los seguros de póliza que respaldan a los vehículos municipales no cubren a terceros en caso de accidente cuando viajan como acompañantes.
+La cobertura se limita exclusivamente al seguro obligatorio.

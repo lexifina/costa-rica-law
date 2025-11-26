@@ -1,0 +1,1 @@
+Artículo 25. Seguridad de los vehículos. El chofer o conductor autorizado que maneje un vehículo municipal será responsable por la seguridad de la unidad a su cargo y deberá utilizar todos los dispositivos de seguridad que brinda el vehículo, para si y para sus acompañantes.

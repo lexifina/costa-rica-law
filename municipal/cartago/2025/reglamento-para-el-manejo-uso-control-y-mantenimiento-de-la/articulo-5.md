@@ -1,0 +1,1 @@
+Artículo 5. Asignación de vehículos. La asignación de los vehículos, lo será únicamente con la finalidad de brindar un mejor servicio público y en ningún caso debe ser considerado como un beneficio, mejora salarial, salario en especie o en alguna forma como parte del contrato de trabajo, ni dará lugar a derechos adquiridos a favor del funcionario.

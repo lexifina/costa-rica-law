@@ -1,0 +1,5 @@
+Artículo 56. Finalidad, Fines del uso de GPS. Los dispositivos instalados en los vehículos municipales podrán utilizarse para los siguientes fines:
+a) Seguimiento de la ubicación de los vehículos: Los sistemas de posicionamiento global podrán utilizarse para rastrear la ubicación de los vehículos en tiempo real.
+Esta información podrá utilizarse para fines de seguridad, eficiencia y planificación.
+b) Control de la flota: Los sistemas de posicionamiento global podrán utilizarse para controlar el uso de la flota municipal, incluyendo el seguimiento de la velocidad, el consumo de combustible y el tiempo de conducción. Esta información podrá utilizarse para robustecer los sistemas de control interno
+c) Gestión de los servicios públicos: Los sistemas de posicionamiento global podrán utilizarse para gestionar los servicios públicos, incluyendo el seguimiento de la prestación de servicios, la ubicación de los equipos y el tiempo de respuesta. Esta información podrá utilizarse para mejorar la calidad de los servicios públicos.

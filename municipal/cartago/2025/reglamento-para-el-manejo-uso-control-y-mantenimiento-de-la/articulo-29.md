@@ -1,0 +1,2 @@
+Artículo 29. De la rotulación. Todos los vehículos oficiales de uso administrativo y operativos deberán portar permanentemente placas de matrícula oficial, y al menos en el centro de ambas puertas delanteras, un distintivo que los identifique con "MUNICIPALIDAD DE CARTAGO" y la leyenda "USO OFICIAL", según la Ley de Tránsito.
+En el caso de las motocicletas el distintivo se colocará en lugar visible
