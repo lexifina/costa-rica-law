@@ -47,3 +47,5 @@ Programa 879-00 Actividades Centrales.
 Programa 880-00 Sistema Nacional de Áreas de Conservación (Sinac).
 Página: 991
 - Puesto n.° 381290 Profesional Jefe de Servicio Civil 2.")
+(Modificado por el artículo 1° del decreto ejecutivo N° 45326 del 20 de noviembre del 2025)
+(Modificado por el artículo 3° del decreto ejecutivo N° 45326 del 20 de noviembre del 2025)
