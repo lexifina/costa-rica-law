@@ -14,3 +14,4 @@ Reglamento del sistema de contratación pública de la Operadora de Pensiones Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-03 | la propia norma |
+| 2 | 2025-11-26 | Reglamento 1432 (2025-11-26) |

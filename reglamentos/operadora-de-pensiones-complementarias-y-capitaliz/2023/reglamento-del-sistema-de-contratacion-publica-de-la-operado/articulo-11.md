@@ -1,4 +1,5 @@
-Artículo 11.- Responsabilidades de los Administradores de los contratos. Los responsables del seguimiento a la ejecución de una contratación de bienes, servicios u Obras, adquiridos por la Operadora tendrán a su cargo las siguientes responsabilidades relacionadas con los procesos de contratación:
+Artículo 11.- .-Responsabilidades de las personas administradoras de los contratos.. Los responsables del seguimiento a la ejecución de una contratación de bienes, servicios u Obras, adquiridos por la Operadora tendrán a su cargo las siguientes responsabilidades relacionadas con los procesos de contratación:
+(Así reformado el epígrafe anterior mediante sesión N° 1432 del 26 de noviembre de 2025)
 a) Valorar el cumplimiento de los alcances de la decisión inicial, confeccionar un cronograma con tareas y velar por su debido cumplimiento. Informar al contratista de ajustes a éste y a la Proveeduría de cualquier incumplimiento trascendente.
 b) Cumplir con las tareas y funciones asignadas según el cronograma definitivo del procedimiento de contratación para la fase de ejecución.
 c) Atender en tiempo las gestiones o consultas que formule el contratista, que sean necesarias para la continuidad de la ejecución del contrato, y cualquier otra petición en los plazos fijados por la Ley General de Contratación Pública, así como también poner a disposición del contratista en el plazo pactado, los insumos necesarios para la ejecución del contrato, en caso de que la Administración deba entregar insumos necesarios para que el contratista cumpla con la prestación objeto del contrato.
@@ -36,3 +37,7 @@ hh) Emitir el criterio técnico sobre las solicitudes de prórrogas al plazo de 
 ii) Emitir la recomendación a la Proveeduría sobre las solicitudes de cambio en los bienes o servicios adjudicados.
 jj) Atender y gestionar las solicitudes de reajustes y revisiones de precio en coordinación con la Proveeduría.
 kk) Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.
+ll) Emitir el acto administrativo de no objeción, en conjunto con la Unidad de Proveeduría, cuando así se haya designado desde el pliego de condiciones, en cumplimiento de la normativa aplicable, incluyendo el Reglamento para el reajuste de precios en los contratos de obra pública y la revisión de precios en los contratos de bienes y servicios.
+(Así adicionado el inciso anterior mediante sesión N° 1432 del 26 de noviembre de 2025)
+mm) En los contratos suscritos en modalidad de entrega según demanda, aprobar las distintas órdenes de pedido verificando el cumplimiento de todos los requisitos correspondientes.
+(Así adicionado el inciso anterior mediante sesión N° 1432 del 26 de noviembre de 2025)
