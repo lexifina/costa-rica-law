@@ -38,3 +38,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 23 | 2025-06-18 | Reglamento 140 (2025-06-18) |
 | 24 | 2025-07-30 | Reglamento 145 (2025-07-30) |
 | 25 | 2025-11-05 | Reglamento 157 (2025-11-05) |
+| 26 | 2025-11-26 | Reglamento 159 (2025-11-26) |

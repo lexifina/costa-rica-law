@@ -254,6 +254,8 @@ CONOCIMIENTOS BÁSICOS
 Los relacionados con el uso adecuado de diferentes productos de limpieza e implementos para dichas actividades; actualización en el campo de actividad; asimismo, conocimientos asociados a la estimulación de las relaciones interpersonales y laborales.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Título de bachiller en Educación Media. O Conclusión de Enseñanza General Básica (9º año) y dos años de experiencia relacionada. O Certificación de conclusión de Estudios Primarios y cuatro años de experiencia relacionada.
+Requisito académico alternativo el Certificado de los servicios educativos que se brindan desde la oferta de la educación especial: Aula Integrada y Tercer Ciclo y Ciclo Diversificado Vocacional o certificados equivalentes.
+(Así adicionado el párrafo anterior en sesión N° 159 del 26 de noviembre de 2025)
 (*) SUBJEFE DE UJIERES
 (*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009. Posteriormente mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024, se elimina nuevamente la presente clase de puesto)
 (*) JEFE DE UJIERES
@@ -564,6 +566,8 @@ O
 Conclusión de Estudios Primarios (6º grado de primaria).
 Experiencia mínima de cinco años en la ejecución de labores relacionadas con el cargo.
 Capacitación relacionada con el cargo.
+Requisito académico alternativo el Certificado de los servicios educativos que se brindan desde la oferta de la educación especial: Aula Integrada y Tercer Ciclo y Ciclo Diversificado Vocacional o certificados equivalentes.
+(Así adicionado el párrafo anterior en sesión N° 159 del 26 de noviembre de 2025)
 Nivel 2
 Título de bachiller Educación Media o Secundaria.
 Experiencia mínima de un año en la ejecución de labores relacionadas con el cargo.
