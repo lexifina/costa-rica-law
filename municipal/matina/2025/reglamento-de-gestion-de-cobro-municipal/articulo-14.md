@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los aplazamientos y fraccionamientos de pago
+Artículo 14.-Definiciones: El aplazamiento de pago es la concesión de un plazo extraordinario para pagar un crédito, en la etapa de recaudación coactiva administrativa, es decir, antes de que se haya verificado el inicio del cobro judicial, también se le conoce como arreglo de pago o facilidad de pago. El contribuyente moroso asume un compromiso con la Municipalidad, de cancelar las sumas adeudadas a esta en un tiempo perentorio. El fraccionamiento de pago consiste en cada una de las partes o cuotas en que se ha autorizado el pago de una deuda tributaria. La razón última del aplazamiento de pago y del fraccionamiento como modalidad de este, reside en las dificultades reales para el pago de las obligaciones.

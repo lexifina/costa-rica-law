@@ -1,0 +1,1 @@
+Artículo 33.-Ordenación de información y distribución de casos: Certificada la deuda del contribuyente, el expediente correspondiente que contiene los documentos que se indican en el artículo 20 será enviado mediante anotación al gestor del cobro judicial.

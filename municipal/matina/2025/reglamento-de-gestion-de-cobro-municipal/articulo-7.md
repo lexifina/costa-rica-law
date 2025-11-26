@@ -1,0 +1,1 @@
+Artículo 7º-De los notificadores: Entiéndase por notificador el funcionario auxiliar de la Unidad de Gestión de Cobro Administrativo designado por el Alcalde Municipal e investido de fe pública, para llevar a cabo la entrega, a los contribuyentes morosos, de los distintos avisos de cobro emitidos por el encargado de la Unidad.

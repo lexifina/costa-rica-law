@@ -1,0 +1,2 @@
+Artículo 4º-Composición: La Unidad creada estará conformada por un encargado y los notificadores que resulten necesarios, éstos últimos, son las personas encargadas de llevar a cabo el acto notificador de los avisos emanados en el proceso administrativo de gestión de cobro a los contribuyentes morosos y estarán subordinados en grado jerárquico al encargado.
+El Alcalde ejercerá la supervisión inmediata de las actuaciones de la persona encargada de la oficina.

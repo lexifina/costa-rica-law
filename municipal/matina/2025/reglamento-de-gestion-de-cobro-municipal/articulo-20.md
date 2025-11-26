@@ -1,0 +1,4 @@
+Artículo 20.-Conformación de expediente: El encargado de la oficina de cobro formará un expediente de cada caso en particular que contendrá un estudio de la morosidad del contribuyente, la solicitud de aplazamiento y/o fraccionamiento completa, en la cual se indicará la aprobación o denegatoria de la solicitud, así como todos los demás documentos aportados por el contribuyente. Además, el expediente administrativo contendrá al menos:
+a) Copia de las notificaciones de cobro administrativo realizadas al sujeto pasivo.
+b) Certificación del Contador Municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá las multas e intereses, y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el artículo 71 del Código Municipal.
+c) Calidades del sujeto pasivo y domicilio, si se tratara de una persona jurídica, indicación de las citas de la constitución de la sociedad.
