@@ -1,2 +1,0 @@
-Artículo 22.—Recursos administrativos. Contra los actos de la Comisión cabrá recurso de revocatoria con apelación en subsidio, así como los incidentes de nulidad absoluta y de suspensión de los efectos del acto administrativo, los cuales deberán interponerse y tramitarse de conformidad con la Ley General de la Administración Pública.
-Los recursos deberán estar sustentados en los fundamentos legales y técnicos, así como la prueba necesaria que ampare las acciones recursivas y sus argumentaciones.

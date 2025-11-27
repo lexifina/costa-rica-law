@@ -1,4 +1,0 @@
-Artículo 27.—Disposiciones finales.
-27.1 A los efectos de rendición de las garantías a que se refiere el presente Reglamento y su eventual ejecución, le serán aplicables en lo conducente las normas y principios de la Ley de Contratación Administrativa y su Reglamento.
-27.2 En el presente procedimiento es aplicable el silencio negativo de la Administración, debido a que el derecho de vía es de dominio del Estado.
-27.3 La Policía de Tránsito del M.O.P.T. deberá velar que no se establezcan accesos ilegales que invadan el derecho de vía de las carreteras de acceso restringido y que forman parte de la red vial nacional. Asimismo, deberá actuar conjuntamente con el D.I.V. D. en la demolición y/o cierre de los accesos ilegales o cualquier obra de infraestructura que ocupe ilegalmente el derecho de vía. Todo lo anterior a solicitud de esta Comisión.
