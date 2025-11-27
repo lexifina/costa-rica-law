@@ -19,3 +19,4 @@ Reglamento general para permisos sanitarios de funcionamiento, permisos de habil
 | 4 | 2024-05-02 | Decreto Ejecutivo 44509 (2024-05-02) |
 | 5 | 2025-01-13 | Decreto Ejecutivo 44868 (2025-01-13) |
 | 6 | 2025-10-10 | Decreto Ejecutivo 45441 (2025-10-10) |
+| 7 | 2025-11-27 | Decreto Ejecutivo 45495 (2025-11-27) |

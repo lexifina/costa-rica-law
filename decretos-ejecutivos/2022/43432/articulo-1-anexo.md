@@ -200,7 +200,7 @@ División | Grupo | Clase | Subclase CR | Título | Riesgo
 | 107 | | | Elaboración de otros productos alimenticios |
 | | 1071 | | Elaboración de productos de panadería |
 | | | 1071.1 | Elaboración de galletas | B
-| | | 1071.9 | Elaboración de otros productos de panadería, excepto elaboración de galletas (se excluye si existe únicamente el horneado) | B
+| | | 1071.9 | Elaboración de otros productos de panadería, excepto elaboración de galletas (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 45495 del 27 de noviembre de 2025) | B
 | | 1072 | | Elaboración de azúcar |
 | | | 1072.0 | Elaboración de azúcar y otros productos derivados de la | A*
 División | Grupo | Clase | Subclase CR | Título | Riesgo
@@ -740,7 +740,7 @@ División | Grupo | Clase | Subclase CR | Título | Riesgo
 | | | 4721.2 | Venta al por menor de carne de aves | MAG
 | | | 4721.3 | Venta al por menor de pescados y mariscos | MAG
 | | | 4721.4 | Venta al por menor de frutas y verduras frescas (verdulerías) | C
-| | | 4721.9 | Venta al por menor de otros alimentos (condimentos, confiterías, helados, huevos, panaderías sin elaboración, .) | C
+| | | 4721.9 | Venta al por menor de otros alimentos (condimentos, confiterías, helados, huevos, panaderías.) (Así reformado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 45495 del 27 de noviembre de 2025) | C
 | | 4722 | | Venta al por menor de bebidas en comercios especializados |
 | | | 4722.0 | Venta al por menor de bebidas en comercios especializados (licoreras, otras bebidas no servidas, .) | C
 | | 4723 | | Venta al por menor de tabaco en comercios especializados |
