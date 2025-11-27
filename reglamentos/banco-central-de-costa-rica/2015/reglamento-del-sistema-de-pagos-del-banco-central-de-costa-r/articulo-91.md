@@ -1,5 +1,1 @@
-LIBRO VI
-DÉBITO EN TIEMPO REAL
-CAPÍTULO I
-DEL SERVICIO
-Artículo 91. Definición del servicio. Débito en Tiempo Real (DTR) es el servicio de liquidación bilateral bruta en tiempo real, por medio del cual una entidad origen, previa autorización de su cliente, envía una instrucción de cobro a nombre de este, a una entidad destino para que debite en forma inmediata la cuenta de su cliente, siempre y cuando el cliente origen y el cliente destino sean la misma persona física o jurídica.
+Artículo 91. Condición de uso del servicio. Los participantes deben habilitar a sus clientes funcionalidades que les permitan asociar uno o varios números de teléfonos móviles a su cuenta, así como definir montos máximos movilizados por cada teléfono, sin que la suma de todos los teléfonos asociados supere el monto máximo definido para la cuenta; pudiendo la entidad delimitar la cantidad de números de teléfonos móvil asociados y el monto que puede recibir la cuenta, dependiendo del giro de negocio del cliente. Un número de teléfono móvil solo puede estar asociado a un número de cuenta en todo el sistema.

@@ -1,3 +1,1 @@
-CAPÍTULO III
-DEL MODELO DE OPERACIÓN
-Artículo 325. Solicitud para administrar CAN. Los asociados que decidan administrar CAN bajo su cuenta y riesgo deberán solicitarlo al Departamento de Emisión y Valores del BCCR. El trámite se resolverá en un plazo máximo de 10 días hábiles después de que la entidad solicitante haya cumplido los requisitos establecidos.
+Artículo 325. Potestad sobre el numerario. Previa coordinación con los asociados, el BCCR podrá disponer del numerario nacional que hayan depositado en las CAN, cuando por situaciones especiales requiera atender las necesidades de entidades que no administren CAN o de aquellas que, administrándolas, deban atender demandas extraordinarias de numerario. En tales casos, los costos asociados al retiro y movimiento del efectivo serán asumidos en su totalidad por el asociado que lo requiera.

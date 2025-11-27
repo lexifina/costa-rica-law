@@ -1,5 +1,1 @@
-LIBRO VII
-SISTEMA DE INTERCONEXIÓN DE PAGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 103. Definición del servicio. Sistema de Interconexión de Pagos (SIPA) es el servicio de liquidación bruta en tiempo real, por medio del cual una entidad envía o recibe pagos transfronterizos, de conformidad con las regulaciones establecidas en las Normas Generales del SIPA.
+Artículo 103. Des habilitación de números de teléfonos móvil. Los operadores de redes de telefonía móvil deberán comunicar al BCCR todos aquellos números de teléfono móvil nuevos y los que, por cualquier motivo, le eliminan a sus clientes, previo a que ese número sea entregado a un nuevo cliente, para efecto de deshabilitarlo del servicio SINPE Móvil.

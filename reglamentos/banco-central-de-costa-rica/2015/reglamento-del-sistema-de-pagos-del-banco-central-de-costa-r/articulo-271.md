@@ -1,1 +1,1 @@
-Artículo 271. Emisión de constancias. El emisor emitirá constancias de titularidad de inversiones registradas de los participantes, a solicitud de ellos o de una autoridad competente.
+Artículo 271. Condiciones de las operaciones. Las operaciones diferidas de liquidez podrán negociarse con o sin garantía, siempre a conveniencia de las contrapartes. Las operaciones diferidas a plazo se negociarán siempre con garantía. Las negociaciones se realizan por rendimiento.

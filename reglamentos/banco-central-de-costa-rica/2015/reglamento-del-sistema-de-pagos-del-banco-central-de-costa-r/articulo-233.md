@@ -1,1 +1,3 @@
-Artículo 233. Consultas de los participantes. Los participantes podrán consultar en el servicio la información de los archivos de la liquidación de mercados, la generación y liquidación de vencimientos, la devolución de impuestos retenidos y el detalle de los archivos correspondientes al cambio de la representación de valores físicos por anotados en cuenta.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 233. Del registro oportuno. Las entidades inversoras que aduzcan gozar de exención son responsables del registro oportuno de la solicitud de exención, para evitar el perjuicio por periodos de exoneración al descubierto.

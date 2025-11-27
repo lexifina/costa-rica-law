@@ -1,1 +1,1 @@
-Artículo 243. Traspasos con cambio de titularidad. Las entidades de custodia sólo podrán realizar traspasos con cambio de titularidad cuando correspondan a operaciones no onerosas y siempre que las mismas se tramiten de acuerdo con el ordenamiento jurídico aplicable.
+Artículo 243. Horario de funcionamiento. El servicio Registro de Deuda en Depósito estará disponible para la administración de la deuda durante el horario bancario, y a modo de consulta durante el horario de operación del SINPE.

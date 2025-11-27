@@ -1,1 +1,3 @@
-Artículo 316. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones de acuerdo con las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
+Artículo 316. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas SINPE en el BCCR responderán, como garantía por el valor monetario del numerario depositado en las CAN.

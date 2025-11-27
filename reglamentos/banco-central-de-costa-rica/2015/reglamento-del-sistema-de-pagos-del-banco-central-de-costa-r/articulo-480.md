@@ -1,2 +1,4 @@
-Artículo 480. De la debida diligencia de las CES. Posterior a la apertura de una CES, la entidad financiera es responsable, a partir del comportamiento transaccional de la cuenta, de actualizar el perfil de riesgo del cliente, de conformidad con el modelo de categorización de riesgo que, para efecto de cumplir con los alcances de la Ley 7786 y su normativa conexa, se encuentre vigente en la respectiva entidad. En caso de que la CES asignada al cliente no corresponda con su perfil de riesgo deberá reclasificar dicha cuenta y aplicar los controles respectivos.
-(Así reformado en sesión N° 6240 del 20 de febrero del 2025)
+CAPÍTULO VI
+DEL PROCEDIMIENTO DE COBRO DE LAS TARIFAS Y COMISIONES
+Artículo 480. Casos especiales de cobro. Cuando la cuenta SINPE en moneda nacional del afiliado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta SINPE que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
+Transcurridos 15 días naturales, si el BCCR no logra realizar el cobro de la totalidad de las tarifas y comisiones, podrá suspender del servicio al afiliado, hasta que este cancele el monto adeudado.

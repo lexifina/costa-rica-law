@@ -1,1 +1,3 @@
-Artículo 420. Eliminación de derechos. La eliminación de derechos a un ARS, RST, RSP, DDU, consultante o usuario, podrá ser ejecutada por un solo responsable de seguridad o digitador, cuando tenga los derechos para ello.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 420. Participantes del servicio. En el servicio operan los asociados del SINPE como Oficinas de Registro emisoras de certificados digitales de persona física.

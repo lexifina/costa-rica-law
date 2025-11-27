@@ -1,5 +1,3 @@
-Artículo 382. Condiciones del crédito intradiario. El crédito intradiario deberá cumplir con las siguientes condiciones:
-a) Es otorgado por un período menor a un día hábil y sin costo financiero. Además, siempre deberá estar respaldado con las garantías que la entidad mantenga para operar en el Sistema de Pagos.
-b) Se gira en la misma moneda de la obligación por liquidar y por la suma faltante requerida para procesar la liquidación.
-c) Para su giro, la entidad no debe mantener préstamos overnight pendientes de pago.
-d) Debe ser cancelado automáticamente al cierre del horario bancario.
+CAPÍTULO XI
+DE LA RETENCIÓN POR OPERACIONES DE DÉBITO
+Artículo 382. Retención de fondos. A los Proveedores de Servicios de Pago, Casas de Cambio y Organizadores de Mercados que participen en los servicios de Débito en Tiempo Real y Débitos Directos, como garantía ante un cobro revertido, se les aplicará sobre su cuenta de fondos, la retención del 100% del monto cobrado por un período igual al plazo de reclamación. La retención de fondos no aplica para transacciones de débito que realice el afiliado sobre cuentas de fondos propias mantenidas en otro afiliado y, las transacciones autorizadas con firma digital.

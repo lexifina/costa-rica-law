@@ -1,1 +1,6 @@
-Artículo 122. Tipo de transacciones. El servicio operará para transacciones en las que el cliente origen y el cliente destino son una persona física o jurídica diferentes, caso en el que se requiere de una orden de domiciliación previa de parte del cliente destino, de conformidad con las regulaciones establecidas en el servicio de Autorización de Débito Automático. El servicio también operará para transacciones en las que el cliente origen y el cliente destino son la misma persona física o persona jurídica, caso en el que no se requiere de la orden de domiciliación previa. Estas transacciones podrán ser objeto de un cobro revertido, de conformidad con las disposiciones establecidas en el servicio de Reclamaciones.
+LIBRO VIII
+RECLAMACIÓN DE FONDOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 122. Definición del servicio. Reclamación de Fondos (REF) es el servicio de liquidación bilateral bruta en tiempo real, por medio del cual los afiliados nacionales pueden solicitar la devolución de fondos cobrados indebidamente a su cargo o a cargo de sus clientes.
+Por medio del servicio los afiliados podrán solicitar información sobre las transacciones no acreditadas en los plazos definidos en la Serie de Normas y Procedimientos del SINPE.

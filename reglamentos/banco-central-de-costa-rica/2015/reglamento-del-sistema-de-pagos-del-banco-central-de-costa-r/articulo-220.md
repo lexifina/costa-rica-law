@@ -1,1 +1,1 @@
-Artículo 220. Registro de emisiones. Los emisores deberán registrar en el servicio las emisiones en serie inscritas en el Registro Nacional de Valores e Intermediarios y emitidas en forma anotada en cuenta.
+Artículo 220. Horario de funcionamiento. El servicio Traspaso de Valores estará disponible para el registro de movimientos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.

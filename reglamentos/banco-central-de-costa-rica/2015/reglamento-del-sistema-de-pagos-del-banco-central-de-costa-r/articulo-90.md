@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 90. Registro de instrucciones de pago. Los participantes, previo al envió o recepción de transferencia de fondos, deben registrar ante el BCCR las instrucciones de pago requeridas para gestionar el envío de las transferencias hacia el exterior, de conformidad con lo establecido en la Serie de Normas y Procedimientos del SINPE.
+Artículo 90. Tipo de transacciones habilitadas. SINPE Móvil provee a los clientes funcionalidades para realizar pagos móviles, definidos estos pagos como movimientos de fondos que se aplican sobre la cuenta del cliente destino, utilizando como identificador de la cuenta un número de teléfono móvil o un alias asociado a la tarjeta Monedero SINPE-TP.

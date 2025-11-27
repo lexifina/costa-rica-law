@@ -1,1 +1,3 @@
-Artículo 223. Autorización de movimientos. Todo movimiento regular sobre las emisiones que deba realizar el BCCR en virtud de su negociación en los mercados de valores, por la atención de instrucciones de los miembros liquidadores, o por cualquier otra afectación que se derive de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación de la entidad emisora al servicio.
+CAPÍTULO IV
+DE LOS TRASPASOS
+Artículo 223. Irrevocabilidad del registro. Las instrucciones de traspaso ingresadas por los participantes no podrán ser revocados por su ordenante o por terceros a partir del momento de su aceptación. Los listados y registros del servicio Traspaso de Valores serán prueba de los movimientos registrados en dicho servicio.

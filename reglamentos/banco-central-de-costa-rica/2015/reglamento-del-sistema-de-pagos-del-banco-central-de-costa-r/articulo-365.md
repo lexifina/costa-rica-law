@@ -1,1 +1,3 @@
-Artículo 365. Adhesión a las disposiciones sobre garantías. Los asociados obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.
+CAPÍTULO VII
+DE LA FACILIDAD CREDITICIA INTRADIARIA
+Artículo 365. Límites de crédito. El BCCR otorgará a los afiliados nacionales, una facilidad crediticia intradiaria hasta por el monto de las garantías depositadas.

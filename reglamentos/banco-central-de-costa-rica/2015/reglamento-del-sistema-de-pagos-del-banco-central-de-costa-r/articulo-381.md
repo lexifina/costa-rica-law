@@ -1,1 +1,2 @@
-Artículo 381. Naturaleza del crédito intradiario. El crédito intradiario será otorgado en forma automática por el BCCR con el fin de inyectarle liquidez inmediata al asociado que, por una insuficiencia de fondos en su cuenta, no pueda cubrir los débitos presentados a su cargo por los demás asociados.
+Artículo 381. Congelamiento de fondos. En el caso de que el afiliado nacional no cumpla con la restitución de la garantía faltante en las condiciones solicitadas, el BCCR procederá a congelar en su cuenta SINPE los recursos suficientes para solventar el incumplimiento.
+El congelamiento de fondos podrá hacerse en moneda nacional o extranjera, de acuerdo con lo que mejor resulte para solventar el incumplimiento.

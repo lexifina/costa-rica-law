@@ -1,1 +1,1 @@
-Artículo 266. Aceptación o rechazo. El Servicio confirma en tiempo real y de manera automática, la aceptación o rechazo de la orden de inversión.
+Artículo 266. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de su participación en la ventanilla, así como el detalle de los montos asignados, el precio de asignación y cualquier otra información de carácter relevante.

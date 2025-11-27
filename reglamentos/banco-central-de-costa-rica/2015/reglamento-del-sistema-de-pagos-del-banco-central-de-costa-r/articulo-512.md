@@ -1,2 +1,0 @@
-Artículo 512. Entrega de comprobante con el número de transacción. En el caso de reclamación por créditos no aplicados, la entidad origen del reclamo deberá entregar al cliente origen el comprobante emitido por el servicio, en donde se especifique el número de referencia asignado a la transacción, para que éste a su vez lo entregue al cliente destino, con el fin de que pueda justificar ante la entidad destino la validez de su reclamo.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 505 al artículo 512)

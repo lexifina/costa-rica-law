@@ -1,3 +1,3 @@
-CAPÍTULO V
-DE LAS RELACIONES CON LAS ENTIDADES FINANCIERAS
-Artículo 172. Relaciones del servicio de adquirencia. Las relaciones tecnológicas del servicio de adquirencia serán establecidas por sus proveedores con el BCCR, mediante el funcionamiento del Sistema Central de Recaudo, en virtud de que el BCCR es el que mantiene la relación directa con los operadores para los efectos del servicio de validación de SINPE-TP.
+CAPÍTULO III
+DEL CICLO DEL SERVICIO
+Artículo 172. Modalidad del servicio. El servicio LSE operará con base en la información suministrada por el organizador de mercados, cuyos datos podrán presentarse bajo la modalidad de resultados bilaterales o resultados multilaterales, según sea el esquema definido por el organizador de mercados.

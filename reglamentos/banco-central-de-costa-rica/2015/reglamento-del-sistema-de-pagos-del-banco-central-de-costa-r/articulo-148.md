@@ -1,1 +1,3 @@
-Artículo 148. Canales de acceso y uso. Los participantes podrán habilitar a sus clientes las funcionalidades del SINPE Móvil en al menos uno de sus canales bancarios.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 148. Participantes del servicio. En el servicio COV puede operar como entidad origen o destino cualquiera de los asociados.

@@ -1,1 +1,1 @@
-Artículo 250. Exención. La exención será autorizada por la Dirección General de Tributación, por el período que dicha dependencia considere y esta podrá ser suspendida, en cualquier momento, ante cambios en el fundamento jurídico que ampara la exención.
+Artículo 250. Renovación de deuda. Las inversiones que en la fecha de vencimiento tengan activada la cláusula de renovación automática, se constituirán como una nueva obligación.

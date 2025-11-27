@@ -1,1 +1,6 @@
-Artículo 177. Límite de responsabilidad del emisor internacional. Las transacciones que se realicen en SINPE-TP con cargo a dispositivos de pago de emisores internacionales, estarán garantizadas de conformidad por lo que dispongan los acuerdos internacionales de las marcas de tarjetas, los cuales estarán contenidos como anexos en las normas complementarias para facilitar a los usuarios de SINPE-TP el acceso a su información.
+ANOTACIÓN EN CUENTA
+LIBRO XXI
+CUENTAS DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 177. Definición del servicio. Cuentas de Valores es el servicio por medio del cual se administra el registro de los valores anotados en cuenta, conforme con el Título VII de la Ley 7732.

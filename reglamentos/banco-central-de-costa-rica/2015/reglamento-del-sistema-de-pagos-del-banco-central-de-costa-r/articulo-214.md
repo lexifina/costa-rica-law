@@ -1,1 +1,4 @@
-Artículo 214. Consultas del estado de cuenta. El BCCR deberá habilitar facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.
+CAPÍTULO IV
+DE LOS REGISTROS Y LA INFORMACIÓN
+Artículo 214. Irrevocabilidad de los registros. Las instrucciones de liquidación no podrán ser revocadas por su ordenante o por terceros a partir del cierre de la etapa de envío del archivo respectivo.
+Los listados y registros del servicio Liquidación de Mercados serán prueba de los movimientos registrados en dicho servicio.

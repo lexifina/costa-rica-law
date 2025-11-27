@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 355. Tratamiento de las diferencias. Las diferencias físicas de numerario que resulten de las negociaciones en el servicio deben ser resueltas bilateralmente entre los asociados involucradas, siguiendo los criterios que al respecto establece la Serie de Normas y Procedimientos del SINPE.
+Artículo 355. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el afiliado nacional deberá realizar una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.

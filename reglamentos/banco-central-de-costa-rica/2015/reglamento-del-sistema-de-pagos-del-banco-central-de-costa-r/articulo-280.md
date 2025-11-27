@@ -1,5 +1,1 @@
-LIBRO XXIV
-VENTANILLA DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 280. Definición del servicio. Ventanilla de Valores (VEV) es el servicio por medio del cual se colocan valores estandarizados por medio de ventanilla.
+Artículo 280. Suficiencia de fondos. Las entidades que capten recursos son responsables de mantener en su cuenta SINPE los fondos suficientes para cubrir en la fecha de vencimiento, el pago del principal adeudado y los respectivos intereses.

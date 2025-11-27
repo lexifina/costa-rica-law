@@ -1,3 +1,2 @@
-CAPÍTULO III
-DE LA EMISIÓN DE CERTIFICADOS DIGITALES DE PERSONA JURÍDICA
-Artículo 441. Definición del servicio: es el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación, validación y custodia de certificados digitales de personas jurídicas (agente electrónico para la autenticación y sello electrónico para la firma).
+Artículo 441. Aplicación de régimen simplificado. Con la política conozca a su cliente, los titulares de las CES estarán sujetos a un régimen de documentación y debida diligencia simplificados, de manera que la apertura y manejo de las cuentas se lleve a cabo mediante procedimientos administrativos sencillos, basados en el uso y almacenamiento de información electrónica y sin requerir de documentación física, excepto su documento de identificación al momento de la apertura de esta.
+La información que se les requiera a los titulares de las CES para la apertura y administración de dichas cuentas, en virtud de la aplicación de la legislación sobre legitimación de capitales y financiamiento al terrorismo, será solamente la establecida por el presente libro y en la Serie de Normas y Procedimientos del SINPE.

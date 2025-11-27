@@ -1,4 +1,5 @@
-Artículo 173. Conexión de adquirentes. La integración de los adquirentes a la plataforma SINPE-TP deberá realizarse siguiendo un criterio de conexión determinado por los siguientes criterios de prioridad, en su orden:
-a) Interoperabilidad: capacidad para procesar dispositivos de pago de diferentes marcas de tarjetas.
-b) Cobertura: cantidad de dispositivos de pago emitidos en el país con las condiciones requeridas para funcionar correctamente en SINPE-TP.
-El procedimiento operativo para la integración de los adquirentes será establecido mediante la Serie de Normas y Procedimientos del SINPE, debiendo el BCCR agilizar los procesos de conexión para integrar a los adquirentes en el menor tiempo.
+Artículo 173. Ciclo de operación del servicio con resultados bilaterales. El ciclo del servicio LSE opera con las siguientes etapas:
+a) Envío del resultado bilateral neto: el organizador de mercados envía un archivo electrónico, con la información de los resultados bilaterales netos producidos por un servicio particular que ofrece, el SINPE calcula la posición multilateral neta y comunica el resultado a los participantes.
+Dentro de la información debe incluir el dato de la cantidad de transacciones que generaron el resultado bilateral. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
+b) Retención de fondos: el SIL efectúa la retención sobre la cuenta SINPE de cada participante; en caso de que se presente una insuficiencia de fondos, la entidad deberá solventar su problema de liquidez dentro de los siguientes 30 minutos, si no se resuelve la insuficiencia de fondos, se aplicará lo estipulado al respecto en el libro NC-GR “Gestión de Riesgos”.
+c) Liquidación: al cierre de la etapa de retención de fondos, se efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.

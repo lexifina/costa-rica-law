@@ -1,1 +1,3 @@
-Artículo 238. Horario de funcionamiento. El servicio Traspaso de Valores estará disponible para el registro de movimientos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 238. Participantes del servicio. En el servicio Captación de Fondos opera el BCCR y el MHDA como receptores de las inversiones y depósitos, y podrán operar como inversionistas las entidades asociadas al SINPE, de conformidad con las condiciones que el emisor respectivo establezca para las negociaciones.

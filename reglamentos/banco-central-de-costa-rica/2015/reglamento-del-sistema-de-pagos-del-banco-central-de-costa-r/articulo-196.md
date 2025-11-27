@@ -1,1 +1,1 @@
-Artículo 196. Horario de funcionamiento. El servicio Cuentas de Valores está disponible para el registro de movimientos y apertura de cuentas durante el horario bancario, y para consulta durante el horario de operación.
+Artículo 196. Consultas del estado de cuenta. El BCCR deberá habilitar facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.

@@ -1,3 +1,4 @@
-Artículo 164. Manejo y custodia de información. La información de los servicios de transporte público que procesen las plataformas o equipos tecnológicos integrados a SINPE-TP, será administrada por el BCCR y custodiada con estricta reserva para cumplir con los fines exclusivos de dicho sistema, los requerimientos de los reguladores y las necesidades de divulgación del sistema de pagos nacional.
-Los participantes del servicio de transporte público que se vinculen con SINPE-TP estarán obligados a remitir al BCCR cualquier información que este les requiera, incluyendo la que esté en poder de sus proveedores de servicio, para los propósitos del funcionamiento del sistema.
-Ningún proveedor de servicio podrá alegar derechos sobre la información de SINPE-TP a la cual tiene acceso con la ejecución de sus funciones, y está obligado a utilizarla exclusivamente para cumplir con los fines por los cuales se le concede dicho acceso.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 164. Participantes del servicio. En el servicio ILI participan como entidad origen los asociados que cuenten con la autorización expresa del MHDA para actuar como entes recaudadores.
+Además, podrán operar como entidad destino el BCCR y el MHDA.

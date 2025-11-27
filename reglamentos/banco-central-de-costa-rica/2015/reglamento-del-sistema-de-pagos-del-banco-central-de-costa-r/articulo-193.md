@@ -1,2 +1,1 @@
-Artículo 193. Suscripción al servicio. Las entidades que administren estaciones de peaje y quisieran conectar sus sistemas de recaudación con SINPE-TP, deberán cumplir con el procedimiento de suscripción dispuesto por el BCCR para ser usuarios del servicio.
-Tales entidades, y las personas que paguen derechos de uso de carreteras en sus estaciones de peaje, deberán someterse a lo dispuesto en el presente libro (en lo que les resulte aplicable), así como a la Serie de Normas y Procedimientos del SINPE.
+Artículo 193. Conciliación de cuentas de valores. Los participantes son responsables de conciliar diariamente su cuenta propia y las de sus clientes, así como de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

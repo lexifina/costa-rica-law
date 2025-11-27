@@ -1,1 +1,3 @@
-Artículo 436. Gestión de certificados. La validación presencial de la identidad y el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de los certificados de persona física es responsabilidad de las OR. Las obligaciones a las que se sujetan quienes obtengan un certificado de firma digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el solicitante.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 436. Participantes del servicio. En el PUC pueden ser usuarios áreas de atención al cliente, las Oficialías de Cumplimiento y las áreas que apoyan los procesos de control de los afiliados nacionales al SINPE.

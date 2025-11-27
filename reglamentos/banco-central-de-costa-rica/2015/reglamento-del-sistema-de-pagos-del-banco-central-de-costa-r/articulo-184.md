@@ -1,2 +1,6 @@
-Artículo 184. Oficialidad del pago electrónico. SINPE-TP es el sistema de pago electrónico oficial por medio del cual se realiza la recaudación tarifaria del transporte público de personas en las modalidades de autobús y tren, con el fin de facilitar al sector de transporte público costarricense la generación de información completa sobre la recaudación tarifaria; la implementación de los planes operativos (los modelos tarifarios básicos y de integración entre rutas, regiones y modalidades), y la mejora de la experiencia del cliente.
-Se promoverá la incorporación gradual de los pasajeros al uso del pago electrónico; no obstante, se utilizarán ambos medios de pago, tanto el efectivo como el pago electrónico en el transporte público.
+Artículo 184. Suspensión y cierre de cuentas propias. El BCCR podrá suspender las cuentas de valores propios de los participantes, cuando así lo ordene una autoridad competente. Asimismo, el BCCR procederá con el cierre de estas cuentas cuando se presente cualquiera de las siguientes situaciones:
+a) Cambio del número de documento identificación de la entidad.
+b) Fusión con otro asociado autorizada por el CONASSIF, manteniéndose la cuenta de la entidad que prevalece en el proceso de fusión.
+c) Cierre o quiebra de la entidad.
+d) Suspensión de la autorización para operar, dictada por el CONASSIF.
+La suspensión temporal de una cuenta de valores propia no eximirá a la entidad de la finalización de las operaciones en curso.

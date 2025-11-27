@@ -1,1 +1,1 @@
-Artículo 92. Funcionalidad del servicio. El servicio operará únicamente para transacciones en que el cliente origen y el cliente destino son la misma persona física o jurídica.
+Artículo 92. Canales de acceso y uso. Los participantes podrán habilitar a sus clientes las funcionalidades del SINPE Móvil en al menos uno de sus canales transaccionales.

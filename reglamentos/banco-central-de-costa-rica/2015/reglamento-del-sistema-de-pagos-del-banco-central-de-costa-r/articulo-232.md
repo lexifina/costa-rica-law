@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LOS REGISTROS Y LA INFORMACIÓN
-Artículo 232. Irrevocabilidad de los registros. Las instrucciones de liquidación no podrán ser revocadas por su ordenante o por terceros a partir del cierre de la etapa de envío del archivo respectivo. Los listados y registros del servicio Liquidación de Mercados serán prueba de los movimientos registrados en dicho servicio.
+Artículo 232. Exención. La exención será autorizada por la Dirección General de Tributación, por el período que dicha dependencia considere y esta podrá ser suspendida, en cualquier momento, ante cambios en el fundamento jurídico que ampara la exención.

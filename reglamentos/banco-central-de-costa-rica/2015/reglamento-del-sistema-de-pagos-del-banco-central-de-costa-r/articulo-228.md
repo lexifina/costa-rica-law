@@ -1,5 +1,1 @@
-LIBRO XVIII
-LIQUIDACIÓN DE MERCADOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 228. Definición del servicio. Liquidación de Mercados (LIM) es el servicio de liquidación de las operaciones realizadas en los mercados organizados de valores de deuda pública anotados en cuenta.
+Artículo 228. Carácter oficial del servicio. El servicio REX se constituye como el sistema oficial de registro de las entidades exentas del impuesto sobre la renta sobre los rendimientos generados por las inversiones en títulos valores. Es la fuente de consulta de los emisores, puestos de bolsa y agentes retenedores de impuestos para el otorgamiento de la exoneración de la retención del impuesto sobre la renta.

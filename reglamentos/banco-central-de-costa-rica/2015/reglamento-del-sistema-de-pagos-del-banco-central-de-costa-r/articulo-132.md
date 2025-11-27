@@ -1,4 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES DE LA ENTIDAD RECAUDADORA
-Artículo 132. Custodia de enteros en la entidad origen. La entidad origen es responsable de custodiar los enteros de los impuestos específicos y los Enteros a Favor del Gobierno, así como de su remisión al MHDA y al BCCR, en los plazos que establece la Serie de Normas y Procedimientos del SINPE.
-Cualquier diferencia en el monto liquidado o recaudado será responsabilidad de la entidad origen.
+Artículo 132. Exclusión del servicio: El participante que no disponga de fondos suficientes en su cuenta SINPE en el BCCR para cubrir la liquidación derivada del proceso de reclamación por un débito no autorizado, será excluida de forma inmediata en el servicio DTR y del ciclo del día hábil siguiente en el servicio CDD, hasta tanto logre atender su obligación.

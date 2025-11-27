@@ -1,1 +1,6 @@
-Artículo 401. Responsabilidad del aplazamiento. El procedimiento de aplazamiento de devoluciones opera bajo la completa responsabilidad del afiliado, por lo que el afiliado que lo utilice deberá suministrar las justificaciones pertinentes a sus clientes y al ente supervisor que corresponda, en virtud de la no acreditación de fondos dentro de lo establecido por las leyes vigentes.
+SEGURIDAD DEL SISTEMA DE PAGOS
+LIBRO XXXIII
+ADMINISTRACIÓN DE ESQUEMAS DE SEGURIDAD
+CAPÍTULO I
+DEL SERVICIO
+Artículo 401.Definición del servicio. Administración de Esquemas de Seguridad (AES) es el servicio que facilita al BCCR y a los afiliados la administración y supervisión de la seguridad del SINPE.

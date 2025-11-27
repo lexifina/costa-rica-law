@@ -1,1 +1,1 @@
-Artículo 313. Validación de autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR para su respectivo análisis.
+Artículo 313. Movimientos de numerario. La entidad que requiera realizar movimientos de numerario en la CAN deberá registrarlos en el servicio. Una vez enviada la transacción, el SIL efectúa de forma irrevocable y en firme la liquidación utilizando el mecanismo de liquidación bilateral bruta, afectándose además en el servicio el saldo del numerario de la CAN.

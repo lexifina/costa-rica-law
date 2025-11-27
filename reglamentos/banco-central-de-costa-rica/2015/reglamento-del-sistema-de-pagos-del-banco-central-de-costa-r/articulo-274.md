@@ -1,1 +1,6 @@
-Artículo 274. Suspensión de la participación. Cuando las actuaciones de algún inversionista no se ajusten a las sanas prácticas del mercado, el BCCR como administrador del servicio podrá suspender su participación en el servicio, debiendo notificar de inmediato a la SUGEVAL sobre la suspensión decretada y las causas que la justifican.
+LIBRO XXV
+Artículo 274. Forma de negociación. La forma de negociación en el MIL estará determinada por el tipo de operación que se oferte en el servicio:
+a) Operaciones diferidas de liquidez garantizadas: el mercado opera en forma ciega, por lo que los participantes no podrán identificar a las contrapartes.
+b) Operaciones diferidas de liquidez no garantizadas: los participantes podrán seleccionar a las entidades que desean que participen como contraparte deudora en sus ofertas de inversión.
+Asimismo, en el caso de que la oferta la registre la entidad demandante de los fondos, el nombre del oferente podrá ser visto por todos los participantes.
+c) Operaciones diferidas a plazo garantizadas: el BCCR operará con posiciones inversionistas y podrán participar como contrapartes deudoras, los asociados autorizados por el Comité de Operaciones de Mercado.

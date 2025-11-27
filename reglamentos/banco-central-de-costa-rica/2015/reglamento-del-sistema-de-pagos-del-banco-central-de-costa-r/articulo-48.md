@@ -1,3 +1,3 @@
-CAPÍTULO XI
-DE LOS SISTEMAS DE PAGOS Y VALORES DE IMPORTANCIA SISTÉMICA
-Artículo 48. Definición. Los sistemas de importancia sistémica son las infraestructuras de compensación y liquidación de fondos y valores en las que participan al menos tres asociados y que ante una falla en su operación puede generar o transmitir efectos negativos a mayor escala entre sus participantes o crear alteraciones sistémicas en el conjunto de agentes económicos.
+CAPÍTULO X
+DE LAS RELACIONES CON LOS ENTES SUPERVISORES
+Artículo 48. Acuerdos de entendimiento. La gerencia del BCCR y las autoridades de supervisión competentes, podrán suscribir acuerdos de entendimiento sobre las áreas de cooperación interinstitucional, en materia de sistemas de pagos.

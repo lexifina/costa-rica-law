@@ -1,1 +1,3 @@
-Artículo 50. Reconocimiento. Se reconoce como sistemas de pago o de valores de importancia sistémica los siguientes: el SINPE; los sistemas que operan los mercados administrados por la Bolsa Nacional de Valores; los sistemas que realizan el procesamiento, compensación y liquidación de las transacciones en cajero automático (redes ATM) o compra en comercios con tarjetas de pago VISA, MasterCard y American Express (redes de puntos de venta) y el Sistema Nacional de Pago Electrónico del Transporte Público (SINPE-TP).
+CAPÍTULO XI
+DE LOS SISTEMAS DE PAGOS Y VALORES DE IMPORTANCIA SISTÉMICA
+Artículo 50. Definición. Los sistemas de importancia sistémica son las infraestructuras de compensación y liquidación de fondos y valores en las que participan al menos tres afiliados y que ante una falla en su operación puede generar o transmitir efectos negativos a mayor escala entre sus participantes o crear alteraciones sistémicas en el conjunto de agentes económicos.

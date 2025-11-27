@@ -1,1 +1,1 @@
-Artículo 334. Mecanismos de control. Las entidades deberán practicar, al cierre de operaciones diarias, las verificaciones que le garanticen que el numerario mantenido en la CAN sea consistente con el valor y la estructura denominativa que reporta electrónicamente el servicio. Asimismo, deberán verificar diariamente el adecuado funcionamiento del CCTV y los demás mecanismos de control definidos.
+Artículo 334. Horario del servicio. Las entidades podrán realizar movimientos de numerario en el MEN en el horario de operación del SINPE.

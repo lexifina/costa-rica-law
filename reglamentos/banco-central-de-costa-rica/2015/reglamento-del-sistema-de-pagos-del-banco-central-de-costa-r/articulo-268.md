@@ -1,1 +1,4 @@
-Artículo 268. Renovación de deuda. Las inversiones que en la fecha de vencimiento tengan activada la cláusula de renovación automática, se constituirán como una nueva obligación.
+MERCADO INTEGRADO DE LIQUIDEZ
+CAPÍTULO I
+DEL SERVICIO
+Artículo 268. Definición del servicio. Mercado Integrado de Liquidez (MIL) es el servicio por medio del cual el BCCR controla la liquidez del sistema financiero, y los demás participantes realizan operaciones financieras para administrar sus posiciones de liquidez.

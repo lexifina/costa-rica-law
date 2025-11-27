@@ -1,5 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES DE MONEX-CONTINUO
-Artículo 303. Participantes del servicio. En este servicio operan el BCCR y los asociados autorizados para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
-Podrán operar también los asociados del SINPE que, no siendo entidades autorizadas para realizar intermediación cambiaria, se suscriban al mismo con el propósito de satisfacer sus necesidades propias de transacción de divisas.
-La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden operar, además de las entidades autorizadas que lo hacen por medio del SINPE.
+Artículo 303. Canje de numerario. Los asociados a los que el BCCR entregue numerario nuevo o les reciba numerario deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de una denominación por otra, de deteriorado por circulable; de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.

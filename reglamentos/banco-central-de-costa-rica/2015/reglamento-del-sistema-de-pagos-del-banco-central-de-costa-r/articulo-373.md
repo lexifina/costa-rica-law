@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LA GARANTÍA EN VALORES
-Artículo 373. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.
+Artículo 373. Criterio de días al vencimiento para la ejecución. En caso de ejecución de valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.

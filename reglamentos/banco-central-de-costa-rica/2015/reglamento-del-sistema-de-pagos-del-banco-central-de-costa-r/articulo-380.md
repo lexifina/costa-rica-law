@@ -1,3 +1,1 @@
-CAPÍTULO VII
-DE LA FACILIDAD CREDITICIA INTRADIARIA
-Artículo 380. Límites de crédito. El BCCR otorgará a los asociados, una facilidad crediticia intradiaria hasta por el monto de las garantías depositadas.
+Artículo 380. Cumplimiento del requerimiento de garantía. Los afiliados nacionales son responsables de aportar las garantías adicionales necesarias para cumplir con su requerimiento de garantía, de conformidad con la solicitud que para tales efectos les haga el BCCR cuando por cambios en las valoraciones de mercado, variaciones en el tipo de cambio o liquidación de vencimientos, su nivel descienda por debajo del requerimiento mínimo de garantía o del monto que deben mantener para respaldar sus obligaciones financieras.

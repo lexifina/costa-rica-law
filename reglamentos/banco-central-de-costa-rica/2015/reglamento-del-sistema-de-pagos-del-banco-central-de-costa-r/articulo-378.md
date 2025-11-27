@@ -1,1 +1,1 @@
-Artículo 378. Valoración. Los valores aportados en garantía serán valorados diariamente a precios de mercado. Por lo tanto, las emisiones que carezcan de una referencia de mercado sin que razonablemente pueda determinarse su precio por otros medios, no podrán admitirse como garantía.
+Artículo 378. Condiciones para la ejecución. Con la ejecución de garantías, los valores no podrán ser negociados por medio de un intermediario bursátil que mantenga relaciones de propiedad con las contrapartes involucradas en la operación incumplida.

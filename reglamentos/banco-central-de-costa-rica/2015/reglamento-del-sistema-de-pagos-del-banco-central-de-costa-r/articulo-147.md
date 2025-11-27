@@ -1,1 +1,1 @@
-Artículo 147. Condición de uso del servicio. Los participantes deben habilitar a sus clientes funcionalidades que les permitan asociar uno o varios números de teléfonos móviles a su cuenta IBAN, así como definir montos máximos movilizados por cada teléfono. Un número de teléfono móvil solo puede estar asociado a un número de cuenta IBAN en todo el sistema.
+Artículo 147. Valores compensables. Son compensables por medio del servicio COV todos los valores diferentes de los procesados por otros servicios financieros del SINPE.

@@ -1,3 +1,3 @@
-CAPÍTULO III
-DEL FUNCIONAMIENTO DEL SERVICIO
-Artículo 144. Suscripción e inactivación del servicio. La suscripción del servicio por parte de los clientes deberá realizarse por medio de todos los canales transaccionales autenticados (banca web, banca móvil, cajeros automáticos y plataforma de servicios, entre otros). La inactivación deberá estar disponible para el cliente en todos los canales transaccionales (autenticados y no autenticados), debiendo estar al menos uno de estos habilitados las 24 horas del día, todos los días del año. Respecto a la suscripción, la entidad que afilie un cliente físico o jurídico al servicio SINPE Móvil, deberá verificar previamente su voluntad de participar en dicho servicio.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 144. Certificación de cheques pagados. Los bancos certificarán a solicitud de los clientes y mediante microfilmación, imagen digital o archivo electrónico, los cheques que hayan pagado con cargo a sus cuentas corrientes. La imagen digital certificada deberá cumplir con las condiciones establecidas en la Serie de Normas y Procedimientos del SINPE.

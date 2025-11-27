@@ -1,5 +1,1 @@
-CAPÍTULO IV
-DE LAS CUENTAS DE EXPEDIENTE
-SIMPLIFICADO (CES)
-Artículo 476. Definición. Cuenta de fondos abierta por las entidades financieras (bancos y entidades autorizadas por leyes especiales) a las personas físicas que califiquen con un perfil de riesgo bajo, a quienes se les aplicará una debida diligencia simplificada.
-(Así reformado en sesión N° 6240 del 20 de febrero del 2025)
+Artículo 476. Presentación de propuestas alterna. En caso de que los afiliados o sus asociaciones gremiales no estén de acuerdo con las comisiones interbancarias definidas por el BCCR podrán presentar ante la Gerencia del BCCR su propuesta con la justificación y estudio de costos respectivo, la cual deberá resolverse de conformidad con lo que establezca la Ley 6227.

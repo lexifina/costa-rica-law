@@ -1,1 +1,3 @@
-Artículo 430. Participantes del servicio. En el servicio Firma Digital operan los asociados del SINPE como Oficinas de Registro y los suscriptores de certificados digitales como consumidores de los servicios de firma digital.
+CAPÍTULO III
+DE LAS PROHIBICIONES Y RESPONSABILIDADES
+Artículo 430. Uso restringido de la información. Las autoridades competentes autorizadas para acceder esta información deberán utilizarla únicamente para los fines establecidos en la Ley 7786 y su reglamento.

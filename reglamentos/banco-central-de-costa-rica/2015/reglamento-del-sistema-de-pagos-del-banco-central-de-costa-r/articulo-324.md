@@ -1,3 +1,3 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 324. Participantes del servicio. En el servicio CAN debe operar el BCCR, los asociados del SINPE que decidan mantener numerario del BCCR en sus propias bóvedas o espacios acondicionados para tal fin y los que requieran depositar numerario en la Custodia General del BCCR.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES DEL BCCR
+Artículo 324. Inspección y monitoreo. El BCCR es responsable de monitorear e inspeccionar las operaciones realizadas en las CAN y la Custodia General. Estas funciones las realizará por medio del Centro de Control de Numerario (CCN) del Departamento de Emisión de Valores.

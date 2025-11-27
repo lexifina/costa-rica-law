@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 104. Participantes del servicio. En el servicio SIPA podrán operar como entidad origen cualquier asociado del SINPE y como destino los asociados que administren cuentas IBAN.
+Artículo 104. Confidencialidad y protección de la información. El BCCR es responsable de administrar confidencialmente la información recibida de los operadores de redes de telefonía móvil garantizando la protección de la información de estos operadores.

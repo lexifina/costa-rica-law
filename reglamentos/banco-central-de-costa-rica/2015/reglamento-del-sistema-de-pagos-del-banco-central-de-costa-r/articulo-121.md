@@ -1,5 +1,1 @@
-LIBRO XI
-COMPENSACIÓN DE DÉBITOS DIRECTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 121. Definición del servicio. Compensación de Débito Directo (CDD) es el servicio de compensación multilateral neta, por medio del cual una entidad origen envía una instrucción de cobro propia o de su cliente, a una entidad destino para que se debite una cuenta de un cliente, previamente domiciliada por el cliente destino, en caso de que corresponda.
+Artículo 121. Reclamo de transacciones. La entidad destino deberá proveerle a su cliente una funcionalidad por medio de sus distintos canales (banca web, banca móvil, plataforma de servicios o cualquier otra disponible), de modo que este pueda ordenar por sí mismo un reclamo por cobro indebido, debiendo la entidad en un plazo máximo de 24 horas después de recibido el reclamo, ordenar el cobro revertido y realizar la acreditación de los fondos en la cuenta del cliente, siempre que la transacción se encuentre dentro del plazo de reclamación definido en este reglamento.

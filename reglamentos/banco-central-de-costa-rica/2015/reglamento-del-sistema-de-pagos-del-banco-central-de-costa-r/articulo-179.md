@@ -1,1 +1,3 @@
-Artículo 179. Garantía de la liquidación a operadores. SINPE-TP garantiza que la liquidación a los operadores de los ingresos tarifarios incluirá los montos de todas las transacciones procesadas por el sistema, previa deducción de los costos que corresponda con cargo a ellas y con independencia de los resultados de su gestión cobratoria con los emisores, de forma que los cobros fallidos que no estén cubiertos por la garantía del emisor serán asumidos por el BCCR como un costo derivado de su rol de proveedor de servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 179. Participantes del servicio. En el servicio Cuentas de Valores deben operar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.

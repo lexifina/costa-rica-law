@@ -1,3 +1,1 @@
-Artículo 406. Certificación de usuarios. Con la aprobación de un curso de capacitación, el participante obtiene una certificación que lo habilita a operar los servicios del SINPE contemplados dentro del programa del curso.
-Los afiliados deben cumplir con el porcentaje mínimo de usuarios certificados en cada servicio que se establezca en la Serie de Normas y Procedimientos del SINPE.
-Los afiliados son responsables de verificar que las personas que participan en el SINPE como usuarios de su entidad, estén capacitados y debidamente certificados por el BCCR.
+Artículo 406. Eliminación de derechos. La eliminación de derechos a un ARS, RST, RSP, DDU, consultante o usuario, podrá ser ejecutada por un solo responsable de seguridad o digitador, cuando tenga los derechos para ello.

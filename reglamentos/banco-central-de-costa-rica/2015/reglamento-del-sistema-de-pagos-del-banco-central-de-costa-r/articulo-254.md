@@ -1,1 +1,5 @@
-Artículo 254. Manejo de las comunicaciones. Toda comunicación relacionada con el otorgamiento o suspensión de la exoneración se efectuará por medio de los medios oficiales de comunicación, tomándose como oficial la información de la entidad exenta y dirección de correo electrónico registrado en las solicitudes de exención por el usuario responsable del registro de éstas.
+LIBRRO XXIII
+SUBASTA DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 254. Definición del servicio. Subasta de Valores es el servicio por medio del cual se negocian valores estandarizados por medio de subasta.

@@ -1,1 +1,3 @@
-Artículo 175. Uso de códigos de categoría mercante. Con su funcionamiento, SINPE-TP podrá utilizar códigos de categoría mercante (Merchant Category Code o MCC por sus siglas en inglés) propios para el procesamiento de las transacciones, en cuyo caso el BCCR deberá coordinar con los adquirentes y emisores nacionales los ajustes que procedan en las plataformas tecnológicas de procesamiento que involucre esa decisión.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 175. Autorización de débitos. La participación de un afiliado nacional en un servicio de compensación provisto por un organizador de mercados autoriza automáticamente la liquidación en su cuenta SINPE de las obligaciones financieras contraídas por medio del servicio.

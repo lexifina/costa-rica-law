@@ -1,1 +1,1 @@
-Artículo 267. Constitución de inversiones. Una orden de inversión se constituye en una inversión o depósito cuando se logra cobrar, en tiempo y forma, el monto invertido por el participante.
+Artículo 267. Suficiencia de fondos. Los inversionistas son responsables de gestionar la disposición de los fondos requeridos para que las entidades de custodia que actúen como miembros liquidadores de sus inversiones o de mantener en su cuenta SINPE los fondos necesarios para que el emisor pueda liquidar en tiempo y forma las colocaciones realizadas.

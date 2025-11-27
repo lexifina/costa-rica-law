@@ -1,2 +1,5 @@
-Artículo 170. Reelección y cambios en la designación. La persona representante en la Comisión Asesora de SINPE-TP puede ser reelecta o reemplazada en cualquier momento, de acuerdo con la decisión que adopte la entidad o agrupación que representa.
-Cuando un emisor nacional o cámara de autobuseros renuncie a su derecho de representación en la Comisión Asesora de SINPE-TP, para la determinación de la nueva estructura de integración deberán calcularse nuevamente las posiciones de representación, conforme con el procedimiento de nombramiento dispuesto en el presente capítulo y con la exclusión de la entidad que renuncia a la Comisión.
+LIBRO XV
+LIQUIDACIÓN DE SERVICIOS EXTERNOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 170. Definición del servicio. Liquidación de Servicios Externos (LSE) es el servicio de compensación multilateral neta por medio del cual se liquida, en las cuentas SINPE de dos o más afiliados nacionales, diferentes al propio organizador del mercado, el resultado producido por un servicio financiero administrado por un organizador de mercados.

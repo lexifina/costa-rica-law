@@ -1,1 +1,1 @@
-Artículo 133. Custodia de enteros por impuestos del Gobierno. El MHDA es responsable de custodiar los enteros recibidos de las entidades recaudadoras, que correspondan a impuestos a favor del Gobierno de Costa Rica.
+Artículo 133. Entrega del comprobante de cobro revertido. En el caso de reclamación por débitos no autorizados, la entidad destino del reclamo deberá entregar al cliente destino el comprobante del cobro revertido emitido por el servicio, cuando el cliente así lo solicite.

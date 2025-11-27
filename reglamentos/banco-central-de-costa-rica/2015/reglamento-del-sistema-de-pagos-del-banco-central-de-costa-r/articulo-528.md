@@ -1,2 +1,0 @@
-Artículo 528. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 521 al artículo 528)

@@ -1,3 +1,12 @@
-CAPÍTULO XIII
-DE LA CAPACITACIÓN Y CERTIFICACIÓN DE USUARIOS
-Artículo 404. Programa de capacitación del SINPE. La División Sistemas de Pago mantendrá un programa permanente de capacitación para los usuarios del SINPE, debiendo disponer de las instalaciones, equipo técnico y demás recursos necesarios para impartir una instrucción adecuada sobre las funcionalidades del sistema.
+CAPÍTULO III
+DE LA ESTRUCTURA DE SEGURIDAD DEL SINPE
+Artículo 404. Estructura por usuarios. La seguridad del SINPE a nivel de usuarios se estructura con base en los siguientes niveles:
+Administrador de Responsables de Seguridad (ARS): encargado en el BCCR de registrar los Responsables de Seguridad Total (RST) de los afiliados, de conformidad con la autorización emitida por el representante legal del afiliado. Los ARS registran los RST iniciales o bien alguno adicional solicitado por los afiliados, siempre y cuando el solicitante no tenga la posibilidad de crear un RST adicional.
+Responsable de Seguridad Total (RST): responsable absoluto de la administración de la seguridad del SINPE en su entidad; es el encargado de crear toda la jerarquía de responsables del afiliado en el AES, tal es el caso del Responsable de Seguridad Parcial (RSP), con quien conjuntamente se constituye en el responsable de autorizar los usuarios por servicio de su entidad. Las personas designadas como RST adquieren, en forma automática, la administración completa de los nuevos servicios o funcionalidades que se incorporen al SINPE con cada nueva liberación de software,
+Mecanismo de colas: el SIL ofrece a los afiliados la posibilidad de mantener en cola las transacciones remitidas por un mercado o servicio financiero, cuando la cuenta SINPE de la entidad no posea siempre que su entidad cuente con los correspondientes derechos de participación.
+Responsable de Seguridad Parcial (RSP): responsable en quien el RST delega parcialmente la función de administración de los usuarios del SINPE de su entidad.
+Digitador de Derechos de Usuario (DDU): encargado de registrar, modificar o eliminar derechos en el AES. Realiza una labor operativa de apoyo a los RST y RSP, aunque no es parte de la cadena de mancomunación requerida para registrar derechos a un usuario.
+Consultante: persona designada por los RST o RSP para ejecutar una función única de consulta en el AES, ya sea para cumplir labores de control o para facilitar la toma de decisiones. Tiene derecho a realizar consultas en el AES sobre los derechos otorgados a los usuarios de su entidad.
+Este perfil es propio de gerentes generales, gerentes financieros, contralores y auditores internos, entre otros.
+Usuario: persona designada por los RST o RSP para ejercer una función particular en alguno de los servicios del SINPE, de conformidad con los derechos que le hayan asignado los RST o RSP.
+Este tipo de usuario no utiliza el AES.

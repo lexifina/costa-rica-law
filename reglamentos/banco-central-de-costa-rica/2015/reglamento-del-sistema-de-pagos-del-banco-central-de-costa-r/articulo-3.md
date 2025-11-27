@@ -1,3 +1,4 @@
 CAPÍTULO III
 DE LOS AFILIADOS
-Artículo 3. Asociados. Se refiere a los bancos, empresas financieras no bancarias, mutuales de ahorro y préstamo, cooperativas de ahorro y crédito, cooperativas de servicios públicos, asociaciones solidaristas, cajas y juntas de ahorro, entidades financieras creadas por leyes especiales, puestos de bolsa, sociedades administradoras de fondos de inversión (y los fondos que administran), operadoras de pensiones (y los fondos que administran), casas de cambio, sociedades de seguros, organizadores de mercados, las instituciones públicas y operadores de redes de telefonía móvil residentes en Costa Rica, que cumplan con el proceso de suscripción al SINPE y se mantengan conectados directamente a su plataforma de servicios.
+Artículo 3. Afiliados. Se refiere a los asociados, asociados regionales, organizadores de mercados y proveedores de servicios de pago que participan en los servicios del SINPE que sean autorizados en este reglamento:
+[imagen]

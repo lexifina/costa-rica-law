@@ -1,1 +1,1 @@
-Artículo 203. Cierre de cuentas por inactividad. El BCCR procederá con el cierre de cuentas cuando hayan permanecido sin saldo e inactivas de conformidad con lo que establezca al respecto la SUGEVAL.
+Artículo 203. Uso del código ISIN. Cada emisión de valores debe estar identificada con un código ISIN único y será registrada por su valor facial, conforme con la cantidad de valores que la compongan.

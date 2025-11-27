@@ -1,3 +1,1 @@
-CAPÍTULO III
-DEL ESQUEMA DE OPERACIÓN
-Artículo 413. Carácter exclusivo del servicio. Todo servicio financiero o mercado que involucre la liquidación de fondos y valores debe ser liquidado por medio del SIL.
+Artículo 413. Diseño de la estructura de seguridad. Los afiliados son responsables de implementar una estructura de seguridad que incorpore los elementos que contempla el servicio AES, tales como: designación de RST, designación de RSP, asignación de derechos a usuarios y demás aspectos relacionados con la seguridad del sistema.

@@ -1,1 +1,1 @@
-Artículo 194. Coordinación. La coordinación de los asuntos relacionados con el funcionamiento de SINPE-TP será llevada a cabo directamente entre el BCCR y las entidades administradoras de las estaciones de peaje.
+Artículo 194. Responsabilidades civiles. Las omisiones de registro, inexactitudes y retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.

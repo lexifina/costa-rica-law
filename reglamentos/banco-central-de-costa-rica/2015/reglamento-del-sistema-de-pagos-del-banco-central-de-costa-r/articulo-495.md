@@ -1,2 +1,0 @@
-Artículo 495. Información de control para las ayudas sociales. Para el caso de las ayudas sociales con acreditación en las CES, el MHDA y cualquier otra institución pública que brinde ayudas sociales tendrán acceso a la información para fines de control, siempre que disponga de la debida autorización de parte del beneficiario de la ayuda social para consultarla por medio del PUC.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 488 al artículo 495)

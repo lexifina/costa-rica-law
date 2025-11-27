@@ -1,3 +1,6 @@
-Artículo 479. Aplicación de régimen simplificado. Con la política conozca a su cliente, los titulares de las CES estarán sujetos a un régimen de documentación y debida diligencia simplificados, de manera que la apertura y manejo de las cuentas se lleve a cabo mediante procedimientos administrativos sencillos, basados en el uso y almacenamiento de información electrónica y sin requerir de documentación física, excepto su documento de identificación al momento de la apertura de esta.
-La información que se les requiera a los titulares de las CES para la apertura y administración de dichas cuentas, en virtud de la aplicación de la legislación sobre legitimación de capitales y financiamiento al terrorismo, será solamente la establecida por el presente libro y en la Serie de Normas y Procedimientos del SINPE.
-(Así reformado en sesión N° 6240 del 20 de febrero del 2025)
+CAPÍTULO V
+DEL CICLO DEL SERVICIO
+Artículo 479. Del ciclo de operación del servicio. El ciclo del servicio TCS opera con las siguientes etapas:
+Cálculo de las tarifas y comisiones: el primer día hábil de cada mes y con base en los registros de las transacciones del mes anterior, el SINPE calcula el monto a cargo de cada afiliado.
+Para el cálculo de las tarifas y comisiones por el uso de la plataforma del SINPE, se computarán todas las transacciones enviadas. Para determinar las comisiones interbancarias, serán excluidas las transacciones no concluidas exitosamente por problemas atribuibles a la entidad destino.
+Liquidación: el SIL efectúa la liquidación en firme.

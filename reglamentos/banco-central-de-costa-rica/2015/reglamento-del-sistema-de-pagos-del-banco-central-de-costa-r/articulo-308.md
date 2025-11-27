@@ -1,4 +1,1 @@
-CAPÍTULO VI
-DE LAS RESPONSABILIDADES
-Artículo 308. Registro contable de las operaciones. Las entidades autorizadas a operar en el mercado cambiario deben mantener registros contables separados que permitan identificar las operaciones que realicen en el Monex-Subasta, así como bases de datos centralizadas con el detalle de todas las operaciones cambiarias realizadas con el público en todas sus oficinas, agencias y sucursales, incluidas las negociadas por medio de canales electrónicos.
-Las entidades autorizadas también deberán suministrar diariamente al BCCR la información de su actividad cambiaria, con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en el Reglamento de Operaciones Cambiarias de Contado y la Serie de Normas y Procedimientos del SINPE.
+Artículo 308. Carácter oficial del servicio. El servicio CAN es el sistema oficial de registro del inventario de numerario del BCCR, del que mantiene en su Custodia General y del custodiado por cuenta y riesgo de los asociados que administran las CAN.

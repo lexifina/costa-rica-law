@@ -1,4 +1,4 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 88. Participantes del servicio. En el servicio TCC podrán operar todos los afiliados, con excepción de los Proveedores de Servicios de Pago.
-(Así reformado en sesión N° 6240 del 20 de febrero del 2025)
+CAPÍTULO III
+DEL FUNCIONAMIENTO DEL SERVICIO
+Artículo 88. Suscripción e inactivación del servicio. La suscripción del servicio por parte de los clientes deberá realizarse por medio de alguno de los canales transaccionales autenticados (banca web, banca móvil y plataforma de servicios) que la entidad disponga. La inactivación deberá estar disponible para el cliente en todos los canales transaccionales (autenticados y no autenticados), debiendo estar al menos uno de estos habilitados las 24 horas del día, todos los días del año.
+Respecto a la suscripción, la entidad que afilie un cliente físico o jurídico al servicio SINPE Móvil, deberá verificar previamente la voluntad de este de participar en dicho servicio, además, deberá de implementar algún mecanismo de autenticación del número de teléfono móvil que se está vinculando a la cuenta, con la finalidad de garantizar que quien se encuentra en posesión de ese número es consciente de tal asociación.

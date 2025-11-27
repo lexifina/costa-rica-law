@@ -1,1 +1,1 @@
-Artículo 62. Apertura de cuentas. El afiliado podrá mantener solo una cuenta en moneda nacional y una cuenta por tipo de moneda extranjera, salvo cuando medie autorización expresa de la Dirección de la División Sistemas de Pago para abrir cuentas adicionales.
+Artículo 62. Moneda de las cuentas SINPE. Las cuentas SINPE son abiertas en moneda nacional o extranjera, de acuerdo con las necesidades del Sistema de Pagos.

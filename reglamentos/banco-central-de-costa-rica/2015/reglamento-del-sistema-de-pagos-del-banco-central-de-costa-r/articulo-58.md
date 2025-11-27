@@ -1,4 +1,1 @@
-CAPÍTULO XIII
-DE LOS DERECHOS DEL BCCR SOBRE SIGNOS EXTERNOS
-Artículo 58. Uso de signos externos. El SINPE es una marca comercial registrada propiedad del BCCR, por lo que su uso está restringido al BCCR o a quien éste autorice.
-Para el uso de la marca y de los signos distintivos del SINPE deberán seguirse los lineamientos establecidos en el "Manual de marca del SINPE", definido por el BCCR.
+Artículo 58. Presentación de reclamos: Ante incumplimientos regulatorios en la prestación de los servicios de movilización de fondos (PIN, DTR, CLC, CCD, CDD y SINPE Móvil), los clientes deben presentar su reclamo, en una primera instancia, ante el afiliado al cual se le imputa el incumplimiento, quien deberá responder al reclamante en un plazo máximo de 10 días hábiles. En caso de que el afectado no considere satisfactoria la respuesta, podrá denunciar la situación ante el director de la División Sistemas de Pago para que el BCCR se entere del incumplimiento e inste a las partes a resolver el asunto y en caso de inconformidad con la resolución, el cliente podrá realizar la denuncia respectiva ante la autoridad competente.

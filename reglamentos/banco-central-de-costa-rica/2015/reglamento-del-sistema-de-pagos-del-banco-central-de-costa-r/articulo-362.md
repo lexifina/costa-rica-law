@@ -1,1 +1,3 @@
-Artículo 362. Activos financieros admisibles. Las garantías del Sistema de Pagos podrán constituirse con valores negociables, conforme con lo que establezcan las normas complementarias del servicio.
+CAPÍTULO VI
+DE LAS CONDICIONES DE LOS VALORES EN GARANTÍA
+Artículo 362. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente estandarizados y sean admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas y por entidades supranacionales, conforme con las disposiciones que se establezcan en las normas complementarias del servicio y que determine el órgano administrativo designado por la Junta Directiva del BCCR para esos fines.

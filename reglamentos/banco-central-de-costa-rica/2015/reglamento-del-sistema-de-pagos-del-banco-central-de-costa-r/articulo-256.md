@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 256. Participantes del servicio. En el servicio Captación de Fondos opera el BCCR y el MHDA como receptores de las inversiones y depósitos, y podrán operar como inversionistas las entidades asociadas al SINPE, de conformidad con las condiciones que el emisor respectivo establezca para las negociaciones.
+Artículo 256. Suspensión de la participación. Cuando las actuaciones de algún inversionista no se ajusten a las sanas prácticas del mercado, el BCCR como administrador del servicio podrá suspender su participación en el servicio, debiendo notificar de inmediato a la SUGEVAL sobre la suspensión decretada y las causas que la justifican.

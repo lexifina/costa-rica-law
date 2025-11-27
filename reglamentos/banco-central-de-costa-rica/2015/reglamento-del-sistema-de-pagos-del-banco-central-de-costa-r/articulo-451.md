@@ -1,1 +1,5 @@
-Artículo 451. Revocación de certificados. Toda persona física o jurídica que requiera tramitar la revocación de un certificado digital debe realizar el trámite directamente ante las Autoridades Certificadoras del SINPE por los medios electrónicos que ésta tenga dispuestos para este propósito. No obstante, para el caso de los certificados digitales de persona física, las OR deben realizar el trámite de revocación cuando sus clientes se lo soliciten, sin costo alguno.
+LIBRO XXXVII
+INFORMACIÓN SOBRE EL SISTEMA DE PAGOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 451. Definición del servicio. Información sobre el Sistema de Pagos (ISP) es el servicio de recopilación, procesamiento y divulgación de información agregada de los sistemas y medios de pago ofrecidos por el Sistema Financiero Nacional. Sus participantes deberán velar por el cumplimiento de principios de oportunidad, veracidad, calidad, suficiencia y comparabilidad de la información.

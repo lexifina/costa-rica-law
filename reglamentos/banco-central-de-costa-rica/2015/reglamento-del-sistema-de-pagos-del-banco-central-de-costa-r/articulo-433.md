@@ -1,1 +1,1 @@
-Artículo 433. Información de contacto. Para obtener certificados digitales, el suscriptor debe suministrar a la CA SINPE toda la información de contacto y cualquier otra que requiera la Autoridad Certificadora para la efectiva comunicación y prestación de los servicios de firma digital.
+Artículo 433. Confidencialidad de la identidad de terceros. Los afiliados deberán manejar confidencialmente, la identidad de las personas que consulten en el servicio, con el propósito de no obstaculizar posibles investigaciones.

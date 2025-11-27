@@ -1,3 +1,1 @@
-CAPÍTULO VI
-DEL COBRO DE LOS SERVICIOS
-Artículo 453. Procedimiento de cobro. El cobro por los servicios de firma digital para personas físicas o jurídicas se realizará mediante Débito a una cuenta IBAN del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado digital. Cuando se trate de entidades asociadas al SINPE el cobro se realizará con cargo a la cuenta SINPE correspondiente.
+Artículo 453. Recolección y análisis de información. El servicio ISP contempla la recolección y análisis de la información de las transacciones realizadas por los afiliados en todos los servicios financieros del SINPE y la generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional, tanto para fines estadísticos como para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense.

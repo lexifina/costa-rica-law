@@ -1,1 +1,1 @@
-Artículo 408. Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operación normal del sistema.
+Artículo 408. Contingencia del RST. Es responsabilidad de la entidad crear en su estructura de seguridad al menos a un tercer RST, para que pueda modificar a los anteriores RST en sus servicios operativos, o colaborar en las labores que dicho perfil demanda.

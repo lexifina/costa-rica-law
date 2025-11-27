@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 417. Participantes del servicio. En el servicio AES operan todos los afiliados del SINPE.
+Artículo 417. Marco Legal. Los servicios de firma digital (SFD) y sus participantes se rigen conforme a lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº8454, el reglamento a esta ley, la Política de Certificados para la Jerarquía Nacional de Certificadores Registrados, el presente reglamento y la Serie de Normas y Procedimientos del SINPE.

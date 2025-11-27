@@ -1,3 +1,7 @@
-CAPÍTULO IV
-DE LOS SERVICIOS DE VALOR AGREGADO
-Artículo 444. Definición de los servicios. Servicios autenticados, dirigidos a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, orientados a la autenticación de usuarios, custodia de certificados digitales, así como a la firma digital de archivos electrónicos en formatos oficiales y a la emisión de estampas de tiempo con relevancia jurídica.
+Artículo 444. Condiciones para el funcionamiento de las CES. En adición a los requisitos de apertura y funcionamiento establecidos en el presente libro, los emisores deben cumplir con las siguientes condiciones:
+Canales transaccionales habilitados para el cliente. Los emisores deben garantizarles a sus clientes acceso a todos los canales de distribución de servicios dispuestos para el uso de medios e instrumentos de pago. La entidad tendrá la potestad de proveer a sus clientes los distintos productos o servicios financieros según el perfil de riesgo de este.
+Cobro de comisiones. No procede el cobro de comisiones y de ningún tipo de costo a cargo del cliente por la administración de la CES. No obstante, el participante podrá cobrar comisiones al cliente sobre los servicios de valor agregado que le provea con el uso de la CES, conforme con sus políticas internas de precios.
+Monitoreo del cliente. Para las CES aplican los mismos procedimientos de seguimiento y monitoreo transaccional dispuestos por el participante para el resto de las cuentas de fondos que administra.
+Conservación y custodia de registros. El emisor que apertura la CES deberá mantener y custodiar la información del cliente, incluida la de sus operaciones, durante la relación comercial y hasta por un periodo mínimo de cinco aos después de finalizada dicha relación.
+Traslado de CES. En caso de que un cliente desee abrir su CES en otra entidad emisora de CES, esta deberá instruir al cliente para que gestione el cierre de su CES vigente, previo a solicitar la apertura de la nueva CES.
+El participante deberá reclasificar las CES de los clientes, cuando su perfil pierda la condición de riesgo bajo.

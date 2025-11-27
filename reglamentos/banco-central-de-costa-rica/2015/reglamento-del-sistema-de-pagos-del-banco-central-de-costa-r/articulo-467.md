@@ -1,4 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 467. Participantes. Deberán operar en el servicio CSO todos los afiliados quienes deben ejercer los controles necesarios sobre las transacciones que su entidad ha tramitado en representación de sus clientes, ya sea como originador o receptor.
-El servicio está dirigido a personas con funciones de control y monitoreo de transacciones interbancarias y a los organismos facultados legalmente para acceder a la información de esas transacciones.
+Artículo 467. Responsabilidad por atrasos en la actualización de la información. El BCCR ni los agentes de información asumen responsabilidad alguna por los atrasos, inconvenientes o daños causados o sufridos por la prestación del servicio, cuando sean consecuencia de fallas tecnológicas propias o de terceros, caso fortuito, fuerza mayor, culpa de la víctima o hecho de un tercero, siempre y cuando dicho problema no obedezca a actuaciones dolosas o culpa grave de su personal.

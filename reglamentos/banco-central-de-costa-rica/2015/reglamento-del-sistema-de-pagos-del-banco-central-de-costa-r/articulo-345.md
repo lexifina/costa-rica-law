@@ -1,5 +1,4 @@
-LIBRO XXIX
-MERCADO DE NUMERARIO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 345. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistemas de Pago.
+Artículo 345. Actividades garantizadas. Las garantías que rindan los afiliados nacionales serán para respaldar:
+El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, por medio del SINPE.
+Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para los afiliados nacionales que participan en los servicios de liquidación multilateral neta del SINPE, con excepción de los servicios CCD, CDD y de la Liquidación de Servicios Externos el servicio de Transferencia entre Operadoras (TEO).
+El cumplimiento del aporte al Fondo de Garantía de Depósito y de Mecanismos de resolución de los intermediarios financieros, de conformidad con lo establecido en la Ley No. 9816

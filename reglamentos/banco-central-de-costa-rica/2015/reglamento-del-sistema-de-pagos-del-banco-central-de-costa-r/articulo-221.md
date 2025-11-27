@@ -1,1 +1,3 @@
-Artículo 221. Uso del código ISIN. Cada emisión de valores debe estar identificada con un código ISIN único y será registrada por su valor facial, conforme con la cantidad de valores que la compongan.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 221. Participantes del servicio. En el servicio Traspaso de Valores deben operar las entidades de custodia y los miembros liquidadores.

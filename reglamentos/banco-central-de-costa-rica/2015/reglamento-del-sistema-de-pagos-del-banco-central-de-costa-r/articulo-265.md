@@ -1,3 +1,3 @@
 CAPÍTULO IV
-DEL REGISTRO DE LA DEUDA
-Artículo 265. Orden de Inversión. El inversionista por medio de los servicios de captación envía la orden de inversión, con la información de la operación por constituirse como depósito y por liquidar en las cuentas de fondos.
+DE LAS RESPONSABILIDADES
+Artículo 265. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad de condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas y la difusión de información de los resultados de las colocaciones, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.

@@ -1,3 +1,1 @@
-CAPÍTULO X
-DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
-Artículo 394. Sustitución de garantías. Los asociados deberán atender con la oportunidad requerida por el BCCR, las instrucciones que el propio BCCR les suministre para la sustitución de garantías.
+Artículo 394. Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operación normal del sistema.

@@ -1,1 +1,3 @@
-Artículo 200. Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 200. Participantes del servicio. En el servicio Registro de Emisiones deben operar las entidades públicas que emitan valores anotados en cuenta, y sus representantes. Además, podrán operar las entidades de custodia y los miembros liquidadores.

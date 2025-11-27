@@ -1,1 +1,7 @@
-Artículo 427. Diseño de la estructura de seguridad. Los afiliados son responsables de implementar una estructura de seguridad que incorpore los elementos que contempla el servicio AES, tales como: designación de RST, designación de RSP, asignación de derechos a usuarios y demás aspectos relacionados con la seguridad del sistema.
+SERVICIOS DE APOYO
+LIBRO XXXV
+CONTROL Y SEGUIMIENTO DE OPERACIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 427. Definición del servicio. Control y Seguimiento de Operaciones (CSO) es el servicio por medio del cual se consultan las transacciones que efectúan los afiliados por medio del SINPE, en nombre de terceros, sean personas físicas o jurídicas.
+El servicio CSO permite la identificación plena de las personas involucradas en las transacciones, pudiéndose determinar el origen y destino de los fondos o valores movilizados, así como identificar a los afiliados que intervinieron en las transacciones.

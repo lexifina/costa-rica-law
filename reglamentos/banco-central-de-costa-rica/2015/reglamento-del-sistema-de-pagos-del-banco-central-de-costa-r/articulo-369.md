@@ -1,1 +1,3 @@
-Artículo 369. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para los asociados, éstos podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados por medio del SINPE.
+CAPÍTULO VIII
+DEL CRÉDITO OVERNIGHT
+Artículo 369. Formalización de créditos. Si al cierre del horario bancario un afiliado nacional mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.

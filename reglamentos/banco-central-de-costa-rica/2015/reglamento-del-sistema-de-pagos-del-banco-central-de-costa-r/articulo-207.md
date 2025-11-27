@@ -1,1 +1,3 @@
-Artículo 207. Liquidación de valores pignorados. Los valores que a su fecha de vencimiento se encuentren pignorados, se liquidarán en la cuenta que corresponda para cada caso en particular, conforme con las instrucciones establecidas para la pignoración.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 207. Representación de emisores. Los representantes de los emisores son responsables de la suscripción y administración de las emisiones de la entidad que representan, así como de las actividades que contemplen en el acuerdo de representación.

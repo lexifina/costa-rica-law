@@ -1,2 +1,4 @@
-Artículo 180. Procedimiento de recuperación de deudas. SINPE-TP deberá disponer de un procedimiento formal para gestionar la recuperación de los cargos que los pasajeros mantengan pendientes de pago. Dicho procedimiento deberá definir la situación a partir de la cual se decreta la incobrabilidad de un saldo adeudado.
-Este procedimiento será definido en la norma complementaria de SINPE-TP.
+CAPÍTULO III
+DE LAS CUENTAS DE VALORES
+Artículo 180. Tipos de cuenta. Las entidades de custodia mantienen una cuenta de valores propios y un número ilimitado de cuentas para valores por cuenta de terceros, cada una identificada con un número único asignado por el servicio.
+Los miembros liquidadores únicamente podrán mantener cuentas de valores propios.

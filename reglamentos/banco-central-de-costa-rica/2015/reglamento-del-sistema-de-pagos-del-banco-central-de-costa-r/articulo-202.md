@@ -1,6 +1,1 @@
-Artículo 202. Suspensión y cierre de cuentas propias. El BCCR podrá suspender las cuentas de valores propios de los participantes, cuando así lo ordene una autoridad competente. Asimismo, el BCCR procederá con el cierre de estas cuentas cuando se presente cualquiera de las siguientes situaciones:
-a) Cambio del número de documento identificación de la entidad.
-b) Fusión con otro asociado autorizada por el CONASSIF, manteniéndose la cuenta de la entidad que prevalece en el proceso de fusión.
-c) Cierre o quiebra de la entidad.
-d) Suspensión de la autorización para operar, dictada por el CONASSIF.
-La suspensión temporal de una cuenta de valores propia no eximirá a la entidad de la finalización de las operaciones en curso.
+Artículo 202. Registro de emisiones. Las emisiones serán registradas de forma automática cuando estén autorizadas en el Registro Nacional de Valores e Intermediarios (RNVI), a las cuales los emisores deberán completar las características esenciales que solicita el servicio.

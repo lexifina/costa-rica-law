@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-DEL CRÉDITO OVERNIGHT
-Artículo 384. Formalización de créditos. Si al cierre del horario bancario un asociado mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.
+Artículo 384. Medidas para enfrentar exclusiones. Para enfrentar situaciones que ameriten la exclusión de un afiliado de un multilateral neto, así como cualquier otro problema similar que se llegue a presentar con la liquidación, los sistemas de información de los afiliados deberán estar preparados para reversar las transacciones de la entidad excluida.

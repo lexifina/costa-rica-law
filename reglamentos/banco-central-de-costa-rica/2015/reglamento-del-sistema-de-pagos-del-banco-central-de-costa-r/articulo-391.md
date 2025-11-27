@@ -1,1 +1,1 @@
-Artículo 391. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.
+Artículo 391. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no sean usuarios del SINPE, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios afiliados.

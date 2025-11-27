@@ -1,3 +1,1 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 138. Modalidad del servicio. El servicio LSE operará con base en la información suministrada por el organizador de mercados, cuyos datos podrán presentarse bajo la modalidad de resultados bilaterales o resultados multilaterales, según sea el esquema definido por el organizador de mercados.
+Artículo 138. Horario del servicio. El servicio SIP opera únicamente durante los días hábiles definidos en la Serie de Normas y Procedimientos del SINPE.

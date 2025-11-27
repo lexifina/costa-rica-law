@@ -1,5 +1,1 @@
-LIBRO XII
-INFORMACIÓN Y LIQUIDACIÓN DE IMPUESTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 128. Definición del servicio. Información y Liquidación de Impuestos (ILI) es el servicio por medio del cual se reciben los fondos de la recaudación nacional de rentas, tanto las correspondientes al Gobierno Central de la República, como aquellas a favor de instituciones públicas y otras instituciones cuya ley de creación le asigna la responsabilidad de recepción y distribución al BCCR.
+Artículo 128. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 30 días naturales de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.

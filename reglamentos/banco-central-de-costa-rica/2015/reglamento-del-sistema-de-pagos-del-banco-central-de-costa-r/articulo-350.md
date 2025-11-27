@@ -1,4 +1,4 @@
-Artículo 350. Excepciones a las tarifas. Los siguientes casos constituyen excepciones a la aplicación de las tarifas del BCCR en el servicio MEN:
-a) Corridas bancarias, fuerza mayor u otras contingencias que exijan un retiro masivo de numerario del BCCR para garantizar el abastecimiento del numerario a la economía.
-b) La sustitución de una serie, de una emisión o de una denominación en particular, motivada por situaciones que comprometan la seguridad del numerario como medio de pago.
-La aplicación de las excepciones requiere ser autorizadas por la Gerencia del BCCR mediante resolución.
+LIBRO XXX
+GESTIÓN DE RIESGOS DE LIQUIDEZ
+GESTIÓN DE RIESGOS Y DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
+Artículo 350. Adhesión a las disposiciones sobre garantías. Los afiliados nacionales obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.

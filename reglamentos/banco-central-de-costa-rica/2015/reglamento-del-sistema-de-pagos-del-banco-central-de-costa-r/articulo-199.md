@@ -1,1 +1,1 @@
-Artículo 199. Identificación de las cuentas de terceros. Las cuentas de terceros se identifican con el nombre y el número de documento de identificación de sus titulares, así como con su estado de domicilio y nacionalidad.
+Artículo 199. Horario de funcionamiento. El servicio Registro de Emisiones estará disponible para la administración de las emisiones durante el horario bancario, y a modo de consulta durante el horario de operación del SINPE.

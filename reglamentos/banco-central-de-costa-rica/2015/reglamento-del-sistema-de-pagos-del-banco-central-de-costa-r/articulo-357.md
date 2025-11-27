@@ -1,6 +1,1 @@
-GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
-LIBRO XXX
-GESTIÓN DE RIESGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 357. Definición del servicio. Gestión de Riesgos es el conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico asociados al funcionamiento del Sistema de Pagos.
+Artículo 357. Retención de vencimientos. Cuando sea necesario liquidar vencimientos que provoquen que el requerimiento de garantía descienda por debajo de su nivel mínimo, los vencimientos se mantendrán retenidos en una cuenta SINPE en garantía y no serán girados hasta que el acreedor aporte nuevos valores que restituyan el faltante de garantía.

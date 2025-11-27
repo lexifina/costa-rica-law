@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LOS SERVICIOS COMPLEMENTARIOS
-Artículo 449. Definición de los servicios: Son servicios disponibles para todo público, mediante los cuales, los interesados pueden realizar la validación de certificados de firma digital, la validación de archivos electrónicos y la revocación de sus certificados.
+Artículo 449.Supervisión. La SUGEF tendrá acceso a la información del PUC para velar por el cumplimiento de las regulaciones establecidas en este reglamento sobre las cuentas de los afiliados nacionales.

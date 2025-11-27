@@ -1,3 +1,2 @@
-CAPÍTULO V
-DEL PADRÓN MÓVIL INTERBANCARIO
-Artículo 154. Definición. Se denomina padrón móvil interbancario al registro centralizado de todos los números de teléfono móvil asociados a cuentas IBAN por los participantes del servicio SINPE Móvil. Su administración se encuentra a cargo del BCCR.
+LIBRO XII
+Artículo 154. Funcionalidad del servicio. El servicio operará para transacciones en las que el cliente origen es una persona jurídica y el cliente destino es una persona física o jurídica. Estas transacciones de débito se realizan con base en la autorización de débito emitida por el cliente destino ante la entidad origen. Estas transacciones podrán ser objeto de un cobro revertido, de conformidad con las disposiciones establecidas en el servicio de Reclamaciones.

@@ -1,2 +1,0 @@
-Artículo 524. Ajuste automático de tarifas. Las tarifas definidas en el presente reglamento para este servicio serán ajustadas automáticamente conforme con lo que establezcan los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 517 al artículo 524)

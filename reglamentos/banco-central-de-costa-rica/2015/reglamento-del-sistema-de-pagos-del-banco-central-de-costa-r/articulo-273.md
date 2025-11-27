@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 273. Participantes del servicio. En el servicio Subasta de Valores opera el BCCR como emisor y los asociados del SINPE como inversionistas, de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo dispongan, el MHDA u otra institución pública también podrán operar como emisores.
+Artículo 273. Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 día y 6 meses. Las operaciones diferidas a plazo se pactarán de contado con plazos de negociación superiores a 6 meses y hasta 4 años.

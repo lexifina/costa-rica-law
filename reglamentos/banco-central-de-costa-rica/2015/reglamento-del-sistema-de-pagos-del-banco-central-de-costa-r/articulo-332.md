@@ -1,1 +1,3 @@
-Artículo 332. Numerario custodiado por terceros. Los asociados serán responsables ante el BCCR en caso de que deleguen en empresas transportadoras de valores o en otras afines, la custodia del numerario depositado en las CAN. Asimismo, serán responsables de que tales empresas cumplan las regulaciones del servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 332. Participantes del servicio. En el servicio MEN podrán operar el BCCR y los asociados al SINPE que decidan negociar numerario por su cuenta.

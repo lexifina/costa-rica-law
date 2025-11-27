@@ -1,1 +1,3 @@
-Artículo 123. Autorización del titular de la cuenta. En el caso de transacciones en las que el cliente origen y cliente destino son la misma persona física o jurídica, la entidad origen deberá contar previamente con una autorización física o electrónica del cliente para realizar el débito sobre su cuenta, en los mismos términos de autorización de giro que contempla el Código de Comercio y las demás normas jurídicas aplicables, de modo que pueda demostrar que los débitos se realizaron por solicitud expresa del titular de la cuenta.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 123. Participantes del servicio. En el servicio REF podrá operar cualquier afiliado.

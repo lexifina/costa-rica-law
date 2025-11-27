@@ -1,3 +1,5 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 262. Participantes del servicio. En el servicio Registro de Deuda en Depósito opera el BCCR y el MHDA como emisores de la deuda contraída mediante inversiones y depósitos.
+LIBRO XXIV
+VENTANILLA DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 262. Definición del servicio. Ventanilla de Valores (VEV) es el servicio por medio del cual se colocan valores estandarizados por medio de ventanilla.

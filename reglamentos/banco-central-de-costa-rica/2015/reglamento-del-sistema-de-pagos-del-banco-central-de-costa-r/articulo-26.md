@@ -1,3 +1,1 @@
-CAPÍTULO VII
-DE LA ACREDITACIÓN DE FONDOS A LOS CLIENTES
-Artículo 26. Acreditación efectiva de fondos. Los afiliados al SINPE deben liberar los fondos a sus clientes dentro de los plazos definidos para los servicios financieros. Ante situaciones contingentes aplicará lo establecido en el libro Gestión de Riesgos del presente reglamento.
+Artículo 26. Puesta en operación de nuevos servicios y funcionalidades. La División Sistemas de Pago es responsable de determinar y comunicar oportunamente a los afiliados la fecha de puesta en operación de los nuevos servicios y funcionalidades que se incorporen al SINPE con cada nueva versión del presente reglamento. Las regulaciones establecidas antes de la aprobación del presente reglamento se mantendrán vigentes, mientras no sea puesta en operación la nueva funcionalidad definida.

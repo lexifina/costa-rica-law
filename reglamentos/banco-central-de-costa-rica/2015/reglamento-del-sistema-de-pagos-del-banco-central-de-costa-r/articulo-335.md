@@ -1,1 +1,3 @@
-Artículo 335. Movimiento ante servicio CAN inoperable. Cuando por circunstancias ajenas a los asociados el Servicio CAN se encuentre fuera de operación, podrán realizar movimientos de numerario en las CAN, siempre y cuando, cumplan los procedimientos establecidos y registren tales movimientos en el servicio CAN, a más tardar diez minutos después de que el servicio haya sido reestablecido.
+CAPÍTULO IV
+DE LA PARTICIPACIÓN DEL BCCR EN MEN
+Artículo 335. Entrega de billete adquirido al BCCR: el BCCR realizará la entrega del billete en sus instalaciones.

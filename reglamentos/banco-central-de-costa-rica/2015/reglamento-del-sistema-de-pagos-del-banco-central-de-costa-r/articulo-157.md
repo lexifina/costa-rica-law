@@ -1,3 +1,3 @@
-CAPÍTULO VII
-DE LAS RESPONSABILIDADES
-Artículo 157. Uso de los estándares y reglas de operación. Los participantes deberán proveer el servicio SINPE Móvil a sus clientes, tanto a nivel intrabancario como interbancario, respetando el nombre del servicio, las reglas de negocio y los estándares de mensajería, funcionalidad e interfaz de usuario que el BCCR defina en el presente reglamento y en la Serie de Normas y Procedimientos del SINPE.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 157. Participantes del servicio. En el servicio CDD pueden operar como entidad origen los afiliados nacionales y como destino deben participar todos los afiliados nacionales que administran cuentas de fondos y cuentas de administración de recursos. Los organizadores de mercados, casas de cambio y los proveedores de servicios de pago podrán participar en el servicio como entidad origen, sujetos a la garantía definida en el libro de gestión de riesgos de liquidez.

@@ -1,5 +1,1 @@
-LIBRO XXII
-REGISTRO DE DEUDA EN DEPÓSITO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 260. Definición del servicio. Registro de Deuda en Depósito (RDD) es el servicio por medio del cual se administra la deuda constituida mediante depósitos, por captaciones directas.
+Artículo 260. Declaración de subasta desierta. El emisor se reserva el derecho de declarar total o parcialmente desierta una subasta, cuando considere que las ofertas no representan adecuadamente las condiciones de mercado, pudieren llegar a producir efectos inconvenientes en el mismo o se detecte colusión entre los inversionistas; evento que estaría comunicando por medios oficiales.

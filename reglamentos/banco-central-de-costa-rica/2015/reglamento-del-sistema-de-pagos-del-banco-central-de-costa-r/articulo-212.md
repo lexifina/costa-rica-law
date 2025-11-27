@@ -1,1 +1,4 @@
-Artículo 212. Responsabilidades civiles. Las omisiones de registro, inexactitudes y retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 212. Participantes en el servicio. En el servicio Liquidación de Mercados deben operar las entidades de compensación y liquidación de valores, los miembros liquidadores, las entidades de custodia y los emisores de valores públicos anotados en cuenta o sus representantes.
+La participación de las entidades de custodia será únicamente con fines de consulta.

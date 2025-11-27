@@ -1,5 +1,1 @@
-LIBRO XXVI
-MERCADO DE MONEDAS EXTRANJERAS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 301. Definición del servicio. Monex-SINPE es el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+Artículo 301. Numerario que deja de ser válido como medio de pago. En caso de emisión de nuevas series de numerario, la División de Sistemas de Pago definirá el plazo durante el cual las series previas de numerario continuarán siendo aceptadas como medio de pago en la economía. Una vez concluido dicho periodo, los asociados deberán recibir del público el numerario para operaciones de pago, canje o depósito, a través de su infraestructura de agencias y sucursales.

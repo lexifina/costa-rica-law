@@ -1,6 +1,1 @@
-SERVICIOS DE APOYO
-LIBRO XXXIV
-AUTORIZACIÓN DE DÉBITO AUTOMÁTICO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 454. Definición del servicio. Autorización de Débito Automático (ADA) es el mecanismo que permite a los clientes de los asociados autorizar débitos automáticos con cargo a sus cuentas IBAN, producto de transacciones procesadas por medio del servicio de Débitos Directos del SINPE.
+Artículo 454. Información de otros sistemas de compensación y pago. En su función rectora del Sistema de Pagos, el BCCR podrá solicitar la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.

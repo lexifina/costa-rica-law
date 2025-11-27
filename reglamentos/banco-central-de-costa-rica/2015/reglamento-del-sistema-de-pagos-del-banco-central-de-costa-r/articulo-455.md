@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 455. Participantes del servicio. En el servicio ADA deben operar como entidad origen y destino los asociados que administren cuentas de fondos, y podrán operar como entidad origen todos los asociados del SINPE.
+Artículo 455. Acceso a la información. El BCCR pondrá a disposición de los afiliados del SINPE y público en general, información estadística de forma agregada sobre el sistema de pagos costarricense.

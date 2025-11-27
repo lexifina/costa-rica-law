@@ -1,1 +1,1 @@
-Artículo 249. Aprobación de exención. La Administración Tributaria correspondiente atenderá la solicitud de exención siempre y cuando cumpla con la información requerida y se corrobore la vigencia de la ley que le otorga la exención.
+Artículo 249. Constitución de inversiones. Una orden de inversión se constituye en una inversión o depósito cuando se logra cobrar, en tiempo y forma, el monto invertido por el participante.

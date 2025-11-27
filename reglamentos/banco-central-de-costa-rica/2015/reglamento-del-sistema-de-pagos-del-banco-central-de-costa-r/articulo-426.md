@@ -1,2 +1,3 @@
-Artículo 426. Manejo de las comunicaciones. Toda comunicación de aspectos relacionados con los servicios del SINPE se efectuará por los medios oficiales de comunicación, tomándose como oficial la información de las personas y direcciones de correo electrónico registrados en el servicio AES por los responsables de cada uno de los afiliados.
-El afiliado será responsable por cualquier inconveniente presentado por información no recibida debido a inconsistencias con el registro de la información de sus usuarios o a su desactualización, así como por falta de capacidad en los buzones de correo electrónico o falla en sus sistemas internos.
+CAPÍTULO IV
+DEL COBRO DEL SERVICIO
+Artículo 426. Procedimiento de cobro. El cobro por los servicios de firma digital se realizará mediante un Débito en Tiempo Real a una cuenta del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado digital.

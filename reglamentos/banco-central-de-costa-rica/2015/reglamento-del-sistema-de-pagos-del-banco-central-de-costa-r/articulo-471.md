@@ -1,1 +1,3 @@
-Artículo 471. Confidencialidad de la identidad de terceros. Los afiliados deberán manejar confidencialmente, la identidad de las personas que consulten en el servicio, con el propósito de no obstaculizar posibles investigaciones.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 471. Participantes del servicio. En el servicio TCS operan todos los afiliados del SINPE.

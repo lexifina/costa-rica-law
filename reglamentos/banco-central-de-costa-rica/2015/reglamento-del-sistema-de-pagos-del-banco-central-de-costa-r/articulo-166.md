@@ -1,3 +1,4 @@
-CAPÍTULO III
-DE LOS COMITES INTERINSTITUCIONALES
-Artículo 166. Gestión de los comités interinstitucionales. El Comité Director y el Comité Coordinador, constituidos mediante la Cláusula Segunda del CONVENIO DE COOPERACIÓN PARA EL DESARROLLO DEL PROYECTO SISTEMA DE PAGO ELECTRÓNICO EN EL TRANSPORTE PÚBLICO REMUNERADO DE PERSONAS, ENTRE EL MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES, EL CONSEJO DE TRANSPORTE PÚBLICO, EL INSTITUTO COSTARRICENSE DE FERROCARRILES, LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS Y EL BANCO CENTRAL DE COSTA RICA, suscrito por las partes el 2 de febrero del 2017, conforme con las funciones definidas en el citado convenio para la gestión de cada uno de dichos órganos podrán, si así lo deciden voluntariamente, colaborar con el Banco Central asumiendo conjuntamente la coordinación interinstitucional para el desarrollo y la masificación nacional de SINPE-TP.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LA ENTIDAD RECAUDADORA
+Artículo 166. Custodia de enteros en la entidad origen. La entidad origen es responsable de custodiar los enteros de los impuestos específicos y los Enteros a Favor del Gobierno, así como de su remisión al MHDA y al BCCR, en los plazos que establece la Serie de Normas y Procedimientos del SINPE.
+Cualquier diferencia en el monto liquidado o recaudado será responsabilidad de la entidad origen.

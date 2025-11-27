@@ -1,1 +1,6 @@
-Artículo 326. Horario del servicio. Las entidades podrán realizar movimientos de numerario en las CAN en el horario bancario.
+Artículo 326. Casos especiales en las CAN. El BCCR podrá ajustar los saldos de inventario de numerario en el servicio u ordenar un débito sobre la cuenta SINPE de la entidad correspondiente por el monto total mantenido en una o en todas las CAN a su cargo, cuando se presente cualquiera de las siguientes situaciones:
+a) La entidad decida clausurar una, varias o todas las CAN que administra.
+b) El BCCR revoque la autorización concedida a la entidad para administrar CAN.
+c) Anomalías, circunstancias, eventos o coyunturas que a juicio de la División Sistemas de Pago atenten contra la seguridad del numerario mantenido en las CAN, o que, entre otros efectos, impidan restablecer la comunicación electrónica entre el servicio y el lugar donde se ubique la CAN.
+d) El BCCR detecte diferencia faltante entre el monto físico depositado en la CAN y el saldo registrado en el servicio.
+e) El BCCR inactive la CAN mediante su bloqueo en el servicio, según lo establecido en el presente reglamento.

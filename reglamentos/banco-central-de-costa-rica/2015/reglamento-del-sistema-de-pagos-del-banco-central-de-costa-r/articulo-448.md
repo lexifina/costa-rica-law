@@ -1,1 +1,4 @@
-Artículo 448. Servicio de Custodia de Certificados: Es el servicio dirigido a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, el cual permite la custodia de las llaves privadas asociados a tales certificados.
+CAPÍTULO VII
+RESPONSABILIDAD Y ACCESO A LA INFORMACIÓN
+Artículo 448. Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información registrada en el PUC. Esta información puede utilizarla para el cumplimiento de las funciones establecidas en el artículo 2, inciso c), y la función esencial establecida en el artículo 3, inciso i) de la Ley 7558; ello sin perjuicio de las potestades de acceso a esa información que poseen las autoridades judiciales y administrativas competentes y los órganos supervisores, conforme con la Ley 7786 y cualquier otra Ley aplicable, así como su normativa conexa.
+La información del PUC a la que tendrán acceso los afiliados al SINPE se limita a conocer si un cliente ya dispone de una cuenta de fondos en el sistema financiero.

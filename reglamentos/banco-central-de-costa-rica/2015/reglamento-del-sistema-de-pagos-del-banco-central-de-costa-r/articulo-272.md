@@ -1,5 +1,1 @@
-LIBRO XXIII
-SUBASTA DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 272. Definición del servicio. Subasta de Valores es el servicio por medio del cual se negocian valores estandarizados por medio de subasta.
+Artículo 272. Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas y operaciones diferidas a plazo, el participante deberá previamente depositar valores en una cuenta de garantía, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.

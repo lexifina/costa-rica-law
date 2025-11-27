@@ -1,1 +1,1 @@
-Artículo 204. Efectos de la suspensión. La suspensión de una cuenta de valores impide movimientos que implican la salida de valores desde el momento en que la misma es ordenada, pero no impide movimientos de entrada de valores, ni la liquidación de vencimientos de los valores que se encuentren depositados en la cuenta suspendida.
+Artículo 204. Suspensión de emisiones. El BCCR suspenderá las emisiones registradas en el servicio cuando así lo ordene la SUGEVAL.

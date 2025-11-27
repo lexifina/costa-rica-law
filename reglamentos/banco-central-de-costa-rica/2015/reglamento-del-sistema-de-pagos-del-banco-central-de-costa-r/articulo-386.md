@@ -1,3 +1,2 @@
-CAPÍTULO IX
-DE LA EJECUCIÓN DE GARANTÍAS
-Artículo 386. Autorización de la ejecución. El incumplimiento por parte de un asociado del pago de sus obligaciones financieras dentro de las condiciones de tiempo y forma pactadas autoriza inmediatamente y de manera irrevocable al BCCR para que descuente en el mercado bursátil los valores dados en garantía, conforme con lo que corresponda.
+Artículo 386. Aplazamiento de las devoluciones. El plazo para enviar las devoluciones se extenderá por veinticuatro horas entre días hábiles y podrá ampliarse por veinticuatro horas adicionales, para lo cual la entidad en falta deberá comunicar la reincidencia de la situación por medio del SINPE.
+Una vez transcurrido el plazo máximo de cuarenta y ocho horas, la entidad deberá realizar la acreditación de los fondos a sus clientes.

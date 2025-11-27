@@ -1,1 +1,3 @@
-Artículo 101. Riesgo de cobro revertido. Las entidades deberán hacer una valoración del riesgo que implica proveer este servicio de cobro a sus clientes, dada la potestad que tiene el cliente de realizar un cobro revertido, pudiendo tomar las previsiones que considere convenientes.
+CAPÍTULO VII
+DE LAS RESPONSABILIDADES
+Artículo 101. Uso de los estándares y reglas de operación. Los participantes deberán proveer el servicio SINPE Móvil a sus clientes, tanto a nivel intrabancario como interbancario, respetando el nombre del servicio, las reglas de negocio y los estándares de mensajería, funcionalidad e interfaz de usuario que el BCCR defina en el presente reglamento y en la Serie de Normas y Procedimientos del SINPE.

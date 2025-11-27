@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 130. Participantes del servicio. En el servicio ILI participan como entidad origen los asociados que cuenten con la autorización expresa del MHDA para actuar como entes recaudadores. Además, podrán operar como entidad destino el BCCR y el MHDA.
+Artículo 130. Presentación del reclamo. Los reclamos por servicios de Pagos Inmediatos y Compensación de Créditos Directos deben ser presentados ante la entidad origen. Los que correspondan a los servicios de Débito en Tiempo Real y Compensación de Débitos Directos deberán presentarse ante la entidad destino.

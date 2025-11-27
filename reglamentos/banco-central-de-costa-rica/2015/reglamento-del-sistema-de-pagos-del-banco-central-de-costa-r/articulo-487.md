@@ -1,2 +1,0 @@
-Artículo 487. Acceso de información para las ayudas sociales. El Ministerio de Hacienda y cualquier otra institución pública que brinde ayudas sociales, tendrán acceso a la información administrada en el PUC para realizar los pagos correspondientes, siempre que la dependencia interesada disponga de la debida autorización de parte del beneficiario de la ayuda social para consultar estos datos.
-(Así adicionado en sesión N° 6240 del 20 de febrero del 2025)

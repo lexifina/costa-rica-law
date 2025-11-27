@@ -1,5 +1,3 @@
-LIBRO XX
-EXENTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 245. Definición del servicio. Exentos es el servicio por medio del cual se gestiona la solicitud, aprobación y registro de la exoneración de la retención del impuesto sobre la renta que recae sobre los rendimientos generados por las inversiones en títulos valores.
+CAPÍTULO III
+DEL REGISTRO DE INSTRUMENTOS
+Artículo 245. Registro de instrumentos. Los emisores deberán registrar en el servicio los instrumentos y las condiciones financieras de éstos, que serán ofrecidos a los participantes en los servicios de captación directa.

@@ -1,3 +1,1 @@
-Artículo 457. Medios de representación. La entidad origen podrá documentar la domiciliación mediante los siguientes medios de representación:
-a) Domiciliación física: con un formulario impreso, suscrito entre el cliente destino y el cliente origen, con el detalle de las calidades de ambos y las características de la transacción que motiva su suscripción. La Serie de Normas y Procedimientos del SINPE establecen las condiciones de dicho formulario.
-b) Domiciliación electrónica: con un registro electrónico en sus sistemas internos de información, debiendo en este caso mantener las anotaciones que respalden y demuestren la autorización emitida por el cliente destino.
+Artículo 457. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 9694 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.

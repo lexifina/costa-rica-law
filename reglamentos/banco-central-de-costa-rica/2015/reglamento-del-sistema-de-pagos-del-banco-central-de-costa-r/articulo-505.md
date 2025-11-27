@@ -1,2 +1,0 @@
-Artículo 505. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 30 días naturales de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 498 al artículo 505)

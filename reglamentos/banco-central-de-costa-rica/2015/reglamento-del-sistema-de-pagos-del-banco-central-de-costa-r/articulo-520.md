@@ -1,2 +1,0 @@
-Artículo 520. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 9694 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 513 al artículo 520)

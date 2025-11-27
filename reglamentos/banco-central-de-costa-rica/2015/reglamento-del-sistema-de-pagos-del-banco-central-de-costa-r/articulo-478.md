@@ -1,2 +1,1 @@
-Artículo 478. De la naturaleza de las CES. Las CES son creadas con propósito de promover la inclusión financiera de las personas físicas.
-(Así reformado en sesión N° 6240 del 20 de febrero del 2025)
+Artículo 478. Publicación de información. Con el fin de cumplir con lo dispuesto por la Ley 7472, el BCCR actualizará y publicará periódicamente en los medios de prensa nacional y en el sitio Web del BCCR, las comisiones, canales de distribución y horarios con los que los afiliados ofrecen a sus clientes los servicios interbancarios del SINPE, de manera que los usuarios del Sistema Financiero Nacional tengan acceso a la información relacionada con las condiciones de comercialización de dichos servicios.

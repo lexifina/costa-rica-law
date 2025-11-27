@@ -1,1 +1,1 @@
-Artículo 211. Conciliación de cuentas de valores. Los participantes son responsables de conciliar diariamente su cuenta propia y las de sus clientes, así como de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+Artículo 211. Horario de funcionamiento. El servicio Liquidación de Mercados estará disponible para el envío de archivos durante el horario bancario, y a modo de consulta durante el horario de operación del SINPE.

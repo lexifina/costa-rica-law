@@ -1,3 +1,5 @@
-Artículo 242. Tipo de traspasos. Los traspasos de valores que ordenen los participantes podrán ser de dos tipos:
-a) Traspaso sin cambio de titularidad: cuando el movimiento de los valores se realiza entre cuentas pertenecientes al mismo titular.
-b) Traspaso con cambio de titularidad: cuando el movimiento de los valores se realiza a la cuenta de otro titular.
+LIBRO XXII
+REGISTRO DE DEUDA EN DEPÓSITO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 242. Definición del servicio. Registro de Deuda en Depósito (RDD) es el servicio por medio del cual se administra la deuda constituida mediante depósitos, por captaciones directas.

@@ -1,6 +1,3 @@
-SERVICIOS DE LIQUIDACIÓN NETA
-LIBRO VIII
-COMPENSACIÓN y LIQUIDACIÓN DE CHEQUES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 109. Definición del servicio. Compensación y Liquidación de Cheques (CLC) es el servicio de compensación multilateral neta, por medio del cual los asociados gestionan el cobro de los cheques recibidos de sus clientes que han sido girados contra otras entidades bancarias.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 109. Registro de instrucciones de pago. Los participantes, previo al envió o recepción de transferencia de fondos, deben registrar ante el BCCR las instrucciones de pago requeridas para gestionar sus transferencias desde y hacia el exterior.

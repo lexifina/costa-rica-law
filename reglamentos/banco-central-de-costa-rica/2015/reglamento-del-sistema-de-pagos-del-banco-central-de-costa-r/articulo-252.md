@@ -1,1 +1,3 @@
-Artículo 252. Del mantenimiento del registro oficial. La Dirección General de Tributación es responsable de la atención diligente de las solicitudes de exención, toda vez que estas pasan a formar parte del registro oficial de entidades exentas.
+CAPÍTULO VI
+DE LAS RESPONSABILIDADES
+Artículo 252. Suficiencia de fondos. El emisor debe mantener en su cuenta SINPE los fondos suficientes para cancelar los vencimientos de la deuda a su cargo.

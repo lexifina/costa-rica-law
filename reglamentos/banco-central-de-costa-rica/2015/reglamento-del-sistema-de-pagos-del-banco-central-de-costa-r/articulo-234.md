@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 234. Información de los archivos. Los emisores, cuando negocien valores directamente, y las entidades de compensación y liquidación de valores, son responsables de la información contenida en los archivos de liquidación enviados por medio del servicio.
+Artículo 234. Del mantenimiento del registro oficial. La Dirección General de Tributación es responsable de la atención diligente de las solicitudes de exención, toda vez que estas pasan a formar parte del registro oficial de entidades exentas.

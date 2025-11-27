@@ -1,1 +1,4 @@
-Artículo 294. Información. La Serie de Normas Complementarias del SINPE establecerá el monto mínimo y los múltiplos de las ofertas, así como las demás condiciones necesarias para facilitar los procesos de negociación.
+GESTIÓN DE NUMERARIO
+LIBRO XXVII
+NUMERARIO
+Artículo 294. Definición. Se denomina numerario a las monedas y billetes emitidos por el BCCR, como medio legal de pago en Costa Rica. Se distingue por ser un medio de cambio, una unidad de cuenta y un depósito de valor.

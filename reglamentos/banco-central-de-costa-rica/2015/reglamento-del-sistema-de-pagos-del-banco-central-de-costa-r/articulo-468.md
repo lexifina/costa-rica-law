@@ -1,3 +1,2 @@
-CAPÍTULO III
-DE LAS PROHIBICIONES Y RESPONSABILIDADES
-Artículo 468. Uso restringido de la información. Las autoridades competentes autorizadas para acceder esta información deberán utilizarla únicamente para los fines establecidos en la Ley 7786 y su reglamento.
+Artículo 468. Prohibiciones. Los participantes no podrán constituir bases de datos con la información que consultan por medio del servicio, por lo cual estarán impedidos para almacenar, replicar, reproducir, transmitir o publicar dicha información por ningún medio, ya sea en forma parcial o total.
+Se exceptúa de esta disposición la información que el participante necesite imprimir o conservar en formato digital para dejar en sus expedientes constancia documental de la consulta realizada, cuando sus procedimientos administrativos así lo requieran por razones de control interno y siempre en el entendido de que la excepción es únicamente para cumplir con esos fines.

@@ -1,1 +1,3 @@
-Artículo 403. Aplazamiento de la acreditación. Cuando se presente una situación contingente que retrase la liquidación en las cuentas de fondos, los afiliados podrán extender como máximo el tiempo de acreditación por un plazo igual al tiempo oficial del retraso, por lo cual deberán acreditar los fondos a sus clientes luego de que transcurra dicho periodo.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 403. Participantes del servicio. En el servicio AES operan todos los afiliados del SINPE.

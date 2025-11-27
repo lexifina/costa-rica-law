@@ -1,0 +1,2 @@
+TRANSITORIO VIII. En relación con el monto permitido para el uso del canal SMS en SINPE Móvil aplicará lo siguiente: a) si este monto no fue definido por el cliente, la entidad deberá establecerlo en “cero” e informar al cliente; b) si este monto fue definido por el cliente y es mayor a 100 mil colones, la entidad deberá establecerlo en 100 mil colones e informar al cliente. Esta medida deberá realizarse a más tardar 6 meses después de la publicación del reglamento.
+El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

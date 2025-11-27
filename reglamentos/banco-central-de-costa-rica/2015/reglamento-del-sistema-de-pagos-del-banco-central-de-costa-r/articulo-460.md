@@ -1,1 +1,5 @@
-Artículo 460. Prenotificación en el SINPE. La entidad origen deberá enviar por medio del servicio ADA, una prenotificación con la información de las domiciliaciones recibidas de sus clientes. El envío de la prenotificación lo deberá hacer a la entidad destino, a más tardar el día hábil siguiente de haber recibido la domiciliación de su cliente.
+LIBRO XXXVIII
+CONSULTA DE PERSONAS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 460. Definición del servicio. Identificación de Personas es el servicio por medio del cual se accede a la información de la identidad de las personas físicas y jurídicas administrada por los agentes de información legalmente establecidos.

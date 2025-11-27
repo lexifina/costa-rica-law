@@ -1,8 +1,3 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 126. Ciclo de operación del servicio. El ciclo del servicio CDD opera con las siguientes etapas:
-a) Envío de cobro: la entidad origen envía un archivo electrónico con la información detallada de todos los débitos por tramitar. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
-Además, cada entidad recibe un archivo con la información de los cobros tramitados por las demás entidades por medio del SINPE, para ser debitados en las cuentas de los clientes, localizadas en su entidad.
-b) Transmisión electrónica de devoluciones: la entidad destino envía un archivo electrónico con la información detallada de todos los cobros recibidos en la etapa anterior del ciclo vigente, que resulten rechazados durante los procesos de verificación correspondientes. Posterior a la transmisión de devoluciones se realiza una compensación multilateral neta y cada entidad recibe un archivo electrónico con la información de los cobros rechazados por las demás entidades.
-c) Liquidación: el SIL efectúa la liquidación con el mecanismo de liquidación multilateral neta. La transacción adquiere la condición de firmeza una vez finalizado el período de reclamación.
-d) Acreditación de Fondos: la entidad origen acredita la cuenta del cliente beneficiario (o dar valor a la operación de contrapartida) por el monto de los débitos cobrados por medio del servicio, a más tardar a las veintidós horas del mismo día de apertura del ciclo.
+Artículo 126. Ciclo de operación para créditos no aplicados. El ciclo del servicio REF por créditos no aplicados en los servicios PIN y CCD, opera con las siguientes etapas:
+a) Solicitud de información: la entidad origen del reclamo solicita datos sobre una determinada transacción de crédito, indicando el número de referencia asociado a cada operación por el SINPE.
+b) Validación de la solicitud: el SINPE valida automáticamente que la transacción haya sido tramitada previamente por el sistema, que cumpla el plazo establecido para realizar el reclamo, que la transacción no haya sido rechazada y que sobre la misma no se haya realizado un reclamo previamente. En caso de verificarse la validez de la transacción, el SINPE comunica automáticamente a la entidad destino sobre la reclamación recibida.

@@ -1,3 +1,1 @@
-Artículo 387. Orden de ejecución de garantías. En caso de incumplimiento de alguna operación que amerite la ejecución de una garantía, el BCCR procederá con el siguiente orden de ejecución:
-a) Primero: valores traspasados a la cuenta de garantía, en la misma moneda de la operación incumplida.
-b) Segundo: valores traspasados a la cuenta de garantía, en una moneda distinta de la moneda de la operación incumplida.
+Artículo 387. Responsabilidad del aplazamiento. El procedimiento de aplazamiento de devoluciones opera bajo la completa responsabilidad del afiliado, por lo que el afiliado que lo utilice deberá suministrar las justificaciones pertinentes a sus clientes y al ente supervisor que corresponda, en virtud de la no acreditación de fondos dentro de lo establecido por las leyes vigentes.

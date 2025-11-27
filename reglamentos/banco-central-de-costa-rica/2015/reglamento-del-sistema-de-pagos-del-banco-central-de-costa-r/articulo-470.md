@@ -1,1 +1,5 @@
-Artículo 470. Prohibición de divulgación de la información. Los afiliados no deberán divulgar a terceros, el hecho de que se haya recopilado información por medio de este servicio sea por iniciativa propia o por requerimiento de alguna autoridad, según lo estipulado en la Ley 7786 y su normativa conexa.
+LIBRO XXXIX
+TARIFAS Y COMISIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 470. Definición del servicio. Tarifas y Comisiones (TCS) es el servicio, por medio del cual se cobran las tarifas por el uso de la plataforma del SINPE y las comisiones interbancarias.

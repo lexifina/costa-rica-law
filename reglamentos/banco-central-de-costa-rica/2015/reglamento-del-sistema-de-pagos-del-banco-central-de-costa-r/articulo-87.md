@@ -1,1 +1,3 @@
-Artículo 87. Horario del servicio. El servicio operará en los días hábiles del SINPE, sujeto a los horarios de las plazas financieras en que operan los bancos corresponsales con los que tiene relación el BCCR, según los horarios definidos en la Serie de Normas y Procedimientos.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 87. Participantes. En el servicio SINPE Móvil podrán operar como entidad origen todos los afiliados del SINPE y como destino pueden participar todos los asociados que administren cuentas de fondos en colones y, los proveedores de servicios de pago que administren CAR en colones. En el caso de los clientes físicos, los participantes deben habilitarle la funcionalidad de envío y recepción de transacciones. En el caso de los clientes jurídicos, los participantes deben proveerle la funcionalidad de recepción de transacciones y pueden brindarle el servicio de envío de transacciones.

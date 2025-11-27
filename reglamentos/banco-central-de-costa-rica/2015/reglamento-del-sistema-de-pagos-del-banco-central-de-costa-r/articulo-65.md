@@ -1,1 +1,3 @@
-Artículo 65. Firmeza de las negociaciones y transacciones de fondos. Las negociaciones y los movimientos de fondos realizados por medio del SINPE son firmes, exigibles y oponibles frente a terceros, no pudiendo ser impugnados o anulados por causa alguna, ni siquiera por el inicio de un procedimiento de reorganización o liquidación contra un afiliado. En el ciclo de operación de cada servicio se establece el momento a partir del cual una negociación o transacción del SINPE es firme.
+CAPÍTULO II
+DE LOSPARTICIPANTES
+Artículo 65. Participantes del servicio. En el servicio Cuentas SINPE deben operar todos los afiliados del SINPE.

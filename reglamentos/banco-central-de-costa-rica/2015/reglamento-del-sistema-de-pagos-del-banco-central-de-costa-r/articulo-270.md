@@ -1,3 +1,6 @@
-CAPÍTULO VI
-DE LAS RESPONSABILIDADES
-Artículo 270. Suficiencia de fondos. El emisor debe mantener en su cuenta los fondos suficientes para cancelar los vencimientos de la deuda a su cargo.
+CAPÍTULO III
+DE LAS OPERACIONES DIFERIDAS DE LIQUIDEZ Y A PLAZO
+Artículo 270. Tipo de operaciones. Los participantes podrán registrar operaciones diferidas de liquidez para demandar u ofertar dinero, conforme con sus necesidades propias y en apego a las disposiciones legales y regulaciones prudenciales adicionales vigentes que rigen su actuación.
+Asimismo, el BCCR podrá ofrecer fondos en el MIL a más de 6 meses y hasta 4 años plazo a través de operaciones diferidas a plazo.
+Las operaciones diferidas de liquidez y a plazo se componen de dos contratos pactados simultáneamente: el primero con una liquidación inmediata, en la cual una de las contrapartes se compromete a entregar a la otra una suma de dinero, y el segundo, a liquidarse en una fecha futura pactada por las partes, en la cual se activa la operación de contrapartida, se produce la devolución de los fondos y se cancela el rendimiento de la operación.
+A solicitud de las partes que intervienen en las negociaciones, las operaciones diferidas de liquidez podrán respaldarse con activos financieros en garantía, los cuales permanecen pignorados bajo administración fiduciaria durante el plazo del contrato y se liberan al término la operación que respaldan. Las operaciones diferidas a plazo siempre se respaldarán con activos financieros en garantía que permanezcan pignorados bajo administración fiduciaria durante el plazo del contrato y se liberan al término de la operación que respaldan.

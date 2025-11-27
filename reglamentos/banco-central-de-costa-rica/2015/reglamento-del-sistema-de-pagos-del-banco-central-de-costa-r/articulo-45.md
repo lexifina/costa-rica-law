@@ -1,1 +1,2 @@
-Artículo 45. Principio registral. El funcionamiento del SINPE se rige por el principio de buena fe registral, por lo que el BCCR asume que la información registrada por los afiliados es legítima, completa y se encuentra exenta de vicios registrales.
+Artículo 45. Política conozca a su cliente. Los afiliados se regirán por la política conozca a su cliente, conforme con las regulaciones que en esta materia emita la autoridad de regulación competente, de modo que son responsables por las operaciones ingresadas al SINPE en nombre de sus clientes.
+Es responsabilidad de los afiliados verificar las calidades de los clientes en nombre de quienes realizan transacciones por medio del SINPE, así como mantenerlas en constante revisión mientras se mantenga la relación comercial.

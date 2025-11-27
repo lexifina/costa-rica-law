@@ -1,4 +1,1 @@
-Artículo 292. Forma de negociación. La forma de negociación en el MIL estará determinada por el tipo de operación que se oferte en el servicio:
-a) Operaciones diferidas de liquidez garantizadas: el mercado opera en forma ciega, por lo que los participantes no podrán identificar a las contrapartes.
-b) Operaciones diferidas de liquidez no garantizadas: los participantes podrán seleccionar a las entidades que desean que participen como contraparte deudora en sus ofertas de inversión. Asimismo, en el caso de que la oferta la registre la entidad demandante de los fondos, el nombre del oferente podrá ser visto por todos los participantes.
-c) Operaciones diferidas a plazo garantizadas: el BCCR operará con posiciones inversionistas y podrán participar como contrapartes deudoras los intermediarios financieros regulados por la SUGEF.
+Artículo 292. Gestión Riesgo Operativo. Los participantes deberán utilizar los parámetros de gestión de riesgo operativo disponibles en el servicio.

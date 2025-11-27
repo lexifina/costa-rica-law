@@ -1,3 +1,4 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
-Artículo 330. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas en el BCCR responderán, como garantía por el valor monetario del numerario depositado en las CAN.
+Artículo 330. Revocatoria de la autorización. Previo análisis de cada caso, la División de Sistemas de Pago podrá revocar la autorización a la entidad para administrar CAN cuando se presente cualquiera de las siguientes circunstancias:
+a) La entidad se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con los supuestos que para los efectos establece el artículo 136 de la Ley 7558.
+b) El BCCR decida suspender el servicio.
+c) Cuando una misma CAN incurra en tres incumplimientos durante un año calendario, según lo dispuesto en este capítulo.

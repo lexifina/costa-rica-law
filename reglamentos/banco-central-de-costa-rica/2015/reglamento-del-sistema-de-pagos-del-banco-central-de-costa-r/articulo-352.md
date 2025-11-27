@@ -1,3 +1,3 @@
-Artículo 352. Entrega de moneda adquirida al BCCR: el BCCR realizará la entrega de la moneda mediante las siguientes modalidades:
-a) Entrega en BCCR: corresponde al esquema tradicional según el cual la entidad demandante retira la moneda en las instalaciones del BCCR.
-b) Entrega directa: la moneda es entregada directamente en las instalaciones que el asociado disponga dentro de la Gran Área Metropolitana, mediante una instrucción del BCCR a la empresa fabricante.
+CAPÍTULO IV
+DE LOS REQUERIMIENTOS DE GARANTÍA
+Artículo 352. Requerimiento mínimo para los afiliados nacionales. Como requerimiento mínimo de garantía, los afiliados nacionales con excepción de las instituciones públicas de conformidad con la clasificación de los participantes detallada en la Serie de Normas y Procedimientos del SINPE, deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD, CDD y de la Liquidación de Servicios Externos el servicio de Transferencia entre Operadoras (TEO).

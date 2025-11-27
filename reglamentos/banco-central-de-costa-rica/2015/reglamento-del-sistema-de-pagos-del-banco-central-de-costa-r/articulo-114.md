@@ -1,5 +1,1 @@
-LIBRO IX
-COMPENSACIÓN DE OTROS VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 114. Definición del servicio. Compensación de Otros Valores (COV) es el servicio de compensación multilateral neta, por medio del cual un asociado realiza el cobro de los valores recibidos de sus clientes a cargo de otro asociado.
+Artículo 114. Débitos a tarjeta de crédito. Los emisores de tarjetas podrán, de acuerdo con sus políticas de crédito y apetito de riesgo, habilitar por medio del servicio DTR el cobro sobre una tarjeta de crédito o, alternativamente, las entidades podrán conceder líneas de crédito a sus clientes para aplicar estos cobros, en ambos casos, la entidad destino podrá cobrar al cliente destino una comisión por este tipo de transacción.

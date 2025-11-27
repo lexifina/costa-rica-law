@@ -1,10 +1,3 @@
-CAPÍTULO IX
-DEL CUMPLIMIENTO DE LA LEGISLACIÓN SOBRE PREVENCIÓN DE LEGITIMACIÓN DE
-CAPITALES, FINANCIAMIENTO AL TERRORISMO Y FINANCIAMIENTO DE LA
-PROLIFERACIÓN DE ARMAS DE DESTRUCCIÓN MASIVA
-Artículo 38. Cumplimiento de regulaciones. Los afiliados están obligadas al cumplimiento y observación de las disposiciones que le sean aplicables en materia de prevención de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, emanadas de los órganos internacionales y autoridades competentes de cada país,
-En caso de incumplirse estas regulaciones, el Departamento Sistema Nacional de Pagos Electrónicos procederá de la siguiente forma:
-a) La primera vez: comunicado del incumplimiento a la gerencia del afiliado.
-b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y al ente supervisor correspondiente.
-c) La tercera vez y sucesivas: se tendrá por no autorizado para participar en el servicio en particular, lo cual le será debidamente comunicado, y no podrá volver a participar, hasta tanto no se subsane el incumplimiento. A más tardar el día hábil siguiente de que se subsane el incumplimiento, se autorizará nuevamente su participación.
-La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+CAPÍTULO VIII
+DE LA INFORMACIÓN PARA LOS CLIENTES
+Artículo 38. Comunicación o aviso al cliente (notificación). Toda transacción intra o interbancaria aplicada sobre una cuenta, debe notificarse electrónicamente al cliente. Las transacciones liquidadas en línea deben notificarse al cliente en menos de un minuto; en el caso de las transacciones liquidadas en lotes (ejemplo créditos directos), deberá notificarse al cliente máximo en una hora. En la notificación deben incluirse, al menos, los siguientes datos, según corresponda: nombre del cliente originador de la transacción, fecha del movimiento (día, mes, año, hora y minuto), tipo de movimiento (cobro o pago), número de la cuenta (enmascarada, según el método que defina la entidad, de modo que garantice la protección de los datos del cliente), número de referencia (transacciones interbancarias) o número interno (transacciones intrabancarias), moneda y monto, así como número de teléfono y correo electrónico donde el cliente pueda comunicarse para consultas sobre la transacción.

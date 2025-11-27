@@ -1,1 +1,1 @@
-Artículo 106. Horario del servicio. El servicio SIP opera únicamente durante los días hábiles definidos en la Serie de Normas y Procedimientos del SINPE.
+Artículo 106. Horario del servicio. El servicio operará en los días hábiles del SINPE, sujeto a los horarios de las plazas financieras en que operan los bancos corresponsales con los que tiene relación el BCCR, según los horarios definidos en la Serie de Normas y Procedimientos.

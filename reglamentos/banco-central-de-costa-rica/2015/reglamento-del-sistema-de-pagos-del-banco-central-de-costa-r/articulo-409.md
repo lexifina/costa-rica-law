@@ -1,1 +1,1 @@
-Artículo 409. Conexión de estaciones de trabajo. Los afiliados deberán tener habilitados los servicios del SINPE en al menos dos estaciones virtuales.
+Artículo 409. Responsabilidad sobre transacciones. El afiliado es responsable de las transacciones realizadas por los usuarios que haya sido autorizado por sus RST o RSP, así como cuando no pueda operar en el SINPE debido a la falta de los RST o RSP requeridos para asignar derechos a los usuarios internos.

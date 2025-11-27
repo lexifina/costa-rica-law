@@ -1,2 +1,0 @@
-Artículo 522 Responsables de ISP. Los afiliados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 515 al artículo 522)

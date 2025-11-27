@@ -1,1 +1,1 @@
-Artículo 351. Entrega de billete adquirido al BCCR: el BCCR realizará la entrega del billete en sus instalaciones.
+Artículo 351. Régimen aplicable a las garantías. Las garantías constituidas por los afiliados nacionales para operar en el SINPE, de conformidad con lo establecido en la Ley 8876, no se verán afectadas en caso de inicio de un procedimiento de reorganización o liquidación contra un participante, ni por eventuales medidas de carácter retroactivo acordadas por la autoridad competente que tramite el procedimiento contra dicha entidad.

@@ -1,3 +1,3 @@
-CAPÍTULO XII
-DE LOS APLAZAMIENTOS
-Artículo 399. Impedimento para realizar devoluciones. Cuando un afiliado presente algún problema que no le permita realizar el trámite de las devoluciones, deberá comunicar a los demás afiliados su imposibilidad para enviar las devoluciones en el ciclo del día hábil siguiente. Dicha comunicación la deberá realizar por medio del SINPE.
+CAPÍTULO II
+DEL ESQUEMA DE OPERACIÓN
+Artículo 399. Carácter exclusivo del servicio. Todo servicio financiero o mercado que involucre la liquidación de fondos y valores debe ser liquidado por medio del SIL.

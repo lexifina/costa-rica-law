@@ -1,9 +1,13 @@
 CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 257. Ciclo de operación del servicio. El ciclo del servicio Captación de Fondos opera con las siguientes etapas:
-a) Oferta de instrumentos de captación: se pone a disposición de los inversionistas los instrumentos financieros con los cuales desea realizar la captación de recursos. Dichos instrumentos podrán estar disponibles en forma permanente durante el horario de operación del SINPE.
-La información relacionada con los términos y condiciones financieras de los instrumentos ofrecidos y con los procesos de negociación, deberá ser anunciada oportunamente a los inversionistas.
-b) Registro de operaciones: los inversionistas registran sus operaciones de inversión o depósito, con base en la oferta de instrumentos financieros disponibles, y conforme con el método de negociación que rija para la sesión de captaciones.
-Toda operación activada por el inversionista tendrá un carácter irrevocable.
-c) Liquidación de constituciones: el SIL liquida en firme la constitución de las operaciones bajo los mecanismos de entrega contra pago y de liquidación multilateral neta o liquidación bilateral bruta, según corresponda.
-d) Liquidación de vencimientos: en la fecha de vencimiento de las operaciones, o en las fechas intermedias en las que corresponda el pago de intereses, el SIL efectúa en firme su liquidación acreditando las cuentas de fondos de los inversionistas, con el mecanismo de liquidación bilateral bruta.
+DEL CICLO DE NEGOCIACIÓN
+Artículo 257. Ciclo de operación.
+El ciclo del servicio opera con las siguientes etapas:
+a) Convocatoria de negociación: el emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por tipo de oferta, las reglas de asignación y cualquier otra información que considere relevante para el proceso de negociación.
+El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
+b) Recepción de ofertas: los inversionistas envían sus ofertas de negociación por medio del servicio, desde la hora definida por el emisor y hasta la hora de cierre de la recepción de ofertas indicadas en el anuncio de la convocatoria. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el periodo de recepción de ofertas, proceda con la asignación respectiva.
+El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Las ofertas son irrevocables a partir del momento en que se cierra esta etapa, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
+c) Asignación de ofertas: las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. Se tendrá una hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados el día de la negociación.
+d) Distribución de ofertas: luego de cerrado el período de asignación y hasta la hora establecida, los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
+e) Liquidación: las ofertas que resulten asignadas serán liquidadas de forma irrevocable y en firme, el día y la hora acordada, contra las cuentas SINPE de las entidades de custodia que, con la confirmación de la distribución, asumen esta responsabilidad y contra las cuentas administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago.
+Ante el rechazo de la distribución por parte de las entidades de custodia, el inversionista asume la liquidación de fondos por cuenta propia y la liquidación se realiza contra la cuenta SINPE que mantiene en el BCCR.
+Cuando la entidad responsable de la liquidación presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación, considerando primero aquellas ofertas que tengan un menor costo financiero para el emisor, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.

@@ -1,1 +1,3 @@
-Artículo 379. Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de las obligaciones financieras que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra del dólar estadounidense, calculado diariamente por el BCCR. Para divisas distintas del dólar estadounidense, su conversión a esa moneda se hará con base en las paridades cambiarias publicadas diariamente por el BCCR, de acuerdo con la información que le proporcione el proveedor de precios internacionales utilizado con esos fines.
+CAPÍTULO X
+DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
+Artículo 379. Sustitución de garantías. Los afiliados nacionales deberán atender con la oportunidad requerida por el BCCR, las instrucciones que el propio BCCR les suministre para la sustitución de garantías.

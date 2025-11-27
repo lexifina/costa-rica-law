@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 99. Consentimiento de los clientes. Las entidades que provean este servicio a sus clientes deberán tener un consentimiento explícito de parte de estos, donde se evidencie que sus clientes fueron debidamente informados de que, al habilitarles este servicio, existe la posibilidad de realizarles un débito sobre las cuentas que mantienen estos en otras entidades financieras.
+Artículo 99. Registro de teléfonos móviles. Los participantes deberán registrar ante el BCCR, los números de teléfono móvil, y en el caso de los emisores de tarjetas Monedero SINPE-TP, los alias asociados a estas tarjetas, previo a que sean habilitados para realizar transacciones interbancarias por medio del servicio.

@@ -1,3 +1,5 @@
-CAPÍTULO III
-DEL REGISTRO DE EMISIONES
-Artículo 219. Irrevocabilidad del registro. Las instrucciones realizadas por los emisores no podrán ser revocadas por su ordenante ni por terceros a partir de su autorización. Los listados y registros del servicio Registro de Emisiones serán prueba de los movimientos registrados en dicho servicio.
+LIBRO XIV
+TRASPASO DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 219. Definición del servicio. Traspaso de Valores es el servicio de liquidación bruta en tiempo real, por medio del cual se traspasan valores anotados en cuenta.

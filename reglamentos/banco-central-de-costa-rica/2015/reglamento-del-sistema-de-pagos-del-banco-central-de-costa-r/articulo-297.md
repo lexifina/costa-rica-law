@@ -1,4 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 297. Requerimientos particulares. El BCCR podrá establecer requerimientos particulares para las entidades que estén interesadas en obtener financiamiento por medio de las operaciones diferidas a plazo.
-Además, el BCCR podrá darle seguimiento al cumplimiento de los requerimientos particulares establecidos y podrá modificar las condiciones pactadas en caso de incumplimiento de los requerimientos particulares; lo anterior de acuerdo con lo establecido por la Junta Directiva del BCCR y detallado en el Contrato para realizar operaciones diferidas a plazo en el MIL entre el BCCR y la entidad financiera solicitante.
+Artículo 297. Validación de autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR por medio de las entidades del Sistema Financiero Nacional para su respectivo análisis.

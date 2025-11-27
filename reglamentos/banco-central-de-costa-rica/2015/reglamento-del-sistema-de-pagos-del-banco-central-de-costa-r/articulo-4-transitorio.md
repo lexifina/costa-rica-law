@@ -1,2 +1,1 @@
-TRANSITORIO IV. Las entidades que tengan abiertas CES 3 mayores a US$5.000, deberán registrarlas como cuentas tradicionales, a más tardar un año después de la entrada en vigencia del presente reglamento.
-El presente reglamento rige a partir de su publicación en el diario oficial La Gaceta.
+TRANSITORIO IV. Los participantes de SINPE Móvil deberán habilitar la autenticación del número de teléfono móvil que se vincula a una cuenta, a más tardar 6 meses después de la publicación de este reglamento.

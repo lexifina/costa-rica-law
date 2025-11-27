@@ -1,5 +1,3 @@
-LIBRO XV
-SISTEMA NACIONAL DE PAGO ELECTRÓNICO EN EL TRANSPORTE PÚBLICO (SINPE-TP)
-CAPÍTULO I
-DE LAS DISPOSICIONES GENERALES
-Artículo 159. Definición del servicio. Se define el Sistema Nacional de Pago Electrónico en el Transporte Público (SINPE-TP) como el servicio de cobro a pasajeros y de pago a operadores administrado por el BCCR, para realizar la recaudación tarifaria de los servicios de transporte público.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 159. Aplicación del débito al cliente. La entidad destino deberá efectuar el débito al cliente destino de acuerdo con lo solicitado por la entidad origen, siempre y cuando la cuenta del cliente destino tenga los fondos suficientes para atender el débito. La entidad destino no podrá establecer restricciones al monto del débito autorizado por el dueño de la cuenta, debiendo brindarle las facilidades para que este defina un monto máximo de débito permitido sobre su cuenta.

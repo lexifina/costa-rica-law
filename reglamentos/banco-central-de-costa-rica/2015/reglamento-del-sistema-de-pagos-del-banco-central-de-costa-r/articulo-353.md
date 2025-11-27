@@ -1,5 +1,1 @@
-Artículo 353. Condiciones para la entrega de numerario por parte del BCCR. Las ofertas publicadas por el BCCR se regirán por las siguientes condiciones:
-a) El BCCR participa en el MEN como el proveedor de última instancia.
-b) En la entrega de billete y en la modalidad de retiro de moneda en BCCR, el asociado que adquiere una oferta del BCCR es responsable de transportar por su cuenta y riesgo el numerario negociado. Tal responsabilidad incluye velar por la seguridad y las características de los medios que utilice para transportar el numerario.
-c) El BCCR ofrecerá numerario nacional nuevo siempre y cuando no disponga de la categoría circulable en la denominación correspondiente.
-d) El BCCR determinará la periodicidad y la cantidad de billete o moneda que entregará en las diferentes modalidades.
+Artículo 353. Disponibilidad de garantías. El monto que los afiliados nacionales deban rendir como requerimiento mínimo de garantía se computará íntegramente como su disponibilidad de garantías en el Sistema de Pagos, de modo que tales entidades podrán utilizarlo para respaldar, conforme con las disposiciones del presente libro, los compromisos financieros que asuman con su participación en el SINPE y en los mercados de negociación organizados por el BCCR mediante su plataforma tecnológica.

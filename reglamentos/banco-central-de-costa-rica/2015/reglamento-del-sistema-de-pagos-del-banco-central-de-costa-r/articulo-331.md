@@ -1,2 +1,5 @@
-Artículo 331. Seguridad de las CAN. Los asociados deberán establecer medidas de control y de infraestructura que garanticen un funcionamiento seguro de las CAN, de conformidad con los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria.
-La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor autorizados por el Departamento de Emisión y Valores.
+LIBRO XXIX
+MERCADO DE NUMERARIO (MEN)
+CAPÍTULO I
+DEL SERVICIO
+Artículo 331. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistemas de Pago.

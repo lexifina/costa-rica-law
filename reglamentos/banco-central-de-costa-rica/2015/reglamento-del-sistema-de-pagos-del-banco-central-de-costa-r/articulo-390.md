@@ -1,1 +1,5 @@
-Artículo 390. Incumplimiento de obligaciones vencidas. Cuando la parte obligada a pagar incurra en el incumplimiento parcial o total de una obligación financiera vencida, el BCCR certificará los montos que se adeudan por este concepto, así como el motivo y demás aspectos relevantes relacionados con el surgimiento de la obligación, a efectos de que el acreedor gestione ante el deudor, por los medios que estime pertinentes, la recuperación de las sumas adeudadas.
+LIBRO XXXI
+GESTION DE RIESGOS OPERATIVOS
+CAPÍTULO I
+DE LA CAPACITACIÓN Y CERTIFICACIÓN DE USUARIOS
+Artículo 390. Programa de capacitación del SINPE. La División Sistemas de Pago mantendrá un programa permanente de capacitación para los usuarios del SINPE, debiendo disponer de las instalaciones, equipo técnico y demás recursos necesarios para impartir una instrucción adecuada sobre las funcionalidades del sistema.

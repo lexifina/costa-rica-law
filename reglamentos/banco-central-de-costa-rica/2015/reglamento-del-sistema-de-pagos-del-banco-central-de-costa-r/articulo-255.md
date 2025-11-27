@@ -1,6 +1,3 @@
-MERCADOS Y REGISTRO DEUDA EN DEPÓSITO
-LIBRO XXI
-CAPTACIÓN DE FONDOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 255. Definición del servicio. Captación de Fondos (CAF) es el servicio por medio del cual se captan recursos en moneda nacional y extranjera, de acuerdo con las características de los instrumentos que apruebe la Junta Directiva del BCCR o el MHDA, según corresponda, en su papel de emisor.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 255. Participantes del servicio. En el servicio Subasta de Valores opera el BCCR como emisor y los asociados del SINPE como inversionistas, de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo dispongan, el MHDA u otra institución pública también podrán operar como emisores.

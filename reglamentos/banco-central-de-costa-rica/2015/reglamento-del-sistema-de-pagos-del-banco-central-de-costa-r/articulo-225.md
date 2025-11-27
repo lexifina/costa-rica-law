@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 225. Representación de emisores. Los representantes de los emisores son responsables de la suscripción y administración de las emisiones de la entidad que representan, así como de las actividades que contemplen en el acuerdo de representación.
+Artículo 225. Traspasos con cambio de titularidad. Las entidades de custodia sólo podrán realizar traspasos con cambio de titularidad cuando correspondan a operaciones no onerosas y siempre que las mismas se tramiten de acuerdo con el ordenamiento jurídico aplicable.

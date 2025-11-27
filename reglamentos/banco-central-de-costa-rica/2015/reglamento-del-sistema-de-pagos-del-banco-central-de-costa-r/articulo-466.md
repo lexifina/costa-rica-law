@@ -1,1 +1,3 @@
-Artículo 466. Cumplimiento legal. El servicio CSO atiende a la obligación legal impuesta al BCCR por medio del reglamento a la Ley 7786, respecto a facilitar un medio por el cual los actores en materia de prevención de la legitimación de capitales y financiamiento al terrorismo puedan acceder a la información perteneciente a las transacciones que se tramitan por medio del SINPE.
+CAPÍTULO V
+DE LAS PROHIBICIONES Y RESPONSABILIDADES
+Artículo 466. Uso restringido de la información. Los participantes deberán utilizar la información a la que accedan con el servicio, única y exclusivamente para validar la identidad de los clientes, debiendo garantizar también que el personal que la acceda lo haga legitimado por una necesidad de consulta de información en los términos en que las regula el presente libro.

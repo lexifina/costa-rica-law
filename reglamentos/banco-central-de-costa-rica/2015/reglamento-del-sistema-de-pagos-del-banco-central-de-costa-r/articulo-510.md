@@ -1,2 +1,0 @@
-Artículo 510. Exclusión del servicio: El participante que no disponga de fondos suficientes en su cuenta en el BCCR para cubrir la liquidación derivada del proceso de reclamación por un débito no autorizado, será excluida de forma inmediata en el servicio DTR y del ciclo del día hábil siguiente en el servicio CDD, hasta tanto logre atender su obligación.
-(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 503 al artículo 510)

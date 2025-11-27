@@ -1,3 +1,2 @@
-CAPÍTULO III
-DE LAS GARANTÍAS DEL SISTEMA DE PAGOS
-Artículo 359. Requerimiento de garantía. Para participar en el SINPE los asociados deberán cumplir con un requerimiento de garantía, establecido y administrado de conformidad con las disposiciones del presente libro.
+Artículo 359. Constitución de la garantía en valores. Los afiliados nacionales deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
+Los valores que traspasen los afiliados nacionales quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.

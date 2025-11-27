@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 197. Participantes del servicio. En el servicio Cuentas de Valores deben operar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.
+Artículo 197. Confidencialidad de la información. El BCCR deberá garantizar la confidencialidad de la identidad de los propietarios de los valores, de conformidad con las disposiciones establecidas en la Ley 7732 y en el Reglamento sobre el Sistema de Anotación en Cuenta, promulgado por el CONASSIF. Únicamente, podrá suministrar información a los emisores sobre sus propias emisiones, o bien a los entes supervisores para el cumplimiento de sus funciones.

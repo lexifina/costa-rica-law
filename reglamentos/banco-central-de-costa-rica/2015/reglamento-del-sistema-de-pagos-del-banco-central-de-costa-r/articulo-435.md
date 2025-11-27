@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LA EMISIÓN DE CERTIFICADOS DIGITALES DE PERSONA FÍSICA
-Artículo 435. Definición del servicio: es el servicio por medio del cual se gestiona la solicitud, emisión, entrega y renovación, así como la validación, la revocación y la custodia de certificados digitales de autenticación y firma digital para personas físicas.
+Artículo 435. Naturaleza del padrón. El PUC es administrado por el BCCR, para cumplir con el objetivo establecido en el artículo 2, inciso c), la función esencial señalada en el artículo 3, inciso i) de la Ley 7558 y la Ley 7786.

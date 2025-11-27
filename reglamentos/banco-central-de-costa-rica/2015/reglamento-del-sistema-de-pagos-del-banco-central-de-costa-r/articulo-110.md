@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 110. Participantes del servicio. En el servicio CLC deben operar como entidad destino los emisores de cheques y podrán participar como entidad origen los asociados.
+Artículo 110. Cumplimiento del estándar. Los participantes serán responsables de coordinar con sus bancos en el exterior para garantizar que los mensajes SWIFT se reciban en el BCCR de manera estándar de conformidad con lo establecido en la Serie de Normas y Procedimientos del SINPE.

@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 96. Participantes del servicio. En el servicio DTR pueden operar como entidad origen y destino los asociados y proveedores de servicios de pago del SINPE. Los proveedores de servicios de pago, únicamente, podrán participar en el servicio bajo la modalidad de DTR no reversible.
+Artículo 96. Incremento del monto mínimo y pago de comisiones a cargo de los clientes. Los participantes podrán incrementar los montos mínimos definidos en el artículo precedente. En el caso de transacciones originadas en canales no autenticados (SMS), este monto no podrá superar los 100 mil colones diarios. Será potestad del participante establecer si le cobra o no una comisión al cliente cuando con sus transacciones supere las sumas acumuladas que se definen en el artículo precedente.
+Como criterio de cobro de las comisiones, el participante decidirá si los excedentes los contabiliza por número de cuenta o por cliente.

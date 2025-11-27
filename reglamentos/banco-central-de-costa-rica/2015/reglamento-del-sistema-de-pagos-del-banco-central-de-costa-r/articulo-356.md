@@ -1,1 +1,1 @@
-Artículo 356. Servicios a cargo de terceros. El asociado será responsable ante el BCCR por las acciones que realice la empresa que le brinda servicios de transporte o que negocie numerario por su cuenta.
+Artículo 356. Plazo para la restitución. Siempre que el BCCR solicite una restitución de garantía para cumplir con lo dispuesto en el presente libro, el afiliado nacional deberá rendir las garantías respectivas a más tardar a las 11:00 a.m. del día hábil siguiente al día en que el BCCR realiza la solicitud.

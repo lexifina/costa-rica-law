@@ -1,4 +1,5 @@
-CAPÍTULO III
-DE LAS CUENTAS DE VALORES
-Artículo 198. Tipos de cuenta. Las entidades de custodia mantienen una cuenta de valores propios y un número ilimitado de cuentas para valores por cuenta de terceros, cada una identificada con un número único asignado por el servicio.
-Los miembros liquidadores únicamente podrán mantener cuentas de valores propios.
+LIBRO XVII
+REGISTRO DE EMISIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 198. Definición del servicio. Se define Registro de Emisiones como el servicio por medio del cual se administran las emisiones de valores públicos anotados en cuenta, conforme con el Título VII de la Ley 7732.

@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 276. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad en las condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas, la difusión de los resultados de las negociaciones y la formación de precios, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.
+Artículo 276. Información. La Serie de Normas Complementarias del SINPE establecerá el monto mínimo y los múltiplos de las ofertas, así como las demás condiciones necesarias para facilitar los procesos de negociación.

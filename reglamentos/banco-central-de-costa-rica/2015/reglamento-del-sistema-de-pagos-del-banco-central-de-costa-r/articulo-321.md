@@ -1,5 +1,1 @@
-LIBRO XXVIII
-CUSTODIA DE NUMERARIO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 321. Definición del servicio. Las Custodias Auxiliares de Numerario (CAN) constituyen el conjunto de procesos operativos, la logística y la plataforma electrónica en la que el BCCR administra su inventario de numerario y mantiene parte de este en bóvedas propias y el resto en bóvedas o espacios acondicionados por las entidades asociadas, bajo absoluta responsabilidad de estas, para usarlo según el BCCR lo determine.
+Artículo 321. Movimiento ante servicio CAN inoperable. Cuando por circunstancias ajenas a los asociados el Servicio CAN se encuentre fuera de operación, podrán realizar movimientos de numerario en las CAN, siempre y cuando, cumplan los procedimientos establecidos y registren tales movimientos en el servicio CAN, a más tardar diez minutos después de que el servicio haya sido reestablecido.

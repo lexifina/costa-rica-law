@@ -1,3 +1,1 @@
-Artículo 93. Tipos de DTR. El servicio dispondrá de dos modalidades de transacciones:
-a) DTR reversible: requiere que el cliente origen realice la transacción de débito, utilizando como mecanismo de autenticación y firma, el que la entidad defina. Estas transacciones podrán ser objeto de un cobro revertido, de conformidad con las disposiciones establecidas en el servicio de Reclamaciones.
-b) DTR no reversible: requiere que el cliente origen realice la transacción de débito, utilizando como mecanismo de autenticación y firma, un certificado digital emitido por la Autoridad Certificadora del SINPE (CA-SINPE). Estas transacciones no podrán ser objeto de un cobro revertido.
+Artículo 93. Notificación o aviso al cliente. Los participantes deberán comunicar al poseedor del número de teléfono móvil el trámite de suscripción, inactivación y movimientos de fondos producto del SINPE Móvil.

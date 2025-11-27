@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LOS TRASPASOS
-Artículo 241. Irrevocabilidad del registro. Las instrucciones de traspaso ingresadas por los participantes no podrán ser revocados por su ordenante o por terceros a partir del momento de su aceptación. Los listados y registros del servicio Traspaso de Valores serán prueba de los movimientos registrados en dicho servicio.
+Artículo 241. Conciliación de operaciones. Los inversionistas son responsables de conciliar diariamente el estado de sus operaciones y de comunicar por escrito al emisor respectivo o a quien lo represente cualquier inconsistencia a más tardar al día hábil siguiente.

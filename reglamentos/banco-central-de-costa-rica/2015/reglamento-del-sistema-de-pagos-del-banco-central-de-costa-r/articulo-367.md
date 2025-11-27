@@ -1,3 +1,5 @@
-CAPÍTULO IV
-DE LOS REQUERIMIENTOS DE GARANTÍA
-Artículo 367. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, los asociados con excepción de las instituciones públicas de conformidad con la clasificación de los participantes detallada en la Serie de Normas y Procedimientos del SINPE, deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.
+Artículo 367. Condiciones del crédito intradiario. El crédito intradiario deberá cumplir con las iguientes condiciones:
+Es otorgado por un período menor a un día hábil y sin costo financiero. Además, siempre deberá estar respaldado con las garantías que la entidad mantenga para operar en el Sistema de Pagos.
+Se gira en la misma moneda de la obligación por liquidar y por la suma faltante requerida para procesar la liquidación.
+Para su giro, la entidad no debe mantener préstamos overnight pendientes de pago.
+Debe ser cancelado automáticamente al cierre del horario bancario.

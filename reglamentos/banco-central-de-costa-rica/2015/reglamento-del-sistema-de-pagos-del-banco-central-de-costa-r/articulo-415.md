@@ -1,6 +1,5 @@
-SEGURIDAD DEL SISTEMA DE PAGOS
-LIBRO XXXII
-ADMINISTRACIÓN DE ESQUEMAS DE SEGURIDAD
+LIBRO XXXIV
+EMISION DE FIRMA DIGITAL DE PERSONA FISICA
 CAPÍTULO I
 DEL SERVICIO
-Artículo 415. Definición del servicio. Administración de Esquemas de Seguridad (AES) es el servicio que facilita al BCCR y a los afiliados la administración y supervisión de la seguridad del SINPE.
+Artículo 415. Definición del servicio. Es el servicio por medio del cual se gestiona la solicitud, la emisión, la entrega, la revocación y la custodia de certificados digitales de persona física.

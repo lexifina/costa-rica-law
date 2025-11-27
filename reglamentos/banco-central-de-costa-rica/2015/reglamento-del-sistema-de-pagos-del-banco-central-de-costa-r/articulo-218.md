@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 218. Participantes del servicio. En el servicio Registro de Emisiones deben operar las entidades públicas que emitan valores anotados en cuenta, y sus representantes. Además, podrán operar las entidades de custodia y los miembros liquidadores.
+Artículo 218. Incumplimiento del archivo de liquidación. Cuando exista una inconsistencia de valores o fondos, y el horario de operación del servicio finalice sin que el emisor o miembro liquidador responsable la haya atendido satisfactoriamente, el BCCR procederá a comunicar al mercado el incumplimiento del archivo de liquidación e informará de la situación a la SUGEVAL.

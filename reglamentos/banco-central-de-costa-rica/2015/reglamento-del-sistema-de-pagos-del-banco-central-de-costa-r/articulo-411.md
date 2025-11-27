@@ -1,5 +1,1 @@
-LIBRO XXXI
-SERVICIO INTERBANCARIO DE LIQUIDACIÓN
-CAPÍTULO I
-DEL SERVICIO
-Artículo 411. Definición del servicio. El Sistema Interbancario de Liquidación (SIL) constituye el mecanismo exclusivo del SINPE para liquidar los mercados y servicios financieros sobre las cuentas de fondos y de valores de sus afiliados, administrar la liquidez del sistema de pagos costarricense y hacer una adecuada gestión de los riesgos inherentes a su actividad, con el fin de promover la estabilidad y eficiencia del Sistema Financiero Nacional.
+Artículo 411. Actualización de la información en el servicio. Los RST de cada afiliado deberán mantener actualizados en el servicio todos los datos relativos a los contactos de su entidad, a saber: gerentes generales, gerentes financieros, gerentes de operación, tesoreros, responsable de servicios, responsable informático, auditores generales, directores informáticos, oficiales de cumplimiento y usuarios de los servicios del SINPE, así como cualquier otro grupo de usuarios que requiera el BCCR para la operación y desarrollo del sistema.

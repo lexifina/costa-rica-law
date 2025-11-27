@@ -1,6 +1,1 @@
-SERVICIOS DE LIQUIDACIÓN EN TIEMPO REAL
-LIBRO II
-CUENTAS DE FONDOS SINPE
-CAPÍTULO I
-DEL SERVICIO
-Artículo 60. Definición del servicio. Cuenta de fondos SINPE es el servicio por medio del cual se administran las cuentas mantenidas por los afiliados en el BCCR utilizadas para la liquidación de las transacciones propias y de terceros que realiza en el Sistema de Pagos.
+Artículo 60. Uso no autorizado de signos externos. El BCCR no será responsable por el uso no autorizado de la marca SINPE ni de los signos externos del sistema, entendidos éstos como sus logotipos, nomenclaturas, marcas o nombres comerciales. El BCCR accionará por las vías legales pertinentes contra quien incurra en usos no autorizados de la marca SINPE y de sus signos externos.

@@ -1,1 +1,3 @@
-Artículo 310. Gestión Riesgo Operativo. Los intermediarios cambiarios deberán utilizar los parámetros de gestión de riesgo operativo disponibles en el servicio; en el caso del resto de participantes, su uso será obligatorio partir de que el BCCR así lo determine y lo comunique por medio de la Serie de Normas y Procedimientos del SINPE.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 310. Participantes del servicio. En el servicio CAN debe operar el BCCR, los asociados del SINPE que decidan mantener numerario del BCCR en sus propias bóvedas o espacios acondicionados para tal fin y los que requieran depositar numerario en la Custodia General del BCCR.
