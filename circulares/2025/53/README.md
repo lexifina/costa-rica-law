@@ -13,3 +13,4 @@ Lineamientos a seguir para las comunicaciones con las Oficinas del Nivel de Aten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-27 | la propia norma |
+| 2 | 2025-11-28 | Circular 233 (2025-11-28) |
