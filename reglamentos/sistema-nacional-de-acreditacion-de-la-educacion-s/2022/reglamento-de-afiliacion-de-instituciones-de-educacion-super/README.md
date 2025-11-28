@@ -14,3 +14,4 @@ Reglamento de afiliación de instituciones de educación superior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-17 | la propia norma |
+| 2 | 2025-11-28 | Reglamento 1869 (2025-11-28) |
