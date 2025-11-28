@@ -1,8 +1,9 @@
 CAPÍTULO II
-Del Centro de Investigación y Conservación
-del Patrimonio Cultural
-Artículo 6º—Centro de Investigación y Conservación del Patrimonio Cultural. Funciones: En materia de patrimonio histórico arquitectónico, el Centro es el órgano del Ministerio encargado de llevar a cabo las siguientes funciones:
+Dirección de Patrimonio Cultural (*)
+(*)(Así modificada su denominación por el artículo 16 del Reglamento para la organización y funcionamiento de la dirección de patrimonio cultural del ministerio de Cultura y Juventud, aprobado mediante decreto ejecutivo N° 45407 del 28 de noviembre del 2025. Anteriormente indicaba "Centro de Investigación y Conservación del Patrimonio Cultural")
+Artículo 6º- Dirección de Patrimonio Cultural (*). Funciones: En materia de patrimonio histórico arquitectónico, el Centro es el órgano del Ministerio encargado de llevar a cabo las siguientes funciones:
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 33596 del 20 de febrero de 2007)
+(*)(Así modificada su denominación por el artículo 16 del Reglamento para la organización y funcionamiento de la dirección de patrimonio cultural del ministerio de Cultura y Juventud, aprobado mediante decreto ejecutivo N° 45407 del 28 de noviembre del 2025. Anteriormente indicaba "Centro de Investigación y Conservación del Patrimonio Cultural")
 a) Proponer anualmente para la debida aprobación del Ministro, las políticas, planes y programas relativos a la protección, investigación, conservación, preservación, restauración, rehabilitación, mantenimiento, educación y divulgación del patrimonio histórico-arquitectónico, de acuerdo con los planes generales de acción del Ministerio y tomando en cuenta su realidad presupuestaria y ejecutar tales políticas una vez obtenido el visto bueno del Ministro.
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33596 del 20 de febrero de 2007)
 b) Colaborar con el Despacho Ministerial brindando la asesoría técnica a la que se refiere el artículo 3° de la Ley de Patrimonio Histórico Arquitectónico, N° 7555 y 5° del presente Reglamento, en lo concerniente a la conservación del patrimonio histórico arquitectónico.

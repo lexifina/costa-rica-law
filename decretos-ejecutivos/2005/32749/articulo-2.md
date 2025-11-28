@@ -1,8 +1,9 @@
-Artículo 2º—Definiciones. Para los efectos del presente Reglamento entiéndase por:
+Artículo 2º-Definiciones. Para los efectos del presente Reglamento entiéndase por:
 1) El Ministerio: Ministerio de Cultura, Juventud y Deportes.
 2) El Ministro: Ministro de Cultura, Juventud y Deportes.
 3) La Ley: Ley de Patrimonio Histórico-Arquitectónico.
-4) El Centro: Centro de Investigación y Conservación del Patrimonio Cultural.
+4) El Centro: Dirección de Patrimonio Cultural.
+(Así modificada su denominación por el artículo 16 del Reglamento para la organización y funcionamiento de la dirección de patrimonio cultural del ministerio de Cultura y Juventud, aprobado mediante decreto ejecutivo N° 45407 del 28 de noviembre del 2025. Anteriormente indicaba "Centro de Investigación y Conservación del Patrimonio Cultural")
 5) La Comisión: Comisión Nacional de Patrimonio Histórico-Arquitectónico.
 6) Patrimonio Histórico-Arquitectónico: Totalidad de edificaciones, monumentos, sitios, conjuntos y centros históricos así declarados conforme la Ley y el presente Reglamento.
 7) Conservación: Conjunto de acciones preventivas encaminadas a asegurar la permanencia del tejido histórico y el valor cultural del objeto arquitectónico.
