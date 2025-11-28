@@ -1,0 +1,2 @@
+Artículo 18.-De la terna o nómina de candidatos. La nómina estará compuesta por las tres mejores calificaciones del registro de elegibles resultante del proceso de selección aplicado.
+Si con un mismo registro de elegibles se requiere responder a más de una plaza vacante, se agregará un candidato más por cada plaza extra y se deberá resolver primero entre los tres mejores candidatos, luego entre los dos no escogidos y el siguiente y así sucesivamente.

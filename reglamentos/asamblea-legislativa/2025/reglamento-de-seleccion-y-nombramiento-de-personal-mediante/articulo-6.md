@@ -1,0 +1,2 @@
+Artículo 6º- Del deber de información. El Departamento de Recursos Humanos deberá informar al Directorio Legislativo de las plazas vacantes pendientes de concurso para el nombramiento en propiedad, con el detalle del tipo de concurso que corresponda.
+Una vez efectuado el concurso correspondiente el Departamento de Recursos Humanos deberá además brindarle la información que se derive de las listas de elegibles que se hayan conformado al efecto, una vez que dicho cuerpo colegiado defina realizar los nombramientos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 19.-Del nombramiento. La plaza vacante debe ser llenada mediante la escogencia de una de las personas funcionarias que integren la terna o nómina presentada por Departamento de Recursos Humanos, entendiéndose que no se podrá seleccionar a un candidato que no haya sido incluido en esta.

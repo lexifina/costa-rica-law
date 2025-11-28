@@ -1,0 +1,1 @@
+Artículo 24.-Eficacia del nombramiento en propiedad. Los nombramientos en propiedad por medio de concursos internos serán eficaces a partir del rige dispuesto en el acuerdo del Directorio Legislativo.
