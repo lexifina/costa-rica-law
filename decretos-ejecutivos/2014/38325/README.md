@@ -15,3 +15,4 @@ Crea Comisión Nacional de Patrimonio Cultural Inmaterial
 | --- | --- | --- |
 | 1 | 2014-04-30 | la propia norma |
 | 2 | 2018-04-10 | Decreto Ejecutivo 41090 (2018-04-10) |
+| 3 | 2025-11-28 | Decreto Ejecutivo 45407 (2025-11-28) |

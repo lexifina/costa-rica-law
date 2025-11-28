@@ -1,7 +1,7 @@
-Artículo 6º—Integración de la CONAPACI La CONAPACI estará integrada por:
+Artículo 6º-Integración de la CONAPACI La CONAPACI estará integrada por:
 a) El Ministro o Ministra de Cultura y Juventud o su representante, quien la presidirá. Un o una representante titular y uno o una suplente, con afinidad y experiencia en la materia, de las siguientes instituciones y organismos:
-b) El Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y
-Juventud, quien fungirá como secretario.
+b) Dirección de Patrimonio Cultural(*)del Ministerio de Cultura y Juventud, quien fungirá como secretario.
+(*)(Así modificada su denominación por el artículo 16 del Reglamento para la organización y funcionamiento de la dirección de patrimonio cultural del ministerio de Cultura y Juventud, aprobado mediante decreto ejecutivo N° 45407 del 28 de noviembre del 2025. Anteriormente indicaba "Centro de Investigación y Conservación del Patrimonio Cultural")
 c) La Dirección de Cultura del Ministerio de Cultura y Juventud.
 d) El Ministerio de Educación Pública.
 e) Las Universidades Públicas, con especialidad en Antropología Social y/o Lingüística, quienes serán nombrado por el Consejo Nacional de Rectores.
