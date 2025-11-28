@@ -1,0 +1,6 @@
+Obligaciones de los funcionarios y la Administración.
+Artículo 4º-Obligaciones de los funcionarios. Además de las obligaciones indicadas en el RAOSJPS y en el ordenamiento jurídico vigente, son obligaciones de los funcionarios:
+a) Cumplir con sus responsabilidades legales y evitar cualquier conducta y omisión que pueda ser susceptible de producir un daño a la Administración y a la población objetivo y que implique actos de corrupción, falta de ética y transparencia en la función pública.
+b) Denunciar ante la instancia que corresponda, cualquier conducta u omisión de otros funcionarios que pueda ser contraria a la normativa establecida y al RAOSJPS y que implique presuntos actos de corrupción, falta de ética y transparencia en la función pública.
+c) Brindar la orientación correspondiente al denunciante, sobre el trámite a seguir y de cuales instancias dispone para realizar una denuncia por presuntos actos de corrupción, fraude y faltas al deber de probidad, redirigiendo a quien desee interponer alguna denuncia hacia las unidades administrativas competentes para su recepción y trámite.
+d) Abstenerse de revelar cualquier información relacionada con denuncias que llegue a su conocimiento por cualquier medio, en tanto no haya sido autorizado por los órganos competentes.

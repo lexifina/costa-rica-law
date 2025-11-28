@@ -1,0 +1,11 @@
+Artículo 3º-Definiciones. Para los propósitos del presente Reglamento, se entenderá lo siguiente:
+Administración Superior: Conjunto de órganos de la JPS conformados por la Junta Directiva, la Gerencia General, y las Gerencias de Área.
+Denuncia Anónima: Es aquella noticia de un hecho o conducta que implique la presunta comisión de actos de corrupción, fraude y faltas al deber de probidad, que presenta una persona sin identificarse o mediante el uso de seudónimo o nombre falso, para que sea investigada, y que, en caso de llegar a comprobarse, se establezcan las acciones correctivas y las sanciones aplicables.
+Denuncia: Es el medio utilizado por las personas o funcionarios, para poner en conocimiento de la Administración, presuntos actos de corrupción, fraude y faltas al deber de probidad, cometidos por jerarcas, titulares subordinados y funcionarios, con el objeto de instar para que se establezcan las sanciones civiles y administrativas correspondientes.
+Denunciante: Es la persona física o jurídica, pública o privada, que pone en conocimiento, de forma escrita, verbal o por cualquier otro medio, un hecho para que se investigue, con el fin de prevenir o determinar la comisión de actos de corrupción, fraude y faltas al deber de probidad, para que se establezcan las sanciones civiles y administrativas correspondientes.
+JPS: Junta de Protección Social.
+Órgano Decisor: Junta Directiva y/o Gerencia General, según corresponda.
+Órgano Instructor: Órgano designado por la Junta Directiva o la Gerencia General, según corresponda, para llevar a cabo la fase de instrucción del procedimiento administrativo que se instaure con ocasión de una denuncia.
+Procedimiento: Consiste en el conjunto de etapas, actividades y pasos que requiere el proceso de investigación, tendientes a alcanzar la verdad real de los hechos denunciados y que consideren en todo momento el debido proceso, para el investigado y para la Administración como partes interesadas.
+RAOSJPS: Reglamento Autónomo de Organización y Servicio de la Junta de Protección Social.
+Reglamento: Reglamento para la presentación y atención a denuncias sobre actos de corrupción, fraude y faltas al deber de probidad en el ejercicio de la función pública en la JPS.

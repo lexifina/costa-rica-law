@@ -1,0 +1,2 @@
+Artículo 7º-Sobre la denuncia: La denuncia podrá presentarse en forma escrita, verbal o por cualquier otro medio ante cualquier oficina de la JPS, la cual la remitirá ante la Junta Directiva y/o Gerencia General, según corresponda, con la finalidad de que pronuncie sobre su admisibilidad y le otorgue el trámite que corresponda.
+La interposición de una denuncia en sede administrativa no excluye ni sustituye las acciones judiciales que puedan ejercitarse ante las autoridades competentes por parte de la persona denunciante.

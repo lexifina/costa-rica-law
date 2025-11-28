@@ -1,0 +1,3 @@
+Artículo 21.-Sobre el expediente administrativo. Se conformará un expediente que contendrá todas las diligencias previas, sean datos, informaciones, entrevistas, elementos probatorios, todo lo cual tendrá carácter de confidencialidad y formará parte integral del informe y del expediente.
+El Órgano Instructor remitirá a conocimiento de la Órgano Decisor este expediente junto con el informe de investigación para el dictado del acto final.
+En el caso de denuncias trasladadas por la Contraloría General de la República, Asamblea Legislativa, Defensoría de los Habitantes u otras dependencias del Estado, se les deberá de informar oportunamente sobre la investigación.

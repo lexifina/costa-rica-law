@@ -1,0 +1,1 @@
+Artículo 19.-El Órgano Decisor deberá llevar un registro de las denuncias que se presenten, de las cuales deberá acusar recibo al denunciante, cuando conste señalamiento de medio para notificarlas, previendo su confidencialidad y la del denunciado, indicándole que se le dará traslado al órgano instructor.

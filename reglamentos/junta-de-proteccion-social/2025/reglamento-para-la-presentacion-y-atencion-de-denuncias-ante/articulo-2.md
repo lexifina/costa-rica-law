@@ -1,0 +1,1 @@
+Artículo 2º-Alcance: Este reglamento es aplicable para el trámite de todas aquellas denuncias que sean presentadas contra funcionarios (as), titulares subordinados, Administración Superior, Auditoría Interna y jerarcas institucionales, cuando se señale un presunto acto de corrupción, fraude y faltas al deber de probidad.

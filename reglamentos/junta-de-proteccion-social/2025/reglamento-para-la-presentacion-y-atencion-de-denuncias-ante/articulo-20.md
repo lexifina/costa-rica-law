@@ -1,0 +1,3 @@
+Artículo 20.-Una vez trasladada la denuncia, el Órgano Decisor valorará su contenido y determinará si procede su admisión; en un plazo máximo de diez días hábiles, deberá realizar las siguientes acciones:
+a) Ordenar la apertura de una investigación preliminar en caso de que los hechos no sean lo suficientemente consistentes para el inicio del proceso.
+b) Cuando la denuncia dispone de los elementos necesarios, decretar la apertura del procedimiento administrativo e integrar el órgano instructor, para su tramitación dentro de los plazos y términos establecidos al efecto en la Ley General de la Administración Pública.
