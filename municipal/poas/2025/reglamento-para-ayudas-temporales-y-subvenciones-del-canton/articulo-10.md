@@ -1,0 +1,2 @@
+Artículo 10.-Podrán otorgarse las ayudas citadas en el artículo N°6 de este reglamento a aquellas personas que cumplan con los siguientes requisitos de tramite:
+a-Llenar en la Oficina de Cobros el respectivo formulario de solicitud de la subvención

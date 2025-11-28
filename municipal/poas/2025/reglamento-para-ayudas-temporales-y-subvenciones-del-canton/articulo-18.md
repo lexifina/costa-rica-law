@@ -1,0 +1,1 @@
+Artículo 18.-Para efectos de lo dispuesto en el presente reglamento, se entenderá por: Centros Educativos: aquellos establecimientos como jardín de niños, escuelas y colegios financiados por el Ministerio de Educación Pública o CEN CINAI perteneciente al Ministerio de Salud, que estén ubicados y presten servicios en el Cantón de Poás.

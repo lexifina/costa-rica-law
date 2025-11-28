@@ -1,0 +1,1 @@
+Artículo 32.-Todo monto dinerario presupuestado anualmente para las diversas ayudas establecidas en el presente reglamento y que no sea ejecutado, será reasignado al mismo fin para ser ejecutado en el año inmediato siguiente.

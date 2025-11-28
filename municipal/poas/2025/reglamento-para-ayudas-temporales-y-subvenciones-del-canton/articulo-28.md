@@ -1,0 +1,1 @@
+Artículo 28.-Las Asociaciones u Organizaciones de beneficencia y centros de salud, solicitantes de este tipo de subvenciones no deben haber recibido ayuda de parte de la Municipalidad, por la misma situación, durante los últimos doce meses.
