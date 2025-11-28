@@ -10,5 +10,6 @@ III.- Se deja sin efecto la circular para la materia civil-cobratoria-concursal,
 IV.- Se deja sin efecto la circular para la materia civil-cobratoria-concursal, N° 296-2023 referente "Uso de la Agenda CRONOS, reglas para la efectividad de los señalamientos y celebración de audiencias en Materia Civil y de Cobro Judicial", para en su lugar disponer lo detallado en el siguiente link:
 https://secretariacorte.poder-judicial.go.cr/index.php/informacion-general/documentos-interes?download=53666:generalidades-sobre-el-uso-de-la-agenda-cronos-o-en-siag
 (Nota de Sinalevi: La actualización del Uso de la Agenda CRONOS, reglas para la efectividad de los señalamientos y celebración de audiencias en Materia Civil y de Cobro Judicial", puede ser consultado en el siguiente Enlace)
+(Nota de Sinalevi: De conformidad con lo establecido en la circular N° 219-2025 del 28 de noviembre del 2025 lo establecido en los puntos 4, 5, 4.1, 4.2 y 6 no se aplica lo dispuesto en materia concursal, sino lo dispuesto en esta circular antes indicada)
 Publíquese una vez en el Boletín Judicial.
 San José, 17 de junio de 2025.
