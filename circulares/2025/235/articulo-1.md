@@ -1,0 +1,13 @@
+CIRCULAR N°235-2025
+Asunto: Trámite de las licencias para el cuido de pacientes en fase terminal y menores de edad gravemente enfermas, previstas en la Ley N°7756, denominada Ley de Beneficios para los responsables de pacientes en fase terminal y personas menores de edad gravemente enfermas.
+A TODOS LOS DESPACHOS Y OFICINAS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N°106-2025 celebrada el 20 de noviembre de 2025, artículo XV, a solicitud de la Dirección Ejecutiva dispuso comunicar que cuando la Caja Costarricense de Seguro Social (CCSS) otorga licencia para el cuido de pacientes en fase terminal y menores de edad gravemente enfermas, prevista en la Ley N° 7756, en el Poder Judicial aplicarán las siguientes condiciones:
+1. El Poder Judicial debe acatar lo dispuesto por la CCSS, en cuanto a la aprobación o desaprobación de las licencias establecidas en la Ley N° 7756, limitando su actividad a aceptar la decisión adoptada por el ente rector de la seguridad social.
+2. Para este tipo de licencias no aplica lo dispuesto en el artículo 42 de la Ley Orgánica del Poder Judicial que establece que la institución otorga permiso con goce de salario para el caso de las incapacidades por enfermedad, sino la Ley N° 7756.
+3. Consecuentemente, no se debe otorgar permiso con goce de salario a las personas servidoras judiciales que resulten beneficiarias de esas licencias. Eventualmente, dentro del trámite administrativo que debe brindarse a las vicisitudes relacionadas con las licencias reguladas en la Ley N° 7756, la institución debe tomar nota de la licencia sin goce de salario que otorga la Caja Costarricense de Seguro Social a las personas servidoras judiciales y permitir a estas últimas ausentarse del trabajo para atender la labor encomendada.
+4. La Sala Constitucional en la resolución número 003894-2018 declaró que la licencia concedida en virtud de la Ley N° 7756 no coincide con la incapacidad otorgada por enfermedad temporal. De acuerdo con el tribunal constitucional, la autorización para cuidar una persona gravemente enferma o en fase terminal no constituye una incapacidad, sino que es un permiso sin goce de salario, de manera que el patrono no está obligado a depositar la remuneración de la parte trabajadora.
+5. La persona servidora judicial a la que se le otorgue este tipo de licencias recibirá un subsidio económico proveniente de los recursos de FODESAF, que son administrados por la Caja Costarricense de Seguro Social.
+Publíquese una vez en el Boletín Judicial."
+San José, 28 de noviembre de 2025.
+<span style='font-family:"Arial",sans-serif; </body>
