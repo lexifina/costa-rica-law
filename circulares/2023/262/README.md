@@ -13,3 +13,4 @@ Cambios administrativos y operativos producto de la entrada en vigencia de la nu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-23 | la propia norma |
+| 2 | 2025-11-28 | Circular 219 (2025-11-28) |
