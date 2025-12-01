@@ -1,0 +1,1 @@
+Artículo 91.- Sopladores de hollín. Donde se empleen sopladores de hollín, el Inspector de Calderas Autorizados debe examinarlo al igual que los tubos de la caldera para localizar cortes o erosión debidos a la descarga de las boquillas del soplador.

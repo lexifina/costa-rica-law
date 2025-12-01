@@ -1,0 +1,1 @@
+Artículo 78.- Fugas internas. Se debe hacer observación detallada para detectar fugas por cualquier parte de la estructura de la caldera, particularmente cerca de las costuras y extremos de los tubos que forman la caldera.

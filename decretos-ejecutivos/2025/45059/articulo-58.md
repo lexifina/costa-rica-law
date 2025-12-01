@@ -1,0 +1,1 @@
+Artículo 58.- Disponibilidad de la caldera para inspección o control estatal. Toda caldera debe estar disponible para realizar inspección o control estatal, sin previo aviso, por parte de funcionarios del Ministerio de Salud, conforme a la legislación vigente.

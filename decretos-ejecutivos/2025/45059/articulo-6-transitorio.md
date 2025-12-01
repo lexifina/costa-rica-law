@@ -1,0 +1,1 @@
+TRANSITORIO VI. Los usuarios de calderas en un plazo de doce (12) meses contados a partir de la entrada en vigencia del presente reglamento, deben cumplir con la autorización de Operador Calificado de Calderas, solicitada en este reglamento.

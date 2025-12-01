@@ -1,0 +1,1 @@
+Artículo 92.- Incrustaciones y sedimentos en calderas acuatubulares. El interior de los tubos debe ser examinado para determinar incrustaciones y sedimentos. Los extremos de los tubos deben también ser examinados para verificar si hay desgaste del metal, fragilidad y acortamiento en los tubos.

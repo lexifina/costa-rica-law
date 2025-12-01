@@ -1,0 +1,1 @@
+Artículo 86.- Tubos de calderas Igneotubulares. Los tubos deben ser examinados para detectar abombamientos, fisuras o cualquier evidencia de soldaduras defectuosas, así como erosión producida por el choque de partículas de combustible y cenizas. En el caso que se presente se debe suspender la operación la caldera hasta que sea examinado por el Inspector de Calderas Autorizado.

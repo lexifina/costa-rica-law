@@ -1,0 +1,1 @@
+Artículo 60.- Inspección general. El Inspector de Calderas autorizado debe realizar una inspección general, del cuarto de calderas y compartimento de calderas, indicando en dicha inspección la fecha de instalación de la caldera.

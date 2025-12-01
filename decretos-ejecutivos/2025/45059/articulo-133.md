@@ -1,0 +1,1 @@
+Artículo 133.- Válvulas de seguridad. La válvula de seguridad puede estar ajustada igual o por debajo de la presión máxima de trabajo o la de diseño; o a la presión máxima de trabajo recomendada por el Inspector de Calderas Autorizado según los resultados de las pruebas no destructivas.

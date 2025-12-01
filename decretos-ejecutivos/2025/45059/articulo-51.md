@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+INSPECCIONES DEL FUNCIONAMIENTO DE LAS CALDERAS
+Artículo 51.- Caldera en Servicio. Toda caldera en servicio debe ser objeto de una Inspección Anual realizada por el Inspector de Calderas autorizado, contratado por el usuario. La Inspección anual tiene como principal propósito salvaguardar la seguridad del personal o usuario del sistema, así como la protección contra pérdidas o daños de las calderas a causa de corrosión, incrustación picaduras, protección contra condiciones inseguras de operación causadas por cambios en los controles o tuberías o falta de prueba de los accesorios de seguridad Es obligatorio presentar en el informe anual todos los hallazgos anotados en la bitácora de inspección.

@@ -1,0 +1,1 @@
+Artículo 76.- Limpieza de sedimentos e incrustaciones. Luego de la evaluación interna del lado del agua y habiéndose determinado sedimentos e incrustaciones, todas estas superficies se deben limpiar según lo defina el Inspector de Calderas Autorizado, ya sea por lavado, por medios mecánicos o por métodos químicos.

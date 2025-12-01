@@ -1,0 +1,1 @@
+Artículo 102.- Otras revisiones. Se debe realizar un examen de las válvulas de seguridad, sus conexiones a la caldera, tubería de escape, drenajes y soportes. Todos los orificios deben estar libres y limpios.

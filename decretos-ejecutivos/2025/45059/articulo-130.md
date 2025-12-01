@@ -1,0 +1,1 @@
+Artículo 130.- Periodicidad de los ensayos no destructivos. Los ensayos no destructivos para la determinación del estado global del equipo se deben realizar con una periodicidad máxima de tres años, o la que al respecto indique el fabricante o menos años a criterio del Inspector de Calderas Autorizado.

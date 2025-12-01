@@ -1,0 +1,1 @@
+Artículo 56.- Detección de irregularidad o recomendación. Si el Inspector de Calderas Autorizado detecta alguna irregularidad o recomienda algún cambio que mejore la seguridad y la operación de la caldera, o si no se hubiera podido hacer alguna de las pruebas, lo debe indicar así en el Informe Anual.

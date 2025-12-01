@@ -1,0 +1,1 @@
+Artículo 124.- Estado de partes internas. Si hay partes internas, estas deben inspeccionarse para ver su estado general o piezas sueltas, superficies con corrosión, picaduras o desgastes, así como corrosiones.

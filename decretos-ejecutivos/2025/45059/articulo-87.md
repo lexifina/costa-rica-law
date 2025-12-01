@@ -1,0 +1,1 @@
+Artículo 87.- Registros y otras aberturas. Los registros y sus placas de refuerzo, así como boquillas y demás conexiones de unión a la caldera por bridas o roscadas a la caldera, al igual que el estado de los sellos y aislantes, deben examinarse interior y exteriormente para comprobar que no estén rotas o deformadas.

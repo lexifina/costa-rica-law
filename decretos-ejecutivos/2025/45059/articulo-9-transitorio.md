@@ -1,0 +1,1 @@
+TRANSITORIO IX: En un plazo de tres (3) años contados a partir de la entrada en vigencia del presente reglamento, el Ministerio de Salud debe definir los tipos y aplicaciones de recipientes a presión que deben ser controlados y los procedimientos para ello.

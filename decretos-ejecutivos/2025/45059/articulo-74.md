@@ -1,0 +1,1 @@
+Artículo 74.- Calderas de tubos de humo. La evaluación en calderas de tubos de humo debe incluir una revisión contra cualquier contacto de la flama sobre las superficies de acero secas, particularmente en la zona del cañón o tubo central. Se debe verificar si existe presencia de hollín o combustible sin quemar.

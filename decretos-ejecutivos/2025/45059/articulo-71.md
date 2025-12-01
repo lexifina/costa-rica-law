@@ -1,0 +1,1 @@
+Artículo 71.- Estado de accesorios de la caldera. Se debe verificar el cumplimiento y el estado de los accesorios de la caldera, tales como tubos indicadores de nivel, grifos de prueba, columnas de agua, controles de nivel de agua, alarmas y cortadores de alto y bajo nivel, válvulas de purga, válvulas de alimentación, válvulas de no retorno, indicadores electrónicos y manómetros.

@@ -1,0 +1,1 @@
+Artículo 120.- Expansión y contracción. El Inspector de Calderas Autorizado determina si hay espacio apropiado para la expansión y contracción de las tuberías y que no haya vibraciones excesivas que tiendan a dañar las partes sujetas a ellas. Debe contar con los mecanismos para reducir las vibraciones.

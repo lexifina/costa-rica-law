@@ -1,0 +1,1 @@
+Artículo 84.- Actualización de Certificado de Operación. Cuando se determine una nueva presión de trabajo, el Inspector debe solicitar a la Dirección el cambio de dicho valor indicado, en el Certificado de Autorización de la Caldera, para lo cual debe entregar el Certificado original que requiere ser cambiado.

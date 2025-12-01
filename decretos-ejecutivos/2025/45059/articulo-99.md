@@ -1,0 +1,1 @@
+Artículo 99.- Falla de una caldera. Cuando haya una falla en una caldera, el Inspector de Calderas Autorizado, debe ordenar la aplicación de pruebas y análisis necesarios para constatar la seguridad de la caldera.

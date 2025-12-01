@@ -1,0 +1,1 @@
+Artículo 116.- Evaluación de operación normal de autoclaves: Esta evaluación debe incluir el examen de la operación normal de la autoclave, incluyendo sus accesorios, conexiones y sistemas auxiliares, con el fin de observar las prácticas de operación y mantenimiento, así como la implementación de la bitácora de Inspección y operación.

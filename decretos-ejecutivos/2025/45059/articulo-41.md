@@ -1,0 +1,2 @@
+Artículo 41.- Presión de operación de caldera. No se debe permitir la operación de una caldera a una presión mayor que la presión máxima de trabajo indicada en el certificado de Autorización de Operación vigente de la caldera. Cualquier cambio en la presión máxima de trabajo requerirá una nueva Inspección en la que se debe justificar las razones para dicho cambio.
+El representante legal debe asegurar los mecanismos de seguridad necesarios para impedir que la presión de operación autorizada de la caldera sea alterada.

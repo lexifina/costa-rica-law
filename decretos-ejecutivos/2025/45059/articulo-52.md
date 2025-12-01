@@ -1,0 +1,1 @@
+Artículo 52.- Prohibición de inspección por parte del Inspector de Calderas Autorizado. Queda prohibido que el Inspector de Calderas Autorizado realice la Inspección de las calderas de la empresa en la que labora. Así mismo, aquellas calderas en las que tenga participación directa o indirecta en actividades de reparación, mantenimiento, venta o tratamiento químico.

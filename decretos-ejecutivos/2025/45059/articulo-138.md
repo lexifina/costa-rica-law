@@ -1,0 +1,1 @@
+Artículo 138. Reparaciones. Toda reparación realizada por las empresas dedicadas al mantenimiento, reparación o venta de calderas y autoclaves debe realizarse de conformidad con las indicaciones del fabricante, bajo las normas de seguridad establecidas por ASME u otras normas equivalentes o superiores avaladas por un Inspector de Calderas Autorizado.

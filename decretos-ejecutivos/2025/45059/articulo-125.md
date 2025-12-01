@@ -1,0 +1,1 @@
+Artículo 125.- Deformaciones. El Inspector de Calderas Autorizado debe observar cualquier parte que haya sido deformada por pandeo o abombamiento durante la operación y debe proceder de acuerdo con el artículo 77 del presente reglamento.

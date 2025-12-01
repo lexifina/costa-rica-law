@@ -1,0 +1,1 @@
+TRANSITORIO I. En un plazo de doce (12) meses contados a partir de la fecha de entrada en vigencia del presente reglamento, las edificaciones nuevas que alberguen calderas deben ajustar sus instalaciones según los requerimientos de este reglamento.

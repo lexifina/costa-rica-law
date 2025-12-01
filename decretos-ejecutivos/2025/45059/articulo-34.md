@@ -1,0 +1,6 @@
+Artículo 34.- Manómetros. Los manómetros instalados en las calderas deben cumplir con los requisitos siguientes:
+1) Los manómetros principales de una caldera deben estar bien iluminados todo el tiempo para que puedan ser leídos por el operador desde cualquier sitio del área de operación usual. Se pueden usar como complemento, mediciones de presión remotos y gráficos.
+2) Deben de instalarse lo más cerca posible de la caldera, libre de vibraciones y con una tubería en forma de U, sifón o dispositivo equivalente, que se llene de condensado frío, protegiéndolos así de las altas temperaturas del vapor.
+3) Las tuberías de conexión para los manómetros deben tener una válvula de cierre lo más cercana a la caldera.
+4) Aquellos manómetros que presenten ruptura o algún daño en su carátula deben ser sustituidos de inmediato.
+5) Los manómetros deben tener por lo menos una escala graduada en el Sistema Internacional; los números de sus carátulas y la aguja indicadora deben ser de un tamaño tal que puedan ser fácilmente leídos por el Operador desde cualquier sitio del área de operación usual. La lectura máxima de presión de los manómetros debe ser aproximadamente del doble de la presión máxima de trabajo de la caldera.

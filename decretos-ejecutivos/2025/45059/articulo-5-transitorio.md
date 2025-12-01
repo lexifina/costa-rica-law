@@ -1,0 +1,1 @@
+TRANSITORIO V. En un plazo de doce (12) meses contados a partir de la entrada en vigencia del presente reglamento, el Ministerio de Salud debe coordinar con los Colegios Profesionales (CFIA y CIQPA), para establecer un mecanismo de certificación para las personas que realicen ensayos no destructivos.

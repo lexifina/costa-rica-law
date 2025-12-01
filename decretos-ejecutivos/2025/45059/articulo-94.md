@@ -1,0 +1,1 @@
+Artículo 94.- Prueba hidrostática. En toda inspección anual de un generador de vapor, se debe practicar la prueba hidrostática. Con esta prueba se pretende constatar la capacidad estructural del recipiente a presión y su hermeticidad.

@@ -1,0 +1,1 @@
+Artículo 122.- Tapa y empaques. Se debe realizar una revisión de la hermeticidad en la tapa y empaques. Cuando no exista bloqueo de puerta, se debe presurizar la chaqueta de la autoclave con la puerta abierta, con el propósito de detectar fisuras o fugas en la cámara.

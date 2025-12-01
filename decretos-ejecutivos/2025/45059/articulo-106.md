@@ -1,0 +1,1 @@
+Artículo 106.- Estado cualitativo de corrosión e incrustación. En el Informe de Inspección Anual o de renovación, el Inspector de Caldera Autorizado debe hacer una descripción respecto al estado cualitativo de corrosión e incrustación que posee la caldera, así como sus recomendaciones con respecto a la segura operación de la caldera.

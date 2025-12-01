@@ -1,0 +1,1 @@
+Artículo 68.- Disposición de las conexiones. La disposición de las conexiones de las líneas individuales de suministro de las calderas al cabezal, deben observarse especialmente para ver cualquier cambio de posición con respecto a la caldera, debido a asentamientos y otras causas.

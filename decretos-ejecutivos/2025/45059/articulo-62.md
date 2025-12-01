@@ -1,0 +1,1 @@
+Artículo 62.- Evaluación externa. Esta evaluación debe incluir el examen de la caldera, sus accesorios, conexiones y sistemas auxiliares, mientras la caldera está en servicio. Esta es una forma de examen que se hace inicialmente para observar las prácticas de operación y mantenimiento.

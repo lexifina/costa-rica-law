@@ -1,0 +1,1 @@
+Artículo 111.- Inspector de autoclaves. El inspector de autoclaves es el mismo Inspector Autorizado de Caldera, el cual debe ser el Profesional que cumpla con las calidades indicadas en los artículos del 5 al 8 de este reglamento.

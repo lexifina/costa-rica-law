@@ -1,0 +1,1 @@
+TRANSITORIO VIII: En un plazo de seis (6) meses contados a partir de la entrada en vigencia del presente reglamento, la Dirección debe diseñar y mantener una base de datos de accidentes relacionados con calderas y autoclaves, en la cual se lleven las estadísticas de los eventos.

@@ -1,0 +1,2 @@
+Artículo 141. Reporte de accidentes. Los Inspectores de Calderas Autorizados, así como las empresas inscritas, están en la obligación de reportar a la Dirección los accidentes en calderas y autoclaves, donde haya daños materiales o humanos indicando las posibles causas que provocaron el daño. La Dirección debe emitir acuse de recibido, adjuntándose al expediente del equipo y a la base de datos de accidentes.
+La Dirección debe diseñar y mantener una base de datos de accidentes en la que se lleven las estadísticas de los eventos.

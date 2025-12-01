@@ -1,0 +1,1 @@
+Artículo 118.- Soportes de acero, tirantes y varillas de sujeción. Los soportes de acero, tirantes y varillas de sujeción se deben examinar para verificar su estado y la posibilidad de que estén fuera de su lugar.

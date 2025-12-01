@@ -1,0 +1,2 @@
+Artículo 45.- Tratamiento del agua de calderas. El agua usada en las superficies metálicas que está en contacto con las superficies internas de las calderas debe contar con un tratamiento para el control de la incrustación y corrosión.
+La caldera con más de un milímetro de incrustación del espesor del material de las paredes de los tubos o el tubo central no debe operar hasta que se realice una valoración por parte del Inspector Autorizado de Calderas, el cual debe emitir un informe con el detalle de la solución propuesta ante la Dirección.

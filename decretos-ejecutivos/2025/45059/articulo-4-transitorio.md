@@ -1,0 +1,1 @@
+TRANSITORIO IV. En un plazo de doce (12) meses contados a partir de la fecha de entrada en vigencia del presente reglamento, el Ministerio de Salud coordinará con los Colegios Profesionales (CFIA y CIQPA) y otros entes autorizados, para que impartan el curso teórico de Operador de Calderas.

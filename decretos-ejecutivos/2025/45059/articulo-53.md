@@ -1,0 +1,1 @@
+Artículo 53.- Suspensión de autorización de operación. El incumplimiento de la inspección anual será motivo para ordenar la suspensión de la autorización de operación, conforme a lo dispuesto en los artículos 355 y 356 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud".

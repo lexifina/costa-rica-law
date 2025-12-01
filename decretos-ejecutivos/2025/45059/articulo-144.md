@@ -1,0 +1,1 @@
+Artículo 144.- Recursos. Contra la resolución denegatoria de la autorización de instalación, operación o de renovación de una caldera, dictada por la Dirección cabrán los recursos ordinarios establecidos en el artículo 60 de la Ley Nº 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".

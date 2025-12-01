@@ -1,0 +1,2 @@
+Artículo 90.- Pantallas o mamparas lado del fuego. Se deben observar que estén en condiciones de operatividad segura. Se debe reconocer si la ausencia o deterioro de las mamparas pueda causar altas temperaturas, en la estructura de la caldera, para las cuales no esté diseñada.
+La posición de los quemadores debe asegurar que no provoquen que la llama choque en una zona particular de la caldera y produzca un sobrecalentamiento del material con el consecuente riesgo de ruptura.

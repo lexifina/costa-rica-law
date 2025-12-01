@@ -1,0 +1,1 @@
+Artículo 70.- Válvulas de Seguridad. Se debe verificar que el montaje de las válvulas no permita la acumulación de óxido, depósitos u otras sustancias extrañas en el cuerpo de la válvula, las cuales interfieran con su libre operación.

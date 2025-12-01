@@ -1,0 +1,2 @@
+Artículo 97.- Caída de presión. La caída de presión durante la prueba hidrostática no debe ser mayor del 5% en 30 minutos de duración. Además, la presión de la prueba no debe sobrepasarse.
+La prueba hidrostática debe durar el tiempo necesario para que el Inspector de Calderas autorizado realice las inspecciones pertinentes. Durante esta prueba deben estar accesibles para inspección las superficies sometidas a presión.

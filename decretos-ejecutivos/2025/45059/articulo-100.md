@@ -1,0 +1,1 @@
+Artículo 100.- Prueba de vapor. Se debe realizar una prueba de vapor para constatar la condición de los elementos de protección y control de la caldera a las condiciones reales de presión a la que cada uno de ellos debe operar.

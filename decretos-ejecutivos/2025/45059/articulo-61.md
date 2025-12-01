@@ -1,0 +1,2 @@
+Artículo 61.- Evaluación ocular. Se debe realizar una inspección visual de las diferentes zonas críticas según el tipo de caldera, buscando evidencias de deformación, desgastes y fisuras.
+El procedimiento de reparación de los daños en las partes sometidas a presión requiere de la aprobación del Inspector de Calderas Autorizado, el que además debe realizar una prueba hidrostática para verificar la reparación, según se indica en los artículos 95 al 100 del presente reglamento.

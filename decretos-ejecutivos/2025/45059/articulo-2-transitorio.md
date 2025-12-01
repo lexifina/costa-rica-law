@@ -1,0 +1,1 @@
+TRANSITORIO II. En un plazo de doce (12) meses contados a partir de la fecha de entrada en vigencia del presente reglamento, los usuarios de las autoclaves deben ajustar sus instalaciones para cumplir con los requisitos establecidos en el presente reglamento.

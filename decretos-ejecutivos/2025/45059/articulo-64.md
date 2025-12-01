@@ -1,0 +1,1 @@
+Artículo 64.- Corrosión. Se debe verificar que no haya evidencia de corrosión en el exterior de la estructura de la caldera y se deben revisar los techos, chimeneas, así como las válvulas y otros accesorios para verificar que no presenten fugas.

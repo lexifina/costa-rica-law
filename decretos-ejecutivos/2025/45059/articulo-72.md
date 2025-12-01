@@ -1,0 +1,1 @@
+Artículo 72.- Condición del cuarto o compartimento de calderas. El Inspector de Calderas Autorizado debe informar de la condición o estado del cuarto o compartimento de la caldera. No se deben almacenar materiales o equipos ajenos a la operación de las calderas. Se debe verificar el funcionamiento de los medios de egreso y salidas de emergencia.

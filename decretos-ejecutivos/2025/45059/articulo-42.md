@@ -1,0 +1,3 @@
+Artículo 42.- Operador Calificado de Calderas. Toda instalación de calderas debe contar con un Operador Calificado de Calderas asignado durante el periodo de funcionamiento.
+El usuario mantendrá la capacitación formal y continua para el buen desempeño de sus funciones.
+El operador calificado de calderas está en la obligación de comunicarle inmediatamente al usuario o al Inspector de Calderas Autorizado de cualquier deficiencia o daño que note en las calderas y en la instalación, para su pronta valoración. Dicho evento se debe anotar en la bitácora de operación. En el Anexo 6 del presente reglamento, se detalla el perfil y habilidades requeridas.

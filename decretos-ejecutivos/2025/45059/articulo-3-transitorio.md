@@ -1,0 +1,1 @@
+TRANSITORIO III. En un plazo de seis (6) meses contados a partir de la fecha de entrada en vigencia del presente reglamento, las empresas de mantenimiento, reparación y venta de calderas y autoclaves deben cumplir con los requisitos establecidos en el presente reglamento.

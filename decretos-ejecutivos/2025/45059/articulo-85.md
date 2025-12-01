@@ -1,0 +1,1 @@
+Artículo 85.- Calderas Igneotubulares. El exterior de los tubos debe examinarse para detectar la presencia de incrustaciones, depósitos y también el espacio, haciendo pasar una pequeña luz entre ellos, con el objeto de asegurarse que no haya restricción en la circulación del agua.
