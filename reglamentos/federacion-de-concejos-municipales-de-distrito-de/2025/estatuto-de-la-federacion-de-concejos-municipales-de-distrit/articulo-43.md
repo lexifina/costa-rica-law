@@ -1,0 +1,2 @@
+ARTÍCULO 43: Para cubrir los gastos ordinarios de la Federación, cada Concejo Municipal de Distrito afiliado a esta Federación le girará el cero coma veinticinco por ciento (0,25%) de su presupuesto ordinario del año anterior aprobado por la CGR, excluyendo los recursos de la Ley N°8114/9329.
+Dicha cuota se podrá pagar a lo largo del año estableciendo como fecha máxima el 30 de noviembre de cada año, a efecto de posibilitar la operación de la Federación.

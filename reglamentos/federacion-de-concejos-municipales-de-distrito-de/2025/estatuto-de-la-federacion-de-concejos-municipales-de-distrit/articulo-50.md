@@ -1,0 +1,4 @@
+ARTÍCULO 50: Acordada la disolución por la Asamblea General, esta Comisión Liquidadora se encargará de la gestión del servicio y del destino de los bienes que integran el patrimonio de la Federación.
+La Comisión Liquidadora realizará su cometido en el plazo máximo de un año. Este procedimiento requerirá de modo obligatorio el refrendo de la Contraloría General de la República.
+Los bienes que hubiesen estado destinados a la prestación de los servicios desarrollados por la Federación y adscritos por los Concejos Municipales de Distrito federados, pasarán automáticamente a disposición de estos. En cuanto a los demás bienes, la Comisión Liquidadora adoptará los acuerdos pertinentes.
+Los entes federados no responderán a las deudas y obligaciones contraídas por la Federación de Concejos Municipales de Distrito.

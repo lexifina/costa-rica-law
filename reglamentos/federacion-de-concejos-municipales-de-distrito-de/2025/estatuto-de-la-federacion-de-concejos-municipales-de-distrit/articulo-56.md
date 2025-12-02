@@ -1,0 +1,1 @@
+ARTÍCULO 56: El presente Estatuto sustituye el estatuto anteriormente vigente y que se publicó en el Diario Oficial La Gaceta, número 118 de fecha lunes 2 de julio del año 2018, así como sus reformas anteriormente realizadas.

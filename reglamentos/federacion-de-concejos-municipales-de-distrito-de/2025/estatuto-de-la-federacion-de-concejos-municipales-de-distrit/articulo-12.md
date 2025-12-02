@@ -1,0 +1,1 @@
+ARTÍCULO 12: La Federación facilitará la coordinación entre los Concejos que la integran y el Gobierno Central e instituciones públicas y privadas, otras Federaciones y cualesquiera tras organizaciones nacionales e internacionales que guarden relación con los intereses del régimen municipal.

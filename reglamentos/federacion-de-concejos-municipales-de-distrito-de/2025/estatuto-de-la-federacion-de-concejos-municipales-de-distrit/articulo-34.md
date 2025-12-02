@@ -1,0 +1,2 @@
+DE LA UNIDAD TÉCNICA
+ARTÍCULO 34: La Unidad Técnica es un Órgano de apoyo y de asesoría al Consejo Directivo y al Órgano de Gestión y Administración y estará conformada por al menos una persona designada por cada Intendencia de los Concejos Municipales de Distrito afiliados a la Federación, también se podrán incorporar como miembros asesores externos, representantes de otras entidades públicas, que se determinen como necesarios para incidir positivamente en el régimen municipal.

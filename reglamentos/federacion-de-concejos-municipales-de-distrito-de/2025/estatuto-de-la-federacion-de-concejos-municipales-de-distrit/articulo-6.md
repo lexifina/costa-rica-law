@@ -1,0 +1,2 @@
+DEL DOMICILIO
+ARTÍCULO 6: El domicilio de la federación, será en el Distrito de Tucurrique del Cantón de Jiménez de la provincia de Cartago, ubicado en las oficinas del Concejo Municipal de Distrito de Tucurrique. Sin embargo, podrá abrir oficinas, sucursales o agencias en cualquier parte o lugar de su jurisdicción. Este domicilio podrá cambiarse por acuerdo de las dos terceras partes de los votos totales de la Asamblea General.

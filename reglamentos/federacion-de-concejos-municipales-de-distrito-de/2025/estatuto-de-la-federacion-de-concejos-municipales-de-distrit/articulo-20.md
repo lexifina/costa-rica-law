@@ -1,0 +1,3 @@
+DEL CONSEJO DIRECTIVO
+ARTÍCULO 20: El Consejo Directivo estará conformado por los Intendentes Municipales electos popularmente y debidamente acreditados por el Tribunal Supremo de Elecciones. En caso de ausencia, el/la Intendente Municipal será sustituido por su Viceintendente Municipal, previa justificación emitida por el/la Intendente Municipal. Esta sustitución podrá realizarse en un máximo de tres sesiones año calendario, ya sean ordinarias o extraordinarias.
+La juramentación de los Intendentes Municipales de los Concejos Municipales de Distrito que formarán parte del Consejo Directivo, lo hará la Asamblea General por medio de votación de simple mayoría de los presentes en la Asamblea.

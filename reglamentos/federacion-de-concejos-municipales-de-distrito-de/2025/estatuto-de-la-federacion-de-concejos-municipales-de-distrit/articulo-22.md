@@ -1,0 +1,2 @@
+ARTÍCULO 22: El Consejo Directivo sesionará ordinariamente, al menos una vez al mes y extraordinariamente cuando así lo acuerde el mismo Consejo Directivo o por convocatoria de la Presidencia de este.
+La convocatoria a sesiones extraordinarias la realizará la Presidencia y debe comunicarse a todos los miembros del Consejo Directivo, con una antelación mínima de 24 horas (veinticuatro horas), indicando el lugar y hora de la Sesión, así como los puntos a tratar.
