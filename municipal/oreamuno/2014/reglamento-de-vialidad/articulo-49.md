@@ -1,3 +1,0 @@
-Artículo 49. Régimen de licencias en suelo de uso ferroviario
-1. Los actos de edificación y de cambio de uso de los edificios existentes en los terrenos incluidos en el uso ferroviario, están sujetos al trámite de licencia municipal.
-2. El régimen general de licencias municipales se someterá en los terrenos adscritos al uso ferroviario a lo dispuesto en la Ley Nº 7001, Ley Orgánica del Instituto Costarricense de ferrocarriles (INCOFER) en virtud de la cual, la empresa titular de la explotación ferroviaria de transporte público no precisará licencias municipales para las obras de conservación y entretenimiento de sus líneas e instalaciones y demás servicios auxiliares directamente relacionados con la explotación ferroviaria.

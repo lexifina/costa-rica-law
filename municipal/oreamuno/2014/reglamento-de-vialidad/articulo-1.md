@@ -1,9 +1,0 @@
-MUNICIPALIDAD DE OREAMUNO
-Se le comunica al público en general, literalmente el Artículo 25°, Acuerdo No.3174-2014, tomado en la Sesión No.316-2014, celebrada por el Concejo Municipal el día 17 de febrero de 2014, quedando aprobado con 3 votos a favor (Regidor (as) Aguilar Monge, Calvo Ramírez y Méndez Fernández), y 2 votos en contra (Regidores Masis Siles y Marrero Solano), debidamente ratificado y en firme en la Sesión N.318-2014, celebrada el día 24 de febrero del 2014, en el Capítulo II, inciso a):
-ARTÍCULO 25°: ACUERDO No.3174-2014: Oficio AM-VA-0007-2014-ccu, remitido por la señorita Catalina Coghi Ulloa, Vicealcaldesa Municipal, dirigido al Concejo Municipal entre otros; por medio del cual hace traslado para conocimiento, aprobación y respectivo trámite de publicación del oficio C-PU-D-106-2014, emitido por el señor Leonel Rosales Maroto, Director de Urbanismo del Instituto Nacional de Vivienda y Urbanismo (INVU), en donde se indica que en virtud a lo referido por este Municipio la Dirección de Urbanismo, procede con la aprobación del Plan Regulador del Cantón de Oreamuno de Cartago; en este sentido debe la Municipalidad cumplir con el debido proceso según el artículo 17 de la Ley de Planificación Urbana No.4240.
-REGLAMENTO DE VIALIDAD
-Título 1.REGLAMENTO DE VIALIDAD
-Capítulo 1. Exposición
-Artículo 1. Ámbito y carácter del Reglamento
-El ámbito geográfico de aplicación del presente reglamento es el cantón sin perjuicio de lo que estipula y reglamenta la Ley General de Caminos Públicos (Ley Nº 5060), el “Reglamento de Fraccionamiento y Urbanizaciones” y el “Reglamento de Construcciones” del INVU.
-El “Reglamento de Vialidad en el cantón de Oreamuno”, es el documento en el que se recogen los parámetros de aplicación para el diseño de la red vial cantonal competencia de la Municipalidad, documento al que habrán de ajustarse todos los planes y proyectos en los que se definan las características de los elementos viales.

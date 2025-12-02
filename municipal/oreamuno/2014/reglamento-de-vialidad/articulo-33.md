@@ -1,2 +1,0 @@
-Artículo 33. Ocupación del espacio público
-En las vías, parques y plazas de su administración, por Acuerdo del Concejo Municipal la Municipalidad podrá otorgar permisos temporales y revocables, para aprovecharlas con determinados fines, incluyendo privados y de lucro y mobiliario urbano. La decisión para este tipo de concesiones debe respaldarse en programas integrales de renovación y embellecimiento de la ciudad.

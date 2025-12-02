@@ -1,9 +1,0 @@
-Capítulo 4. Plataformas reservadas en la vía pública para el transporte
-Artículo 14. Definición y clasificación
-Se trata de aquellas espacios pertenecientes a la vía pública destinadas a ser utilizadas por un determinado modo de transporte o tipo de vehículo diseñadas específicamente para tal fin, y que operan de manera integrada en el conjunto del sistema de transportes.
-1. En función del grado de segregación con otros tráficos, las plataformas reservadas se encuentran integradas en la propia red vial, sin separación física del resto del tráfico si bien la reserva se efectuará mediante señalización horizontal o vertical que distinga la preferencia de utilización. Su implantación responderá a criterios de demanda o de gestión del sistema de transportes, que no exijan cambios constructivos profundos en la red Vial.
-2. Desde el punto de vista del modo de transporte o tipo de vehículo al cual va destinado la plataforma reservada se distinguen los siguientes tipos como lineamientos del Plan PRUGAM y como propuestas para que las posibles soluciones viales destinadas al transporte público estén ya recogidas en este reglamento:
-- Plataformas reservadas para sistemas de alta capacidad: Son aquellos sistemas que ofreciendo un alto nivel de servicio son capaces de servir volúmenes de demanda como los trenes y tranvías.
-- Vías exclusivas: Reservado al tránsito de vehículos destinados al transporte colectivo.
-- Ciclovía: Constituido por aquellas bandas reservadas a la circulación de bicicletas.
-- Otros carriles reservados: Que serán aquellos que puntualmente y sin constituir norma, demanden algún modo de transporte especial, o alguna actividad específica, tales como carriles exclusivos para ambulancias en zonas hospitalarias, bomberos, carga y descarga en zonas comerciales o industriales, etc.
