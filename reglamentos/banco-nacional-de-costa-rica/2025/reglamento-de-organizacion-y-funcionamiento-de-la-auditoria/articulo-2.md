@@ -1,0 +1,2 @@
+Artículo 2. Concepto y propósito de la Auditoría Interna
+La Auditoría Interna mejora y protege el valor de BN Centro de Procesos S.A., mediante servicios independientes y objetivos de aseguramiento y asesoría, concebidos para validar y, mejorar los procesos y operaciones, y contribuir con el alcance de los objetivos corporativos, mediante la práctica de un enfoque preventivo, sistémico y profesional, al evaluar y mejorar la efectividad de la gobernabilidad, gestión del riesgo y control interno.
