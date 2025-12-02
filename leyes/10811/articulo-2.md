@@ -1,0 +1,1 @@
+ARTÍCULO 2- Queda exento de esta condonación el principal del impuesto sobre los bienes inmuebles, recolección de residuos, aseo de vías, parques, tarifas del acueducto municipal, cementerio y sus intereses de los últimos cinco años, patentes municipales activas, permisos de construcción y sus multas acumuladas a la promulgación de esta ley.
