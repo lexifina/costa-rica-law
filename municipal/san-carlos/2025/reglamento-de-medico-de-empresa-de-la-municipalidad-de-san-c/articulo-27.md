@@ -1,0 +1,1 @@
+Artículo 27.-El incumplimiento de parte de entes proveedores a las disposiciones señaladas en este reglamento podrá generar sanciones, según lo establecido en el contrato vigente y la Ley general de contratación pública N° 9986.

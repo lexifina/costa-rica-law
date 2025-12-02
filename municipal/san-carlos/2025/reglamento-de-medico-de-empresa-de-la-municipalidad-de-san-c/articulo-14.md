@@ -1,0 +1,1 @@
+Artículo 14.-El médico debe indicar en los documentos derivados de la consulta y en la casilla correspondiente el riesgo por el cual ha sido atendido el paciente y remitir los mismos al Departamento de Salud Ocupacional.

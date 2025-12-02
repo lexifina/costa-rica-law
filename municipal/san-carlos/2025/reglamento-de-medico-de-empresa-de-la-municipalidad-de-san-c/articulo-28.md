@@ -1,0 +1,1 @@
+Artículo 28.-Estas disposiciones son de cumplimiento obligatorio para las personas trabajadoras de la Municipalidad de San Carlos y proveedores que brinden el servicio de Medico de Empresa, constituyendo una falta al contrato de trabajo, según lo indicado por el presente reglamento.

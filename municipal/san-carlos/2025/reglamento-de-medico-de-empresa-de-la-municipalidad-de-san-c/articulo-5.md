@@ -1,0 +1,1 @@
+Artículo 5°-La figura de médico de empresa tendrá la potestad de emitir incapacidades en los casos de índole laboral, esto según los lineamientos establecidos en el Reglamento de la C.C.S.S. y el I.N.S., y debe llevar los controles necesarios sobre el otorgamiento de todas las incapacidades que otorgue.

@@ -1,0 +1,1 @@
+Artículo 24.-Infraestructura. Todo consultorio debe mantener el orden y limpieza del área y equipo de forma permanente. Debe cumplir con los requisitos establecidos por el Ministerio de Salud en la Norma para la Habilitación de Establecimientos de Consulta Externa General y de Especialidades Médicas (N° 30699-S).

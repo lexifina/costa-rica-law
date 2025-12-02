@@ -1,0 +1,1 @@
+Artículo 15.-El médico que preste servicios en el sistema podrá extender certificados de incapacidad a los trabajadores asegurados hasta por 5 días; si la lesión o la enfermedad continúa se refiere al INS en caso de ser laboral y se da incapacidad retroactiva por parte de la institución correspondientes, esto según los Reglamentos de la CCSS e INS.

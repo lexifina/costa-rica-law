@@ -1,0 +1,1 @@
+Artículo 12.-El médico de empresa tiene la obligación de llevar un expediente digital individual de los pacientes que atienda, anotando en él todos los datos de interés que puedan ser utilizados en cualquier momento por el médico o quien así lo requiera.

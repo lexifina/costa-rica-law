@@ -1,0 +1,1 @@
+Artículo 30.-De conformidad con la Convención Colectiva de Trabajo entre la Municipalidad de San Carlos y el Sindicato de Trabajadores (SITRAMUSCA), la Administración municipal presupuestará un mínimo de diez salarios base para contratar los servicios de médico de empresa que se regulan en este reglamento, y en caso que supere el monto requerirá acuerdo del Concejo Municipal.

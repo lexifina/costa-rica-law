@@ -1,0 +1,1 @@
+Artículo 19.-Exámenes médicos complementarios. El médico de empresa realizará también los exámenes médicos obligatorios que las diferentes leyes y Reglamentos nacionales nos obligan a realizar al personal; así mismo realizará el correspondiente diagnóstico e informe.
