@@ -1,0 +1,1 @@
+Transitorio III- En un plazo de 6 meses posterior a la publicación del presente decreto, el Área de Conservación Central del SINAC establecerá los mecanismos técnicos y de coordinación necesarios para la participación de las comunidades de los beneficios del área silvestre protegida como lo son el otorgamiento de contratos de servicios Nº esenciales, permisos de usos u convenios.

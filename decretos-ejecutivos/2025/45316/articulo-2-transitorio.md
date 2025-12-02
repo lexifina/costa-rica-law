@@ -1,0 +1,1 @@
+Transitorio II- Una vez oficializado en el Diario Oficial La Gaceta el Plan General de Manejo del Parque Natural Urbano Lorne Ross Ashley, en un plazo de 6 meses el Área de Conservación Central del SINAC, deberá establecer el Plan de Turismo del Parque Natural Urbano Lorne Ross Ashley.

@@ -1,0 +1,1 @@
+Transitorio I.- El Área de Conservación Central del SINAC, deberá contar con el Plan General de Manejo del Parque Natural Urbano Lorne Ross Ashley, aprobado por el CONAC en el plazo de veinticuatro meses, a partir de la publicación del presente decreto.
