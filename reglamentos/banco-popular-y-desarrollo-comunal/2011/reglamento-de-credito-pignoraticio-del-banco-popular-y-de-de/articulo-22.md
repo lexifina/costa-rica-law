@@ -1,1 +1,1 @@
-Artículo 22.- DEROGADO.
+Artículo 22.-DEROGADO.

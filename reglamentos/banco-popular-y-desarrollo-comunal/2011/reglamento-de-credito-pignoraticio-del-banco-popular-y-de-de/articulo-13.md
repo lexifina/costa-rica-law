@@ -1,1 +1,1 @@
-Artículo 13.-De los casos de deterioro: Cuando el Banco determine que las garantías en custodia han sufrido algún daño, buscará los mecanismos para cubrir el costo de la reparación de la o las piezas dadas en garantía.
+Artículo 13.-De los casos de deterioro. Cuando el Banco determine que las garantías en custodia han sufrido algún daño, buscará los mecanismos para cubrir el costo de la reparación de la o las piezas dadas en garantía.

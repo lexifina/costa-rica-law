@@ -20,3 +20,4 @@ Reglamento de Crédito Pignoraticio del Banco Popular y de Desarrollo Comunal
 | 5 | 2017-08-03 | Reglamento 5484 (2017-08-03) |
 | 6 | 2020-07-20 | Reglamento 5752 (2020-07-20) |
 | 7 | 2023-08-16 | Reglamento 6031 (2023-08-16) |
+| 8 | 2025-12-02 | Reglamento 6264 (2025-12-02) |

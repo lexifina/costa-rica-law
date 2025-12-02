@@ -1,1 +1,1 @@
-Artículo 8º-Avalúo de la garantía: El peritaje de valoración de las alhajas o cualquier otro bien mueble se realizará aplicando los porcentajes establecidos, de acuerdo con la metodología de valoración vigente.
+Artículo 8°-Avalúo de la garantía. El peritaje de valoración de las alhajas o cualquier otro bien mueble se realizará aplicando los porcentajes establecidos, de acuerdo con la metodología de valoración vigente.
