@@ -1,6 +1,6 @@
 # Ley de Correos
 
-Ley N° 7768 del 1998-04-24. SINALEVI, ficha 42841: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42841&param2=133743&param3=1>.
+Ley N° 7768 del 1998-04-24. SINALEVI, ficha 42841: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42841&param2=148619&param3=1>.
 
 Publicada en La Gaceta N° 103 del 1998-05-29.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2009-09-24 | Ley 8762 | 2009-08-21 |
 | 6 de 8 | 2010-09-10 | Ley 8810 | 2010-05-03 |
 | 7 de 8 | 2022-12-01 | Ley 9986 | 2021-05-27 |
+| 8 de 8 | 2025-12-02 | Ley 10816 | 2025-11-13 |
