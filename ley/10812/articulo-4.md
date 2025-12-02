@@ -1,0 +1,2 @@
+ARTÍCULO 4- Retorno de las transferencias
+En caso de que las asociaciones u organizaciones de bienestar animal no utilicen la totalidad de los fondos transferidos, el excedente de estos deberá ser devuelto al Servicio Nacional de Salud Animal (Senasa). Para ello, se aplicarán las normas técnicas sobre el presupuesto de los beneficios patrimoniales otorgados mediante transferencia del sector público a sujetos privados de la Contraloría General de la República.
