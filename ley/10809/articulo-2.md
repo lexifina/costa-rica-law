@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización a la Municipalidad de Pococí para segregar y donar un inmueble de su propiedad
+Se autoriza a la Municipalidad de Pococí para que segregue y done el terreno que consta en el plano catastro L-cero seis cero seis uno dos cero-dos cero cero cero (L-0606120-2000) a Las Temporalidades de la Iglesia Católica Diócesis de Limón, cédula jurídica tres-cero uno cero-cero cuatro cinco ocho siete cinco (3-010-045875). Se habilita a la Diócesis de Limón a recibir la donación del predio en cuestión.
