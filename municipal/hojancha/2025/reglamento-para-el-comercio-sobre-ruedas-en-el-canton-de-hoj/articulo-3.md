@@ -1,0 +1,9 @@
+Artículo 3º-Definiciones:
+Automotor: vehículo de transporte terrestre de propulsión propia sobre dos o más ruedas y que no transita sobre rieles.
+Comercio sobre ruedas: se refiere a actividades comerciales con fines lucrativos que se llevan a cabo en automotores, vehículos, remolques o unidades de arrastre modificados o diseñados para la venta y preparación de alimentos y/o bebidas, así como para la comercialización de bienes y servicios cuya la transacción comercial, que no implica crédito, culmina con un acuerdo preestablecido entre el comprador y el vendedor sobre el bien o servicio, a cambio de un precio previamente acordado. Este tipo de comercio opera temporalmente dentro del cantón, con la capacidad de desplazarse por distintos lugares del mismo, siempre y cuando cuente con la autorización correspondiente por parte de esta Municipalidad y esté dentro de la jurisdicción de una misma área rectora de salud.
+Licencia comercial: Acto administrativo habilitante para el desarrollo de actividades comerciales de efectos inmediatos, en modalidad comercio sobre ruedas.
+Permiso temporal: Acto administrativo habilitante para el uso del espacio físico destinado al comercio sobre rueda.
+Remolque: vehículo con eje delantero y trasero sin tracción propia destinado al transporte de bienes para ser arrastrado por otro vehículo con tracción propia.
+Unidades de arrastre: vehículo sin ejes y sin tracción propia destinado al transporte de bienes.
+Uso precario: es un permiso de uso del dominio público, siendo un acto administrativo unilateral, caracterizado por su precariedad. Como tal, no representa un derecho real sobre el bien, ni implica la posibilidad de adquirir un derecho sobre el mismo durante el transcurso del tiempo.
+Vehículos: medio de transporte usado para trasladar personas o bienes por la vía pública.

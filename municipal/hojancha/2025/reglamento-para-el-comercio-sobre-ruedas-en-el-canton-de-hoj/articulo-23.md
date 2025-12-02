@@ -1,0 +1,1 @@
+Artículo 23.-Recursos. La decisión municipal que deniegue el permiso temporal de uso del espacio físico destinado para la actividad de comercio sobre ruedas y/o la licencia, así como aquellas personas sancionadas, podrán ser impugnadas conforme a lo establecido en el régimen recursivo del Código Municipal (Ley N° 7794).

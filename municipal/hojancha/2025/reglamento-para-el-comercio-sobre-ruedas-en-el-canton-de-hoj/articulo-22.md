@@ -1,0 +1,1 @@
+Artículo 22.-Sanciones relativas al uso de la licencia. Se impondrá una multa equivalente a cinco salarios base a aquellos que realicen un uso no autorizado de la licencia concedida o que operen sin las debidas autorizaciones.
