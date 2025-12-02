@@ -1,0 +1,3 @@
+Artículo 12.-Participación de Directores de la Junta Directiva
+Los representantes de la Junta Directiva deben participar al menos en dos (2) sesiones ordinarias del Comité al año, y en caso de requerirse celebrar sesiones extraordinarias, se convocará a los representantes de Junta Directiva con la antelación respectiva.
+Lo anterior sin perjuicio de lo indicado en la Directriz N° 2-4294 que indica, cuando un Director cuya convocatoria no le corresponda asistir a las sesiones programadas, tiene la posibilidad por iniciativa personal, voluntaria, discrecional e indiscriminada de participar en cualquiera de las sesiones del Comité realice.

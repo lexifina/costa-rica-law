@@ -1,0 +1,2 @@
+Artículo 2º-Alcance.
+El Técnico de Gobierno Corporativo, en adelante el Comité ejercerá sus funciones a nivel corporativo; como parte de las herramientas de Gobierno en la ESPH S.A. Busca delegar el análisis, seguimiento y mejora de temas corporativos, vinculados con el direccionamiento estratégico, control interno, riesgos y otros temas de interés empresarial, que la Junta Directiva considere conveniente se profundice en su estudio.

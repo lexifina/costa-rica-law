@@ -1,0 +1,4 @@
+Artículo 8º-Minutas
+Las decisiones y actuaciones del Comité serán consignadas en minutas, en las cuales, se incluirán, los nombres completos y cargos de los miembros asistentes e invitados, y los votos emitidos en cada caso. Las minutas serán aprobadas por el Comité y estarán firmadas con firma digital por el Coordinador del Comité, y por aquel miembro que vote de forma negativa o sea voto disidente conforme al artículo N° 56, inciso N° 4 de la Ley N° 10053 y serán resguardas digitalmente.
+Los documentos y la información adicional que sustente las decisiones del Comité serán parte integral de las minutas y se presentarán como anexo de las mismas.
+Los miembros del Comité deberán guardar confidencialidad sobre la información y documentos que hayan tenido acceso como parte del ejercicio de sus funciones en cumplimiento con la normativa interna definida por la empresa.
