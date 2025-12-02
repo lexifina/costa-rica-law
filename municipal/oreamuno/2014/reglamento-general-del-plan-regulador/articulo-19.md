@@ -1,5 +1,0 @@
-Capítulo 5. Visado Municipal
-Artículo 19. Visado Municipal
-El Visado Municipal es la homologación o verificación otorgada por la Municipalidad para que una finca, lote o predio sea considerado de uso urbano, acreditando el cumplimiento de los requisitos urbanísticos definidos en el Plan regulador, la legislación y reglamentación urbanística vigente.
-El Visado Municipal es obligatorio para toda reunión, división o subdivisión simultánea o sucesiva de fincas, en dos o más lotes, que se lleve a cabo en suelos clasificados como urbanos o urbanizables por el Reglamento de Zonificación. Para adquirir el Visado Municipal, los predios resultantes de los actos mencionados, deberán cumplir previamente los requisitos legales y urbanísticos estipulados en la Ley de Planificación Urbana, en el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones del INVU y los establecidos en los reglamentos del Plan Regulador.
-El Visado Municipal debe ser exigido como un requisito previo para el trámite de toda licencia urbanística que requiera la presentación del plano catastrado.

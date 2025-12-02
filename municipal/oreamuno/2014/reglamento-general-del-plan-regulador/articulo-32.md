@@ -1,2 +1,0 @@
-Artículo 32. Prevalencia sobre normas urbanísticas
-El régimen de protección de los inmuebles de interés histórico-arquitectónico prevalecerá sobre los planes y las normas urbanísticas que previa o eventualmente le fueren aplicables.

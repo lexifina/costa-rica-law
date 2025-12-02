@@ -1,2 +1,0 @@
-Artículo 15. Vigencia
-El Certificado de Uso del Suelo, tendrá la vigencia de este Plan Regulador. Los certificados de uso del suelo otorgados antes de la entrada en vigor de este Plan Regulador o mantendrán su validez, siempre y cuando la actividad o uso certificado como conforme se haya desarrollado o explotado antes de la entrada en vigencia de este Plan Regulador. Una vez que entra en vigencia este Plan, deberá someterse a sus regulaciones.

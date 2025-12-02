@@ -1,3 +1,0 @@
-Artículo 10. Base obligatoria de información para solicitud de Licencias
-Toda licencia, usará como base obligatoria de información la localización exacta de la propiedad mediante el plano catastrado de existir o croquis detallado de finca madre, más la autorización escrita del propietario. En casos calificados, en las que se dificulte la identificación del inmueble, el órgano municipal competente podrá requerir al interesado cualquier otra información.
-La licencia agropecuaria es el permiso oficial que extenderá la municipalidad para autorizar la actividad agrícola, con criterios de conservación de suelo y manejo de aguas pluviales, conocidas como buenas prácticas agrícolas, establecidas por el Ministerio de Agricultura y Ganadería (MAG).
