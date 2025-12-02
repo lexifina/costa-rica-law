@@ -1,1 +1,0 @@
-Artículo 37.-Cumplimiento de objetivos. Es responsabilidad de las jefaturas del Conglomerado aportar las justificaciones del incumplimiento de los objetivos al cierre del año de gestión, cuando así sea solicitado por la Dirección Capital Humano en el caso del Banco, o por el equipo de trabajo asignado en las Sociedades.

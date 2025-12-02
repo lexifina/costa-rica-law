@@ -1,1 +1,1 @@
-Artículo 25.-Sobre el pago. El incentivo a la productividad se paga dentro del primer cuatrimestre de cada año posterior al período evaluado, en todos los casos.
+Artículo 25.—Fechas aplicables. Lo relacionado con las fechas aplicables se rige por los plazos establecidos en este Reglamento y en el Instructivo del Proceso.

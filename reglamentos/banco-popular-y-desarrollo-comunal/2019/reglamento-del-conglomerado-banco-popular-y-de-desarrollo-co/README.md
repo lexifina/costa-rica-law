@@ -15,3 +15,4 @@ Reglamento del conglomerado Banco Popular y de Desarrollo Comunal sobre el siste
 | --- | --- | --- |
 | 1 | 2019-11-13 | la propia norma |
 | 2 | 2020-10-07 | Reglamento 5773 (2020-10-07) |
+| 3 | 2025-12-02 | Reglamento 6264 (2025-12-02) |

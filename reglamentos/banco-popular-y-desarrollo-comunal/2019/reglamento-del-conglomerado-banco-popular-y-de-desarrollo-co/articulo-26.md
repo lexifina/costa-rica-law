@@ -1,4 +1,1 @@
-CAPÍTULO VI
-Órganos de Control del Banco y de las Sociedades (Auditoría Interna, Dirección
-Corporativa de Riesgo, Oficialía de Cumplimiento, Unidad de Cumplimiento Normativo)
-Artículo 26.-Aplicación. El proceso de evaluación de desempeño se aplica a todos los funcionarios de los Órganos de Control del Banco y de las Sociedades, a través del "Balance de desarrollo personal" (BDP), así como la evaluación del cumplimiento de los indicadores del "Cuadro de Mando integral" (CMI) de las jefaturas, contenidas en este Reglamento.
+Artículo 26.—Parámetros de evaluación. La ponderación de cada rubro se efectúa conforme los parámetros aprobados por la Junta Directiva Nacional en su calidad de tal y en ejercicio de funciones propias de la Asamblea de Accionistas de las Sociedades y según lo establece el Banco en el presente Reglamento y en la normativa interna, previa recomendación del Comité de Remuneraciones del Conglomerado.

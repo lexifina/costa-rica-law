@@ -1,1 +1,3 @@
-Artículo 20.-Aplicación. El BDP se aplica a todos los funcionarios que no están contenidos dentro de los incisos b) y c) del artículo 16 de este Reglamento.
+Artículo 20.—Condiciones para el reconocimiento. El Banco y las Sociedades reconocen el incentivo si se cumplen todas las siguientes condiciones:
+a. El cumplimiento de las metas institucionales (llave de pago general, llaves y subllave de pago individual definidas al Banco y las Sociedades) de cada período, aprobadas por la Junta Directiva Nacional en su calidad de tal y en ejercicio de funciones propias de la Asamblea de Accionistas de las Sociedades.
+b. Las dependencias y los funcionarios evaluados deben cumplir con la nota mínima establecida correspondiente a su CMI o BDP, según los estándares e indicadores que al efecto se definan para cada área y cada funcionario.

@@ -1,4 +1,6 @@
-Artículo 23.-Condiciones para el reconocimiento. El Banco y las Sociedades reconocen el incentivo si se cumplen todas las siguientes condiciones:
-a. El cumplimiento de las metas institucionales (llave de pago del Conglomerado, llaves y subllaves de pago definidas al Banco y las Sociedades) de cada período, aprobadas por la Junta Directiva Nacional en su calidad de tal y en ejercicio de funciones propias de la Asamblea de Accionistas de las Sociedades.
-b. Las dependencias y los funcionarios evaluados deben cumplir con la nota mínima establecida correspondiente a su CMI o BDP, según los estándares e indicadores que al efecto se definan para cada área y cada funcionario.
-c. Para obtener el reconocimiento asociado al BDP, adicionalmente se requiere que el área, dependencia o departamento a la que pertenece el funcionario (entendida, esta área o dependencia, como aquella donde se encuentra el superior inmediato que lo debe evaluar), debe cumplir con lo descrito en el inciso b de este artículo.
+CAPÍTULO VI
+Órganos de Control del Banco y de las Sociedades (Auditoría
+Interna, Dirección Corporativa de Riesgo, Oficialía
+de Cumplimiento, División de Cumplimiento
+Normativo y Regulatorio)
+Artículo 23.—Aplicación. El proceso de evaluación de desempeño se aplica a todos los funcionarios de los Órganos de Control del Banco y de las Sociedades, a través del “Balance de desarrollo personal” (BDP), así como la evaluación del cumplimiento de los indicadores del “Cuadro de Mando integral” (CMI) de las jefaturas, contenidas en este Reglamento.

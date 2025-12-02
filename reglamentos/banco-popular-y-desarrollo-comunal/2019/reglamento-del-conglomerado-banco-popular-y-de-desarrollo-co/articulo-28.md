@@ -1,1 +1,1 @@
-Artículo 28.-Fechas aplicables. Lo relacionado con las fechas aplicables se rige por los plazos establecidos en este Reglamento y en el Instructivo del Proceso.
+Artículo 28.—Criterio individual de evaluación CMI (Gestión Propia). Los CMI de las jefaturas es evaluada mediante los instrumentos dispuestos por cada Órgano de Control para la medición de cada uno de los objetivos propios y los indicadores establecidos, según su meta, forma de cálculo y frecuencia de medición.

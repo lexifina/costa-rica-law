@@ -1,6 +1,4 @@
-Artículo 15.-Perspectivas de evaluación. El CMI mide el desempeño, en cada año de evaluación, para cada entidad del Conglomerado como organización, en forma integral y en función de las perspectivas relacionadas entre sí:
-a. Cliente.
-b. Resultados en la Triple Línea Base.
-c. Procesos y Sistemas.
-d. Aprendizaje.
-Cada una de estas perspectivas deben estar conforme con los elementos definidos en el artículo 3° de este Reglamento.
+Artículo 15.—Tipos de CMI y competencias de evaluación.
+a. Con el CMI Institucional (Organizacional), se evalúa la gestión general del Banco y de las Sociedades y sus resultados son validados por la Junta Directiva Nacional en su calidad de tal y en ejercicio de funciones propias de la Asamblea de Accionistas de las Sociedades.
+b. En lo que corresponde a la Alta Gerencia y Dependencias Especiales, serán evaluados por la Junta Directiva correspondiente (exceptuando las Subgerencias quienes serán evaluadas por su superior inmediato).
+c. En el caso de los CMI de las restantes Jefaturas, la evaluación corresponderá a su superior inmediato.

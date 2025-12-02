@@ -1,1 +1,3 @@
-Artículo 31.-Criterio grupal de evaluación BDP. El resultado de la "Gestión Propia del CMI de la dependencia que pertenece" de los funcionarios evaluados por BDP, corresponde al resultado de la gestión propia del CMI obtenido por la dependencia del Conglomerado, en la que estuvo mayor tiempo, mientras cumpla lo dispuesto en relación con el tiempo mínimo requerido, señalado en el Artículo 24, de las consideraciones especiales para hacer efectivo el reconocimiento.
+CAPÍTULO VIII
+Control y seguimiento
+Artículo 31.—Evidencia. Las jefaturas del Conglomerado son las responsables de la custodia de los documentos digitales y físicos que respaldan el grado de cumplimiento de los objetivos planteados en el CMI y BDP y de su puesta a disposición para fines de revisión en cualquier momento y se relacionan directamente con las variables que se contemplan en los indicadores.
