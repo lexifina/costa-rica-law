@@ -1,2 +1,0 @@
-Artículo 4. El Plan de Renovación Urbana
-La Municipalidad podrá desarrollar un Plan de Renovación Urbana, que permitirá planificar de forma integral los proyectos a realizar en el cantón en materia de renovación, y definir los criterios generales en cuanto a la ordenación del espacio, equipamientos, servicios, infraestructuras, y urbanización para el desarrollo de Proyectos de Renovación Urbana. Estos planes podrán ser dirigidos específicamente a la corrección de determinadas patologías, como la recuperación de centros urbanos degradados, procesos de mejora barrial, etc.
