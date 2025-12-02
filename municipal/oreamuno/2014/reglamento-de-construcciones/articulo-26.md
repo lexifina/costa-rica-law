@@ -1,4 +1,0 @@
-Artículo 26. Retiro posterior (patio)
-El retiro posterior a aplicar en cada sector viene definido en la tabla de parámetros recogida en las fichas urbanísticas.
-En aquellos casos en los que la ficha urbanística remite este parámetro al reglamento de construcciones, y exclusivamente en dichos casos, regirá la siguiente norma:
-El retiro posterior o patio será de tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.

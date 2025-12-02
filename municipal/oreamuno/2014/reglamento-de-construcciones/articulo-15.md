@@ -1,4 +1,0 @@
-Artículo 15. Instalaciones para servicios públicos
-Las redes o instalaciones subterráneas destinadas a los servicios públicos de teléfono, alumbrado, semáforos, energía, agua, alcantarillado pluvial y sanitario, gas y cualesquiera otras, deberán localizarse a lo largo de las calles, de aceras peatonales, o de camellones. Cuando se localicen en las aceras deberán quedar alojadas en una franja de 1,50 metros de ancho, medida a partir del borde del cordón. Los gastos de rotura, reparación o reconstrucción para los efectos anteriores correrán por cuenta de quien los hubiere provocado, sea una persona física o jurídica, o uno de los organismos del Estado.
-En todo desarrollo urbano nuevo, las redes o instalaciones de servicios públicos deben ir soterradas.
-En todo caso se cumplirá todo lo establecido por la normativa emitida por el ICAA sobre ubicación de tuberías en calles y avenidas, así como por la emitida por el ICE para posteado y tendido eléctrico.

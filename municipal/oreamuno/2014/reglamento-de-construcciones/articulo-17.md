@@ -1,4 +1,0 @@
-Artículo 17. Arborización de las calles y mobiliario urbano
-Para instalar cualquier tipo de mobiliario urbano en los espacios públicos, se requerirá permiso municipal. Para otorgar dicho permiso, se deberán cumplir todos los parámetros establecidos en el Reglamento de vialidad, espacios públicos y transporte.
-No se requerirá permiso municipal para sembrar árboles. La arborización se realizará mediante árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura, y se utilizarán especies nativas, ajustándose a las recomendaciones técnicas que al respecto dicte la Dirección Forestal del Ministerio de Ambiente y Energía (MINAE).
-No se podrán sembrar árboles del lado del tendido eléctrico.

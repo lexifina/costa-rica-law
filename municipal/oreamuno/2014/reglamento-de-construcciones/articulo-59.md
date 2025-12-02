@@ -1,3 +1,0 @@
-Artículo 59. Estaciones de servicios
-Los aspectos constructivos y las condiciones de ubicación de las estaciones de servicios se regularán por las disposiciones recogidas en el Capítulo XIX del Reglamento de Construcciones del INVU.
-Aún en las zonas en el que su uso sea permitido según el Reglamento de Zonificación, las estaciones de servicios no se podrán ubicar a una distancia menor de 35 metros (medidos desde el punto más cercano en los linderos de su terreno) a sitios donde se fabriquen o almacenen productos o sustancias explosivas o inflamables, escuelas, colegios, centros de salud, asilos, sitios de reunión pública, templos y otras estaciones de servicio.

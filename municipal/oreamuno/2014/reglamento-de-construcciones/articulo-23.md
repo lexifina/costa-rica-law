@@ -1,3 +1,0 @@
-Artículo 23. Construcciones cerca de colindancias.
-Cerca de cualquier colindancia solo se permitirá construir pozos, hornos, fraguas, chimeneas, establos, depósitos de materias corrosivas, y otras destinadas a usos que puedan ser peligrosos o nocivos, cuando se guarde una distancia mínima de 2 metros y haciendo las obras necesarias para que, de hecho, no resulte daño a la pared colindante, salvo autorización expresa del Ministerio de Salud.
-Este artículo debe complementarse con la zonificación del uso de la tierra. Si la actividad realizada requiere de alguno de los elementos mencionados en este artículo, debe también cumplir con las regulaciones establecidas para las actividades permitidas en cada zona del cantón de Oreamuno.

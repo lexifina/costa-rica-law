@@ -1,2 +1,0 @@
-Artículo 41. Movimientos de Tierra, Demoliciones y Excavaciones
-Para llevar a cabo trabajos de movimientos de tierra, excavaciones y demoliciones en forma total o parcial de las construcciones, deberá obtenerse el permiso previo de la municipalidad por medio de un Profesional Responsable. La Municipalidad podrá exigir la presentación de un estudio detallado del procedimiento a seguir y las precauciones que se tomarán para evitar daños a las construcciones cercanas y servicios públicos.
