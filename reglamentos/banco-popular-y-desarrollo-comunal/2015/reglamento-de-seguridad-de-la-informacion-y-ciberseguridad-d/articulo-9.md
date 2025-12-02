@@ -1,4 +1,5 @@
-Artículo 9º-Teletrabajo y Trabajo Móvil/Remoto
-a) Una persona usuaria que realice sus labores fuera de su lugar de trabajo de forma remota, móvil y/o teletrabajo debe aceptar, cumplir y establecer los controles que permitan salvaguardar la información para mitigar los riesgos de seguridad.
-b) Esta disposición aplica tanto para la información la información almacenada localmente y la información que se trasmite por diferentes medios a través de las redes de comunicación, contemplando una adecuada gestión de las incidencias de seguridad y mecanismos que garanticen la continuidad de las operaciones y protección de la información.
-c) A su vez, es responsabilidad de las personas usuarias del servicio de acceso remoto dar cumplimiento a las normas de seguridad de la información, dictadas y aprobadas por el órgano competente.
+Artículo 9º- Teletrabajo y Trabajo Móvil/Remoto
+Una persona usuaria que real ice sus labores fuera de su lugar de trabajo de forma remota, móvil y/o teletrabajo debe aceptar, cumplir y establecer los controles que permitan salvaguardar la información para mitigar los riesgos de seguridad.
+Esta disposición aplica tanto para la información la información almacenada localmente y la información que se trasmite por diferentes medios a través de las redes de comunicación, contemplando una adecuada gestión de las incidencias de seguridad y mecanismos que garanticen la continuidad de las operaciones y protección de la información.
+A su vez, es responsabilidad de las personas usuarias del servicio de acceso remoto dar cumplimiento a las normas de seguridad de la información, dictadas y aprobadas por el órgano competente.
+Las dependencias de Seguridad Informática deberán implementar controles como VPN con cifrado robusto, autenticación multifactor, monitoreo continuo, políticas de uso de dispositivos personales y cifrado extremo a extremo para asegurar la protección integral durante el teletrabajo y acceso remoto.

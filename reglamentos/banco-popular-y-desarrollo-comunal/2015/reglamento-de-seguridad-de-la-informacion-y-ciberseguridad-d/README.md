@@ -15,3 +15,4 @@ Reglamento de Seguridad de la Información y Ciberseguridad del Conglomerado Fin
 | --- | --- | --- |
 | 1 | 2015-09-04 | la propia norma |
 | 2 | 2023-03-01 | Reglamento 5982 (2023-03-01) |
+| 3 | 2025-12-02 | Reglamento 6264 (2025-12-02) |
