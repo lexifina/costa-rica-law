@@ -1,0 +1,5 @@
+ARTÍCULO 2- Adiciónese un artículo 12 bis a la Ley 7768, Ley de Correos de Costa Rica, de 24 de abril de 1998. El texto es el siguiente:
+Artículo 12 bis Donación de los envíos no distribuidos a la institución Ciudad de los Niños
+Correos de Costa Rica, como operador postal oficial, podrá disponer de los envíos postales que son retenidos por las autoridades aduaneras, en caso de no ser aceptados y dejados en abandono por los clientes propietarios y, en este caso, utilizar las figuras de la subasta, donación o venta, o bien, cualquier otra figura que se considere necesaria para el buen uso y cuido de los fondos públicos, sin requerir autorización previa para actividades conferidas por ley.
+El producto de lo recaudado por Correos de Costa Rica, con estos envíos postales en abandono, será donado a la institución Ciudad de los Niños.
+En caso de utilizarse la figura de la subasta, Correos de Costa Rica deducirá, del monto recibido de esta, los costos que se generen por concepto de almacenamiento y tramitología en el manejo de los envíos postales, trasladando las utilidades a Ciudad de los Niños.
