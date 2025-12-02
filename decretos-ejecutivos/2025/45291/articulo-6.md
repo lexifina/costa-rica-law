@@ -1,0 +1,1 @@
+Artículo 6°.- Para los ejercicios presupuestarios 2025 y 2026 se mantendrá la aplicación de las "Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público" vigentes a la fecha de emisión del presente Decreto.
