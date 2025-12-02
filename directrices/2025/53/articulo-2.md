@@ -1,0 +1,1 @@
+Artículo 2º-En el caso de los servidores del Ministerio de Educación Pública, de la Procuraduría General de la República, el Registro Nacional, los cuerpos policiales e instituciones de atención de emergencias, las vacaciones serán definidas por su respectivo superior jerárquico.
