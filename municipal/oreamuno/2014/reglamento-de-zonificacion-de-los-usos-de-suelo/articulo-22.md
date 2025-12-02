@@ -1,9 +1,0 @@
-Artículo 22. Zona de uso industrial (ZI)
-Sector que la compone | S-9.
-Objetivos | Delimitar y ordenar las zonas aptas para concentrar las actividades de producción industrial no contaminantes con el fin de proteger los otros usos. Promover la reubicación de aquellos talleres o centros de producción ubicados en zonas donde se consideren como usos no conformes.
-Usos conformes | Instalaciones industriales, talleres de mantenimiento y reparación de maquinaria, equipo y vehículos, grandes bodegas de almacenamiento o distribución, almacenes fiscales, talleres mecánicos, venta de maquinaria y equipo pesado y otros, que por sus condiciones, deben instalarse en sitios de poco impacto ambiental y baja interacción social. Actividades complementarias como sodas, restaurantes, estacionamientos, centros de exposición, sala de conferencias, puestos de vigilancia. Talleres de mecánica, de reparación, pintura, hojalatería, tornos, etc. Se permitirá el establecimiento de áreas recreativas y zonas de esparcimiento. Ver tabla de usos (Anexo 2)
-Usos no conformes | Aquellos relacionados con actividades agrícolas, residencias, actividades comerciales y de servicios no asociados a la industria, servicios turísticos y recreativos. Hospitales y clínicas. Museos y teatros. Bibliotecas, centros de enseñanza primaria, secundaria y universitaria. Kinder, guarderías infantiles. Hogares y albergues de adultos mayores, etc. Ver tabla de usos (Anexo 2)
-Usos no conformes tolerados | Aquellos usos que se encuentren funcionando y debidamente establecidos al entrar en vigor el presente Plan Regulador.
-Parámetros |
-Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1).
-Estacionamientos: se exigirá un espacio de 18 m2 (3 por 6 metros) por cada 150 m2 de área construida, y un espacio para carga y descarga de 5 por 12 m, si el área construida sobrepasa los 400 m2; aumentándose un espacio por cada 400 m2 adicionales de área construida.

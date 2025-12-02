@@ -1,4 +1,0 @@
-Artículo 16. Zonas de interés histórico o arquitectónico
-Corresponde a las áreas que por sus valores arquitectónicos, de espacio público o de reconocimiento y valoración colectiva ameritan un tratamiento especial de protección y/o recuperación. Se hace referencia a monumentos, sitios, conjuntos, centros históricos e inmuebles de interés histórico.
-En caso de duda sobre algún aspecto relacionado con la protección o conservación de los bienes patrimoniales, sobre el valor de un bien patrimonial o sobre el uso que se deba dar al mismo, se consultará al Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura, Juventud y Deportes.
-Al final de este reglamento se incluye un anexo con el listado de los elementos inventariados como Patrimonio Histórico Arquitectónico del cantón.

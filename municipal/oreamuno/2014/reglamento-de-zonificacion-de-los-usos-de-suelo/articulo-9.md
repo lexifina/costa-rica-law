@@ -1,2 +1,0 @@
-Artículo 9. Zonas de uso industrial
-Las zonas de uso industrial corresponden a las áreas del cantón definidas en este Plan Regulador como zonas industriales y en las cuales se pueden desarrollar procesos fabriles que no son permitidos en áreas de uso mixto. Tales como instalaciones industriales, talleres de mantenimiento y reparación de equipo industrial, maquinaria, vehículos y estructuras metálicas, grandes bodegas de almacenamiento o distribución, almacenes fiscales, talleres mecánicos, venta de maquinaria y equipo pesado, entre otros.

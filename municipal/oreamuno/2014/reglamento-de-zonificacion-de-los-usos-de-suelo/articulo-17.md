@@ -1,2 +1,0 @@
-Artículo 17. Zonas de interés turístico o ecoturístico
-Son las zonas que reúnen un conjunto de atractivos de tipo natural, antrópico, ecológico o ambiental que requieren para su sostenibilidad un tratamiento especial. Son zonas en cuyo entorno se generan una serie de actividades enfocadas a potenciar el turismo, dando servicios específicos de comida, alojamiento, comercios de artesanía, entre otros.

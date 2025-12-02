@@ -1,2 +1,0 @@
-Artículo 8. Zonas de uso público institucional
-Las zonas de uso público institucional corresponden a las áreas destinadas para albergar los servicios institucionales y aquellas áreas donde se deseen establecer edificaciones propias de los servicios institucionales, tales como Correos, Escuelas, Telecomunicaciones, la Cruz Roja, colegios o universidades, bibliotecas, museos, clínicas, policía, bomberos, servicios y oficinas gubernamentales, tribunales de justicia , ministerios, salones comunales, entre otros.
