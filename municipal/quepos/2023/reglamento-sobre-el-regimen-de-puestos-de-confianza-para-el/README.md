@@ -15,3 +15,4 @@ Reglamento sobre el régimen de puestos de confianza para el Concejo Municipal d
 | --- | --- | --- |
 | 1 | 2023-10-03 | la propia norma |
 | 2 | 2024-08-20 | Reglamento municipal 27 (2024-08-20) |
+| 3 | 2025-12-02 | Reglamento municipal 132 (2025-12-02) |
