@@ -1,0 +1,1 @@
+Artículo 14.-Donación de activos. Se podra? donar, activos municipales dados de baja, bienes o materiales a los sujetos privados, de conformidad con el artículo 24 Reglamento de activos fijos, materiales y bienes de la Municipalidad de Nicoya.

@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE NICOYA
+REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES Y
+SUBVENCIONES EN EL CANTÓN DE NICOYA.
+De conformidad con lo establecido en los artículos 11, 169 y 170 de la Constitución Política, 11 y 13 de la Ley General de la Administración Pública, 13 incisos c) y n~), y 43 pa?rrafo segundo del Código Municipal, el Concejo Municipal de Nicoya mediante Acuerdo Municipal No. 015-048-2025, de la Sesión Ordinaria No. 048 celebrada el martes 01 de abril del 2025, acordó emitir el "PROYECTO DE REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES Y SUBVENCIONES EN EL CANTÓN DE NICOYA", para su consulta pública no vinculante por el plazo de 10 días hábiles contados a partir del día hábil siguiente posterior a su publicación, y no habiéndose presentado al Concejo Municipal observaciones al respecto posterior a su publicación, el Órgano Colegiado en Acuerdo Municipal No. 003-079-2025 de la Sesión Ordinaria No. 079 celebrada el martes 04 de noviembre del 2025 aprueba realizar su publicación por segunda vez para la oficialización ante la Corporación Municipal como "REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES Y SUBVENCIONES EN EL CANTÓN DE NICOYA"
+De conformidad con lo dispuesto en el Artículo 43 del Código Municipal, se somete a publicar en La Gaceta para su entrada en vigencia, que indica lo siguiente:
+REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES Y
+SUBVENCIONES EN EL CANTÓN DE NICOYA.
+Artículo 1º-De la aplicación del presente Reglamento. Se reglamenta lo concerniente a los requisitos que deben presentar en forma completa los sujetos privados que deseen obtener ayudas temporales y/o subvenciones por parte de la Municipalidad de Nicoya, según corresponda.

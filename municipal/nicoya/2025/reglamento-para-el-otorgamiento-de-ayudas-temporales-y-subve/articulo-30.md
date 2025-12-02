@@ -1,0 +1,2 @@
+Artículo 30.-Sobre el giro de los recursos. Una vez que se reciba por parte de la Contraloría General de la República el comunicado de aprobación de los recursos, la Municipalidad podra? efectuar la transferencia al Sujeto privado.
+Esta aprobación por parte del Órgano Contralor del presupuesto del beneficio patrimonial, que autoriza la transferencia del beneficio al sujeto privado, no constituye una obligación de giro.

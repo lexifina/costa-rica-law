@@ -1,0 +1,6 @@
+Artículo 31.-Sobre el control y seguimiento de la ayuda. La Municipalidad, a través de la Dirección a la que se le delegó el tra?mite de la ayuda, mantendra? un registro que permita llevar un control detallado en el que se verifique que los beneficios concedidos al sujeto privado o centro educativo se ejecuten de acuerdo con la finalidad para la cual se otorgaron.
+Para tal fin el beneficiario los 30 de cada mes debera? remitir el informe mensual al funcionario a cargo del proceso. Dichos informes debera?n detallar a nivel documental y fotogra?fico los avances del proyecto para el cual se otorgó la subvención.
+La anterior disposición no impide que el funcionario a cargo del proceso realice visitas al sitio para verificar la veracidad del contenido de los informes.
+De no presentarse el informe requerido, el funcionario a cargo del proceso hara? la advertencia respectiva, para que el informe sea remitido en el plazo de tres días ha?biles.
+De no presentarse el informe, implicara? que el funcionario fiscalizador realice una nota de advertencia el que constara? en el expediente respectivo.
+De acumularse tres advertencias, el funcionario a cargo del proceso debera? emitir el informe correspondiente y lo informara? a la Alcaldía para que ésta así lo comunique al Concejo Municipal y se procede a la revocación de la subvención autorizada.

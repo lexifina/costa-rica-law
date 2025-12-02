@@ -1,0 +1,5 @@
+Artículo 26.-Sobre el estudio de la solicitud. Para el estudio de la solicitud, la Administración debera? cumplir los siguientes requisitos:
+a) Una vez recibida la solicitud, la Alcaldía debera? delegar el estudio del caso y cumplimiento de requisitos a la Dirección o Departamento que designe.
+b) La Dirección o Departamento asignado, debera? revisar que la solicitud y documentación se ajuste a lo establecido en el presente reglamento, para lo cual se apoyara? en la Asesoría Legal para la revisión de los documentos de naturaleza jurídica y en la Dirección Financiera, así como en el Departamento de Presupuesto para la revisión de los documentos de cara?cter financiero y contable.
+Se debera? emitir un listado en el que conste que cada uno de los requisitos fueron debidamente revisados, y en el que se consigne nombre y firma el funcionario a cargo.
+De cumplirse con lo anterior, se procedera? a trasladar el expediente para su conocimiento y aprobación al Concejo Municipal, en los términos que establece el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º-Asignación Presupuestaria para las ayudas temporales. La Municipalidad incluira? en su presupuesto ordinario o mediante los mecanismos de variaciones al presupuesto, las partidas presupuestarias correspondientes para dar contenido a las ayudas mencionadas en el artículo anterior.

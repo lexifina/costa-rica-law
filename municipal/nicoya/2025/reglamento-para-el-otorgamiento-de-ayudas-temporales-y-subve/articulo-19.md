@@ -1,0 +1,1 @@
+Artículo 19.-Fundamentación jurídica para el otorgamiento de beneficios patrimoniales. De conformidad con lo dispuesto en el artículo 71 pa?rrafo quinto del Código Municipal, la Municipalidad podra? subvencionar centros de educación pública, así como organizaciones de beneficencia o servicio social que presten servicios en el Cantón de Nicoya.
