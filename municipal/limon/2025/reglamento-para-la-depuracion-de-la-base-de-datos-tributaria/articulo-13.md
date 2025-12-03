@@ -1,0 +1,2 @@
+CAPÍTULO III: DISPOSICIONES FINALES Y VIGENCIA
+Artículo 13. Responsabilidad de cumplimiento Todas las dependencias y funcionarios involucrados en los procesos de registro, control, cobro y depuración de información tributaria y administrativa deberán cumplir fielmente con lo establecido en el presente reglamento. El incumplimiento podrá ser sujeto a las sanciones disciplinarias que correspondan conforme al Estatuto del Servicio Civil o régimen aplicable.

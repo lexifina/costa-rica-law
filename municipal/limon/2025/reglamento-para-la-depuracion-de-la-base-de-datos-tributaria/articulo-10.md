@@ -1,0 +1,1 @@
+Artículo 10. Validación y aprobación Los expedientes de depuración deberán ser revisados por el jefe de unidad correspondiente y aprobados según los montos establecidos en el Artículo 5. Cualquier depuración sin respaldo completo será rechazada.

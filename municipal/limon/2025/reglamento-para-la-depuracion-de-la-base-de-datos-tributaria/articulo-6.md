@@ -1,0 +1,1 @@
+Artículo 6. Registro y custodia de expedientes Todos los expedientes aprobados deberán ser registrados y codificados, remitiéndose copia al archivo municipal central, bajo custodia de la Dirección Financiera, garantizando la trazabilidad del proceso y la disponibilidad de documentación para efectos de auditoría interna o externa.

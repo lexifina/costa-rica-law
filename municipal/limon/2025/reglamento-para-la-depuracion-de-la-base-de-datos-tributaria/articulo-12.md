@@ -1,0 +1,1 @@
+Artículo 12. Revisión y mejora continua El presente reglamento podrá ser revisado y actualizado cada dos años o antes si se identifica la necesidad, con el fin de adaptar los criterios técnicos a la realidad operativa, tecnológica y legal de la Municipalidad.
