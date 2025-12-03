@@ -1,0 +1,14 @@
+CAPÍTULO VI:
+INFRAESTRUCTURA Y DISEÑO
+Artículo 22: Sobre la infraestructura peatonal.
+a) Las aceras y la infraestructura peatonal deben diseñarse y construirse de forma tal que se garantice la continuidad del tránsito peatonal, evitando cambios abruptos de nivel, pendientes mayores a lo permitido en la normativa vigente tanto de manera longitudinal como transversal de acuerdo con la topografía existente, existencia de diferencias de nivel, obstáculos y elementos peligrosos, presencia de texturas no antideslizantes o antiderrapantes. Toda infraestructura peatonal, debe contar con un análisis previo para determinar una ruta accesible, y los elementos físicos contemplados en el diseño universal.
+b) Las aceras e infraestructura peatonal deberán tener un ancho constructivo mínimo de 1.20 m de franja caminable de acuerdo con los aforos o en su defecto lo que indique el plano de catastro, dando una línea concordante con el entorno, sin presentar escalones; en caso de desnivel éste será salvado con rampa.
+c) Las aceras se construirán en paños de 1.50m de longitud, el concreto a utilizar deberá tener una resistencia mínima de 210kg/cm2.
+d) En los accesos vehiculares, la rampa de acceso se deberá construir en la orilla de la acera sin que se obstruya la continuidad de la misma ni que se ponga en riesgo el tránsito de los peatones o que obstruya la calzada.
+e) En el centro de la acera se deberán colocar losas de concreto táctil del tipo lineal y en las intersecciones se deberá combinar con losas de concreto táctil de puntos, según la norma nacional INTE W17:2022 en su versión más reciente.
+f) Las cajas, los registros, medidores de agua o cualquier otro dispositivo en las aceras, no deben sobrepasar o estar inferiores al nivel final de la acera y deberán tener respectiva tapa.
+g) Toda acera o infraestructura peatonal cuyo deterioro supere un cuarenta por ciento (40%) de la totalidad del área o según criterio técnico no cuente con las condiciones establecidas por la Ley de Movilidad Peatonal Ley Nº9976, será considerada como obra nueva y deberá reconstruirse totalmente. Considerando el área del ancho de la acera por el largo del tramo a intervenir.
+h) Para cada construcción de aceras el ancho será establecido por la Municipalidad para la red vial cantonal.
+i) Cualquier elemento urbano que se desee colocar, como postes, hidrantes, torres de telefonía, arbustos o cualquier otro, se deberá colocar en la franja de mobiliario respetando y dejando la franja caminable libre de obstáculos.
+j) Las aceras deben tener una superficie antideslizante de materiales cementicios y ser continuas, manteniendo una pendiente en sentido transversal de máximo 3% y mínimo 1.5%.
+k) La Municipalidad de San Rafael de Heredia, cuenta con la potestad de modificar el perfil de la calle completa para el rediseño de las vías (peatonal, ciclista y vehicular).
