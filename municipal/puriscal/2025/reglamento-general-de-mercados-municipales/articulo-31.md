@@ -1,0 +1,1 @@
+Artículo 31.-Sobre los cierres temporales. Todo inquilino tendrá el derecho de solicitar a la Administración del Mercado un cierre temporal por motivos de fuerza mayor, como enfermedades, remodelaciones, problemas de personal, mismo que no podrá mayor a treinta días calendario.

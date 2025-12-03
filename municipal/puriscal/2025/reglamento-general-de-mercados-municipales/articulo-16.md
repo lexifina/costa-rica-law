@@ -1,0 +1,1 @@
+Artículo 16.-Desacuerdos entre la administración y el o los inquilinos. En caso de desacuerdos entre los inquilinos y la Administración, ésta última elevará el informe respectivo al Concejo Municipal, para que este resuelva en segunda instancia.

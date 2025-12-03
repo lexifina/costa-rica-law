@@ -1,0 +1,1 @@
+Artículo 37.-Aplicación de las sanciones. Las sanciones se aplicarán según lo señala cada artículo expresamente. Las infracciones no señaladas en forma específica se sancionarán con amonestarán escrita la primera vez y con cancelación del contrato en caso de reincidencia. Se entenderá reincidencia la comisión de la misma falta dentro de un plazo no mayor 90 días calendario.

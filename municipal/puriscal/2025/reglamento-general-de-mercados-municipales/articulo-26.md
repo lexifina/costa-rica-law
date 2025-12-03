@@ -1,0 +1,1 @@
+Artículo 26.-De la seguridad del Mercado Municipal. La Municipalidad será responsable de mantener el edificio en buenas condiciones y mantendrá las pólizas vigentes contra incendios u otros desastres naturales, que protejan el inmueble, no así mercaderías, ni accidentes dentro de los locales, producidos por causas fortuitas.

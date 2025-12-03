@@ -1,0 +1,1 @@
+Artículo 25.-De la seguridad del Local comercial. Se exime a la Municipalidad por la responsabilidad de accidentes, robos de bienes de propiedad privada dentro de los locales. Cada inquilino deberá proteger sus pertenencias.
