@@ -14,3 +14,4 @@ Reglamento de relaciones corporativas de la Auditoría Interna del Banco de Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-22 | la propia norma |
+| 2 | 2025-12-03 | Reglamento 60 (2025-12-03) |
