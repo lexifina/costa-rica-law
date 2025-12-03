@@ -1,0 +1,3 @@
+Artículo 4º-Competencia de la Unidad de Gestión Territorial o su equivalente. El administrado deberá presentar la solicitud de uso de suelo en la Plataforma de Servicios, junto con todos los requisitos respectivos.
+Una vez ingresada la solicitud, junto con los requisitos, estos serán revisados por la Unidad de Gestión Territorial o su equivalente, y, en caso de ser pertinente, está requerirá el criterio de la Unidad de Infraestructura Vial o su equivalente para que proceda con la valoración de los aspectos técnicos correspondientes a la materia de su competencia.
+Verificado el cumplimiento de requisitos técnicos, incluidas las condiciones de campo, la Unidad de Gestión Territorial o su equivalente, emitirá la resolución final.
