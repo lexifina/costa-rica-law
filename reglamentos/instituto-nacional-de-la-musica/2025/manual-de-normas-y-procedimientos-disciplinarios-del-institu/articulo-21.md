@@ -1,0 +1,6 @@
+ARTÍCULO 21: Para asegurar que exista proporcionalidad entre una falta disciplinaria y su sanción, el Instituto ha adoptado el método de tres pasos que se explica a continuación:
+1) Se determinará la gravedad de los hechos. Para ello se han establecido en este documento dos herramientas:
+a) Una escala de calificación de la gravedad de la conducta (artículo 18).
+b) Criterios guía, que ayudarán a la Comisión en el proceso disciplinario a establecer en qué grado de la escala encuadrarán los hechos (Criterios para calificar la Gravedad de la Falta, capítulo VI).
+2) A cada grado de la escala de "gravedad de las faltas" (capítulo VI), corresponde un grado en la escala de "gravedad de las sanciones" (artículo 17). Así, por ejemplo, a las faltas graves, le corresponden las sanciones graves.
+3) Para asegurar la proporcionalidad entre la falta y la sanción, se acudirá a los criterios establecidos en el artículo 18 (Criterios de Graduación de la Sanción) que permitirán a la Comisión que intervienen en el proceso disciplinario, determinar la imposición de una sanción más o menos severa que la que en principio correspondería a la falta, según la escala "gravedad de las faltas" (capítulo VI) y la correspondencia con la escala "gravedad de las sanciones" (artículo 17).

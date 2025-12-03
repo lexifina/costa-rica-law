@@ -1,0 +1,1 @@
+ARTÍCULO 31: En procesos disciplinarios estudiantiles por faltas disciplinarias por presunto acoso sexual, la Comisión Disciplinaria, podrá requerir el apoyo legal de la Asesoría Legal del Centro Nacional de la Música.

@@ -1,0 +1,5 @@
+INSTITUTO NACIONAL DE LA MÚSICA
+MANUAL DE NORMAS Y PROCEDIMIENTOS DISCIPLINARIOS
+CAPÍTULO I. DISPOSICIONES GENERALES
+ARTÍCULO 1: El Instituto Nacional de Música desarrolla sus actividades académicas en un ambiente artístico de libertad y responsabilidad, que busca el fortalecimiento de la convivencia, que garantice el ejercicio de los derechos de los estudiantes y el cumplimiento de sus deberes. Por ello, este documento fundamentalmente tiene un doble propósito: el formativo, orientado a que el estudiante reflexione sobre aquellos actos considerados institucionalmente como inaceptables; y el sancionador, que busca proporcionar las medidas con las que se sancionan todas aquellas faltas en contra de personas, bienes tangibles o la infraestructura que alberga este centro educativo. Estas consecuencias guardan proporcionalidad con la gravedad de las faltas.
+Las faltas disciplinarias que se cometen por los estudiantes de Instituto Nacional de Música serán conocidas, juzgadas y sancionadas según las disposiciones del presente documento.

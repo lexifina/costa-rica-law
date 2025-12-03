@@ -1,0 +1,1 @@
+ARTÍCULO 6: Cuando un miembro nombrado en dicha comisión por cualquier motivo se retire de la misma, debe existir un nombramiento a la brevedad, realizado por el Director Académico, para sustituir al mismo; en igualdad de condición al que se retiró, ocupando el mismo puesto del que ya no está.

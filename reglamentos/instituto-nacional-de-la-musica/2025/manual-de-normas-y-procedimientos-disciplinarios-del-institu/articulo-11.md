@@ -1,0 +1,6 @@
+ARTÍCULO 11: Recibido el informe por la Comisión Disciplinaria, se notificará por escrito al estudiante, cuando este sea mayor de edad, al padre o tutor, en caso de tratarse de menores de edad, al correo electrónico que se encuentre señalado en el expediente estudiantil. En dicha notificación se concederá el plazo de cinco (5) días hábiles para:
+a) Plantear una propuesta de proyecto de acuerdo con o a través del cual considere que se pueda dar solución a la situación que dio origen al proceso. (Se exceptúa de esta disposición los casos de acoso estudiantil).
+b) Dar su versión de los hechos, presentar escrito en el cual ratifique o se oponga a los hechos de los que se le acusa. Este escrito contendrá, relación de los hechos, aportar las pruebas en que basa y señalar un correo electrónico para escuchar notificaciones.
+Los estudiantes tienen el deber de mantener actualizados sus datos personales, en el expediente estudiantil.
+En todos los documentos entregados por los estudiantes dentro del proceso, se dejará constancia de la fecha recepción y del nombre y la firma de quien recibe.
+Todo documento o solicitud de información de un procedimiento disciplinario, debe ser contestado en plazo no mayor a cinco días hábiles, en los casos que no conste otro plazo expresamente señalado.

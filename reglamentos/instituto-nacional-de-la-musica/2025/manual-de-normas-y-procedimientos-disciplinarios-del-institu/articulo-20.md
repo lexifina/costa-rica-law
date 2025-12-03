@@ -1,0 +1,3 @@
+ARTÍCULO 20: El estudiante al que se le imponga una sanción disciplinaria grave no podrá durante su duración, participar en intercambios, cursos de verano, campamentos, becas al extranjero o cualquier actividad coordinada por el Instituto. El estudiante al que se le imponga una sanción disciplinaria moderada no podrá durante su duración, participar en intercambios, becas al extranjero.
+La secretaria administrativa del Instituto informará por escrito a los padres o acudientes del estudiante (en caso de ser menor de edad) sancionado con expulsión o suspensión.
+El estudiante sancionado con suspensión durante la vigencia de ésta no podrá hacer uso de las instalaciones del Instituto Nacional de la Música.

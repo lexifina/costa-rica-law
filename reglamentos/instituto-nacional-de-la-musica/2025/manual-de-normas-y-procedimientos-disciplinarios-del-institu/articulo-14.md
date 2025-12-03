@@ -1,0 +1,2 @@
+ARTÍCULO 14: En aquellos casos en los que por los mismos hechos se vinculen a dos o más estudiantes, la Comisión confeccionará un expediente por separado de cada estudiante, teniendo la facultad de acumular los procesos. Las decisiones, sin perjuicio de que sean diferentes para cada estudiante, se adoptarán en la misma oportunidad.
+En caso de que así se solicite al investigado, se le podrá dar acceso a los escritos de descargo y pruebas documentales presentados por la otra parte, para que los tenga en cuenta para su defensa.

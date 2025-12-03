@@ -1,0 +1,2 @@
+ARTÍCULO 13: Contra la decisión que deniega la práctica de pruebas podrá interponerse el recurso de revocatoria ante la Comisión Disciplinaria mediante escrito presentado dentro de los tres (3) días hábiles siguientes a la notificación de la decisión. La Comisión tendrá el plazo de ocho (8) días hábiles para resolver este recurso.
+En caso de aceptarse el recurso, se fijará fecha de recepción de nueva prueba cuando corresponda o se recibirán los documentos pertinentes.

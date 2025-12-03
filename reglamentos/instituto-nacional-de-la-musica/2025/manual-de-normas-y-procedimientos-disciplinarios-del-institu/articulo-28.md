@@ -1,0 +1,2 @@
+ARTÍCULO 28: Recurso de revocatoria. Contra la resolución final adoptada por la Comisión Disciplinaria Institucional, el estudiante podrá interponer el recurso de revocatoria ante la misma, mediante documento escrito y sustentado, dentro de los tres (3) días hábiles siguientes a la fecha de notificación de la resolución final.
+La Comisión resolverá el recurso de revocatoria en el plazo de diez (10) días hábiles y la resolución le será notificada al estudiante en el medio indicado en su escrito de descargo.

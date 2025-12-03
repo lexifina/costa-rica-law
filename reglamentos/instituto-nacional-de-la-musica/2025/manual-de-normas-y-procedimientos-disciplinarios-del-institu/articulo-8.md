@@ -1,0 +1,2 @@
+ARTÍCULO 8: Recibida la denuncia, el Director Académico procederá a analizarla y si la falta lo amerita, citará a la Comisión Disciplinaria a sesionar con el fin de confeccionar la resolución de apertura del procedimiento correspondiente.
+De no ser necesario un procedimiento disciplinario por la naturaleza de la falta, el Director aplicará la correspondiente sanción según lo establezca el presente Manual de Normas y Procedimientos Disciplinarios.

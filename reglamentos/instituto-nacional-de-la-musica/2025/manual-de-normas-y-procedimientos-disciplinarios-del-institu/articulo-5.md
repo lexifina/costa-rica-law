@@ -1,0 +1,1 @@
+ARTÍCULO 5: La comisión se nombrará por un periodo de un año, con la posibilidad de prorrogar su nombramiento. El periodo de nombramiento será anterior al inicio formal del curso lectivo de cada año y tendrá vigencia hasta el siguiente nombramiento.
