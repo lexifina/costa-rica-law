@@ -1,0 +1,1 @@
+Artículo 4.- Derogatoria. Deróguese la resolución número IMAS-RGG-2100-2021 de las trece horas quince minutos del veinticuatro de setiembre del dos mil veintiuno, "Resolución general sobre los elementos, segregación y ponderación de variables a utilizar para la calificación, y método de calificación, de los sujetos pasivos de la Ley Número 9326" emitida por esta Gerencia General.
