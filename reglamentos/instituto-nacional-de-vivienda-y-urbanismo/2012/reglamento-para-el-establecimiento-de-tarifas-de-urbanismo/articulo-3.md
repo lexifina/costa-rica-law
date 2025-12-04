@@ -1,1 +1,5 @@
-Artículo 3º—Las tarifas cobradas se cancelarán por única vez, hasta que se obtenga el trámite requerido, siempre y cuando se trate del mismo caso o proyecto.
+Artículo 3°-Las tarifas cobrarán por una única vez para cada trámite que se presente, siempre y cuando el expediente cumpla con todos los requisitos técnicos establecidos en la legislación, y no requiera devoluciones por subsanación.
+En caso de que el proyecto sea devuelto por incumplimientos, omisiones o errores, y deba ser reingresado para realizar las nuevas observaciones, se aplicará una tarifa por concepto de reprocesamiento, la cual no excederá el 100% de la tarifa original y se cobrará a partir del reingreso de cada proyecto.
+La tarifa por reprocesamiento no aplicará a los expedientes en proceso de apelación u otro recurso jerárquico. Los cobros se limitarán a casos donde el usuario reingrese voluntariamente el expediente con las correcciones señaladas por el INVU, sin que lo haya apelado formalmente.
+En caso de que la observación sobre algún incumplimiento sea un error del Instituto, y que sea debidamente comprobado mediante resolución emitida por el superior en apelación, no se procederá con el cobro del reproceso del proyecto
+(Así reformado mediante sesión ordinaria N° JDINVU-034-2025 del 4 de diciembre de 2025)
