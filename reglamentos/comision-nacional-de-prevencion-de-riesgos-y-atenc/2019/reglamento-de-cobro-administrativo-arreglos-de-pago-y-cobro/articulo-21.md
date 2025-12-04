@@ -7,4 +7,5 @@ c) Que la persona jurídica morosa sea liquidada o disuelta judicialmente y no e
 d) Que haya operado el plazo de prescripción de la obligación pendiente.
 e) Que habiéndose gestionado el proceso de cobro judicial se hayan rematado los bienes que garantizaban las obligaciones y resulte imposible recuperar un eventual saldo al descubierto.
 f) Cuando se haya dictado la sentencia en el proceso judicial y por insuficiencia de bienes, salarios, o inembargabilidad, no resulte factible la recuperación de la deuda.
-g) Cuando el monto de la obligación sea considerado técnicamente como exiguo para lo cual se tomará como base de cálculo el equivalente al cincuenta por ciento del salario base definido según el artículo 2 de la Ley No. 7337 del 5 de mayo de 1993, siempre que esta causal concurra con alguna de las otras condiciones señaladas.
+g) Cuando el monto de la obligación sea considerado técnicamente como exiguo, se tomará como base el equivalente al monto que establezca el Consejo Superior del Poder Judicial para el Salario Base del Oficinista 1. Lo anterior, en concordancia con lo indicado por la Dirección General de Hacienda del Ministerio de Hacienda.
+(Así reformado el inciso anterior en sesión N° 22 del 4 de diciembre de 2025)

@@ -15,3 +15,4 @@ Reglamento de cobro administrativo, arreglos de pago y cobro judicial de la Comi
 | --- | --- | --- |
 | 1 | 2019-04-24 | la propia norma |
 | 2 | 2021-07-21 | Reglamento 14 (2021-07-21) |
+| 3 | 2025-12-04 | Reglamento 22 (2025-12-04) |
