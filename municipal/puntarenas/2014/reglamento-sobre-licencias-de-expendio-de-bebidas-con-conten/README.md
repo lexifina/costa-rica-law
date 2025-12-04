@@ -14,3 +14,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-06 | la propia norma |
+| 2 | 2025-12-04 | Reglamento municipal 135 (2025-12-04) |
