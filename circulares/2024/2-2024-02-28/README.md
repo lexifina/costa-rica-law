@@ -13,3 +13,4 @@ Lineamientos para la aplicación de medidas alternas y el trámite de dispensas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-28 | la propia norma |
+| 2 | 2025-12-04 | Resolución 102 (2025-12-04) |
