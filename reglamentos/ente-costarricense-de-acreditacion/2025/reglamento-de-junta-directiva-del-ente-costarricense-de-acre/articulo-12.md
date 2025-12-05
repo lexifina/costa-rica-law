@@ -1,0 +1,11 @@
+Artículo 12.- Del Auditor en la Junta Directiva.
+El Auditor Interno del ECA podrá asistir a las sesiones ordinarias y extraordinarias de la Junta Directiva, cuando sea convocado cuando lo considere necesario para el adecuado cumplimiento de sus funciones. Participará con voz, pero sin voto, con el fin de brindar asesoramiento en temas propios de su competencia.
+Su intervención constituye un elemento esencial para el asegurar una fiscalización independiente y objetiva, particularmente en lo relativo a la legalidad y eficiencia de los controles internos, el uso del presupuesto aprobado y el cumplimiento de los acuerdos adoptados por la Junta Directiva.
+EL Auditor Interno actuará como órgano de apoyo para la Junta Directiva, dentro del marco de la independencia que rige su labor. Sus recomendaciones, asesorías y advertencias deberán estar orientadas a fortalecer la gestión institucional.
+El Auditor Interno tendrá las siguientes atribuciones:
+1. Elevar a la Junta Directiva sobre los resultados de auditorías, estudios y evaluaciones realizados en el ECA y todos aquellos informes de deficiencias en materia de control interno y advertencias que ameriten un conocimiento inmediato de la Junta Directiva y aquellos estudios que se defina como estratégicos y los que se definan como importantes para afectación patrimonial o incremento de los riesgos del negocio.
+2. Recomendar medidas correctivas para fortalecer el sistema de control interno y la gestión institucional.
+3. Brindar criterio técnico en materia de fiscalización, cuando así lo solicite la Junta Directiva o lo estime pertinente para la defensa del interés institucional. Velar porque los acuerdos y decisiones de la Junta Directiva se en marquen dentro de los principios de legalidad, eficiencia, eficacia, transparencia y rendición de cuentas.
+4. Participar en todas las sesiones ordinarias y extraordinarias de la Junta Directiva, salvo dispensa justificada.
+El acta deberá dejar constancia de la participación del Auditor Interno y de los aportes realizados.
+La Auditoría Interna contará con el Reglamento de Organización y Funcionamiento de la Auditoría Interna, el cual deberá ser aprobado por la Junta Directiva y remitido posteriormente a la Contraloría General de la República, conforme a la normativa aplicable.

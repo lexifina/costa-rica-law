@@ -1,0 +1,3 @@
+Artículo 20.- Asuntos no incluidos en el orden del día.
+En sesiones ordinarias o extraordinarias, no podrán ser objeto de discusión asuntos que no estén incluidos en el orden del día, salvo que este sea modificado con el voto favorable de al menos dos tercios de las personas que integrantes de la Junta Directiva.
+El orden del día será elaborado por la Presidencia, considerando los temas que le hayan sido propuestos con antelación por cualquiera de los integrantes del órgano colegiado. Deberá incluir, además, un apartado para asuntos varios y otros para los temas que la Presidencia estime pertinentes.

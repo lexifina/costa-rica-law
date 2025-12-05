@@ -1,0 +1,6 @@
+Artículo 21.- Votaciones.
+Los acuerdos de la Junta Directiva serán adoptados por mayoría absoluta de las personas integrantes presentes, salvo en aquellos casos en que la normativa aplicable exija una mayoría calificada.
+Las personas integrantes de la Junta Directiva deberán emitir su voto en sentido afirmativo o negativo, no estando permitido abstenerse, salvo que exista un motivo de impedimento o excusa conforme a lo establecido en el Código Procesal Civil, en el artículo 230 de la Ley General de Administración Pública o en cualquiera otra normativa aplicable en la materia.
+Una vez iniciada la votación, ésta no podrá ser interrumpida por ningún motivo. Las personas que razonan su voto podrán hacerlo de forma concisa. Remitido el voto, no podrá ser modificado. En caso de empate, corresponderá a la Presidencia ejercer el voto de desempate.
+Si al menos la mitad de las personas integrantes con derecho a voto manifiesten su interés en estudiar con mayor profundidad el tema sometido a consideración, la votación se postergará, por una sola vez, y el asunto deberá ser incluido nuevamente en la agenda de una sesión posterior.
+Cuando en la sesión estén presentes tanto el propietario como el suplente, se contabilizará solamente el voto del propietario, excepto si el propietario por algún motivo se ausentara de la sesión.

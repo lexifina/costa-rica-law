@@ -1,0 +1,2 @@
+Artículo 8.- De la abstención y recusación.
+Las personas integrantes de la Junta Directiva se abstendrán y podrán ser recusadas por los motivos que establece el artículo 230, siguientes y concordantes de la Ley General de la Administración Pública y disposiciones del Código Procesal Civil.
