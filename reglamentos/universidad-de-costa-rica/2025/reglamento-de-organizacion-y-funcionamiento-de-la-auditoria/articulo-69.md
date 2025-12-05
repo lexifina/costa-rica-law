@@ -1,0 +1,1 @@
+Artículo 69. Seguimiento de Resultados de Servicios de Advertencia: La Auditoría Interna verificará lo actuado por la Administración Activa respecto de las advertencias que le haya formulado, sin perjuicio de que, como resultado del seguimiento, emita informes de control interno, de responsabilidades de Relaciones de Hechos y otros pertinentes.

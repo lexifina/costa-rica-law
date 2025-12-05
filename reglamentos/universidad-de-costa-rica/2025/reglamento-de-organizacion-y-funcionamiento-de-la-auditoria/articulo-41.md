@@ -1,0 +1,2 @@
+Capítulo VIII. Finalidad, Competencias, Deberes, Potestades, Prohibiciones y Facultades
+Artículo 41. Finalidad: El objeto fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración Activa, para que alcance sus metas y objetivos con mayor eficiencia, eficacia y economía proporcionándole información oportuna, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina, en procura de prevención de riesgos y mejoramiento continuo.

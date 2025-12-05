@@ -1,0 +1,1 @@
+Artículo 33. Archivo: La Auditoría Interna manejará el archivo digital pertinente para el correcto desarrollo de su actividad, organizándolo de conformidad con las necesidades que dicta la técnica aplicable.

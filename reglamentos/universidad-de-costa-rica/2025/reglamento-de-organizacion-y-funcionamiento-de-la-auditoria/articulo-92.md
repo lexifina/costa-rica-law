@@ -1,0 +1,1 @@
+Artículo 92. Información Adicional: El denunciante también podrá brindar información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos si existe y es de su conocimiento, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

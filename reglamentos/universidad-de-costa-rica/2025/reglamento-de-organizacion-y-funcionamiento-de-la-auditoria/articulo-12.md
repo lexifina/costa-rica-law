@@ -1,0 +1,3 @@
+Capítulo III. Estructura Organizativa y Ubicación
+Artículo 12. Estructura Organizativa: De conformidad con el artículo N.°23 de la Ley General de Control Interno, la Auditoría Interna se organiza y funciona conforme lo dispongan las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, las cuales son de acatamiento obligatorio.
+La estructura de la Auditoría Interna está conformada por el Auditor y Subauditor Internos, junto con el personal que resulte necesario para desarrollar su actividad conforme al marco normativo y las sanas prácticas. La estructura organizativa de la Auditoría Interna, sus plazas y sus ajustes deben ser aprobados por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 88. Lineamientos para la Atención de Denuncias: El Auditor Interno tiene la responsabilidad de establecer los lineamientos que correspondan en relación con la admisibilidad de denuncias para su atención. Para tal efecto, se debe aplicar lo establecido en la Ley y el Reglamento Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

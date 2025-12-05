@@ -1,0 +1,1 @@
+Artículo 32. Actualización del Ámbito de Acción: La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por procesos, con la colaboración de la Administración Activa en lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 15. Manual de Perfiles Descriptivos de Puestos: Se deberá contar con un Manual de Perfiles descriptivos de puestos para todo el personal de Auditoría Interna, donde se establecen las funciones para los cargos de los Auditores de conformidad con las disposiciones de la Contraloría General de la República al respecto.

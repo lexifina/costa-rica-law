@@ -1,0 +1,1 @@
+Artículo 7. Conflictos de Interés: Los Auditores deben velar porque no se presenten conflictos de interés al asesorar o prestar servicios distintos de la fiscalización a la entidad, y que dichos servicios o asesoramiento no incluyan responsabilidades o facultades de gestión, que debe continuar desempeñando la Administración Activa.

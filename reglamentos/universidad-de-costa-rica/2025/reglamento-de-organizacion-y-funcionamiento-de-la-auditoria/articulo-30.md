@@ -1,0 +1,4 @@
+Artículo 30. Competencias del Auditor: Es competencia del Auditor Interno en cuanto a los Auditores:
+a. Proponer, con la debida justificación, a la Junta Directiva los movimientos de personal y la creación, eliminación o modificación de plazas, así como suspensión, remoción, concesión de licencias; de acuerdo con el marco jurídico que rige para la JAFAP UCR.
+Lo anterior, de conformidad con lo establecido en los artículos N.°24 y N.°28 de la Ley General de Control Interno, en los Lineamientos sobre Gestiones que Involucran a la Auditoría Interna Presentadas ante la Contraloría General de la República y de acuerdo con la norma 2.4 de las Normas para el Ejercicio de la Auditoría Interna en el Sector Público.
+b. Ejercer la potestad disciplinaria de los Auditores, con apego a las regulaciones aplicables.

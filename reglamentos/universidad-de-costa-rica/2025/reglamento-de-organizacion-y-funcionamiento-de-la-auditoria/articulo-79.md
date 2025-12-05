@@ -1,0 +1,1 @@
+Artículo 79. Principios Generales: En la admisión de las denuncias se atenderán los principios de legalidad, celeridad, independencia, objetividad y oficiosidad, en procura de la simplicidad, la economía, la eficacia y la eficiencia en la prestación del servicio, definidos en los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares.

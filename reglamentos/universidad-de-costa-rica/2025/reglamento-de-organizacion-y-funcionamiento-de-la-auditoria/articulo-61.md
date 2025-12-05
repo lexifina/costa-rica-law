@@ -1,0 +1,4 @@
+Capítulo XII. Comunicación de Resultados
+Artículo 61. Informes de Resultados: Sin perjuicio de los memorandos o informes parciales que fuere necesario emitir, cuando proceda, se debe emitir un Informe de Auditoría o Informe Final, de relaciones de hechos o de estudios producto de los servicios preventivos u otros, según corresponda, con los hallazgos, conclusiones y recomendaciones pertinentes.
+Este debe ser dirigido a la Administración Activa, con competencia y autoridad para ordenar la implementación de las respectivas recomendaciones, de conformidad con lo establecido en el artículo N.°35 de la Ley General de Control Interno.
+En lo que respecta a la comunicación del informe final de las relaciones de hecho, debe tomarse en consideración lo dispuesto sobre esta materia en los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares, emitidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 56. Informes Parciales y Finales: La Auditoría Interna, de acuerdo con su criterio, podrá emitir Informes Parciales durante el desarrollo de sus Auditorías. Toda Auditoría dará lugar a un Informe Final.

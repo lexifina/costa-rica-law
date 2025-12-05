@@ -1,0 +1,2 @@
+Capítulo XV. Denuncias
+Artículo 87. Ámbito de Competencia: La Auditoría Interna dará trámite únicamente a las denuncias contra personas trabajadoras de la JAFAP UCR y que versen sobre posibles hechos irregulares o ilegales en el uso y manejo de fondos públicos asignados a la JAFAP UCR y lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento. En todos los casos, observará la normativa aplicable emitida por la Contraloría General de la República.

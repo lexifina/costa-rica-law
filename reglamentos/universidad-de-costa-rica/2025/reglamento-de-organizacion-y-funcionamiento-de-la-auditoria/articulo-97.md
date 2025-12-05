@@ -1,0 +1,2 @@
+Capítulo XVI. Disposiciones Finales
+Artículo 97. Causales de Responsabilidad Administrativa y Sanciones: El Auditor y Subauditor Internos junto con las demás personas trabajadoras de Auditoría Interna incurrirán en responsabilidad administrativa cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones, sin perjuicio de las responsabilidades que pueda imputárseles civil y penalmente y según la gravedad de las faltas se sancionarán. Todo de conformidad con la Ley General de Control Interno.

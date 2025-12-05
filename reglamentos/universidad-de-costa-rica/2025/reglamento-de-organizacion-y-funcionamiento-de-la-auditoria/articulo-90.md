@@ -1,0 +1,1 @@
+Artículo 90. Admisibilidad de Denuncias: El Auditor Interno establecerá los mecanismos y medios para recibir y tramitar todas aquellas denuncias presentadas ante la Auditoría Interna, las cuales pueden ser escritas o verbales y manteniendo la estricta confidencialidad en acato a lo definido en el artículo N.°32 inciso f. de la Ley General de Control Interno.

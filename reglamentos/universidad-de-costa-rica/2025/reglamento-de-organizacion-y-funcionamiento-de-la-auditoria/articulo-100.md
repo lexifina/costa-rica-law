@@ -1,0 +1,1 @@
+Artículo 100. Divulgación del Reglamento: Ninguna persona trabajadora de la JAFAP UCR podrá alegar desconocimiento del presente reglamento, siendo responsabilidad de los diferentes niveles jerárquicos informar a sus personas trabajadoras.

@@ -1,0 +1,1 @@
+Transitorio Único. Plazo para Concordar sus Políticas y Procedimientos: La Auditoría Interna dispondrá de un plazo de 36 meses contados a partir de la publicación de este Reglamento en el Diario Oficial La Gaceta, para concordar sus políticas y procedimientos con las regulaciones contempladas en este cuerpo normativo.

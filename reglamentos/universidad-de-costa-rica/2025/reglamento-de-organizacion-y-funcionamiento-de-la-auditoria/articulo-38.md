@@ -1,0 +1,1 @@
+Artículo 38. Registro Presupuestario: La Auditoría Interna en colaboración con el área responsable del control del presupuesto institucional, mantendrá un registro de la asignación presupuestaria anual detallado por objeto del gasto, para el control de su ejecución y el suministro periódico de información al Auditor Interno.

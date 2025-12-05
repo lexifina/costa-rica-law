@@ -1,0 +1,1 @@
+Artículo 93. Fundamentación del Acto de Desestimación o Archivo de Denuncias: La desestimación o archivo de las denuncias se realizará mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión. Cuando se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada.

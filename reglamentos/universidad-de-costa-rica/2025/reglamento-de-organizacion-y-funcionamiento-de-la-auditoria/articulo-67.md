@@ -1,0 +1,2 @@
+Capítulo XIII. Seguimiento de las Recomendaciones
+Artículo 67. Planificación de los Estudios de Seguimiento: La Auditoría Interna incluirá en su Plan Anual de Trabajo la actividad correspondiente al seguimiento de sus recomendaciones ya aceptadas por la Administración Activa, emitidas por la Auditoría Interna, el Consejo Universitario de la UCR y los Auditores Externos, cuando sean de su conocimiento, para asegurarse de su oportuna, adecuada y eficaz implementación.

@@ -1,0 +1,1 @@
+Artículo 13. Dependencia y Ubicación Orgánica: Orgánicamente, la Auditoría Interna depende directamente de la Junta Directiva y debe ejercer sus funciones y actuaciones con total independencia funcional y de criterio respecto de la Administración Activa, además, no incurrirá en incumplimiento de la prohibición cuando ejerza actividades administrativas para cumplir su competencia.
