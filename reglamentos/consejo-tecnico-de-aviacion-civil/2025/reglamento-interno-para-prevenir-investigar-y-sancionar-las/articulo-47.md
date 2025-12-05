@@ -1,0 +1,1 @@
+Artículo 47.- El denunciante como parte del proceso. La persona denunciante será expresamente reconocida como parte en el procedimiento administrativo, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un profesional en derecho, sobre lo cual, será advertido por el órgano director del procedimiento.

@@ -1,0 +1,1 @@
+Artículo 20.- Trámite de oficio de una denuncia: La Comisión Permanente Institucional podrá tramitar de oficio cualquier denuncia, aunque no cumpla las formalidades requeridas, si se aportan indicios suficientes, o elementos de convicción que hagan presumir la veracidad de los hechos denunciados, fundamentados en medios probatorios idóneos.

@@ -1,0 +1,3 @@
+Artículo 27.- Plazo para culminar el procedimiento:
+El procedimiento administrativo disciplinario por violencia y/o acoso laboral deberá concluir mediante acto final dentro del plazo de dos meses calendario, contados a partir de la fecha en que el CETAC o el Jerarca del Ministerio de Obras Públicas y Transportes adopte la decisión de iniciar el procedimiento ordinario, con el correspondiente nombramiento del órgano director.
+De manera excepcional, por tratarse de plazos de carácter ordenatorio, dicho plazo podrá ser ampliado, siempre que exista una debida justificación y la solicitud de prórroga se presente antes de su vencimiento. La ampliación deberá ser aprobada por el órgano decisor.

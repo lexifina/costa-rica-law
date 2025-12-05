@@ -1,0 +1,2 @@
+Artículo 31.- Sobre la confidencialidad de la audiencia: La audiencia será oral y privada, para garantizar la confidencialidad e imparcialidad del proceso; sólo podrán comparecer las partes y sus representantes. Las partes podrán hacerse acompañar por una persona profesional en derecho y de su elección, un o una profesional en psicología u otra persona de su confianza, para que le brinde apoyo emocional.
+Las personas testigos, peritos y otras personas que intervengan, tendrán limitada su actuación únicamente sobre los hechos concretos en los que versa su conocimiento.

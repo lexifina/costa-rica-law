@@ -1,0 +1,9 @@
+Artículo 53. - Mecanismos de divulgación. La Unidad de Gestión Institucional de Recursos Humanos, por medio del Proceso de Capacitación y Desarrollo, facilitará a las instancias correspondientes, la capacitación y las políticas internas para el cumplimiento de este reglamento, para prevenir, investigar y sancionar las conductas de violencia y/o acoso laboral, las cuáles serán las siguientes:
+a) Comunicar, en forma escrita y/o verbal a las personas funcionarias y trabajadoras en general, sobre la existencia de una política institucional contra la violencia y/o el acoso laboral.
+b) Deberá incluir dentro de los procesos de inducción y de formación inicial, los contenidos de acoso laboral, siendo obligatoria la participación por parte de los/ de las funcionarios/as de nuevo ingreso.
+c) Promoverá acciones permanentes de formación y capacitación que podrán ser desarrolladas en las distintas modalidades: virtual, presencial y/o semipresencial.
+d) Publicar en la página web de esta institución, el presente reglamento.
+e) Informar a quien lo requiera sobre el procedimiento interno a seguir, lugares donde puede acudir a denunciar, protección que se ofrece a víctimas y testigos, entre otros.
+f) Emplear todos los medios usuales de capacitación, como charlas, métodos informativos, cursos, entre otros, de acuerdo con la planificación que al efecto realice, para que el personal de la institución esté informado de sus deberes y derechos derivados del presente reglamento.
+g) Distribuir al personal de la DGAC, toda clase de materiales informativos y educativos sobre la violencia y /o el acoso laboral.
+h) Tomar las acciones necesarias con el fin de que se impartan cursos de capacitación para funcionarios a cargo de la instrucción de procesos administrativos vinculados con denuncias por violencia y/o por acoso laboral, con el objetivo de que los/las servidores/as cuenten con la debida capacitación sobre la materia.

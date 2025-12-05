@@ -1,0 +1,1 @@
+Artículo 23.- Prescripción de la sanción: La acción de la potestad disciplinaria para sancionar las faltas por presunto acoso laboral, se regirá según los plazos estipulados en los artículo21 de la Ley Marco de Empleo Público, así como lo dispuesto en el artículo 414 del Código de Trabajo.
