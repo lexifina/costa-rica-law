@@ -1,0 +1,1 @@
+Artículo 40°- Del pago del alquiler. El alquiler deberá cancelarse dentro de los primeros tres días hábiles de cada mes. La Municipalidad cobrará una multa e intereses por morosidad. Ante la falta de pago de dos o más mensualidades sin que exista un arreglo de pago, se procederá a la resolución contractual.

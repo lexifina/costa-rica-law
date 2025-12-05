@@ -1,0 +1,4 @@
+Artículo 36°.- De las mejoras de los locales. Ningún concesionario podrá introducir mejoras en el local sin autorización previa de la Municipalidad.
+1. Autorización de mejoras: El interesado deberá presentar solicitud escrita describiendo la naturaleza de la mejora. La Administración verificará la viabilidad técnica y resolverá en un plazo de 15 días naturales.
+2. Autorización de retiro de mejoras: Cuando la mejora sea separable sin detrimento del local, el concesionario podrá solicitar su retiro.
+La Administración resolverá en un plazo de 15 días naturales y concederá al concesionario igual plazo para ejecutar el retiro. Vencido este plazo sin haberse retirado, la Administración procederá sin responsabilidad alguna. Las mejoras autorizadas se incorporarán al inmueble al finalizar el contrato, sin derecho a indemnización.

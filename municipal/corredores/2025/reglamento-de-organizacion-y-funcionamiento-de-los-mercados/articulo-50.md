@@ -1,0 +1,1 @@
+Artículo 50°.- Patente comercial. Ante el incumplimiento a las disposiciones relacionadas en la patente comercial se aplicarán las sanciones contenidas en la Ley de Impuestos de Actividades Lucrativas del cantón de Corredores y su reglamento.

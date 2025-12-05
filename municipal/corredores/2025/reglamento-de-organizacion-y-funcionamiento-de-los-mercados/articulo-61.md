@@ -1,0 +1,3 @@
+Artículo 61.- Publicación. Publíquese en el diario oficial La Gaceta de conformidad con lo dispuesto en el numeral 43 del Código Municipal. Siendo así se somete este Reglamento a consulta pública no vinculante, por espacio de diez días hábiles.
+Durante el plazo de la consulta, podrán los interesados hacer sus observaciones por escrito ante el Concejo Municipal de Corredores, ubicado en el Edificio Municipal, contiguo al Mercado Municipal, en Ciudad Neily.
+Transcurrido el plazo, y en caso de haber observaciones, el Concejo Municipal se pronunciará sobre el fondo; en caso contrario, procederá a la publicación sin mayor dilación.

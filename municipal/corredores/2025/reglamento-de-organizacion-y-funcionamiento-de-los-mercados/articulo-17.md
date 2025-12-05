@@ -1,0 +1,2 @@
+Capítulo V - De los concesionarios
+Artículo 17º- De los concesionarios. Serán concesionarios permanentes del Mercado, Terminal y otros inmuebles municipales de arriendo quienes se encuentren autorizados por la Municipalidad para ejercer una actividad comercial o de servicio en estos, lo sea mediante adjudicación en remate público, cesión de derechos, y sentencia judicial, en el caso de causahabientes. En cualquier caso, deberá contarse con el respectivo contrato de uso del local.

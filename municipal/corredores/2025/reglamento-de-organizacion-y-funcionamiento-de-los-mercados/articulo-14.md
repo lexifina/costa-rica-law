@@ -1,0 +1,7 @@
+Artículo 14°- Del horario de funcionamiento. El mercado, terminal y demás inmuebles de arriendo funcionarán según el horario que fije la Municipalidad. Para ello se considerarán las necesidades de inquilinos y usuarios. Entre otros aspectos atinentes, se dispone lo siguiente:
+a) Se permitirá la entrada de artículos o productos para surtir los puestos una hora antes y después de la apertura y cierre, respectivamente.
+b) Ningún particular podrá permanecer en las instalaciones fuera del horario regular, excepto inquilinos, empleados y funcionarios municipales.
+c) Por razones especiales, como días feriados, asuetos, festividades y otras, y previa resolución administrativa, se autorizará variaciones temporales de horario. Para ello se requerirá de la anuencia de al menos el cincuenta por ciento (50%) de los inquilinos. Se exceptúan aquellos locales con acceso directo a la vía pública. Lo dispuesto deberá comunicarse oportunamente a inquilinos y usuarios. El coste administrativo que implique el funcionamiento extraordinario del mercado, terminal y demás inmuebles de arriendo deberá ser asumido proporcionalmente por los inquilinos que hayan solicitado su apertura.
+d) Ante caso fortuito o fuerza mayor el horario podrá variar sin aviso previo.
+e) Los locales externos del Mercado o que den al exterior podrán extender su actividad de conformidad con el horario de ley.
+f) Las remodelaciones y obras de reparación se harán, en cuanto sea posible, fuera del horario regular. En cualquier caso, se tomarán las previsiones de seguridad respectivas.

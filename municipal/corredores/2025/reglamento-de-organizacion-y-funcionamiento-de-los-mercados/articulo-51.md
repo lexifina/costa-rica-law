@@ -1,0 +1,1 @@
+Artículo 51°- Revocación del derecho de piso: Serán revocables unilateralmente cuando se estime conveniente y oportuno por parte del administrador del Mercado, terminal y otros y de la Jefatura del Departamento de Servicios Generales, debiendo ajustarse a los dispuesto en el artículo 154 de la Ley General de la Administración Pública.

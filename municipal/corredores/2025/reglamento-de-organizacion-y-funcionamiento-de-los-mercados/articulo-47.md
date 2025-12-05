@@ -1,0 +1,1 @@
+Artículo 47°.- Amonestación escrita. Se amonestará por escrito al concesionario que incumpla las obligaciones contenidas en el artículo 30 incisos del a), b), c), d), f) g), h), i), l), e incurra en alguna de las prohibiciones dispuestas en el artículo 31 incisos b), d), e), f), g), i), l), m), o, q), s), u).

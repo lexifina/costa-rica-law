@@ -1,0 +1,1 @@
+Artículo 39°. De la venta, donación, cesión y subarriendo del puesto. Serán prohibidas la venta, donación, cesión, subarriendo y cualquier negocio de carácter mercantil respecto del puesto o local. Se exceptúan los casos previstos por este Reglamento.

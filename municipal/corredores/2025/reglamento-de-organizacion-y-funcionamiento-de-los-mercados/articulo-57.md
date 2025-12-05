@@ -1,0 +1,1 @@
+Artículo 57°.- Pago del servicio. El pago de las tarifas correspondientes se define sea mensualmente. Dicho pago podrá realizarse mediante cualquiera de los siguientes medios: (i) en la plataforma de servicios ubicada en el edificio municipal, (ii) por medio de las plataformas bancarias que la Municipalidad habilite para tal efecto.

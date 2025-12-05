@@ -1,0 +1,1 @@
+Artículo 28°.- De la prohibición de comercializar los derechos. Los concesionarios no podrán comercializar su derecho. Tampoco cederlo, excepto con la debida autorización del Concejo Municipal. Comprobada la situación se revocará el derecho según corresponda.

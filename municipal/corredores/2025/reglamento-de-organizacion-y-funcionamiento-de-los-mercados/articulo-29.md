@@ -1,0 +1,1 @@
+Artículo 29°.- Prohibición de la duplicidad de locales en un solo concesionario. Nadie podrá ser adjudicatario de más de un local o derecho en el Mercado y demás inmuebles de arrendamiento. Comprobada la situación se revocará el derecho más reciente mediante resolución administrativa.

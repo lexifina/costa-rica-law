@@ -1,0 +1,1 @@
+Artículo 58°.- Revisión de tarifas. Las tarifas por carrera de bus serán objeto de revisión y ajuste con una periodicidad no mayor a un año, o antes si las condiciones económicas, operativas o financieras así lo justifican. La actualización deberá responder a estudios técnicos que consideren el principio de razonabilidad tarifaria y el equilibrio financiero del servicio.

@@ -1,0 +1,1 @@
+Artículo 45°- De la resolución contractual. Ante su incumplimiento, así como de la normativa aplicable, la Municipalidad resolverá el contrato, demandando el desalojo del local y eventuales daños y perjuicios. Este proceso estará a cargo del Concejo Municipal. Todo de conformidad con lo dispuesto en la Ley General de la Administración Pública.

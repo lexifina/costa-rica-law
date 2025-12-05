@@ -1,0 +1,1 @@
+Artículo 15°- De las zonas de carga y descarga. Las zonas dispuestas para carga y descarga deberán utilizarse únicamente con tal finalidad. La Municipalidad será vigilante y coordinará con las autoridades respectivas la remoción de vehículos aparcados en estas.
