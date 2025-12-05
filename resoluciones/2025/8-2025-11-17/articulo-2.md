@@ -1,0 +1,2 @@
+Artículo 2. Medio para pagar el timbre Fiscal. Los obligados tributarios que deban cancelar el Timbre Fiscal en los actos jurídicos y sus insumos (papel legal), y/o actos administrativos en los cuales se encuentre vigente el cobro de dicho impuesto, lo realizarán por medio del Banco de Costa Rica, sea en ventanillas o en las plataformas digitales que dicho ente disponga al efecto.
+En estos casos, el Banco de Costa Rica deberá emitir el respectivo comprobante con la indicación del monto pagado y el tipo de acto en concreto por el que se cancela el timbre fiscal.

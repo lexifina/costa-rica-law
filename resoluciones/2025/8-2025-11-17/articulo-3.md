@@ -1,0 +1,1 @@
+Artículo 3. Derogatoria. Se deja sin efecto la resolución N°MH-DGT-RES-0016-2023 de las 09:00 horas del 20 de julio del 2023, publicada en el Alcance N°149 a La Gaceta N°145 del 10 de agosto del 2023, denominada: "Base imponible y vigencia de timbres fiscales en estampilla o del entero de pago de timbres fiscales."
