@@ -1,0 +1,1 @@
+Artículo 11.- Propiedad intelectual del Festival Grano de Oro. La Municipalidad de San José se reserva todos los derechos para hacer uso no comercial de las grabaciones, transmisiones, imágenes y demás material audiovisual tomado de obras presentadas.

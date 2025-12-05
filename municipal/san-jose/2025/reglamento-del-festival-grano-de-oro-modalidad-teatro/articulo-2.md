@@ -1,0 +1,6 @@
+Artículo 2. Definiciones. Para efectos del presente proyecto de reglamento se tendrán las siguientes definiciones:
+a) Teatro aficionado: Es el teatro que es representado por actores y actrices que no han recibido formación académica teatral, no han participado en grupos de teatro profesionales y no reciben remuneración por sus representaciones.
+b) Grupo participante: Son grupos de actores y actrices que se unen para representar una obra teatral.
+c) Obra teatral: Es una representación artística que consiste en la puesta en escena de una trama o una historia ficcional o que representa la realidad, a través de uno o varios actricesactores, decorados y distintos elementos escénicos, de acuerdo con lo establecido en un texto dramático.
+d) Reconocimiento: Es un reconocimiento oficial que se le otorga a algunos participantes por la excelencia en su trabajo en la obra de teatro y que se consideran ganadores del Festival Grano de Oro en su modalidad Teatro.
+e) Director(a): Es la persona que dirige la puesta en escena de una obra de teatro. Es la mente creativa de la obra y es responsable de la visión general del espectáculo. En este festival es la única persona que puede ser profesional del teatro.
