@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de ayudas temporales y subvenciones en el cantó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-16 | la propia norma |
+| 2 | 2025-12-08 | Reglamento municipal 136 (2025-12-08) |
