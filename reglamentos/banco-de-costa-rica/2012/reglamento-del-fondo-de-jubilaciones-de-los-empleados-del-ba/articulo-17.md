@@ -1,3 +1,0 @@
-Artículo 17. De las funciones, atribuciones y responsabilidades del Tesorero de la Junta Administrativa.
-1. Velar por el cumplimiento de la contabilidad, inversiones, procesos de riesgo y actuariales, de forma que se conozca la situación de las finanzas del fondo. Para todo lo anterior se apoyará con la estructura administrativa existente o bien con el gestor o la estructura que la entidad contratada provea, en caso de haberse delegado la administración del Fondo.
-2. Emitir su opinión y voto para aprobar, rechazar o abstenerse, de cualquier iniciativa, propuesta o situación que lo requiera, dejando evidencia de su postura.

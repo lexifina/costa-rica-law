@@ -1,2 +1,0 @@
-Artículo 27. De los recursos de la persona trabajadora ingresada antes del 18 de febrero del 2000
-Los trabajadores que ingresaron a laborar para el Banco de Costa Rica antes del 18 de febrero del año 2000, fecha en que se publicó la Ley de Protección al Trabajador, y que cesen en el servicio del Banco, tendrán derecho a que se pongan a su disposición los fondos correspondientes a las sumas individualizadas, lo cual imposibilita y deja sin efecto los otros beneficios que se pudieran derivar de la aplicación de este Reglamento.

@@ -1,4 +1,0 @@
-Artículo 33. Solicitud de la pensión complementaria
-La persona pensionada debe presentar a la entidad administradora elegida para la administración del Fondo, la certificación que acredite el derecho de pensión por vejez, invalidez o enfermedad terminal.
-Igualmente si la persona trabajadora tuviera algún beneficio de otro régimen o el beneficio de pensión por muerte, en su condición de beneficiario; debe presentar la certificación que haga constar lo indicado.
-Adicionalmente, debe presentar el documento de identificación vigente y en buen estado. En caso de que la gestión se realice por medio de un apoderado especial, general o generalísimo, se debe adjuntar certificación original expedida por el Registro Público Nacional o por Notario Público donde conste que el apoderado posee facultades suficientes para el acto.

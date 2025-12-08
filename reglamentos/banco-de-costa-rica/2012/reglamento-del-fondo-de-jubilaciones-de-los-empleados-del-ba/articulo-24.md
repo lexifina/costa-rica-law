@@ -1,4 +1,0 @@
-Artículo 24. De la forma de llevar la contabilidad
-La contabilidad del Fondo se debe llevar conforme a las Normas Internacionales de Contabilidad, el Plan de Cuentas establecido por el Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de IVM y las disposiciones legales vigentes, en la forma que determina la técnica y consistirá de tantos libros principales y auxiliares, registros y archivos, como sea necesario para determinar exactamente la situación financiera del Fondo en cualquier momento.
-Se llevará una cuenta con los saldos individualizados de cada afiliada(o), llamada Cuenta de Capitalización Individual, y otra para el manejo de las pensiones en curso de pago; además, de las que consideren conveniente para el registro contable de sus operaciones.
-Esta contabilidad será independiente ala del Banco o la de la entidad administradora.
