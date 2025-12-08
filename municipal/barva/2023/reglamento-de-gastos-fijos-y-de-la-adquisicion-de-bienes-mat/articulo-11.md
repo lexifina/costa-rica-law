@@ -1,1 +1,0 @@
-Artículo 11.-Derogatorios. El presente reglamento deroga el Reglamento de Adquisiciones de Bienes, Materiales, Obras y Servicios de la Municipalidad de Barva y cualquier otra disposición reglamentaria que se le oponga.
