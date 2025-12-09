@@ -18,3 +18,4 @@ Reglamento de metodología de fijación y operación de tasas municipales del Ca
 | 3 | 2018-05-18 | Reglamento municipal 0 (2018-05-18) |
 | 4 | 2019-02-07 | Reglamento municipal 0 (2019-02-07) |
 | 5 | 2022-04-26 | Reglamento municipal 82 (2022-04-26) |
+| 6 | 2025-12-09 | Reglamento municipal 84 (2025-12-09) |
