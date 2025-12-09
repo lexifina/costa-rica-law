@@ -1,6 +1,6 @@
-Artículo 51º.- Autorización previa y presentación de facturas. Para el reconocimiento de los gastos de representación ocasionales será indispensable, además de la autorización previa que exige el Artículo 7º, la presentación de las correspondientes facturas, acompañadas de una justificación con el siguiente detalle:
-Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
-Nombre y firma del funcionario responsable del pago.
-Motivo de la atención.
-Clase o tipo de atención.
-El incumplimiento de este requisito obligará a reintegrar la suma que se hubiere girado como adelanto por ese concepto.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 51º.- Reconocimiento de gastos conexos. Los gastos conexos del evento o actividad a los que el funcionario asistiere podrán ser reconocidos. Para tales efectos se considera gastos conexos las cuotas de inscripción en el evento, el alquiler de equipo didáctico o de apoyo para hacer presentaciones o exposiciones y el lugar en que se harán estas, la adquisición o reproducción de material bibliográfico siempre que sea para entregar a la biblioteca del organismo público al que pertenece el servidor, las llamadas telefónicas oficiales a nuestro país y los faxes, los gastos correspondientes al uso oficial de servicios de Internet y cualesquiera otros establecidos como tales en el acuerdo de viaje. La autorización de gastos conexos debe estar contenida en el respectivo acuerdo de viaje, conforme lo dispone el artículo 31°(*) de este Reglamento. Estos gastos se pagarán únicamente contra la presentación de la (s) respectiva (s) factura (s) al momento de hacer la liquidación.
+(*) (Actual artículo 30)
+(Así reformado por resolución R-DC-92-2009 del 19 de noviembre de 2009, y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
+(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-00141-2025 del 9 de diciembre de 2025, que lo traspaso del antiguo artículo 52 al artículo 51. Lo anterior ya que por medio del numeral 2 de la resolución antes mencionada, se derogó el artículo 19, y se ordenó ajustar la numeración de los restantes artículos)

@@ -1,3 +1,12 @@
-Artículo 30º.- Becarios o estudiantes. Los gastos que realicen los funcionarios de los entes públicos en calidad de estudiantes o becarios, en cursos con una duración mayor a treinta días, se regulan en el respectivo contrato de beca y en las disposiciones legales pertinentes. Estos no podrán recibir monto alguno por concepto de viático; sin embargo, la Administración queda facultada para otorgar un subsidio, el cual, conjuntamente con la beca que reciba, no podrá exceder del 75% del monto de las tarifas que señala el Artículo 34º.
-En los casos en que la Administración lo estime conveniente podrá solicitar al becario o estudiante que justifique el gasto realizado con el subsidio asignado.
-Para los efectos de este artículo no se consideran becarios o estudiantes a los funcionarios que viajen a seminarios, congresos o cónclaves cuyo período de duración sea inferior a treinta y un días. En todos los demás casos se aplicarán las disposiciones de este artículo, incluyendo aquellos en que la duración del curso o evento, de acuerdo con el respectivo programa, es mayor de treinta días y el funcionario participa por un período inferior a treinta y un días, o sea sólo de una parte del curso.
+Artículo 30º.- Requisitos del acuerdo de viaje. Para que un funcionario tenga derecho a recibir el importe correspondiente a gastos de viaje al exterior, debe existir un acuerdo previo en que se autorice el viaje y en donde se señale como mínimo:
+a) Nombre del funcionario.
+b) Cargo que desempeña el servidor.
+c) Países a visitar.
+d) Período del viaje.
+e) Objetivos del viaje.
+f) Monto desglosado de las sumas adelantadas con su respectivo concepto.
+g) Gastos conexos autorizados.
+h) Otros gastos necesarios autorizados.
+La Autoridad Superior Administrativa o el jerarca, según sea el caso, podrá, -ante casos debidamente razonados y justificados por el funcionario interesado-, reconocer a posteriori el pago de viáticos, gastos de transporte y otros gastos necesarios incurridos durante la gira, no previstos en el acuerdo de viaje, para lo cual se hará las ampliaciones correspondientes al acuerdo de viaje original.
+(Así reformado por resolución R-DC-92-2009 del 19 de noviembre de 2009, y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
+(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-00141-2025 del 9 de diciembre de 2025, que lo traspaso del antiguo artículo 31 al artículo 30. Lo anterior ya que por medio del numeral 2 de la resolución antes mencionada, se derogó el artículo 19, y se ordenó ajustar la numeración de los restantes artículos)

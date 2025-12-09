@@ -1,8 +1,1 @@
-Artículo 55º.- Vigencia. Rige a partir de su publicación.
-Lic. Luis Fernando Vargas Benavides
-CONTRALOR GENERAL DE LA REPUBLICA
-LGRA:mst
-ci: Archivo General
-Autorizaciones y Aprobaciones
-Autorizaciones, Aprobaciones y Certificaciones
-Of. No. DI-AA-1240
+Artículo 55º.- (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 54, ya que por medio del artículo 2° de la resolución N° R-DC-00141-2025 del 9 de diciembre de 2025, se derogó el artículo 19, y se ordenó ajustar la numeración de los restantes artículos)

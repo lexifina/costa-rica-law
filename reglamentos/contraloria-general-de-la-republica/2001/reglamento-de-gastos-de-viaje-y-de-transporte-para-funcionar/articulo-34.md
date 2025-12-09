@@ -1,12 +1,4 @@
-Artículo 34º.- Tarifas en el exterior del país. La suma diaria por concepto de viáticos en el exterior para sufragar gastos de hospedaje, alimentación y otros gastos menores por lavado y planchado de ropa y traslados dentro de la ciudad, se regirá por las tarifas de la siguiente tabla:
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-(Así modificado por Resolución número R-DC-00126-2024 de las dieciséis horas del veintidós de noviembre de dos mil veinticuatro, publicada en La Gaceta N o 230 del 06 de diciembre de 2024).
-Las tarifas correspondientes a países no considerados en la tabla anterior deben ser solicitadas, para cada caso, en forma escrita, a la Contraloría General de la República, con un mínimo de cinco días hábiles de antelación a la fecha de inicio del viaje, indicándose al menos, el nombre y cargo de cada uno de los funcionarios que viajen en esa misión oficial, las fechas previstas de salida y de regreso a Costa Rica y las ciudades a visitar. Además se deberá enviar copia de la invitación al evento y documentos anexos a ésta remitidos por los organizadores.
-(Así reformado resolución N° DC-00126-2024 del 22 de noviembre de 2024)
+Artículo 34º.- Desglose de la tarifa. Cuando fuese necesario hacer un desglose de las tarifas incluidas en la tabla del artículo anterior, se asignará a cada servicio o concepto de gasto los siguientes porcentajes, a hospedaje hasta un sesenta por ciento, a desayuno hasta un ocho por ciento, a almuerzo y cena hasta un doce por ciento cada uno y a otros gastos menores hasta un ocho por ciento.
+Cuando de acuerdo con las características y finalidades del viaje, cualquiera de los porcentajes anteriores, se estime o sea insuficiente -con base en información recabada por la Administración-, ésta podrá reconocer el exceso en el adelanto del viaje o en la liquidación de la gira, siempre y cuando en el acuerdo de viaje, o en su ampliación, así se haya previsto y se presenten las facturas o comprobantes de gastos respectivos.
+(Así reformado mediante resolución R-DC-111-2011 del 7 de julio del 2011), y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
+(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-00141-2025 del 9 de diciembre de 2025, que lo traspaso del antiguo artículo 35 al artículo 34. Lo anterior ya que por medio del numeral 2 de la resolución antes mencionada, se derogó el artículo 19, y se ordenó ajustar la numeración de los restantes artículos)

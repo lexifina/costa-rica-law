@@ -34,3 +34,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | 19 | 2021-10-12 | Resolución 95 (2021-10-12) |
 | 20 | 2022-10-04 | Resolución 102 (2022-10-04) |
 | 21 | 2024-11-22 | Resolución 126 (2024-11-22) |
+| 22 | 2025-12-09 | Resolución 141 (2025-12-09) |
