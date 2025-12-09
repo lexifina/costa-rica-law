@@ -1,5 +1,5 @@
-ARTÍCULO 13.- Nombramiento de la presidencia y vicepresidencia
-La presidencia y la vicepresidencia del Consejo Rector serán ocupadas por los ministros; estos puestos serán definidos por mayoría simple de los miembros del Consejo Rector.
+Artículo 13- Nombramiento de la presidencia y vicepresidencia. La presidencia y vicepresidencia del Consejo Rector serán ocupadas por cualquiera de los miembros señalados en el inciso a) del artículo 12 de la presente ley; estos puestos serán definidos por mayoría simple de los miembros del Consejo Rector.
+(Así reformado el párrafo anterior por el artículo único de la Ley para fortalecer el sector turismo ante el Consejo Rector del Sistema de Banca para el Desarrollo, N° 10789 del 11 de noviembre del 2025)
 La presidencia del Consejo tendrá, entre otras, las siguientes atribuciones:
 a) Conjuntamente con el director ejecutivo de la Secretaría Técnica, preparar la agenda de las sesiones del Consejo.
 b) Velar por el cumplimiento de los deberes y objetivos del SBD e informarse de la marcha general de la institución.
