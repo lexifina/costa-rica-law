@@ -1,0 +1,1 @@
+Artículo 14.-Autorización. Recibida la recomendación a la que se refiere el artículo anterior, la Alcaldía, decidirá lo que corresponda. De no estar de acuerdo con la recomendación, se pedirá criterio a la oficina de Recursos Humanos con la finalidad de tomar una decisión al respecto.

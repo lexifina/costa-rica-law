@@ -1,0 +1,1 @@
+Artículo 3º-Obligatoriedad de laborar la jornada extraordinaria. Cuando las necesidades del servicio así lo requieran, ante necesidades imprevistas o urgentes o se trate de una situación de fuerza mayor, los funcionarios deberán laborar jornada extraordinaria, lo anterior de acuerdo con las disposiciones del Código de Trabajo, artículos 135 a 145 del Código de Trabajo.

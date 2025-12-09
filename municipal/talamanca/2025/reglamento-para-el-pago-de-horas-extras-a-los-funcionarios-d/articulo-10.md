@@ -1,0 +1,2 @@
+Artículo 10.-Registro de asistencia para reconocimiento de jornada extraordinaria.
+El funcionario autorizado para laborar jornada extraordinaria deberá registrar su asistencia en el reloj marcador de la institución o por los medios que al efecto disponga la administración para su debido registro. En el caso de los funcionarios que están exentos de la marca, la administración dispondrá la forma de registrar la asistencia.

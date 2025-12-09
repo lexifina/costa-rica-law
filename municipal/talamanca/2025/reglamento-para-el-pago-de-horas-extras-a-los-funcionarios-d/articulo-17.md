@@ -1,0 +1,1 @@
+Artículo 17.-Pago de las horas extraordinarias imprevisibles. Las horas extraordinarias imprevisibles serán canceladas de conformidad con lo dispuesto por la normativa laboral vigente, según lo dispuesto en el artículo 9 del presente reglamento.
