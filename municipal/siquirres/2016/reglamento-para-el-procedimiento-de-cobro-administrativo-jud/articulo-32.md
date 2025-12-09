@@ -1,1 +1,0 @@
-Artículo 32.—Informes mensuales y su Contenido: Los informes mensuales generados por la Unidad de cobros serán responsabilidad del Encargado (a) de cobros y remitidos al Coordinador del Tributario y a la Alcaldía.

@@ -1,1 +1,0 @@
-Artículo 40.—Informes de depuración: El Encargado (a) de la depuración llevará en forma diaria a través de hoja electrónica de Excel, un registro de los casos que han sido analizados como inconsistentes. Durante los primeros 15 días del mes siguiente elaborará el informe de gestión de la depuración, el cual será remitido a la coordinación tributaria.

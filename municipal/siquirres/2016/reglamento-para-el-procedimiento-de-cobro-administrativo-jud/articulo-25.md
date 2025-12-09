@@ -1,1 +1,0 @@
-Artículo 25.—De la función de fiscalización. La función de fiscalización tiene por objeto comprobar la situación tributaria de los sujetos pasivos, con el fin de verificar el exacto cumplimiento de sus obligaciones y deberes, propiciando la regularización correspondiente.

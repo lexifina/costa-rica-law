@@ -1,3 +1,0 @@
-SECCIÓN III
-De la Estructura de Cobros de la Municipalidad
-Artículo 28.—Conformación de la Unidad de Cobros y sus fines: La unidad de cobros se encuentra incorporada como parte de la Administración Tributaria, está formada por el Encargado (a) de cobros y el personal que tuviere a cargo en forma directa e indirecta, interina, en suplencia o propiedad. Le corresponde crear e implementar los mecanismos y controles necesarios para hacer efectivo el cobro y correspondiente pago de las cuentas que están al día y las morosas, tanto administrativo, extrajudicial y judicial de la Municipalidad, en concordancia con el artículo 73 del Código Municipal.

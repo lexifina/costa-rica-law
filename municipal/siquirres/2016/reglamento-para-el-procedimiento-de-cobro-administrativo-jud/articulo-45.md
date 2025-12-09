@@ -1,1 +1,0 @@
-Artículo 45.—Seguimiento al Cumplimiento de la Estrategia. Es responsabilidad del Coordinador Tributario, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar de sus resultados a la Alcaldía y al Consejo Municipal.
