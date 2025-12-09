@@ -1,6 +1,6 @@
 # Ley Fundamental de Educación
 
-Ley N° 2160 del 1957-09-25. SINALEVI, ficha 31427: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31427&param2=144923&param3=1>.
+Ley N° 2160 del 1957-09-25. SINALEVI, ficha 31427: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31427&param2=148710&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2021-09-21 | Ley 10030 | 2021-09-30 |
 | 6 de 8 | 2022-05-31 | Ley 10198 | 2022-05-05 |
 | 7 de 8 | 2025-02-19 | Ley 10631 | 2025-01-28 |
+| 8 de 8 | 2025-12-09 | Ley 10806 | 2025-11-13 |
