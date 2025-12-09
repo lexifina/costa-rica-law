@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización para donar
+Se autoriza a la Junta de Educación Escuela La Palma San Ramón, cédula de persona jurídica tres-cero cero ocho-uno uno dos nueve cinco uno (3-008-112951 ), a donar el terreno de su propiedad desafectado en el artículo 1 de esta ley, a la Asociación de Desarrollo Integral de San Miguel de Piedades Sur de San Ramón de Alajuela, cédula de persona jurídica número tres-cero cero dos-cero nueve dos seis uno dos (n. º 3-002-092612). La donación se hará libre de gravámenes y anotaciones.
