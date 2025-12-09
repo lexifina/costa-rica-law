@@ -1,0 +1,1 @@
+Artículo 15.-Del Presupuesto. Para este año 2025 ya se encuentra presupuestado el monto para este festival, el cual se celebrará por única vez en el mes de enero 2026 y se entregarán reconocimientos en especie a los ganadores. Para el año 2026 y subsiguientes, se tendrá que programar en el POA y el presupuesto de la Municipalidad de San José de cada año.

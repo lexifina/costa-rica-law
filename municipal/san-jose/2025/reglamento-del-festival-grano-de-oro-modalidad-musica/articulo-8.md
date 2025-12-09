@@ -1,0 +1,1 @@
+Artículo 8º-Inscripción. Los grupos interesados en participar en el Festival de Teatro Grano de Oro, modalidad música deberán llenar un formulario de inscripción que para tal efecto publicará la Municipalidad anualmente por medio de sus redes sociales y la web.

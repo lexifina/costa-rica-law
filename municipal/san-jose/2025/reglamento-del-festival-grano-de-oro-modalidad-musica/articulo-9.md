@@ -1,0 +1,1 @@
+Artículo 9º-Dudas y Consultas. Las personas interesadas en participar podrán realizar sus dudas o consultas al correo electrónico: mgranados@ msj.go.cr y/o al teléfono: 2547-6396, Melissa Granados Chaves, y whernandez@msj.go.cr o los teléfonos 2547-6600 con William Hernández Picado.

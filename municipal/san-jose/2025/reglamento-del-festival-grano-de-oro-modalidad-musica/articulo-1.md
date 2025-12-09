@@ -1,0 +1,22 @@
+MUNICIPALIDAD DE SAN JOSÉ
+Reglamento del Gran Festival Grano de Oro Modalidad Música
+Acuerdo 14.2 Artículo IV de la Sesión ordinaria N° 082, celebrada por la Corporación Municipal del Cantón Central de San José, el 25 de noviembre del año Dos mil veinticinco,
+Resultando:
+1º-Que la Carta Magna de la República de Costa Rica, en sus artículos 169 y 170, les confieren a los gobiernos municipales la administración de los intereses y servicios locales del cantón.
+Considerando:
+I.-Que el Concejo Municipal de San José, mediante el acuerdo Nº 3, de la Sesión Ordinaria número 14, celebrada el día martes 6 de agosto de 2024, aprobó una moción para celebrar anualmente el Festival Grano de Oro en las categorías de Teatro y Música.
+II.-Que en el año 2024 fue materialmente imposible realizar este festival por varios motivos.
+III.-Que el festival va a realizarse en diciembre de 2025 y se continuará realizando anualmente.
+IV.-Que es necesario ordenar el funcionamiento del Festival Grano de Oro modalidad Música y dejar claramente establecidas las reglas.
+V.-Que es responsabilidad del Concejo Municipal y de la Comisión de Asuntos Culturales y Deportivos velar por el buen funcionamiento de este Festival.
+VI.-Mediante Acuerdo 13, Artículo IV de la Sesión Ordinaria No. 077, celebrada por la Corporación Municipal del Cantón Central de San José, el 21 de octubre del año Dos mil veinticinco, este Concejo Municipal aprobó el Proyecto Reglamento del Gran Festival Grano De Oro, Modalidad Música.
+VII.-Siendo que la primera publicación de este proyecto de Reglamento fue en el Diario Oficial La Gaceta # 209 el día 6 de noviembre de 2025 y durante diez días hábiles, de conformidad con el Artículo 43 del Código Municipal, se mantuvo la consulta pública no vinculante, se somete a votación el presente dictamen para aprobar la segunda y final publicación para su entrada en vigor.
+VIII.-Que el productor envía un documento en la madrugada del día 24 de noviembre del 2025, en donde indica la imposibilidad de realizar el proyecto en las fechas indicadas. Por tanto,
+Este Concejo Municipal acuerda:
+1º-Derogar el acuerdo número 13 de la Sesión Ordinaria número 80, celebrada el martes 11 de noviembre de 2025.
+2º-Siendo que la primera publicación de este proyecto de Reglamento fue en el Diario Oficial La Gaceta # 209 el día 6 de noviembre de 2025 y durante diez días hábiles, de conformidad con el Artículo 43 del Código Municipal, se mantuvo la consulta pública no vinculante, se somete a votación el presente dictamen para aprobar la segunda y final publicación para su entrada en vigor.
+3º-Por esta única vez se realizará en Gran Festival Grano de Oro, modalidad música en el mes de enero de 2026 y en adelante se llevará a cabo en el mes de diciembre de cada año, incluido diciembre 2026.
+4º-Con fundamento en las potestades conferidas por los Artículos 169, 170 de la Constitución Política, Artículo 4 inciso c) y d) del Código Municipal, emitir el presente Reglamento:
+REGLAMENTO DEL FESTIVAL GRANO DE ORO MODALIDAD MÚSICA
+Artículo 1º-Descripción. El Gran Festival Grano de Oro en la categoría de Música es un evento cultural promovido y desarrollado por la Municipalidad de San José y la Comisión de Cultura del Concejo Municipal, el cual celebra el talento musical de artistas emergentes del cantón de San José y de todo el país. Diseñado para promover la creatividad y la música inédita, este festival busca destacar las raíces culturales y la diversidad musical de nuestra nación mediante este concurso musical de canto. Con categorías que incluyen General, Típica e Infantil para solistas y general y típica para grupos, el festival ofrece una plataforma única para que los participantes presenten sus composiciones originales. Las canciones deben ser inéditas, lo que significa que no han sido interpretadas ni grabadas previamente para difusión comercial, garantizando así la autenticidad y frescura de cada presentación. El evento está abierto a músicos no profesionales, cuyo sustento no dependa de la música, y se rige por un conjunto de reglas claras que aseguran la equidad y el respeto por la tradición musical. Además, el festival cuenta con un jurado compuesto por músicos experimentados que evaluarán aspectos como la letra, melodía, armonía, arreglo musical y presentación.
+El Gran Festival Grano de Oro es una oportunidad invaluable para que los artistas compartan su pasión por la música, conecten con el público y contribuyan al enriquecimiento cultural de nuestro país. ¡Inscríbete y forma parte de esta celebración musical!
