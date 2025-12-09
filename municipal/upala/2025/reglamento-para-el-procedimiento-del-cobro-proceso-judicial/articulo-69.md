@@ -1,0 +1,1 @@
+Artículo 69.- Determinación del monto: Para la determinación del monto exiguo se utilizarán factores de decisión, entre los que destacan, el costo de los recursos humanos, el costo de los recursos materiales, así como gastos indirectos, entre otros. Este monto será actualizado de manera anual, y deberá contar con la aprobación del Concejo Municipal.

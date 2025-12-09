@@ -1,0 +1,1 @@
+Articulo 53.- Rechazo: Se procederá a rechazar el reclamo cuando posterior al análisis e investigación de la información se determine que la Municipalidad no está realizando acciones lesivas a los derechos e intereses del contribuyente debidamente comprobados, dicho rechazo deberá de comunicarse al contribuyente por medio del oficio de respuesta.

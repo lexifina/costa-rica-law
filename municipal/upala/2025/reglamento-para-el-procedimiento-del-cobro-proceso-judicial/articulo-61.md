@@ -1,0 +1,2 @@
+Artículo 61.- Rechazo: En caso de que la solicitud sea rechazada, se debe de realizar la respuesta de esta con los motivos por los cuales se rechaza la solicitud, aportando la documentación probatoria mediante oficio el cual deberá de ir firmado por el funcionario de la oficina de cobros que realiza la recopilación de la información, así como el del (la) coordinador de gestión tributaria.
+Dicho oficio deberá de ser comunicado al contribuyente a través del medio de notificación aportado.

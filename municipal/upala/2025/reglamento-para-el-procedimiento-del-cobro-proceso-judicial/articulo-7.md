@@ -1,0 +1,1 @@
+Artículo 7.- Períodos al Cobro. Los tributos que cobra la municipalidad de Upala serán puestos al cobro desde el primer día hábil de cada año, con excepción de las patentes que se pondrán al cobro para el primer trimestre en el mes de diciembre del año anterior.

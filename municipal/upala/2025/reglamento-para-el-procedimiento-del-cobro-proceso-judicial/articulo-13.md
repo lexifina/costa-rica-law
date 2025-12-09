@@ -1,0 +1,3 @@
+Artículo 13.- Clasificación. Los encargados de la Oficina de Cobros deberán generar un reporte de
+las cuentas morosas. Para tales efectos se consideran como variables: el nombre del contribuyente, número de cédula, período, monto adeudado, tipo de tributo u obligación, origen de la deuda y ubicación geográfica, todo ello en forma automatizada.
+Estos reportes contendrán el detalle de las cuentas por cobrar, clasificándolas por monto adeudado o por antigüedad de la deuda según se determine, atendiendo que la deuda sea líquida y exigible y esté firme. Este registro se respaldará mediante archivos informáticos contemplando las deudas por cobrar en la vía administrativa, según las condiciones con las que cuente la Municipalidad.

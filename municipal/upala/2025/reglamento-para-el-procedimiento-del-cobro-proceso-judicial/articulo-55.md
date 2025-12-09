@@ -1,0 +1,3 @@
+Artículo 55.- Devolución: Toda devolución por concepto de tributos o tasas, se efectuará con cargo a la partida de ingresos del ejercicio económico en que se ejecute la devolución, la cual deberá de ser solicitada por medio de oficio con el adjunto de la respuesta del reclamo a la oficina financiero contable, la misma deberán emitirse y firmarse por parte del funcionario de la oficina de cobros que esté a cargo del reclamo y del (la) coordinador de gestión tributaria.
+Posterior a ello deberá de remitirse al contribuyente por el medio señalado para notificaciones el comprobante de la devolución.
+El termino para la acción de solicitar la devolución prescribe transcurridos cuatro años a partir del día siguiente a la fecha en que se efectuó el pago.

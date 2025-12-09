@@ -1,0 +1,1 @@
+Artículo 74-Gestión de declaratoria de Tributos Incobrables: La coordinación de gestión tributaria, trasladará la solicitud de incobrabilidad el (la) alcalde a fin de que este último realice la aprobación o rechazo de la petición y será los encargados de realizar la declaratoria de incobrabilidad de una deuda y se deberá realizar mediante un análisis de cumplimiento.

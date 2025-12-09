@@ -1,0 +1,1 @@
+Artículo 18.- Gestiones. Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la oficina de cobros entregará los expedientes a los abogados para el inicio de proceso de cobro judicial, así como la documentación necesaria para que inicien los trámites judiciales.

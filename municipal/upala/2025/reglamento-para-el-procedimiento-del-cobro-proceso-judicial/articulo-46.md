@@ -1,0 +1,1 @@
+Artículo 46.- Pago. Todo pago de impuestos, multas e intereses lo realizará el contribuyente ante la oficina de Cobro en la caja recaudadora y le entregará una copia del recibo al abogado director del proceso judicial a efecto de que sea suspendido el juicio respectivo.

@@ -1,0 +1,3 @@
+SECCION IV
+NOTIFICACIONES DE COBRO ADMINISTRATIVO
+Artículo 25.- Procedimiento. Las notificaciones serán entregadas por los notificadores municipales, abogados o quien designe la Municipalidad, las mismas serán generadas por los funcionarios municipales de la oficina de cobros y asignarán las rutas para su entrega. La notificación contendrá dos copias una que quedará resguardada en la oficina de cobros y otra que será entregada al contribuyente, luego de transcurrido 15 días y al no obtener apersonamiento por parte del contribuyente o cancelación de deuda se procederá a trasladar el expediente a los abogados encargados del cobro judicial.

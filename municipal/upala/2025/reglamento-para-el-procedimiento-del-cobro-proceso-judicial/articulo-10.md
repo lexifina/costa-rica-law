@@ -1,0 +1,4 @@
+Artículo 10.- Etapas de la recaudación. La función de recaudación es el conjunto de actividades que realiza la Coordinación de Gestión Tributaria Municipal destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales de los contribuyentes. La función recaudadora se realizará en tres etapas sucesivas:
+. En la etapa voluntaria, el sujeto pasivo de la obligación dineraria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte de la Oficina de Cobros.
+. En la etapa administrativa, la Oficina de Cobro ejecutará la gestión de cobro a los sujetos pasivos morosos, cuando sea necesario.
+. En la etapa ejecutiva, la recaudación se efectúa utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos, a través de los abogados externos o internos contratados.

@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DEL PROCEDIMIENTO JUDICIAL Y EXTRAJUDICIAL
+Artículo 41.- Traslado. Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la Oficina de Cobro será la encargada de entregar la documentación necesaria al abogado municipal o los abogados externos, para que inicien los trámites judiciales. A fin de que haya mayor equidad, la oficina de Cobro hará la distribución de las cuentas que se asignan a cobro judicial, tomando en consideración el rol del o los abogados y el monto a ejecutar judicialmente. No se tomarán en cuenta aquel abogado que se encuentren suspendido o no cumplan con las disposiciones establecidas en su contratación.

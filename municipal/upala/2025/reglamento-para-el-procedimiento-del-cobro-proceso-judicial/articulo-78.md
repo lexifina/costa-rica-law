@@ -1,0 +1,1 @@
+Artículo 78. Mancha a nivel de entidades consultoras de crédito: Se reportará a la empresa contratada por la municipalidad para la consulta de datos a nivel nacional, para que realice el reporte ante las entidades correspondientes.

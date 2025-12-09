@@ -1,0 +1,1 @@
+Artículo 38.- De la terminación del arreglo de pago. El convenio de arreglo de pago se tendrá por terminado únicamente ante el pago total que realice el sujeto pasivo de la cuenta morosa, en caso de que no cumpla con los pagos, se remitirá inmediatamente el expediente a la etapa de cobro judicial.

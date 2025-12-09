@@ -1,0 +1,1 @@
+Artículo 82.- Entrada en vigencia. El presente Reglamento rige a partir de su publicación por segunda vez en el Diario Oficial La Gaceta y deroga expresamente Reglamento para el Procedimiento del Cobro Administrativo y Judicial de la Municipalidad de Upala publicado en el Diario Oficial La Gaceta anteriormente.

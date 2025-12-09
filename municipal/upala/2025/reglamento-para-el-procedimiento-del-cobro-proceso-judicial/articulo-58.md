@@ -1,0 +1,1 @@
+Artículo 58. - Computo: El término de prescripción para cobrar las sumas sobre el impuesto de bienes inmuebles será de tres años y en el caso de los tributos municipales, el plazo de prescripción es de cinco años.

@@ -1,0 +1,1 @@
+Artículo 79. Procedimiento: Los sujetos a este reporte serían los contribuyentes que se encuentren en mora por más de 90 días naturales, dicho reporte se actualizara mensualmente a la empresa que brinda el servicio de consulta de datos a nivel Nacional.

@@ -1,0 +1,1 @@
+Artículo 30.- Colaboración a los funcionarios de la Administración Tributaria Municipal. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios de la Administración Tributaria Municipal y prestarles la mayor colaboración en el desarrollo de su función.

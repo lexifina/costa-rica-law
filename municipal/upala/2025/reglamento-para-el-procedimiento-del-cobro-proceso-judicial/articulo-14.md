@@ -1,0 +1,1 @@
+Artículo 14.- Avisos: Las acciones consistirán en llamadas telefónicas, publicaciones generales, remisión de correos electrónicos, mensajes de textos u otros medios tecnológicos con los que cuente la municipalidad, con el fin de realizar un recordatorio de las deudas en mora
