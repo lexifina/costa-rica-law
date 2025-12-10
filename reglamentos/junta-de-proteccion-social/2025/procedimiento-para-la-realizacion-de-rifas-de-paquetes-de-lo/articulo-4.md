@@ -1,0 +1,2 @@
+Artículo 4º-Detalle de los premios
+Entre todas las personas mayores de 18 años, nacionales o extranjeras que completen correctamente la raspa y con letra legible y la haya depositado en los buzones identificados se extraerán 5 ganadores de un paquete de Lotería Instantánea cada uno. En total se rifarán 5 paquetes de raspas por evento (según lo que disponga la Junta, conforme a la mecánica de participación definida en el artículo 3) de este procedimiento.

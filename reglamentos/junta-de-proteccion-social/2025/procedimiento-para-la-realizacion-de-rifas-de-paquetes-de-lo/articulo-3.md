@@ -1,0 +1,7 @@
+Artículo 3º-Mecánica de participación
+Podrá participar en esta promoción toda persona física mayor de 18 años, nacional o extranjera, que complete correctamente y con letra legible la raspa con los datos personales, nombre completo, número de cédula de identidad, en el reverso y la deposite en los buzones oficiales habilitados por la institución.
+Los lugares, las fechas y horarios en que se realizarán estos eventos se comunicarán oportunamente en la página oficial de la Junta en la red social Facebook.
+No podrán participar los funcionarios de la Junta de Protección Social, los miembros de Junta Directiva ni los vendedores autorizados que comercialicen sorteos de Lotería Nacional y Lotería Popular y Lotería Instantánea durante los eventos, dentro del lugar de venta.
+Una misma persona solo podrá ser seleccionada una vez por sorteo realizado.
+No participan de esta promoción personas menores de 18 años.
+Las personas que deseen participar en cada evento deben estar dispuestos a estar presentes durante la rifa de los paquetes de Lotería Instantánea con su documento de identificación (vigente y en buen estado de conservación), pues no es permitido, para este tipo de actividades, la figura de un representante. En caso de que estén presentes y no porten su documento de identificación para validar la participación, se extraerá otra raspa con los datos de otro participante que porte el documento de identificación y así sucesivamente hasta que un participante porte el documento de identificación, del buzón previamente establecido para tal fin.
