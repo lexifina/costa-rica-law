@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 37.-De la vigencia: El presente reglamento entrará a regir a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 37.-Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración contra los acuerdos del Comité Director del Fideicomiso, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado.

@@ -1,4 +1,4 @@
-Artículo 3º-Integración del Comité Director. El Comité estará compuesto por cinco miembros que serán los siguientes:
+Artículo 3.-Integración del Comité Director. El Comité estará compuesto por cinco miembros que serán los siguientes:
 1. La Presidenta Ejecutiva del IMAS o su representante; quien ejercerá la presidencia del Comité
 2. El Director de Desarrollo Social del IMAS o su representante;
 3. El Ministro de Agricultura y Ganadería o su representante;

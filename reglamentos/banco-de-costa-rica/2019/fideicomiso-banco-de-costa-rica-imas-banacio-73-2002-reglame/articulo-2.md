@@ -1,4 +1,4 @@
-Artículo 2º-Definiciones:
+Artículo 2.-Definiciones:
 1. Comité Director del Fideicomiso: Cuerpo colegiado de alto nivel.
 2. Contrato de Fideicomiso: Se refiere al contrato de administración fiduciaria posteriores modificaciones, suscrito entre el IMAS, Banco Nacional de Costa Rica y el Fiduciario, hoy Banco de Costa Rica. Fideicomiso denominado "BANCO DE COSTA RICA-IMAS-BANACIO/73-2002".
 3. Convenio marco de cooperación Interinstitucional o CONVENIO: Se refiere al acuerdo suscrito entre el IMAS y el Banco Nacional de Costa Rica para la atención de la demanda de crédito y otros servicios financieros de la población definida y calificada por el IMAS.
@@ -14,7 +14,8 @@ Artículo 2º-Definiciones:
 13. Participantes del Comité Director: Se refiere a los asistentes que participan de las sesiones del Comité Director, únicamente con derecho a voto.
 14. PROGRAMA: Programa de Apoyo a la Microempresa, según lo establecido en el CONVENIO y el Contrato de Fideicomiso.
 15. Representante del miembro del Comité Director: Persona que representa, en caso de ausencia, a un miembro del Comité Director.
-16. Secretaria Comité Director:
-17. Secretaria de actas:
-18. Subgerencia de Desarrollo Social: Subgerencia de Desarrollo Social del IMAS.
-19. Unidad Ejecutora: Unidad técnica especializada del Fideicomiso, cuya operación y funcionamiento se rige por lo dispuesto en el CONVENIO y el Contrato de Fideicomiso.
+16. Secretaria Comité Director: La Secretaría del Comité Director es el cargo designado por el propio Comité Director, mediante elección interna, para un periodo de dos años contados a partir de su nombramiento.
+17. Secretaria de actas: Persona trabajadora de la Unidad Ejecutora
+18. Sistema Argos: Sistema automatizado de la Auditoría Interna de IMAS, que considera la legalización de los libros legales de actas del Comité Director.
+19. Dirección de Desarrollo Social: Dirección de Desarrollo Social del IMAS.
+20. Unidad Ejecutora: Unidad técnica especializada del Fideicomiso, cuya operación y funcionamiento se rige por lo dispuesto en el CONVENIO y el Contrato de Fideicomiso.

@@ -1,4 +1,4 @@
-Artículo 5º-Atribuciones del Comité Director. Son atribuciones y deberes del Comité Director:
+Artículo 5.-Atribuciones del Comité Director. Son atribuciones y deberes del Comité Director:
 1. Aprobar el monto de los rendimientos generados por la totalidad de los recursos fideicometidos que será capitalizado.
 2. Autorizar la aplicación de una tasa de interés preferencial para las operaciones crediticias que se tramiten como parte del CONVENIO.
 3. Conocer y aprobar los informes y estados financieros suministrados por la FIDUCIARIA.
@@ -18,7 +18,9 @@ Artículo 5º-Atribuciones del Comité Director. Son atribuciones y deberes del 
 17. Declarar la incobrabilidad considerando aspectos de interés institucional.
 18. Conocer y aprobar el plan de servicios de apoyo anual.
 19. Conocer y aprobar el Plan Operativo y Presupuesto anual del Fideicomiso y sus modificaciones.
-20. Conocer y resolver de oficio o a instancia de partes, los recursos administrativos que se presenten en contra de las resoluciones o actos adoptados por la persona representante del Gerente de la Unidad Ejecutora.
+20. Conocer y resolver de oficio o a instancia de partes, los recursos administrativos que
+se presenten en contra de las resoluciones o actos adoptados por la persona
+representante del Gerente de la Unidad Ejecutora.
 21. Autorizar a las personas representantes del Comité Director para el trámite y firma, de manera mancomunada con la Unidad Ejecutora de las solicitudes de desembolso con cargo del Fideicomiso.
 22. Conocer y aprobar los informes periódicos sobre el avance y cumplimiento de las metas y objetivos de los programas del Fideicomiso, de forma consolidada y por Área de Desarrollo Social.
 23. Conocer y aprobar los Planes de Acción que son elaborados por la persona que ocupa el puesto de Gerente de la Unidad del Fideicomiso, para el cumplimiento de metas y objetivos.

@@ -1,4 +1,4 @@
-Artículo 7º-Impedimentos, Excusas, Inhibición y Recusación. Todo miembro del Comité Director o el representante, deberá abstenerse de participar en decisiones en las que su imparcialidad esté en riesgo, tales como:
+Artículo 7.-Impedimentos, Excusas, Inhibición y Recusación. Todo miembro del Comité Director o el representante, deberá abstenerse de participar en decisiones en las que su imparcialidad esté en riesgo, tales como:
 1) Asuntos laborales: permisos, trámites administrativos, licencias, y otros relacionados con su cargo.
 2) Asuntos en que se pueda beneficiar u otorgar prerrogativas a parientes por consanguinidad, hasta en segundo grado inclusive.
 3) Asuntos en los que haya existido o exista relación contractual o de prestación de servicios profesionales, con un periodo previo inferior o igual a un año, con proveedores o personas beneficiarias de los servicios del Fideicomiso que deban ser aprobadas por el Comité.
