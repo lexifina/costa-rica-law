@@ -473,9 +473,7 @@ El plazo establecido para la actualización de los valores permite la revisión 
 Las instalaciones eléctricas para la operación de los cargadores de los autobuses eléctricos, de acuerdo con lo establecido por la Junta Directiva del Consejo de Transporte Público, deberán ser capaces de conectarse a un suministro de energía eléctrica trifásico con una tensión nominal de acuerdo con los voltajes oficiales en el país tipificados en la norma "Supervisión de la calidad del suministro eléctrico en baja y media tensión" (AR-NT-SUCAL).
 El método de depreciación para estos conjuntos activos es el de la línea recta, considerando que los activos sufren un desgaste igual y constante con el paso del tiempo, a lo largo de la vida útil de éstos. No se considera un valor de rescate de las instalaciones eléctricas y electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos al final de su vida útil.
 En el Cuadro 11 se muestran los factores de depreciación anual y las vidas útiles para las instalaciones eléctricas y electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos: Cuadro 11. Factores de depreciación anual y vidas útiles para las instalaciones eléctricas y electromecánicas para la operación de los cargadores de los vehículos con reglas de cálculo tarifario tipo 3
-[imagen]
 Para obtener la depreciación mensual de las instalaciones eléctricas y electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos, se multiplica el factor de depreciación anual por el valor de cada conjunto de activos y se divide entre doce, para expresarlo en forma mensual, lo que se refleja mediante la ecuación:
-[imagen]
 Donde:
 CDICr = Costo mensual de depreciación de la infraestructura eléctrica y electromecánica para la operación de los cargadores de las baterías de los vehículos con reglas de cálculo tarifario tipo 3 en la ruta "r". Este rubro estará expresado en colones.
 fdiec= Factor de depreciación anual de las instalaciones eléctricas para la operación de los cargadores de las baterías de los vehículos del conjunto de unidades "ε". Este factor se detalla en el Cuadro 11.
@@ -547,7 +545,7 @@ SD = Salario mensual de los despachadores o chequeadores. Corresponde al salario
 Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
 csd = Coeficiente por sobresueldo a los despachadores o chequeadores en la ruta "r". Este coeficiente es tomado del MOPT (1997) y se presenta en el siguiente Cuadro 9.
 (Nota de Sinalevi: Mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025, se acordó modificar el contenido del cuadro 8 y correr su numeración de la sección 4.4.2. No obstante al no coindicier la eforma con el cuadro 8 ni el cuadro 12 que se publicó en dicha resolución se trascribe la misma:
-[imagen] ")
+")
 Cuadro 9. Coeficiente de sobresueldo de despachadores o chequeadores para cualquier tipo de ruta
 Coeficiente de sobresueldo de chequeadores
 0,20
@@ -560,7 +558,6 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 c. Costos por los salarios de los mecánicos
 El cálculo de los costos mensuales por los salarios de los mecánicos (CSMAr) se realiza de la siguiente forma:
-[imagen]
 (Así reformado la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 CSMAr = Costo mensual por salarios de los mecánicos en la ruta "r". Este rubro estará expresado en colones.
@@ -612,7 +609,6 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 (Nota de Sinalevi: Mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025, se acordó modificar la sección "4.4.2.c. Costos por los salarios de los mecánicos" modificar la ecuación 14, correr su numeración, modificar la descripción de sus variables y el penúltimo párrafo de la sección. No obstante al no coincidir la reforma se trascribe a continuación:
 Cuadro 16. Coeficiente de ahorro en horas de mantenimiento de un autobús propulsado por un motor eléctrico respecto a uno propulsado por un motor de diésel
-[imagen]
 SME = Salario mensual de los mecánicos de autobuses que utilizan un motor eléctrico como medio de propulsión alimentados por baterías. Corresponde al salario mínimo por jornada ordinaria decretado por el MTSS de Costa Rica, vigente al día de la audiencia pública de la aplicación de esta metodología, según la ocupación indicada en el Cuadro 12 anterior, y multiplicado por 26 días laborales correspondiente al factor de días laborales para obtener el valor mensual.
 FEr = Cantidad total de unidades de la flota autorizada de la ruta "r" con reglas de cálculo tarifario tipo 3. Corresponde a las unidades autorizadas que utilizan un motor eléctrico como medio de propulsión alimentadas por baterías.
 CS = Factor de cargas sociales según la legislación vigente. Ver Cuadro 13.
@@ -701,7 +697,6 @@ r = Ruta de transporte remunerado de personas.
 4.4.5 Costos en repuestos y accesorios
 El costo mensual en repuestos y accesorios (CRAr) se determina como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús, para los vehículos con las reglas de cálculo tarifario tipo 1, tipo 2 y tipo 3 que conforman la flota autorizada de la ruta. Nótese que esta formulación toma en cuenta la cantidad de unidades y los valores tarifarios según la edad y el tipo de vehículo utilizado en la ruta. El costo mensual en repuestos y accesorios se determina mediante la siguiente ecuación:
 (Así reformado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 CRAr = Costo mensual en repuestos y accesorios de la ruta "r". Este rubro estará expresado en colones.
@@ -732,7 +727,6 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 Cuadro 18. Coeficiente de ahorro en repuestos y accesorios de mantenimiento de un autobús propulsado por un motor eléctrico respecto a uno propulsado por un motor de diésel.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
-[imagen]
 (Así adicionado el cuadro anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 𝑽𝑻𝑨𝑭𝑫𝒓 𝜺 =Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "ε" valoradas como si fueran unidades propulsadas con motores de diésel. Los valores tarifarios indicados se determinan según lo señalado en la sección 4.9.2 de esta metodología, expresados en colones.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
@@ -1469,17 +1463,14 @@ El factor de rentabilidad anual del capital invertido en el equipo de validació
 (*) (Así adicionada la sección d. Rentabilidad del capital invertido en el equipo de validación requerido para el sistema de pago electrónico anterior mediante resolución N° RE-0093-JD-2023 del 28 de agosto de 2023. Note´se que ya existe una sección d", en la sección "4.6.2. Rentabilidad del capital asociado a los activos fijos")
 (*)f. Rentabilidad del capital invertido en las baterías para autobús eléctrico La rentabilidad mensual del capital invertido en las baterías para autobús eléctrico (RBr), se calcula multiplicando el factor de rentabilidad de las baterías por el valor de las baterías y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido en las baterías para autobús eléctrico se obtiene al deducir el factor de la depreciación acumulada considerando que las baterías se deprecian de acuerdo con lo indicado en la sección 4.4.1.e, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frb = Factor de rentabilidad anual del capital invertido en las baterías para autobús eléctrico.
 fdab = Factor de depreciación anual acumulada de la inversión en las baterías para autobús eléctrico. Para determinar este factor, es necesario establecer la antigüedad del activo al momento de la aplicación de la metodología, si se trata de la primera batería integrada al autobús eléctrico, se utilizará la antigüedad del autobús basada en los datos del Registro Nacional de la Propiedad; en caso de que la batería haya sido reemplazada, la antigüedad se determinará, a partir de los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos.
 En caso de no se pueda derivar la antigüedad a partir de las dos fuentes citadas, se considerará como criterio tarifario que las baterías para autobús eléctrico se encuentran a la mitad de su vida útil indicada en el Cuadro 9, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUB = Vida útil de las baterías para autobús eléctrico. Este valor se detalla en el Cuadro 9.
 fdb = Factor de depreciación anual de la batería para vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 9.
 De esta forma, la rentabilidad anual en el caso del capital invertido en las baterías para autobús eléctrico se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
 RBr = Rentabilidad mensual del capital invertido en las baterías para autobús eléctrico de los vehículos con la regla de cálculo tarifario tipo 3 de la ruta "r". Este rubro estará expresado en colones.
 frb = Factor de rentabilidad anual del capital invertido en las baterías para autobús eléctrico.
@@ -1494,35 +1485,28 @@ El plazo establecido para la actualización del valor del factor permite la revi
 (*)g. Rentabilidad del capital invertido en los equipos de recarga de autobuses eléctricos y sistemas de gestión asociados La rentabilidad mensual del capital invertido en los equipos de recarga de autobuses eléctricos y sistemas de gestión asociados (RCSr), se calcula multiplicando los factores de rentabilidad de los equipos de recarga y de los sistemas por el valor de los equipos de recarga y el valor de los sistemas y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido en los equipos de recarga de autobuses eléctricos se obtiene al deducir el factor de la depreciación acumulada considerando que los equipos de recarga se
 deprecian de acuerdo con lo indicado en la sección 4.4.1.f, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frc = Factor de rentabilidad anual del capital invertido en los equipos de recarga de autobuses eléctricos.
 fdac = Factor de depreciación anual acumulada de la inversión en los equipos de recarga de autobuses eléctricos. Para determinar este factor, es necesario establecer la antigüedad del activo al momento de la aplicación de la metodología, para lo cual se emplearán los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos. En caso de que no se pueda derivar la antigüedad a partir de las dos fuentes citadas, se considerará como criterio tarifario que los equipos de recarga de autobuses eléctricos se encuentran a la mitad de su vida útil indicada en el Cuadro 10, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada de los equipos de recarga de autobuses eléctricos al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUC = Vida útil de los equipos de recarga de autobuses eléctricos.Este valor se detalla en el Cuadro 10.
 fdc = Factor de depreciación anual de los equipos de recarga de vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 10.
 El factor de rentabilidad anual en el caso del sistema de gestión de los cargadores de autobuses eléctricos se obtiene al deducir el factor de la depreciación acumulada considerando que el sistema de gestión de cargadores de autobuses eléctricos, se deprecian de acuerdo con lo indicado en la sección 4.4.1.f, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frsgc = Factor de rentabilidad anual del capital invertido en el sistema de gestión de cargadores de autobuses eléctricos.
 fdasgc = Factor de depreciación anual acumulada de la inversión en el sistema de gestión de cargadores de autobuses eléctricos.
 Para determinar este factor, es necesario establecer la antigüedad del sistema al momento de la aplicación de la metodología, para lo cual se emplearán los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos. En caso de que no se pueda derivar la antigüedad a partir las dos fuentes citadas, se considerará como criterio tarifario que el sistema de gestión de cargadores de autobuses eléctricos se encuentra a la mitad de su vida útil indicada en el Cuadro 10, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo.El factor de depreciación acumulada del sistema de gestión de cargadores de autobuses eléctricos al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUSGC = Vida útil del sistema de gestión de cargadores de autobuses eléctricos. Este valor se detalla en el Cuadro 10.
 fdsgc = Factor de depreciación anual del sistema de gestión de cargadores de los vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 10.
 El factor de rentabilidad anual en el caso del sistema de gestión de la flota de autobuses eléctricos se obtiene al deducir el factor de la depreciación acumulada considerando que el sistema de gestión de la flota de autobuses eléctricos, se deprecian de acuerdo con lo indicado en la sección 4.4.1.f, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frsgd = Factor de rentabilidad anual del capital invertido en el sistema de gestión de la flota de autobuses eléctricos.
 fdasgf = Factor de depreciación anual acumulada de la inversión en el sistema de gestión de la flota de autobuses eléctricos. Para determinar este factor, es necesario establecer la antigüedad del sistema al momento de la aplicación de la metodología, para lo cual se emplearán los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos. En caso de que no se pueda derivar la antigüedad a partir de las dos fuentes citadas, se considerará como criterio tarifario que el sistema de gestión de la flota de autobuses eléctricos se encuentra a la mitad de su vida útil indicada en el Cuadro 10, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada del sistema de gestión de la flota de autobuses eléctricos al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUSGF = Vida útil del sistema de gestión de la flota de autobuses eléctricos. Este valor se detalla en el Cuadro 10.
 fdsgf = Factor de depreciación anual del sistema de gestión de la flota de los vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 10.
 De esta forma, la rentabilidad anual en el caso del capital invertido en los equipos de recarga de autobuses eléctricos y sistemas de gestión asociados se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
 RCSr = Rentabilidad mensual del capital invertido en los equipos de recarga de autobuses eléctricos y sistemas de gestión asociados de los vehículos con la regla de cálculo tarifario tipo 3 de la ruta "r". Este rubro estará expresado en colones.
 frc = Factor de rentabilidad anual del capital invertido en los equipos de recarga de autobuses eléctricos.
@@ -1542,25 +1526,20 @@ El plazo establecido para la actualización del valor del factor permite la revi
 (*) (Así adicionada la sección g) anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 (*) h. Rentabilidad del capital invertido en la infraestructura eléctrica y electromecánica para la recarga de autobuses eléctricos La rentabilidad mensual del capital invertido en la infraestructura eléctrica y electromecánica para la recarga de autobuses eléctricos (RICr), se calcula multiplicando los factores de rentabilidad de las instalaciones eléctrica y electromecánica para la operación de los cargadores de las baterías de los autobuses eléctricos por el valor de las instalaciones eléctrica y electromecánica para la recarga de autobuses eléctricos y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido las instalaciones eléctricas para la operación de los cargadores de las baterías de los autobuses eléctricos se obtienen al deducir el factor de la depreciación acumulada considerando que las instalaciones eléctricas de recarga de autobuses se deprecian de acuerdo con lo indicado en la sección 4.4.1.g, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 friec = Factor de rentabilidad anual del capital invertido en las instalaciones eléctricas para la operación de los cargadores de las baterías de los vehículos del conjunto de unidades "?".
 fdaiec = Factor de depreciación anual acumulada de la inversión las instalaciones eléctricas para la operación de los cargadores de las baterías de autobuses eléctricos. Para determinar este factor, es necesario establecer la antigüedad de los activos al momento de la aplicación de la metodología, para lo cual se emplearán los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos. En caso de que no se pueda derivar la antigüedad a partir de las dos fuentes citadas, se considerará como criterio tarifario que las instalaciones eléctricas para la operación de los cargadores de las baterías de los autobuses eléctricos se encuentran a la mitad de su vida útil indicada en el Cuadro 11, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada de las instalaciones eléctricas de recarga de autobuses eléctricos al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUIEC = Vida útil de las instalaciones eléctricas para la operación de los cargadores de las baterías de los autobuses eléctricos. Este valor se detalla en el Cuadro 11.
 fdiec = Factor de depreciación anual de las instalaciones eléctricas para la operación de los cargadores de las baterías de los vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 11.
 El factor de rentabilidad anual en el caso del capital invertido las instalaciones electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos se obtienen al deducir el factor de la depreciación acumulada considerando que las instalaciones electromecánicas de recarga de autobuses se deprecian de acuerdo con lo indicado en la sección 4.4.1.g, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frimc = Factor de rentabilidad anual del capital invertido en las instalaciones electromecánicas para la operación de los cargadores de las baterías de los vehículos del conjunto de unidades "?".
 fdaimc = Factor de depreciación anual acumulada de la inversión las instalaciones electromecánicas para la operación de los cargadores de las baterías de autobuses eléctricos. Para determinar este factor, es necesario establecer la antigüedad de los activos al momento de la aplicación de la metodología, para lo cual se emplearán los registros de la contabilidad regulatoria como fuente primaria, o en su defecto, se recurrirá a los comprobantes electrónicos. En caso de que no se pueda derivar la antigüedad a partir de las dos fuentes citadas, se considerará como criterio tarifario que las instalaciones electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos se encuentran a la mitad de su vida útil indicada en el Cuadro 11, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada de las instalaciones electromecánicas de recarga de autobuses eléctricos al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUIMC = Vida útil de las instalaciones electromecánicas para la operación de los cargadores de las baterías de los autobuses eléctricos. Este valor se detalla en el Cuadro 11.
 fdimc = Factor de depreciación anual de las instalaciones electromecánicas para la operación de los cargadores de las baterías de los vehículos del conjunto de unidades "?". Este factor se detalla en el Cuadro 11.
 De esta forma, la rentabilidad anual en el caso del capital invertido en la infraestructura eléctrica y electromecánica para la recarga de autobuses eléctricos se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
 RICr = Rentabilidad mensual del capital invertido en la infraestructura
 eléctrica y electromecánica para la recarga de los vehículos con la regla de cálculo tarifario tipo 3 de la ruta "r". Este rubro estará expresado en colones.
@@ -1577,7 +1556,6 @@ El plazo establecido para la actualización del valor del factor permite la revi
 4.6.3 Rentabilidad del capital invertido en proveeduría
 La rentabilidad mensual del capital invertido en proveeduría (RCPr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús que conforman la flota autorizada de la ruta con reglas de cálculo tarifario tipo 1, tipo 2 y tipo 3. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según la edad obtenida del año de fabricación y tipo de vehículo que es utilizado en la ruta, multiplicado por la tasa de rentabilidad.
 La rentabilidad mensual de capital invertido en proveeduría se estima según la siguiente ecuación:
-[imagen]
 (*) (Así reformado el apartado " Rentabilidad del capital invertido en proveeduría " anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 RCPr = Rentabilidad mensual del capital invertido en proveeduría en la ruta "r". Este rubro estará expresado en colones.
@@ -1768,9 +1746,8 @@ l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 Para las ecuaciones 66 y 67, los valores tarifarios corresponden a las valoraciones de las unidades de autobús considerando reglas de cálculo tarifario tipo 1 y reglas de cálculo tarifario tipo 2 (cuadro1). Dadas las características operativas de una ruta puede que se dé la combinación de las reglas anteriores o solamente la aplicación de una de estas según la existencia de distintos tipos de vehículos. De esta manera, tanto el como de las ecuaciones 66 y 67 respectivamente, representan valores totales de la flota de autobuses ponderados de acuerdo con el total de kilómetros recorridos. 'b VTAN 'b VTA
 (Nota de Sinalevi: Mediante resolución N° N° RE-0130-JD-2025 del 14 de noviembre de 2025 se reforma la formula 104 anteiror. Al no ser clara la reforma la misma se transcribe a continuación:
-[imagen]
 𝑭𝒃𝒓 𝜶,𝜸,𝜺 = Cantidad de unidades de la flota autorizada en la ruta "r" según la edad "b", del conjunto de unidades "a", "y" y " 𝜺 ".
-𝜺 = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.”)
+𝜺 = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.")
 b. Cálculo de costos variables para un conjunto de rutas o ramales
 El cálculo de los costos variables mensuales del conjunto de rutas y/o ramales (CV') se realiza según lo indicado en la sección 4.5 considerando:
 La distancia de la carrera de la ruta "r" (Dr) corresponde a la distancia promedio ponderada del conjunto de rutas y/o ramales (D'), definida adelante en la ecuación 69.
@@ -1971,7 +1948,6 @@ Paso IV. Determinación del valor tarifario de una unidad en particular
 1.5. El valor tarifario de una unidad en particular (𝑉𝑇𝐴𝑛 𝛾 y 𝑉𝑇𝐴 𝜀𝑛 para las unidades de regla de cálculo tipo 2 y tipo 3, respectivamente), de placa "n" será su valor de mercado de vehículo nuevo determinado por el Ministerio de Hacienda y ajustado según corresponda lo explicado en el punto 1.3 anterior. En los casos donde haya autobuses nuevos que no estén incluidos en el listado remitido por el Ministerio de Hacienda según el punto 1.3.b anterior, la IT solicitará su valor respectivo al Ministerio de Hacienda y realizará los ajustes indicados en el punto 1.3.d anterior, salvo indicación del Ministerio de Hacienda de que dicho valor corresponde al valor de mercado de la unidad.
 i. Para las unidades con regla de cálculo tipo 2:
 Al valor tarifario de la unidad de transporte en colones tipo 2, se le debe restar el costo de las llantas, dado que, dentro de la estructura de costos de la metodología, ese ítem se considera por separado, utilizando los valores de las llantas vigentes y/o disponibles al momento de aplicación de este procedimiento. La definición del valor tarifario de las unidades sin llantas (𝑉𝑇𝐴𝑁𝑛𝛾) es:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑵𝜸𝒏 = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "y"
 𝑽𝑻𝑨𝜸𝒏 = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "Y".
@@ -1981,7 +1957,6 @@ y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 n = Índice que representa la placa de la unidad de transporte.
 ii. Para las unidades con regla de cálculo tipo 3:
 Al valor tarifario de la unidad de transporte en colones tipo 3, se le debe restar el costo de las llantas y el costo de la batería del autobús eléctrico, dado que, dentro de la estructura de costos de la metodología, estos componentes se consideran por separado, utilizando los valores vigentes y/o disponibles al momento de aplicación de este procedimiento. La definición del valor tarifario de las unidades sin llantas y sin batería (𝑉𝑇𝐴𝑁𝑛 𝜀) es:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑵𝒏 𝜺= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas y sin batería con número de placa "n" del conjunto de unidades " 𝜺 "
 𝑽𝑻𝑨𝒏 𝜺= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades " 𝜺 ".
@@ -1992,7 +1967,6 @@ VTBr = Valor tarifario de las baterías para la flota autorizada en la ruta "r" 
 n = Índice que representa la placa de la unidad de transporte.
 b. Procedimiento para la determinación del valor total de la flota autorizada Una vez determinado el valor tarifario de cada unidad según tipo y año, para cada regla de cálculo se define el valor total de la flota autorizada en la ruta "r" para vehículos según cada regla, tal y como se indica a continuación:
 i. Para las unidades con regla de cálculo tipo 2:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑭𝒓𝜸 = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "Y".
 𝑽𝑻𝑨𝒃𝒓𝜸 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "Y".
@@ -2000,7 +1974,6 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 Y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 A su vez el valor tarifario de la flota de las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "?" se define como:
-[imagen]
 𝑽𝑻𝑨𝜸𝒃𝒓 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "Y".
 𝑽𝑻𝑨𝜸𝒓 = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "Y".
 𝑵 𝜸𝒑 𝒃𝒓 = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "?" para el año de aplicación "p".
@@ -2010,7 +1983,6 @@ r = Ruta de transporte remunerado de personas.
 Y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 p = Año de aplicación de la metodología.
 De esta forma se determina posteriormente el valor total de la flota sin llantas para vehículos con regla tipo 2:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑭𝑵𝒓𝜸 = Valor tarifario total de la flota sin llantas para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "𝜸".
 𝑽𝑻𝑨𝑵𝜸𝒃𝒓 = Valor tarifario de la flota sin llantas para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "𝜸".
@@ -2018,7 +1990,6 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 Y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 Para el valor tarifario de la flota, sin llantas, para las unidades de edad "b" de la flota autorizada en la ruta "r" del conjunto de unidades "?" se tiene:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑵𝜸𝒃𝒓 = Valor tarifario de la flota sin llantas para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "Y".
 𝑽𝑻𝑨𝑵𝜸𝒏 = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "Y".
@@ -2029,7 +2000,6 @@ r = Ruta de transporte remunerado de personas.
 Y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 p = Año de aplicación de la metodología.
 ii. Para las unidades con regla de cálculo tipo 3:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑭𝜺𝒓= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades " 𝜺 ".
 𝑽𝑻𝑨𝜺𝒃𝒓 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades " 𝜺 ".
@@ -2037,7 +2007,6 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 𝜺 = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.
 A su vez el valor tarifario de la flota de las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades " 𝜺 " se define como:
-[imagen]
 𝑽𝑻𝑨𝜺𝒃𝒓 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades " 𝜺 ".
 𝑽𝑻𝑨𝜺𝒓= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades " 𝜺 ".
 𝑵𝜺𝒑𝒃𝒓 = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "r" para el año de aplicación "p".
@@ -2047,7 +2016,6 @@ r = Ruta de transporte remunerado de personas.
 𝜺 = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.
 p = Año de aplicación de la metodología.
 De esta forma se determina posteriormente el valor total de la flota sin llantas y sin batería para vehículos con regla tipo 3:
-[imagen]
 Donde:
 𝑽𝑻𝑨F𝑵 𝜺 𝒓 = Valor tarifario total de la flota sin llantas y sin batería para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades" 𝜺 ".
 𝑽𝑻𝑨𝑵𝜺b𝒓 = Valor tarifario de la flota sin llantas y sin batería para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades " 𝜺 ".
@@ -2055,7 +2023,6 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 𝜺 = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.
 Para el valor tarifario de la flota, sin llantas y sin batería, para las unidades de edad "b" de la flota autorizada en la ruta "r" del conjunto de unidades " 𝜺 " se tiene:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑵𝜺𝒃𝒓 = Valor tarifario de la flota sin llantas y sin batería para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades " 𝜺 ".
 𝑽𝑻𝑨𝑵𝒏 𝜺= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas y sin batería con número de placa "n" del conjunto de unidades " 𝜺 ".
@@ -2105,7 +2072,6 @@ Al multiplicar 𝑽𝑻𝑨e𝒃𝒓 por la cantidad correspondiente de unidades
 De manera análoga, se calcula el valor tarifario de la flota sin llantas y sin batería 𝑽𝑻𝑨𝑵𝜺𝒃𝒓 al sumar los valores de cada vehículo (por placa) tal como lo expresa la ecuación 133. Y al acumular este valor para cada edad se llega al valor de la flota total sin llantas y sin batería que describe la ecuación 132.
 (Así adicionado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 (*) El valor tarifario de la flota según la edad "b" de la ruta "r" del conjunto de unidades "?", "?" y "?" se obtiene a partir de las ecuaciones 134, 127 y 131 de la siguiente forma:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝒃𝒓 = Valor tarifario de las unidades de transporte de la edad "b" de y/o ramal la ruta "r", del conjunto de unidades "a", "y" y " 𝜺 ".
 𝑽𝑻𝑨𝑭𝜶𝒃𝒓 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
@@ -2118,7 +2084,6 @@ r = Ruta de transporte remunerado de personas.
 ? = Conjunto de vehículos con reglas de cálculo tarifario tipo 3.
 Así mismo, el valor tarifario de la flota sin llantas según la edad "b" de la ruta
 "r" del conjunto de unidades "?", "?" y "?" se obtiene a partir de las ecuaciones 129, 133 y 135 de la siguiente forma:
-[imagen]
 Donde:
 𝑽𝑻𝑨𝑵𝒃𝒓 = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "?", "?" y "?".
 𝑽𝑻𝑨𝑵𝑭𝒃𝒓
@@ -2244,8 +2209,8 @@ e) Los datos depurados de las rutas urbanas e interurbanas, deben ser remitidos 
 Se establece el plazo máximo de un año a partir de la publicación en el Diario Oficial La Gaceta de la resolución que aprueba esta modificación metodológica para que todos los operadores inicien con la remisión de la información según los requerimientos establecidos en esta sección".
 (Así reformado el apartado 4.11.2 Precio del sistema automatizado de conteo de pasajeros anterior mediante resolución N° RE-0215-JD-2018 del 11 de diciembre de 2018)
 (Nota de Sinalevi: Mediante resolución N° RE-0215-JD-2018 del 11 de diciembre de 2018, se indica reformar el punto 2 de la "Validación de campo de la información del SIR, o registros del SCP que no cumplan con los requerimientos de la sección 4.11.2", en el inciso b.ii del apartado 4.7.1 Procedimiento para el cálculo del volumen mensual de pasajeros. No obstante dicha sección fue reforma en su totalidad por la resolución antes mencionada. Dado lo anterior se transcribe la reforma: Modifíquese el punto 2 de la "Validación de campo de la información del SIR, o registros del SCP que no cumplan con los requerimientos de la sección 4.11.2", en el inciso b.ii del apartado 4.7.1 Procedimiento para el cálculo del volumen mensual de pasajeros, para que se lea de la siguiente manera: "2. Para el dato de la cantidad mensual de carreras se tomará la cantidad de carreras autorizadas según el esquema operativo autorizado por el CTP.")
-(Nota de Sinalevi: Mediante resolución RE-0082-IT-2024 del 22 de noviembre de 2024, se acordó actualizar el valor para el sistema automatizado de conteo de pasajeros VNSCP) para el reconocimiento en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
-Valor del sistema automatizado de conteo de pasajeros por (VNSCP) | ¢2 507614,97 / autobus)
+(Nota de Sinalevi: Mediante resolución RE-0079-IT-2025 del 10 de diciembre de 2025, se acordó actualizar el valor para el sistema automatizado de conteo de pasajeros (VNSCP) para el reconocimiento en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
+Valor del sistema automatizado de conteo de pasajeros por (VNSCP) | ¢2 262 490,41 / autobus)
 )
 (*)4.11.3. Determinación de los precios de limpieza y lavado de vehículos y motor
 Los precios base para cada ítem de este rubro, serán los valores adoptados del estudio técnico ejecutado, contratado o avalado por la Aresep actualizados mediante indexación por el Índice de Precios al Consumidor (IPC) calculado por el Instituto Nacional de Estadísticas y Censos (INEC). Para este fin se ajustarán los valores con el IPC del último mes del semestre calendario inmediato anterior a la entrada en vigencia de esta modificación. Posteriormente, se actualizarán aplicándoles la variación porcentual de la categoría semestral "Otros gastos" del IPi-TRP, hasta el semestre calendario en que se haya realizado la audiencia pública del estudio ordinario.
@@ -2384,7 +2349,7 @@ Dado que el pago del mantenimiento de las instalaciones eléctricas para la reca
 En la valoración mantenimiento de las instalaciones eléctricas para la recarga de los autobuses eléctricos, la IT podrá analizar su razonabilidad de acuerdo con los análisis y diseños particulares que haya realizado el prestador del servicio para la introducción de autobuses eléctricos, tomando en cuenta la normativa aplicable y en caso de ser necesario podría apoyarse en estudio de mercado del mantenimiento de ese tipo de instalaciones, para lo cual deberá seguir las reglas unívocas de la ciencia y la técnica de las disciplinas aplicables.
 l. Valor anual del mantenimiento de las instalaciones electromecánicas para la recarga de los autobuses eléctricos Dado que el pago del mantenimiento de las instalaciones electromecánicas para la recarga de los autobuses eléctricos corresponde a una erogación recurrente en el tiempo, en caso de disponerse solo de la fuente de información de comprobantes electrónicos, el prestador del servicio deberá suministrar los comprobantes electrónicos para una serie histórica de al menos los últimos seis meses cerrados previos a la presentación de la solicitud de la revisión tarifaria por parte del prestador o la apertura del expediente tarifario si es una revisión de oficio.
 En la valoración mantenimiento de las instalaciones electromecánicas para la recarga de los autobuses eléctricos, la IT podrá analizar su razonabilidad de acuerdo con los análisis y diseños particulares que haya realizado el prestador del servicio para la introducción de autobuses eléctricos, tomando en cuenta la normativa aplicable y en caso de ser necesario podría apoyarse en estudio de mercado del mantenimiento de ese tipo de instalaciones, para lo cual deberá seguir las reglas unívocas de la ciencia y la técnica de las disciplinas aplicables.
-(*) (Así adicionada la sección 4.11.6 “Valor de los equipos, sistemas de gestión, mantenimiento e infraestructura y otros necesarios para la operación de recarga de los autobuses eléctricos”anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
+(*) (Así adicionada la sección 4.11.6 "Valor de los equipos, sistemas de gestión, mantenimiento e infraestructura y otros necesarios para la operación de recarga de los autobuses eléctricos"anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 (*) 4.11.7 Determinación de los precios de limpieza y lavado de vehículos y de motor
 Los precios base para cada ítem de este rubro, serán los valores adoptados del estudio técnico ejecutado, contratado o avalado por la Aresep y se actualizarán mediante indexación con el Índice de Precios al Consumidor (IPC) calculado por el Instituto Nacional de Estadística y Censos (INEC). Para este fin, se ajustarán los valores con el último índice que esté disponible a la fecha de audiencia pública de la aplicación de la metodología.
 (Así adicionada la sección 4.11.5) anterior mediante resolución N° RJD-060-2018 del 18 de abril de 2018. Notesé que no existe la sección 4.11.4))
