@@ -1,0 +1,1 @@
+Artículo 5°-El ejercicio o práctica de la hipnosis en odontología en seres humanos, debe hacerse en todo momento en apego al Código de Ética del Colegio de Cirujanos y Cirujanas Dentistas de Costa Rica y al marco legal costarricense.

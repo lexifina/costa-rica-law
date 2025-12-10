@@ -1,0 +1,2 @@
+Artículo 10.-Publicidad. La publicidad debe estar basada en los principios de veracidad, competencia leal, y protección del paciente y su salud, de modo que no pueda dar lugar a falsas expectativas.
+El profesional en odontología no está autorizado a emplear la hipnosis con fines recreativos. En caso de utilizarla con propósito educativo, deberá garantizar el respeto a la privacidad y a la imagen pública de los pacientes, contar con su consentimiento expreso para cualquier tipo de grabación, y actuar siempre conforme a lo establecido en el Código de Ética vigente.
