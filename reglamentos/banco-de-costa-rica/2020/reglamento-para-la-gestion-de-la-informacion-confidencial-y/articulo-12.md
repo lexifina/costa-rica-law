@@ -1,1 +1,1 @@
-Artículo 12.—Eliminación. La eliminación de información y/o documentación confidencial y privilegiada, se debe realizar según lo establecido en las Disposiciones administrativas para la gestión de los documentos producidos en el Conglomerado Financiero BCR y el Procedimiento para la elaboración de tablas de plazos y eliminación de documentos en el Conglomerado Financiero BCR.
+Artículo 12.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.

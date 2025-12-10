@@ -6,7 +6,7 @@ INFORMACIÓN CONFIDENCIAL
 Y PRIVILEGIADA EN EL
 CONGLOMERADO
 FINANCIERO BCR
-Capítulo I
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión 62-25 del 10 de diciembre de 2025 y publicada en La Gaceta N° 9° del 15 de enero de 2026, por lo que se reproduce a continuación:)
+CAPÍTULO I
 Aspectos generales
-Artículo 1º—Deber de confidencialidad. Las personas trabajadoras del Conglomerado Financiero BCR, en adelante Conglomerado, tienen la obligación legal y reglamentaria de guardar el sigilo con respecto de los datos de los clientes, proveedores y socios comerciales, de manera que estos no sean divulgados con terceras personas ajenas al Conglomerado.
-El deber de confidencialidad no se violenta cuando la información es facilitada a entes que pertenezcan al Conassif en su supervisión, auditores internos y externos, tampoco cuando media autorización expresa de los titulares de la información o una orden de la autoridad judicial competente.
+Artículo 1º-Objeto. En atención de lo establecido en la Directriz 102-MP Política general sobre transparencia y divulgación de información financiera y no financiera para empresas propiedad del Estado, sus Subsidiarias, e Instituciones Autónomas, referente a la declaración de la información confidencial administrada por el Conglomerado Financiero BCR, se definen los aspectos a considerar y el fundamento de estos para la no divulgación de este tipo de información.

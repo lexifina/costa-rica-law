@@ -14,3 +14,4 @@ Reglamento para la gestión de la información confidencial y privilegiada en el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-24 | la propia norma |
+| 2 | 2025-12-10 | Reglamento 62 (2025-12-10) |
