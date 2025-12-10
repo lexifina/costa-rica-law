@@ -1,0 +1,1 @@
+Artículo 23.-El sistema de control de la administración del fondo de Caja Chica deberá garantizar la custodia y buen uso de los recursos, el registro de datos necesarios para disponer de información confiable y oportuna, un sistema de archivo que permita la fácil localización de documentos y otros que se estimen convenientes.

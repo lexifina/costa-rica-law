@@ -1,0 +1,1 @@
+Artículo 38.-El Tesorero y demás entes fiscalizadores y de control pondrán en conocimiento del alcalde los hechos presuntamente irregulares en que incurran los servidores, en relación con el uso de los recursos de la Caja Chica, para que se sigan los procedimientos pertinentes.

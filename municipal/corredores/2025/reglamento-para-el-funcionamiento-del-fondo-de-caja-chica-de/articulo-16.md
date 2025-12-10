@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Liquidación
+Artículo 16.-Los vales de Caja Chica sin excepción deberán ser liquidados dentro de los tres días hábiles siguientes a la entrega del dinero, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor no puedan liquidarse en ese plazo, en cuyo caso podrá hacerse dentro de un plazo máximo 5 hábiles contados a partir de la entrega del dinero, debiendo el funcionario justificar ante la tesorería el retraso mediante nota que deberá contar con el visto bueno de su jefe inmediato. Queda definido que las liquidaciones de viáticos y dietas del Concejo cuentan con 5 días hábiles.

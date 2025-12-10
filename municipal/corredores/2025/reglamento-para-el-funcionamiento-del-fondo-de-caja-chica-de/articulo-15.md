@@ -1,0 +1,1 @@
+Artículo 15.-El funcionario solicitante de adelanto de dinero de Caja Chica sin excepción, no podrá acceder a la entrega de dinero de un nuevo vale cuando tenga pendiente la liquidación o devolución de uno anterior. o bien que de forma recurrente presente atrasos en entrega de liquidaciones, quedara a criterio del coordinador financiero.

@@ -1,0 +1,1 @@
+Artículo 10º-La custodia del fondo de caja chica y la modalidad para entrega de los vales de caja chica será responsabilidad y organizada por el Tesorero Municipal, quien deberá actuar de conformidad con lo que disponga este Reglamento, el Código Municipal, Ley de la Administración Financiera de la República y Presupuestos Públicos, y demás normativa aplicable.

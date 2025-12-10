@@ -1,0 +1,1 @@
+Artículo 14.-Para el trámite de compra por el fondo de caja chica, el funcionario que gestione la adquisición de bienes y servicios deberá solicitar ante la Tesorería Municipal el documento de exoneración del pago del impuesto al valor agregado que se deberá presentar ante el proveedor de la compra.

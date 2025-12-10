@@ -1,0 +1,1 @@
+Artículo 37.-Todo funcionario que haga uso del fondo de Caja Chica, tiene la obligación de conocer el presente Reglamento. Su desacato y desobediencia se sancionará de acuerdo con lo estipulado en la Ley de la Administración Financiera de la República y Presupuestos Públicos.

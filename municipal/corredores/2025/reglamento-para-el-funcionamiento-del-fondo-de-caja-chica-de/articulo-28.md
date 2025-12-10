@@ -1,0 +1,1 @@
+Artículo 28.-Mensualmente el Tesorero Municipal enviará al área financiera, contabilidad, presupuesto y cualquier otro necesario un informe de los movimientos registrados dentro del fondo de caja chica, así como, la comunicación del saldo disponible en bancos y efectivo.

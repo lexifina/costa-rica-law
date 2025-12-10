@@ -1,0 +1,1 @@
+Artículo 35.-El Tesorero no podrá guardar documentos ni dineros particulares en el lugar destinado a los recursos de Caja Chica. Así mismo, no podrá sufragar con dinero propio las compras municipales. Capítulo VII - Sanciones

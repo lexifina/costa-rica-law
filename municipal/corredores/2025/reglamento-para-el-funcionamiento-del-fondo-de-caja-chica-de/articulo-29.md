@@ -1,0 +1,1 @@
+Artículo 29.-Previo a la sustitución temporal del Tesorero, por la razón que fuere, se realizará un arqueo del cual se dejará constancia escrita y la debida aceptación del resultado mediante las firmas de los participantes. Igual procedimiento se hará a su regreso.

@@ -1,0 +1,1 @@
+Artículo 20.-La liquidación del vale quedará formalizada cuando el responsable de la Caja Chica revise, firme y selle el documento respectivo. Será responsabilidad del usuario solicitante constatar la recepción de los bienes y servicios adquiridos.

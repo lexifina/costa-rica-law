@@ -1,0 +1,1 @@
+Artículo 17.-Si la compra no se realiza, el funcionario que recibió el dinero del vale deberá reintegrarlo de inmediato, a más tardar el día hábil siguiente. Además, deberá presentar una justificación escrita con el aval de la jefatura superior. La Tesorería anulará el registro en el sistema y dejará evidencia documentada de lo ocurrido.

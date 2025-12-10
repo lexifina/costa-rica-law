@@ -1,0 +1,1 @@
+Artículo 9º-El alcalde municipal, mediante previa justificación del área solicitante, podrá autorizar mediante oficio compras mayores del monto ordinario según artículo 8 del presente reglamento hasta por ¢1 000 000.00 (Un millón de colones) máximo.
