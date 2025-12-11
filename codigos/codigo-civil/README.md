@@ -1,6 +1,6 @@
 # Código Civil
 
-Ley N° 30 del 1885-04-19. SINALEVI, ficha 15437: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=15437&param2=147277&param3=1>.
+Ley N° 30 del 1885-04-19. SINALEVI, ficha 15437: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=15437&param2=148770&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 19 de 22 | 2024-10-01 | Ley 10455 | 2024-03-19 |
 | 20 de 22 | 2025-02-21 | Ley 10632 | 2025-01-28 |
 | 21 de 22 | 2025-08-22 | Ley 10724 | 2025-05-13 |
+| 22 de 22 | 2025-12-11 | Ley 10813 | 2025-11-16 |
