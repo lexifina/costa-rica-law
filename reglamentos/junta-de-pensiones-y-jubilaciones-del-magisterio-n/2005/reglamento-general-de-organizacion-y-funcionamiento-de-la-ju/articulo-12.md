@@ -1,4 +1,3 @@
-Artículo 12.—Del Presidente. En caso de ausencia o de enfermedad y en general cuando concurra alguna causa justificada, el presidente de la junta directiva será sustituido por el vicepresidente en el ejercicio de sus atribuciones y deberes. Cuando se encuentren ausentes el presidente y el vicepresidente, la presidencia será asumida por el primer vocal o subsiguientes.
-Si el presidente no concluyera el período del año natural para el que fuera electo, por cualquier causa, dicho período será concluido por el vicepresidente y este a su vez por el primer vocal y sucesivamente, de manera que el nuevo director que ingrese, para completar la integración de la directiva, ejercerá como cuarto vocal. Igual mecanismo de sustitución operará en caso que se trate de la sustitución del vicepresidente o de un vocal.
-Si fuera el secretario quien no concluyera su período por cualquier causa, el resto de dicho período será finalizado por el primer vocal, aplicándose el mecanismo de sustitución indicado en el párrafo anterior.
-(Así reformado mediante sesión N° 012 del 29 de enero de 2009)
+Artículo 12.-Elección de su Directorio
+En la primera sesión ordinaria de enero de cada año, la Junta Directiva tendrá como agenda exclusiva la elección de su Directorio, conformado por el presidente, vicepresidente, Secretario, los restantes miembros, tendrán el carácter de vocales, en el orden en que resulten electos.
+(Así reformado mediante sesión N° 0139-2025 del 11 de diciembre de 2025)
