@@ -1,6 +1,6 @@
 # Ley de Impuesto sobre Bienes Inmuebles
 
-Ley N° 7509 del 1995-05-09. SINALEVI, ficha 26598: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26598&param2=141299&param3=1>.
+Ley N° 7509 del 1995-05-09. SINALEVI, ficha 26598: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26598&param2=148757&param3=1>.
 
 Publicada en La Gaceta N° 116 del 1995-06-19.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 11 | 2020-09-21 | Ley 9881 | 2020-09-08 |
 | 9 de 11 | 2021-04-23 | Ley 9976 | 2021-04-09 |
 | 10 de 11 | 2024-06-24 | Ley 10398 | 2023-11-14 |
+| 11 de 11 | 2025-12-11 | Ley 10795 | 2025-11-18 |
