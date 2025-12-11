@@ -1,0 +1,9 @@
+Artículo 8.- Renuncia y remoción.
+La renuncia será comunicada mediante nota formal debidamente suscrita al Coordinador de la Comisión y este la debe remitir a la Junta Directiva. En caso de que la renuncia sea del Coordinador, este la dirigirá a la Junta Directiva para lo de su cargo.
+Ausencia y remoción. La Junta Directiva sustituirá a los miembros de comisiones si se constatara algunos de los siguientes casos:
+a) Al que faltare sin justificación en el número de reuniones que represente el treinta (30) por ciento de la programación de éstas en el año.
+b) Al que faltare a tres sesiones consecutivas sin debida justificación.
+c) Al que faltare al pago de tres o más cuotas mensuales de colegiatura y haya sido suspendido por morosidad.
+Los miembros que no puedan asistir a una sesión deberán presentar una justificación por escrito al Coordinador, a más tardar veinticuatro horas antes de la hora señalada para iniciar la sesión, salvo que la situación apremiante lo impida.
+Corresponderá al Coordinador, con reporte a la Dirección Administrativa, llevar el control de asistencia de los miembros de la comisión e informar a la Junta Directiva, cualquier incumplimiento, según lo regulado en los párrafos anteriores.
+El Coordinador, en caso de constatar el incumplimiento, deberá informar a la Junta Directiva para que esta proceda con el cese del nombramiento de dicho miembro y efectúe el nombramiento de un nuevo miembro. Los miembros de las comisiones podrán ser removidos discrecionalmente por la Junta Directiva, en caso de incumplimiento de sus funciones, así como de lo establecido en la Ley y los reglamentos de este Colegio, aunque de previo a su remoción, si procediere; se le dará audiencia por el término de cinco días hábiles para que manifieste lo que corresponda. Posterior a ello, la Junta Directiva valorará el descargo y resolverá, en definitiva.

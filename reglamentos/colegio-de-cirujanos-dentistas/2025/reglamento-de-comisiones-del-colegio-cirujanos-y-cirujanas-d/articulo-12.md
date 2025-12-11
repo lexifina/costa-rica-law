@@ -1,0 +1,2 @@
+Artículo 12.- Sobre las designaciones especiales.
+La Junta Directiva podrá delegar a las Comisiones de Trabajo la elaboración de trabajos especiales para lo cual la Comisión rendirá informes a la Junta Directiva sobre las conclusiones y recomendaciones de cada trabajo designado en el tiempo establecido. Las personas coordinadoras y miembros de comisión no podrán contratar directamente la adquisición de bienes, suministros y servicios, ni comprometer al Colegio en forma alguna.

@@ -1,0 +1,2 @@
+Transitorio I.
+Una vez entrada en vigencia esta reglamentación, la Junta Directiva dispondrá de tres meses para integrar el primer listado de Comisiones Permanentes del Colegio. Queda facultada la Junta Directiva para fusionar comisiones, crear y suprimir otras, según demanden las especiales necesidades del momento; para lo cual deberá dejarse evidencia a partir de una ficha informativa de Comisiones.

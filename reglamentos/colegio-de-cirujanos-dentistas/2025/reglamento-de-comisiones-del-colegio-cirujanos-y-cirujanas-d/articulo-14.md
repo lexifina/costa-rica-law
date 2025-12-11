@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LAS SESIONES DE LA COMISIÓN
+Artículo 14.- De las sesiones de la Comisión.
+La Comisión sesionará ordinariamente al menos una vez al mes, mediante convocatoria que hará la coordinación. El día y hora de las sesiones serán determinadas dentro del seno de la Comisión. De considerarlo pertinente, se reunirá extraordinariamente cuando sea convocada por la persona coordinadora. Estas reuniones pueden ser presenciales o virtuales para lo cual se hará uso de los medios electrónicos que se consideren pertinentes, en tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros de la Comisión y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación.

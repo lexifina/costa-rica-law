@@ -1,0 +1,11 @@
+CAPÍTULO II
+INTEGRACIÓN Y FACULTADES DE LAS COMISIONES Y DE SUS
+INTEGRANTES
+Artículo 6.- Integración de la Comisión
+Las Comisiones estarán conformadas por al menos tres integrantes nombrados por la Junta Directiva, incluido el miembro enlace de Junta Directiva. La integración no deberá superar los siete miembros, salvo casos excepcionales a criterio de la Junta Directiva con la debida justificación.
+Cuando los integrantes sean representantes institucionales se solicitará la designación de un miembro propietario y un miembro suplente. Podrán acudir a las reuniones los dos miembros designados, ambos con voz, pero solo un voto por institución.
+Una vez conformada, entre sus miembros, se nombrará una persona coordinadora. Las personas coordinadoras de cada comisión podrán sugerir por escrito a la Junta Directiva el nombramiento, la remoción o sustitución de algún miembro, no obstante; la decisión final la tendrá la Junta Directiva.
+Todos los integrantes tendrán voz y voto en las decisiones que tome la Comisión. Esta podrá contar con el apoyo técnico y administrativo de funcionarios y asesores del Colegio, para lo cual deberán solicitarlo expresamente a la Junta Directiva. Cuando se trate de funcionarios y asesores del Colegio, que apoyen la Comisión en su carácter de asesores técnicos, tendrán voz, pero no voto.
+Cada Comisión deberá estar integrada por un miembro de Junta Directiva, designado por la Presidencia, el cual fungirá como enlace entre la Comisión y la Junta Directiva.
+Los nombramientos de las comisiones permanentes tendrán una duración de dos años, que podrá ser prorrogable a criterio de la Junta Directiva. La Junta Directiva renovará los cargos según corresponda y para el inicio de labores se requerirá la juramentación de sus miembros por la Presidencia de Junta Directiva o en quien ésta delegue esa función. El nombramiento de los miembros de las comisiones temporales, será por el plazo de vigencia de la comisión. Las vacantes podrán ser cubiertas en cualquier momento, según los nombramientos que hiciere la Junta Directiva.
+Los miembros de las comisiones ejercerán sus funciones en forma ad honorem, por consiguiente, no gozarán de dietas, ni remuneraciones, por concepto de su participación.

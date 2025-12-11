@@ -1,0 +1,5 @@
+CAPÍTULO IV
+SOBRE LA ACTIVIDAD DE LAS COMISIONES DE TRABAJO
+Artículo 18.-Planificación de actividades
+La Comisión deberá presentar a la Junta Directiva en las primeras dos semanas de febrero de cada año, o a los dos meses posterior a su nombramiento, el plan anual operativo en el que se contemplen los principales proyectos que desarrollará la Comisión durante el año calendario, el cual deberá coincidir con las finalidades establecidas por la Ley Orgánica del Colegio de Cirujanos y Cirujanas Dentistas de Costa Rica y los objetivos del plan de trabajo de la Junta Directiva en ejercicio. Igualmente deben ser debida y previamente autorizadas por la Junta Directiva, las actividades que la comisión organice y que no estén incluidas en el plan.
+A su vez, la Comisión rendirá un informe semestral a la Junta Directiva, la primera semana de los meses de junio y noviembre. Dichos informes contemplarán, entre otros aspectos, las reuniones realizadas, los acuerdos tomados, su estado de ejecución y sobre los avances de los proyectos establecidos en el Plan Anual Operativo.
