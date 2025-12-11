@@ -1,0 +1,21 @@
+N° 10795
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+MODERNIZACIÓN DEL TRÁMITE PRESUPUESTARIO MUNICIPAL, POR
+MEDIO DE LA REFORMA DE LOS ARTÍCULOS 99, 104, 105, 106 Y 111
+DE LA LEY 7794, CÓDIGO MUNICIPAL, DE 30 DE ABRIL DE 1998;
+LOS ARTÍCULOS 30 Y 33 DE LA LEY 7509, IMPUESTO SOBRE
+BIENES INMUEBLES, DE 9 DE MAYO DE 1995, Y EL ARTÍCULO
+16 DE LA LEY 10.475, PREVENCIÓN DE LA VIOLENCIA EN
+PERSONAS MENORES DE EDAD Y PERSONAS JÓVENES,
+DE 18 DE JULIO DE 2024
+ARTÍCULO 1- Se reforman los artículos 99,104,105,106 y 111 de la Ley 7794, Código Municipal,d e 30 de abril de 1998. Los textos son los siguientes:
+Artículo 99- Las municipalidades deberán diseñar planes de pago y atención adecuados a sus obligaciones debidamente formalizadas. Para ello, deberán incluir, en sus presupuestos ordinarios o extraordinarios, observando el plan de desembolsos y atención de la deuda, partidas suficientes para cumplir con los compromisos vigentes. El incumplimiento de esta previsión acarreará la improbación, por parte de la Contraloría General de la República, del monto del ingreso por financiamiento propuesto, así como el gasto correspondiente a esa fuente de financiamiento.
+Artículo 104- El alcalde municipal deberá presentar al concejo, a más tardar el 30 de agosto de cada año, el proyecto de presupuesto ordinario. Dicho proyecto de presupuesto será presentado de acuerdo con las indicaciones para la formulación y remisión que la Contraloría General de la República determine, a más tardar el 30 de julio de cada año.
+El ente contralor notificará de dichas indicaciones a los alcaldes y a los funcionarios responsables de digitar y validar la información de los presupuestos, en el sistema electrónico de la Contraloría General de la República. El Instituto de Fomento y Asesoría Municipal (IFAM) y el Instituto de Formación y Capacitación Municipal y Desarrollo Local de la Universidad Estatal a Distancia, realizarán, en coordinación con la Contraloría General de la República,j ornadas de divulgación y capacitación sobre las indicaciones con el fin de dar a conocer el contenido de esas disposiciones. El alcalde designará a las personas funcionarias que deberán acudir a las jornadas de capacitación.
+Los proyectos de presupuestos extraordinarios deberá presentarlos, con tres días de antelación, al concejo para que sean aprobados. Los proyectos de modificación presupuestaria no tendrán plazo mínimo para su presentación ante el concejo.
+Artículo 105- El presupuesto municipal ordinario y el plan anual operativo deben ser aprobados en firme en el mes de setiembre de cada año, en sesiones públicas. El plan anual operativo deberá ser aprobado de manera previa a la aprobación o en la misma sesión de aprobación del presupuesto.
+Artículo 106- El presupuesto ordinario y los extraordinarios de las municipalidades deberán ser aprobados por la Contraloría General de la República. El presupuesto ordinario deberá remitirse, a la Contraloría General de la República, a más tardar el 30 de setiembre de cada año. Los presupuestos extraordinarios, del ejercicio en curso, deberán ser remitidos dentro de los quince días naturales siguientes a su aprobación en firme. Los términos anteriores serán improrrogables. La fecha máxima para la presentación de los presupuestos extraordinarios será el 30 de setiembre de cada año, salvo supuestos de excepción que la Contraloría General de la República determine.
+A todos los presupuestos que se envíen a la Contraloría, por medio del sistema electrónico que esta entidad defina, se les adjuntará certificación en la cual conste la transcripción del acuerdo mediante el cual el concejo municipal otorgó la aprobación expresa al presupuesto, así como certificación del acuerdo mediante el cual el concejo municipal otorgó la aprobación del plan operativo anual y del plan de desarrollo municipal vigente.
+Artículo 111- La Contraloría General de la República deberá aprobar o improbar los proyectos de presupuesto que reciba en resolución razonada y fundamentada. La aprobación podrá ser parcial o total, por violación del ordenamiento jurídico o por falta de recursos.
+Podrá introducir modificaciones a los proyectos, únicamente con anuencia del concejo municipal.

@@ -1,0 +1,4 @@
+ARTÍCULO 2- Se reforman el primer párrafo del artículo 30 y el artículo 33 de la Ley 7509, Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995. Los textos son los siguientes:
+Artículo 30- Recursos para el Catastro Nacional. Cada año, las municipalidades deberán girar, a la Junta Administrativa del Registro Nacional, al menos el dos por ciento (2%) del ingreso anual que recauden por concepto del impuesto de bienes inmuebles.
+( ... ).
+Artículo 33- Requisito para aprobar presupuestos municipales. La Contraloría General de la República aprobará, parcialmente, el presupuesto municipal que no contemple lo dispuesto en el artículo 30 de la presente ley, debiendo ajustar, la Administración Municipal, el plan de gastos, con el fin de garantizar dicho destino. Este ajuste no requerirá aprobación del concejo municipal.
