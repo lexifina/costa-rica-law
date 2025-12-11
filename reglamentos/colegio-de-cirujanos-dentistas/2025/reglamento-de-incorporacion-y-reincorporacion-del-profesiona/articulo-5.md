@@ -1,0 +1,2 @@
+Artículo 5. Del Curso Bi-Modal de Incorporación.
+Quien solicite la incorporación a este Colegio deberá participar y aprobar el Curso Bi-Modal de Incorporación, el cual desde una metodología teórica y práctica induce al egresado de la carrera de Odontología y futuro Cirujano Dentista en el ámbito del ordenamiento jurídico sanitario, en cuanto a su vínculo con la Odontología y las obligaciones éticas en esta profesión, así como también en el funcionamiento del Colegio y los beneficios que se brindan a los agremiados.

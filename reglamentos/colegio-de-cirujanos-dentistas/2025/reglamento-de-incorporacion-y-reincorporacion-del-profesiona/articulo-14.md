@@ -1,0 +1,2 @@
+Artículo 14. Lo relativo a la colegiatura y a los Fondos.
+Las personas profesionales en Odontología a las que se les autorice la condición de retiro voluntario se eximen de la obligación de cancelar la cuota de colegiatura dentro del plazo en que mantengan esa condición. En tal caso, resuelto el retiro voluntario de un miembro, este perderá todos sus derechos, incluidos los relativos a los Fondos (Fondo de Mutualidad y Subsidio y Fondo de Retiro).
