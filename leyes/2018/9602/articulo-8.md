@@ -1,0 +1,2 @@
+Artículo 8- Ámbito de aplicación. Los efectos de la presente ley serán aplicables, además del Registro Inmobiliario, a los Registros de Personas Jurídicas y Bienes Muebles del Registro Nacional, los cuales integran el Registro Nacional, según los principios y materia sustantiva especial de cada uno de estos registros.
+(Así adicionado por el artículo 3° de la Ley para evitar el fraude sobre bienes y derechos registrales, N° 10830 del 19 de noviembre del 2025)
