@@ -1,3 +1,2 @@
 El rapto como delito de acción pública.
-ARTÍCULO 166.-
-El delito de rapto es de acción pública si concurren las circunstancias de los artículos 157 y 158.
+ARTÍCULO 166.- (Derogado por el artículo único de la ley N° 10817 del 16 de noviembre del 2025)
