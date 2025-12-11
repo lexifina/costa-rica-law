@@ -1,0 +1,3 @@
+Artículo 5- Modifíquese el título del artículo 22 "Actividad reforestación y SAF Bloque" del Manual de Procedimientos para el Programa de Pago de Servicios Ambientales del 14 de abril de 2020 y sus reformas, y adiciónese el inciso 22.11 del supra mencionado artículo 22; cuyos textos son los siguientes
+"Artículo 22. Actividad reforestación, SAF Bloque y SIPMABE"
+"22.11 En los proyectos de reforestación, rápido y mediano crecimiento y SIPMABE, solo se aceptarán proyectos que utilicen material reproductivo con mejoramiento genético, con tolerancia a plagas y enfermedades y con disponibilidad de semillas o clones certificados."

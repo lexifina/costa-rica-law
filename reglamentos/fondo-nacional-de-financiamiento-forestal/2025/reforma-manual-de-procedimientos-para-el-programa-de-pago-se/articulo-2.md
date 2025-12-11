@@ -1,0 +1,2 @@
+Artículo 2- Adiciónese el inciso 6.12 del artículo 6 "Tamaños mínimos y máximos de proyectos PSA" del Manual de procedimientos para el Programa de Pago de Servicios Ambientales del 14 de abril de 2020 y sus reformas:
+6.12 En los proyectos SIPMABE la cantidad mínima será de 3 hectáreas y máximo de 24 hectáreas por proyecto, pudiendo utilizar densidades entre 625 y 833 árboles. Con un máximo de 15 000 árboles por proyecto, dispuestos en bloques o hileras. La cantidad mínima de árboles en hileras será de 1000 árboles.

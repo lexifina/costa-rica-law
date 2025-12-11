@@ -1,0 +1,1 @@
+Artículo 13.- En todos los demás aspectos no considerados en la presente modificación, se mantiene invariable el Manual Procedimientos para el Programa de Pago de Servicios Ambientales vigente, publicado en el Alcance N°87 a La Gaceta N° 80 del 14 de abril del 2020 y sus reformas.

@@ -1,0 +1,2 @@
+Artículo 10- Adiciónese el sub inciso l al Anexo 1 "ARREGLOS Y LISTA DE ESPECIES FORESTALES ACEPTADAS PARA EL ESTABLECIMIENTO DE ÁRBOLES EN SAF" del Manual de Procedimientos para el Programa de Pago de Servicios Ambientales del 14 de abril de 2020 y sus reformas; cuyo texto es el siguiente
+"l. En los proyectos SIPMABE se reconocerán los arreglos SAF en hileras y en bloques, los cuales deben de establecerse en tiempo y espacio con el respectivo componente agropecuario"
