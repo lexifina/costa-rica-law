@@ -1,3 +1,3 @@
-ARTICULO 3º.- Recibidos los documentos por los Registradores de Partido, para su debida calificación e inscripción, deberán devolverlas al Archivo, debidamente calificados en su totalidad e inscritos, en un plazo máximo de ocho días naturales. El incumplimiento de esta disposición se considerará falta grave.
-Queda facultada la Dirección General del Registro para establecer plazos menores al indicado, tomando en consideración las demandas de servicio y su capacidad de trabajo; además velará por el debido cumplimiento de lo establecido en el presente artículo.
-(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)
+Artículo 3- Recibidos los documentos por los registradores, para su debida calificación e inscripción, deberán devolverlos al Archivo, debidamente calificados en su totalidad e inscritos, en un plazo máximo de ocho días hábiles.
+Queda facultada la Dirección General del Registro Público para establecer plazos distintos al indicado, de forma temporal, mediante resolución administrativa debidamente motivada y publicada en el diario oficial La Gaceta, tomando en consideración las demandas de servicio y su capacidad de trabajo; además, velará por el debido cumplimiento de lo establecido en el presente artículo.
+(Así reformado por el artículo único de le ley N° 10800 del 16 de noviembre del 2025)
