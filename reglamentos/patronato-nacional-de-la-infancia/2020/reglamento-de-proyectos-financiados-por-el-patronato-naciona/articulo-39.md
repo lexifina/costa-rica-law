@@ -1,1 +1,0 @@
-Artículo 39.—Derogatoria. Deróguese el Reglamento para la Formulación y Evaluación de Proyectos del Patronato Nacional de la Infancia, aprobado por la Junta Directiva en la sesión ordinaria 2019-016, del martes 4 de mayo de 2019, artículo 008) aparte 01).

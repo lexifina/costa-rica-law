@@ -1,2 +1,0 @@
-Artículo 22.—Supervisión técnica. Las organizaciones estarán sujetas a la fiscalización técnica del profesional responsable del proyecto, quien desarrollará acciones de acuerdo a lo establecido en los lineamientos para este fin elaborará informes de cierre de los resultados del proceso de supervisión.
-Por otra parte, cuando se estime necesario, la Auditoría Interna podrá realizar las verificaciones que considere convenientes sobre el uso de los fondos o cumplimiento de los objetivos del proyecto.

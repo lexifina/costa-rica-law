@@ -1,6 +1,0 @@
-CAPÍTULO IV
-De la Suspensión Automática del Giro de Recursos
-de los Proyectos con Presupuesto Ordinario
-y o Extraordinario
-Artículo 29.—Obligación de cumplimiento. Tanto el PANI como las Organizaciones deberán cumplir los compromisos pactados en los convenios que dan fundamento legal a la implementación de los proyectos financiados con presupuesto ordinario y o extraordinario, en atención del Interés Superior de la población de niños, niñas y adolescentes atendidas.
-No obstante, lo indicado anteriormente, el Departamento Financiero podrá suspender automáticamente el giro de los fondos transferidos a la Organización previa comunicación a ésta, cuando como resultado de la supervisión financiera o técnica o de una denuncia recibida, cuente con indicios de que la Organización presuntamente desvió el uso de los recursos a fines distintos de los pactados, de que incumplió alguna de las obligaciones establecidas en el convenio de transferencia de recursos vigente o del presente reglamento o haya incurrido en una acción u omisión violatoria de los derechos de personas menores de edad. Lo anterior, con sustento en lo regulado en el artículo 7 de la Ley Orgánica de la Contraloría General de la República.

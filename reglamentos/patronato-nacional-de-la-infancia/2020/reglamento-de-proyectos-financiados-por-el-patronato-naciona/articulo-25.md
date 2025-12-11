@@ -1,2 +1,0 @@
-Artículo 25.—Etapa implementación proyectos. La etapa de implementación de proyectos se refiere a la puesta en ejecución, por parte de la Organización del proyecto, para la consecución de los objetivos planteados, según lo planificado en las fases anteriores.
-El responsable institucional de la fiscalización del proyecto, debe realizar la incorporación al sistema informático de Administración de Proyectos para su trazabilidad, contar con las aprobaciones de su jefatura y realizar las debidas actualizaciones trimestrales.

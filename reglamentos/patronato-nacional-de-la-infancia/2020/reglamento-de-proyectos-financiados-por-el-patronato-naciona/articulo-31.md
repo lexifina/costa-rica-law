@@ -1,2 +1,0 @@
-Artículo 31.—Etapa planificación: Comprende el planeamiento que se realice a los proyectos por implementar. También comprende la adecuación del proyecto según la zona geográfica donde se desarrollará en caso de que la formulación que haya sido incorporada en el Portafolio sea genérica.
-Los responsables del Proyecto deben realizar las labores pertinentes para la consecución de los recursos necesarios y oportunos para el cumplimiento de los objetivos definidos en el proyecto.
