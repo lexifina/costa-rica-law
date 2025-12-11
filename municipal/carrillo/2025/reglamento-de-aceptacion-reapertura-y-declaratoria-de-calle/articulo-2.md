@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del procedimiento para la aceptación y declaración de vías públicas
+Artículo 2-Cualquier interesado debe gestionar por escrito ante la Unidad Técnica de Gestión Vial de la Municipalidad de Carrillo, la tramitación del recibimiento, reconocimiento, declaratoria y reapertura de un camino o de una calle como pública, conforme los términos del presente reglamento, debiendo indicar el interés público de la comunidad, con descripción del sector o localización del lugar donde se ubica la calle o camino, con las características del fundo, el aporte en caso de aceptarse su propuesta, y si se trata de donación o venta por parte de los vecinos.

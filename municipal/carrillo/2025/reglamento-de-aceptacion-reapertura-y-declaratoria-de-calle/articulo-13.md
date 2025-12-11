@@ -1,0 +1,1 @@
+Artículo 13.-Cuando en el acuerdo del Concejo Municipal se acepten áreas en donación deberá indicarse expresamente la autorización al (la) Alcalde (sa) para comparecer y a otorgar escritura pública, para la correspondiente inscripción en el Registro Nacional.

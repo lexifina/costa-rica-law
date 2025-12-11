@@ -1,0 +1,1 @@
+Artículo 26.-Informe final. El responsable de la Unidad Técnica de Gestión Vial Municipal deberá confeccionar un informe, procede a remitir copia al Concejo Municipal, a la Alcaldía, al Interesado o interesados, y a su archivo en el expediente original de la vía.

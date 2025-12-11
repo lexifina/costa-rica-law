@@ -1,0 +1,1 @@
+Artículo 23.-Contra el acuerdo del Concejo Municipal, cabrán los recursos administrativos previstos en el artículo 165 del Código Municipal. Debiendo interponerlos ante dicha instancia, dentro del plazo y el modo que indica la norma de remisión.

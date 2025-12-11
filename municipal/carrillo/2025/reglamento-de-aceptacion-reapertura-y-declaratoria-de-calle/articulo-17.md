@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la reapertura de las vías públicas
+Artículo 17.-El procedimiento para la reapertura de calles y caminos estará a cargo del órgano director que designe el Concejo Municipal y será el dictado por los artículos 33 de la Ley General de Caminos Públicos N° 5060 y sus reformas, el inicio del procedimiento puede hacerse directamente por la Municipalidad de Carrillo o a solicitud de parte; así como la jurisprudencia de la Sala Constitucional de la Corte Suprema de Justicia, según Voto Res. 2008-003038 de las diez horas y cincuenta y seis minutos del veintinueve de febrero del dos mil ocho.

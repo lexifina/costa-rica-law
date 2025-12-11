@@ -1,0 +1,1 @@
+Artículo 6-La Unidad Técnica de Gestión Vial Municipal en todos los casos tendrá como objetivo orientador el estudio y análisis de viabilidad y factibilidad técnica de la propuesta de las solicitudes planteadas por los interesados.

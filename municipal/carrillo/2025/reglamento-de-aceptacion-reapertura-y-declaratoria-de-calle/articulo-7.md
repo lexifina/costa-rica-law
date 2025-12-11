@@ -1,0 +1,2 @@
+Artículo 7-Inicio del trámite. La Unidad Técnica de Gestión Vial Municipal, una vez recibida la solicitud, verificará el cumplimiento de los requisitos establecidos en los artículos anteriores, de encontrarse incompletos prevendrá por una única vez y por escrito dentro de los tres días hábiles siguientes al(los) solicitante(s) para que complete los requisitos omitidos en la solicitud o el trámite, o que aclare o subsane la información dentro del plazo de 30 días
+hábiles.
