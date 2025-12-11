@@ -1,3 +1,3 @@
-ARTÍCULO 33.- Requisito para aprobar presupuestos municipales. La Contraloría General de la República improbará el presupuesto municipal anual que no contemple los porcentajes de lo recaudado por concepto del impuesto de bienes inmuebles, indicados en el artículo 28 y los transitorios I y II (*) de esta Ley.
-(*) (NOTA: los transitorios I y II mencionados en este numeral se encuentran derogados)
+Artículo 33- Requisito para aprobar presupuestos municipales. La Contraloría General de la República aprobará, parcialmente, el presupuesto municipal que no contemple lo dispuesto en el artículo 30 de la presente ley, debiendo ajustar, la Administración Municipal, el plan de gastos, con el fin de garantizar dicho destino. Este ajuste no requerirá aprobación del concejo municipal.
 (Así modificada su numeración por el artículo 2º, inciso c), de la ley Nº 7729 de 15 de diciembre de 1997, que lo trasladó del 31 al 33)
+(Así reformado por el artículo 2° de la Ley de modernización del trámite presupuestario municipal, N° 10795 del 18 de noviembre del 2025)
