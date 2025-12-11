@@ -1,0 +1,4 @@
+Artículo 21.-Evaluación de la idoneidad conjunta del Órgano de Dirección.
+La Junta de Protección Social, por medio del Tribunal Electoral, deberá realizar una evaluación de idoneidad conjunta del Órgano de Dirección de FOMUVEL, con el fin de verificar que, en su conjunto, el órgano mantenga un equilibrio adecuado de conocimientos, competencias, experiencia y diversidad de criterios que aseguren un desempeño colegiado eficaz.
+La evaluación conjunta deberá aplicarse bajo un modelo que garantice la objetividad, transparencia y trazabilidad de los resultados, privilegiando la adopción de metodologías de consenso entre los evaluadores designados, conforme a las buenas prácticas promovidas por FOMUVEL.
+Los resultados serán comunicados oportunamente a FOMUVEL y a la Junta Directiva de la JPS para su seguimiento.

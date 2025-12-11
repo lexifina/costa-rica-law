@@ -1,0 +1,6 @@
+Artículo 19.-Modelo de evaluación de la idoneidad:
+La evaluación de idoneidad de los miembros del Órgano de Dirección de FOMUVEL se realizará mediante un modelo integral que permita valorar, de forma objetiva y documentada, el cumplimiento de los criterios establecidos en esta política.
+Se considerarán idóneas aquellas personas que obtengan una calificación superior a setenta (70) puntos, entendida como un nivel mínimo de cumplimiento de los requisitos de idoneidad definidos en el Reglamento CONASSIF N.º 15-22.
+El grado de idoneidad se determinará con base en la evidencia presentada, reconociendo que no es necesario alcanzar la calificación máxima para cumplir con los estándares regulatorios. Lo esencial será que la persona demuestre, de manera verificable, integridad, experiencia, formación y dedicación acordes con las responsabilidades del cargo.
+Cuando se identifiquen carencias subsanables, la evaluación podrá recomendar acciones de fortalecimiento para su atención en los plazos que determine la autoridad competente, conforme a lo dispuesto en el reglamento citado.
+El proceso de evaluación deberá regirse por los principios de objetividad, transparencia, trazabilidad y razonabilidad técnica, garantizando decisiones fundadas en criterios verificables y consistentes con el marco normativo aplicable.
