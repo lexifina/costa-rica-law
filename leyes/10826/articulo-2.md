@@ -1,0 +1,7 @@
+ARTÍCULO 2- Definición de la educación marino-costera. A los efectos de la presente ley, se entiende por educación marino-costera el conjunto de procesos y acciones formativas destinadas a:
+a) Incrementar el conocimiento sobre los ambientes marino-costeros, la biodiversidad, con especial énfasis en las especies endémicas, los ecosistemas que los integran y los procesos ecológicos que engloban esta temática a nivel local, nacional y global.
+b) Formar criterio y conductas responsables para la comprensión, conservación de los ecosistemas marino-costeros, así como la importancia de los servicios ambientales que estos ofrecen.
+c) Desarrollar agentes multiplicadores del conocimiento y la protección de los ecosistemas marino-costeros y sus servicios ecosistémicos.
+d) Promover prácticas de conservación y manejo sostenible de los recursos marino-costeros, dentro de las actividades socioeconómicas que se realicen en las comunidades costeras.
+e) Estudiar y difundir los impactos de las problemáticas de cambio climático, contaminación por plástico y pérdida de biodiversidad, incluyendo la disminución y desaparición de especies en peligro, así como los factores que contribuyen a su amenaza, en los espacios marino-costeros, así como promover las acciones de prevención y mitigación frente a estas problemáticas.
+f) Comprender la importancia del ordenamiento espacial marino, como herramienta de planificación y uso adecuado de las actividades que se realizan en el mar territorial y la zona económica exclusiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 5- Recursos para el programa. El programa deberá recibir, anualmente, presupuesto suficiente para su oportuna ejecución. Dicho presupuesto será proveniente de los recursos que constitucionalmente se deben destinar a educación.
