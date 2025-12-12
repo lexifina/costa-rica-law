@@ -1,0 +1,4 @@
+Artículo 13. - De los conflictos de interés
+Los miembros de la Junta Directiva deberán declarar por escrito, al inicio de su gestión y cada vez que surja una situación relevante, cualquier relación personal, familiar, profesional o contractual que pueda comprometer su independencia o generar un conflicto de interés en la deliberación o votación de los asuntos sometidos a su conocimiento.
+En tales casos, deberán abstenerse de participar en la discusión y votación respectiva, dejando constancia de ello en el acta de la sesión.
+El incumplimiento de esta obligación será comunicado a la Junta Directiva para la adopción de las medidas institucionales que correspondan, las cuales podrán incluir la advertencia formal en acta, la exclusión temporal de comités o la recomendación de revocatoria del nombramiento ante la Junta de Protección Social, según la gravedad del caso y la normativa aplicable.

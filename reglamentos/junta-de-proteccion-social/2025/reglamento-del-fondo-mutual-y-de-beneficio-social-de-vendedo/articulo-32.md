@@ -1,0 +1,5 @@
+Artículo 32.- De la comunicación institucional y la Asamblea Anual Constitutiva
+La Junta Directiva de FOMUVEL podrá convocar anualmente una Asamblea de carácter consultivo e informativo, con el propósito de comunicar los resultados de gestión, programas, proyectos y estados financieros del Fondo, así como recoger observaciones y sugerencias de las personas vendedoras de lotería.
+La convocatoria podrá realizarse de forma presencial, virtual o mixta, según lo determine la Junta Directiva, garantizando el acceso equitativo de los vendedores en todo el país.
+La fecha de la asamblea será definida por la Junta Directiva dentro del primer cuatrimestre del año, procurando su realización en un plazo razonable posterior al cierre del ejercicio económico anterior.
+Los informes presentados y la memoria de gestión deberán ser puestos a disposición del público vendedor mediante medios de comunicación institucionales y accesibles, sin que la Asamblea tenga efectos decisorios o vinculantes sobre la gestión o los resultados del Fondo.

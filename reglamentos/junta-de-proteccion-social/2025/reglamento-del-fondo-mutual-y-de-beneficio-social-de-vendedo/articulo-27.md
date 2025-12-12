@@ -1,0 +1,4 @@
+Artículo 27.- Del aporte del 0.75% y su destino institucional
+Los aportes del cero coma setenta y cinco por ciento (0,75 %) a que se refiere el artículo 26 de la Ley N° 7395 de Loterías y sus reformas, se destinarán a engrosar el capital institucional de FOMUVEL, con cuyos rendimientos la entidad financiará los programas sociales, administrativos y de fortalecimiento operativo que sustentan su misión.
+Este capital deberá individualizarse por vendedor en las cuentas que se mantienen a su nombre, sin que dicha individualización implique disponibilidad inmediata o retiro por parte del vendedor mientras mantenga su condición de aportante activo.
+Los rendimientos generados por este capital serán administrados por FOMUVEL conforme a las políticas de inversión, seguridad, liquidez y rentabilidad aprobadas por su Junta Directiva.

@@ -1,0 +1,6 @@
+TRANSITORIOS
+Transitorio N° 1.- De la ampliación del período y la continuidad escalonada de los miembros actuales de la Junta Directiva
+Los miembros de la Junta Directiva de FOMUVEL que se encuentren en funciones a la entrada en vigor del presente Reglamento continuarán en sus cargos por el resto del nuevo período de cuatro (4) años, contado a partir de la fecha original de su nombramiento, manteniendo el régimen escalonado de renovación establecido, de manera que la designación de los representantes correspondientes a años pares e impares conserve su alternancia habitual.
+No se requerirá ratificación ni nuevo acuerdo de nombramiento por parte de la Junta Directiva de la Junta de Protección Social.
+En observancia de las Políticas de Idoneidad aplicables a todos los miembros que conforman la Junta Directiva de FOMUVEL, el Tribunal Electoral, en coordinación con la Junta Directiva de la JPS, realizará la verificación o actualización de la idoneidad de todas las personas que actualmente mantienen su designación, con el propósito de fortalecer la transparencia, la gobernanza y la gestión institucional.
+Esta disposición tiene como propósito armonizar los nombramientos vigentes con el nuevo plazo reglamentario, garantizar la continuidad institucional, la estabilidad del órgano colegiado y la adecuada representación de todos los sectores.

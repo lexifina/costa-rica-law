@@ -1,0 +1,6 @@
+Artículo 7.- Del nombramiento de la Junta Directiva y del Tribunal Electoral
+El nombramiento de los miembros de la Junta Directiva de FOMUVEL corresponde a la Junta Directiva de la Junta de Protección Social, y se realizará dentro de los primeros ocho días del mes previo a aquel en que venza el plazo del nombramiento respectivo.
+La Junta Directiva de la JPS nombrará un Tribunal Electoral, integrado por personas funcionarias de la institución.
+El Tribunal será el encargado de organizar y tramitar los procesos de convocatoria, postulación y verificación de requisitos de las personas interesadas para conformar la Junta Directiva de FOMUVEL, así como de velar por su transparencia y constatar el cumplimiento de las Políticas de Idoneidad aplicables a los miembros de la Junta Directiva de FOMUVEL, aprobadas por la Junta Directiva de la JPS.
+El Tribunal Electoral deberá verificar y documentar dicho cumplimiento como requisito indispensable antes de emitir su recomendación.
+Las postulaciones, el proceso de elección y los nombramientos deberán acreditar el cumplimiento de las Políticas de Idoneidad aplicables a todos los miembros de la Junta Directiva de FOMUVEL, aprobadas por la Junta Directiva de la JPS.

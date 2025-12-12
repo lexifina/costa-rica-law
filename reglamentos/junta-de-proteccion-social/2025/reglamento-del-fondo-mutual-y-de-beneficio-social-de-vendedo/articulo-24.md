@@ -1,0 +1,3 @@
+Artículo 24.- De los saldos prescritos de ex aportantes
+Si transcurridos diez (10) años desde la fecha en que se canceló la condición de vendedor, los saldos de los ex aportantes custodiados por FOMUVEL no han sido retirados ni reclamados por los exvendedores o sus derechohabientes, el derecho sobre tales recursos prescribirá y los mismos pasarán a formar parte del patrimonio de FOMUVEL.
+Previo a cualquier traslado de recursos a la reserva de proyectos estratégicos, conforme a lo previsto en el artículo 28 de este Reglamento, FOMUVEL deberá demostrar y documentar el debido proceso de búsqueda y notificación, que evidencie los esfuerzos razonables realizados para localizar a los titulares o a sus derechohabientes y devolver los fondos.
