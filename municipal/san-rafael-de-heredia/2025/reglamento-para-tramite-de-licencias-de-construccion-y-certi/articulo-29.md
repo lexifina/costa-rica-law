@@ -1,0 +1,1 @@
+Artículo 29°- En caso de solicitar desfogar a un sistema de alcantarillado existente, la Municipalidad se reservará, a criterio de las instancias técnicas respectivas, el derecho a solicitar el estudio técnico correspondiente, en el cual se determine si la infraestructura tiene la suficiente capacidad para desfogar las aguas pluviales del proyecto que se pretende desarrollar.

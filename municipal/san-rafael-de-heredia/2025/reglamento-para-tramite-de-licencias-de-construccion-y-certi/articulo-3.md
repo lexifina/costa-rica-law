@@ -1,0 +1,3 @@
+Capítulo II
+Disposiciones Generales de las Licencias Municipales de Construcción
+Artículo 3º-Actos sujetos a licencia. Sin perjuicio de las demás autorizaciones dadas por instituciones públicas con arreglo a la legislación aplicable, están sujetos a previa licencia municipal, en los términos del presente Reglamento y demás legislación urbanística conexa, todos los actos y actividades de construcción y edificación, ya sea de carácter permanente o provisional, que se realice dentro de la jurisdicción del Cantón de San Rafael. Las obras generales y menores deben cumplir con los requisitos expuestos en el presente capítulo.

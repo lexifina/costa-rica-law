@@ -1,0 +1,1 @@
+Artículo 12º-Inspección preliminar. De previo al otorgamiento de una Licencia por parte de la Unidad de Gestión Urbana y Territorial o el departamento encargado, según sea el trámite solicitado, los inspectores municipales realizarán una inspección en el campo, a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.

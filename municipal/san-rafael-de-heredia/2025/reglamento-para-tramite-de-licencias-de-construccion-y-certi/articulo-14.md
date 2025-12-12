@@ -1,0 +1,1 @@
+Artículo 14°-Sobre la suspensión de la obra. El propietario de un determinado inmueble, de acuerdo a las normas de este Reglamento y al artículo del Reglamento concordante con la Ley de Construcciones, deberá dar aviso cuando se suspenda una determinada obra, en caso contrario estará sujeto a las sanciones estipuladas en el presente reglamento.

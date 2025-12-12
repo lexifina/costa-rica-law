@@ -1,0 +1,7 @@
+Artículo 24º-Requisitos Especiales para la tramitación de la Licencia para Instalación de Publicidad Exterior. Para la tramitación y obtención de la licencia para Instalación de Publicidad Exterior, se deberá aportar en complemento a los requisitos establecidos en el artículo Nº18 o en el artículo Nº20 según sea el caso, los siguientes documentos:
+a) Planos constructivos donde se describa claramente las características del rótulo a colocar. Por ejemplo, dimensiones, localización, sistema de anclaje o instalación, colores, iluminación y cualquier otro aspecto importante de considerar.
+b) Visto bueno del MOPT en caso de la propiedad se encuentre con frente a ruta nacional. (Debe aportarlo el solicitante, trámite es personal)
+c) En los casos que se utilice imágenes de la mujer impúdicamente, haga referencia a la dignidad de la mujer o el pudor de la familia, se requerirá visto bueno de la Oficina de Control de Propaganda del Ministerio de Gobernación (Ley 5811).
+d) Alineamiento del INVU si el lote está afectado por río, quebrada o acequia, etc. (Debe aportarlo el solicitante, trámite es personal, incluso tiene un costo)
+e) Alineamiento del I.C.E. si eventualmente por el lote pasa cables de alta tensión. (Debe aportarlo el solicitante, trámite es personal)
+f) Alineamiento del AyA, cuando eventualmente el inmueble se vea afectado por servidumbre de aguas (Debe aportarlo el solicitante, trámite es personal, incluso tiene un costo).
