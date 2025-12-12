@@ -1,0 +1,1 @@
+Artículo 52.- Inembargabilidad de recursos. El patrimonio general del CTP y del Tribunal Administrativo de Transporte, será inembargable y de ningún modo podrá ser traspasado al Gobierno Central ni a sus instituciones; tampoco podrá ser usado por ellos.

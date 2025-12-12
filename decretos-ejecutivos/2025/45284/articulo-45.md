@@ -1,0 +1,5 @@
+Artículo 45.- Obligaciones del CTP. El CTP mantendrá informados a los usuarios del transporte remunerado de personas respecto de los siguientes aspectos:
+1) Las variaciones o modificaciones operativas del sistema de transporte remunerado de personas.
+2) Las solicitudes y fijaciones de nuevas tarifas.
+3) El catálogo de los derechos y deberes de los usuarios del transporte remunerado de personas y cuya difusión y cumplimiento serán tutelados por el CTP.
+Para ello el CTP comunicará estas disposiciones a través de los medios que considere necesarios y pertinentes para cada caso, pero que deberán contemplar al menos a los usuarios que hayan gestionado directamente ante la institución respecto a alguna queja, necesidad o mejora, a las asociaciones debidamente acreditadas ante el CTP de usuarios, concesionarios, permisionarios o prestatarios de los servicios de taxi, ruta regular, servicios especiales, servicio especial estable de taxi, taxi carga limitada y a través de los medios de comunicación masiva mediante comunicados o boletines de prensa.

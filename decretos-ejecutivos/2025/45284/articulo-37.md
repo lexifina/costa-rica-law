@@ -1,0 +1,2 @@
+Artículo 37°. - Antigüedad de los vehículos. Ningún vehículo para taxi debe tener una antigüedad mayor a quince años, vencido el rango de antigüedad, el vehículo no podrá circular por ninguna circunstancia. El cambio de unidad por razones de cumplimiento del rango de antigüedad deberá realizarse antes y nunca después del vencimiento del mismo.
+Por ningún motivo debe una unidad con rango de antigüedad vencido circular para prestar el servicio público de taxi.

@@ -1,0 +1,1 @@
+Artículo 39° . - Traspaso de vehículos. Los vehículos adquiridos para taxi que hayan sido exonerados, podrán sustituirse cada cuatro años, siempre que se demuestre que se utilizaron, exclusivamente, en la prestación del servicio, objeto del presente reglamento.

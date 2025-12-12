@@ -1,0 +1,5 @@
+Artículo 25°. - ldentificativos de los taxis. Los taxis deben contar con la siguiente rotulación:
+1) Un triángulo de color amarillo Caterpillar en las puertas delanteras y el techo, indicando el número de la placa asignada, y la base de operación autorizada. Los vehículos designados para el transporte de personas con discapacidad deben tener, además, el símbolo universal para personas con discapacidad.
+2) Un rótulo plástico iluminado en el techo del vehículo, con la leyenda "TAXI CONSEJO DE TRANSPORTE PÚBLICO".
+La rotulación se hará en letra imprenta con caracteres claros de color negro. No se permitirá ninguna rotulación por medio de calcomanías. La leyenda "TAXI" es de uso exclusivo de esta modalidad de servicio y es característica inherente al mismo.
+La rotulación debe estar hecha en pintura retro reflectiva. La verificación y cumplimiento de la presente disposición deberá ser supervisado cada seis meses durante la Inspección Técnica Vehicular a la que deben someterse los vehículos de transporte público remunerado de personas, lo anterior de conformidad con lo dispuesto en los Artículos 30 inciso a), 35 y 46 de la Ley 9078 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 57.-Norma Técnica de Taxis. En cumplimiento del artículo 5, inciso 9) del presente reglamento, el CTP contará con el plazo de hasta un año contado a partir de la entrada en vigencia de este reglamento, para que elabore o contrate la Norma Técnica de taxis, la cual deberá ser aprobada por la Junta Directiva del CTP por medio de acto administrativo motivado.
