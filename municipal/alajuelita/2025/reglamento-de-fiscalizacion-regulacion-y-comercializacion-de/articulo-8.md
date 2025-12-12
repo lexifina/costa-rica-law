@@ -1,0 +1,2 @@
+Artículo 8º-Los establecimientos autorizados para el giro de restaurante, permitirán la permanencia de menores de edad; quienes no podrán adquirir ni consumir dentro del establecimiento bebidas con contenido alcohólico.
+Si la actividad principal del lugar se constate que tiende sobre todo hacia la venta de bebidas con contenido alcohólico, las autoridades municipales previo debido proceso, podrán cambiar la categorización de restaurante a la categoría que se enmarque según las actividades que se están llevando a cabo.

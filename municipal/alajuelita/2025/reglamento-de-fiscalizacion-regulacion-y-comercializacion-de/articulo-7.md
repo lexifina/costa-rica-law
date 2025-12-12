@@ -1,0 +1,1 @@
+Artículo 7º-Los menores de edad podrán ingresar a aquellos establecimientos catalogados en este reglamento bajo la clase A que vendieren complementariamente otros productos sin contenido alcohólico, con el único fin de adquirir tales mercancías.

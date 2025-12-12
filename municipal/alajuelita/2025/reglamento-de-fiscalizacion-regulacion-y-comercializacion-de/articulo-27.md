@@ -1,0 +1,1 @@
+Artículo 27°.-Aquellas actividades temporales tales como: fiestas cívicas, patronales, culturales, ferias y similares que cuenten con el permiso respectivo de la municipalidad; no estarán sujetos a restricción por distancia alguna. Los puestos sólo podrán ubicarse en el área demarcada por la municipalidad para la realización de los festejos.

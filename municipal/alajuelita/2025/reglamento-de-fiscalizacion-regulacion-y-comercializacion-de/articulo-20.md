@@ -1,0 +1,5 @@
+CAPÍTULO V
+Clasificación y homologación de las licencias de funcionamiento
+Artículo 20°.-La municipalidad podrá otorgar según la actividad, licencias permanentes o licencias temporales de conformidad con los siguientes criterios:
+a) Licencias permanentes: Serán aquellas licencias para la comercialización, expendio o consumo de bebidas con contenido alcohólico aprobadas por el Concejo Municipal y emitidas por la dependencia encargada de otorgar las licencias y patentes de funcionamiento para el ejercicio de una actividad o giro específico de forma continua y permanente por el término de 5 años prorrogables mediante el trámite de renovación conforme este reglamento.
+b) Licencias temporales: Serán aquellas licencias para la comercialización, expendio o consumo de bebidas con contenido alcohólico aprobadas por el Concejo Municipal y emitidas por la dependencia encargada de otorgar las licencias y patentes de funcionamiento para el ejercicio de una actividad o giro específico por un plazo no mayor a 30 días naturales, siempre y cuando cuenten con la autorización previa del Concejo Municipal mediante acuerdo en firme y los permisos respectivos de otras dependencias.

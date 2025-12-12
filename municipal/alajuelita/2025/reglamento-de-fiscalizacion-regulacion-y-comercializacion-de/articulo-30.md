@@ -1,0 +1,1 @@
+Artículo 30°.-Las licencias de expendio de bebidas con contenido alcohólico concedidas bajo la Ley número 9047 no son susceptibles de traspaso ni traslado, debiendo para estos casos otorgarse una nueva licencia previo cumplimiento de los requisitos dispuestos para la obtención de una licencia permanente en este reglamento.

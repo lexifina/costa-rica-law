@@ -1,0 +1,1 @@
+Artículo 26°.-La medición de las distancias a que se refiere el artículo 9 de la Ley número9047 se hará de puerta a puerta, entre el establecimiento que pretenda comercializar bebidas con contenido alcohólico y aquél punto de referencia que afecte la instalación del comercio.

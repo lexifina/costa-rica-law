@@ -1,0 +1,5 @@
+Transitorio II.-La licencia para expendio de bebidas con contenido alcohólico autorizadas mediante la Ley de Licores número 10 que a la entrada en vigencia de la Ley número 9047 se encuentre o se le otorgue la condición de explotación, deberá cancelar trimestralmente medio salario base, siendo el menor monto dispuesto en el artículo 10 la Ley número 9047.
+El pago que se realice no impide la revocación de la licencia cuando se dé la falta de explotación comercial por más de 6 meses en los términos del artículo 6 inciso b) de la Ley número 9047 y el artículo 38 de este reglamento.
+Derogatoria. Deróguese cualquier reglamento, disposición o normativa municipal anterior que regule la fiscalización, regulación y comercialización de bebidas con contenido alcohólico en el cantón de Alajuelita, en cuanto se oponga o resulte incompatible con lo dispuesto en el presente Reglamento.
+(Incorporado el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 158 del 21 de agosto de 2026, página N° 2)
+Alajuelita, 11 de noviembre del 2025.

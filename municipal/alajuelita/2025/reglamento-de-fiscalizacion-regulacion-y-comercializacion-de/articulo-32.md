@@ -1,0 +1,2 @@
+Artículo 32°.-En caso de tramitarse la renovación de la licencia de funcionamiento, la dependencia encargada de las licencias y patentes de funcionamiento no aplica la verificación de las distancias aplicadas al establecimiento al momento de aprobarse por primera vez la licencia.
+En caso de tramitarse la renovación de la licencia de funcionamiento junto al cambio de giro y se excedan las distancias aplicadas al momento de aprobarse la licencia por primera vez, se deberá proceder a la denegatoria en el tanto se den los supuestos del artículo 9 de la Ley número 9047.
