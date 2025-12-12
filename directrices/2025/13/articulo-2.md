@@ -1,0 +1,2 @@
+Artículo 2º-El Salario Global que se establece en el artículo 1 de la presente Directriz, realizados conforme con lo dispuesto en el artículo 34 de la Ley Marco de Empleo Público, N° 10159, se encuentran disponibles en el sitio web del Ministerio de Planificación Nacional y Política Económica https://www.empleopublico.mideplan.go.cr.
+(Nota de Sinalevi: La lista de los salarios globales puede ser consultado en el siguiente Link)
