@@ -1,0 +1,2 @@
+Artículo 12. Aplicación de Parámetros en Zonas de Renovación Urbana
+Considerando que las áreas delimitadas en el mapa de zonificación como zonas de renovación urbana se encuentran en Zona de Uso Mixto, Residencial, Comercial y de Servicios (ZMR) de este PRU, se podrá ajustar los parámetros de manera que se logre incentivar el desarrollo en estos sectores, su aplicación será determinada en el artículo 16 de este reglamento.

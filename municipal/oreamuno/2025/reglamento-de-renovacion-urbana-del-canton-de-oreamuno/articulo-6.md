@@ -1,0 +1,3 @@
+Artículo 6.- Causas para la renovación urbana.
+Las principales causas para implementar la renovación urbana son las siguientes:
+Áreas urbanas disfuncionales que no cuenten con infraestructura urbana básica como elementos de movilidad y vialidad, agua potable, electricidad y telecomunicaciones, o bien sectores en los que se cuenta con infraestructura deficiente, que no satisface las necesidades de la población a la que sirven, o infraestructura inexistente. Se requiere dictamen del Concejo Municipal mediante criterio técnico correspondiente y de la entidad competente de dotar la infraestructura requerida para el otorgamiento del servicio, haciendo constar la inexistencia o deficiencia de la infraestructura en relación con la población a la que sirve.

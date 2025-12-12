@@ -1,0 +1,3 @@
+Artículo 14. Sociedades públicas de economía mixta para la renovación urbana.
+La Municipalidad podrá establecer y participar de sociedades públicas de economía mixta para la gestión específica de los Planes de Renovación Urbana y para la proyección urbanística del cantón, conforme al Código Municipal, y la Ley Reguladora de la Actividad de las Sociedades Públicas de Economía Mixta.
+El objetivo de estas sociedades es establecer el modelo de gestión conjunto entre el sector público y privado, para Planes de Renovación Urbana. Además, facilitará la compra de terrenos para la construcción de equipamiento urbano, vivienda, áreas verdes y recreativas.

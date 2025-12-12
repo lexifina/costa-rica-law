@@ -1,0 +1,2 @@
+Artículo 2.- Objetivos.
+El objetivo de este reglamento es autorizar la intervención de la Municipalidad en las áreas del cantón incluidas en el mapa de zonificación y que se encuentran defectuosas, decadentes o deterioradas, tomando en cuenta la inconveniente parcelación o edificación, la carencia de servicios, densificación conforme a los parámetros de la zonificación y facilidades comunales, a fin de que se adopten las medidas y regulaciones para conservar, rehabilitar o remodelar dichas áreas.
