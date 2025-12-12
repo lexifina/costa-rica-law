@@ -1,0 +1,2 @@
+Artículo 6: Sobre el Plan de Readecuación, ajuste e Incentivos (PRAI)
+Para las áreas de protección de recurso hídrico que actualmente se encuentran con ocupación contraria a lo establecido por la normativa, se debe de cumplir de manera obligatoria lo dictaminado en el Plan de Readecuación, ajuste e Incentivos (PRAI), con los lineamientos ambientales que establecido la Municipalidad de Oreamuno para este tipo de Áreas; dicho plan puede ser solicitado en la Oficina de Gestión Ambiental de la Municipalidad, o bien consultado en la página web www.oreamuno.go.cr.
