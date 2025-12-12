@@ -1,0 +1,1 @@
+TRANSITORIO I- Los establecimientos públicos y privados, sujetos a estas disposiciones, tendrán el plazo de un año y seis meses, a partir de la entrada en vigencia de esta ley, para el cumplimiento en la prestación de los servicios mencionados.

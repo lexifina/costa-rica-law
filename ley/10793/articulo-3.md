@@ -1,0 +1,1 @@
+ARTÍCULO 3- Esta ley se aplica en todas las maternidades del país, públicas y privadas, y cualquier establecimiento de salud donde se atiendan nacimientos, en todos los establecimientos de primer nivel de atención y establecimientos médicos donde se atiendan personas recién nacidas.
