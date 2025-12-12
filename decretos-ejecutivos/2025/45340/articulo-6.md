@@ -1,0 +1,1 @@
+Artículo 6º - Se otorga a los operadores aéreos un plazo de noventa (90) días naturales para la implementación del ajuste a las Tarifas del CUAC (Cargo por Uso de Áreas Comunes) y TAP (Tarifa Alternativa de Parqueo) en la facturación correspondiente; el cual, se computará a partir del día siguiente de la publicación del presente decreto.
