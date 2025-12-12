@@ -1,0 +1,1 @@
+Artículo 8º-Formalización y registro. La formalización de las donaciones se realizará mediante la documentación legal pertinente según corresponda a la naturaleza del bien, recurso o servicio donado. Una vez finalizado el proceso, el expediente se enviará a Gestión Documental para su debido resguardo.

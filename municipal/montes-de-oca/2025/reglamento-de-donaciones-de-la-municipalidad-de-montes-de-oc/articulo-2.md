@@ -1,0 +1,2 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para todas las dependencias y funcionarios municipales. La unidad destinataria de la donación será responsable de su correcta ejecución y aprovechamiento conforme a su naturaleza y finalidad. La Alcaldía Municipal supervisará su correcta aplicación.
+La inobservancia de estas disposiciones podrá generar responsabilidades administrativas u otras correspondientes.

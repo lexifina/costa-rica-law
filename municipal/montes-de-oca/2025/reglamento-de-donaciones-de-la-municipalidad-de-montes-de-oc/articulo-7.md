@@ -1,0 +1,2 @@
+Artículo 7º-Aprobación y comunicación. La Alcaldía, con base en los criterios técnicos, emitirá una resolución fundamentada, notificará a las partes involucradas, instruirá las acciones de implementación informará al Concejo Municipal de todo el proceso.
+En caso de requerir, según los criterios generales de este reglamento, la aprobación del Concejo Municipal, la Alcaldía remitirá al Concejo el expediente para su estudio y aprobación.
