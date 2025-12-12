@@ -1,0 +1,1 @@
+Artículo 9. Tanto para movimientos de tierra mayores a 300 m³ como para obras con área superior a 500 m² de construcción; se debe gestionar ante SETENA la viabilidad ambiental, cuya evaluación incluye el estudio de impacto a bienes arqueológicos según lo dictado en la Ley de Protección al Patrimonio Arqueológico Nacional N° 6703.

@@ -1,0 +1,1 @@
+Artículo 7. La Municipalidad, en cualquier momento podrá ordenar la suspensión de las obras que no reúnan las condiciones requeridas conforme a la Ley de Patrimonio Histórico - Arquitectónico de Costa Rica N° 7555 y, o cuando se ejecuten sin las autorizaciones y requisitos establecidos.
