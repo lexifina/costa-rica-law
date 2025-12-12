@@ -1,0 +1,2 @@
+Artículo 9. Sobre acciones de conservación.
+La Municipalidad, en el marco del proyecto Oreamuno amigo de las abejas y su estrategia de conservación y polinización, buscará la implementación de jardines y espacios para la proliferación de especies y plantas nativas del cantón a fin de poder conservar la polinización en los diferentes distritos. Dichos jardines serán diseñados con especies nativas y bajo la supervisión de la Municipalidad de Oreamuno o la institución que la Municipalidad designe.

@@ -1,0 +1,4 @@
+Artículo 11. Incentivo para la zona de interés paisajístico.
+En la zona de interés paisajístico se podrá obtener una ampliación de hasta de un 5% en cobertura cuando en el diseño se detallen el uso de soluciones de infraestructura verde o soluciones basadas en la Naturaleza, tales como, tejados verdes, pavimentos porosos, diseñar jardines en las cubiertas nuevas de edificios con pendientes menores a 30 grados, tejados o bien paredes verdes; muros verdes naturales o cercas vivas, biojardineras, cosecha de agua, sistema para el uso y reuso de aguas residuales que cumplan lo indicado en la legislación, paneles solares o algún tipo de energía alternativa renovable, como biodigestores entre otros que sean avalados por la Municipalidad de Oreamuno.
+Para el otorgamiento del porcentaje de la ampliación de cobertura se regirá con el siguiente cuadro para obtener hasta un 5%:
+[imagen]
