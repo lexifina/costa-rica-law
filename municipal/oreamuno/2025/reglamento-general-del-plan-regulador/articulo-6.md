@@ -1,0 +1,1 @@
+Artículo 6. Ámbito de aplicación. Las disposiciones del PRU serán de aplicación y acatamiento obligatorio para todas las personas físicas, personas jurídicas, entes públicos y privados en el cantón de Oreamuno.

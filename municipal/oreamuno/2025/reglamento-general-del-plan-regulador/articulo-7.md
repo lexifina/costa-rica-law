@@ -1,0 +1,1 @@
+Artículo 7. Modificaciones y actualización del PRU. Para la modificación, suspensión o derogación parcial o total del PRU, deberán seguirse las disposiciones y procedimientos establecidos en el artículo 17 de la Ley de Planificación Urbana N.º 4240.

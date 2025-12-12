@@ -1,0 +1,2 @@
+Artículo 15. Resolución para Proyectos complejos y atípicos.
+Los proyectos complejos y atípicos que implican un estudio técnico especial tendrán un plazo de resolución máximo de treinta días hábiles. El Departamento de Desarrollo y Control Urbano de la Municipalidad podrá solicitar, cuando se requiera, el criterio de otras instituciones u otras dependencias municipales, o solicitar de ser necesario, ampliación de información al interesado para tomar la decisión final
