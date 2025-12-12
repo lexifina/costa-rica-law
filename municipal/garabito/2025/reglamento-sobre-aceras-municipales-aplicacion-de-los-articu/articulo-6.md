@@ -1,0 +1,3 @@
+Artículo 6: Dimensiones y Materiales. En obra nueva de acera.
+Las aceras deben garantizar que sean superficies antideslizantes, las cuales deben ser probadas en condiciones de humedad máxima. En caso de presentar riesgo por no ser antideslizante debe realizar las mejoras para que la superficie sea porosa y por tanto antideslizante.
+Esto aplica únicamente para aceras construidas con superficies sin filos, huecos, grietas, con pendiente transversal y longitudinal no superiores a lo solicitado en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad 7600 y este reglamento. La infraestructura peatonal nueva deberá contar con un diseño constructivo técnico que resuelva las necesidades estructurales y deberá ajustarse a lo establecido en la Ley 7600.

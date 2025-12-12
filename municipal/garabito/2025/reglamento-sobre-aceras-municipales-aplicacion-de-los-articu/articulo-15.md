@@ -1,0 +1,2 @@
+Artículo 15. Participación en la etapa de diseño de obras. Podrán ser incluidas dentro del planeamiento y construcción de las obras, aquellas recomendaciones de personas usuarias, relacionadas con las necesidades y usos de la infraestructura peatonal.
+Se incluirán en los planes quinquenales o estratégicos municipales, proyectos de infraestructura, algunos de los cuales podrán comenzar a ser desarrollados en el corto plazo como intervenciones de urbanismo táctico, siempre y cuando las condiciones del espacio (ancho, ubicaciones) y presupuesto, así lo permitan.
