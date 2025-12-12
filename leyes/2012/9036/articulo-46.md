@@ -1,5 +1,4 @@
-ARTÍCULO 46.- Requisitos para las personas en las diferentes modalidades
-Se entenderá como arrendataria o asignataria la persona física que cumpla los siguientes requisitos:
+ARTÍCULO 46.- Requisitos para las personas en las diferentes modalidades. Se entenderá como arrendataria o asignataria la persona física que cumpla los siguientes requisitos:
 a) Estudios sociales y técnicos, mediante un instrumento que elabore y aplique la institución para determinar la idoneidad del solicitante, para desarrollar proyectos productivos o de servicios, para el desarrollo de los territorios rurales.
 b) Arraigo en un territorio rural.
 c) Micro, pequeño y mediano productor y productora conforme lo establezca el reglamento de la presente ley.
@@ -10,4 +9,6 @@ b) Demostrar experiencia en proyectos productivos acordes con esta ley.
 c) No tener tierras o que las que tenga en posesión sean insuficientes para el desarrollo del proyecto propuesto.
 d) Comprometerse a tener la tierra en uso de acuerdo con los proyectos que justificaron la asignación.
 e) Sin fines de lucro y compatibles con los fines de esta ley.
-f) Todo acto realizado en contravención de lo dispuesto en este artículo será absolutamente nulo.
+f) Lo dispuesto en el artículo 36 bis de la presente ley podrá ser aplicable, con fines de lucro, siempre que cumpla con lo estipulado en la presente ley y su reglamento.
+Todo acto realizado en contravención de lo dispuesto en este artículo será absolutamente nulo y acarreará la revocatoria inmediata del beneficio y la devolución de la tierra y/o infraestructura asignada, sin perjuicio de las responsabilidades administrativas, civiles o penales correspondientes.
+(Así reformado el inciso anterior por el artículo 4° de la ley N° 10758 del 12 de noviembre de 2025)
