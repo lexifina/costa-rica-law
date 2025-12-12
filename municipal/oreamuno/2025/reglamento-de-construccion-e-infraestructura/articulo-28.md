@@ -1,0 +1,2 @@
+Artículo 28. Construcción de Vallas y verjas.
+No se podrá construir frente a vía pública estructuras sólidas para el cerramiento o delimitación con una altura mayor a un metro sobre el nivel de acera. Sobre esta altura se podrá continuar únicamente con verjas, mallas o rejas, que permitan por lo menos una visibilidad a través, del 80% de su superficie. Salvo el caso de muros de retención que se realizarán de conformidad con lo dispuesto por el Reglamento de Construcciones del INVU.

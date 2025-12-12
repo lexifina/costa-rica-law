@@ -1,0 +1,3 @@
+Artículo 7. Plazos de resolución
+Toda solicitud de licencia urbanística deberá resolverse en el término de quince días hábiles contados a partir del día siguiente de su presentación, salvo que, por razones técnicas justificadas en función de la dimensión de la obra a construir, debidamente acreditadas en el expediente y notificadas al interesado, en cuyo caso se podrá prorrogar dicho plazo hasta por un máximo de veinte días hábiles adicionales.
+Los proyectos complejos y atípicos o que implican un estudio técnico especial tendrán un plazo de resolución de treinta días hábiles. La Municipalidad podrá solicitar el criterio de otras instituciones o solicitar la ampliación de la información al interesado para tomar la decisión final.

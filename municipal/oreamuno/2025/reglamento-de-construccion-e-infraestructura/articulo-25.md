@@ -1,0 +1,3 @@
+Artículo 25. Ventanas a colindancia.
+No se permite abrir ventanas hacia el predio vecino, a menos que exista una distancia mínima de 1,5 metros en casas de un piso con tapia en la línea de propiedad o de 3,0 metros en casas de dos pisos, medida entre el plano vertical de la línea más sobresaliente de la ventana y el plano vertical de línea divisoria de los predios, en el punto en que dichas líneas se estrechen más, si no son paralelas. En edificaciones de tres niveles o más, su sumará un metro de retiro por cada piso adicional.
+Para más detalles, ver en el Reglamento de Zonificación del Uso del Suelo las tablas de parámetros y fichas urbanísticas correspondientes.

@@ -1,0 +1,2 @@
+Artículo 76. De las telecomunicaciones.
+La construcción de la red telefónica principal y los servicios de internet pueden hacerse con empresas privadas o contratarse directamente con la empresa que suministre el servicio bajo los estándares del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, además se deberá de cumplir con lo indicado con la Ley General de Telecomunicaciones N° 8642 y su reglamento.

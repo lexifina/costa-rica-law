@@ -1,0 +1,2 @@
+Artículo 23. Construcciones cerca de colindancias.
+Todas las construcciones hacia las colindancias laterales y posterior se regirán de acuerdo con la zonificación en que se encuentre cada propiedad, con el tipo de construcción que se pretenda ubicar hacia las colindancias y conforme con los retiros establecidos en ficha urbanística y de parámetros (anexo 5. De este PRU) y/o en el artículo 97 del Reglamento de Construcciones (INVU). La Municipalidad podrá solicitar la intervención y/o visto bueno de otras instancias. (Ministerio de Salud, MINAE, entre otros).

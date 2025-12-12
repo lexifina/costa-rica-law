@@ -1,0 +1,2 @@
+Artículo 13. Construcción de Accesibilidades.
+En espacios públicos, aceras, parques, calles, puentes peatonales, plazas y otros deberá obligatoriamente construirse los accesos para personas con discapacidad (rampas, pasamanos, etc.), de acuerdo con las normas establecidas para esos efectos en la Ley 9976, su reglamento, Ley 7600 Ley de Igualdad de Oportunidades para las Personas con Discapacidad y normativa conexa.

@@ -1,0 +1,3 @@
+Artículo 16. Rotura de pavimento
+La rotura de pavimento en la vía pública para la ejecución de obras públicas o privadas requerirá licencia previa de la Municipalidad o del MOPT, quienes fijarán, en cada caso, las condiciones bajo las cuales la conceden. El solicitante de la licencia de rotura estará obligado a ejecutar la reparación correspondiente o a reintegrar su valor si la reparación tuviese que hacerla la Municipalidad o el MOPT ante la renuncia de aquel.
+Toda rotura de pavimento en vías locales deberá cerrarse apenas se termine la reparación o bien, cancelar en el municipio el monto para efectuarla lo más pronto posible.

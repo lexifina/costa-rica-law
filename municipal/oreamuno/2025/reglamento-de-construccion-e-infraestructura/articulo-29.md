@@ -1,0 +1,3 @@
+Artículo 29. Uso del antejardín
+Al menos un tercio del área del antejardín debe mantenerse como área verde, y en el resto podrán construirse cocheras y/o corredores abiertos, terrazas, parqueos, casetas de seguridad, tanques sépticos, tanques de captación, cajas de registro, transformadores, escaleras adosadas a la pared y recipientes de recolección de basura. Cuando se requiera la construcción de pisos; estos deben ser construidos en materiales permeables.
+En el caso de ampliación vial prevista, la dimensión del retiro será acorde al alineamiento establecido por la entidad correspondiente (MOPT / MUNICIPALIDAD).

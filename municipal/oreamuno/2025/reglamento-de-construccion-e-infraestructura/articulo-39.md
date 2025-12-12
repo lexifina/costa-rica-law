@@ -1,0 +1,2 @@
+Artículo 39. Seguridad de los Vecinos.
+Las construcciones vecinas a la obra de excavación o demolición deben ser examinadas antes y durante las operaciones, con el objeto de tomar medidas de precaución respecto a su estabilidad. Para tal efecto, el desarrollador o responsable de los movimientos de tierra deben realizar y presentar a la Municipalidad los estudios de estabilidad de suelos, propuesta de obras de mitigación, pólizas de responsabilidad civil. Por su parte, la Municipalidad, será el ente fiscalizador para el cumplimiento de lo establecido en este artículo.

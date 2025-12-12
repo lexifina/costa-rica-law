@@ -1,0 +1,2 @@
+Artículo 78. Torres de Telecomunicación.
+Cuando se requiera la instalación o implantación de torres de telecomunicación, se deberán ajustarse a la legislación nacional vigente reglamento de la ley general de telecomunicaciones, decreto ejecutivo 34765-MINAET, reglamento de construcciones, sus reformas o norma que lo sustituya, incluyendo los permisos correspondientes ante la Municipalidad u otras instituciones (licencia de construcción, viabilidad ambiental, aviación civil, MOPT, y cualquier otra requerida).

@@ -1,0 +1,2 @@
+Artículo 63. Contenido del certificado de Cumplimiento Urbanístico.
+El Certificado de Cumplimiento Urbanístico deberá contener como mínimo el nombre del propietario de la obra, el nombre del profesional responsable, el tipo de obra construida, la ubicación exacta por calles y avenidas, la identificación de la licencia de construcción, la fecha de expedición, y el nombre, puesto y firma del funcionario que lo expide.

@@ -1,0 +1,2 @@
+Artículo 31. Distancia a conductores eléctricos
+Todo elemento de un edificio, estructural u ornamental, así como todo rótulo o anuncio comercial que se fije a él, en su punto más próximo a líneas de conducción eléctrica, ha de respetar las distancias mínimas que establece la Norma Técnica Regulatoria AR-NT-SUINAC "Supervisión de la instalación y equipamiento de acometidas eléctricas", así como la Norma Técnica AR-NT-SUCOM "Supervisión de la comercialización del suministro eléctrico en baja y media tensión", sus reformas o lo norma que los sustituya.

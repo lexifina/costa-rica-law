@@ -1,0 +1,2 @@
+Artículo 37. Movimientos de Tierra, Demoliciones y Excavaciones.
+Las obras que comprenden excavación, relleno, explanación, terraplenado, terraceo y depósito de cualquier tipo de material; así como demolición total o parcial de obras existentes, deberá obtenerse el permiso previo de la municipalidad y contar con la intervención de un profesional responsable. Por su parte, la Municipalidad podrá exigir la presentación de un estudio detallado del procedimiento a seguir y las precauciones que se tomarán para evitar daños a las construcciones cercanas y servicios públicos.
