@@ -1,0 +1,1 @@
+Artículo 9. Actualización de referencias. A partir de la entrada en vigencia del presente reglamento, toda disposición de SINPE−TP que haga referencia al Reglamento del Sistema de Pagos deberá entenderse referida al Reglamento del Sistema Nacional de Pago Electrónico en el Transporte Público (SINPE−TP).

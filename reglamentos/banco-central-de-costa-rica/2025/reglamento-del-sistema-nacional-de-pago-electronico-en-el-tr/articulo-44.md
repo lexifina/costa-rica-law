@@ -1,0 +1,1 @@
+Artículo 44. Costos de las marcas tardías. El operador de transporte debe asumir el costo de las transacciones que reporte al Sistema Central de Recaudo con una condición de tiempo que las califique como marcas tardías.

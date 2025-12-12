@@ -1,0 +1,2 @@
+Artículo 8. Cumplimiento del marco regulatorio. Los participantes de SINPE−TP deben someterse a las disposiciones establecidas en el presente reglamento y cumplir con los lineamientos y las disposiciones de la Serie de Normas Técnicas.
+Es responsabilidad de los participantes informarse sobre el funcionamiento del servicio SINPE−TP y conocer las disposiciones de su marco regulatorio, el cual estará publicado en la página web del BCCR.

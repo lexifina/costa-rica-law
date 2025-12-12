@@ -1,0 +1,1 @@
+Artículo 16. Cobertura de servicio. La plataforma de pagos de SINPE−TP será implementada en todas las líneas del servicio de tren de pasajeros operado o concesionado por Incofer, así como en todas las rutas regulares del servicio de autobús autorizadas por el CTP. Además, podrá ser implementado en los servicios de cabotaje y peaje.

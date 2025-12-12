@@ -1,0 +1,1 @@
+Artículo 10. Resolución de conflictos. Los conflictos que se originen con el funcionamiento del servicio SINPE−TP podrán resolverse a solicitud de las partes, actuando ambas libre y voluntariamente, con el mecanismo de resolución de conflictos establecido por el Reglamento del Sistema de Pagos.

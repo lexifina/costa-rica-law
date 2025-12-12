@@ -1,0 +1,1 @@
+Artículo 39. Comisión extraordinaria de transacciones. Las transacciones que presenten un problema en su procesamiento por el que deban liquidarse en un ciclo posterior al que les corresponde, estarán sujetas a la aplicación de una comisión de adquirencia igual a la menor tasa de comisión cobrada por los adquirentes para las transacciones de SINPE−TP.

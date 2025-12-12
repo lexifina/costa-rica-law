@@ -1,0 +1,2 @@
+Artículo 6. Emisión de normas técnicas. Para regular los aspectos del presente reglamento que requieran de un mayor detalle técnico y operativo, se autoriza al director de la División Sistemas de Pago a emitir y oficializar la Serie de Normas Técnicas de SINPE−TP.
+El BCCR divulgará la Serie de Normas Técnicas de SINPE-TP por medio de su página oficial en Internet, así como por los demás canales de comunicación que considere apropiados para su distribución y publicidad.

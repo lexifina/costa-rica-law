@@ -1,0 +1,2 @@
+Artículo 60. Coordinación entre las partes. La coordinación de los asuntos relacionados con el funcionamiento de SINPE−TP en los servicios de cabotaje y peaje, se llevará a cabo entre la División Sistemas de Pago y las entidades que administren dichos servicios.
+La División Sistemas de Pago coordinará con las autoridades sectoriales competentes, las actividades que correspondan cuando la operación de los servicios de cabotaje y peaje requieran de ajustes tarifarios, cierres programados o medidas de contingencia que puedan afectar la recaudación electrónica.

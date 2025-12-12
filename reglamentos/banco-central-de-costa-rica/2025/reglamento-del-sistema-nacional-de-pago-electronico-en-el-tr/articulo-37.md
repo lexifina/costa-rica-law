@@ -1,0 +1,1 @@
+Artículo 37. Uso de códigos de categoría mercante. La plataforma de SINPE−TP podrá utilizar códigos de categoría mercante propios para el procesamiento de las transacciones, en cuyo caso el BCCR coordinará con los adquirentes y emisores nacionales los ajustes que procedan en las plataformas tecnológicas de procesamiento para su implementación.

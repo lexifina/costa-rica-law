@@ -1,0 +1,1 @@
+Artículo 3. Alcance. El presente reglamento regula el desarrollo, la implementación y el funcionamiento del servicio SINPE−TP; sus disposiciones son de acatamiento obligatorio para todos los participantes, así como para cualquier infraestructura de cobro electrónico que gestione o procese transacciones relacionadas con el sistema de recaudación tarifaria del transporte público.

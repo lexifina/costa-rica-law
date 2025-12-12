@@ -1,0 +1,1 @@
+Artículo 20. Implementación de nuevas funcionalidades. La División Sistemas de Pago es responsable de determinar y comunicar a los participantes las fechas de puesta en operación de las nuevas funcionalidades de SINPE−TP, luego de que complete los desarrollos tecnológicos y administrativos necesarios para su implementación.

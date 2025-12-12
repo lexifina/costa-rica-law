@@ -1,0 +1,1 @@
+Artículo 35. Relaciones del servicio de adquirencia. Las relaciones tecnológicas de la gestión de información con los bancos adquirentes para el procesamiento de las transacciones, serán establecidas por el BCCR mediante el Sistema Central de Recaudo.

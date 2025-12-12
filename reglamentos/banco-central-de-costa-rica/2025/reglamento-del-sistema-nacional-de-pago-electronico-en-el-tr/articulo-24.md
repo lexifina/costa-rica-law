@@ -1,0 +1,7 @@
+Artículo 24. Integración. El Comité Técnico de Operadores estará integrado con la siguiente estructura de representación:
+a) El director de la División Sistema de Pagos, o quien este designe.
+b) Dos representantes de Incofer, nombrados por el Presidente Ejecutivo de esa institución.
+c) Dos representantes por cada cámara de autobuseros, nombrados por sus juntas directivas según corresponda.
+Las cámaras de autobuseros facultadas para tener representación en el Comité Técnico de Operadores son las que cuenten con una afiliación mínima agregada de 10 concesionarios o permisionarios, los que en su conjunto deberán poseer al menos 150 unidades de transporte autorizadas por el CTP. La Norma Complementaria SINPE−TP establecerá el procedimiento operativo para determinar la acreditación que otorga dicha facultad.
+El nombramiento de los representantes de las cámaras de autobuseros deberá realizarse procurando que las personas designadas posean amplia experiencia en los procesos relacionados con la gestión de la operación del transporte público y los aspectos tarifarios, preferiblemente con conocimientos en tecnologías de la información y comunicación, así como en el conjunto de dispositivos con el que se equipan las unidades de transporte para habilitar mecanismos de pago electrónico.
+El director de la División Sistemas de Pago tendrá a su cargo la coordinación del Comité Técnico de Operadores.

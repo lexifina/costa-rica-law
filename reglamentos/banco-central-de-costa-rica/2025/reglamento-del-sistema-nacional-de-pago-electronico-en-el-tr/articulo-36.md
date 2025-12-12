@@ -1,0 +1,1 @@
+Artículo 36. Interoperabilidad de pagos. El banco adquirente debe preparar y mantener su infraestructura tecnológica habilitada y capacitada para procesar las transacciones correspondientes a las marcas de tarjetas con las cuales mantiene relaciones comerciales de procesamiento, siempre que tales marcas sean válidas dentro del ecosistema de pagos de SINPE−TP.

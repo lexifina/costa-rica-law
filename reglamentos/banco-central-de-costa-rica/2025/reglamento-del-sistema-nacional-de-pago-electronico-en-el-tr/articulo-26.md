@@ -1,0 +1,1 @@
+Artículo 26. Reelección y cambios en la designación. Los representantes de las cámaras de autobuseros pueden ser reelectos o sustituidos en el momento en que la cámara que representan así lo determine. En el caso de darse una sustitución, el representante sustituto ejercerá el cargo por el tiempo restante del nombramiento.

@@ -1,0 +1,2 @@
+Artículo 28. Frecuencia de las reuniones. El Comité Técnico de Operadores se reunirá de manera ordinaria con una frecuencia mínima trimestral, o cuando quien preside lo convoque en forma extraordinaria.
+El Comité Técnico de Operadores podrá reunirse sin la participación de los representantes de Incofer, cuando los asuntos agendados no tengan relación con esa institución como participante del servicio SINPE−TP.
