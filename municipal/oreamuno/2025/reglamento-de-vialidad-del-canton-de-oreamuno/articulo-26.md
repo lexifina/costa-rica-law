@@ -1,0 +1,2 @@
+Artículo 26. Parquímetros municipales.
+De conformidad con las facultades que le otorga la Ley de Instalación de Estacionómetros N° 3580, sobre la autorización a las Municipalidades a cobrar un impuesto por el estacionamiento en las vías públicas, la Municipalidad designará y controlará las zonas en espacios públicos para que funjan como estacionamientos regulados bajo cobro, y su ubicación deberá estar acorde con los lineamientos establecidos para el funcionamiento de la vialidad y el tráfico en el cantón, bajo lineamientos de la DGIT y la DGPT del MOPT y la Municipalidad.

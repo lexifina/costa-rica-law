@@ -1,0 +1,2 @@
+Artículo 15. Condiciones para transformar una servidumbre agrícola en calle pública.
+Aunado a lo citado en el artículo 15, para la transformación de una servidumbre agrícola en calle pública se debe garantizar que se cumpla el proceso urbanístico correspondiente para la concesión de áreas públicas y garantizar el acceso a servicios (alcantarillado, electricidad, agua potable, etc.) de acuerdo con lo estipulado en el Reglamento de Fraccionamientos y Urbanizaciones de este Plan Regulador Urbano.

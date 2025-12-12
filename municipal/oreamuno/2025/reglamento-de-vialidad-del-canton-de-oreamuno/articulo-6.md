@@ -1,0 +1,8 @@
+Artículo 6. Deslinde de las Competencias.
+Los caminos públicos según su función se clasificarán en Red Vial Nacional (RVN) y Red Vial Cantonal (RVC). Corresponde al Ministerio de Obras Públicas y Transportes (MOPT) en coordinación con la Municipalidad definir la Red Vial Nacional y Cantonal según los requisitos de los artículos 1 y 3 de la Ley General de Caminos Públicos N° 5060.
+En superficie únicamente podrán autorizarse, además de las instalaciones propias de la vialidad rodada y peatonal, las públicas relativas al mobiliario urbano.
+Es competencia de la Municipalidad el uso racional de las vías pertenecientes a la RVC y dictar las medidas necesarias tendientes a lograr que el espacio público ofrezca seguridad, salubridad, comodidad y ornato.
+La RVC prevista por el Plan Regulador Urbano (PRU) queda integrada en el dominio público mediante los mecanismos de gestión legalmente establecidos. En consecuencia, tanto el uso de su superficie como del subsuelo estarán sujetos al régimen general del dominio público.
+Los retiros sobre las Vías Nacionales serán determinados por el MOPT, y los que corresponden a Vías Cantonales, los definirá la Municipalidad.
+Para efectos viales, en el subsuelo del dominio público únicamente podrán autorizarse los usos relativos a infraestructura urbana, transportes colectivos y estacionamientos en régimen de concesión.
+Para efectos viales, los pasos a desnivel, tales como puentes peatonales, las bandas transportadoras o cualquier elemento que pretenda aprovechar la vía de forma aérea deberá ser autorizada o coordinada a través del Concejo Municipal previo dictamen técnico del MOPT y/o de la Unidad Técnica de Gestión Vial, y/o cualquier otra institución según proceda.

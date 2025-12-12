@@ -1,0 +1,3 @@
+Artículo 29. Obras en el espacio público.
+Las siguientes disposiciones regulan la construcción de obras de interés común en el espacio público, tales como: aceras, casetillas y postes de seguridad, vallas, verjas y cercas, arborización de las calles, mobiliario urbano, transformación de las alamedas existentes en vías vehiculares, ruptura de pavimento, instalaciones provisionales, canoas y bajantes, cajas y pozos de registro, entre otros. Los cuales se definen a continuación:
+Aceras, cercas, canoas y bajantes. Ver Reglamento de la Ley 9976 Ley de Movilidad Peatonal Instalaciones provisionales, materiales y escombros en la vía. Ver Reglamento de Construcciones del INVU.

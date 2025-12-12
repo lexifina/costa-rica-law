@@ -1,0 +1,2 @@
+Artículo 34. Aplicación.
+Las condiciones que se señalan se aplicarán a los terrenos que el planeamiento destine a tal fin y que se representan en la documentación gráfica del PRU, o en sus instrumentos de desarrollo. Asimismo, en los suelos calificados como uso dotacional para el transporte, será de aplicación la Ley de Igualdad de Oportunidades para personas con Discapacidad N.º 7600 y su reglamento, y su reglamentación conexa.
