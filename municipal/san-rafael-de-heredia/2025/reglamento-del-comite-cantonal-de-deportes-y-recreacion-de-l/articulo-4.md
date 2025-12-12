@@ -1,0 +1,1 @@
+ARTÍCULO 4 ° El domicilio legal del CCDR será siempre el cantón de San Rafael de Heredia, pudiendo variarse para casos excepcionales la representación o sede en forma temporal para eventos deportivos o recreativos, previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 52° Los Comités Distritales o Comunales deberán llevar un archivo administrativo físico o digital en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el CCDR en cualquier momento.

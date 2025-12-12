@@ -1,0 +1,2 @@
+ARTÍCULO 17° Los miembros de la Junta Directiva del comité durarán en sus cargos cuatro años, podrán ser reelegidos consecutivamente durante dos periodos no devengarán dietas ni remuneración alguna.
+Los miembros de la Junta Directiva tomarán posesión de sus cargos el 1 de enero, cada cuatro años. En su primera sesión la persona miembro de mayor edad dirigirá el órgano, para que se realice la designación de los siguientes puestos: una presidencia, una vicepresidencia, una secretaría, una tesorería y tres vocalías.

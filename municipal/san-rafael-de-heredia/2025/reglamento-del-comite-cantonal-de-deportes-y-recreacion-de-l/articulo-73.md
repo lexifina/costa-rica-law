@@ -1,0 +1,1 @@
+ARTÍCULO 73° Los únicos gastos de becas que se autorizan independientemente del tipo de actividad que se desarrolle, serán alimentos, hidratación, transporte (traslado a las diferentes comunidades de domicilio dentro y fuera del país), hospedaje, inscripción, y pago de arbitraje; en representación del CCDR.
