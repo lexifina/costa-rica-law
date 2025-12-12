@@ -1,0 +1,4 @@
+Artículo 12. Garantía del recurso hídrico en fraccionamientos.
+Todo fraccionamiento debe cumplir con lo que establece el Reglamento para la Prestación de los Servicios de AyA en relación con el abastecimiento de agua potable, cuando sea esta institución o una ASADA quien supla el servicio público.
+En caso de que sea otro operador, le corresponderá a éste, indicar los aspectos técnicos que debe cumplir. Cualquiera de los operadores señalados encargados de brindar el servicio de agua potable emitirá un documento que sea concordante con lo establecido en el Reglamento para la Prestación de los Servicios de AyA que garantice la existencia del recurso hídrico con factibilidad técnica y operativa, para el abastecimiento de todos los lotes resultantes del fraccionamiento.
+En caso de ser el acueducto municipal de Oreamuno, se debe solicitar la disponibilidad de agua, ante la plataforma de servicios de la Municipalidad.

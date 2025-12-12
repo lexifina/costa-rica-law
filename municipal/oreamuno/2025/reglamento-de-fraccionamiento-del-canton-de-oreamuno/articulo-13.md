@@ -1,0 +1,2 @@
+Artículo 13. Cuadrante Urbano.
+Se definirá como cuadrante urbano en el cantón de Oreamuno, los sectores identificados como los centros urbanos de los distritos de San Rafael, Cot, Potrero Cerrado, Cipreses y Santa Rosa, identificados en el mapa de cuadrantes urbanos del Cantón de Oreamuno del PRU, para la aplicación del artículo 40 de la Ley de Planificación Urbana # 4240 y sus reformas o las normas que la sustituyan.

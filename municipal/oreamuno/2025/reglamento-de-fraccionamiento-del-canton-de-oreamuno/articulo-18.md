@@ -1,0 +1,4 @@
+Artículo 18. Cesión de áreas públicas en fraccionamientos con fines urbanísticos.
+Todo fraccionamiento con fines urbanísticos debe ceder gratuitamente para uso público el 10% del área total a fraccionar, cuando se están fraccionando 8 o más lotes. Dicha área se debe destinar a juegos infantiles, parques y facilidades comunales, en este orden de prioridad y debe cumplir con lo establecido en el artículo 40 de la Ley de Planificación Urbana #4240 y sus reformas o las normas que la sustituyan y ser traspasado a la Municipalidad con plano catastrado y escritura.
+La municipalidad llevara el registro de los fraccionamientos y las cesiones de área pública de cada finca madre.
+Las áreas no podrán tener una pendiente mayor al 40%, contar con iluminación artificial y disponibilidad de agua de acuerdo con lo indicado en el reglamento de construcciones.

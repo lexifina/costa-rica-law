@@ -1,0 +1,2 @@
+Artículo 16. Excepción de cesión de áreas públicas en fraccionamiento simple.
+Cuando se realice un fraccionamiento simple, no se exige la cesión de área pública, debido a que se ubica en cuadrante urbano o dentro de un área previamente urbanizada.

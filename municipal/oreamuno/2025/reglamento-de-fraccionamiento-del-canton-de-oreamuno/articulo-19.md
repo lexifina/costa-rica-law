@@ -1,0 +1,2 @@
+Artículo 19. Convenios para el cuido, mantenimiento y atención de áreas públicas traspasadas producto de fraccionamientos con fines urbanísticos.
+Las municipalidades podrán suscribir convenios con asociaciones de vecinos o personas jurídicas que por interés directo como beneficiarios, vecinos o usuarios directos tengan la voluntad de hacerse cargo de la limpieza, mantenimiento, vigilancia y atención de las áreas de cesión pública.

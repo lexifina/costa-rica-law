@@ -1,0 +1,4 @@
+Artículo 7. Plazos para resolver Visados.
+La Municipalidad cuenta con un plazo de diez días hábiles, para otorgar el respectivo visado, contados a partir del día hábil siguiente de la recepción de los documentos por parte de la Plataforma de Servicios; salvo que, por razones técnicas justificadas en función de la dimensión del proyecto a llevar a cabo, debidamente acreditado en el expediente y notificadas a los interesados, en cuyo caso se podrá prorrogar dicho plazo hasta un máximo de veinte días hábiles adicionales.
+La prevención del faltante de algún requisito para darle trámite a la solicitud suspenderá los términos y plazos de resolución de esta.
+En caso de requerir modificaciones o adiciones a la propuesta, o bien el trámite requiera visado del INVU o trámites de otras instituciones, la municipalidad resolverá en los siguientes cinco días hábiles a partir del nuevo ingreso de los documentos requeridos por parte del solicitante, para otorgar el visado.
