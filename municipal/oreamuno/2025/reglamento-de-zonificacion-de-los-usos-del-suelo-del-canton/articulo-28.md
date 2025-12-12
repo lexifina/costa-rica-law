@@ -1,0 +1,4 @@
+Artículo 28. Propiedades afectadas por fallas.
+Las zonas afectadas por cercanía a fallas activas estarán supeditadas en su desarrollo urbano a la elaboración de estudios técnicos especializados.
+Todo proyecto de construcción dentro de las áreas consideradas por este PRU como zonas de protección por cercanía a fallas, deberá ir acompañado por un estudio de mitigación, firmado por profesional competente, que determine la viabilidad de la construcción de conformidad con el Código Sísmico. Esto es aplicable tanto en zonas consolidadas como en nuevos desarrollos.
+Para aplicar los parámetros correspondientes al sector al que pertenecen (cobertura, niveles, altura máxima, etc.) el estudio de mitigación determinará la factibilidad en cada caso, y las medidas técnicas y constructivas que son necesarias para subsanar el riesgo existente.

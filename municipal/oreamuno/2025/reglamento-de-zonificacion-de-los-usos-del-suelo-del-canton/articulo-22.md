@@ -1,0 +1,3 @@
+Artículo 22. Zonas de interés turístico o ecoturístico
+Son zonas en cuyo entorno se generan una serie de actividades enfocadas a potenciar el turismo, dando servicios específicos y complementarios de comida, alojamiento, comercios de artesanía, entre otros.
+Para efectos de segregación en zona de interés turístico o ecoturístico, el área y frente mínimo (1000m²/12m.), serán permitidos únicamente con frente a calle pública debidamente establecida, por su parte los lotes a segregar al interior de las fincas que por sus dimensiones permitan la habilitación de servidumbre agrícola, deberán ajustarse a los parámetros mínimos de parcela agrícola, indicadas en el artículo 25 del Reglamento de Fraccionamiento del Cantón de Oreamuno de este PRU.

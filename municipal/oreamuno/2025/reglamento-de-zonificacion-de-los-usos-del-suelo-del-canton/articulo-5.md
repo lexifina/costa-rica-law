@@ -1,0 +1,7 @@
+Artículo 5. Justificación de la propuesta de zonificación de los usos de suelo.
+De conformidad con el análisis de la tierra urbanizada y urbanizable del cantón; los usos predominantes de la tierra por zona son los que se describen en los siguientes artículos, indicando su objetivo y haciendo alusión a los parámetros y usos a permitir por zona.
+Adicionalmente estas zonas vienen identificadas en el mapa de zonificación propuesto; y los parámetros establecidos acorde a las características de cada zona, en asocio al componente ambiental, y uso correspondiente se detallan en las fichas urbanísticas incluidas al final de este documento, compuestas por tablas de parámetros y su correspondiente mapa de zonificación.
+Los parámetros establecidos para cada sector y recogidos en las tablas mencionadas son los siguientes: zona, nomenclatura, densidad horizontal, densidad vertical, segregación mínima de lote, altura máxima, números de niveles, frente mínimo, cobertura y retiros (frontal, posterior y lateral).
+Para la elaboración del mapa de zonificación propuesto, además de todos los lineamientos establecidos en las Directrices Metropolitanas (Plan GAM 2013-2030) que forman parte de este.
+Objetivos.
+PRU, se han incorporado los estudios y mapas de Índice de Fragilidad Ambiental (IFA), además de las zonas de alto riesgo por amenaza; determinadas por la Municipalidad de Oreamuno y Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.

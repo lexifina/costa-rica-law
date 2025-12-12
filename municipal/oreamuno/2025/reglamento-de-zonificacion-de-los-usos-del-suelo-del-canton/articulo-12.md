@@ -1,0 +1,3 @@
+Artículo 12. Vivienda en Zona Rural
+La construcción de vivienda en la zona rural queda sujeta a un área máxima de 90m² de huella constructiva, en hasta dos plantas. El resto de la cobertura permitida en la zona será destinado a edificaciones y estructuras requeridas por la actividad agropecuaria.
+Considerando que las parcelas tendrán un área igual o mayor a 2000 m², y que la cobertura no sobrepase el 20% del área total de la propiedad. Incluyendo bodegas para implementos agrícolas, garajes para maquinaria, y similares y cualquier otro uso indicado en el decreto 37911 y sus reformas o normativa que lo sustituya.

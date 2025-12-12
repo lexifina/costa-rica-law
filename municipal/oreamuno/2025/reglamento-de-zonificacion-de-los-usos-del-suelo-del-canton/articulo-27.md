@@ -1,0 +1,3 @@
+Artículo 27. Retiros de construcción respecto a pozos públicos y privados.
+Toda construcción que se haga alrededor de las zonas de pozos públicos y privados de agua potable debe guardar los retiros establecidos por Ley de aguas, ley forestal y sus reformas o normativa que lo sustituya.
+Las construcciones existentes ya consolidadas que se encuentren dentro del radio de protección de pozos y manantiales no podrán realizar ningún tipo de modificación que pudiera repercutir o afectar en la calidad del agua. La Municipalidad se reserva el derecho a solicitar estudios de infiltración o aquellos estudios técnicos que considere necesarios para asegurar la no afectación de los pozos y manantiales con el objetivo de preservar el bien común.

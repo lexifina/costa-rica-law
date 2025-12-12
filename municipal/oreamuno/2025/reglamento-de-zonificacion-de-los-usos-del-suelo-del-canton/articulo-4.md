@@ -1,0 +1,4 @@
+Artículo 4. Adecuación de parámetros urbanísticos.
+Este articulo aplica para aquellos lotes o fincas debidamente constituidos antes de la entrada en vigor de este PRU que no cumplen con el área mínima establecida y que se ubiquen únicamente en zonas de uso agropecuario y/o rural previo estudio de cada caso en particular, salvaguardando la vocación agrícola de la zona y no es aplicable al parámetro de segregación mínima.
+Para lotes o fincas sin construcciones, se aplicará el porcentaje de cobertura y los retiros correspondientes a la Zona de Baja Densidad. -
+En el caso de construcciones existentes en lotes con parámetros inferiores a los indicados en éste PRU. se permitirá la remodelación y la ampliación dentro de los parámetros establecidos de cobertura y retiros de la Zona de Baja Densidad. Si el edificio establecido ya supera estos parámetros; solamente se permitirán las mejoras o remodelaciones, no así las ampliaciones.

@@ -1,0 +1,2 @@
+Artículo 20. Segregación en Zona de interés paisajístico
+Para efectos de segregación en zona de interés paisajístico, el área y frente mínimo (900m²/12m.), serán permitidos únicamente con frente a calle pública debidamente establecida, por su parte los lotes a segregar al interior de las fincas que por sus dimensiones permitan la habilitación de servidumbre agrícola, deberán ajustarse a los parámetros mínimos de parcela agrícola, indicadas en el artículo 25 del Reglamento de Fraccionamiento del Cantón de Oreamuno de este PRU.

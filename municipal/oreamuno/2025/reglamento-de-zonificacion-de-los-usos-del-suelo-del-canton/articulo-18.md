@@ -1,0 +1,2 @@
+Artículo 18. Sobre permisos en la zona de protección.
+Se podrá autorizar el emplazamiento de obras de infraestructura de interés público como tanques de almacenamiento, casetas de vigilancia, caminos, servidumbres, miradores, refugios, obras de retención o similares, así como infraestructura de bajo impacto para investigación, educación, recreación y turismo naturalista, previa aprobación municipal y del Estudio de Impacto Ambiental correspondiente, tomando en consideración además los parámetros urbanísticos y el área de protección de nacientes.
