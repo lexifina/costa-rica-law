@@ -1,0 +1,1 @@
+ARTÍCULO 2- El beneficiario de esta donación no podrá, bajo ninguna circunstancia, traspasar, vender, redestinar o gravar el terreno donado. Asimismo, deberá conservar su afectación demanial y naturaleza, de conformidad con los fines públicos que justifican la donación y en beneficio de los ciudadanos del cantón Central de Alajuela.
