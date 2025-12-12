@@ -1,0 +1,1 @@
+ARTÍCULO 12- Los establecimientos de salud públicos y privados, que realizan el tamizaje ocular, deben contar con sus propios registros estadísticos, con el fin de evaluar el impacto de la presente ley.

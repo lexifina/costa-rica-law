@@ -1,0 +1,1 @@
+ARTÍCULO 11- Las maternidades y los centros que atiendan partos, y que realizan tamizaje ocular por mandato de esta ley, deben contar con los protocolos para el procedimiento, tanto de realización del examen, el diagnóstico, el tratamiento y seguimiento correspondiente, con el fin de que exista estandarización.

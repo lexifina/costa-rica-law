@@ -1,0 +1,1 @@
+ARTÍCULO 13- Todos los establecimientos de salud, públicos y privados, deberán impulsar campañas de información y prevención de los problemas oculares y de la importancia de la detección temprana de estos.

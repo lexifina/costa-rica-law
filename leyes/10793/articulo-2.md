@@ -1,0 +1,6 @@
+ARTÍCULO 2- Los siguientes son los objetivos específicos de esta ley:
+a) Garantizar que toda persona nacida en Costa Rica, en cualquier maternidad, pública o privada, o en cualquier centro donde se realicen partos, vaginales o por cesárea, reciba el correspondiente tamizaje ocular.
+b) Garantizar que toda persona recién nacida, que no fue tamizada previamente durante el posparto inmediato en las maternidades, sea evaluada y tamizada de sus ojos, en los controles de crecimiento y desarrollo de cualquier centro público, privado o cualquier otro donde sea recibido por primera vez.
+c) Garantizar que toda persona recién nacida, que habita en Costa Rica y que no ha sido evaluada previamente por el médico pediatra, oftalmólogo o médico general, tenga su correspondiente tamizaje ocular en los centros de atención correspondientes, sin distinción de ningún tipo.
+d) Captar, detectar y referir a las personas recién nacidas encontradas con problemas oculares, al ser evaluados mediante el tamizaje ocular, para su abordaje, tratamiento y seguimiento correspondiente.
+e) Garantizar el diagnóstico oportuno, los tratamientos y la evaluación subsecuente correspondientes, en forma temprana, a toda persona recién nacida, con algún problema ocular detectado durante el tamizaje.

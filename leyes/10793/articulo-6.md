@@ -1,0 +1,1 @@
+ARTÍCULO 6- El tamizaje ocular debe realizarse a toda persona recién nacida, en todas las maternidades del país, tanto públicas como privadas, antes de que el recién nacido egrese del centro médico o, en su defecto, preferiblemente antes de los quince días de edad.
