@@ -1,0 +1,4 @@
+ARTÍCULO 3- Se autoriza a la Notaría del Estado para que formalice todos los trámites de esta donación, mediante la elaboración de la escritura correspondiente.
+Además, queda facultada, expresamente, para que actualice corrija la medida, los linderos y cualquier error, diferencia u omisión relacionados con los datos del inmueble a donar, así como cualquier otro dato registral o notarial que sea necesario para la debida inscripción del documento en el Registro Nacional.
+El beneficiario de la donación no podrá, bajo ninguna circunstancia, transferir, enajenar, redestinar ni gravar el terreno donado. Asimismo, deberá mantener el destino y la naturaleza asignados, en atención a los fines públicos que justifican la donación y en beneficio de los ciudadanos del cantón Central de Alajuela.
+Dado en la Presidencia de la República, San José, a los trece días del mes de noviembre del año dos mil veinticinco.
