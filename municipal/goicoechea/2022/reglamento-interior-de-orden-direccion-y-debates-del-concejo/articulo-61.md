@@ -18,7 +18,8 @@ Las comisiones especiales son:
 11. Mercado Libre.
 12. Asuntos Educativos.
 13. Asuntos de Salud Pública.
-14. No Maltrato Animal
+14. Comisión Especial Bienestar Animal
+(Así reformado el inciso anterior mediante sesión N° 50-2025 del 15 de diciembre de 2025)
 15. Menciones Honoríficas
 16. Plan Regulador
 17. Manual Estructural
