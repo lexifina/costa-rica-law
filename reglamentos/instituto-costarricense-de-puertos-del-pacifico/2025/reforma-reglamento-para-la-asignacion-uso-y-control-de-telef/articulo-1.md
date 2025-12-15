@@ -1,0 +1,30 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+JUNTA DIRECTIVA
+Que la Junta Directiva acuerda modificar los artículos Nos. 3°, 7° y 8°, así como el Transitorio del Reglamento para la asignación, uso y control de teléfonos y líneas celulares propiedad del Incop, mediante el acuerdo N° 3 de la sesión N° 4504 celebrada el 14 de noviembre de 2025, los cuales se leerán de la siguiente manera:
+Artículo 3º-Asignación de teléfonos celulares: La Dirección Administrativa Financiera está facultada para tramitar y asignar teléfono celular a las personas funcionarias de Incop que ocupen los siguientes cargos:
+Presidente Ejecutivo.
+Gerente General.
+Auditor(a) Interno(a).
+Subgerente.
+Director(a) Administrativo-Financiero.
+Director(a) Operaciones Portuarias.
+Jefatura Secretaría Fiscalización.
+Jefatura de Unidad Técnica de Supervisión y Control.
+Jefatura de la Unidad de Tecnologías de la Información.
+Oficiales de Protección de Instalaciones Portuarias (OPIP).
+Administradores de Muelles.
+Choferes institucionales.
+Artículo 7º-Restricciones de asignación: Ninguna persona funcionaria podrá tener asignada más de una línea telefónica de celular excepto la persona que ocupe el puesto de presidente ejecutivo, Gerente General, Auditor (a) Interno, director (a) administrativo (a) Financiero (a) que en razón de sus funciones, están autorizadas para contar con una línea adicional de datos para conexión portátil de internet.
+Artículo 8º-Tarifa telefónica a reconocer por el Instituto Costarricense de Puertos del Pacífico: Las tarifas para el pago de estos servicios se regirán por las siguientes disposiciones:
+Presidente Ejecutivo, Gerente General y Auditor (a) Interno, tendrán acceso sin límite a llamadas nacionales e internacionales.
+Subgerente, el Director(a) Administrativo-Financiero, Director(a) Operaciones Portuarias, Jefatura Secretaría de Fiscalización, Jefatura de Unidad Técnica de Supervisión y Control, tendrán acceso sólo a llamadas nacionales. El Incop asumirá el costo mensual hasta por un monto de cuarenta mil colones, monto que será ajustado anualmente conforme al incremento del IPC, no obstante vencido el plazo del plan podrá incrementarse hasta en un diez por ciento sobre la tarifa vigente a ese momento, valorando los planes disponibles que puedan ajustarse a este segmento.
+Jefatura de la Unidad de Tecnologías de la Información, los oficiales de protección Portuaria -OPIPs, Administradores (a) de Muelles; tendrán acceso sólo a llamadas nacionales. El Incop asumirá el costo mensual hasta por un monto de treinta y cinco mil colones, monto que será ajustado anualmente conforme al incremento del IPC, no obstante, vencido el plazo del plan podrá incrementarse hasta en un diez por ciento sobre la tarifa vigente a ese momento, valorando los planes disponibles que puedan ajustarse a este segmento.
+Los choferes tendrán acceso sólo a llamadas nacionales. El Incop asumirá el costo mensual hasta por un monto de treinta mil colones, monto que será ajustado anualmente conforme al incremento del IPC, no obstante, vencido el plazo del plan podrá incrementarse hasta en un diez por ciento sobre la tarifa vigente a ese momento, valorando los planes disponibles que puedan ajustarse a este segmento.
+En caso de que el consumo sea mayor a la tarifa vigente aprobada deberá ser cubierta por la persona funcionaria mediante rebajo en un solo tracto de la planilla de su salario en el mismo mes en que es comunicado por parte de la Dirección Administrativa Financiera a la Unidad de Capital Humano y a la persona funcionaria quien al ser comunicado podrá proceder a más tardar el día hábil siguiente de la comunicación a realizar el pago en la Tesorería de Incop y deberá remitiré el comprobante a la Unidad de Capital Humano para la exclusión del rebajo de planilla.
+La persona funcionaria que exceda el monto aprobado podrá, mediante oficio con el visto bueno de su superior inmediato, solicitar a la Dirección Administrativa Financiera el desglose de las llamadas que se hayan efectuado del teléfono celular asignado, especialmente cuando los montos por cobro del servicio se consideren excesivos. Terminado el estudio de llamadas, en caso de lograr constatarse que el consumo facturado corresponde exclusivamente a llamadas laborales. La persona interesada podrá solicitar al Gerente General el reconocimiento del excedente, este podrá autorizar el mismo siempre y cuando se compruebe por medio del registro de llamadas que se debe a labores propias del cargo, quedando bajo la responsabilidad del Gerente General la aprobación, quien de manera razonada compruebe contra el registro de llamadas que se debe a labores propias del cargo.
+Ningún teléfono celular tendrá acceso a la línea 900, por lo que la Dirección Administrativa Financiera, hará los trámites correspondientes, a fin de suspender este servicio ante el Instituto Costarricense de Electricidad, de los teléfonos que existan actualmente en la institución o de futuros.
+En lo relacionado con los incisos b), c), d) y e) de este Reglamento, la Dirección Administrativa Financiera hará los trámites correspondientes a fin de suspender el servicio de llamadas internacionales.
+Los montos usados como tarifa de consumo serán incrementados anualmente conforme al incremento del IPC y conforme al valor actual ofrecido por la entidad proveedora al renovar el plan, al vencido el plazo del plan podrá incrementarse hasta en un diez por ciento sobre la tarifa vigente a ese momento, valorando los planes disponibles que puedan ajustarse a cada segmento.
+En cumplimiento del presente Reglamento, por acción u omisión, estará sujeto ante la Unidad de Capital Humano, a las responsabilidades administrativas, civiles y penales previstas en la legislación vigente.
+Lo anterior de conformidad con el oficio CR-INCOP-JD-2025-132 de fecha 27 de noviembre de 2025, de la secretaria Junta Directiva y del oficio N° CR-INCOP-GG-2025-01309 de fecha 27 de noviembre del 2025.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
