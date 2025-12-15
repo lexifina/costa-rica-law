@@ -14,3 +14,4 @@ Procedimiento para el registro sanitario simplificado por notificación, reconoc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-12-15 | la propia norma |
+| 2 | 2025-12-15 | Decreto Ejecutivo 45511 (2025-11-27) |
