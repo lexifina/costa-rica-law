@@ -1,0 +1,7 @@
+ARTÍCULO 4.- SOBRE EL REGISTRO SANITARIO SIMPLIFICADO POR NOTIFICACIÓN Y LA AUTORIZACIÓN DE IMPORTACIÓN POR TERCEROS .
+El administrado que solicite el registro sanitario simplificado por notificación debe tomar en cuenta lo siguiente:
+a) El costo del registro sanitario simplificado por notificación y la autorización de importación por terceros de alimentos y cosméticos es el mismo que para el registro sanitario, conforme a lo establecido en el Decreto Ejecutivo No. 30103-S del 3 de diciembre de 2001 "Registro de Productos Alimenticios y Fórmulas Infantiles, de acuerdo a la Ley General de Salud" para el caso de alimentos y el Decreto Ejecutivo No. 35318-S del 12 de mayo de 2009 "Cobro de Registro y Vigilancia Sanitaria de Cosméticos" para los cosméticos.
+b) La resolución del registro sanitario simplificado por notificación, es de forma expedita contra la presentación de la solicitud completa por parte del administrado mediante la plataforma digital REGISTRELO disponible en la siguiente dirección electrónica https://v2.registrelo.go.cr/
+c) La vigencia del registro sanitario de alimentos y cosméticos, regulados por las disposiciones del presente Decreto Ejecutivo, será de cinco (5) años, contados a partir de su aprobación.
+d) La vigencia de la autorización de importación y comercialización por terceros se encuentra supeditada a la vigencia del registro sanitario del que hace uso.
+e) El listado del ANEXO I podrá ser modificado vía Decreto Ejecutivo.
