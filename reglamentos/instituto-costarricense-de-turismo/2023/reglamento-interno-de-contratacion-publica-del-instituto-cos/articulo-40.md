@@ -1,1 +1,0 @@
-Artículo 40.-Adelanto de pagos. El Instituto podrá convenir, de manera motivada adelantos de pago cuando ello obedezca a una costumbre o uso derivado de la práctica comercial, lo cual debe estar debidamente comprobado; o bien, sea una consecuencia del medio de pago utilizado o las condiciones de mercado así lo exijan.
