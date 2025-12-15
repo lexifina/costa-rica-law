@@ -1,0 +1,4 @@
+ARTÍCULO 12.- DEROGATORIA. Deróguese los siguientes decretos ejecutivos:
+Decreto Ejecutivo Nº 43291-S del 17 de noviembre de 2021 " Procedimiento para el registro sanitario simplificado por notificación, inscripción sanitaria, reconocimiento de registro, materias primas, control y vigilancia de alimentos procesados y cosméticos de bajo riesgo", publicado en el Alcance 239 a la Gaceta No.227 del 24 de noviembre de 2021.
+Decreto Ejecutivo Nº 33724 COMEX-MEIC-S, del 8 de enero del 2007, "Pone Vigencia Resolución 176-2006 (COMEXXXVIII) : Alimentos Procesados Proced. Licencia Sanitaria, Proced. Otorgar Registro Sanitario y Insc1ipción Sanitaria, Requisitos Importación Alimentos Procesados, Industria Alimentos Bebidas Procesados", publicado en la Gaceta No.82 del 30 de abril del 2007.
+Decreto Ejecutivo Nº 45136 del treinta de junio de dos mil veinticinco, y que a la fecha se encuentra sin publicar en el diario oficial la Gaceta.
