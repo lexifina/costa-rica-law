@@ -1,0 +1,1 @@
+Artículo 7°-Interés Público. Se declaran de interés público todas las acciones que efectúen las instancias públicas encargadas del Encuentro Nacional de Danza, Teatro y Circo para su preproducción, producción y post producción.

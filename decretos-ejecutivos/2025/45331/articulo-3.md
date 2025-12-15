@@ -1,0 +1,1 @@
+Artículo 3°-Instancias Responsables. El Teatro Popular Melico Salazar será el órgano responsable de alojar, producir y desarrollar el Encuentro Nacional de Danza, Teatro y Circo y se podrá apoyar en sus programas técnicos.

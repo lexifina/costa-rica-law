@@ -1,0 +1,1 @@
+Artículo 8°-Derogatorias. Deróguese el Decreto Ejecutivo N° 37789-C del 4 de abril de 2013, en tanto el Encuentro Nacional de Teatro y el Festival Nacional de Danza Contemporánea serán asumidos con una producción centralizada por el equipo encargado del Encuentro Nacional de Danza, Teatro y Circo.
