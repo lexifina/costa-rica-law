@@ -1,0 +1,1 @@
+Artículo 7°-Cooperación Internacional. La Unidad de Cooperación Internacional del MCJ, colaborará de forma prioritaria con las acciones que deba ejecutar el comité coordinador del Festival Iberoamérica Teatral para concretar la participación de los grupos, artistas, formadores o expositores internacionales.

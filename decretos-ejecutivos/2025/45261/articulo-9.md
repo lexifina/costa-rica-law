@@ -1,0 +1,1 @@
+Artículo 9°-Interés Público. Se declaran de interés público todas las acciones que efectúen las instancias públicas encargadas del Festival Iberoamérica Teatral para su preproducción, producción y post producción.

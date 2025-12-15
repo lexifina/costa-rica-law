@@ -1,0 +1,1 @@
+Artículo 6°-Financiamiento. El Festival Iberoamérica Teatral se financiará con recursos del Presupuesto Ordinario del Teatro Popular Melico Salazar, así como donaciones, colaboraciones y todo tipo de apoyo que puedan otorgar tanto las instituciones del Sector Público como del Sector Privado.
