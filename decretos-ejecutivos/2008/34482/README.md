@@ -18,3 +18,4 @@ Reglamento para el registro, clasificación, importación y control de equipo y 
 | 3 | 2018-09-25 | Decreto Ejecutivo 41387 (2018-09-25) |
 | 4 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
 | 5 | 2024-08-06 | Decreto Ejecutivo 44659 (2024-08-06) |
+| 6 | 2025-12-15 | Decreto Ejecutivo 45400 (2025-12-15) |
