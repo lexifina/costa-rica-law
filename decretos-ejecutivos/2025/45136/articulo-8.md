@@ -1,5 +1,0 @@
-ARTÍCULO 8-. MECANISMO PARA LA AUTORIZACIÓN DE IMPORTACIÓN POR TERCEROS PARA LOS COSMÉTICOS QUE NO PERTENEZCAN A ALGUNA DE LAS CATEGORÍAS LISTADAS EN EL DEL ANEXO II. Para la aprobación de la autorización de importación por terceros de cosméticos, se seguirá el siguiente procedimiento:
-a) El interesado debe verificar que el producto para el cual solicita la autorización de importación por terceros no pertenezca a alguna de las categorías del listado del Anexo II del presente reglamento.
-b) El interesado mediante la plataforma REGISTRELO debe someter la solicitud de autorización de importación por terceros ante el Ministerio de Salud para su evaluación, junto con los requisitos establecidos en el numeral 6 del presente decreto.
-c) Se inscribe como responsable del producto al importador que realiza el trámite de autorización de importación por terceros.
-d) Por medio de la plataforma REGISTRELO se extenderá el respectivo certificado de autorización de importación por terceros, una vez que se complete el formulario de solicitud y se ingresen los requisitos establecidos en el numeral 6 del presente decreto.
