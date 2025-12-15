@@ -21,3 +21,4 @@ Reglamento para la Explotación de Servicios Especiales de Transporte Automotor 
 | 6 | 2018-11-07 | Decreto Ejecutivo 41431 (2018-11-07) |
 | 7 | 2022-11-28 | Decreto Ejecutivo 43816 (2022-11-28) |
 | 8 | 2025-09-19 | Decreto Ejecutivo 45200 (2025-09-19) |
+| 9 | 2025-12-15 | Decreto Ejecutivo 45363 (2025-12-15) |
