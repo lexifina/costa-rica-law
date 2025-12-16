@@ -1,0 +1,1 @@
+Artículo 13- Clausura de obras sin permiso: Toda obra de mantenimiento, reparación y ampliación que se realice en el cantón de Talamanca y que no cuente con una licencia de permiso de construcción de obra menor, será clausurada y se expondrá a lo que se indica en la Ley de Construcciones respecto a las sanciones por realizar obras sin permiso.

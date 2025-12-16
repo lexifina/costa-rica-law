@@ -1,0 +1,13 @@
+Articulo 21- Clausura de obra. En los casos que más adelante se detallan, las autoridades Municipales clausurarán las obras civiles en los términos establecidos en el ordenamiento jurídico, sin responsabilidad para esta Municipalidad. Cuando proceda la clausura de obras en proceso constructivo o terminado se colocarán sellos de clausurado, a efecto de evitar que el administrado pueda seguir realizando la obra o dar uso a la misma.
+La sanción de clausura procederá para los siguientes casos:
+a. Cuando la Municipalidad logre demostrar que se está desarrollando una obra sin los respectivos permisos Municipales o sin la muestra visible del certificado que contiene el permiso Municipal.
+b. Cuando se demuestre que se está desarrollando una obra con un permiso Municipal vencido, el cual tendrá un año calendario de vigencia a partir de la fecha de su emisión.
+c. Cuando se demuestre que se está desarrollando una obra que ponga en peligro la vida de las personas y la integridad de las cosas, sin las correspondientes medidas de seguridad.
+d. Cuando se demuestre que el diseño y la construcción antisísmica no cumplan con los parámetros establecidos lo cual represente un peligro para la vida e integridad física de las personas y la propiedad.
+e. Cuando no se envíen a la Municipalidad los informes que ésta solicite a efectos de ir determinando el avance de las obras civiles por construir y en general cuando no se cumplan las condiciones de los permisos de construcción.
+f. Cuando compruebe el incumplimiento de alguno de los requisitos establecidos en el ordenamiento jurídico que regula la materia, por parte de aquel a quien se haya otorgado un permiso en los términos regulados.
+g. Cuando se logre demostrar alguna falsedad en los documentos presentados por el permisionario o que alguno de ellos haya sido revocado de alguna manera.
+h. Cuando algún funcionario Municipal detecte que el permisionario está construyendo, remodelando o reparando parcial o totalmente algún tipo de obra, en el inmueble.
+i. Inmuebles en que se explota el permiso, que no hayan sido expresamente autorizados por la Municipalidad o bien, que estén expresamente prohibidas de acuerdo con las normas jurídicas vigentes en el ordenamiento jurídico que rige la materia.
+j. Ejecutar una obra modificando en parte o radicalmente el proyecto respectivo aprobado por la Municipalidad.
+k. Cualquier otra de las infracciones contempladas en la Ley de Construcciones y su Reglamento, así como en la Ley de Planificación Urbana y el Reglamento para el permiso de construcción de obra Menor de esta Municipalidad, o en cualquier otra norma del Ordenamiento Jurídico vigente.

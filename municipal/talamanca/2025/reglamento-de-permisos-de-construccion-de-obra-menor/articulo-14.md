@@ -1,0 +1,13 @@
+CAPÍTULO IV
+Del permiso de construcción de obras menores
+Artículo 14- Requisitos para el permiso: Para solicitar una licencia de permiso de construcción de obra menor, el solicitante deberá cumplir con lo siguiente:
+a- La propiedad en donde se realizarán los trabajos debe estar formalmente declarada y anotada ante la Oficina de Bienes inmuebles de la Municipalidad.
+b- Estar al día con el pago de impuestos municipales.
+c- Adjuntar una copia del plano catastrado de la propiedad con el visado municipal.
+d- Declaración de bienes inmuebles vigente, con no más de cinco años de realizada.
+e- La propiedad debe encontrarse debidamente inscrita a nombre del propietario registral del inmueble. En caso de que el solicitante no sea el mismo que el propietario, se deberá se deberá presentar la autorización firmada y copia de la cédula correspondiente por parte del titular del inmueble. Si la propiedad está inscrita en derechos con varios propietarios, deberá presentar la autorización firmada por todos estos. En caso de personas jurídicas se deberá aportar la personería jurídica vigente de la sociedad y autorización de él o los representantes Regales.
+f- Plano constructivo o croquis detallado, a escala, en donde se muestre la obra que se desea realizar, con inclusión de todos los detalles constructivos, incluyendo, además, localización y ubicación de la propiedad. Se deberá indicar las obras existentes dentro de la propiedad y las nuevas obras menores que se pretender ejecutar con delimitación de linderos, retiros a calle pública y colindancias vecinas, así como las dimensiones y acotado de las obras a ejecutar. Este croquis deberá estar firmado por el propietario del inmueble.
+g-Nota dirigida a la Oficina de Permisos de Construcción de la Municipalidad, describiendo con detalle el alcance y cuantía de los trabajos que se pretenden realizar, indicando, además, los materiales que se utilizarán. Para las solicitudes de autorización de movimientos de tierra por obra menor, se requiere indicar el tipo y forma en que se realizará el trabajo, volumen y tipo de material a remover. destino del material removido, declaración jurada de la no afectación a la propiedad de vecinos y de las vías de comunicación y declaración jurada de no afectación ni alteración de sistemas de evacuación de agua pluvial.
+h-Presupuesto detallado de la obra a realizar, elaborado por un profesional competente inscrito ante el CFIA. En caso de no presentación del presupuesto detallado, se deberá indicar por escrito la aceptación, por parte del propietario, del valor tasado por parte de la Oficina de Permisos de Construcción.
+i-Póliza de riesgos del INS.
+j-Alineamientos de las diferentes instituciones, en caso de requerirse: INVU, MOPT, ICE, ZMT.

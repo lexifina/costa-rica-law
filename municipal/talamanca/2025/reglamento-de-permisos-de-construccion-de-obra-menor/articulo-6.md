@@ -1,0 +1,1 @@
+Artículo 6- Actualización del monto de salarios mínimos: La oficina de la Alcaldía Municipal será la encargada de comunicar mensualmente, el monto oficial establecido a nivel nacional del salario base, según se indica en el artículo 2 de la Ley N°7337.

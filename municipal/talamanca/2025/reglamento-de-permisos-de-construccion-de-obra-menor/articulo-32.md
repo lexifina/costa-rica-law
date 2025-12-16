@@ -1,0 +1,1 @@
+Articulo 32- Sanciones por desobediencia a la autoridad Municipal. Cuando se emitan órdenes escritas a los administrados, éstas serán de acatamiento obligatorio, una vez que estén firmes y conformes al ordenamiento jurídico.

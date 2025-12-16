@@ -1,0 +1,1 @@
+Artículo 28- En la notificación que se efectué, deberá realizarse la advertencia al administrado, de que de conformidad al artículo Nº 93 de la Ley de Construcciones, se le otorgará un plazo de 30 días para presentar los requisitos necesarios y obtener del permiso respectivo.

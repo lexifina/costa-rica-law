@@ -1,0 +1,1 @@
+Artículo 2- Cumplimiento: Ninguna de las obras contempladas en este reglamento será ejecutada sin cumplir los requerimientos que se detallan en el Reglamento de Construcciones, publicado en la Gaceta N°XXXX, alcance N°XX del XXX de XXXXXX del 2025 y sus reformas.

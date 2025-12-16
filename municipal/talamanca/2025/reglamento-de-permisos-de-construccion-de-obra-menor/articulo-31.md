@@ -1,0 +1,1 @@
+Articulo 31- Cuando una obra se encuentre invadiendo zonas públicas, áreas o espacios públicos Municipales se procederá a la demolición de esta de pleno derecho por parte de esta Municipalidad, sin necesidad de que medie el procedimiento aquí descrito.

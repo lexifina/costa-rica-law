@@ -1,0 +1,1 @@
+Articulo 33- En caso de que el administrado no acate estas órdenes en evidente confrontación con la autoridad Municipal, ésta podrá acudir a los Tribunales de Justicia a efecto de interponer las denuncias correspondientes por el delito de Desobediencia de acuerdo con el artículo Nº 307 del Código Penal.

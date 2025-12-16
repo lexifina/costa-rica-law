@@ -1,0 +1,1 @@
+Articulo 38- Concluida la demolición, el departamento de Ingeniería Municipal deberá comunicar al Proceso de Cobro Municipal el detalle del costo de la obra de demolición, a efectos de que se inicie el procedimiento del cobro de este, el cual se iniciará con la notificación al administrado infractor.

@@ -1,0 +1,1 @@
+Artículo 23- Las multas se cargarán trimestralmente en los recibos de cobro de Bienes Inmuebles y Servicios Urbanos y serán aplicadas hasta tanto se ponga a derecho la construcción u obra, sea tramitando el respectivo permiso de construcción o bien ejecutando la demolición que corresponda por cuenta propia.

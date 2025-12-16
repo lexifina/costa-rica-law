@@ -1,0 +1,1 @@
+Artículo 8- Tasación: La Oficina de Permisos de Construcción será la encargada de determinar el monto imponible del permiso solicitado, conforme a lo dispuesto en el artículo 70 de la Ley de Planificación Urbana, por lo que se le solicitará al usuario, presentar un croquis formal y detallado de la obra que se pretende realizar.
