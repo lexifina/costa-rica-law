@@ -1,0 +1,1 @@
+Artículo 33.- Actualización del valor. El valor por concepto de instalación de canoas y bajantes, así como el correspondiente a conservación de fachadas, se actualizará anualmente por la Dirección de Desarrollo Territorial y Urbano, y será publicado en el diario oficial La Gaceta.

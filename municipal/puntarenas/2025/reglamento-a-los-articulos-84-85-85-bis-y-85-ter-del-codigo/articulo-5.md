@@ -1,0 +1,1 @@
+Artículo 5.- Del incumplimiento de deberes y obligaciones. Cualquier incumplimiento a los deberes y obligaciones establecidos en el artículo 84 del Código, acarreará la imposición por parte de la Municipalidad, de las multas contenidas en los artículos 85, según los términos de los artículos 85 bis y 85 ter del Código.

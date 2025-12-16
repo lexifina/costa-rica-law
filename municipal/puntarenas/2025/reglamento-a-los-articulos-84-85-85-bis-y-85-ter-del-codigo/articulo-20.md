@@ -1,0 +1,1 @@
+Artículo 20.- Las multas previstas en los artículos 85, 85 bis y ter, se actualizarán anualmente en el mismo porcentaje en que aumente el salario base establecido en el artículo 2 de la Ley Nº 7337 del 5 de mayo de 1993; para lo cual la Dirección Financiera, a través de la dependencia correspondiente, deberá revisar y gestionar su actualización.

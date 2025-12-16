@@ -1,0 +1,1 @@
+Artículo 21.- Corresponde al Concejo Municipal, de conformidad con lo establecido en los artículos 4, 13, 85 y 85 bis y del Código Municipal, la aprobación y actualización de los precios que establezca el municipio a las obligaciones contenidas en el artículo 84 del Código Municipal; lo cual deberá ser publicado en el diario oficial La Gaceta.

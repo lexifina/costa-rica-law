@@ -1,0 +1,3 @@
+Artículo 13. Si el sujeto pasivo cumpliere con la omisión fuera del plazo concedido por la Municipalidad, deberá informarle inmediatamente en forma escrita a esa dependencia a efecto de que verifique su efectivo cumplimiento.
+En caso de haberse realizado la obra o servicio de manera conforme, el Inspector le informará a la dependencia encargada de la administración de la base de datos de Servicios Urbanos que no continúen cargando la multa a partir de ese momento. También pedirá a la Dirección o Unidad correspondiente que excluya la ejecución de la obra o servicio por parte de la Municipalidad.
+Lo expuesto no exime del pago de la multa por el periodo en que se mantuvo la omisión del sujeto pasivo, ni de los intereses moratorios que de esta se desprendan.

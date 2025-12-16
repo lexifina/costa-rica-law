@@ -1,0 +1,1 @@
+Artículo 9.- El inspector mediante notificación le prevendrá al sujeto pasivo, su deber de cumplir con las omisiones detectadas al artículo 84 del Código Municipal y su deber de obtener el respectivo permiso de construcción cuando así resulte procedente, concediéndole para ello un plazo entre 5 y hasta 15 días hábiles para su cumplimiento.

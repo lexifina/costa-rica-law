@@ -1,0 +1,1 @@
+Artículo 25.- Costo de limpieza de vegetación por metro cuadrado. El valor del metro cuadrado (m2) por limpieza en general de predios será de ? 150,00 (ciento cincuenta colones), el cual se actualizará anualmente por la Dirección de Desarrollo Territorial y Urbano y será publicado en el diario oficial La Gaceta.
