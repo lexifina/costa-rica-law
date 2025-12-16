@@ -1,0 +1,1 @@
+Artículo 11. En todo momento la persona designada como Policía Municipal de Esparza, debe presentarse en perfecto estado de aseo e higiene personal, portar y conservar en perfecto estado su uniforme procurando siempre una imagen decorosa. Mismo cuidado y atención debe prestar al uso, y conservación todo equipo asignado y la delegación o el recinto donde labora.

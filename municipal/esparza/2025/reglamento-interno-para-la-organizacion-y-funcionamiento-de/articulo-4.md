@@ -1,0 +1,1 @@
+Artículo 4º Corresponderá al Servicio Integral de Policía Municipal de Esparza, las mismas potestades y facultades establecidas en la normativa actual y futura, para la Fuerza Pública y la Policía de Tránsito, en calidad de auxiliares de dichos cuerpos policiales.

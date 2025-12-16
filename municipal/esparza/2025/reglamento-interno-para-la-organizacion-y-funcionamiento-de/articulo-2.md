@@ -1,0 +1,1 @@
+Artículo 2º La función del Servicio Integral de Policía Municipal de Esparza, será promover y resguardar el orden público de forma integral, en los lugares públicos, edificios municipales y las vías del cantón de Esparza, garantizando un ambiente de seguridad y control en todos aquellos espacios públicos de interés local.

@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE ESPARZA
+El Concejo Municipal de Esparza, según lo establecido en los artículos 169 y 170 de la Constitución Política; 3, 4 inciso a), 13 inciso d), y 43 del Código Municipal, en Acta Nº 122 de Sesión Ordinaria, efectuada el 11 de noviembre de dos mil veinticinco, Artículo II, inciso 5, habiéndose cumplido con el plazo de ley para someter a consulta y una vez evacuadas y tomadas en consideración las observaciones presentadas, Acuerda: "Aprobar y ratificar como reglamento definitivo el REGLAMENTO INTERNO PARA LA ORGANIZACIÓN Y FUNCIONAMIENTO DE LA POLICIA MUNICPAL DE LA MUNICIPALIDAD DE ESPARZA, por lo que ordena que se realice su publicación definitiva con los cambios realizados, en el diario oficial La Gaceta".
+REGLAMENTO INTERNO PARA LA ORGANIZACIÓN Y
+FUNCIONAMIENTO DE LA POLICIA MUNICPAL DE LA MUNICIPALIDAD
+DE ESPARZA
+Con base en las potestades constitucionales establecidas en los artículos 169 y 170 de la Constitución Política de la República de Costa Rica, y las disposiciones de los artículos 1, 4, 21, 47 y 61 al 69 del Código Municipal, el Concejo Municipal de Esparza, emite el presente Reglamento Interno para la organización y funcionamiento de la Policía Municipal de Esparza, de la Municipalidad de Esparza.
+CAPÍTULO I
+Servicio Integral de Policía Municipal
+Artículo 1º Se establece el Servicio Integral de Policía Municipal de Esparza, como un cuerpo policial municipal uniformado, de carácter preventivo y administrativo, adscrito a la Alcaldía Municipal de Esparza; cuyo objetivo es contribuir a mejorar la seguridad y calidad de vida de los munícipes, contribuyentes y visitantes del cantón de Esparza, mediante una gestión efectiva y eficiente en materia de Seguridad Ciudadana, vigilancia, educación, y control vial, coordinada con las Autoridades Nacionales.

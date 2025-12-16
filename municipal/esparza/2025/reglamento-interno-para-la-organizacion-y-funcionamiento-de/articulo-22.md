@@ -1,0 +1,1 @@
+Artículo 22. La Municipalidad de Esparza, mediante la Alcaldía Municipal, podrá realizar convenios de cooperación, con instituciones públicas y privadas, comercios y personas físicas, a fin de obtener y utilizar los mejores recursos tecnológicos y equipos para la vigilancia y operación de la Policía Municipal de Esparza.

@@ -1,0 +1,1 @@
+Artículo 8º Será obligación de los Policías Municipales de Esparza, ejercer adecuadamente el servicio integral de seguridad ciudadana y el control vial en el cantón, en apego de lo que establece el las leyes de la república y los reglamentos ejecutivos y municipales respectivos

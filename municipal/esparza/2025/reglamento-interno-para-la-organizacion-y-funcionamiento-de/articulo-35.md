@@ -1,0 +1,2 @@
+Artículo 35. Del uniforme de la Policía Municipal de Esparza. El uniforme de la Policía Municipal de Esparza, será proporcionado por la institución, este deberá ser conforme a las tendencias existentes en el ámbito policial municipal. La Alcaldía y el coordinador de la seguridad ciudadana, definirán los componentes, materiales, texturas y colores del mismo.
+El uniforme deberá estar conformado por al menos por los siguientes elementos: botas, gorra, pantalón, camisa, chaleco balístico.

@@ -1,0 +1,1 @@
+Artículo 18. Es responsabilidad de los funcionarios de la policía municipal, la adecuada conservación y uso de los implementos suministrados por la institución para ejercer sus labores, estos implementos deberán estar siempre a disposición de los superiores Jerárquicos del servicio, con el fin de verificar su perfecto estado de conservación y funcionamiento.
