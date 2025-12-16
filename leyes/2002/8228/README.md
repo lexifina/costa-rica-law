@@ -1,6 +1,6 @@
 # Ley del Benemérito Cuerpo de Bomberos de Costa Rica
 
-Ley N° 8228 del 2002-03-19. SINALEVI, ficha 48308: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48308&param2=116585&param3=1>.
+Ley N° 8228 del 2002-03-19. SINALEVI, ficha 48308: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48308&param2=148851&param3=1>.
 
 Publicada en La Gaceta N° 78 del 2002-04-24.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2010-06-01 | Ley 8823 | 2010-05-05 |
 | 4 de 6 | 2011-09-22 | Ley 8992 | 2011-09-20 |
 | 5 de 6 | 2019-06-13 | Ley 9694 | 2019-06-04 |
+| 6 de 6 | 2025-12-16 | Ley 10788 | 2025-11-11 |
