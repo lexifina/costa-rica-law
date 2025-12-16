@@ -1,1 +1,0 @@
-Artículo 21º - Rotulación. Es requisito indispensable que todo automotor de uso administrativo general y de uso regular de campo, se encuentre rotulado con el logotipo de JASEC y el número de placa en las puertas laterales.

@@ -1,1 +1,0 @@
-Artículo 27° - Incumplimiento a la Ley de Tránsito. Si como consecuencia de incumplimientos a la Ley de Tránsito y sus reformas, el trabajador es privado de su libertad, el contrato de trabajo se regirá conforme a las normas establecidas en el artículo 78 y 81 del Código de Trabajo.

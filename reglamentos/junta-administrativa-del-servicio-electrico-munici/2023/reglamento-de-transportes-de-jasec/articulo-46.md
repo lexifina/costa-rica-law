@@ -1,1 +1,0 @@
-Artículo 46° - Ausencias reglamentarias. En todo lo no dispuesto en el presente reglamento, se aplicará en lo que corresponda las leyes y reglamentos conexos, así como el ordenamiento jurídico vigente.

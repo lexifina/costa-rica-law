@@ -1,1 +1,0 @@
-Artículo 16° - Préstamo de vehículos. Todo funcionario que requiera el préstamo de vehículos para uso administrativo deberá solicitarlo al responsable con la suficiente antelación y este analizará la posibilidad del préstamo del mismo, además verificará las condiciones del vehículo, así como los implementos.
