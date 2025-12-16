@@ -1,0 +1,2 @@
+CAPÍTULO VII - Licencia de construcción de obra menor
+Artículo 24. -Se recibirá la solicitud de licencia de construcción de obra menor en 2 formas, la primera será de forma física en la plataforma municipal entregando el expediente completo con todos los requisitos del artículo 25 de este reglamento, o bien lo puede solicitar por la página municipal, llenando la solicitud y aportando todos los requisitos en la misma solicitud.

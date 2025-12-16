@@ -1,0 +1,1 @@
+Artículo 8º-No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado del Departamento de Desarrollo Urbano, incluyan modificaciones al sistema estructural, eléctrico o mecánico de un edificio; que pongan en riesgo la seguridad de sus ocupantes, esto con base en el artículo 83 bis de la ley 833.

@@ -1,0 +1,1 @@
+Artículo 37.-En ningún caso se emitirán más de 1 permiso de construcción sobre la misma obra dentro de la misma finca, esto dentro del plazo de 12 meses, esto para evitar el fraccionamiento de proyectos. Se permiten hasta 2 permisos de construcción de obra menor anuales dentro de la misma finca, siempre que las 2 obras no tengan relación constructiva alguna.

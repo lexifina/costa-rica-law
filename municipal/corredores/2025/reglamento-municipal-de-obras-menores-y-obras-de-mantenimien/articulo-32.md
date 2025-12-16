@@ -1,0 +1,1 @@
+Artículo 32. -La inobservancia de lo dispuesto en el presente Reglamento además de la clausura de la obra, motivará también la imposición de multas y orden de demolición según lo estipulado en la ley 833 y reglamentación municipal interna sobre construcciones, demoliciones y clausuras.

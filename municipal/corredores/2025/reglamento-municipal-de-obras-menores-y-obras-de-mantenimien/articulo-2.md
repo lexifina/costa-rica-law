@@ -1,0 +1,1 @@
+Artículo 2º-Este Reglamento rige en todo el cantón de Corredores y procura el cumplimiento de las estipulaciones establecidas en normativa vigente en el ámbito de la regulación de obras de construcción.

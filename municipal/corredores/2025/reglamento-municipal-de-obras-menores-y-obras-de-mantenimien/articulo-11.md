@@ -1,0 +1,1 @@
+Artículo 11. -Toda obra menor que no cuente con el permiso municipal respectivo será clausurada, para lo cual el Departamento de Desarrollo Urbano será el encargado de que se cumpla lo estipulado en este Reglamento.

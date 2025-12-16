@@ -1,0 +1,2 @@
+CAPÍTULO X - DISPOSICIONES FINALES
+Artículo 35. Revisión y actualización del Reglamento-Se debe actualizar los requisitos, procedimientos, normativa legal vigente y necesaria, para la debida aplicación del presente reglamento. El plazo máximo para realizar dichas actualizaciones es de 5 años, por parte del departamento urbanismo y desarrollo humano a partir de su publicación en el diario oficial la gaceta mediante acuerdo del Concejo Municipal, conforme al procedimiento legalmente establecido.

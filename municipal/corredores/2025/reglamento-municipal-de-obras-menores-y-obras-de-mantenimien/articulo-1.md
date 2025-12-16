@@ -1,0 +1,5 @@
+CONCEJO MUNICIPAL DE CORREDORES
+El Concejo Municipal de Corredores comunica que, mediante acuerdo N° 04 aprobado en sesión ordinaria N°80, celebrada el día 02 de noviembre de 2025, se acordó por unanimidad, con dispensa de trámite de comisión y en firme, aprobar y publicar por segunda y última vez, EL REGLAMENTO MUNICIPAL DE OBRAS MENORES
+Con fundamento legal en el artículo 170 de la Constitución Política; en los artículos 2, 3, 4 inciso a), 13 incisos c) y 43 del Código Municipal; y 83 bis de la Ley de Construcciones; se promulga el siguiente Reglamento Municipal de Obras Menores y Obras de Mantenimiento del cantón de Corredores. Aprobado en sesión ordinaria xxx del Concejo Municipal de Corredores
+CAPÍTULO I - Disposiciones generales
+Artículo 1º-El presente Reglamento tiene como objeto fijar las regulaciones a las construcciones de obras menores, según el artículo 83 bis de la Ley de Construcciones nro. 833 de 02 de noviembre de 1949, adicionado por la Ley nro. 9482 del 26 de setiembre de 2017.

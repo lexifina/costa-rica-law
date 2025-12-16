@@ -1,0 +1,1 @@
+Artículo 36 Plazo de validez de la licencia de construcción -Toda licencia de construcción de obra menor emitido tiene una vigencia de 1 año antes iniciar la obra, si se deja vencer y no ha iniciado la obra, se debe de realizar una nueva solicitud de licencia para construcción, con documentación vigente.

@@ -1,0 +1,1 @@
+Artículo 5º-Se considera que el constructor será responsable de la correcta ejecución según normativa técnica vigente. Por lo tanto no se requiere de planos firmados por ingenieros y la responsabilidad de la misma recae sobre el constructor y cliente.
