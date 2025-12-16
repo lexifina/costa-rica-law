@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De la Gestión de Pago
+Artículo 38.-Pagos. Los pagos a que se obligue la RSS se realizarán una vez que todas las contraprestaciones a cargo del contratista hayan sido debidamente ejecutadas conforme a lo pactado. Cuando se hubieren acordado pagos parciales, los mismos se harán por cada una de las entregas aceptadas a conformidad. En las contrataciones de objeto continuo, sucesivo o periódico, los pagos se harán por periodo vencido o contra el avance de obra o servicio, según sea el caso. Cuando se trate de compras al exterior, para su pago se podrán utilizar normas, principios y costumbres del comercio internacional.

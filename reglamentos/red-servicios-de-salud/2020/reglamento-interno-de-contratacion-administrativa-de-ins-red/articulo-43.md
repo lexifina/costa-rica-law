@@ -1,0 +1,1 @@
+Artículo 43.-Derogatorias. Se derogan el Reglamento Interno de Contratación Administrativa del Hospital del Trauma S. A. aprobado por la Junta Directiva y publicado en la Gaceta 151 del 5 de agosto del 2015; así como cualquier instrucción, directriz, acuerdo o disposición en materia de contratación administrativa contrarias a lo dispuesto en el presente Reglamento.

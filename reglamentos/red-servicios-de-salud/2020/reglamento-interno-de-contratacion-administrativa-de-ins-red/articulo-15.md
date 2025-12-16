@@ -1,0 +1,1 @@
+Artículo 15.-Subsanación de la Decisión Inicial. La Decisión Inicial presentada en forma incorrecta o imprecisa, será comunicada para su corrección por el Departamento de Adquisiciones a la Unidad Usuaria, para que realice el ajuste correspondiente dentro de los 3 días hábiles siguientes. Si la prevención no es atendida en forma oportuna, se procederá a su archivo.

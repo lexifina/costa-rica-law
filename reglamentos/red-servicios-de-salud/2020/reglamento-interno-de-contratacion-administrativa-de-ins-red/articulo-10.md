@@ -1,0 +1,1 @@
+Artículo 10.-Colaboración al Departamento de Adquisiciones. Para el eficiente y eficaz cumplimiento de las funciones del Departamento de Adquisiciones, todas las demás unidades administrativas de la RSS, sean, técnicas, jurídicas o de cualquier otro orden, están obligadas a brindarle colaboración y asesoría.

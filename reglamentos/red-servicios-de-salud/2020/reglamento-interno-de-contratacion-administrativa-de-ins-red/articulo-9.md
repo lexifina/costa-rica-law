@@ -1,0 +1,2 @@
+Artículo 9º-Estructura. El Departamento de Adquisiciones estará a cargo de una Jefatura que será la responsable de la organización y buen funcionamiento de esa unidad. Tendrá una estructura organizativa que le permita cumplir en forma eficiente y oportuna con las funciones de conducción de los procedimientos de contratación administrativa.
+Corresponderá al INS adoptar las medidas necesarias para garantizar que este Departamento cuente con los recursos humanos y materiales indispensables para ejecutar debidamente la labor encomendada.

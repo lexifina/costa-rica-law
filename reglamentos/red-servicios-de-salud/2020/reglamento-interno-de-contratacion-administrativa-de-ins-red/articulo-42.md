@@ -1,0 +1,2 @@
+Artículo 42.-Refrendo Interno y Refrendo Contralor. Las contrataciones que realice la RSS estarán sujetas al trámite de refrendo interno por parte de la asesoría jurídica institucional y al refrendo por parte de la Contraloría General de la República, conforme a las disposiciones establecidas en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
+El Refrendo Interno estará a cargo de la asesoría jurídica de la RSS, entendiéndose que tendrán competencia para ello todos los abogados que formen parte de dicha unidad.
