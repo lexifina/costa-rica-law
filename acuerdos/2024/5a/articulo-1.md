@@ -3,154 +3,201 @@ AVISO
 N° 2024-005.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 10473 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del documento: ECA-MC-C10 Criterios para la evaluación de la norma INTE ISO IEC 17029 pasa versión 11 a versión 12. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http:// www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
 San José, 21 de mayo del 2024
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web de Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen] [imagen]
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 35 del 20 de febrero del 2026, donde se actualiza la versión 12 y se publica la versión 13, y se transcribe a continuación:)
+[imagen]
 TABLA DE CONTENIDO
-1. OBJETIVO..................................................................................................................... 1
-2. ALCANCE...................................................................................................................... 1
-3. DOCUMENTO MANDATORIO........................................................................................ 1
-PRIMERA PARTE: REQUISITOS PPCN..................................................................................... 2
-8.4 VALIDACIÓN O VERIFICACIÓN........................................................................................... 3
-4. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
-4
-5. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0.................................................................................................................................. 5
-6. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA................... 6
-7. ESQUEMA DE HUELLAS AMBIENTALES....................................................................... 7
-SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2023............................................... 8
-INTRODUCCIÓN A LOS DOCUMENTOS OBLIGATORIOS DE LA IAF........................................ 8
-8. TRANSITORIO............................................................................................................. 18
-9. CONTROL DE CAMBIOS.............................................................................................. 18
+1. OBJETIVO............................................................................................................................ 1
+2. ALCANCE............................................................................................................................. 1
+3. DOCUMENTOS DE REFERENCIA......................................................................................... 2
+4. REQUISITOS ADICIONALES................................................................................................. 2
+4.1 REQUISITOS GENERALES.................................................................................................. 2
+4.2 REQUISITOS RELATIVOS A LA ESTRUCTURA.................................................................... 2
+4.3 REQUISITOS RELATIVOS A LOS RECURSOS..................................................................... 3
+4.4 PROGRAMA DE VALIDACIÓN/VERIFICACIÓN..................................................................... 3
+4.4.1 PROGRAMA PAÍS PARA EL LIDERAZGO CLIMÁTICO (PPLC)........................................... 6
+4.4.2 INVENTARIOS DE GEI BAJO EL ESTÁNDAR ISO 14064-1 EN SU VERSIÓN VIGENTE...... 7
+4.4.3 VALIDACIÓN DE PROYECTOS GEI BAJO EL ESTÁNDAR ISO 14064-2 EN SU VERSIÓN VIGENTE 7
+4.4.4 CARBONO NEUTRALIDAD BAJO EL ESTÁNDAR ISO 14068-1 EN SU VERSIÓN VIGENTE 8
+4.4.5 ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA................................................... 8
+4.4.6 PROGRAMA NACIONAL DE ETIQUETADO AMBIENTAL (PNEA)....................................... 9
+4.4.7 OTROS PROGRAMAS DE HUELLAS AMBIENTALES....................................................... 10
+4.5 REQUISITOS RELACIONADOS AL PROCESO.................................................................... 11
+4.6 REQUISITOS DE INFORMACIÓN....................................................................................... 11
+4.7 REQUISITOS DEL SISTEMA DE GESTIÓN......................................................................... 11
+5. SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2024......................................... 12
+6. TRANSITORIO.................................................................................................................... 22
+7. IDENTIFICACIÓN DE CAMBIOS........................................................................................... 22
 1. OBJETIVO
-Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos Validadores/Verificadores, de acuerdo con la Norma INTE/ISO 14065 en su versión vigente y la Directriz IAF MD 6. Asimismo, establecer requisitos complementarios de los esquemas de acreditación.
+Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos Validadores/Verificadores (OVV), de acuerdo con la Norma INTE/ISO/IEC 17029 e INTE/ISO 14065 en su versión vigente y el Documento Mandatorio IAF MD 6, así como con los requisitos complementarios definidos por los distintos programas o esquemas de información ambiental que opera actualmente el ECA.
 2. ALCANCE
-El presente documento aplica para los Organismos Validadores/Verificadores acreditados o en proceso de acreditación.
-3. DOCUMENTO MANDATORIO
-3.1 Aplicación de Criterios
-Estos criterios se dividen en dos partes:
-Primera parte: Los Criterios para los OV/V acreditados para verificar el Programa País Carbono Neutralidad (PPCN) del MINAE, empiezan a regir a partir del 30 de agosto del 2021 para proceso de solicitud inicial y a partir de mayo 2022 de manera obligatoria para todo OVV acreditado bajo este alcance.
-El PPCN ha emitido unos criterios adicionales, que son complementos del MD 06, por ello, estos requisitos son adicionales al MD 6.
-Segunda Parte: Traducción del Documento mandatorio MD 6 de IAF.
-PRIMERA PARTE: REQUISITOS PPCN
-1. ALCANCE
-C.1.1 Criterio del ECA: En el caso de Costa Rica, para una validación/verificación de una verificación de inventario de GEI relacionada con el Programa País Carbono Neutralidad 2.0 (PPCN 2.0). los OV/V deben tomar en cuenta la norma nacional INTE B5 en su versión vigente.
-C.1.2 ª Criterio del ECA: La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar se evaluará por parte del ECA en los OV/Vs que dentro de su alcance soliciten que se evalúe conforme a ISO/IEC 17030: Evaluación de la conformidad. Requisitos generales para las marcas de conformidad de tercera parte. La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar deberá indicar el año de verificación del inventario. (Modificado por el CAVV-008-2015).
-C.1.2 b ECA reconoce que el Ministerio de Ambiente y Energía es el único ente autorizado para emitir la Marca País Carbono Neutralidad y sus sinónimos (CO2 neutral, carbono neutral, etc) y que la declaración emitida por un OV/V acreditado debe ser presentada ante la Dirección de Cambio Climático del Ministerio, para el posterior otorgamiento de la marca correspondiente (Modificado por el CAVV-008- 2015).
-C. 3. GESTIÓN DE LA IMPARCIALIDAD
-C.1.3 Se debe evaluar el cumplimiento del OV/V del Criterio ECA-MC-C16: CRITERIOS PARA EVALUAR LA IMPARCIALIDAD
-6. REQUISITOS ESTRUCTURALES
-6.1 ESTRUCTURA ORGANIZATIVA Y ALTA DIRECCIÓN
-C.1.4 Se deben verificar los cambios significativos reportados por el OV/V en el último periodo, en cumplimiento con el Compromiso de Acreditación. Por ejemplo: cambios de personal (altas y bajas) que se presenten durante el período en el que se encuentre acreditado y en proceso de acreditación. Para la incorporación de nuevo personal es necesario notificar al ECA antes de que realice operaciones de validación o verificación acreditadas y debe hacer entrega de la evidencia objetiva de la competencia del validador o verificador.
-C.1.5 Para el esquema del PPCN 2.0, el OVV debe cumplir con la matriz de competencias establecida por el ECA en el formulario ECA-MC-C10-F01 que está disponible en la página web del ECA.
-C.1.6 Los sectores establecidos para el PPCN 2.0 se encuentran definidos en el ECA-MC- C10-F01, según el anexo 2 del PPCN 2.0. El ECA se reserva a modificar o aclarar estos sectores.
-ISO 14064-3 Cláusulas:
-4.5. Evaluación del sistema de información sobre GEI y sus controles
-4.6. Evaluación de datos e información sobre GEI
-4.7. Evaluación con criterios de validación o verificación
-4.8. Evaluación de la declaración de GEI
-NOTA ECA: Para la aplicación como criterio de evaluación la Norma ISO 14064.3:2018 deben considerarse los apartados;
-6.1.3.3 istema de información sobre los GEI y sus controles
-6.1.3.4 atos e información sobre los GEI
-6.1.3.5 Proceso de suma de datos
-6.1.3.6 licación de actividades y técnicas de verificación seleccionadas
-6.3.1.4 Evaluación de la conformidad con los criterios 6.3.1.2Evaluación de la suficiencia e idoneidad de la evidencia
-6.3.1.3 Evaluación de las declaraciones erróneas materiales
-8.4 VALIDACIÓN O VERIFICACIÓN
-C.1.7 Criterio de ECA: Cuando el OV/V valida o verifica información proveniente de equipos de medición de los datos de actividad o de medición directa de GEI, debe asegurar que el equipo esté calibrado y que haya sido calibrado por un laboratorio acreditado. Igualmente, en el caso de que la empresa haya contratado un laboratorio para la medición de GEI, éste debe estar acreditado.
-4. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
-C.1.9 El OV/V acreditado para verificar inventarios con el Programa País Carbono Neutralidad por definir, debe cumplir con todos los requisitos aplicables indicados en el documento Programa País Carbono Neutralidad 2.0- Categoría Organizacional que incluyen:
-· Apartado 5. Sistema de reconocimiento del PPCN 2.0
-· Apartado 6.2. Requisitos para el uso de símbolo.
-· Apartado 9. Clasificación de Organizaciones según su complejidad.
-· Apartado 10.3. Gases de efecto invernadero por reportar
-· Apartado 10.6 Estrategia para las reducciones y compensaciones de GEI
-· Apartado 10.9. Continuidad del logro del carbono neutralidad a lo largo del tiempo
-· Apartado 10.12. Criterios para el reporte de incertidumbre.
-· Apartado 12. Nivel de aseguramiento de los procesos de verificación
-· Apartado 14. Requisitos para las opiniones de verificación que serán presentadas al PPCN.
-· Apartado 15. Requisitos para la participación del OV/V en el PPCN.
-· Apartado 16. Hechos descubiertos después de verificación.
-· Anexo II. Clasificación sub sectorial para la acreditación de los OV/V (se encuentra especificado en el ECA-MC-P11, anexo 4 y la matriz de competencias de los subsectores se encuentra en el ECA-MC-C10-F01 Matriz de competencias de los equipos verificadores (experto técnico y/o verificador) para el PPCN 2.0 DEL MINAE.
-C.1.10. La línea base de procesos generales, descrita en el Anexo 2 del PPCN, determina conocimientos base que todo verificador debe poseer y por ende todo OVV debe incluir como parte de sus competencias. Además, se considera como un sector de clasificación de actividades y de evaluación de competencias para aquellos procesos de verificación en los que las fuentes de emisión relacionadas a la operación de la organización a verificar cumplen con las características descritas en el Anexo 2 del PPCN para línea base. Este se clasifica como un sector no crítico. En casos en los que este sea el único sector a solicitar por parte de un OVV, este podría ser sujeto a testificación.
-C.1.10 Para la aplicación de criterios de la Sub categoría de Centros Educativos, el OVV debe estas acreditado bajo el esquema del Programa País Carbono Neutralidad Organizacional y aplicar todos los requisitos específicos definidos para la Categoría Centros Educativos.
-C.1.11. Todo OVV acreditado bajo el esquema del Programa País Carbono Neutralidad Organizacional debe demostrar competencia para la aplicación de criterios de la Categoría Centros Educativos, ya que estos criterios se consideran parte la PPCN Organizacional.
-C.1.12 En referencia al apartado 10. Requisitos para la participación del OVV en el PPCN de la Categoría Centros Educativos del PPCN y normas aplicables, en el cual se indica: Los OVV deben contar con la acreditación aplicable para el alcance de verificación de inventarios de gases de efecto invernadero y carbono neutralidad, sin ser aplicable en este caso la acreditación por sectores. Se establece que, las competencias requeridas para esta sub categoría serán dependientes de las actividades que realice el centro educativo y el OVV debe haber demostrado competencia en los sectores involucrados, previamente ante el ECA de acuerdo con el ECA-MC-C10-F01 Matriz de competencias de los equipos verificadores (experto técnico y/o verificador) para el PPCN 2.0 DEL MINAE.
-5. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0
-Según lo indicado por la Dirección de Cambio Climático del MINAE en el punto 15.2 del PPCN se debe cumplir con lo siguiente:
-En el caso de que no exista OVV acreditado con el ECA en el subsector específico requerido por una organización determinada, se permitirá que un OVV acreditado (en uno o más subsectores) brinde el servicio, siempre y cuando cumpla con lo siguiente:
-a) La solicitud no esté relacionada con un subsector crítico, de acuerdo con la clasificación establecida por el ECA. Si se trata de un subsector crítico, el OVV debe contar con la acreditación correspondiente.
-b) La solicitud de la ampliación del alcance en el subsector específico (según lo establecido en los procedimientos del ECA) esté debidamente presentada ante la ECA y aceptada por el Comité de Organismos Validadores y Verificadores del ECA.
-c) Gestione ante la DCC el reconocimiento del PPCN para las organizaciones que pertenecen al subsector en proceso de acreditación.
-d) Informe a la DCC sobre el proceso de ampliación de la acreditación y de las decisiones tomadas en el proceso. La DCC verificará que la información brindada sea precisa y cancelará el permiso en caso de que se encuentre información falsa.
-El OVV informará a la DCC cuando reciba la acreditación para el o los subsectores adicionales solicitados. La DCC procederá a actualizar en su página web (www.cambioclimaticocr.com) que el OVV se encuentra autorizado en el subsector específico para operar dentro del PPCN.
-En caso de que el ECA no otorgue la acreditación en el sector o subsectores adicionales solicitados y este acuerdo quede en firme, la DCC tomará las medidas necesarias, que incluirán como mínimo el retiro del permiso de uso de las marcas del PPCN a las organizaciones verificadas por el OVV en cuestión, en el subsector señalado.
-6. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA.
-ECA está expandiendo su programa de acreditación INTE ISO 14065 para incorporar la acreditación para la verificación de las emisiones de la aviación de acuerdo con CORSIA, cuyo precursor es la OACI (Organismo de Aviación Civil Internacional). CORSIA es un esquema mundial de medidas voluntarias basadas en el mercado para abordar los aumentos anuales en las emisiones totales de CO2 de la aviación civil internacional.
-Los OV/ V interesados en la acreditación de este esquema estarán sujetos a la evaluación por parte de ECA de la siguientes normativas y documentos:
-1. Norma INTE/ISO 14065 en su versión vigente.
-2. Norma INTE/ISO 14066 en su versión vigente.
-3. Norma INTE/ISO 14064-3 en su versión vigente.
-4. ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065 (IAF MD6).
-5. El Manual Técnico Ambiental (Doc 9501), Volumen IV. (https://www.icao.int/environmental-protection/CORSIA/Pages/ETM-V-IV.aspx).
-6. Estándar Internacional y Prácticas Recomendadas de la OACI, Anexo 16, Volumen IV, Esquema de reducción y compensación de carbono para la aviación internacional (CORSIA), apéndice 6.
-7. Solicitud asociada: ECA-MP-P04-F16 Solicitud de OVV para CORSIA V01.
-El dueño del esquema CORSIA es la OACI y es a través de la Dirección de Aviación Civil de Costa Rica que vela por el cumplimiento de los criterios definidos. Parte de los requerimientos es que los OV/V deben acreditarse para el esquema específico CORSIA.
-Se tomará el siguiente enfoque para los OV/V que deseen estar acreditados para su verificación bajo el esquema CORSIA:
-a) Para los OV/V acreditados por ECA: los OV/V que deseen ampliar a CORSIA deben solicitar una ampliación al alcance mediante la presentación de la Solicitud de acreditación ECA-MP-P04-F16 Solicitud de OVV para CORSIA V01 junto a los anexos solicitados. Además, se requerirá una evaluación de la oficina y una testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. La evaluación debe confirmar que el organismo de verificación ha identificado los requisitos clave, ha brindado capacitación sobre los requisitos y cualquier cambio en su metodología de verificación, etc. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
-b) Los OV/V que actualmente no están acreditados: para INTE ISO 14065 deberán recibir una evaluación inicial completa según INTE ISO 14065, INTE ISO 14064-3, 14066:2011, ECA-MC-C10 y el esquema CORSIA, además testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
-7. ESQUEMA DE HUELLAS AMBIENTALES
-Etiquetado Ambiental Tipo III:
-Dada la importancia de la descarbonización de la economía estipulada en el Plan Nacional de Descarbonización, el liderazgo de Costa Rica en temas ambientales, así como la necesidad de combatir el cambio climático y de desvincular el crecimiento económico de la degradación ambiental por medio de sistemas de producción y consumo más responsables y aumentar la eficiencia en el uso de recursos se han desarrollo directrices ministeriales, políticas y programas nacionales orientadas a reducir las emisiones de gases de efecto invernadero como el Programa País Carbono Neutralidad (PPCN 2.0) y el Programa Nacional de Etiquetado Ambiental y Energético que busca reducir los impactos ambientales de los productos y servicios.
-En este sentido, el MINAE como ente rector político en materia ambiental y energética, a través del anterior Acuerdo-006-2019-MINAE y nuevo Acuerdo-09-2022-MINAE se oficializa el Programa Nacional de Etiquetado Ambiental y Energético de Costa Rica y se crea el Comité Técnico de Etiquetado Ambiental.
-Para este esquema se evalúa al administrador del programa según los principios generales ISO 14025:2006(es) Etiquetas y declaraciones ambientales - Declaraciones ambientales tipo III - Principios y procedimientos.
-A continuación se describen los niveles de norma que deben evaluarse a los OVV para este esquema de etiquetado ambientales tipo III:
-Nivel 3. | INTE-ISO 17029:2019. Evaluación de la conformidad - Principios generales y requisitos para los organismos de validación y verificación.
-Nivel 4. | INTE-ISO 14065:2021. Principios generales y requisitos para los organismos que validan y verifican la información ambiental INTE-ISO 14066:2013 Gases de efecto invernadero. Requisitos de competencia para los equipos de validación y verificación de gases de efecto invernadero (Aplica para todas las huellas). INTE-ISO 14064-3:2019. Gases de efecto invernadero. Parte 3: Especificación con orientación para la validación INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas tipo III. Principios y procedimientos.
-| Reglas de categoría de producto (RCP) según la categoría de producto
-Nivel 5. | Para huella de carbono en producto le aplican las siguientes normas: ? INTE-ISO 14067: 2019. Gases de efecto invernadero - huella de carbono de productos - Requisitos y directrices para cuantificación. ? Reglas de categoría de producto (RCPs) según la categoría de producto Para huella de agua le aplican las siguientes normas ? INTE-ISO 14046: 2014. Gestión Ambiental - huella de agua - Principios, requisitos y directrices. ? Reglas de categoría de producto (RCPs) según la categoría de producto Para otras huellas ambientales o categorías de impacto ambiental le aplican las siguientes normas: ? Reglas de categoría de producto (RCPs) según la categoría de producto Para todo tipo de huella con declaración tipo III se debe confirmar competencia en: ? INTE-ISO 14040: 2007. Gestión Ambiental - Análisis de Ciclo de Vida - Principio y marco de referencia ? INTE-ISO 14044:2007/Emn 1:2018. Gestión Ambiental. Análisis de Ciclo de Vida. Requisitos y directrices.
-SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2023.
-Este documento es una traducción del MD 6 a partir de este apartado. Recordar que el documento en inglés es la versión oficial.
+El presente documento aplica para los Organismos Validadores/Verificadores (OVV) acreditados o en proceso de acreditación con el ECA, incluyendo solicitudes iniciales, ampliaciones de alcance, seguimientos, extraordinarias y reevaluaciones, en el marco de los distintos programas y esquemas de validación y verificación de información ambiental que opera actualmente el ECA.
+3. DOCUMENTOS DE REFERENCIA
+Externos:
+. INTE/ISO/IEC 17029:2019
+. INTE/ISO 14065:2021
+. INTE/ISO 14066:2025
+. INTE/ISO 14064-1:2019
+. INTE/ISO 14064-2:2019
+. INTE/ISO 14064-3:2019
+. INTE/ISO 14068-1:2023
+. INTE B12:2025
+. INTE B5:2021
+. IAF MD 6:2024.
+Internos:
+. ECA-MC-C16
+. ECA-MC-C10-F01
+. ECA-MP-P02
+4. REQUISITOS ADICIONALES
+4.1 REQUISITOS GENERALES
+C.4.1.1 Se debe evaluar el cumplimiento del OV/V respecto del Criterio ECA-MCC16: "Criterios para evaluar la imparcialidad, independencia e integridad".
+4.2 REQUISITOS RELATIVOS A LA ESTRUCTURA
+C.4.2.1 El equipo evaluador debe verificar los cambios significativos reportados por el Organismo Validador o Verificador (OV/V) durante el último período de acreditación, conforme a lo establecido en el Compromiso de Acreditación (ECAMP-P02). Dichos cambios pueden incluir modificaciones en la estructura organizativa, personal (altas y bajas), instalaciones, o actividades operativas. El OV/V deberá notificar al ECA la incorporación de nuevo personal antes de su participación en validaciones o verificaciones acreditadas y presentar evidencia objetiva de la competencia del validador o verificador.
+4.3 REQUISITOS RELATIVOS A LOS RECURSOS
+C.4.3.1 Los OVV deben cumplir con la matriz de competencias establecida por el ECA en el formulario ECA-MC-C10-F01 en su versión vigente, en conformidad con el alcance solicitado o acreditado.
+C.4.3.2 En referencia a Programas de Inventarios de GEI, Carbono Neutralidad, Declaraciones Ambientales de Producto y Huellas Ambientales, se debe demostrar, como mínimo, competencia para los sectores o categorías definidos en el ECA-MC-C10-F01, en conformidad con el alcance de acreditación solicitado o acreditado. El ECA se reserva a modificar o aclarar estos sectores o categorías. Esto no excluye casos en los que el programa defina criterios de competencia distintos o adicionales, para los cuales ECA deberá realizar el análisis de equivalencias correspondiente.
+C.4.3.3 En referencia al sector de Línea base establecido para Programas de Inventarios de GEI y Carbono Neutralidad, descrito en la matriz ECA-MC-C10-F01, determina conocimientos base que todo verificador debe poseer y por ende todo OVV debe incluir como parte de sus competencias. Además, se considera como un sector de clasificación de actividades y de evaluación de competencias para aquellos procesos de verificación en los que las fuentes de emisión relacionadas a la operación de la organización a verificar cumplen con las características descritas en el ECA-MC-C10-F01 para línea base. Este se clasifica como un sector crítico.
+C.4.3.4 Para la ejecución de verificaciones en la categoría Centros Educativos del
+PPCN, se considera que aplican las mismas competencias establecidas para los OVV del PPLC, y que dicha categoría se puede clasificar dentro del sector Línea base.
+4.4 PROGRAMA DE VALIDACIÓN/VERIFICACIÓN
+C.4.4.1 El OVV debe siempre hacer uso de un programa para la ejecución de sus procesos de verificación/ validación, ya sea de Inventarios de GEI, Carbono Neutralidad, Declaraciones Ambientales de Producto o Huellas Ambientales.
+C.4.4.2 Actualmente, el ECA mantiene vigentes, dentro de su alcance de acreditación para los OVV, los siguientes programas de verificación:
+. Programa País de Liderazgo Climático, en su versión actualizada (PPLC).
+. Inventarios de GEI bajo el estándar ISO 14064-1 en su versión vigente.
+. Validación de Proyectos GEI bajo el estándar ISO 14064-2 en su versión vigente.
+. Carbono Neutralidad bajo el estándar ISO 14068-1 en su versión vigente.
+. CORSIA.
+. Programa Nacional de Etiquetado Ambiental (PNEA).
+. Programas de Huellas Ambientales.
+Todos los programas se encuentran cubiertos bajo la acreditación del siguiente esquema:
+Norma acreditación | Normas acreditación específicas | Norma de evaluación de la conformidad
+ISO 17029 en su versión vigente | ISO 14065 en su versión vigente ISO 14066 en su versión vigente ISO 14064-3 en su versión vigente | Programa aplicable | Según lo establezca el programa
+| | |
+Notas aclaratorias:
+. Se entiende por "programa aplicable" el conjunto de reglas, procedimientos y gestión para llevar a cabo las actividades de validación/verificación en un sector específico. Los programas de validación/verificación pueden operar a nivel internacional, regional, nacional, local o sectorial. Un programa también puede denominarse "esquema". Un conjunto de normas capaz de cubrir todos los requisitos de este documento puede servir como un programa.
+. Se debe utilizar siempre la versión vigente de las normas indicadas en esta tabla y en el presente documento.
+. Las competencias del equipo validador/verificador para las categorías de aplicación para cada programa aplicable, se encuentran en el ECA-MC-C10-F01.
+C.4.4.3 El alcance de acreditación y aseguramiento de la competencia se otorgarán por programa. En caso de que un OVV ya se encuentre acreditado para otros programas y solicite la ampliación de su alcance para realizar actividades de verificaciones/validaciones en nuevos programas, la evaluación realizada por el ECA se fundamentará únicamente en los criterios de competencia adicionales establecidos por el programa solicitado, considerando la competencia previamente demostrada conforme a las normas o criterios de referencia aplicables a los programas ya acreditados.
+C.4.4.4 El OVV debe tener un procedimiento para el desarrollo de cada programa que considere:
+. Identificación de los usuarios previstos y de sus expectativas y requisitos aplicables al resultado de las actividades de validación o verificación.
+. Revisión y comprensión del alcance aplicable de la validación/verificación, incluidos los criterios aplicables.
+. Revisión y comprensión de los criterios aplicables para la validación o verificación.
+. Consideración de los riesgos estratégicos y empresariales de OV/V.
+. Identificación de los requisitos de competencia para el equipo de validación/verificación, los validadores o verificadores, los revisores independientes y el personal de apoyo, según corresponda a los criterios de cada validación o verificación.
+. Confirmación de que las disposiciones de validación o verificación propuestas pueden cumplir los requisitos del programa aplicable.
+. Herramientas necesarias para reunir pruebas durante la validación/verificación.
+Esta información debe estar debidamente documentada para cada programa que el OVV opere.
+C.4.4.5 La determinación del programa aplicable forma parte de las actividades de
+Pre acuerdo mencionadas en los apartados 9.2 de la norma INTE
+ISO/IEC17029:2019 (ver inciso a) apartado 9.2.2.). El programa aplicable debe ser congruente a los intereses del usuario previsto y objetivo de la declaración del cliente.
+C.4.4.6 En caso de aplicarse programa que no esté cubierto por su alcance de acreditación, el OVV no puede utilizar el símbolo de acreditación; en su lugar, el OVV debe solicitar al ECA la ampliación de su alcance para el programa requerido.
+C.4.4.7 Se consideran también programas no cubiertos por la acreditación, aquellos casos en los que el OVV determine criterios específicos sobre cómo abordar solicitudes ante las cuales no existe un programa determinado, aunque el OVV posea competencia en las normas de referencia; por ejemplo: criterios aplicables, sectores de negocio aplicables, materialidad y nivel de aseguramiento, condiciones para demostrar la neutralidad, entre otros.
+C.4.4.8 En los casos en que el OVV aplique la norma ISO 14064-1, ISO 14064-2, ISO 14068-1 o el conjunto de normas de ACV o Huellas Ambientales, en sus versiones vigentes, en conjunto con criterios propios, debe contar con un procedimiento interno que describa claramente dichos criterios. Este procedimiento será parte integral de su acreditación. Por lo tanto, una vez aprobado por el ECA, será incluido en el alcance de su acreditación.
+4.4.1 PROGRAMA PAÍS PARA EL LIDERAZGO CLIMÁTICO (PPLC)
+El Programa País para el Liderazgo Climático (PPLC) fue creado mediante el Decreto Ejecutivo N.º 42884-MINAE del 04 de marzo de 2021 y es administrado por el Ministerio de Ambiente y Energía (MINAE), a través de la Dirección de Cambio Climático. Este programa integra en un solo marco el antiguo Programa País Carbono Neutralidad (PPCN) y el Programa País de Adaptación Climática (PPAC). Su propósito es reconocer a organizaciones que gestionan de forma verificable sus emisiones de gases de efecto invernadero (GEI) y que implementan acciones de adaptación, en apoyo a la meta país de cero emisiones netas al 2050.
+El programa otorga reconocimientos en dos ejes:
+. Carbono: Inventario, Reducción, Reducción Plus, Neutralidad y Neutralidad Plus.
+. Adaptación: Adaptación y Adaptación Plus.
+Para participar, las organizaciones deben cumplir los requisitos de la Guía del PPLC y someter sus procesos de gestión climática a validación o verificación por un OVV acreditado por el ECA, el cual emite la declaración y el reconocimiento acreditado, bajo supervisión de la Dirección de Cambio Climático.
+C.4.4.1.1 Los criterios aplicables al Programa País para Liderazgo Climático (PPLC), consideran:
+Actividad | Programa | | Norma de evaluación de la conformidad | Sectores
+Verificación | Programa Liderazgo Climático* | país | Guía del PPLC ISO 14064-1 en su versión vigente. INTE B5 en su versión vigente. ISO 14068-1 en su versión vigente. | Determinados en la matriz ECA-MC-C10F01
+*Oficializado por el Decreto Ejecutivo N.º 42884-MINAE del 04 de marzo de 2021
+C.4.4.1.2 El OV/V acreditado para verificar inventarios con el Programa País para el Liderazgo Climático (PPLC), debe cumplir con todos los requisitos aplicables definidos en la Guía del PPLC y realizar los procesos de verificación en conformidad con lo establecido en el documento indicado.
+C.4.4.1.3 Para efectos de la acreditación, todos los sectores definidos en la matriz de competencias ECA-MC-C10-F01 se consideran críticos, lo que implica que deberá testificarse el alcance completo de cada OVV durante el ciclo de acreditación. En los procesos de acreditación inicial o de ampliación de alcance, se deberá testificar el sector o los sectores solicitados, con excepción del sector Línea Base. En caso de que la solicitud corresponda únicamente a Línea Base, esta deberá testificarse de forma obligatoria.
+C.4.4.1.4 Todo OVV acreditado bajo el esquema del Programa País para el Liderazgo Climático posee competencia para la aplicación de la Categoría Centros Educativos indicada en el PPCN 2.0.
+4.4.2 INVENTARIOS DE GEI BAJO EL ESTÁNDAR ISO 14064-1 EN SU VERSIÓN VIGENTE.
+C.4.4.2.1 Este programa puede aplicarse cuando el cliente del OVV esté interesado en obtener declaraciones verificadas de sus inventarios de emisiones de GEI, sin la intención de participar en un programa específico, generalmente usuarios previstos a nivel interno de la organización. Es responsabilidad del OVV asegurar que la aplicación de este programa sea adecuada a los intereses del cliente y del usuario previsto, y que dicha información debe ser correspondiente a la información del acuerdo.
+C.4.4.2.2 Los criterios aplicables a este programa consideran:
+Actividad | Programa | Norma de evaluación de la conformidad | Sectores
+Verificación | Inventarios de GEI bajo ISO 14064-1 | ISO 14064-1 en su versión vigente. | Determinados en la matriz ECA-MC-C10F01
+4.4.3 VALIDACIÓN DE PROYECTOS GEI BAJO EL ESTÁNDAR ISO 14064-2 EN SU VERSIÓN VIGENTE
+C.4.4.3.1 Este programa puede aplicarse cuando el cliente del OVV esté interesado en obtener declaraciones validadas de sus proyectos de remoción de GEI, sin la intención de participar en un programa específico, generalmente usuarios previstos a nivel interno de la organización. Es responsabilidad del OVV asegurar que la aplicación de este programa sea adecuada a los intereses del cliente y del usuario previsto, y que dicha información debe ser correspondiente a la información del acuerdo.
+C.4.4.3.2 Los criterios aplicables a este programa consideran:
+Actividad | Programa | Norma de evaluación de la conformidad | Sectores
+Validación | Validación de GEI bajo ISO 14064-2 | ISO 14064-2 en su versión vigente. | Determinados en la matriz ECA-MC-C10F01
+4.4.4 CARBONO NEUTRALIDAD BAJO EL ESTÁNDAR ISO 14068-1 EN SU VERSIÓN VIGENTE.
+C.4.4.4.1 Este programa puede aplicarse cuando el cliente del OVV esté interesado en obtener declaraciones verificadas de su Carbono Neutralidad, sin la intención de participar en un programa específico, generalmente usuarios previstos a nivel interno de la organización. Es responsabilidad del OVV asegurar que la aplicación de este programa sea adecuada a los intereses del cliente y del usuario previsto, y que dicha información debe ser correspondiente a la información del acuerdo.
+C.4.4.4.2 Los criterios aplicables a este programa consideran:
+Actividad | Programa | | Norma de evaluación de la conformidad | Sectores
+Verificación | Verificación Carbono Neutralidad 14068-1 | ISO | ISO 14068-1 en su versión vigente. ISO 14064-1 en su versión vigente. | Determinados en la matriz ECA-MC-C10F01
+4.4.5 ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA.
+C.4.4.5.1 Los criterios aplicables a este programa consideran:
+Actividad | Programa | Norma de evaluación de la conformidad | Sectores
+Verificación | CORSIA* | Manual Técnico Ambiental (Doc 9501), Volumen IV. | NA
+*El Manual Técnico Ambiental (Doc 9501), Volumen IV. (https://www.icao.int/environmentalprotection/CORSIA/Pages/ETM-V-IV.aspx).
+Estándar Internacional y Prácticas Recomendadas de la OACI, Anexo 16, Volumen IV, Esquema de reducción y compensación de carbono para la aviación internacional (CORSIA), apéndice 6.
+C.4.4.5.2 El dueño del esquema CORSIA es la OACI y es a través de la Dirección de Aviación Civil de Costa Rica que vela por el cumplimiento de los criterios definidos. Parte de los requerimientos es que los OV/V deben acreditarse para el esquema específico CORSIA.
+4.4.6 PROGRAMA NACIONAL DE ETIQUETADO AMBIENTAL (PNEA).
+C.4.4.6.1 El Programa Nacional de Etiquetado Ambiental, liderado por el Ministerio de Ambiente y Energía (MINAE) a través de la Dirección de Gestión de Calidad Ambiental (DIGECA), constituye un esquema voluntario orientado a comunicar, de manera transparente y verificable, el desempeño ambiental de los productos mediante Declaraciones Ambientales de Producto (DAP). Estas declaraciones, basadas en el análisis de ciclo de vida (ACV), permiten a fabricantes y organizaciones proporcionar información objetiva y comparable sobre los impactos ambientales a lo largo del ciclo de vida del producto. El programa se rige por la norma INTE B12:2025, que establece los requisitos generales para la elaboración, verificación y uso de la etiqueta ambiental.
+C.4.4.6.2 Los criterios aplicables a este programa consideran:
+Actividad | Programa | | Norma de evaluación de la conformidad | Categorías de aplicación (para DAP)
+Verificación | PROGRAMA NACIONAL ETIQUETADO AMBIENTAL (PNEA) INTE B12 en su versión Vigente | DE | INTE/ISO 14025, INTE/ISO 14040, INTE/ISO 14044, INTE/ISO 14026, ISO/TS 14071 | Determinados en la matriz ECAMC-C10-F01
+C.4.4.6.3 El alcance de acreditación de los OVV se otorgará por categorías de producto. Las categorías de producto están definidas en el documento ECA-MCC10-F01, el cual agrupa las Reglas de Categoría de Producto (RCP) aplicables dentro de cada categoría. El OVV debe demostrar competencia técnica para cada categoría solicitada, y el alcance mostrará las RCP solicitadas dentro del alcance.
+C.4.4.6.4 En caso de que el OVV desee incorporar una nueva RCP a una categoría ya otorgada, deberá solicitar al ECA su inclusión en el alcance. El ECA determinará los procesos de evaluación abreviados que correspondan, con el fin de asegurar que la asignación a la categoría sea adecuada, considerando que la competencia ya fue otorgada por categoría.
+C.4.4.6.5 Conforme a la norma INTE B12:2025, las DAP verificadas tienen una validez de 5 años, sin actividades de mantenimiento durante ese período. En caso de que el OVV no posea procesos de verificación durante el ciclo de acreditación para ser testificados, el ECA podrá aplicar otras actividades para la evaluación y el mantenimiento de la competencia del OVV en el esquema DAP, tales como:
+1. Revisión de casos en los que se hayan evaluado cambios en una DAP, cuando existan.
+2. Ejecución de exámenes o entrevistas técnicas para confirmar la competencia del personal verificador.
+C.4.4.6.6 Todo OVV acreditado en el esquema PNEA deberá mantener una coordinación con la DIGECA para asegurar la alineación con el PNEA y las reglas del programa, en especial en lo relativo al otorgamiento de la etiqueta ambiental y el registro de las DAP.
+4.4.7 OTROS PROGRAMAS DE HUELLAS AMBIENTALES
+C.4.4.7.1 Este programa puede aplicarse cuando el cliente del OVV esté interesado en obtener declaraciones verificadas de su Huella Ambiental, en conformidad con alguna norma de referencia o programa específico. Es responsabilidad del OVV asegurar que la aplicación de este programa sea adecuada a los intereses del cliente y del usuario previsto, y que dicha información debe ser correspondiente a la información del acuerdo.
+C.4.4.8.2 Los criterios aplicables a este programa consideran:
+Actividad | Programa | Norma de evaluación de la conformidad | Categorías de aplicación
+Verificación | Programa aplicable: Ejemplo: Huella de agua Huella de Carbono | Según lo defina el programa -INTE/ISO 14067 -INTE/ISO 14046 Generales -INTE/ISO 14040 -INTE/ISO 14044 -INTE/ISO 14026 | NA En el caso de Huella de producto debe considerarse la RCP del producto.
+4.5 REQUISITOS RELACIONADOS AL PROCESO
+C.4.5.1 Cuando el OV/V valida o verifica información proveniente de equipos de medición de los datos de actividad o de medición directa de GEI, debe asegurar que el equipo esté calibrado y que la calibración haya sido realizada por un laboratorio de calibración acreditado, cuyo alcance de acreditación incluya la magnitud o material de referencia e instrumento de medida específico. En el caso de que el OV/V utilice un laboratorio externo para la medición de GEI, este laboratorio también deberá estar acreditado.
+C.4.5.2 La designación de los equipos de verificación/validación deberá determinarse como producto de la revisión inicial de la declaración ambiental del cliente, la cual puede requerir distintas competencias sectoriales o por categorías, para las cuales el OVV debe haber demostrado previamente su competencia. Asimismo, el OVV debe contar con la capacidad de justificar la designación de los equipos de validación/verificación.
+C.4.5.3. Se debe evaluar en las declaraciones de validación/verificación el cumplimiento del OV/V respecto al ECA-MC-P18: "Lineamientos Para Uso De Logotipo ECA, Símbolo De Acreditación Y Declaraciones Sobre El Estado De Acreditación".
+4.6 REQUISITOS DE INFORMACIÓN
+C.4.6.1 Para el PPCL, el MINAE es el propietario de las marcas y símbolos del sistema de reconocimiento establecido por este programa. Cada símbolo estará asociado a un texto que identifique el alcance del reconocimiento otorgado. El MINAE autorizará a los OVV acreditados para el uso de los símbolos oficiales del Gobierno de Costa Rica. Los OVV serán responsables de verificar y supervisar el uso adecuado de los símbolos por parte de las organizaciones, de conformidad con el Reglamento vigente para el uso de los Símbolos PPLC (10.3 de la 17029).
+4.7 REQUISITOS DEL SISTEMA DE GESTIÓN
+C.4.7.1 El evaluador debe confirmar que el OV/V realiza auditorías internas y revisiones por la dirección con una frecuencia no mayor a doce (12) meses según lo indicado en el ECA-MP-P02. El OV/V debe mantener registros de la auditoría, las acciones correctivas y la revisión por la dirección, evidenciando el seguimiento y cierre de las acciones determinadas.
+5. SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2024
+El presente documento constituye una traducción al español del IAF MD 6 a partir de este apartado. Se recuerda que la versión oficial del documento es la publicada en idioma inglés por el International Accreditation Forum (IAF).
 INTRODUCCIÓN A LOS DOCUMENTOS OBLIGATORIOS DE LA IAF
-El término "debería" se utiliza en este documento para indicar los medios reconocidos para cumplir los requisitos de la norma. Un organismo de evaluación de la conformidad (OEC) puede cumplirlos de forma equivalente, siempre que pueda demostrárselo a un organismo de acreditación (OA).
-El término "deberá" se utiliza en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.
-Este documento es obligatorio para la aplicación coherente de la norma ISO 14065 para la validación y verificación. Todas las cláusulas de la norma ISO 14065 siguen siendo de aplicación y este documento no sustituye a ninguno de los requisitos de dicha norma.
+El término «debería» se utiliza en este documento para indicar los medios reconocidos para cumplir los requisitos de la norma. Un organismo de evaluación de la conformidad (OEC) puede cumplir estos requisitos de forma equivalente, siempre que pueda demostrarlo ante un organismo de acreditación (OA).
+El término «deberá» se utiliza en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma pertinente, son obligatorias.
+Este documento es obligatorio para la aplicación coherente de la norma ISO 14065 para la validación y verificación. Todas las cláusulas de la norma ISO 14065 siguen siendo aplicables y este documento no sustituye ninguno de los requisitos de dicha norma.
 0 INTRODUCCIÓN
-ISO 14065: 2020 es una norma internacional que establece los requisitos para Organismos que realizan la validación o verificación de la información medioambiental usando ISO 14064-3 u otras normas o especificaciones pertinentes.
-La norma ISO14065 proporciona a los administradores, reguladores y acreditadores de programas de información medio ambiental, una base para evaluar y reconocer la competencia de los organismos de validación o verificación (OV / V). ISO 14065:2020 incorpora por referencia las cláusulas de ISO/IEC 17029. Como tal, ISO 14065:2020 requerirá la aplicación de ISO/IEC 17029:2019. ISO 14065:2020 añade requisitos que son relevantes para la validación y verificación de las declaraciones de información medioambiental. También incluye definiciones utilizadas en los compromisos de aseguramiento de la información medioambiental y, en algunos casos, redefine términos definidos en ISO/IEC 17029:2019.
-Las declaraciones emitidas por OV / V acreditado se utilizan en una serie de sistemas de información medioambiental, como los sistemas de divulgación y comercio de gases de efecto invernadero (GEI). Los usuarios de esta información valoran mucho la exactitud de las toneladas cuantificadas y notificadas de emisiones o absorciones equivalentes de CO2. Un ejemplo concreto es la notificación de las emisiones de GEI por parte de las organizaciones, ya sea con fines reglamentarios o como parte de la comunicación pública de información medioambiental de una organización. Otro ejemplo es el comercio de materias primas, en el que se compran y venden créditos de compensación de gases de efecto invernadero.
-La información medio ambiental incluye ahora otros temas además de las declaraciones de GEI. En la actualidad, la norma ISO 14065 reconoce dentro de su ámbito de aplicación las declaraciones relacionadas con la emisión de bonos verdes o la concesión de préstamos verdes. La norma ISO 14065 también reconoce como materia la información sobre las medidas climáticas adoptadas por las entidades financieras. Entre las normas y programas asociados a otras materias que se espera que hagan referencia a la norma ISO 14065 figuran la huella de agua y el etiquetado ambiental.
-La información medioambiental de carácter histórico puede verificarse. La información relacionada con valores proyectados o previstos se valida. La verificación proporciona una garantía razonable o limitada a los usuarios previstos de que la información comunicada es exacta. La validación proporciona una garantía limitada a los usuarios previstos de que existe una base razonable para la información proyectada o prevista. La confianza de los usuarios previstos en los datos de información medioambiental validados y verificados aumenta cuando los OV/V cumplen los requisitos de la norma ISO 14065.
-La verificación es un proceso en el que un organismo de verificación evalúa la capacidad de una organización, la declaración de GEI del producto o proyecto con respecto a los criterios de verificación definidos (por lo tanto, este proceso se ocupa de datos e información históricos). Para las normas ISO 14064-1, ISO 14067 e ISO 14064-2, la evaluación abordará tanto la conformidad con los criterios (es decir, definidos en la norma) como las actividades que establecerán que la declaración de GEI es exacta y fiable. Las actividades de verificación se basan en objetivos, alcance, nivel de garantía, materialidad y criterios acordados.
-La validación es un proceso en el que un organismo de validación evalúa el plan de proyecto de GEI de un proyecto con respecto a los criterios de validación definidos (este proceso, por lo tanto, se ocupa de la evaluación de los posibles resultados futuros). Desde la publicación de la norma ISO 14064-3:2019, la validación también se reconoce como la técnica adecuada para proporcionar una opinión sobre la información prevista o proyectada. Dicha información puede estar asociada con reducciones esperadas de emisiones de GEI asociadas con inventarios a nivel organizacional, así como a nivel de proyecto.
-En el ámbito del comercio de derechos de emisión, es imperativo que el OV/V sea consciente de las consecuencias de la doble contabilización, la doble reclamación y la doble emisión de registros cuando emita un dictamen de validación o verificación.
-La norma ISO 14064-3:2019 introdujo una técnica complementaria denominada Procedimientos de compromiso común (PCC) (PCC). Los PCC emplean técnicas de verificación, pero su ejecución no da lugar a la emisión de una opinión ni proporciona garantías a los usuarios previstos. Para las condiciones sobre el uso de PCC en la acreditación, véase la sección 9.2.
-Un encargo de validación o verificación es único para las declaraciones específicas de cada cliente emitidas en un momento dado.
-Este Documento Obligatorio proporciona una guía de aplicación adicional para permitir la armonización por parte de los miembros del IAF para la evaluación de OV/V frente a la norma ISO 14065:2020 y normas relacionadas. Se trata de un paso importante hacia el reconocimiento multilateral de la acreditación.
-Este documento se considerará obligatorio para la aplicación coherente de la norma ISO 14065. Los signatarios del MLA del IAF, y los solicitantes del estatus de signatario en dicho Acuerdo, evaluarán mutuamente la aplicación de la norma ISO 14065. Se espera que este documento obligatorio sea adoptado por los organismos de acreditación como parte de sus normas generales de acreditación. Se pretende que este documento sea también de utilidad para los propios OV/V
+La ISO 14065:2020 es una norma internacional que establece los requisitos para los organismos que realizan la validación o verificación de información ambiental, utilizando la ISO 14064-3 u otras normas o especificaciones pertinentes. La norma ISO 14065 proporciona a los administradores de programas de información ambiental, a los entes reguladores y a los organismos de acreditación, una base para evaluar y reconocer la competencia de los organismos de validación o verificación (OVV).
+La ISO 14065:2020 incorpora por referencia las cláusulas de la ISO/IEC 17029. En consecuencia, la aplicación de la ISO 14065:2020 requiere la implementación de la ISO/IEC 17029:2019. Además, la ISO 14065:2020 añade requisitos relevantes para la validación y verificación de declaraciones de información ambiental, incluyendo definiciones utilizadas en los compromisos de aseguramiento de información ambiental y, en algunos casos, redefine términos contenidos en la ISO/IEC 17029:2019.
+Las opiniones emitidas por los OVV acreditados son empleadas en diversos esquemas de reporte ambiental, tales como los sistemas de divulgación e intercambio de gases de efecto invernadero (GEI). Los usuarios previstos de esta información otorgan un alto valor a la exactitud de las toneladas de emisiones o remociones equivalentes de CO? cuantificadas y reportadas. Un ejemplo específico incluye el reporte de emisiones de GEI por parte de las organizaciones, ya sea para fines regulatorios o como parte de su comunicación pública de información ambiental. Otro ejemplo corresponde al comercio de créditos de carbono, donde los créditos de compensación de GEI son comprados y vendidos.
+La información ambiental actualmente abarca otros temas además de las declaraciones de GEI. En la actualidad, la ISO 14065 reconoce dentro de su alcance las declaraciones relacionadas con la emisión de bonos verdes o la originación de préstamos verdes. Asimismo, reconoce como materia de aplicación la información sobre acciones climáticas emprendidas por entidades financieras. Las normas y programas relacionados con otros temas que se prevé harán referencia a la ISO 14065 incluyen la huella hídrica y el etiquetado ambiental.
+La información ambiental de naturaleza histórica puede ser verificada, mientras que la información relativa a valores proyectados o previstos debe ser validada. La verificación proporciona a los usuarios previstos un grado de aseguramiento razonable o limitado de que la información reportada es precisa. La validación, por su parte, ofrece un aseguramiento limitado de que existe una base razonable para la información proyectada o prevista. La confianza de los usuarios previstos en los datos ambientales validados y verificados se incrementa cuando los OVV cumplen con los requisitos de la ISO 14065.
+La verificación es un proceso mediante el cual un organismo verificador evalúa la declaración de GEI de una organización, producto o proyecto frente a los criterios de verificación definidos (por lo tanto, este proceso trata con datos e información históricos). Para la ISO 14064-1, la ISO 14067 y la ISO 14064-2, la evaluación aborda tanto la conformidad con los criterios definidos en la norma como las actividades necesarias para establecer que la declaración de GEI es precisa y confiable. Las actividades de verificación se basan en objetivos, alcance, nivel de aseguramiento, materialidad y criterios acordados.
+La validación, en cambio, es un proceso mediante el cual un organismo validador evalúa el plan de proyecto de GEI frente a los criterios de validación definidos (por lo tanto, este proceso se refiere a la evaluación de posibles resultados futuros). Desde la publicación de la ISO 14064-3:2019, la validación también se reconoce como la técnica apropiada para emitir una opinión sobre información proyectada o prevista. Esta información puede estar relacionada con las reducciones esperadas de emisiones de GEI, tanto a nivel organizacional como a nivel de proyecto.
+En el ámbito del comercio de emisiones, es imperativo que los OVV sean conscientes de las consecuencias del doble cómputo, doble reclamación o doble registro de emisiones, al emitir una opinión de validación o verificación.
+La ISO 14064-3:2019 introdujo una técnica complementaria denominada procedimientos acordados (AUP, por sus siglas en inglés). Los AUP emplean técnicas de verificación, pero su ejecución no da lugar a la emisión de una opinión ni proporciona aseguramiento a los usuarios previstos. Las condiciones para el uso de los AUP en el contexto de la acreditación se establecen en la sección 9.2.
+Cada compromiso de validación o verificación es único para las declaraciones específicas del cliente emitidas en un momento determinado.
+Este Documento Mandatorio proporciona orientación adicional para la aplicación de la ISO 14065:2020, con el fin de permitir la armonización entre los miembros del IAF en la evaluación de los organismos de validación/verificación conforme a dicha norma y otras relacionadas. Este constituye un paso importante hacia el reconocimiento multilateral de la acreditación.
+Este documento se considera obligatorio para la aplicación coherente de la ISO 14065. Los signatarios del MLA del IAF y los solicitantes de dicho estatus evaluarán mutuamente la implementación de la ISO 14065. Se espera que este Documento Mandatorio sea adoptado por los organismos de acreditación como parte de sus reglas generales de acreditación. Asimismo, se pretende que este documento sea útil tanto para los OVV como para las partes cuyas decisiones se basen en las opiniones emitidas por ellos en materia de validación o verificación.
+Este documento sigue la estructura de la ISO 14065, y los encabezados se presentan en negrita. Los criterios específicos del IAF se identifican con la letra "MD", seguida de un número de referencia que incorpora la cláusula correspondiente de la ISO 14065. En todos los casos, una referencia a "cláusula XXX" en este documento se refiere a una cláusula de la ISO 14065, salvo que se indique lo contrario.
+La ISO 14065:2020 admite el uso de las normas ISAE 3000 y ISRS 4400 como criterios que un OVV puede utilizar al realizar una validación o verificación cuando el objeto sea instrumentos financieros verdes (deuda verde) o acciones climáticas emprendidas por entidades financieras. La ISAE 3000 fue el documento base para la ISO 14064-3 y es comúnmente utilizada por profesionales de la contabilidad financiera. La ISAE está basada en principios, y las opiniones se emiten conforme al juicio profesional y la evaluación del riesgo realizada por los profesionales que la aplican.
 1. ALCANCE
-Este documento es obligatorio para la aplicación coherente de la norma ISO 14065:2020 para la acreditación de organismos de validación o verificación (OV/VV) para la validación o verificación de información ambiental.
-Todas las cláusulas de la norma ISO 14065:2020 siguen siendo de aplicación y este documento no sustituye a ninguno de los requisitos de dichas normas.
+Este documento es obligatorio para la aplicación coherente de la norma ISO 14065:2020 en los procesos de acreditación de organismos de validación o verificación (V/VB) que realizan actividades de validación o verificación de información ambiental.
+Todas las cláusulas de la ISO 14065:2020 continúan siendo aplicables, y este documento no reemplaza ni modifica ninguno de los requisitos establecidos en dicha norma.
 2. REFERENCIAS NORMATIVAS
-A efectos del presente documento, se aplican las referencias normativas que figuran en la norma ISO 14065 y las siguientes. Para las referencias fechadas, sólo se aplica la edición citada. Para las referencias sin fecha, se aplica la última edición del documento referenciado (incluidas las modificaciones).
-ISO 14065 Principios generales y requisitos para los organismos de validación y verificación de la información medioambiental
-ISO/IEC 17029 Evaluación de la conformidad - Principios generales y requisitos para los organismos de validación y verificación
-ISO 14064-3 Gases de efecto invernadero - Parte 3, Especificación con orientación para la verificación y validación de las declaraciones de gases de efecto invernadero.
-ISO 14066 Información medioambiental - Requisitos de competencia para los equipos de validación y verificación de la información medioambiental
-Nota - La bibliografía recoge las referencias a los documentos mencionados en este documento obligatorio que no son referencias normativas.
+Para los efectos del presente documento, se aplican las referencias normativas indicadas en la ISO 14065, así como las que se enumeran a continuación. Para las referencias con fecha, solo es aplicable la edición citada. Para las referencias sin fecha, se aplicará la última edición del documento referido (incluyendo cualquier enmienda).
+. ISO 14065 - Principios generales y requisitos para los organismos que validan y verifican información ambiental.
+. ISO/IEC 17029 - Evaluación de la conformidad - Principios generales y requisitos para los organismos de validación y verificación.
+. ISO 14064-3 - Gases de efecto invernadero - Parte 3: Especificación con orientación para la verificación y validación de declaraciones de gases de efecto invernadero.
+. ISO 14066 - Información ambiental - Requisitos de competencia para los equipos que validan y verifican información ambiental.
 3. TÉRMINOS Y DEFINICIONES
-A efectos del presente documento, se aplicarán los términos y definiciones que figuran en las normas ISO 14065, ISO 14064-3 y las siguientes.
-3.1. Evaluación de la materialidad: Revisión de una declaración de información medioambiental con el fin de identificar información potencialmente material (ISO 14064-3, 3.6.8).
-Nota: En las declaraciones sobre gases de efecto invernadero, la información material cuantitativa puede estar asociada a fuentes, sumideros o depósitos.
+Para los fines del presente documento, se aplican los términos y definiciones establecidos en las normas ISO 14065, ISO 14064-3, así como los que se indican a continuación:
+3.1. Evaluación de materialidad
+Revisión de una declaración de información ambiental con el propósito de identificar información potencialmente material (ISO 14064-3, 3.6.8).
+Nota: En las declaraciones de gases de efecto invernadero, la información cuantitativa material puede estar asociada con fuentes, sumideros o depósitos.
 4. PRINCIPIOS
-4.1.
-General
-No hay principios adicionales para ISO 14065.
+4.1. General
+4.1. Generalidades
+No existen principios adicionales para la ISO 14065.
 4.2. Principios del proceso de validación/verificación
-No hay principios adicionales para ISO 14065.
-4.3. Principios para los organismos de validación/verificación
-No hay principios adicionales para ISO 14065.
+No existen principios adicionales para la ISO 14065.
+4.3. Principios aplicables a los organismos de validación/verificación
+No existen principios adicionales para la ISO 14065.
 4.4. Conservadurismo
-No hay principios adicionales para la norma ISO 14065. El principio de conservadurismo se aplica comúnmente a la selección de métodos de cuantificación o a la selección de una línea de base para proyectos cuando el informador tiene la latitud para elegir entre opciones.
+No existen principios adicionales para la ISO 14065. El principio de conservadurismo se aplica comúnmente a la selección de métodos de cuantificación o a la definición de líneas base de proyectos, cuando el declarante tiene la posibilidad de elegir entre distintas opciones.
 4.5. Escepticismo profesional
-No hay principios adicionales para ISO 14065.
+No existen principios adicionales para la ISO 14065.
 5. REQUISITOS GENERALES
 5.1. Entidad legal
 No hay requisitos adicionales para la norma ISO 14065.
@@ -163,51 +210,51 @@ No hay requisitos adicionales para la norma ISO 14065.
 6. REQUISITOS ESTRUCTURALES
 6.1. Estructura organizativa y alta dirección
 No hay requisitos adicionales para la norma ISO 14065.
-6.2 Control Operacional
+6.2. Control Operacional
 No hay requisitos adicionales para la norma ISO 14065.
 7. REQUISITOS DE RECURSOS
 7.1. General
 No hay requisitos adicionales para la norma ISO 14065.
 7.2. Personal
 No hay requisitos adicionales para la norma ISO 14065.
-7.3. Proceso de gestión de la competencia del personal
+7.2 Proceso de gestión de la competencia del personal
 DM 7.3.1.
 El OV/V deberá demostrar cómo se ha evaluado la competencia del personal. Las personas que lleven a cabo la evaluación del personal deberán ser competentes.
 Nota: El evaluador puede ser externo o interno al OV/V.
-Subcontratación
+7.4 Subcontratación
 No hay requisitos adicionales para la norma ISO 14065.
 8. PROGRAMA DE VALIDACIÓN O VERIFICACIÓN
 DM 8.1.
-El OV/V establecerá un proceso de desarrollo para cada nuevo programa de validación o verificación de la información medioambiental en el que desee operar. Este proceso de desarrollo proporcionará resultados relacionados con lo siguiente:
-. Identificación de los usuarios previstos y de sus expectativas y requisitos aplicables al resultado de las actividades de validación o verificación.
+El OV/V deberá establecer un proceso de desarrollo para cada nuevo programa de validación o verificación de la información ambiental en el que desee operar. Este proceso de desarrollo proporcionará resultados relacionados con lo siguiente:
+. Identificación de los usuarios previstos y sus expectativas y requisitos aplicables al resultado de las actividades de validación o verificación.
 . Revisión y comprensión del alcance aplicable de la validación/verificación, incluidos los criterios aplicables.
 . Revisión y comprensión de los criterios aplicables para la validación o verificación.
 . Consideración de los riesgos estratégicos y empresariales de OV/V.
 . Identificación de los requisitos de competencia para el equipo de validación/verificación, los validadores o verificadores, los revisores independientes y el personal de apoyo, según corresponda a los criterios de cada validación o verificación.
-. Confirmación de que las disposiciones de validación o verificación propuestas pueden cumplir los requisitos del programa aplicable.
-. Herramientas necesarias para reunir pruebas durante la validación/verificación.
-Nota: Los elementos de los programas de validación y verificación figuran en la norma ISO/IEC 17029, anexo A.
+. Confirmación de que las disposiciones de validación o verificación propuestas son capaces de cumplir los requisitos del programa aplicable.
+. Herramientas necesarias para recopilar pruebas durante la validación/verificación.
+Nota: Los elementos de los programas de validación y verificación se pueden encontrar en el Anexo A de la norma ISO/IEC 17029.
 9. REQUISITOS DEL PROCESO
-9.1 General
+9.1. General
 No hay requisitos adicionales para la norma ISO 14065.
-9.2 Pre-compromiso
+9.2. Pre-compromiso
 MD 9.2.1.
-El OV/V confirmará el tipo de encargo con el cliente o la parte responsable. Los tipos pueden ser de verificación, validación, Procedimientos de compromiso común (PCC) o compromiso mixto.
+El OV/V confirmará el tipo de compromiso con el cliente o la parte responsable. Los tipos pueden ser de verificación, validación, procedimientos de compromiso común (PCC) o compromiso mixto.
 MD 9.2.2. (ISO/IEC 17029)
-Las PCC se aplican cuando los usuarios previstos necesitan los resultados de las actividades de recopilación de pruebas de verificación, pero no necesitan la opinión del verificador. El OV/V sólo utilizará las PCC en el marco de la validación y verificación acreditadas en las siguientes condiciones:
-· Se aplican los requisitos de la norma ISO/IEC 17029.
-· Los Procedimientos de compromiso común (PCC) se han determinado de antemano y se acuerdan con el cliente o la parte responsable.
-· Se llevará a cabo una revisión independiente y la aprobación de la emisión del informe de conclusiones objetivas de acuerdo con los requisitos de la norma ISO/IEC 17029 (ref. cl. 9.6 y 9.7).
-· El informe de conclusiones objetivas de la V/VB describirá claramente las restricciones de uso y distribución del informe de conclusiones objetivas. El informe de constatación de los hechos sólo puede ser distribuido a la organización y a los usuarios previstos.
-· El informe de los resultados fácticos describe claramente los procedimientos realizados y los resultados fácticos resultantes de dichos procedimientos.
+Las PCC se aplican cuando los usuarios previstos requieren los resultados de las actividades de recopilación de pruebas de verificación, pero no necesitan la opinión del verificador. El OV/V sólo utilizará las PCC en el marco de la validación y verificación acreditadas en las siguientes condiciones:
+. Se aplican los requisitos de la norma ISO/IEC 17029.
+. Los Procedimientos de Compromiso Común (PCC) se han determinado de antemano y se acuerdan con el cliente o la parte responsable.
+. Se llevará a cabo una revisión y aprobación independiente de la emisión del informe de conclusiones fácticas de conformidad con los requisitos de la ISO/IEC 17029 (véanse las cláusulas 9.6 y 9.7).
+. El informe de conclusiones fácticas del OVV describirá claramente las restricciones sobre el uso y distribución del informe de conclusiones objetivas. Este informe puede estar destinado únicamente a la organización y a los usuarios previstos.
+. El informe de las conclusiones fácticas describe claramente los procedimientos realizados y las conclusiones fácticas resultantes de dichos procedimientos.
 Además, un programa puede especificar el uso de PCC en lugar de un compromiso de aseguramiento.
-Nota: La norma ISO 14064-3 exige "suficiencia de pruebas" para respaldar una declaración de GEI y establece que, en ausencia de información suficiente, no se procederá a la verificación/validación (5.4.2). La información suficiente para respaldar una declaración de información medioambiental puede no existir cuando las declaraciones incluyen información facilitada por terceros, como los proveedores. En tales casos, un OV/V y su cliente pueden acordar un tipo de compromiso mixto (5.1.2) que puede incluir el uso de PCC para declaraciones sobre las que el verificador carezca de capacidad para determinar la existencia de rastros de datos (6.1.3.2) o para comprender los sistemas de gestión de datos y los controles que generaron la información (6.1.3.3).
-La asignación de tiempo para el compromiso se justificará basándose en la revisión de la información proporcionada y registrada por el OV/V.
+Nota: La norma ISO 14064-3 exige «suficiencia de pruebas» para respaldar una declaración de GEI y establece que, en ausencia de información suficiente, no se procederá a la verificación/validación (5.4.2). Es posible que no exista información suficiente para respaldar una declaración de información medioambiental cuando las declaraciones incluyen información proporcionada por terceros, como proveedores. En tales casos, un OVV y su cliente pueden acordar un tipo de compromiso mixto (5.1.2) que puede incluir el uso de AUP para declaraciones sobre las que el verificador carece de la capacidad de determinar la existencia de rastros de datos (6.1.3.2) o de comprender los sistemas y controles de gestión de datos que generaron la información (6.1.3.3).
+La asignación de tiempo para el compromiso se justificará sobre la base de la revisión de la información proporcionada y será registrada por el OVV.
 Nota: El uso de la PCC es opcional para un OA.
 9.3. Compromiso
 MD 9.3.1. (ISO/IEC 17029)
-El OV/V se asegurará de que su acuerdo exija al cliente cooperar en caso de que los hechos o la información descubiertos afecten materialmente al dictamen de validación o verificación.
-El acuerdo jurídicamente exigible incluirá una política que rija la comercialización y otras referencias al OV/V que ésta autorice a sus clientes a utilizar con respecto a cualquier declaración de información medioambiental. Cuando exista una licencia para utilizar una marca de validación o verificación, o un texto específico, no habrá ambigüedad en el uso propuesto de la declaración de información medioambiental que haya sido validada o verificada. La política garantizará la conformidad con el anexo B, Referencia a declaraciones validadas/verificadas y uso de marcas.
+El OV/V se asegurará de que su acuerdo exija al cliente cooperar en caso de que los hechos o la información descubiertos afecten de manera significativa a la opinión de validación o verificación.
+El acuerdo legalmente ejecutable incluirá una política que regule el marketing y otras referencias al OVV que el OVV autorice a sus clientes a utilizar con respecto a cualquier declaración de información ambiental. Cuando exista una licencia para utilizar una marca de validación o verificación, o un texto específico, no deberá haber ambigüedad en el uso propuesto de la declaración de información ambiental que haya sido validada o verificada. La política garantizará el cumplimiento de la norma ISO 14065, anexo B, Referencia a declaraciones validadas/verificadas y uso de marcas.
 9.4. Planificación
 MD 9.4.2.1.
 El OV/V documentará los resultados del análisis estratégico (ISO 14064-3 6.1.1 Análisis estratégico).
@@ -221,7 +268,7 @@ La validación o verificación se realizará con una actitud de escepticismo pro
 DM 9.6.1. La documentación resultante de la actividad de validación o verificación deberá contener una trazabilidad suficiente para que pueda demostrarse que el riesgo de validación o verificación se ha reducido a un nivel aceptable.
 9.7. Decisión y emisión de la afirmación de validación/verificación
 MD 9.7.1.3.1.
-Un OV/V se asegurará de que la redacción de su informe de constataciones de hechos no declare ni implique la prestación de garantías a los usuarios previstos. Esto también se aplicará cuando un OV/V haya comprobado elementos de un estado utilizando Procedimientos de compromiso común (PCC) en un encargo mixto.
+Un OV/V se asegurará de que la redacción de su informe de conclusiones fácticas no afirme ni implique la prestación de garantías a los usuarios previstos. Esto también se aplicará cuando un OVV haya examinado elementos de un estado financiero utilizando procedimientos acordados en un encargo mixto.
 9.8 Hechos descubiertos después de la emisión de la afirmación de Validación / verificación
 No hay requisitos adicionales para la norma ISO 14065.
 9.9 Tratamiento de las apelaciones
@@ -242,25 +289,19 @@ No hay requisitos adicionales para la norma ISO 14065.
 11. REQUISITOS DEL SISTEMA DE GESTIÓN
 11.1. General
 No hay requisitos adicionales para la norma ISO 14065.
-11.2. Revisión de la gestión
+11.2. Revisión por la dirección
 No hay requisitos adicionales para la norma ISO 14065.
 11.3. Auditorías internas
 No hay requisitos adicionales para la norma ISO 14065.
 11.4. Acciones correctivas
 No hay requisitos adicionales para la norma ISO 14065.
-11.5 Acciones para abordar los riesgos y oportunidades
+11.5. Acciones para abordar los riesgos y oportunidades
 No hay requisitos adicionales para la norma ISO 14065.
 11.6. Información documentada
 No hay requisitos adicionales para la norma ISO 14065.
-BIBLIOGRAFÍA
-ISO 14064-1:2018 Gases de efecto invernadero - Parte 1: Especificación con orientación a nivel de organización para la cuantificación y notificación de las emisiones y absorciones de gases de efecto invernadero.
-ISO 14064-2:2019 Gases de efecto invernadero - Parte 2: Especificación con orientación a nivel de proyecto para la cuantificación, el seguimiento y la notificación de las reducciones de las emisiones de gases de efecto invernadero o las mejoras en la eliminación.
-ISO 14064-3:2019 Gases de efecto invernadero - Parte 3: Especificación con orientación para la verificación y validación de las declaraciones de gases de efecto invernadero.
-ISO 14065:2020 Principios generales y requisitos para los organismos que validan y verifican la información medioambiental
-ISO 14067 Gases de efecto invernadero - Huella de carbono de los productos - Requisitos y directrices para la cuantificación
-8. TRANSITORIO
-Lo aplicable al MD 6, empieza a aplicar a partir del 30 de junio de 2024.
-9. [imagen] [imagen] CONTROL DE CAMBIOS
-Motivo: Actualización de documento
-Referirse a la solicitud de gestión de | documento consecutivo: 2024-053
-Observaciones: La primera parte no sufrió cambios, con relación a la versión anterior La segunda parte, es la copia del MD 6, este documento elimina gran cantidad de requisitos y se concentra en aclarar requisitos en la parte 7, 8 y 9-Por los cambios realizados, se debe dar lectura completa al documento. Al ser un cambio en todo el documento, no se mantienen cambios subrayados.
+6. TRANSITORIO
+No aplica.
+7. IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Actualización de documento
+[imagen] Referirse a la solicitud de gestión de documento 2025-061 consecutivo:
+Observaciones: Se actualiza el documento para incorporar los cambios derivados de la actualización del Programa País para el Liderazgo Climático (PPLC), la inclusión del Programa Nacional de Etiquetado Ambiental (PNEA), y la revisión de los esquemas de información ambiental en general. Se ajusta la estructura del documento y se actualizan las referencias normativas aplicables a los distintos programas de verificación y validación de información ambiental.
