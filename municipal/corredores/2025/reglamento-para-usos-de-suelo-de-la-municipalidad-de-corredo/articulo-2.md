@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones del presente Reglamento son de acatamiento obligatorio para toda persona física o jurídica, pública o privada, que requiera ejercer actividades, desarrollar obras, proyectos, o establecer instalaciones que impliquen el uso o aprovechamiento del suelo en el cantón de Corredores.

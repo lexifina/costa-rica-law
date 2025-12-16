@@ -1,0 +1,1 @@
+Artículo 17.-Procedimiento administrativo sancionador. La Municipalidad instruirá un procedimiento administrative que garantice el derecho de defensa y el debido proceso. La resolución deberá ser motivada, proporcional y fundada en prueba objetiva.

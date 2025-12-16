@@ -1,0 +1,2 @@
+Artículo 6º-Autorización de usos de suelo. Toda persona interesada en desarrollar una actividad sobre un inmueble deberá gestionar la correspondiente autorización de uso de suelo ante el Departamento de Desarrollo Urbano. La solicitud debe cumplir con los requisitos establecidos por este reglamento.
+La resolución de la solicitud deberá emitirse mediante acto administrativo motivado en el plazo legal correspondiente. La negativa debe fundarse en criterios técnicos, jurídicos y urbanísticos.

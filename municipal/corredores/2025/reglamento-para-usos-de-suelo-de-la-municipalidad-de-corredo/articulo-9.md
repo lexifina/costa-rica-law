@@ -1,0 +1,5 @@
+Artículo 9º-Declaración Jurada municipal
+DECLARACIÓN JURADA DE INFORMACIÓN PARA TRÁMITES MUNICIPALES EN EL CANTÓN DE CORREDORES
+Yo,___________, portador(a) de la cédula de identidad número___________, en calidad de solicitante del trámite_______, declaro bajo juramento que la información proporcionada en esta solicitud es veraz y exacta, por lo que asumo las responsabilidades y consecuencias administrativas y penales que correspondan y que puedan inducir a la Municipalidad de Corredores a error con la información falsa. En tal caso, exonero a la Municipalidad de toda responsabilidad y comprendo que este trámite perderá su validez, pudiendo ser anulado por la Municipalidad y el departamento correspondiente, sin que ello genere ninguna obligación legal o económica para la institución, sin perjuicio de denuncia penal por perjurio y falso testimonio (artículos 318 del Código Penal).
+Esta declaración se firma el___de____del año _______, en relación con la propiedad identificada con el número de plano _______ y la finca número ______.
+Firma del solicitante: ___________________
