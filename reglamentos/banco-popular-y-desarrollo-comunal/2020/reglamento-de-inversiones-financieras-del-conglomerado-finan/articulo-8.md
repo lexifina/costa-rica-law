@@ -1,4 +1,5 @@
-Artículo 8°-De las funciones y responsabilidades de las Comisiones. Cada una de las Comisiones de las Unidades Estratégicas del Conglomerado deberán:
+Artículo 8º—De las funciones y responsabilidades de las Comisiones.
+Cada una de las Comisiones de las Unidades Estratégicas del Conglomerado deberán:
 a. Definir sus funciones y responsabilidades en su Manual de Inversiones, respetando la normativa que les compete, en concordancia con las disposiciones normativas de Inversión aprobadas por la Junta Directiva Nacional y por cada órgano de dirección de las Subsidiarias, y las pautas de inversión incorporadas en este Reglamento.
 b. Deberán supervisar que el Gerente General de cada Unidad Estratégica cumpla con los límites establecidos en las políticas de inversión definidas por la respectiva Junta Directiva, así como por el cumplimiento de las disposiciones indicadas en el artículo 2° de este Reglamento.
 c. Emitir criterios sobre los proyectos de los reglamentos indicados en el artículo 2° de este Reglamento, que vayan a ser emitidos por la Junta Directiva Nacional, y sobre las Políticas de Inversión que al respecto dicten las Juntas Directivas de las Unidades Estratégicas del Conglomerado.
@@ -19,5 +20,12 @@ m. Tomar decisiones que estén en concordancia con los objetivos de las inversio
 n. Coordinar reuniones con personeros de los diferentes bancos y entidades financieras, con el fin de evaluar el desempeño de su administración, así como contar con herramientas e insumos necesarios para la toma de decisiones.
 o. Revisar el presente reglamento al menos una vez al año, cada vez que se modifiquen las disposiciones normativas de inversión aprobadas por la Junta Directiva Nacional o cuando haya cambios en la normativa externa, así como remitir las propuestas que correspondan para que sean aprobadas por el órgano competente.
 p. Cualquier otra función que se derive de la aplicación de este Reglamento.
-q. Tomar decisiones de inversión en valores de emisores autorizados que estén en concordancia con los objetivos de la Gestión Integral de Riesgos Sociales, Ambientales y de Gobernanza.
-(Así reformado en sesión N° 6158 del 6 de noviembre de 2024)
+q. Gestión Integral de Riesgos Sociales, Ambientales y de Gobernanza:
+- Tomar decisiones de inversión en valores de emisores autorizados que estén en concordancia con los objetivos de la Gestión Integral de Riesgos Sociales, Ambientales y de Gobernanza.
+- Asegurar que los riesgos ambientales y sociales que subyacen en el portafolio de inversiones de la entidad sean tratados con relevancia estratégica y rigor.
+- Aprobar políticas de gestión de inversiones sostenibles o responsables, procurando que parte de los recursos se puedan canalizar a actividades económicas o productivas que apoyen el desarrollo sostenible, mejoramiento del ambiente, así como establecer límites o prohibiciones para las inversiones que fomentan la fabricación de armamento o cualquier producto que pueda afectar negativamente a las personas y su entorno.
+- Asegurar que se incorpore plenamente en el proceso de administración del riesgo de crédito, la identificación, evaluación, monitoreo, control y mitigación de los riesgos ambientales y sociales que subyacen de los riesgos ASG del portafolio de inversiones.
+- Establecer mecanismos de divulgación a los clientes y las partes interesadas sobre la visión y el abordaje de la entidad sobre los riesgos ambientales y sociales que subyacen en los riesgos ASG del portafolio de inversiones.
+- Velar por la asignación de los recursos necesarios y adecuados para la correcta implementación del marco de gestión para las inversiones ASG.
+- Mantenerse informado, con la periodicidad que el mismo Órgano defina, sobre la gestión y la exposición de riesgo de la entidad por riesgos ambientales, sociales y los riesgos ASG del portafolio de inversiones.
+- El Órgano de Dirección debe dejar constancia en las Actas sobre la discusión de estos informes y las decisiones tomadas

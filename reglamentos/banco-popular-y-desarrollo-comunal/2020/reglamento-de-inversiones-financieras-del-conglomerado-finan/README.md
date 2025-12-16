@@ -18,3 +18,4 @@ Reglamento de inversiones financieras del Conglomerado Financiero Banco Popular 
 | 3 | 2022-11-22 | Reglamento 5959 (2022-11-22) |
 | 4 | 2023-12-13 | Reglamento 6069 (2023-12-13) |
 | 5 | 2024-11-06 | Reglamento 6158 (2024-11-06) |
+| 6 | 2025-12-16 | Reglamento 6269 (2025-12-16) |

@@ -1,7 +1,9 @@
-Artículo 10.-Responsabilidades de la Dirección Corporativa de Riesgo. La Dirección Corporativa de Riesgo tendrá, dentro de sus responsabilidades:
+Artículo 10°—Responsabilidades de la Dirección Corporativa de Riesgo.
+La Dirección Corporativa de Riesgo tendrá, dentro de sus responsabilidades:
 a. Monitorear los límites y rentabilidades, y mantener información histórica de los valores que conforman el portafolio de inversión.
 b. Establecer metodologías y procedimientos de identificación, evaluación, monitoreo, control, mitigación y comunicación de la información de riesgo del portafolio de inversión.
 c. Velar por el cumplimiento de los límites establecidos en las disposiciones normativas de inversión aprobada por la Junta Directiva.
 d. Monitorear mensualmente el cumplimiento de los límites de inversiones, para la oportuna detección de excesos.
 e. Elevar a la Comisión de Inversiones los análisis e informes solicitados.
 f. Remitir al Comité de Riesgo y a la Comisión de Inversiones, cada mes, el análisis de los riesgos asociados al portafolio de inversiones.
+g. Brindar asesoramiento técnico en temas ambientales, sociales y de gobernanza a las unidades de negocio vinculadas al proceso de inversiones temáticas.

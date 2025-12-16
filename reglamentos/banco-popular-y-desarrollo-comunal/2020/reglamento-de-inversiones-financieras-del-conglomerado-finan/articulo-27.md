@@ -1,1 +1,2 @@
-Artículo 27.-Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 27°—De la revisión del Reglamento.
+La Comisión de Inversiones deberá revisar el presente reglamento anualmente, y deberá someter sus propuestas de modificación a la Junta Directiva Nacional.

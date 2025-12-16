@@ -1,4 +1,11 @@
-Artículo 17°-Mecanismos de control de riesgos. El control de riesgo en mercados internacionales estará definido por los instrumentos de inversión definidos en el presente Reglamento.
-Para el caso de los ETF, la Dirección Corporativa de Riesgo definirá los indicadores mínimos requeridos, entre los cuales se deben considerar los siguientes:
--Valor en riesgo internacional ? Valor en riesgo condicional internacional (CVAR) ? Volatilidad de largo plazo ? Volatilidad de corto plazo ? Tracking Error
-Estos indicadores se presentarán como parte del seguimiento periódico a las Unidades que lo requieran. Se incluirán en el informe de resultados de ganancias y pérdidas obtenidas por la gestión activa de estos instrumentos. La responsabilidad de dicho control recaerá en la División de Tesorería Corporativa.
+Artículo 17°—Intermediación Bursátil en el Mercado Internacional.
+Para realizar la intermediación bursátil, se debe cumplir con los siguientes aspectos:
+1. La Comisión de Inversiones definirá previamente los puestos de bolsa autorizados, de acuerdo con los criterios vinculantes establecidos por la Dirección Corporativa de Riesgo.
+Estos criterios deben incluir aspectos cualitativos y cuantitativos de cada uno de los participantes.
+2. En el caso de que la División de Tesorería Corporativa considere necesario cambiar o incluir un puesto de bolsa, considerará el criterio de la Comisión de Inversiones.
+El control de los criterios de la asignación de puestos de bolsa debe ser llevado por la División de Tesorería Corporativa del Banco Popular y de Desarrollo Comunal, y deben ser evaluados, al menos, los siguientes criterios.
+• Costo de comisiones.
+• Acompañamiento y asesoría.
+• Aspectos relacionados con procedimientos y cumplimiento de normas por parte del puesto de bolsa.
+• Evaluación de los sistemas de información que se tenga con el cliente, donde se valide la transparencia de la información.
+• Experiencia del puesto de bolsa en mercados internacionales y de sus profesionales.
