@@ -1,1 +1,0 @@
-Artículo 4.- En todas aquellas disposiciones reglamentarias donde se indique Unidad de Cooperación Internacional debe leerse Unidad de Planificación; asimismo, en los casos donde se indique Dirección de Competencia debe leerse Departamento Técnico de Apoyo de la Comisión para Promover la Competencia.
