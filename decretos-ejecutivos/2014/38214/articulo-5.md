@@ -1,2 +1,0 @@
-Artículo 5º—Modifíquese el párrafo primero del artículo 26 del Decreto Ejecutivo Nº 37457-MEIC del 2 de noviembre del 2012, para que en lo sucesivo se lea de la siguiente manera:
-“Artículo 26.—Departamento de Procedimientos y Concentraciones. Será el encargado de instruir y dar seguimiento a los procesos formales que se presenten ante la Comisión para Promover la Competencia, para ello le corresponde ejecutar las siguientes funciones:”

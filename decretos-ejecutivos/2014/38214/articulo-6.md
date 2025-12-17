@@ -1,2 +1,0 @@
-Artículo 6º—Modifíquese el inciso t) del artículo 39 del Decreto Ejecutivo Nº 37457-MEIC del 2 de noviembre del 2012, para que en lo sucesivo se lea de la siguiente manera:
-“t. Requerir a los funcionarios (as) que viajan al exterior en representación de la Institución, un informe sobre el mismo, siguiendo los lineamientos que gire esta Dirección, dentro de los cinco días hábiles a partir de su arribo al país. El material que le fue entregado debe estar a disposición de los funcionarios(as) de la oficina a la que pertenece.”
