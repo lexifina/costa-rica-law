@@ -49,3 +49,5 @@ Página: 991
 - Puesto n.° 381290 Profesional Jefe de Servicio Civil 2.")
 (Modificado por el artículo 1° del decreto ejecutivo N° 45326 del 20 de noviembre del 2025)
 (Modificado por el artículo 3° del decreto ejecutivo N° 45326 del 20 de noviembre del 2025)
+(Reformado por el artículo 2° de la ley N° 10839 del 17 de diciembre de 2025)
+(Reformado por el artículo 3° de la ley N° 10839 del 17 de diciembre de 2025)
