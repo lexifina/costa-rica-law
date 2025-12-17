@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+5 de diciembre de 2025
+DG-AV-7-2025.-La Dirección General de Servicio Civil, comunica la emisión de las siguientes resoluciones:
+I Resolución DGSC-DG-368-2025: Autorizar el reconocimiento del régimen de Disponibilidad, al cargo de Director(a) del Centro de Atención Institucional Marcus Garvey, del Ministerio de Justicia y Paz ubicado en Limón.
+II Resolución DGSC-DG-393-2025: Delegar temporalmente en el señor Julio César Barrantes Zamora, cédula de identidad N° 1-0863-0334, quien ocupa el cargo de Director de Gestión del Talento Humano del Ministerio de Educación Pública, como responsable designado en esa institución, y en tanto ocupe dicho cargo conforme las razones que den sustento a su nombramiento, para que suscriba los distintos trámites y actos que esta Dirección General debe aprobar en materia de Administración de Recursos Humanos.
+III Resolución DGSC-DG-394-2025: Delegar temporalmente a la señora Nancy Andrea Morales Corrales, cédula de identidad N° 1-1071-0610, quien ocupa el cargo de subdirectora de Gestión del Talento Humano del Ministerio de Educación Pública, y en tanto ocupe dicho cargo conforme las razones que den sustento a su nombramiento, para que, ante la ausencia del señor Julio César Barrantes Zamora, en su condición de titular delegado temporalmente, ejecute, firme y apruebe todos los actos y movimientos de personal, para los cuales ese funcionario se encuentra delegado.
+Puede consultarse dicho anexo en el sitio web www. dgsc.go.cr en el apartado Normativa vigente, o bien puede solicitarse al correo infopublica@dgsc.go.cr
+Publíquese.
