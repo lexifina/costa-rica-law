@@ -1,0 +1,1 @@
+Artículo 11.-Entrada en vigencia. El presente reglamento entrará en vigencia a partir de su aprobación por parte del Honorable Concejo Municipal de Tarrazú y su publicación en el Diario Oficial, así como en el sitio web o medio oficial de comunicación del municipio.

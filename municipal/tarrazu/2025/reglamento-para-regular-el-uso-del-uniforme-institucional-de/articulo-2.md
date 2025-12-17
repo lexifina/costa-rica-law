@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para los miembros del Concejo Municipal, tanto regidores propietarios como suplentes, síndicos propietarios y suplentes y personal administrativo asignado que dependan del Concejo, en el marco de sus funciones institucionales.

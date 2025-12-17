@@ -1,0 +1,1 @@
+Artículo 6°-Responsabilidad personal. Cada miembro del Concejo Municipal será responsable personalmente del adecuado uso, conservación y presentación del uniforme institucional, debiendo mantener un uso decoroso y respetuoso del mismo en concordancia con el cargo que ostenta.

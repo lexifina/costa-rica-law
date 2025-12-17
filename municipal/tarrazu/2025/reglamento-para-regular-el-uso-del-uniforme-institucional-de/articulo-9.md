@@ -1,0 +1,1 @@
+Artículo 9°-Control y fiscalización. Corresponderá al Presidente Municipal supervisar el cumplimiento de este reglamento en conjunto con la Secretaría del Concejo Municipal, llevando registro de entrega y uso de uniformes, e informando al Concejo Municipal cualquier incumplimiento que amerite observación formal.
