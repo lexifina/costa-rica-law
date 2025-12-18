@@ -1,0 +1,1 @@
+Artículo 2.- Toda actividad comercial o industrial requerirá del certificado de uso de suelo correspondiente para obtener la respectiva patente, excepto la lista de actividades descritas en el artículo tercero del presente reglamento.
