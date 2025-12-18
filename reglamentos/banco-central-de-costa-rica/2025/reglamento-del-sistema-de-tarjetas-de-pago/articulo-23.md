@@ -1,0 +1,1 @@
+Artículo 23. De la clasificación de las operaciones de pago locales. Queda terminantemente prohibido para los adquirentes nacionales y las marcas de tarjetas clasificar una "operación de pago local" como una "operación de pago transfronteriza" o una "operación de pago transfronteriza" como una "operación de pago local", de conformidad con las definiciones de este reglamento.

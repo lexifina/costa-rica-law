@@ -1,0 +1,1 @@
+Artículo 36. De la aceptación de pagos. Todos los proveedores de servicio que intervienen en el procesamiento de una operación de pago y los afiliados deberán aceptar todas las operaciones de pago que el cliente solicite, sin discriminar por el monto de la operación de pago, tipo de producto o servicio o el tipo de dispositivo de pago.

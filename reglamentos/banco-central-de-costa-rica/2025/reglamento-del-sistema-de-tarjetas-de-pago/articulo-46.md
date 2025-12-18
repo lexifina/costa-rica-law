@@ -1,0 +1,2 @@
+Artículo 46. De la comisión máxima de intercambio transfronteriza. Para todos los tipos y montos de operaciones de pago transfronterizas, tipos de dispositivos de pago y actividades comerciales aplicará una comisión máxima de intercambio transfronteriza de 1,00%.
+Las marcas de tarjetas deberán publicar, en su página web de acceso público, el detalle de las comisiones de intercambio transfronterizas vigentes para Costa Rica de su red de pagos, según el tipo y monto de la operación de pago transfronterizo, el tipo de dispositivo de pago y la actividad comercial.
