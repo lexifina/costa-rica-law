@@ -1,0 +1,1 @@
+Artículo 2°-El pago de dieta corresponderá únicamente a los miembros de la Junta Directiva que no actúen en representación del Gobierno ante el órgano colegiado y que asistan puntualmente a las sesiones convocadas. No tendrán derecho a dicho pago quienes desempeñen la función de fiscalía, conforme lo establece el artículo 22 del Decreto Ejecutivo Nº 31857-MAG.
