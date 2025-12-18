@@ -19,3 +19,4 @@ Reglamento autónomo de organización y servicios de la Municipalidad de San Isi
 | 4 | 2023-12-18 | Reglamento municipal 81 (2023-12-18) |
 | 5 | 2025-11-10 | Reglamento municipal 130 (2025-11-10) |
 | 6 | 2025-12-18 | Reglamento municipal 139 (2025-12-18) |
+| 7 | 2025-12-18 | Reglamento municipal 139 (2025-12-18) |
