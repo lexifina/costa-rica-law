@@ -1,0 +1,3 @@
+Artículo 2. Creación de la Contraloría de Servicios del BN
+La Contraloría de Servicios se constituye con el fin de atender las quejas, reclamos comerciales y denuncias a los clientes y/o usuarios del BN, para lo cual deberá coordinar con la oficina o a la unidad correspondiente, para que se gestione la respuesta en tiempo y forma. La Contraloría de Servicios es un órgano asesor, canalizador y mediador para las partes interesadas internas como lo son Junta Directiva General y el BN.
+La Contraloría de Servicios deberá revisar periódicamente los procedimientos internos relacionados con sus funciones bajo un enfoque de mejora continua que contribuya a mejorar la experiencia del cliente, así como la reputación del BN.

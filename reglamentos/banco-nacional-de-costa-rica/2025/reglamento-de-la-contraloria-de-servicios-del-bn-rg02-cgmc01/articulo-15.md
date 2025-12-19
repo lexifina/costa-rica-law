@@ -1,0 +1,4 @@
+Artículo 15. Expediente del reclamo
+Será obligación de las oficinas respectivas que atiendan los reclamos comerciales conformar y completar un expediente digital para cada reclamo comercial que se presente, el cual deberá estar debidamente identificado, numerado, en orden cronológico y con la totalidad de las piezas que resulten útiles, pertinentes y legibles a los efectos de fundamentar la resolución final y definitiva del asunto.
+La información contenida en el expediente será de carácter confidencial por lo que únicamente el cliente, usuario o su representante, así como los colaboradores que participen del trámite y resolución del reclamo tendrá acceso a este.
+Será competencia obligatoria de la Contraloría de Servicios custodiar toda la documentación respectiva relacionada con los expedientes.

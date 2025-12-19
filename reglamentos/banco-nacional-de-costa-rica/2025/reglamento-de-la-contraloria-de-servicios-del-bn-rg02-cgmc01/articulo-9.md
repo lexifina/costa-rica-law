@@ -1,0 +1,2 @@
+Artículo 9. Medios de interposición de reclamos y deber de información
+El reclamo podrá ser interpuesto tanto de forma física como digital, para lo cual, la Contraloría de Servicios en conjunto con las partes interesadas deberán publicitar los medios de recepción de reclamos para que sean de conocimiento de los clientes y usuarios; así mismo tendrá la obligación de brindar información clara y oportuna a estos en relación con cualquier duda que presenten respecto a la interposición, trámite y estado del reclamo.
