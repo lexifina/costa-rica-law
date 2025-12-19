@@ -1,0 +1,1 @@
+Artículo 6.- COOPERACIÓN INTERNACIONAL. El Departamento de Cooperación Internacional del Ministerio de Cultura y Juventud, colaborará de forma prioritaria con las acciones que deba ejecutar el comité coordinador del FIDCR para concretar la participación de los grupos, turistas, formadores o expositores internacionales que formarán parte de la programación de este Festival.

@@ -1,0 +1,1 @@
+Artículo 5.- FINANCIAMIENTO. El FIDCR se podrá financiar con recursos del Presupuesto Ordinario del Teatro Popular Melico Salazar, así como donaciones, colaboraciones y todo tipo de apoyo que puedan otorgar tanto las instituciones del Sector Público como del Sector Privado.

@@ -1,0 +1,5 @@
+Artículo 4.- COMPONENTES SUSTANTIVOS. El FIDCR se compondrá de 4 elementos fundamentales:
+a. Mercado cultural y conexiones internacionales, con el trabajo articulado de programadores, curadores o productores internacionales, así como obras nacionales beneficiadas con oportunidades de circulación.
+b. Oferta artística nacional e internacional visibilizada en programación en los espacios escénicos del Teatro Popular Melico Salazar: Sala Principal, Teatro de La Aduana Alberto Cañas Escalante, Teatro 1887, Teatro de la Danza, Anfiteatro del Centro Nacional de la Cultura; así como en espacios alternativos y espacios escénicos asociados al FIDCR.
+c. Fortalecimiento del sector de la danza por medio de la ejecución de actividades formativas, clases maestras, talleres y eventos de formación continua que alcanzan a un número significativo de trabajadores de la danza.
+d. Acceso de públicos diversos y nuevos a experiencias significativas de danza, por medio de la programación gratuita en espacios no convencionales, así como la ejecución de actividades significativas de mediación cultural.
