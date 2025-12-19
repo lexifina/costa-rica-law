@@ -11,6 +11,7 @@ g) Coordinar el asesoramiento y la capacitación de las acciones formativas para
 h) Promover, en conjunto con otras instituciones públicas, el desarrollo de programas de capacitación específicos para las agrupaciones del TRC.
 i) Promover, en coordinación con el Ministerio de Ambiente y Energía (Minae)(*), la implementación de contratos por pago de servicios ambientales en terrenos dedicados al TRC.
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
-j) Fomentar, en coordinación con el Ministerio de Salud, la gestión integral de residuos en el TRC.
+j) Fomentar el cumplimento de todas las medidas sanitarias, en coordinación con el Ministerio de Salud, en el TRC.
+(Así reformado el inciso anterior por el artículo 10 de la Ley para potenciar el agroturismo, N° 10822 del 19 de noviembre de 2025)
 k) Desarrollar campañas publicitarias para informar, tanto a nivel nacional como internacional, las actividades que desarrolla el TRC.
 l) Garantizar el cumplimiento de las disposiciones de esta Ley.
