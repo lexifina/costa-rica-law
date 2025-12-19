@@ -1,0 +1,1 @@
+Artículo 24: De los desembolsos. El monto del apoyo aprobado será desembolsado teniendo en cuenta la naturaleza del proyecto; el comité evaluador definirá el número de desembolsos y su respectivo monto. La entrega de los tractos subsiguientes al primero, estarán sujetos a la aprobación de los informes técnicos y financieros establecidos.

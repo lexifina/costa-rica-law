@@ -1,0 +1,2 @@
+Artículo 10: Administración de los fondos. Será administrado por el Fonafifo, a través del Fideicomiso 544- Fondo Nacional de Financiamiento Forestal -Banco Nacional de Costa Rica.
+El FONAFIFO será la entidad responsable de emitir los procedimientos, instrumentos y formularios requeridos para la operación del FOINDES y el FNV. En caso necesario, se aplicará de manera supletoria el Reglamento de Crédito Forestal del FONAFIFO, publicado en el Alcance N°155 a La Gaceta N°165 del 6 de setiembre de 2024.

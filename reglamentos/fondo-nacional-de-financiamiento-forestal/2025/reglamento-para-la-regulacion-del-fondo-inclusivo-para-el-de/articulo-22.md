@@ -1,0 +1,6 @@
+CAPITULO II
+CARACTERÍSTICAS, REQUISITOS Y APROBACIÓN DE SOLICITUDES DE
+APLICACIÓN AL FONDO SEMILLA
+Artículo 22: Del Fondo Semilla. Es una parte del FOINDES no reembolsable cuyo fin es apoyar en todo el país, el acceso y la viabilidad de los proyectos financiados con los créditos que otorgue el FOINDES, para el fortalecimiento de emprendimientos de mujeres; será utilizado para el financiamiento de procesos legales de formalización y regularización de actividades, para la realización de actividades previas al desarrollo del emprendimiento, tales como estudios técnicos, que generen información requerida para la preparación de proyecto, aprobación del crédito y también para la asistencia técnica a proyectos.
+Según el caso, el apoyo del Fondo Semilla puede ser autorizado de previo a la aprobación del crédito, o bien, de forma paralela a la ejecución del crédito, dependiendo de la naturaleza del apoyo solicitado.
+No se permitirán inversiones en capital de trabajo, adquisición de activos, acciones, bonos y otros valores, pago de deudas e impuestos, pago de alquileres de inmuebles. En los productos financiados se debe garantizar la Integración de buenas prácticas que contribuyan a la mitigación o adaptación al cambio climático, la conservación de la biodiversidad y la mejora de medios de vida.

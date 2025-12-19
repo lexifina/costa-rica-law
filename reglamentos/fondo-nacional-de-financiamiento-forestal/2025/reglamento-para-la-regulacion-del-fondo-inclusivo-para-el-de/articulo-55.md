@@ -1,0 +1,1 @@
+Artículo 55: De la administración del fondo. Los recursos correspondientes al Fondo de Avales serán administrados por la Fundación Banco Ambiental (FUNBAM); para ello, FONAFIFO formalizará un convenio con la citada fundación en el que se establecerán las condiciones de manejo de dicho fondo.

@@ -1,0 +1,1 @@
+Artículo 31: De los plazos. El plazo de los créditos FNV será de hasta sesenta meses, sin embargo, a criterio del comité evaluador de los créditos y previa justificación técnica, el mismo podrá ampliarse dependiendo de las características productivas de cada proyecto.

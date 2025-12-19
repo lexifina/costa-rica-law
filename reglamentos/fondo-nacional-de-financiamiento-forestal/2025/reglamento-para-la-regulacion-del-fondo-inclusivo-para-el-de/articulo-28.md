@@ -1,0 +1,1 @@
+Artículo 28: Reintegro del fondo semilla. En caso de que la persona solicitante no formalice el crédito siendo factible la ejecución del proyecto, o bien incumpla las condiciones para las cuales fue aprobado el mismo, por causas atribuibles a sí mismo, se debe realizar también el reintegro del dinero obtenido como fondo semilla.

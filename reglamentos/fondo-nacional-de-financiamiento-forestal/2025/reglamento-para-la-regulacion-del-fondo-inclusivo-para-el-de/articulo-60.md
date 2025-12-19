@@ -1,0 +1,1 @@
+Artículo 60: De la asignación de la garantía. Una vez aprobada una solicitud de crédito, FONAFIFO lo comunicará a FUNBAM remitiendo la información pertinente y solicitando la reserva del aval correspondiente. FUNBAM reservará los recursos y procederá a formalizar el contrato respectivo con la persona prestataria para el caso de una eventual aplicación del aval.

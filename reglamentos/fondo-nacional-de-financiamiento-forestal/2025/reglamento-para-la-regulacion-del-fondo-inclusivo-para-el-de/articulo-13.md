@@ -1,0 +1,1 @@
+Artículo 13: De los plazos. El plazo de los créditos FOINDES será de hasta sesenta meses, sin embargo, a criterio del comité evaluador del crédito y previa justificación técnica el mismo podrá ampliarse dependiendo de las características productivas de cada proyecto.

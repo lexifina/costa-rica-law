@@ -1,0 +1,9 @@
+Artículo 35: De las garantías hipotecarias. Los inmuebles que se ofrezcan como garantía hipotecaria deberán cumplir con las siguientes condiciones:
+a. Estar debidamente inscritos en el Registro Nacional.
+b. Contar con un plano catastrado debidamente inscrito en la Base de Datos de Catastro Nacional, el cual se encuentre relacionado con la Base de Datos del Registro Inmobiliario. La ubicación y el área del inmueble deberán coincidir en ambos registros, con las salvedades establecidas por el Registro Nacional.
+c. No tener hipotecas, anotaciones, advertencias administrativas, inmovilizaciones, demandas de cualquier tipo, embargos preventivos o practicados.
+d. Si el inmueble ofrecido en garantía es propiedad de un tercero, este deberá consentirlo mediante una autorización escrita, si el propietario fuere una persona física; y/o un acuerdo de Asamblea de accionistas, cuya acta debe ser protocolizada por notario público, si el propietario fuere una persona jurídica. Además, se deben presentar original de la cédula de identidad u original de certificación de personería jurídica vigente, según corresponda.
+e. Se aceptará una responsabilidad de hasta un 80% del valor del inmueble reportado en el avalúo.
+f. Solamente se aceptarán hipotecas en segundo grado y en otros cuando todos los grados precedentes sean a favor del Fideicomiso 544FONAFIFOBNCR, no superen el 80% del valor del avalúo.
+g. Cuando el bien inmueble ofrecido como garantía posea obras de infraestructura, estas deberán estar protegidas por una póliza de riesgos contra incendio; póliza cuya contratación y costo serán responsabilidad exclusiva del solicitante del crédito. La obligación descrita en el presente inciso se aplicará únicamente en los casos en que el valor del terreno no sea suficiente para cubrir el monto total del crédito
+El avalúo del bien estará a cargo de peritos designados por el Fideicomiso 544FONAFIFO-BNCR.

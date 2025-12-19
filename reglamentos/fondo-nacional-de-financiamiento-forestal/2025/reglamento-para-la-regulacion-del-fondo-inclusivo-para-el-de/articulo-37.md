@@ -1,0 +1,1 @@
+Artículo 37: De la formalización de créditos hipotecarios y prendarios. La formalización del crédito se realizará mediante un notario asignado por el Fideicomiso 544 FONAFIFO-BNCR, de acuerdo con el rol establecido y consignado en la caratula de crédito por el fideicomitente.

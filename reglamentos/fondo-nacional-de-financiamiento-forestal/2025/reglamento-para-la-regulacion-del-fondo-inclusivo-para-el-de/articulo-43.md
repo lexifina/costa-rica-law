@@ -1,0 +1,10 @@
+Artículo 43: Recepción y trámite de solicitudes de crédito. Las solicitudes con todos sus requisitos serán presentadas mediante alguna de las siguientes opciones:
+a. En forma presencial en las oficinas regionales de FONAFIFO.
+b. Por vía correo electrónico, mismo que se encontrará disponible en la página web www.fonafifo.go.cr. En cuyo caso los documentos originales se presentan al momento de la formalización.
+c. En forma presencial en el Departamento de Gestión Crediticia de FONAFIFO.
+d. A través de cualquier otro mecanismo que FONAFIFO ponga a disposición.
+e. Ante las personas que se designen para la extensión o búsqueda de prestatarios.
+Las solicitudes recibidas serán trasladadas en forma inmediata al comité evaluador del crédito para la evaluación respectiva, con base en el MPFOINDES-FNV que será parte integral de este reglamento y que comprenderá el análisis técnico y financiero, en un plazo máximo de 15 días naturales posteriores a la recepción de la solicitud.
+Si la solicitud carece de uno o varios requisitos, el FONAFIFO prevendrá al solicitante de tal situación y le otorgará un plazo de 10 días hábiles para su cumplimiento. De no cumplirse con lo solicitado, se le deberá notificar al interesado el archivo de su solicitud.
+Fonafifo podrá realizar una inspección al lugar del emprendimiento si fuese pertinente por la naturaleza de la solicitud, esta inspección podrá realizarse en cualquier etapa del análisis que se realice en el marco de la gestión presentada por el interesado. En caso de que Fonafifo determine que el proyecto no es viable, se procederá con el archivo de la solicitud.
+Si la recomendación del mencionado comité es positiva, lo trasladará al jefe del Departamento de Crédito de la Dirección de Fomento Forestal de FONAFIFO, para su respectiva revisión. Posteriormente, la remitirá al director de Fomento Forestal, quien contará con un plazo de cinco días naturales para emitir la aprobación final y remitirlo al Banco Fiduciario para el proceso de formalización y desembolso.

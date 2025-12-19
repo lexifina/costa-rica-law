@@ -1,0 +1,1 @@
+Artículo 32: De los períodos de gracia. El período de gracia podría ser de hasta doce meses, procurando que el prestatario genere ingresos que le permitan la amortización del préstamo. No obstante, dicho período de gracia no aplica para los intereses de la operación, los cuales deben comenzar a pagarse desde el inicio.

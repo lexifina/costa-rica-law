@@ -1,0 +1,1 @@
+Artículo 46: Crédito de segundo piso (CSP). Es una línea de financiamiento que el FNV puede conceder a organizaciones intermediarias consolidadas, con experiencia comprobada en administración de carteras crediticias, para que éstas coloquen recursos entre prestatarios finales conforme a los objetivos del FNV.

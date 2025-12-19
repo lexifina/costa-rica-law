@@ -1,0 +1,1 @@
+Artículo 45: De la formalización del crédito. Una vez realizada la aprobación del crédito, se comunicará a la solicitante para la formalización de este, según los procedimientos establecidos por el Fideicomiso 544- Fondo Nacional de Financiamiento Forestal-Banco Nacional de Costa Rica.

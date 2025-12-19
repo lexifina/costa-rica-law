@@ -1,0 +1,8 @@
+Artículo 5: Financiamiento del FOINDES y FNV y distribución de los recursos. Estos fondos serán financiados con recursos obtenidos por la comercialización de reducción de emisiones de gases de efecto invernadero, mediante el ERPA citado en el considerado 2 del presente reglamento y otros aportes que el MINAE y el Gobierno de Costa Rica realicen a futuro, producto de la venta de reducción de emisiones de gases de efecto invernadero o de otros mecanismos internacionales o donaciones que así lo determinen.
+a. Los recursos del FOINDES serán ejecutados de la siguiente manera:
+. Hasta un 10% será destinado como un mecanismo para ayudar a avalar o apalancar créditos u otros mecanismos, para establecer o mejorar pequeños emprendimientos.
+. Hasta un 10% será utilizado para capital semilla y apoyo no reembolsable o capital de riesgo, para brindar procesos de formalización de actividades, para estudios dirigidos a las actividades propuestas, o para el cumplimiento de requerimientos para la regularización y formalización de actividades en un esquema de legalidad.
+. El 80% restante, será dedicado a la disposición de pequeños créditos para establecer o mejorar proyectos productivos que influyan en la lucha contra el cambio climático o la conservación de la biodiversidad.
+b. Los recursos del FNV serán ejecutados de la siguiente manera:
+. Hasta un 10% será un mecanismo que ayudará a avalar o apalancar créditos u otros mecanismos, para mejorar o expandir emprendimientos.
+. El 90% restante será dedicado a la disposición de créditos u otros mecanismos, para mejorar o expandir pequeños proyectos productivos que influyan en la lucha contra el cambio climático y la conservación de la biodiversidad.

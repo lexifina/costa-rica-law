@@ -1,0 +1,7 @@
+Artículo 34. De la Fianza. Solo será aceptada para cubrir créditos de más de cinco millones de colones y hasta diez millones de colones.
+A fin de asegurar el cumplimiento oportuno de las obligaciones crediticias por parte del deudor del crédito, se establecen los siguientes requisitos que deberá cumplir el fiador para su aceptación:
+a. Los ingresos mensuales netos de los fiadores deben cubrir el monto del salario mínimo inembargable, más la cuota del crédito solicitado.
+b. Los fiadores asalariados deberán acreditar una antigüedad laboral continua mínima de un año con el mismo empleador, para lo cual, deberán presentar una constancia salarial emitida con una antelación no mayor a un mes a la fecha de recepción física o electrónica de la documentación. Dicha constancia deberá contener, como mínimo, la información del empleador, incluyendo el domicilio, el número telefónico, correo electrónico y el sello oficial.
+c. No se aceptan fiadores con salarios embargados ni personas pensionadas.
+d. Si el fiador ya está otorgando fianza con FONAFIFO o con otra entidad, la aceptación quedará sujeta al análisis que determinará su capacidad de fianza realizado por el comité evaluador.
+e. Los fiadores que son trabajadores independientes deberán presentar una certificación de ingresos emitida por un contador autorizado debidamente colegiado y elaborada según los lineamientos del Colegio Profesional respectivo, incluyendo los timbres de ley, aspectos que deben ser corroborados por el comité evaluador del crédito.

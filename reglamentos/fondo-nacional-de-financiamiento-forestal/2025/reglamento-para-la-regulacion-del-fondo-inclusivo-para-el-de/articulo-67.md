@@ -1,0 +1,1 @@
+Artículo 67: Los arreglos contractuales. Con el fin de apoyar la ejecución del proyecto, se podrán realizar arreglos de pago aprobados por el director de Fomento Forestal, que impliquen la modificación del plazo, tipo de garantía y forma de pago, de manera que facilite el cumplimiento de la persona prestataria.

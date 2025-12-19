@@ -1,0 +1,1 @@
+Artículo 62: Del depósito de la garantía. De resultar procedente la aplicación de la garantía del fondo de avales, FUNBAM con base en la resolución y documentos pertinentes que le remita El FONAFIFO, procederá a realizar el depósito de los recursos que correspondan en la cuenta del Fideicomiso 544-FONAFIFO-BNCR.

@@ -1,0 +1,1 @@
+Artículo 51: Formalización y desembolso. La recomendación técnico-financiera sobre la factibilidad del CSP la emitirá el comité evaluador, quien la trasladará al jefe de crédito para su respectiva revisión y posterior envío para su aprobación final por parte del director de Fomento Forestal, quien lo remitirá al Banco Fiduciario para el proceso de formalización y desembolso.

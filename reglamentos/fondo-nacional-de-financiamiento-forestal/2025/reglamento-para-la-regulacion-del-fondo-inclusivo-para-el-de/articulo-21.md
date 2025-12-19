@@ -1,0 +1,1 @@
+Artículo 21: De la formalización del crédito y/o el apoyo. Una vez realizada la aprobación del crédito y/o el apoyo, se comunicará a la solicitante para la formalización de este, según los procedimientos establecidos por el Fideicomiso 544- Fondo Nacional de Financiamiento Forestal- Banco Nacional de Costa Rica.

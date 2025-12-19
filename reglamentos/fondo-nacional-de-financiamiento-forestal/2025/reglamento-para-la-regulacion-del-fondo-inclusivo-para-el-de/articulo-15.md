@@ -1,0 +1,1 @@
+Artículo 15: De las garantías. Para un crédito FOINDES se deberá presentar como garantía un pagaré. Además, podrá recibir el respaldo del Fondo de Avales, si se cumplen las condiciones que se señalarán en el artículo 58 de este reglamento.

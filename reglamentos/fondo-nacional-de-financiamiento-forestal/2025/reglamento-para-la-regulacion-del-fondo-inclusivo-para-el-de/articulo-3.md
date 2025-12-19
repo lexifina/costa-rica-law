@@ -1,0 +1,3 @@
+CAPÍTULO II
+DISPOSICIONES GENERALES DE LOS CREDITOS
+Artículo 3: Objetivo del FOINDES. El FOINDES, creado en el Plan de Distribución de Beneficios y desarrollado mediante el artículo 128, inciso 1., del Decreto Ejecutivo N° 25721-MINAE "Reglamento a la Ley Forestal", del 17 de octubre de 1996, publicado en la Gaceta N° 16 del 23 de enero de 1997 y sus reformas, tiene como objetivo financiar, en todo el país, el establecimiento o mejora de pequeños emprendimientos. Dirigido a personas físicas, especialmente mujeres, propietarias, copropietarias o poseedoras de bosque o sin él, siempre que aporten a la lucha contra el cambio climático y la conservación de la biodiversidad.
