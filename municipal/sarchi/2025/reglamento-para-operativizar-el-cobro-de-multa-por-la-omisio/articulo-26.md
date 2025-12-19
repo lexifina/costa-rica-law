@@ -1,0 +1,1 @@
+Artículo 26.-Integración de ordenamiento. Cualquier disposición no contemplada en este reglamento se integrará acudiendo a los principios de legalidad, al Código de Normas y Procedimientos Tributarios, Código Municipal, Ley General de la Administración Pública, Código Procesal Contencioso Administrativo y Código Procesal Civil.

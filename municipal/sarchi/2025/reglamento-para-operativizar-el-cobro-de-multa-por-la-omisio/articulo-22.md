@@ -1,0 +1,2 @@
+Artículo 22.-Adición y aclaración. La Administración podrá, a solicitud de parte interesada o de oficio, aclarar aspectos confusos o poco precisos, o suplir omisiones en sus resoluciones, siempre que no se altere el fondo de lo resuelto ni se creen obligaciones nuevas.
+Estas aclaraciones o adiciones solo procederán respecto de la parte dispositiva, deberán ser solicitadas dentro del plazo de tres (3) días hábiles contados a partir del día siguiente a la notificación y podrán ser resueltas por el mismo órgano que dictó el acto.

@@ -1,0 +1,1 @@
+Artículo 25.-Inmuebles no afectos al impuesto. La sanción administrativa (multa) no es aplicable a los casos en que el administrado no se encuentre obligado al pago del impuesto sobre bienes inmuebles, conforme a los supuestos de no sujeción establecidos en el artículo 4 de la Ley N° 7509.

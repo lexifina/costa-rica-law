@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Recursos
+Artículo 20.-Tipo de recursos. Contra la resolución motivada que imponga multa a la omisión de la presentación de la declaración de bienes inmuebles procederá recursos de revocatoria y apelación.
+Contra la resolución emitida por la Administración Tributaria Municipal que indique el monto de multa por omisión a la presentación de la declaración de bienes inmuebles que se encuentre en firme, cabrá recurso de revocatoria, mismo que se presentará ante el mismo emisor, en un plazo de cinco (5) días hábiles a partir de la notificación del acto, contando la Administración Tributaria con en plazo de treinta (30) días hábiles para emitir resolución.
+Contra la resolución que resuelva el recurso de revocatoria procederá el recurso de apelación para ante el Tribunal Fiscal Administrativo, en un plazo de treinta días (30) hábiles a partir de la notificación del acto, con un plazo de seis (6) meses calendario para emitir resolución, de conformidad con lo establecido en el Código de Normas y Procedimientos Tributarios y la normativa administrativa tributaria vigente emitida por la Dirección General de Tributación.
