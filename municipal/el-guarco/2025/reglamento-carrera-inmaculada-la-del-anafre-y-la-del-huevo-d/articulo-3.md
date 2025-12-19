@@ -1,0 +1,1 @@
+Artículo 3. Dicha carrera cuenta con designación presupuestaria, que se toma del 3% de los recursos ordinarios que la Municipalidad de El Guarco transfiere al Comité Cantonal de Deportes y Recreación de El Guarco.

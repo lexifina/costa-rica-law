@@ -1,0 +1,1 @@
+Artículo 8. Este reglamento podrá ser modificado por el Comité Cantonal de Deportes y de Recreación de El Guarco., previa aprobación del Concejo Municipal de El Guarco y su publicación en el Diario Oficial La Gaceta.

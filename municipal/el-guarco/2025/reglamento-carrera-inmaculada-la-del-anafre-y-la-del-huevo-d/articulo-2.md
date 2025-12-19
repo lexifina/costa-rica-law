@@ -1,0 +1,1 @@
+Artículo 2. La carrera se regirá bajo las disposiciones establecidas por la Federación Costarricense de Atletismo (FECOA), el Instituto Costarricense del Deporte y la Recreación (ICODER) y las disposiciones normativas del Código Municipal de Costa Rica, especialmente lo dispuesto en su artículo 179.
