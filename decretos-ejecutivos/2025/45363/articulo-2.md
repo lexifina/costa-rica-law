@@ -1,0 +1,1 @@
+Artículo 2°- En lo no reformado, se mantiene incólume el Decreto Ejecutivo Nº 15203- MOPT del 31 de enero de 1984, Reglamento para la Explotación de Servicios Especiales de Transporte Automotor Remunerado de Personas.
