@@ -1,0 +1,2 @@
+Artículo 4.- Modifíquese el artículo 8 del Decreto Ejecutivo No. 27989-C del 6 de julio de 1999, Constituye el Taller Nacional de Danza como un programa del Teatro Popular Melico Salazar, para que se lea de la siguiente forma:
+"Artículo 8. Él personal administrativo y de formadores artísticos del Taller Nacional de Danza estarán sujetos en su relación de trabajo a las disposiciones contenidas en el Reglamento autónomo de Trabajo del Ministerio de Cultura y Juventud. "

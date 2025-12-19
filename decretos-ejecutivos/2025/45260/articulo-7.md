@@ -1,0 +1,2 @@
+Artículo 7.- Modifíquese el artículo 7 del Decreto Ejecutivo No. 27990-C del 7 de julio de 1999, Constituye la Compañía Nacional de Teatro como un programa del Teatro Popular Melico Salazar, para que se lea de la siguiente forma:
+''Artículo 7°- La Compañía Nacional de Teatro tendrá su sede administrativa en el Teatro Popular Metica Salazar, de conformidad con lo establecido en el artículo 3 inciso a) de la Ley Nº 7023 del 13 de. marzo de 1986, y ocupará las instalaciones del Teatro de la Aduana Alberto Cañas Escalante y del Teatro 1887."

@@ -1,0 +1,6 @@
+Artículo 11.- Modifiquese el artículo 1 del Decreto Ejecutivo No. 30421-C del 6 de mayo de 2002, Ajusta el marco legal regulatorio de la Compañía Nacional de Danza, para que se lea de la siguiente forma:
+"Artículo 1. Créase la Compañía Nacional de Danza como un programa técnico/artístico perteneciente al del Teatro Popular Melico Sal azar, con el fin de cultivar, promover, fomentar y difundir el arte de la danza contemporánea en Costa Rica. Le corresponderá la coordinación de las actividades del Teatro de la Danza y de los salones de danza Mireya Barboza, Marco Lemaire y 1979.
+Será responsable de implementar las acciones estratégicas necesarias para:
+a. Presentar obras coreográficas tanto en el territorio nacional como en plataformas internacionales de artes escénicas, buscando acercar la danza a diversos públicos y espacios.
+b. Creación de nuevas obras de danza contemporánea, a través de la colaboración de coreógrafos nacionales e internacionales, artistas de otras disciplinas fomentando la investigación, exploración y versatilidad de diversas estéticas y lenguajes contemporáneos.
+c. Promover la apreciación y promoción de la danza contemporánea a través de conversa/arios y actividades paralelas que se generen a partir de las presentaciones y que incidan en la cadena de valor de la danza y el desarrollo productivo del país. "
