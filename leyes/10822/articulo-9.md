@@ -1,0 +1,2 @@
+ARTÍCULO 9- Reforma del artículo 5 de la Ley 8724, Fomento del Turismo Rural Comunitario, de 17 de julio 2009. El texto es el siguiente:
+Artículo 5- Posadas del turismo rural. Para obtener la declaratoria turística y el contrato turístico, las posadas del TRC las fincas agroturísticas deberán cumplir los requisitos establecidos en la legislación vigente y en la reglamentación de esta ley emitida por el Instituto Costarricense de Turismo (ICT), a fin de facilitar que los beneficios del turismo rural puedan llegar a más comunidades del país.
