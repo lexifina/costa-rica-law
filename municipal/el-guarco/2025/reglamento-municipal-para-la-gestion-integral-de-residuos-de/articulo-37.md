@@ -1,0 +1,1 @@
+Artículo 37. los fondos provenientes de las multas establecidas en Ley para la Gestión Integral de Residuos, una vez girados por la Tesorería Nacional a la Municipalidad, ingresarán directamente al presupuesto de la Gestión de Servicios Públicos y Ambientales con el fin de apoyar la implementación de las acciones del Plan Municipal para la Gestión Integral de Residuos del Cantón.

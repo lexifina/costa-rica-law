@@ -1,0 +1,2 @@
+Transitorio Único. Para los efectos del cumplimiento del presente reglamento se otorga un plazo de seis meses a partir de la notificación para que los generadores que estén obligados a construir o realizar mejoras a los sistemas de almacenamiento colectivo de residuos se ajusten a las disposiciones indicadas en este reglamento. Sólo en caso de imposibilidad debidamente demostrada se eximirá del uso obligatorio de estos sistemas.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

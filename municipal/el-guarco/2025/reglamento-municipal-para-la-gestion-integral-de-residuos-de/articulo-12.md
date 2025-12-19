@@ -1,0 +1,6 @@
+Artículo 12. para el almacenamiento de los residuos se deben utilizar exclusivamente bolsas o sacos plásticos que cuenten con las siguientes características:
+a) De un peso máximo de 25 Kg.
+b) Que permitan su cierre fijo o un nudo, de forma que no permitan la entrada de agua, insectos o roedores, ni el escape de líquidos.
+c) Resistentes al peso de su contenido y capaces de soportar la tensión ejercida por los residuos contenidos y por la manipulación propia de la prestación del servicio de recolección.
+d) De cualquier color, excepto rojo (de uso exclusivo para residuos infecto-contagiosos).
+e) De preferencia transparentes para los residuos valorizables.

@@ -1,0 +1,1 @@
+Artículo 30. las infracciones leves serán sancionadas con cinco veces la tarifa que corresponda de acuerdo con la categoría asignada. Además el infractor deberá compensar y reparar el daño ambiental, así como el pago correspondiente a los costos en los que haya incurrido la Municipalidad en recoger y disponer los residuos correctamente.

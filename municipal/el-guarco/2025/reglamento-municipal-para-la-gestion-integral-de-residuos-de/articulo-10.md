@@ -1,0 +1,3 @@
+CAPÍTULO V
+Generadores de Residuos
+Artículo 10. Los generadores de residuos tanto residentes como visitantes en tránsito en el cantón de El Guarco, en condición de personas físicas o jurídicas, están obligados y serán responsables de cumplir las medidas tendientes a evitar, reducir, separar, clasificar, tratar y disponer adecuadamente los residuos para su valorización o disposición final, sin poner en riesgo a la población o al ambiente con dicha gestión y acatando lo estipulado en el presente reglamento.

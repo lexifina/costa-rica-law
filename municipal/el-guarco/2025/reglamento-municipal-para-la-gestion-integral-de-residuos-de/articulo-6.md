@@ -1,0 +1,1 @@
+Artículo 6. todo generador tiene la obligación de separar sus residuos de acuerdo con las clasificaciones establecidas por la Municipalidad, con el fin de facilitar su valorización y correcta disposición final. Durante la generación, separación y almacenamiento, el generador deberá evitar que los residuos se mojen o se mezclen con otros tipos de residuos.

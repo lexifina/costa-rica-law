@@ -1,0 +1,16 @@
+MUNICIPALIDAD DE EL GUARCO
+El suscrito John Esteban Solano Cárdenas, Secretario Municipal de la Municipalidad de El Guarco, comunica que mediante el Acuerdo N°452 tomado bajo la Sesión Ordinaria número 125-2025 de fecha 24 de noviembre de 2025, el Concejo acordó y aprobó con base en lo establecido en el Código Municipal, lo siguiente.
+Se aprueba y adopta para su aplicación, publicación y entrada en vigencia del REGLAMENTO MUNICIPAL PARA LA GESTIÓN INTEGRAL DE RESIDUOS DEL CANTÓN DE EL GUARCO. Texto final que se transcribe seguidamente a este acuerdo para que conste en forma literal en el acta respectiva. El nuevo reglamento de cita para efectos de su entrada en vigencia, de conformidad con lo indicado en el artículo 43 del Código Municipal, entrara a regir un día después de la respectiva publicación en el Diario Oficial La Gaceta del aviso correspondiente. El presente acuerdo de aprobación y adopción del nuevo reglamento de cita, deroga tácitamente cualquier Reglamento anterior y actual que se encuentre vigente. Por lo cual una vez realizada la respectiva publicación y entrada en vigencia de este nuevo reglamento, se deberá acatar obligatoriamente lo indicado en esta nueva reglamentación en forma exclusiva. Para los efectos de materializar el trámite de la respectiva publicación en el Diario Oficial La Gaceta y entrada en vigencia del citado reglamento, se procede a delegar a la Secretaría Municipal, para que en conjunto con la Alcaldía Municipal procedan conforme a derecho al aviso de dicha publicación en el Diario Oficial La Gaceta.
+Considerando:
+a) Que, el artículo 50 de la Constitución Política reconoce el derecho de toda persona a gozar de un ambiente sano y ecológicamente equilibrado, así como el deber del Estado de garantizar, defender y preservar dicho derecho.
+b) Que, de conformidad con el artículo 169 de la Constitución Política corresponde a la municipalidad la administración de los intereses y servicios locales.
+c) Que, de conformidad con la Ley para la Gestión Integral de Residuos, corresponde a las municipalidades la gestión integral de residuos sólidos en su cantón.
+d) Que, de conformidad con el Código Municipal, el Concejo puede organizar mediante reglamento, la prestación de los servicios públicos municipales.
+e) Que, el cantón cuenta con el Plan Municipal de Gestión Integral de Residuos Sólidos como instrumento para la planificación y ejecución del manejo de los residuos a nivel local.
+f) Que, se hace necesario regular los diferentes aspectos del manejo de los residuos sólidos con el fin de promover la gestión integral de los mismos en el cantón.
+Decreta:
+REGLAMENTO MUNICIPAL PARA LA GESTIÓN INTEGRAL DE RESIDUOS DEL
+CANTÓN DE EL GUARCO
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos de competencia municipal que se encuentren localizados dentro del ámbito territorial del cantón de El Guarco, cualquiera que sea la actividad o el lugar de generación. Este reglamento se rige por lo aquí dispuesto y por la Ley para la Gestión Integral de Residuos, sus reformas y los reglamentos que de ella se deriven.

@@ -1,0 +1,1 @@
+Artículo 11. los generadores de residuos están obligados a cancelar a la Municipalidad, de forma oportuna, el pago de la tarifa para los servicios de gestión de residuos, según el reglamento para la organización y cobro de las tasas por servicios municipales del cantón de El Guarco.

@@ -1,0 +1,1 @@
+Artículo 29. Las infracciones graves serán sancionadas con ocho veces la tarifa más alta del servicio de gestión de residuos de la Municipalidad, además el infractor deberá compensar y reparar el daño ambiental, así como el pago correspondiente a los costos en los que haya incurrido la Municipalidad en recoger y disponer los residuos correctamente.

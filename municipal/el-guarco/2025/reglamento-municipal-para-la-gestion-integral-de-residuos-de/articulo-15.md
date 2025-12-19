@@ -1,0 +1,1 @@
+Artículo 15. la mezcla de tipos de residuos especiales con ordinarios, así como la disposición inadecuada, acarrea responsabilidad extendida, con las acciones legales que corresponda. La gestión de estos residuos debe ser realizada por un gestor autorizado.

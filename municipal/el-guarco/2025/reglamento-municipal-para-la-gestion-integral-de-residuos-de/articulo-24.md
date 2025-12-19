@@ -1,0 +1,1 @@
+Artículo 24. el generador utilizará el abono producido en sus jardines, áreas comunes y otros espacios públicos o privados, y se utilizará además en los huertos comunitarios y parques del cantón, centros educativos con huertas agrícolas.

@@ -1,0 +1,1 @@
+Artículo 18.Los inquilinos, encargados, responsables o administradores de las ferias del agricultor mercados públicos están obligados a separar los residuos generados en valorizables, orgánicos y ordinarios no valorizables. Se debe disponer de un cubículo y/o de un almacenamiento temporal de estos residuos y de fácil acceso para los camiones municipales.
