@@ -1,0 +1,1 @@
+Artículo 67. Orden de inicio. Una vez notificado el contrato el administrador del contrato deberá adjuntar la orden de inicio y registrar la fecha de ejecución en el expediente electrónico del SDU, en un plazo no mayor a quince (15) días hábiles.

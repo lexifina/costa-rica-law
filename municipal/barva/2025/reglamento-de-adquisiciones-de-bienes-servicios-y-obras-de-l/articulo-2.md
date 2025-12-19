@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. El presente reglamento rige para los procedimientos de contratación pública, que realiza la Municipalidad de Barva de Heredia, así como las excepciones establecidas en el artículo 3 en el marco de la Ley General de Contratación Pública No. 9986 y su reglamento.

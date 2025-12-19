@@ -1,0 +1,1 @@
+Artículo 9. Ciclo de vida. Se refiere al proceso de transformación o maduración que experimenta todo proyecto de inversión a través de su vida, desde la expresión de una idea de inversión hasta el aprovechamiento de los bienes o servicios generados en cumplimiento de los objetivos y resultados esperados, según el tipo de proyecto.

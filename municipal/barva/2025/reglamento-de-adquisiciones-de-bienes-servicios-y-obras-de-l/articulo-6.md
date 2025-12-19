@@ -1,0 +1,1 @@
+Artículo 6. Notificación del SDU. En concordancia al artículo 36 del RLGCP, el proveedor quedará notificado el mismo día de la comunicación, siempre y cuando ésta se realice en día y hora hábil de conformidad con el horario oficial de lo Administración. Las actuaciones presentadas en días inhábiles se entenderán por interpuestos en el siguiente día hábil.

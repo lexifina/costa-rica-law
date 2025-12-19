@@ -1,0 +1,1 @@
+Artículo 50. Funciones y competencia de la CRDAF. La CRDAF tendrá la competencia para analizar y recomendar el dictado de acto final de las licitaciones que por la naturaleza de la contratación así se requiera, según lo dispuesto en el artículo 51 del presente reglamento.

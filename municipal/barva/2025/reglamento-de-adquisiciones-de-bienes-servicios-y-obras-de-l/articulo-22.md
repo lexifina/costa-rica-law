@@ -1,0 +1,1 @@
+Artículo 22. De la advertencia de la fragmentación. En el caso de que la Administración detecte un posible fraccionamiento procederá a solicitar por escrito la justificación técnica correspondiente que respalde la decisión de promover el concurso.

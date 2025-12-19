@@ -1,0 +1,1 @@
+Artículo 57. Perfeccionamiento. Para todos los efectos el contrato se tendrá por perfeccionado cuando el acto de adjudicación o re adjudicación adquieran firmeza y en los casos que se exija la constitución de la garantía de cumplimiento, ésta sea válidamente otorgada conforme a lo previsto en el artículo 44 de la LGCP.

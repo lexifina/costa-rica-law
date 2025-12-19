@@ -1,0 +1,1 @@
+Artículo 19. Modificación al PAA. El PAA puede ser modificado cuando surja una necesidad administrativa no prevista. Para lo cual la unidad solicitante deberá aportar al departamento de Proveeduría la respectiva justificación debidamente aprobada por el Alcalde(sa) Municipal.

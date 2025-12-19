@@ -1,0 +1,1 @@
+Artículo 18. Publicación del PAA. Una vez recibida la versión final del PAA, la Proveeduría Municipal procederá a realizar la publicación en el SDU en el primer mes de cada período presupuestario, lo cual no implicará ningún compromiso de contratar.

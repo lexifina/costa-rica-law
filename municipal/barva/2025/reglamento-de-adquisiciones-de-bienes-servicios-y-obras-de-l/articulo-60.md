@@ -1,0 +1,1 @@
+Artículo 60. Elaboración del contrato. Una vez emitido el visto bueno por el administrador del contrato y la Gestor(a) Tributaria Financiera cuando corresponda, la Proveeduría será la responsable de la elaboración del contrato en el SDU.

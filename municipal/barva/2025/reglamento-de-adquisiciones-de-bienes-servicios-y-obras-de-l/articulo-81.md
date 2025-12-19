@@ -1,0 +1,1 @@
+Artículo 81. Cesión de los derechos de pago. La solicitud de cesión de pago se debe realizar en el SDU, para tales efectos el contratista deberá indicarlo desde la solicitud de pago y deberá aportar los documentos legales correspondientes. El administrador del contrato en la solicitud de pago debe verificar el cumplimiento de los documentos aportados.

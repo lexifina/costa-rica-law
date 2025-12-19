@@ -1,0 +1,1 @@
+Artículo 61. Aprobación previa interna del contrato. De previo a la suscripción del contrato, el/la Gestor(a) Tributaria y Financiera y el/la Alcalde (sa) Municipal, procederán a validar internamente el contrato.
