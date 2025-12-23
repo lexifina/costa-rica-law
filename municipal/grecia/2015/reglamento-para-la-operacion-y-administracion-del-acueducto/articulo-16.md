@@ -1,5 +1,0 @@
-Artículo 16.—De la renuncia al servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante la Municipalidad, si la petición procede, previa inspección y verificación de que el servicio no es necesario, la Municipalidad la ejecutará siempre y cuando cumpla con los siguientes requisitos:
-a) El propietario o su apoderado, poseedor o albacea autorizado del inmueble llenará y firmará el formulario de renuncia al servicio.
-b) Fotocopia de la cédula de identidad del propietario del inmueble. En caso que el propietario sea una persona jurídica deberá presentar certificación de personería jurídica vigente y fotocopia de la cédula de identidad del representante legal.
-c) Estar al día en el pago de los deberes formales y materiales con la Municipalidad.
-d) Pago del importe correspondiente por concepto de desconexión, el cual será el monto que se encuentre vigente al momento de realizar la solicitud.

@@ -1,4 +1,0 @@
-CAPÍTULO II
-Del servicio en general
-Artículo 4º—Del servicio. La Municipalidad prestará el servicio de agua potable, tomando las medidas necesarias para asegurar la operación, mantenimiento, la adecuada calidad del agua potable, mejoras, desarrollo, inversiones y servicio de las deudas. Está obligada a prestar el servicio de agua a todos los propietarios y poseedores de inmuebles construidos, dedicados al trabajo (no industrial) o residencia de personas, ubicados dentro de la jurisdicción del Distrito central del Cantón de Grecia y sus alrededores, cuando las redes del sistema pasen frente a las propiedades y los inmuebles cumplan con todos los requisitos de la leyes nacionales y reglamentos municipales.
-En lo que respecta a la calidad de agua, la Municipalidad seguirá las disposiciones contenidas en el Reglamento para la Calidad del Agua, N° 38924-S. modificado en “La Gaceta” N° 170 del 01 de setiembre de 2015, que es parte integrante del presente Reglamento.

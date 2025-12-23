@@ -1,1 +1,0 @@
-Artículo 21.—De la lectura del hidrómetro. La lectura de los hidrómetros y el cobro se harán mensualmente y se cobrará conforme al volumen. Se autoriza al Departamento de Acueducto a modificar el rol de lectura, según las necesidades municipales.

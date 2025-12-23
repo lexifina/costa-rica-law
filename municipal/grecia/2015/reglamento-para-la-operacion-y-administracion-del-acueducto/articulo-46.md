@@ -1,1 +1,0 @@
-Artículo 46.—Del plazo de la reconexión. La Municipalidad reinstalará el servicio de agua potable en el plazo máximo de 24 horas hábiles, posteriores a la cancelación de lo adeudado o de suscrito el arreglo de pago.

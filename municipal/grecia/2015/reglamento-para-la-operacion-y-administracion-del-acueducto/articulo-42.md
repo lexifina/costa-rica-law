@@ -1,1 +1,0 @@
-Artículo 42. De los cobros administrativos. En cada caso, la Municipalidad procederá a aplicar lo dispuesto en el “Reglamento Procedimiento Cobro Administrativo Judicial y Extrajudicial” de esta Municipalidad.

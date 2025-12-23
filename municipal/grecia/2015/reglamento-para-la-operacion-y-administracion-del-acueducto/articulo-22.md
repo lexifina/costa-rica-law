@@ -1,2 +1,0 @@
-Artículo 22.—Del pago. Del pago del servicio de agua potable será responsable directo el propietario del bien inmueble al cual está conectado.
-En cualquier caso de arrendamiento, el propietario es el responsable directo de velar porque el arrendatario cancele puntualmente el servicio de agua potable, por lo que no es causa justificativa el no pago por parte del arrendatario, cuando el arrendante haya pactado con este último el pago del servicio de agua y no haya cumplido.
