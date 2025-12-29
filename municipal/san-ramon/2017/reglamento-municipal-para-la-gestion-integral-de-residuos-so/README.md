@@ -14,3 +14,4 @@ Reglamento municipal para la gestión integral de residuos sólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-28 | la propia norma |
+| 2 | 2025-12-29 | Reglamento municipal 147 (2025-12-29) |
