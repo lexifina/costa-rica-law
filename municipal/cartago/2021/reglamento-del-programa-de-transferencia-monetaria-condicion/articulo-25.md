@@ -1,2 +1,2 @@
-Artículo 25.-La aprobación de la transferencia monetaria a los beneficiarios se realizará por medio de una resolución administrativa con estricto apego al cumplimiento de los requisitos, condicionalidades y criterios de selección que ha determinado el presente reglamento, deberá aportarse el comprobante de transferencias y entregar a la Secretaria de la CPAS para su archivo y control.
-(Así reformado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 25.—La aprobación de la transferencia monetaria a los beneficiarios se realizará por medio de una resolución administrativa con estricto apego al cumplimiento de los requisitos, condicionalidades y criterios de selección que ha determinado el presente reglamento.
+El Área Administrativa Financiera deberá comunicar a la Secretaria de la CPAS el comprobante de transferencias, para su archivo y control.

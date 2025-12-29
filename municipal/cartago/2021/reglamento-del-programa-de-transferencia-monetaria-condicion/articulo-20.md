@@ -1,1 +1,1 @@
-Artículo 20.-(Derogado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 20.—La municipalidad a través de los miembros de los Concejos de Distrito y del Concejo Municipal, garantizará que los recursos para la ejecución del Programa se giren a las personas beneficiarias oportunamente y velará por que sean utilizados para realizar los estudios académicos para el que calificó.

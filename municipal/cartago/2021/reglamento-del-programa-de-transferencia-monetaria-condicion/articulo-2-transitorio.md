@@ -1,2 +1,0 @@
-Transitorio II.-En el caso de las transferencias monetarias para el año 2022, la Comisión Permanente de Asuntos Sociales deberá recomendar al Concejo Municipal un cronograma del proceso acorde a la realidad que atraviesa el país asociada al COVID-19, y las medidas de la finalización del curso lectivo 2021. Dicho cronograma posteriormente requerirá de una mayoría simple del Concejo Municipal.
-Rige a partir de su publicación.

@@ -1,7 +1,3 @@
-Artículo 35.-Para el control de la ejecución del Programa se utilizarán los siguientes mecanismos:
-a. Formularios de Información del beneficiario, registrados en la base de datos de la Municipalidad.
-b. Método de Puntaje y Valoración social realizada por la persona profesional en Trabajo Social sobre la condición de pobreza.
-c. Comprobación de requisitos con base en la documentación Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE).
-e. Corroboración de informaciones aportadas con los centros de educación superior parauniversitaria y universidades públicas.
-f. Expedientes de beneficiarios.
-(Así reformado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 35.—El personal técnico y administrativo de la Municipalidad de Cartago verificará el cumplimiento de las condicionalidades, emitirá el criterio profesional en cuanto la aprobación, suspensión y revocación de la transferencia monetaria condicionada.
+En todo momento se deberá garantizar la confidencialidad de los datos sensibles de las personas estudiantes y sus familias y prestar el debido cuidado en la manipulación de la información relacionada con las familias.
+En caso de dudas ante consultas de terceros, será siempre su deber consultar con su superior jerárquico inmediato.

@@ -1,2 +1,3 @@
-Artículo 21.-La municipalidad a través de los miembros de los Consejos de Distrito y del Concejo Municipal, garantizará que los recursos para la ejecución del Programa Transferencia Monetaria se giren a las personas beneficiarias oportunamente y velará que sean utilizados para realizar los estudios académicos para el que calificó.
-(Así reformado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 21.—La persona Secretaria de la CPAS entregará a cada síndico propietario (o suplente en el caso de ser designado y comunicado por el propietario) la cantidad de formularios que le corresponde distribuir a su Concejo de Distrito, junto con una lista de las transferencias de continuidad.
+Las transferencias de continuidad para el nuevo curso quedan sujetas a comprobación del cumplimiento de los requisitos establecidos en este reglamento.
+Los miembros del Concejo Municipal podrán referir a las personas que solicitan una beca de estudio para su coordinación con el Concejo de Distrito respectivo, para el trámite.

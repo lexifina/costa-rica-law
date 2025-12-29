@@ -1,2 +1,2 @@
-Artículo 37.-Las Personas competentes de la municipalidad de Cartago verificará las condicionalidades, emitirá el criterio profesional en cuanto la aprobación, suspensión y revocación de la transferencia monetaria condicionada, además deberán prestar el debido cuidado en la manipulación de la información relacionada con las familias, principalmente aquella información en la que se basen para otorgar la transferencia monetaria condicionada. En caso de dudas, ante consultas de terceros, será siempre su deber consultar ante su superior jerárquico inmediato.
-(Así reformado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 37.—Este reglamento deroga cualquier disposición reglamentaria de la Municipalidad de Cartago, en materia de otorgamiento de ayudas para el financiamiento de estudios.
+Rige a partir de la publicación en el Diario Oficial La Gaceta, de acuerdo con lo dispuesto en el artículo 43 del Código Municipal. Publíquese una vez.

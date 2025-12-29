@@ -1,2 +1,7 @@
-Artículo 22.-La Secretaria de la CPAS entregará a cada síndico propietario (o suplente en el caso de ser designado y comunicado por el propietario) la cantidad de formularios que le corresponde distribuir al Consejo de Distrito en su distrito, junto con una lista de las transferencias de continuidad. Las transferencias de continuidad para el nuevo curso quedan sujetas a comprobación del cumplimiento de los requisitos establecidos en este reglamento. Así mismo los miembros del Concejo Municipal podrán referir a las personas para su coordinación con el Consejo de Distrito respectivo, para el trámite.
-(Así reformado mediante acuerdo número 35 del acta 23-2024 del 13 de agosto del 2024)
+Artículo 22.—El síndico trasladará la documentación al Concejo de Distrito que preside, para que ese órgano colegiado realice la Apertura del Proceso de Asignación de Formularios del Programa. De dicho acto se levantará un acta, de la que se entregará una copia para su verificación contra el original, a la Secretaría de la CPAS.
+Cuando en un distrito se puedan asignar nuevos formularios para nuevos beneficiarios, que no correspondan a los asignados regularmente, deberán realizar una convocatoria para participar en el proceso de asignación, que deberá incluir al menos la siguiente información:
+a. Duración de la transferencia monetaria condicionada.
+b. Número de formularios de transferencias que se distribuirán en el distrito.
+c. Requisitos que deben cumplir las personas aspirantes a la transferencia monetaria condicionada.
+d. Lugares y fechas de recepción de documentos y publicación de resultados.
+e. Información sobre la existencia de este Reglamento y que puede ser consultado en la página oficial municipal.

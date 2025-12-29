@@ -1,5 +1,3 @@
-Artículo 30.-Solo se perderá el beneficio de la transferencia monetaria condicionada en los siguientes casos:
-a. Cuando se compruebe que se ha brindado información falsa o se aporte documentación con datos contradictorios.
-b. Cuando la persona beneficiaria pierda la condición de estudiante, entre otras razones porque obtiene calificaciones que hacen imposible la promoción al siguiente nivel, abandona los estudios o pierde la condición de estudiante por razones de conducta.
-c. Cuando se acredite que el mal comportamiento de la persona receptora de la transferencia ha provocado sanciones reiteradas del centro educativo.
-d. Cuando se incumpla cualquiera de los requisitos y obligaciones previstas en este reglamento.
+Artículo 30.—El dictamen de la CPAS para la asignación de las transferencias monetarias anuales será presentado al Concejo Municipal durante la segunda quincena de marzo de cada año, lo que no impide que se incluyan posteriores partidas en presupuestos extraordinarios o modificaciones presupuestarias.
+De acuerdo con la disponibilidad de recursos, a solicitud del Concejo Municipal la CPAS podrá emitir dos dictámenes adicionales para una segunda y tercera distribución durante el ejercicio presupuestario respectivo, siempre respetando lo establecido en el artículo 57, inciso a) del Código Municipal. De existir tres distribuciones al año, se realizarán en el primer semestre de cada año.
+Los acuerdos del Concejo que aprueben estos dictámenes requieren mayoría simple.

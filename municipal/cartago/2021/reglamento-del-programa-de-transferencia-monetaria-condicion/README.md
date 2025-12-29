@@ -17,3 +17,4 @@ Reglamento del programa de transferencia monetaria condicionada de la Municipali
 | 2 | 2023-09-19 | Reglamento municipal 0 (2023-09-19) |
 | 3 | 2023-10-24 | Reglamento municipal 0 (2023-10-24) |
 | 4 | 2024-08-13 | Reglamento municipal 0 (2024-08-13) |
+| 5 | 2025-12-29 | Reglamento municipal 129 (2025-12-29) |
