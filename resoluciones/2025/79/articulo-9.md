@@ -1,0 +1,1 @@
+Artículo 9°.- Oficiosidad. Una vez presentada la denuncia, la persona denunciante podrá desistir en cualquier momento de su solicitud; sin embargo, la Procuraduría de la Ética Pública, podrá -de estimarlo pertinente- continuar de oficio con la investigación. Si se desiste y continúa la investigación, no se comunicará lo resuelto al denunciante.

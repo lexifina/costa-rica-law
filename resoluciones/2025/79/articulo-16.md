@@ -1,0 +1,1 @@
+Artículo 16°.- Recusación. De conformidad con los artículos 230 y 236 de la LGAP y el artículo 12 del CPC, la parte legitimada podrá recusar al Procurador asignado para la investigación, para que sea separado del trámite de la denuncia, mencionando la causa en que se fundamenta e indicando o acompañando la prueba correspondiente.

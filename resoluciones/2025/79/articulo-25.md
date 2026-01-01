@@ -1,0 +1,1 @@
+Artículo 25°.- Rechazo por Inadmisibilidad de las denuncias. De conformidad con el artículo 17 del RLCCEIFP las denuncias podrán ser rechazadas por inadmisibilidad por el Procurador Director y comunicadas a la persona denunciante que haya señalado lugar o medio de notificación.

@@ -1,0 +1,3 @@
+Artículo 5°.- Contenidos adicionales de la denuncia. Para efectos de colaborar con la investigación de la Procuraduría de la Ética Pública, el denunciante podría incluir la siguiente información:
+a) Lugar o medio para recibir notificaciones, de conformidad con el artículo 243 inciso 1) de la Ley General de Administración Pública (LGAP).
+b) Ofrecimiento de prueba en respaldo de la denuncia. En caso de no poder aportar en el acto la prueba documental, indicar el conocimiento sobre su existencia, así como el lugar donde se puede ubicar o persona que la custodia, la identificación y localización de los testigos con la indicación de la temática sobre la que podría testificar.

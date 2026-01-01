@@ -1,0 +1,1 @@
+Artículo 11°.- Conformación del expediente. La PEP deberá documentar en el expediente administrativo las acciones realizadas para la atención de las denuncias y deberá incorporar todos los documentos en orden cronológico y debidamente foliados.

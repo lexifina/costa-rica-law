@@ -1,0 +1,1 @@
+Artículo 23°.- Resolución de admisibilidad En caso de que la denuncia resulte admisible, el Procurador Director emitirá una resolución de admisibilidad, la cual será notificada al denunciante que haya señalado lugar o medio para recibir notificaciones.

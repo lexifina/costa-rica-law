@@ -1,0 +1,4 @@
+CAPÍTULO V
+Fase recursiva
+Artículo 31°.- Recursos. Contra la resolución que dicte el rechazo, archivo o desestimación de la denuncia, cabrá, por parte del denunciante, los recursos de revocatoria y apelación en subsidio, dentro del plazo de tres días hábiles siguientes a la notificación, conforme al régimen de impugnación establecido en el artículo 25 bis RLCCEIFP y los artículos 342 y siguientes de la LGAP.
+Dichos recursos se presentarán ante la PEP. El recurso de revocatoria será conocido y resuelto por el Procurador de la PEP que emitió la resolución, debiendo acompañarse del criterio del Procurador Director en el que conste la valoración de la procedencia o improcedencia de la resolución que propone el Procurador de la PEP. El recurso de Apelación será conocido y resuelto por el Procurador (a) General de la República.

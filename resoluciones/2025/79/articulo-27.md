@@ -1,0 +1,1 @@
+Artículo 27°.- Plazo para la investigación preliminar. El Procurador Director determinará para la investigación preliminar de cada denuncia, un plazo de seis meses de conformidad con el artículo 11 del RLCCIFP. Dicho plazo podrá prorrogarse por seis meses más, a solicitud del Procurador Asignado por razones justificadas, previa autorización del Procurador Director de la PEP.

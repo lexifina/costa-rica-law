@@ -1,0 +1,2 @@
+Artículo 21°.- Plazo para análisis de admisibilidad. De conformidad con artículo 11 del RLCCEIFP el Procurador Director examinará, dentro de un plazo de tres meses, la admisibilidad de la denuncia, dictando el acto respectivo. Dicho plazo podrá ampliarse por razones justificadas y con autorización del Procurador (a) General de la República.
+Las prevenciones al denunciante o solicitudes de información a las instituciones del Estado, suspenderán el plazo de análisis de la admisibilidad.

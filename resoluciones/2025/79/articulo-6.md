@@ -1,0 +1,4 @@
+Artículo 6º.-Formas para la interposición de la denuncia. Las denuncias podrán ser interpuestas por cualquiera de los siguientes medios:
+a) Escrito: Ante la Procuraduría General de la República en la Oficina de Recepción de Documentos ubicada en San José, Avenida 2 y 6, calle 13, a los faxes institucionales 2233-7010 y 2255-0907 o al correo postal 78-1003 La Corte, San José, Costa Rica.
+b) Electrónico: Mediante el formulario denominado "Denuncia en Línea" o mediante la "Ventanilla Electrónica" en la página web de la Procuraduría General de la República www.pgr.go.cr o por correo electrónico rcdnotificacionespj@pgr.go.cr
+c) Verbal: De forma excepcional en las oficinas de la Procuraduría de la Ética Pública, previa coordinación al teléfono 2243-8330, cuando el denunciante manifiesta que tiene una limitación o barrera que le imposibilite presentarla de otra forma.

@@ -1,0 +1,1 @@
+Artículo 28°.-Diligencias. Durante la fase de investigación, el Procurador Asignado en el ejercicio de sus competencias y facultades, tendrá plena independencia para determinar la forma de conducirla, las diligencias a efectuar, así como los medios a utilizar para tales efectos.

@@ -1,0 +1,4 @@
+Artículo 4º.- Contenidos obligatorios de la denuncia. Con el fin de contar con los elementos necesarios para realizar una adecuada valoración, la denuncia deberá contener una descripción clara, precisa y con el detalle necesario de los hechos denunciados, que permita activar una investigación de conformidad con lo dispuesto en los artículos 13 y 16 del RLCCEIFP.
+El denunciante deberá incluir la siguiente información:
+a) Identificación del sujeto (s) denunciado (s), o en su defecto, en caso de desconocerse la identidad, el suministro de datos que permitan su individualización, entre otros: institución en la que labora y cargo o puesto ocupado.
+b) Descripción de los hechos que se consideran irregulares con detalle de modo, tiempo y lugar, es decir, la indicación de cómo, cuándo y dónde sucede.

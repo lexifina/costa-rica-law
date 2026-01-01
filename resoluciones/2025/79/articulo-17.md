@@ -1,0 +1,1 @@
+Artículo 17°.- Decisión sobre la recusación. El Procurador Director de la Ética Pública de conformidad con el artículo 236 de la LGAP resolverá dentro del plazo de cinco días naturales si acepta o no la recusación y procederá a comunicar a la parte gestionante lo resuelto, por acto debidamente motivado.
