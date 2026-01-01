@@ -1,0 +1,2 @@
+Artículo 2 °-Actualización de los tramos de la escala. Para el período fiscal 2026, se actualizan los tramos de la escala establecida en el artículo 5 de la Ley Número 8683 del 19 de noviembre de 2008 y en el artículo 2 del Decreto Ejecutivo Número 44834-H del 06 de diciembre de 2024 publicado en el Alcance número 204 a La Gaceta número 237 del 17 de diciembre de 2024 de la siguiente manera:
+[imagen]
