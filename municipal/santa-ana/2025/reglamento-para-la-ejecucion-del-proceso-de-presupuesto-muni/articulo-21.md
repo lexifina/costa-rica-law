@@ -1,0 +1,1 @@
+Artículo 21.-El Proceso de Promoción Social conformará (con la información y documentación suministrada por cada Concejo de Distrito), un expediente de cada proyecto incorporado a los portafolios distritales, el cual deberá ser trasladado al Proceso de Planificación y Alcaldía, durante la primera semana del mes de julio de cada año.

@@ -1,0 +1,1 @@
+Artículo 11.-Toda solicitud de proyecto será valorada legal y técnicamente por los departamentos correspondientes en el plazo de un mes. En caso de que la administración municipal detecte algún incumplimiento que limite la ejecución del proyecto, será rechazado definitivamente.

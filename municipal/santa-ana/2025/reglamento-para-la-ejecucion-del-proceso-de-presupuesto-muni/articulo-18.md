@@ -1,0 +1,1 @@
+Artículo 18.-Una vez cerrado el periodo de recepción de proyectos distritales, cada propuesta será analizada por el Concejo de Distrito respectivo y deberán priorizar los proyectos según las necesidades de su Distrito, esta priorización se realizará por medio de votación simple.

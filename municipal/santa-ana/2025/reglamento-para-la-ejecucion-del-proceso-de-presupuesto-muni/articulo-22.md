@@ -1,0 +1,1 @@
+Artículo 22.-El Proceso de Promoción Social en el mes de marzo de cada año realizará un informe que contenga como mínimo la información de los proyectos aprobados para cada distrito, además deberá incluir el informe de ejecución presupuestaría del periodo anterior de cada proyecto.

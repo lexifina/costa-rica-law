@@ -1,0 +1,2 @@
+Artículo 17.-Los Concejos de Distrito podrán proponer proyectos como una organización más del distrito.
+En este último supuesto, los Concejos de Distrito interesados podrán presentar de forma conjunta un portafolio de proyectos, solicitar su priorización, así como la utilización del presupuesto destinado a cada distrito para ese proyecto en común. En este caso, la Administración Municipal valorará la solicitud y recomendará lo que corresponda.

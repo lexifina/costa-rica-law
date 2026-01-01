@@ -1,0 +1,4 @@
+CAPÍTULO II
+Normas generales del proceso
+Artículo 5º-La asignación de recursos para ejecutar los proyectos de Presupuesto Municipal Participativo se realizará en el presupuesto ordinario y extraordinarios de cada año, de acuerdo con la priorización realizada para cada uno de los Concejos de Distrito Ampliados y a la disponibilidad presupuestaria; siempre y cuando dichos proyectos no presenten ningún impedimento de orden técnico, legal, financiero o ambiental y respondan a los planes de desarrollo establecidos para el distrito.
+El Presupuesto Municipal Participativo anual será de hasta un 10% y no menor a un 8% del monto total de presupuesto ordinario de cada año, sin considerar ingresos específicos como son recursos de Ley 8114, recursos provenientes de otras instituciones, superávit específico, ingresos por préstamos o cualquier otro ingreso específico que a futuro se incorpore en el presupuesto.

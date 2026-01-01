@@ -1,0 +1,1 @@
+Artículo 15.-Para casos excepcionales en que un proyecto sea de emergencia inminente para el distrito y que no logre cumplir con la totalidad de requisitos en el plazo establecido; el Concejo de Distrito generará un acta, certificación o equivalente, en la que se expongan los motivos del incumplimiento y se justifique su inclusión en el portafolio de proyectos distrital.

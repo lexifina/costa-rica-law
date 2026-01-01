@@ -1,0 +1,1 @@
+Artículo 2º-El presente reglamento aplica para todos los habitantes del cantón (personas físicas y jurídicas) que deseen participar y contribuir en el desarrollo humano del Cantón por medio de la identificación de proyectos enmarcados en el Programa de Presupuesto Municipal Participativo por medio de los grupos formalmente constituidos del cantón.
