@@ -14,3 +14,4 @@ Reforma Reglamento de información financiera, Reglamento de productos de seguro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-01-01 | la propia norma |
+| 2 | 2026-01-01 | Reglamento 1830 (2023-10-30) |

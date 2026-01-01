@@ -2,21 +2,21 @@ CONSEJO NACIONAL DE SUPERVISIÓN FINANCIERA
 El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 7, del acta de la sesión 1682-2021, celebrada el 23 de agosto del 2021, considerando que:
 A. El artículo 25 de La ley Reguladora del Mercado de Seguros (LRMS) como parte de las obligaciones de las entidades aseguradoras y reaseguradoras, establece en lo que interesa, lo siguiente:
 "a) Colaborar y facilitar la supervisión de la Superintendencia.
-(...)
+(.)
 fideicomiso) Acatar las normas técnicas emitidas por el Consejo Nacional de Supervisión o la Superintendencia para la constitución de las provisiones técnicas y reservas, la estimación de riesgos, la custodia y valoración de activos y pasivos.
-(…)
+(.)
 A) Importante Llevar, en forma adecuada, la contabilidad o los registros exigidos legalmente.
-(...)
+(.)
 macroeconómico) Definir políticas de control y procedimientos, establecer sistemas contables, financieros, informáticos, de control interno y de comunicaciones.
-(...)
+(.)
 u) Actualizar los libros de contabilidad o los registros obligatorios.
-(…)"
+(.)"
 Para cumplir con las obligaciones señaladas de previo, el último párrafo de dicho artículo indica que:
 ".el Consejo Nacional y la Superintendencia, según corresponda, podrán emitir la normativa necesaria que determine el contenido de las obligaciones, la periodicidad, las condiciones, los formatos, los términos, la operatividad y, en general, cualquier aspecto necesario para su efectivo cumplimiento, supervisión, verificación y sanción en caso de inobservancia."
 B. El artículo 29 de la LRMS como parte de los objetivos y funciones de la Superintendencia establece lo siguiente:
-"(...) i) Proponer al Consejo Nacional, para su aprobación, la normativa reglamentaria que se requiera para la aplicación de esta Ley y para cumplir sus competencias y funciones. La emisión de nueva normativa deberá otorgar un plazo prudencial a los entes supervisados para ajustarse a las nuevas regulaciones.
+"(.) i) Proponer al Consejo Nacional, para su aprobación, la normativa reglamentaria que se requiera para la aplicación de esta Ley y para cumplir sus competencias y funciones. La emisión de nueva normativa deberá otorgar un plazo prudencial a los entes supervisados para ajustarse a las nuevas regulaciones.
 j) Dictar las demás normas y directrices de carácter técnico u operativo.
-(...)"
+(.)"
 C. El artículo 13 de la LRMS establece lo siguiente:
 ".Las entidades aseguradoras y reaseguradoras deberán constituir y mantener, en todo momento, provisiones técnicas suficientes para garantizar el cumplimiento de sus obligaciones asociadas a sus contratos de seguros y reaseguros, según corresponda. Igualmente, constituirán y mantendrán reservas suficientes para poder afrontar los demás riesgos que puedan afectar el desarrollo del negocio.
 En adición a lo que defina el Consejo Nacional, las entidades solo podrán establecer provisiones y reservas específicas cuando la Superintendencia lo haya autorizado."
@@ -113,21 +113,21 @@ Pasivos por contratos de seguro y reservas de entidades aseguradoras y reasegura
 De conformidad con lo dispuesto en el artículo 14 de la Ley 8653, Ley Reguladora del Mercado de Seguros, las entidades aseguradoras y reaseguradoras deben mantener inversiones en activos elegibles, según los defina el reglamento, que respalden los pasivos por contratos de seguro, las reservas y el requerimiento de capital, las cuales no pueden ser menores al capital mínimo. Dichas provisiones son propiedad de la entidad y deben mantenerse libres de gravámenes, embargos, medidas precautorias o de cualquier otra naturaleza que impidan o dificulten su libre cesión o transferencia.
 iii. Modificar el nombre de las subcuentas 1.020.020.600 a la 1.020.020.750 para que se lean de la siguiente forma:
 "1.020.020.600 Instrumentos financieros del B.C.C.R - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.610 Instrumentos financieros del sector público no financiero del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.620 Instrumentos financieros en entidades del Sistema Bancario Nacional - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.630 Instrumentos financieros en el sector privado no financiero del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.640 Instrumentos financieros en partes relacionadas del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.650 Instrumentos financieros de otras entidades del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.660 Instrumentos financieros de bancos centrales y de entidades del sector público del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.670 Instrumentos financieros en entidades financieras del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.680 Instrumentos financieros en el sector privado no financiero del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.690 Instrumentos financieros en partes relacionadas del exterior - Respaldo reservas pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.700 Instrumentos financieros en otras entidades del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.710 Operaciones de reporto y reporto tripartito posición vendedora a plazo - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(…)1.020.020.720 Derechos contractuales sobre valores por operaciones a plazo-Compromiso de compra - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.730 En títulos de participación de fondos de inversión abiertos - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(...)1.020.020.740 En títulos de participación de fondos de inversión cerrados - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
-(…)1.020.020.750 Otros instrumentos financieros al Valor razonable con cambios en otro resultado integral- Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital"
+(.)1.020.020.610 Instrumentos financieros del sector público no financiero del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.620 Instrumentos financieros en entidades del Sistema Bancario Nacional - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.630 Instrumentos financieros en el sector privado no financiero del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.640 Instrumentos financieros en partes relacionadas del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.650 Instrumentos financieros de otras entidades del país - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.660 Instrumentos financieros de bancos centrales y de entidades del sector público del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.670 Instrumentos financieros en entidades financieras del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.680 Instrumentos financieros en el sector privado no financiero del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.690 Instrumentos financieros en partes relacionadas del exterior - Respaldo reservas pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.700 Instrumentos financieros en otras entidades del exterior - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.710 Operaciones de reporto y reporto tripartito posición vendedora a plazo - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.720 Derechos contractuales sobre valores por operaciones a plazo-Compromiso de compra - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.730 En títulos de participación de fondos de inversión abiertos - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.740 En títulos de participación de fondos de inversión cerrados - Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital (.)
+(.)1.020.020.750 Otros instrumentos financieros al Valor razonable con cambios en otro resultado integral- Respaldo reservas, pasivos por contrato de seguro y requerimientos de capital"
 iv. Eliminar la subcuenta 1.030.080.330 denominada Productos por cobrar por cartera de créditos concedidos por contratos de seguros de vida y sus respectivas cuentas analíticas.
 v. Modificar el nombre del grupo de cuentas 1.040 y su concepto para que se lea de la siguiente manera:
 "CODIGO GRUPO: 1.040
@@ -935,7 +935,7 @@ NOMBRE: GASTO POR ESTIMACIÓN DE DETERIORO DE CARTERA DE CRÉDITOS, COMISIONES, 
 CONCEPTO:
 En esta cuenta se registran las pérdidas por deterioro incurridas durante el ejercicio para las operaciones registradas en el grupo "1.030 Cartera de créditos", "1.040 Comisiones y cuentas por cobrar" y "6.010 Cuentas contingentes deudoras".
 Además, en esta cuenta se registran la estimación genérica y contra cíclica sobre créditos, determinada conforme las disposiciones para la calificación de deudores(.)
-(...)4.050.010.020 Gastos por estimación de deterioro e incobrabilidad de otras cuentas por cobrar
+(.)4.050.010.020 Gastos por estimación de deterioro e incobrabilidad de otras cuentas por cobrar
 CONCEPTO:
 En esta cuenta se registran los gastos por deterioro incurridas durante el ejercicio para las operaciones registradas en el grupo "1.040 Comisiones y cuentas por cobrar."
 xxviii. Eliminar la subcuenta 4.050.010.040 Gastos por estimación de deterioro e incobrabilidad de primas vencidas, y su conceptualización.
@@ -1173,7 +1173,8 @@ CUENTAS ANALÍTICAS
 8.010.090.040.M.020 Seguros Personales
 8.010.090.050 Primas anuladas y devueltas - Seguro directo
 CONCEPTO:
-Corresponde al monto de las primas que fueron emitidas, tanto de este periodo como de periodos anteriores, pero cuyo contrato ha sido anulado en este periodo, por lo que la entidad ya no estará en la obligación de brindar la cobertura contratada.
+Corresponde al monto de las primas que fueron emitidas, tanto de este periodo como de periodos anteriores, pero cuyo contrato ha sido anulado en este periodo, por lo que la entidad ya no estará en la obligación de brindar la cobertura
+contratada.
 CUENTAS ANALÍTICAS
 8.010.090.050.M.010 Seguros Generales - Periodos anteriores
 8.010.090.050.M.020 Seguros Personales - Periodos anteriores
@@ -1395,17 +1396,22 @@ B) Metodología
 B.1 Aportaciones
 Las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica, se constituirán mensualmente con base en la prima de riesgo retenida devengada en cada mes, excluido el recargo de seguridad, en caso de existir. El cálculo se realizará conforme al siguiente procedimiento de cálculo:
 I. En el caso de pólizas anuales e independientemente de la forma de pago de la prima, se calculará al cierre de cada mes, una aportación a la obligación por riesgos catastróficos (𝐴𝑃𝑚), con el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un doceavo de la prima de riesgo retenida (𝑃𝑅𝑅𝑚) de las pólizas en vigor al cierre de dicho mes.
+[imagen]
 II. En el caso de pólizas que tengan una temporalidad inferior o superior a un año, la aportación a la obligación por riesgos catastróficos (𝐴𝑃𝑚) será el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un m-ésimo de la prima de riesgo retenida (𝑃𝑅𝑅𝑚) de las pólizas en vigor al cierre de dicho mes.
+[imagen]
 III. En el caso de pólizas de seguro que operen con cobertura y forma de pago de prima mensual, entendiendo que dicho esquema consiste en que la entidad aseguradora recibe pagos mensuales que cubren únicamente el riesgo y obligaciones del mes, la aportación 𝐴𝑃𝑚 debe ser el 80% de la prima de riesgo retenida correspondiente a las primas emitidas en el mes.
+[imagen]
 Para estos efectos la prima de riesgo retenida de cada póliza no deberá ser una cantidad inferior al 70% de la prima de tarifa retenida de cada póliza. Asimismo, cuando no se tenga conocimiento del valor que tiene la prima de riesgo retenida de las pólizas en vigor, dicha prima de riesgo retenida deberá ser calculada como el 70% de la prima de tarifa retenida de las pólizas en vigor.
 Las entidades deberán mantener en resguardo, el detalle del cálculo de la prima de riesgo retenida devengada mensual que se utilizó para la aportación mensual a la obligación, el cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
 B.2 Rendimientos
 A las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica, deberán sumársele, mensualmente, los rendimientos (𝑅𝑒𝑛𝑑𝑚) que se hayan generado durante el mes, tomando como base para el cálculo, el saldo que tenga dicha obligación al cierre del mes inmediato anterior. Los rendimientos se calcularán utilizando una tasa (i), equivalente a la tasa de rendimiento promedio mensual obtenida por la entidad en ese mes en sus inversiones o en la cartera asignada específicamente a las obligaciones por riesgo catastrófico, si fuera el caso. El cálculo de los intereses en un determinado mes m, deberá realizarse mediante el siguiente procedimiento:
+[imagen]
 𝑂𝑅𝐶𝐴𝑇𝑚?1: Se refiere al monto de las obligaciones por riesgos catastróficos de terremoto y erupción volcánica, al cierre del mes inmediato anterior al mes de valuación.
 𝑆𝑚: Se refiere al monto retenido de los siniestros reportados o ajustes que, en su caso, se hubiesen efectuado en el mes, o a algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo. Para estos efectos, se entenderán como ajustes, los montos complementarios utilizados para incrementar la estimación inicialmente realizada de un siniestro (ajustes de más) o para reconocer el monto en exceso que se produce cuando la provisión inicialmente realizada para el pago de un siniestro es menor al monto realmente pagado (ajuste de menos).
 Las entidades deberán mantener en resguardo, el cálculo y la información con base en la cual se determinó la tasa de rendimiento promedio mensual i, utilizada para calcular los rendimientos mensuales de la obligación, lo cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
 B.3 Cálculo
 Las obligaciones por riesgos catastróficos, al cierre de cada mes deberán determinarse como el monto que resulte de sumar, al saldo de dicha obligación al cierre del mes inmediato anterior, la aportación del mes correspondiente a la prima de riesgo retenida devengada (𝐴𝑃𝑚) y los intereses del mes (𝑅𝑒𝑛𝑑𝑚), restando de dicha suma, el monto retenido de los siniestros o ajustes (𝑆𝑚) que, en su caso, se hubiesen registrado en el mes, es decir:
+[imagen]
 C) Límite máximo
 En las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica el límite máximo de acumulación, el cual se debe revisar al término de cada año y regirá por el siguiente año, se determina como el resultado de aplicar el siguiente criterio técnico:
 Se determinará el monto de la pérdida máxima probable retenida de los seguros de terremoto y erupción volcánica, al cierre del año de que se trate, mediante la metodología y criterios indicados en el Anexo RCS-6 relativo al Cálculo de Requerimiento de Capital de Solvencia por Riesgo Catastrófico, de este Reglamento.
@@ -1416,6 +1422,7 @@ Cuando las obligaciones por riesgos catastróficos de terremoto y erupción volc
 La verificación del límite de la obligación y el ajuste correspondiente en caso de que haya excedente, se realizará hasta el cierre de cada año. No obstante, una entidad podrá solicitar a la Superintendencia autorización para la liberación anticipada, total o parcial, de los excedentes antes del término de cada año, si justifica que tal situación no afectará su solvencia en los próximos tres años, ni llevará a incumplimiento de los requerimientos de capital dispuestos en este Reglamento, de acuerdo con el análisis de sus riesgos y gestión de su capital que se haga con respecto a la liberación, así como la autoevaluación anual de riesgo y solvencia que ordena el Reglamento sobre los Sistemas de Gestión de Riesgos y de Control Interno Aplicables a Entidades Aseguradoras y Reaseguradoras.
 D) Afectaciones
 Las obligaciones por riesgos catastróficos de terremoto y erupción volcánica, sólo se podrán afectar por alguna de las causas indicadas en la sección A) de este anexo, siempre y cuando se cumplan las condiciones para la afectación establecidas en la citada sección A) y la existencia de un registro oficial del evento. En esos casos, el monto de la afectación(𝐴𝑓𝑚) será hasta por el monto de la pérdida técnica ocasionada por la siniestralidad retenida originada por el evento de que se trate, entendiendo como pérdida técnica para estos efectos, la diferencia entre la suma constituida por la aportación correspondiente a la prima de riesgo retenida devengada (𝐴𝑃𝑚) y los rendimientos del mes (𝑅𝑒𝑛𝑑𝑚), y el monto de los siniestros retenidos registrados en dicho mes o algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo (𝑆𝑚).
+[imagen]
 Adicionalmente, a solicitud de la entidad, previo análisis de las circunstancias y autorización por parte de la Superintendencia, las obligaciones por riesgos catastróficos de terremoto y erupción volcánica se podrán afectar para cubrir pérdidas originadas por eventos catastróficos distintos al de terremoto y erupción volcánica, que hayan producido perdidas extraordinarias que pongan en riesgo la solvencia y liquidez de la entidad. En estos casos la entidad someterá a autorización ante la Superintendencia, un programa de reconstitución del monto afectado, con base en las utilidades que tenga la entidad en los siguientes años, en los otros ramos y tipos de seguros, mediante aportaciones adicionales a las aportaciones provenientes de los seguros de terremoto y erupción volcánica.
 Asimismo, la propia Superintendencia, ante la ocurrencia de alguna contingencia grave en territorio nacional, declarada como estado de emergencia por el Poder Ejecutivo vía decreto ejecutivo, que afecte al mercado asegurador, podrá determinar mediante disposiciones de carácter general, la afectación automática de la obligación, para el pago de siniestros, sin que para esos efectos se requiera previa autorización.
 Cuando las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica sea afectada por algunas de las causas previstas en la sección A) de este anexo, no será obligatorio reponer el saldo dispuesto, y las entidades deberán realizar la reconstitución de dicha obligación, partiendo del saldo remanente y mediante las aportaciones y los rendimientos determinados conforme a lo establecido en la sección B) del presente anexo.
@@ -1429,6 +1436,7 @@ Cuando una entidad determine dejar de operar los seguros de terremoto y erupció
 CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO GENERAL DE ACTIVOS
 El requerimiento de capital de solvencia por riesgo de los activos corresponde a la suma lineal de los siguientes riesgos:
+[imagen]
 Donde:
 𝑅𝐶𝑆𝑟𝑔𝑎 : Requerimiento de capital por riesgo general de activos.
 𝑅𝑚𝑒𝑟 : Requerimiento de capital por riesgo de mercado.
@@ -1486,6 +1494,9 @@ La SUGESE podrá autorizar, de forma razonada, dicha suspensión sujeta a las co
 CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE SEGUROS PERSONALES
 El requerimiento de capital por riesgo de seguros personales corresponde a la suma del requerimiento de capital asociado a los capitales en riesgo y los requerimientos derivados de los pasivos de seguros de los seguros personales.
+[imagen]
+[imagen]
+[imagen]
 Donde:
 RCS Sp = Requerimiento de capital de solvencia de seguros personales total para todos los ramos
 ?𝑖 = la suma del requerimiento de capital para cada uno de los ramos, donde "i" identifica a cada uno de los ramos en los que la entidad tiene registrado productos.
@@ -1508,6 +1519,7 @@ CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA RIESGO DE
 SEGUROS GENERALES
 El requerimiento de capital de solvencia de seguros generales es la suma del requerimiento de capital asociado al pasivo de seguros.
 El requerimiento se calcula por ramo multiplicando el respectivo pasivo a la fecha de cálculo según la siguiente fórmula:
+[imagen]
 Donde:
 RCS Sg = Requerimiento de capital de solvencia de seguros generales total para todos los ramos
 ?𝑖 = la suma del requerimiento de capital para cada uno de los ramos, donde "i" identifica a cada uno de los ramos en los que la entidad tiene registrado productos.
@@ -1531,6 +1543,7 @@ RCS RMcon = requerimiento de capital de solvencia por reaseguro mantenido, por r
 Para efectos de este requerimiento se considera la calificación de riesgo internacional de los reaseguradores extranjeros, y la calificación local de los reaseguradores autorizados para operar como entidades de reaseguro en Costa Rica, bajo la supervisión de la SUGESE.
 Requerimiento de capital por Riesgo de Crédito del Reasegurador
 El requerimiento de capital por riesgo de crédito del reasegurador, se calcula de la siguiente forma:
+[imagen]
 Donde:
 RCS RMcto = requerimiento de capital de solvencia por riesgo de crédito.
 ?𝑖 = la suma del requerimiento de capital para cada reasegurador.
@@ -1567,7 +1580,9 @@ Las entidades aseguradoras para cumplir con lo indicado en el artículo 21bis de
 X. Derogar el artículo 41 y los Anexos PT-1, PT-2, PT-3, PT-4, PT-5 y PT-6 del Reglamento sobre la Solvencia de Entidades de Seguro y Reaseguro
 XI. Emitir las siguientes disposiciones finales, respecto a la vigencia de los cambios citados de previo.
 Disposición Final I
-Las reformas al Reglamento sobre la Solvencia de Entidades de Seguro y Reaseguro y al Reglamento sobre el Registro de Productos de Seguro relacionadas con la adopción de la NIIF 17 entran a regir a partir del 1° de enero de 2024. No obstante, en cuanto al Transitorio XIII adicionado al Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros en la disposición IX de este acuerdo su vigencia será a partir de su aprobación.
+Las reformas al Reglamento sobre la Solvencia de Entidades de Seguro y Reaseguro y al Reglamento sobre el Registro de Productos de Seguro relacionadas con la adopción de la NIIF 17 entran a regir a partir del 1° de enero de 2026. No obstante, en cuanto al Transitorio XIV adicionado al Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros en la disposición IX de este acuerdo su vigencia será a partir de su aprobación.
+(Así reformada la disposición anterior mediante sesión N° 1830-2023 del 30 de octubre del 2023)
 Disposición Final II
-Las reformas al Reglamento de Información Financiera entran en vigor a partir del 1° de enero del 2024. Sin embargo, para que las entidades de seguros puedan realizar los comparativos señalados en el transitorio de la disposición III de este acuerdo, las entidades supervisadas por la SUGESE deberán ajustar sus políticas contables a partir del 1° de enero de 2023 de conformidad con las consideraciones de la NIIF 17, a efectos de contar con información suficiente para la realización de los comparativos durante el 2024.
+Las reformas al Reglamento de Información Financiera entran en vigor a partir del 1° de enero de 2026. Sin embargo, para que las entidades de seguros puedan realizar los comparativos señalados en el transitorio de la disposición III de este acuerdo, las entidades supervisadas por la SUGESE deberán ajustar sus políticas contables a partir del 1° de enero de 2025 de conformidad con las consideraciones de la NIIF 17, a efectos de contar con información suficiente para la realización de los comparativos durante el 2026. Además, se faculta a la SUGESE a establecer, de forma previa a esta fecha, los requerimientos de información paralela que permitan la adopción de la NIIF 17 en los plazos establecidos.
+(Así reformada la disposición anterior mediante sesión N° 1830-2023 del 30 de octubre del 2023)
 Rige a partir de su publicación en el diario oficial La Gaceta.
