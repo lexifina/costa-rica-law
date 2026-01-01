@@ -1,0 +1,1 @@
+Artículo 10.- Deróguese el Decreto Ejecutivo N° 44451-COMEX del 26 de febrero de 2024, denominado: "Ajuste de los Umbrales de Contratación Pública establecidos en diferentes tratados y acuerdos comerciales internacionales vigentes en Costa Rica, para el periodo comprendido del 01 de enero de 2024 y hasta el 31 de diciembre de 2025".
