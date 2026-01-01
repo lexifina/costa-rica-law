@@ -1,5 +1,5 @@
-Artículo 10.- Fíjase un impuesto específico de cero coma cuatro colones (¢0,4) por cada mililitro de alcohol absoluto a favor del Inder, sobre la cerveza nacional y extranjera. Igualmente, se fija un impuesto específico de (cero coma dos ocho cinco uno dos colones ¢ 0,28512 (**) por cada mililitro de alcohol absoluto, a favor del Instituto de Fomento y Asesoría Municipal (IFAM)(*) sobre la cerveza nacional y extranjera.
-(**) (Así actualizado el impuesto anterior por el artículo 1 y 2 de la resolución N° DE-RE-A-29-2025 del 29 de agosto de 2025, "Establece monto de ¢ 0.28512 (cero coma dos ocho cinco uno dos colones) al impuesto específico otorgado a favor del IFAM que regirá a partir del 01 de octubre del 2025".)
+Artículo 10.- Fíjase un impuesto específico de cero coma cuatro colones (¢0,4) por cada mililitro de alcohol absoluto a favor del Inder, sobre la cerveza nacional y extranjera. Igualmente, se fija un impuesto específico de cero coma dos ocho tres ocho nueve colones ¢ 0,28389(**) por cada mililitro de alcohol absoluto, a favor del Instituto de Fomento y Asesoría Municipal (IFAM)(*) sobre la cerveza nacional y extranjera.
+(**) (Así actualizado el impuesto anterior por el artículo 1 y 2 de la resolución N° DE-RE-A-41-2025 del 24 de noviembre de 2025, "Establece monto de ¢ 0,28389 (cero coma dos ocho tres ocho nueve colones) al impuesto específico otorgado a favor del IFAM que regirá a partir del 01 de enero del 2026".)
 (*) (Mediante resolución N° 017-2013 del 25 de noviembre del 2013, se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
 Cálculo para el primer trimestre de 2014 (enero a marzo)
 | octubre-2013 | julio-2013
@@ -16,3 +16,4 @@ Para aplicar estos impuestos, se entenderá por venta cualquier acto que involuc
 Asimismo, se entenderá por importación el ingreso al territorio nacional, una vez cumplidos los trámites legales de los productos sujetos a estos impuestos.
 Se exceptúa del pago de este impuesto el producto destinado a la exportación.
 (Así reformado por el inciso a) del artículo 37 de la ley N° 9036 del 11 de mayo del 2012 "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER)")
+0,28389 ()
