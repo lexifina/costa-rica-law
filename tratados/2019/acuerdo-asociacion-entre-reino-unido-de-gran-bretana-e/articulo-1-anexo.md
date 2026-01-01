@@ -234,6 +234,20 @@ RESERVAS SOBRE PERSONAL CLAVE Y APRENDICES GRADUADOS (TITULADOS EN PRÁCTICAS) D
 CONTRATACIÓN PÚBLICA
 (a) A la entrada en vigor del presente Acuerdo, el Reino Unido proporcionará a las Repúblicas de la Parte CA detalles de los medios para la publicación de avisos del Reino Unido a los que se hace referencia en los apéndices 2 y 3 del presente Anexo.
 (b) En el apéndice 1, las entidades correspondientes a países específicos que no forman parte del presente Acuerdo o a la Unión Europea no se incorporan al presente Acuerdo.
+(Nota de Sinalevi: Mediante el artículo 8 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció que el valor de los umbrales, tomando para tales efectos la suma de un dólar con treinta y siete centavos (USD 1,37) por Derechos Especiales de Giro (DEG) y quinientos dieciséis colones con cuarenta y tres céntimos (¢516,43) por dólar estadounidense será:
+b) Para el Acuerdo que establece una asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro; el Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos; y el Acuerdo por el que se establece una asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica:
+Tipo de contratación | Derechos especiales de giro | Equivalente en Colones
+Instituciones de gobierno central
+Mercancías y Servicios. | 130.000 | 89.432.214,49
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Instituciones de sector subcentral
+Mercancías y Servicios. | 355.000 | 244.218.739,58
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Otras instituciones
+Lista A: Mercancías y Servicios. | 200.000 | 137.588.022,30
+Lista B: Mercancías y Servicios. | 400.000 | 275.176.044,60
+Lista A y Lista B: Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+")
 27. MODIFICACIONES AL ANEXO XVII
 LISTA DE NOMBRES PARA LOS QUE SE SOLICITA PROTECCIÓN COMO INDICACIONES GEOGRÁFICAS EN EL TERRITORIO DE LAS PARTES
 El Anexo XVII se sustituye por:
@@ -279,9 +293,9 @@ Las Partes reconocen que, de conformidad con el Título VII de la parte IV del A
 DECLARACIÓN CONJUNTA SOBRE EL FORO DE DIÁLOGO DE LA SOCIEDAD CIVIL
 Las Partes reiteran el compromiso del artículo 295 del Acuerdo Incorporado de facilitar un Foro birregional de Diálogo de la Sociedad Civil para un diálogo abierto, con una representación equilibrada de los actores medioambientales, económicos y sociales.
 En apoyo de y no obstante su compromiso compartido con el desarrollo sostenible, tal y como se establece en el Título VIII del Acuerdo Incorporado, las Partes reconocen la importancia de garantizar que el Foro de Diálogo sobre la Sociedad Civil se desarrolle de la forma más eficiente posible. Las Partes están comprometidos a trabajar juntas para identificar formas de conseguir este objetivo, que incluyen pero no se limitan a:
-• identificar ubicaciones para reuniones que contribuyan a garantizar la eficiencia de los viajes;
-• explorar el uso de soluciones tecnológicas para facilitar la asistencia remota; y
-• acordar el calendario y la frecuencia de las reuniones con el debido cuidado y basándose en la disponibilidad de los participantes.
+. identificar ubicaciones para reuniones que contribuyan a garantizar la eficiencia de los viajes;
+. explorar el uso de soluciones tecnológicas para facilitar la asistencia remota; y
+. acordar el calendario y la frecuencia de las reuniones con el debido cuidado y basándose en la disponibilidad de los participantes.
 Las Partes continuarán evaluando el funcionamiento de este sistema a través de la Junta de Comercio y Desarrollo Sostenible establecida en virtud del artículo 294 del Acuerdo Incorporado, en apoyo de su compromiso compartido con el desarrollo sostenible.
 DECLARACIÓN CONJUNTA SOBRE OBSTÁCULOS TÉCNICOS AL COMERCIO
 En apoyo de las disposiciones sobre la Integración Económica Regional del Título IX del Acuerdo Incorporado, las Partes hacen la siguiente declaración:

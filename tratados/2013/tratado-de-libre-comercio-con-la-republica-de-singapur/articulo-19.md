@@ -46,7 +46,7 @@ De conformidad con las disposiciones establecidas en el Artículo 4.12 (Solicitu
 7. País de origen;
 8. Criterio de origen cumplido por la(s) mercancía(s) según el Artículo 3.2 (Mercancías Originarias) del Capítulo 3 (Reglas de Origen), incluyendo, de ser el caso, el detalle del cambio en la clasificación arancelaria o el valor de contenido calificador cumplido por la(s) mercancía(s);
 9. Declaración del exportador o productor indicando:
-“Por medio de la presente declaramos que los detalles y declaraciones proporcionados en esta certificación son verdaderos y correctos”; y
+"Por medio de la presente declaramos que los detalles y declaraciones proporcionados en esta certificación son verdaderos y correctos"; y
 10. Fecha, firma, nombre y cargo del exportador o productor que firma la Certificación de Origen.
 Anexo 8.1
 Listas de Contratación Pública
@@ -89,6 +89,7 @@ Notas al Apéndice 1:
 1.Ministerio de Gobernación y Policía y Seguridad Pública: Este Capítulo no cubre la contratación de mercancías clasificadas bajo la Sección 2 (productos alimenticios, bebidas y tabaco; textiles, prendas de vestir y productos de cuero) del Clasificación Central de Productos de las Naciones Unidas 1.0 (CPC, versión 1.0), para la Fuerza Pública.
 2.Ministerio de Hacienda: Este Capítulo no cubre la emisión de timbres fiscales.
 3.Ministerio de Educación Pública: Este Capítulo no cubre contrataciones realizadas en fomento de programas de alimentación escolares.
+(Nota de Sinalevi: Mediante el artículo 9 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció Que para el caso de las contrataciones cubiertas por el Anexo 8.1 del Capítulo Ocho "Contratación Pública" del Tratado de Libre Comercio entre la República de Costa Rica y la República de Singapur, la conversión a moneda local se realizará considerando el tipo de cambio diario de los Derechos Especiales de Giro (DEG) respecto al dólar, puestos a disposición por el Fondo Monetario Internacional y el tipo de cambio oficial del dólar según datos del Banco Central de Costa Rica.)
 Apéndice 2
 Entidades de Gobierno a Nivel Subcentral que realizan contrataciones de
 conformidad con las disposiciones de este Tratado
@@ -365,7 +366,7 @@ Lista de Entidades:
 3. Building and Construction Authority
 4. Economic Development Board
 5. Housing and Development Board
-6. Info–communications Development Authority of Singapore
+6. Info-communications Development Authority of Singapore
 7. Inland Revenue Authority of Singapore
 8. International Enterprise Singapore
 9. Land Transport Authority of Singapore
@@ -444,7 +445,7 @@ Avisos de contratación futura para el Instituto Costarricense de Electricidad (
 The Government Electronic Business (GeBIZ) (http://www.gebiz.gov.sg)
 Anexo 10.1
 Servicios de Telecomunicaciones1
-1Servicios de telecomunicaciones” incluye redes públicas de transporte de telecomunicaciones y servicios públicos de transporte de telecomunicaciones. Para Costa Rica, los términos “redes públicas de transporte de telecomunicaciones” o “servicios públicos de transporte de telecomunicaciones” se refieren a “redes públicas de telecomunicaciones” o “servicios de telecomunicaciones disponibles al público”, respectivamente.
+1Servicios de telecomunicaciones" incluye redes públicas de transporte de telecomunicaciones y servicios públicos de transporte de telecomunicaciones. Para Costa Rica, los términos "redes públicas de transporte de telecomunicaciones" o "servicios públicos de transporte de telecomunicaciones" se refieren a "redes públicas de telecomunicaciones" o "servicios de telecomunicaciones disponibles al público", respectivamente.
 Este Anexo establece los principios regulatorios aplicables a los servicios de telecomunicaciones, distintos a la distribución por cable o radiodifusión de programas de radio o de televisión2.
 2Para mayor certeza, este Anexo no crea derechos u obligaciones de acceso a los mercados.
 Nada en este Anexo se interpretará en el sentido de:

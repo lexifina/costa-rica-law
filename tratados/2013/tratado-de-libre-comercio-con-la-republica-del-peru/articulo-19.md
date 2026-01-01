@@ -373,7 +373,20 @@ Toda la información concerniente a las contrataciones públicas se encuentra pu
 Sección I: Fórmula de Ajuste de Umbrales
 1. Las Partes calcularán y convertirán el valor de los umbrales a sus respectivas monedas nacionales utilizando las tasas de conversión de los valores diarios de las respectivas monedas nacionales en términos de DEG, publicadas mensualmente por el FMI en las "Estadísticas Financieras Internacionales", sobre un período de dos (2) años anterior al 1º de octubre o al 1º de noviembre del año previo a que los umbrales se hagan efectivos, que será a partir del 1º de enero del año siguiente, iniciando el 1º de enero de 2012.
 3. Las Partes se notificarán mutuamente, en sus respectivas monedas nacionales, sobre el valor de los nuevos umbrales calculados a más tardar un mes antes de que dichos umbrales surtan efecto. Los umbrales expresados en sus respectivas monedas nacionales serán fijados para un período de dos (2) años calendario.
-4.
+(Nota de Sinalevi: Mediante el artículo 8 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció que el valor de los umbrales, tomando para tales efectos la suma de un dólar con treinta y siete centavos (USD 1,37) por Derechos Especiales de Giro (DEG) y quinientos dieciséis colones con cuarenta y tres céntimos (¢516,43) por dólar estadounidense será:
+a) Para el Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República del Perú:
+Tipo de contratación | Derechos especiales de giro | Equivalente en Colones
+Instituciones de gobierno central
+Mercancías y Servicios. | 95.000 | 65.354.197,78
+Servicios construcción. | 5.000.000 | 3.439.694.619,90
+Instituciones de sector subcentral
+Mercancías y Servicios. | 355.000 | 244.218.318,01
+Servicios construcción. | 5.000.000 | 3.439.694.619,90
+Otras instituciones
+Lista A: Mercancías y Servicios. | 160.000 | 110 070 227,84
+Lista B: Mercancías y Servicios. | 400.000 | 275 175 569,59
+Lista A y Lista B: Servicios de construcción. | 5.000.000 |
+*)
 Anexo I: Medidas Disconformes
 Nota Explicativa
 1. La Lista de una Parte a este Anexo establece, de conformidad con el Artículo 12.7 (Medidas Disconformes) y el Artículo 13.7 (Medidas Disconformes), los aspectos disconformes de las medidas existentes de una Parte que no están sujetas a alguna o todas las obligaciones impuestas por:
