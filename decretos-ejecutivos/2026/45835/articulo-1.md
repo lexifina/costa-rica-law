@@ -1,0 +1,16 @@
+N° 45835-MTSS
+LA PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En ejercicio de las potestades conferidas en el artículo 140, incisos 3), 18) y 20) y el artículo 146 de la Constitución Política y los artículos 25 inciso 1, 27 inciso 1 y 28 párrafo segundo inciso b) de la Ley N° 6227 Ley General de la Administración Pública; y los artículos 6 y 9 de la Ley N° 832 Ley de Salarios Mínimos y Creación del Consejo Nacional de Salarios del 4 de noviembre de 1949.
+Considerando:
+I.—Que, el artículo 6 de la Ley N° 832 Ley de Salarios Mínimos y Creación del Consejo Nacional de Salarios del 4 de noviembre de 1949, otorga al Poder Ejecutivo la facultad de realizar el nombramiento de los miembros del Consejo Nacional de Salarios.
+II.—Que, debido a que el 31 de diciembre de 2025, vencieron los nombramientos de los directores del Consejo Nacional de Salarios, se procedió con la publicación del aviso previsto en el artículo 6 de la Ley N° 832 del 04 de noviembre de 1949, a través de la divulgación en La Gaceta N° 216 del 17 de noviembre del 2025, solicitando a todas las asociaciones, cámaras patronales, organizaciones y sindicatos del país, la nómina de los candidatos para ocupar los cargos de directores propietarios y suplentes del Consejo Nacional de Salarios.
+III.—Que, presentadas las nóminas por parte de los Sectores Empleador y de los Trabajadores, se procede a la elección de los directores propietarios y suplentes del Consejo Nacional de Salarios, según el artículo 6 de la Ley N° 832 del 04 de noviembre de 1949.
+IV.—Que, de conformidad con la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley N° 8220 y su Reglamento, Decreto Ejecutivo N° 37045-MP-MEIC y sus reformas, se determina que este Decreto, no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central. Por tanto,
+Decretan:
+CONFORMACIÓN DEL CONSEJO NACIONAL
+DE SALARIOS PARA EL PERÍODO 2026-2029
+Artículo 1°—Nombrar como directores propietarios y suplentes del Consejo Nacional de Salarios, para el período del 1º de enero del 2026 al 31 de diciembre de 2029, a las siguientes personas:
+a) Representantes del Sector Empleador: en condición de propietarios a Martín Calderón Chaves; cédula de identidad 1-1067-0093; Marco Durante Calvo; cédula de identidad 3-0326-0949, Kattia Benavides Morales; cédula de identidad 1-1118-0186; y como director suplente a Frank Cerdas Núñez; cédula de identidad 3-0419-0585.
+b) Representantes del Sector de los Trabajadores: en condición de propietarios a Edgar Morales Quesada; cédula de identidad 1-0468-0584, Dalis Ramírez Zamora; cédula de identidad 4-0182-0648, Dennis Cabezas Badilla; cédula de identidad 9-0045-0939; y como directora suplente Sonia Arrieta Mora; cédula de identidad 1-0654-0234.
+c) Representantes del Sector Estatal: en condición de propietarios a Sandra Mongalo Chan conocida como Sandra Mongalo Chang; cédula de identidad 1-0518- 0944, Eduardo Prado Zúñiga; cédula de identidad 1-0632-0114; Luis Fernando Salazar Alvarado; cédula de identidad 1-0484-0686, y como directora suplente Valeria Bejarano Campos; cédula de identidad 3-0502- 0172.
