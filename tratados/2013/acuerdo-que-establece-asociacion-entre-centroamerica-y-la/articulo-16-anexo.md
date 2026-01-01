@@ -1,10 +1,10 @@
 ANEXO XVI
-(Nota de Sinalevi: Mediante el aparte 26) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se indica que a la entrada en vigor del presente Acuerdo, el Reino Unido proporcionará a las Repúblicas de la Parte CA detalles de los medios para la publicación de avisos del Reino Unido a los que se hace referencia en los apéndices 2 y 3 del presente Anexo.)
+(Nota de Sinalevi: Mediante el aparte 26) sub aparte a) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019", se indica que a la entrada en vigor del presente Acuerdo, el Reino Unido proporcionará a las Repúblicas de la Parte CA detalles de los medios para la publicación de avisos del Reino Unido a los que se hace referencia en los apéndices 2 y 3 del presente Anexo.)
 CONTRATACIÓN PÚBLICA
 APÉNDICE 1(*)
 COBERTURA
 SECCIÓN A
-(*) (Nota de Sinalevi: Mediante el aparte 26) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, “Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019”, se establece que en el apéndice 1, las entidades correspondientes a países específicos que no forman parte del presente Acuerdo o a la Unión Europea no se incorporan al presente Acuerdo anteriormente refrido.)
+(*) (Nota de Sinalevi: Mediante el aparte 26) sub aparte b) del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019", se establece que en el apéndice 1, las entidades correspondientes a países específicos que no forman parte del presente Acuerdo o a la Unión Europea no se incorporan al presente Acuerdo anteriormente refrido.)
 ENTIDADES DE GOBIERNO CENTRAL QUE CONTRATAN DE CONFORMIDAD
 CON LAS DISPOSICIONES DEL TÍTULO V DE LA PARTE IV DEL PRESENTE
 ACUERDO
@@ -368,2109 +368,2109 @@ Invaliditeitsverzekering;
 Fond des Maladies professionnelles; Fonds voor Beroepsziekten;
 Office national de l'Emploi; Rijksdienst voor Arbeidsvoorziening
 Bulgaria
-– Администрация на Народното събрание
-– Aдминистрация на Президента
-– Администрация на Министерския съвет
-– Конституционен съд
-– Българска народна банка
-– Министерство на външните работи
-– Министерство на вътрешните работи
-– Министерство на държавната администрация и административната реформа
-– Министерство на извънредните ситуации
-– Министерство на земеделието и храните
-– Министерство на здравеопазването
-– Министерство на икономиката и енергетиката
-– Министерство на културата
-– Министерство на образованието и науката
-– Министерство на околната среда и водите
-– Министерство на отбраната
-– Министерство на правосъдието
-– Министерство на регионалното развитие и благоустройството
-– Министерство на транспорта
-– Министерство на труда и социалната политика
-– Министерство на финансите
+- Администрация на Народното събрание
+- Aдминистрация на Президента
+- Администрация на Министерския съвет
+- Конституционен съд
+- Българска народна банка
+- Министерство на външните работи
+- Министерство на вътрешните работи
+- Министерство на държавната администрация и административната реформа
+- Министерство на извънредните ситуации
+- Министерство на земеделието и храните
+- Министерство на здравеопазването
+- Министерство на икономиката и енергетиката
+- Министерство на културата
+- Министерство на образованието и науката
+- Министерство на околната среда и водите
+- Министерство на отбраната
+- Министерство на правосъдието
+- Министерство на регионалното развитие и благоустройството
+- Министерство на транспорта
+- Министерство на труда и социалната политика
+- Министерство на финансите
 Agencias estatales, comisiones estatales, agencias ejecutivas y otras autoridades estatales establecidas por ley o por decreto del Consejo de Ministros que tengan función relacionada con el ejercicio del poder ejecutivo:
-– Агенция за ядрено регулиране
-– Висшата атестационна комисия
-– Държавна комисия за енергийно и водно регулиране
-– Държавна комисия по сигурността на информацията
-– Комисия за защита на конкуренцията
-– Комисия за защита на личните данни
-– Комисия за защита от дискриминация
-– Комисия за регулиране на съобщенията
-– Комисия за финансов надзор
-– Патентно ведомство на Република България
-– Сметна палата на Република България
-– Агенция за приватизация
-– Агенция за следприватизационен контрол
-– Български институт по метрология
-– Държавна агенция "Архиви"
-– Държавна агенция "Държавен резерв и военновременни запаси"
-– Държавна агенция "Национална сигурност"
-– Държавна агенция за бежанците
-– Държавна агенция за българите в чужбина
-– Държавна агенция за закрила на детето
-– Държавна агенция за информационни технологии и съобщения
-– Държавна агенция за метрологичен и технически надзор
-– Държавна агенция за младежта и спорта
-– Държавна агенция по горите
-– Държавна агенция по туризма
-– Държавна комисия по стоковите борси и тържища
-– Институт по публична администрация и европейска интеграция
-– Национален статистически институт
-– Национална агенция за оценяване и акредитация
-– Националната агенция за професионално образование и обучение
-– Национална комисия за борба с трафика на хора
-– Агенция "Митници"
-– Агенция за държавна и финансова инспекция
-– Агенция за държавни вземания
-– Агенция за социално подпомагане
-– Агенция за хората с увреждания
-– Агенция по вписванията
-– Агенция по геодезия, картография и кадастър
-– Агенция по енергийна ефективност
-– Агенция по заетостта
-– Агенция по обществени поръчки
-– Българска агенция за инвестиции
-– Главна дирекция "Гражданска въздухоплавателна администрация"
-– Дирекция "Материално-техническо осигуряване и социално обслужване" на Министерство на вътрешните работи Дирекция "Оперативно издирване" на Министерство на вътрешните работи
-– Дирекция "Финансово-ресурсно осигуряване" на Министерство на вътрешните работи
-– Дирекция за национален строителен контрол
-– Държавна комисия по хазарта
-– Изпълнителна агенция "Автомобилна администрация"
-– Изпълнителна агенция "Борба с градушките"
-– Изпълнителна агенция "Българска служба за акредитация"
-– Изпълнителна агенция "Военни клубове и информация"
-– Изпълнителна агенция "Главна инспекция по труда"
-– Изпълнителна агенция "Държавна собственост на Министерството на отбраната"
-– Изпълнителна агенция "Железопътна администрация"
-– Изпълнителна агенция "Изпитвания и контролни измервания на въоръжение, техника и имущества"
-– Изпълнителна агенция "Морска администрация"
-– Изпълнителна агенция "Национален филмов център"
-– Изпълнителна агенция "Пристанищна администрация"
-– Изпълнителна агенция "Проучване и поддържане на река Дунав"
-– Изпълнителна агенция "Социални дейности на Министерството на отбраната"
-– Изпълнителна агенция за икономически анализи и прогнози
-– Изпълнителна агенция за насърчаване на малките и средни предприятия
-– Изпълнителна агенция по лекарствата
-– Изпълнителна агенция по лозата и виното
-– Изпълнителна агенция по околна среда
-– Изпълнителна агенция по почвените ресурси
-– Изпълнителна агенция по рибарство и аквакултури
-– Изпълнителна агенция по селекция и репродукция в животновъдството
-– Изпълнителна агенция по сортоизпитване, апробация и семеконтрол
-– Изпълнителна агенция по трансплантация
-– Изпълнителна агенция по хидромелиорации
-– Комисията за защита на потребителите
-– Контролно-техническата инспекция
-– Национален център за информация и документация
-– Национален център по радиобиология и радиационна защита
-– Национална агенция за приходите
-– Национална ветеринарномедицинска служба
-– Национална служба "Полиция"
-– Национална служба "Пожарна безопасност и защита на населението"
-– Национална служба за растителна защита
-– Национална служба за съвети в земеделието
-– Национална служба по зърното и фуражите
-– Служба "Военна информация"
-– Служба "Военна полиция"
-– Фонд "Републиканска пътна инфраструктура"
-– Авиоотряд 28
+- Агенция за ядрено регулиране
+- Висшата атестационна комисия
+- Държавна комисия за енергийно и водно регулиране
+- Държавна комисия по сигурността на информацията
+- Комисия за защита на конкуренцията
+- Комисия за защита на личните данни
+- Комисия за защита от дискриминация
+- Комисия за регулиране на съобщенията
+- Комисия за финансов надзор
+- Патентно ведомство на Република България
+- Сметна палата на Република България
+- Агенция за приватизация
+- Агенция за следприватизационен контрол
+- Български институт по метрология
+- Държавна агенция "Архиви"
+- Държавна агенция "Държавен резерв и военновременни запаси"
+- Държавна агенция "Национална сигурност"
+- Държавна агенция за бежанците
+- Държавна агенция за българите в чужбина
+- Държавна агенция за закрила на детето
+- Държавна агенция за информационни технологии и съобщения
+- Държавна агенция за метрологичен и технически надзор
+- Държавна агенция за младежта и спорта
+- Държавна агенция по горите
+- Държавна агенция по туризма
+- Държавна комисия по стоковите борси и тържища
+- Институт по публична администрация и европейска интеграция
+- Национален статистически институт
+- Национална агенция за оценяване и акредитация
+- Националната агенция за професионално образование и обучение
+- Национална комисия за борба с трафика на хора
+- Агенция "Митници"
+- Агенция за държавна и финансова инспекция
+- Агенция за държавни вземания
+- Агенция за социално подпомагане
+- Агенция за хората с увреждания
+- Агенция по вписванията
+- Агенция по геодезия, картография и кадастър
+- Агенция по енергийна ефективност
+- Агенция по заетостта
+- Агенция по обществени поръчки
+- Българска агенция за инвестиции
+- Главна дирекция "Гражданска въздухоплавателна администрация"
+- Дирекция "Материално-техническо осигуряване и социално обслужване" на Министерство на вътрешните работи Дирекция "Оперативно издирване" на Министерство на вътрешните работи
+- Дирекция "Финансово-ресурсно осигуряване" на Министерство на вътрешните работи
+- Дирекция за национален строителен контрол
+- Държавна комисия по хазарта
+- Изпълнителна агенция "Автомобилна администрация"
+- Изпълнителна агенция "Борба с градушките"
+- Изпълнителна агенция "Българска служба за акредитация"
+- Изпълнителна агенция "Военни клубове и информация"
+- Изпълнителна агенция "Главна инспекция по труда"
+- Изпълнителна агенция "Държавна собственост на Министерството на отбраната"
+- Изпълнителна агенция "Железопътна администрация"
+- Изпълнителна агенция "Изпитвания и контролни измервания на въоръжение, техника и имущества"
+- Изпълнителна агенция "Морска администрация"
+- Изпълнителна агенция "Национален филмов център"
+- Изпълнителна агенция "Пристанищна администрация"
+- Изпълнителна агенция "Проучване и поддържане на река Дунав"
+- Изпълнителна агенция "Социални дейности на Министерството на отбраната"
+- Изпълнителна агенция за икономически анализи и прогнози
+- Изпълнителна агенция за насърчаване на малките и средни предприятия
+- Изпълнителна агенция по лекарствата
+- Изпълнителна агенция по лозата и виното
+- Изпълнителна агенция по околна среда
+- Изпълнителна агенция по почвените ресурси
+- Изпълнителна агенция по рибарство и аквакултури
+- Изпълнителна агенция по селекция и репродукция в животновъдството
+- Изпълнителна агенция по сортоизпитване, апробация и семеконтрол
+- Изпълнителна агенция по трансплантация
+- Изпълнителна агенция по хидромелиорации
+- Комисията за защита на потребителите
+- Контролно-техническата инспекция
+- Национален център за информация и документация
+- Национален център по радиобиология и радиационна защита
+- Национална агенция за приходите
+- Национална ветеринарномедицинска служба
+- Национална служба "Полиция"
+- Национална служба "Пожарна безопасност и защита на населението"
+- Национална служба за растителна защита
+- Национална служба за съвети в земеделието
+- Национална служба по зърното и фуражите
+- Служба "Военна информация"
+- Служба "Военна полиция"
+- Фонд "Републиканска пътна инфраструктура"
+- Авиоотряд 28
 República Checa
-– Ministerstvo dopravy
-– Ministerstvo financí
-– Ministerstvo kultury
-– Ministerstvo obrany
-– Ministerstvo pro místní rozvoj
-– Ministerstvo práce a sociálních věcí
-– Ministerstvo průmyslu a obchodu
-– Ministerstvo spravedlnosti
-– Ministerstvo ńkolství, mládeņe a tělovýchovy
-– Ministerstvo vnitra
-– Ministerstvo zahraničních věcí
-– Ministerstvo zdravotnictví
-– Ministerstvo zemědělství
-– Ministerstvo ņivotního prostředí
-– Poslanecká sněmovna PČR
-– Senát PČR
-– Kancelář prezidenta
-– Český statistický úřad
-– Český úřad zeměměřičský a katastrální
-– Úřad průmyslového vlastnictví
-– Úřad pro ochranu osobních údajů
-– Bezpečnostní informační sluņba
-– Národní bezpečnostní úřad
-– Česká akademie věd
-– Vězeňská sluņba
-– Český báňský úřad
-– Úřad pro ochranu hospodářské soutěņe
-– Správa státních hmotných rezerv
-– Státní úřad pro jadernou bezpečnost
-– Česká národní banka
-– Energetický regulační úřad
-– Úřad vlády České republiky
-– Ústavní soud
-– Nejvyńńí soud
-– Nejvyńńí správní soud
-– Nejvyńńí státní zastupitelství
-– Nejvyńńí kontrolní úřad
-– Kancelář Veřejného ochránce práv
-– Grantová agentura České republiky
-– Státní úřad inspekce práce
-– Český telekomunikační úřad
+- Ministerstvo dopravy
+- Ministerstvo financí
+- Ministerstvo kultury
+- Ministerstvo obrany
+- Ministerstvo pro místní rozvoj
+- Ministerstvo práce a sociálních věcí
+- Ministerstvo průmyslu a obchodu
+- Ministerstvo spravedlnosti
+- Ministerstvo ńkolství, mládeņe a tělovýchovy
+- Ministerstvo vnitra
+- Ministerstvo zahraničních věcí
+- Ministerstvo zdravotnictví
+- Ministerstvo zemědělství
+- Ministerstvo ņivotního prostředí
+- Poslanecká sněmovna PČR
+- Senát PČR
+- Kancelář prezidenta
+- Český statistický úřad
+- Český úřad zeměměřičský a katastrální
+- Úřad průmyslového vlastnictví
+- Úřad pro ochranu osobních údajů
+- Bezpečnostní informační sluņba
+- Národní bezpečnostní úřad
+- Česká akademie věd
+- Vězeňská sluņba
+- Český báňský úřad
+- Úřad pro ochranu hospodářské soutěņe
+- Správa státních hmotných rezerv
+- Státní úřad pro jadernou bezpečnost
+- Česká národní banka
+- Energetický regulační úřad
+- Úřad vlády České republiky
+- Ústavní soud
+- Nejvyńńí soud
+- Nejvyńńí správní soud
+- Nejvyńńí státní zastupitelství
+- Nejvyńńí kontrolní úřad
+- Kancelář Veřejného ochránce práv
+- Grantová agentura České republiky
+- Státní úřad inspekce práce
+- Český telekomunikační úřad
 Dinamarca
-– Folketinget
+- Folketinget
 Rigsrevisionen
-– Statsministeriet
-– Udenrigsministeriet
-– Beskæftigelsesministeriet
+- Statsministeriet
+- Udenrigsministeriet
+- Beskæftigelsesministeriet
 5 styrelser og institutioner (5 agencias e instituciones)
-– Domstolsstyrelsen
-– Finansministeriet
+- Domstolsstyrelsen
+- Finansministeriet
 5 styrelser og institutioner (5 agencias e instituciones)
-– Forsvarsministeriet
+- Forsvarsministeriet
 5 styrelser og institutioner (5 agencias e instituciones)
-– Ministeriet for Sundhed og Forebyggelse
+- Ministeriet for Sundhed og Forebyggelse
 Adskillige styrelser og institutioner, herunder Statens Serum Institut (Varias agencias
 e instituciones, incluyendo el Statens Serum Institut)
-– Justitsministeriet
+- Justitsministeriet
 Rigspolitichefen, anklagemyndigheden samt 1 direktorat og et antal styrelser
 (Comisionado de Policía, el fiscal, 1 dirección y un número de agencias)
-– Kirkeministeriet
+- Kirkeministeriet
 10 stiftsøvrigheder (10 autoridades diocesanas)
-– Kulturministeriet — Ministerio de Cultura
+- Kulturministeriet - Ministerio de Cultura
 4 styrelser samt et antal statsinstitutioner (4 departmentos y un número de
 instituciones)
-– Miljøministeriet
+- Miljøministeriet
 5 styrelser (5 agencias)
-– Ministeriet for Flygtninge, Invandrere og Integration
+- Ministeriet for Flygtninge, Invandrere og Integration
 1 styrelse (1 agencia)
-– Ministeriet for Fødevarer, Landbrug og Fiskeri
+- Ministeriet for Fødevarer, Landbrug og Fiskeri
 4 direktoraterog institutioner (4 direcciones e instituciones)
-– Ministeriet for Videnskab, Teknologi og Udvikling
+- Ministeriet for Videnskab, Teknologi og Udvikling
 Adskillige styrelser og institutioner, Forskningscenter Risø og Statens
 uddannelsesbygninger (Varias agencias e instituciones, incluyendo el Laboratorio
 Nacional Risoe y los Edificios Daneses Nacionales de Educación e Investigación)
-– Skatteministeriet
+- Skatteministeriet
 1 styrelse og institutioner (1 agencia y varias instituciones)
-– Velfærdsministeriet
+- Velfærdsministeriet
 3 styrelser og institutioner (3 agencias y varias instituciones)
-– Transportministeriet
+- Transportministeriet
 7 styrelser og institutioner, herunder Øresundsbrokonsortiet (7 agencias e
 instituciones, incluyendo Øresundsbrokonsortiet)
-– Undervisningsministeriet
+- Undervisningsministeriet
 3 styrelser, 4 undervisningsinstitutioner og 5 andre institutioner (3 agencias, 4
 establecimientos educativos y otras 5 instituciones)
-– Økonomi- og Erhvervsministeriet
+- Økonomi- og Erhvervsministeriet
 Adskilligestyrelser og institutioner (Varias agencias e instituciones)
-– Klima- og Energiministeriet
+- Klima- og Energiministeriet
 3 styrelse og institutioner (3 agencias e instituciones)
 Alemania
-– Auswärtiges Amt
-– Bundeskanzleramt
-– Bundesministerium für Arbeit und Soziales
-– Bundesministerium für Bildung und Forschung
-– Bundesministerium für Ernährung, Landwirtschaft und Verbraucherschutz
-– Bundesministerium der Finanzen
-– Bundesministerium des Innern (sólo mercancías civiles)
-– Bundesministerium für Gesundheit
-– Bundesministerium für Familie, Senioren, Frauen und Jugend
-– Bundesministerium der Justiz
-– Bundesministerium für Verkehr, Bau und Stadtentwicklung
-– Bundesministerium für Wirtschaft und Technologie
-– Bundesministerium für wirtschaftliche Zusammenarbeit und Entwicklung
-– Bundesministerium der Verteidigung (no mercancías militares)
-– Bundesministerium für Umwelt, Naturschutz und Reaktorsicherheit
+- Auswärtiges Amt
+- Bundeskanzleramt
+- Bundesministerium für Arbeit und Soziales
+- Bundesministerium für Bildung und Forschung
+- Bundesministerium für Ernährung, Landwirtschaft und Verbraucherschutz
+- Bundesministerium der Finanzen
+- Bundesministerium des Innern (sólo mercancías civiles)
+- Bundesministerium für Gesundheit
+- Bundesministerium für Familie, Senioren, Frauen und Jugend
+- Bundesministerium der Justiz
+- Bundesministerium für Verkehr, Bau und Stadtentwicklung
+- Bundesministerium für Wirtschaft und Technologie
+- Bundesministerium für wirtschaftliche Zusammenarbeit und Entwicklung
+- Bundesministerium der Verteidigung (no mercancías militares)
+- Bundesministerium für Umwelt, Naturschutz und Reaktorsicherheit
 Estonia
-– Vabariigi Presidendi Kantselei
-– Eesti Vabariigi Riigikogu
-– Eesti Vabariigi Riigikohus
-– Riigikontroll
-– Õiguskantsler
-– Riigikantselei
-– Rahvusarhiiv
-– Haridus- ja Teadusministeerium
-– Justiitsministeerium
-– Kaitseministeerium
-– Keskkonnaministeerium
-– Kultuuriministeerium
-– Majandus- ja Kommunikatsiooniministeerium
-– Põllumajandusministeerium
-– Rahandusministeerium
-– Siseministeerium
-– Sotsiaalministeerium
-– Välisministeerium
-– Keeleinspektsioon
-– Riigiprokuratuur
-– Teabeamet
-– Maa-amet
-– Keskkonnainspektsioon
-– Metsakaitse- ja Metsauuenduskeskus
-– Muinsuskaitseamet
-– Patendiamet
-– Tarbijakaitseamet
-– Riigihangete Amet
-– Taimetoodangu Inspektsioon
-– Põllumajanduse Registrite ja Informatsiooni Amet
-– Veterinaar- ja Toiduamet
-– Konkurentsiamet
-– Maksu –ja Tolliamet
-– Statistikaamet
-– Kaitsepolitseiamet
-– Kodakondsus- ja Migratsiooniamet
-– Piirivalveamet
-– Politseiamet
-– Eesti Kohtuekspertiisi Instituut
-– Keskkriminaalpolitsei
-– Päästeamet
-– Andmekaitse Inspektsioon
-– Ravimiamet
-– Sotsiaalkindlustusamet
-– Tööturuamet
-– Tervishoiuamet
-– Tervisekaitseinspektsioon
-– Tööinspektsioon
-– Lennuamet
-– Maanteeamet
-– Veeteede Amet
-– Julgestuspolitsei
-– Kaitseressursside Amet
-– Kaitseväe Logistikakeskus
-– Tehnilise Järelevalve Amet
-– President's Establishment
-– Houses of the Oireachtas (Parlamento)
-– Department of theTaoiseach (Primer Ministro)
-– Central Statistics Office
-– Department of Finance
-– Office of the Comptroller and Auditor General
-– Office of the Revenue Commissioners
-– Office of Public Works
-– State Laboratory
-– Office of the Attorney General
-– Office of the Director of Public Prosecutions
-– Valuation Office
-– Office of the Commission for Public Service Appointments
-– Public Appointments Service
-– Office of the Ombudsman
-– Chief State Solicitor's Office
-– Department of Justice, Equality and Law Reform
-– Courts Service
-– Prisons Service
-– Office of the Commissioners of Charitable Donations and Bequests
-– Department of the Environment, Heritage and Local Government
-– Department of Education and Science
-– Department of Communications, Energy and Natural Resources
-– Department of Agriculture, Fisheries and Food
-– Department of Transport
-– Department of Health and Children
-– Department of Enterprise, Trade and Employment
-– Department of Arts, Sports and Tourism
-– Department of Defence
-– Department of Foreign Affairs
-– Department of Social and Family Affairs
-– Department of Community, Rural and Gaeltacht Affairs (regiones de habla galesa)
-– Arts Council
-– National Gallery.
+- Vabariigi Presidendi Kantselei
+- Eesti Vabariigi Riigikogu
+- Eesti Vabariigi Riigikohus
+- Riigikontroll
+- Õiguskantsler
+- Riigikantselei
+- Rahvusarhiiv
+- Haridus- ja Teadusministeerium
+- Justiitsministeerium
+- Kaitseministeerium
+- Keskkonnaministeerium
+- Kultuuriministeerium
+- Majandus- ja Kommunikatsiooniministeerium
+- Põllumajandusministeerium
+- Rahandusministeerium
+- Siseministeerium
+- Sotsiaalministeerium
+- Välisministeerium
+- Keeleinspektsioon
+- Riigiprokuratuur
+- Teabeamet
+- Maa-amet
+- Keskkonnainspektsioon
+- Metsakaitse- ja Metsauuenduskeskus
+- Muinsuskaitseamet
+- Patendiamet
+- Tarbijakaitseamet
+- Riigihangete Amet
+- Taimetoodangu Inspektsioon
+- Põllumajanduse Registrite ja Informatsiooni Amet
+- Veterinaar- ja Toiduamet
+- Konkurentsiamet
+- Maksu -ja Tolliamet
+- Statistikaamet
+- Kaitsepolitseiamet
+- Kodakondsus- ja Migratsiooniamet
+- Piirivalveamet
+- Politseiamet
+- Eesti Kohtuekspertiisi Instituut
+- Keskkriminaalpolitsei
+- Päästeamet
+- Andmekaitse Inspektsioon
+- Ravimiamet
+- Sotsiaalkindlustusamet
+- Tööturuamet
+- Tervishoiuamet
+- Tervisekaitseinspektsioon
+- Tööinspektsioon
+- Lennuamet
+- Maanteeamet
+- Veeteede Amet
+- Julgestuspolitsei
+- Kaitseressursside Amet
+- Kaitseväe Logistikakeskus
+- Tehnilise Järelevalve Amet
+- President's Establishment
+- Houses of the Oireachtas (Parlamento)
+- Department of theTaoiseach (Primer Ministro)
+- Central Statistics Office
+- Department of Finance
+- Office of the Comptroller and Auditor General
+- Office of the Revenue Commissioners
+- Office of Public Works
+- State Laboratory
+- Office of the Attorney General
+- Office of the Director of Public Prosecutions
+- Valuation Office
+- Office of the Commission for Public Service Appointments
+- Public Appointments Service
+- Office of the Ombudsman
+- Chief State Solicitor's Office
+- Department of Justice, Equality and Law Reform
+- Courts Service
+- Prisons Service
+- Office of the Commissioners of Charitable Donations and Bequests
+- Department of the Environment, Heritage and Local Government
+- Department of Education and Science
+- Department of Communications, Energy and Natural Resources
+- Department of Agriculture, Fisheries and Food
+- Department of Transport
+- Department of Health and Children
+- Department of Enterprise, Trade and Employment
+- Department of Arts, Sports and Tourism
+- Department of Defence
+- Department of Foreign Affairs
+- Department of Social and Family Affairs
+- Department of Community, Rural and Gaeltacht Affairs (regiones de habla galesa)
+- Arts Council
+- National Gallery.
 Grecia
-– ΤπνπξγƂίν ΔƃωƄƂξηθώλ
-– ΤπνπξγƂίν ΔμωƄƂξηθώλ
-– ΤπνπξγƂίν Οηθνλνκίƀο θƀη Οηθνλνκηθώλ
-– ΤπνπξγƂίν ΑλάπƄπμεο
-– ΤπνπξγƂίν Γηθƀηνƃύλεο
-– ΤπνπξγƂίν Δζληθήο ΠƀηƁƂίƀο θƀη žξεƃθƂπκάƄωλ
-– ΤπνπξγƂίν ΠνιηƄηƃκνύ
-– ΤπνπξγƂίν ΤγƂίƀο θƀη Κνηλωληθήο ΑιιειƂγγύεο
-– ΤπνπξγƂίν ΠƂξηβάιινλƄνο, ΥωξνƄƀμίƀο θƀη Γεκνƃίωλ Έξγωλ;
-– ΤπνπξγƂίν Απƀƃρόιεƃεο θƀη Κνηλωληθήο ΠξνƃƄƀƃίƀο
-– ΤπνπξγƂίν ΜƂƄƀƅνξώλ θƀη Δπηθνηλωληώλ
-– ΤπνπξγƂίν ΑγξνƄηθήο ΑλάπƄπμεο θƀη Σξνƅίκωλ
-– ΤπνπξγƂίν Δκπνξηθήο ΝƀπƄηιίƀο, Αηγƀίνπ θƀη ΝεƃηωƄηθήο ΠνιηƄηθήο
-– ΤπνπξγƂίν ΜƀθƂƁνλίƀο- žξάθεο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Δπηθνηλωλίƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Δλεκέξωƃεο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Νέƀο ŽƂληάο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ ΙƃόƄεƄƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
-– ŽƂληθή ŽξƀκκƀƄƂίƀ ΑπόƁεκνπ Διιεληƃκνύ
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Βηνκερƀλίƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ ΈξƂπλƀο θƀη ΣƂρλνινγίƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ ΑζιεƄηƃκνύ
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Γεκνƃίωλ Έξγωλ
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Δζληθήο ΢ƄƀƄηƃƄηθήο ΤπεξƂƃίƀο ΔιιάƁνο
-– Δζληθό ΢πκβνύιην Κνηλωληθήο ſξνλƄίƁƀο
-– Οξγƀληƃκόο ΔξγƀƄηθήο ΚƀƄνηθίƀο
-– Δζληθό ΣππνγξƀƅƂίν
-– ŽƂληθό ΥεκƂίν Ƅνπ ΚξάƄνπο
-– ΣƀκƂίν Δζληθήο ΟƁνπνηίƀο
-– Δζληθό ΚƀπνƁηƃƄξηƀθό ΠƀλƂπηƃƄήκην Αζελώλ
-– ΑξηƃƄνƄέιƂην ΠƀλƂπηƃƄήκην žƂƃƃƀινλίθεο
-– ΓεκνθξίƄƂην ΠƀλƂπηƃƄήκην žξάθεο
-– ΠƀλƂπηƃƄήκην Αηγƀίνπ
-– ΠƀλƂπηƃƄήκην Ιωƀλλίλωλ
-– ΠƀλƂπηƃƄήκην ΠƀƄξώλ
-– ΠƀλƂπηƃƄήκην ΜƀθƂƁνλίƀο
-– ΠνιπƄƂρλƂίν ΚξήƄεο
-– ΢ηβηƄƀλίƁƂηνο Γεκόƃηƀ ΢ρνιή ΣƂρλώλ θƀη ΔπƀγγƂικάƄωλ
-– ΑηγηλήƄƂην ΝνƃνθνκƂίν
-– ΑξƂƄƀίƂην ΝνƃνθνκƂίν
-– Δζληθό ΚέλƄξν Γεκόƃηƀο Γηνίθεƃεο
-– Οξγƀληƃκόο ΓηƀρƂίξηƃεο Γεκνƃίνπ Τιηθνύ
-– Οξγƀληƃκόο ŽƂωξγηθώλ ΑƃƅƀιίƃƂωλ
-– Οξγƀληƃκόο ΢ρνιηθώλ ΚƄηξίωλ
-– ŽƂληθό ΔπηƄƂιƂίν ΢ƄξƀƄνύ
-– ŽƂληθό ΔπηƄƂιƂίν ΝƀπƄηθνύ
-– ŽƂληθό ΔπηƄƂιƂίν ΑƂξνπνξίƀο
-– Διιεληθή ΔπηƄξνπή ΑƄνκηθήο ΔλέξγƂηƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ ΔθπƀίƁƂπƃεο Δλειίθωλ
-– ΤπνπξγƂίν Δζληθήο Άκπλƀο
-– ŽƂληθή ŽξƀκκƀƄƂίƀ Δκπνξίνπ
+- ΤπνπξγƂίν ΔƃωƄƂξηθώλ
+- ΤπνπξγƂίν ΔμωƄƂξηθώλ
+- ΤπνπξγƂίν Οηθνλνκίƀο θƀη Οηθνλνκηθώλ
+- ΤπνπξγƂίν ΑλάπƄπμεο
+- ΤπνπξγƂίν Γηθƀηνƃύλεο
+- ΤπνπξγƂίν Δζληθήο ΠƀηƁƂίƀο θƀη zξεƃθƂπκάƄωλ
+- ΤπνπξγƂίν ΠνιηƄηƃκνύ
+- ΤπνπξγƂίν ΤγƂίƀο θƀη Κνηλωληθήο ΑιιειƂγγύεο
+- ΤπνπξγƂίν ΠƂξηβάιινλƄνο, ΥωξνƄƀμίƀο θƀη Γεκνƃίωλ Έξγωλ;
+- ΤπνπξγƂίν Απƀƃρόιεƃεο θƀη Κνηλωληθήο ΠξνƃƄƀƃίƀο
+- ΤπνπξγƂίν ΜƂƄƀƅνξώλ θƀη Δπηθνηλωληώλ
+- ΤπνπξγƂίν ΑγξνƄηθήο ΑλάπƄπμεο θƀη Σξνƅίκωλ
+- ΤπνπξγƂίν Δκπνξηθήο ΝƀπƄηιίƀο, Αηγƀίνπ θƀη ΝεƃηωƄηθήο ΠνιηƄηθήο
+- ΤπνπξγƂίν ΜƀθƂƁνλίƀο- zξάθεο
+- ZƂληθή ZξƀκκƀƄƂίƀ Δπηθνηλωλίƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ Δλεκέξωƃεο
+- ZƂληθή ZξƀκκƀƄƂίƀ Νέƀο ZƂληάο
+- ZƂληθή ZξƀκκƀƄƂίƀ ΙƃόƄεƄƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
+- ZƂληθή ZξƀκκƀƄƂίƀ ΑπόƁεκνπ Διιεληƃκνύ
+- ZƂληθή ZξƀκκƀƄƂίƀ Βηνκερƀλίƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ ΈξƂπλƀο θƀη ΣƂρλνινγίƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ ΑζιεƄηƃκνύ
+- ZƂληθή ZξƀκκƀƄƂίƀ Γεκνƃίωλ Έξγωλ
+- ZƂληθή ZξƀκκƀƄƂίƀ Δζληθήο ΢ƄƀƄηƃƄηθήο ΤπεξƂƃίƀο ΔιιάƁνο
+- Δζληθό ΢πκβνύιην Κνηλωληθήο ſξνλƄίƁƀο
+- Οξγƀληƃκόο ΔξγƀƄηθήο ΚƀƄνηθίƀο
+- Δζληθό ΣππνγξƀƅƂίν
+- ZƂληθό ΥεκƂίν Ƅνπ ΚξάƄνπο
+- ΣƀκƂίν Δζληθήο ΟƁνπνηίƀο
+- Δζληθό ΚƀπνƁηƃƄξηƀθό ΠƀλƂπηƃƄήκην Αζελώλ
+- ΑξηƃƄνƄέιƂην ΠƀλƂπηƃƄήκην zƂƃƃƀινλίθεο
+- ΓεκνθξίƄƂην ΠƀλƂπηƃƄήκην zξάθεο
+- ΠƀλƂπηƃƄήκην Αηγƀίνπ
+- ΠƀλƂπηƃƄήκην Ιωƀλλίλωλ
+- ΠƀλƂπηƃƄήκην ΠƀƄξώλ
+- ΠƀλƂπηƃƄήκην ΜƀθƂƁνλίƀο
+- ΠνιπƄƂρλƂίν ΚξήƄεο
+- ΢ηβηƄƀλίƁƂηνο Γεκόƃηƀ ΢ρνιή ΣƂρλώλ θƀη ΔπƀγγƂικάƄωλ
+- ΑηγηλήƄƂην ΝνƃνθνκƂίν
+- ΑξƂƄƀίƂην ΝνƃνθνκƂίν
+- Δζληθό ΚέλƄξν Γεκόƃηƀο Γηνίθεƃεο
+- Οξγƀληƃκόο ΓηƀρƂίξηƃεο Γεκνƃίνπ Τιηθνύ
+- Οξγƀληƃκόο ZƂωξγηθώλ ΑƃƅƀιίƃƂωλ
+- Οξγƀληƃκόο ΢ρνιηθώλ ΚƄηξίωλ
+- ZƂληθό ΔπηƄƂιƂίν ΢ƄξƀƄνύ
+- ZƂληθό ΔπηƄƂιƂίν ΝƀπƄηθνύ
+- ZƂληθό ΔπηƄƂιƂίν ΑƂξνπνξίƀο
+- Διιεληθή ΔπηƄξνπή ΑƄνκηθήο ΔλέξγƂηƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ ΔθπƀίƁƂπƃεο Δλειίθωλ
+- ΤπνπξγƂίν Δζληθήο Άκπλƀο
+- ZƂληθή ZξƀκκƀƄƂίƀ Δκπνξίνπ
 España
-– Presidencia de Gobierno
-– Ministerio de Asuntos Exteriores y de Cooperación
-– Ministerio de Justicia
-– Ministerio de Defensa
-– Ministerio de Economía y Hacienda
-– Ministerio del Interior
-– Ministerio de Fomento
-– Ministerio de Educación, Política Social y Deportes
-– Ministerio de Industria, Turismo y Comercio
-– Ministerio de Trabajo e Inmigración
-– Ministerio de la Presidencia
-– Ministerio de Administraciones Públicas
-– Ministerio de Cultura
-– Ministerio de Sanidad y Consumo
-– Ministerio de Medio Ambiente y Medio Rural y Marino
-– Ministerio de Vivienda
-– Ministerio de Ciencia e Innovación
-– Ministerio de Igualdad
+- Presidencia de Gobierno
+- Ministerio de Asuntos Exteriores y de Cooperación
+- Ministerio de Justicia
+- Ministerio de Defensa
+- Ministerio de Economía y Hacienda
+- Ministerio del Interior
+- Ministerio de Fomento
+- Ministerio de Educación, Política Social y Deportes
+- Ministerio de Industria, Turismo y Comercio
+- Ministerio de Trabajo e Inmigración
+- Ministerio de la Presidencia
+- Ministerio de Administraciones Públicas
+- Ministerio de Cultura
+- Ministerio de Sanidad y Consumo
+- Ministerio de Medio Ambiente y Medio Rural y Marino
+- Ministerio de Vivienda
+- Ministerio de Ciencia e Innovación
+- Ministerio de Igualdad
 Francia
 (1) Ministerios
-– Services du Premier ministre
-– Ministère chargé de la santé, de la jeunesse et des sports
-– Ministère chargé de l'intérieur, de l'outre-mer et des collectivités territoriales
-– Ministère chargé de la justice
-– Ministère chargé de la défense
-– Ministère chargé des affaires étrangères et européennes
-– Ministère chargé de l'éducation nationale
-– Ministère chargé de l'économie, des finances et de l'emploi
-– Secrétariat d'Etat aux transports
-– Secrétariat d'Etat aux entreprises et au commerce extérieur
-– Ministère chargé du travail, des relations sociales et de la solidarité
-– Ministère chargé de la culture et de la communication
-– Ministère chargé du budget, des comptes publics et de la fonction publique
-– Ministère chargé de l'agriculture et de la pêche
-– Ministère chargé de l'enseignement supérieur et de la recherche
-– Ministère chargé de l'écologie, du développement et de l'aménagement durables
-– Secrétariat d'Etat à la fonction publique
-– Ministère chargé du logement et de la ville
-– Secrétariat d'Etat à la coopération et à la francophonie
-– Secrétariat d'Etat à l'outre-mer
-– Secrétariat d'Etat à la jeunesse, des sports et de la vie associative
-– Secrétariat d'Etat aux anciens combattants
-– Ministère chargé de l'immigration, de l'intégration, de l'identité nationale et du
+- Services du Premier ministre
+- Ministère chargé de la santé, de la jeunesse et des sports
+- Ministère chargé de l'intérieur, de l'outre-mer et des collectivités territoriales
+- Ministère chargé de la justice
+- Ministère chargé de la défense
+- Ministère chargé des affaires étrangères et européennes
+- Ministère chargé de l'éducation nationale
+- Ministère chargé de l'économie, des finances et de l'emploi
+- Secrétariat d'Etat aux transports
+- Secrétariat d'Etat aux entreprises et au commerce extérieur
+- Ministère chargé du travail, des relations sociales et de la solidarité
+- Ministère chargé de la culture et de la communication
+- Ministère chargé du budget, des comptes publics et de la fonction publique
+- Ministère chargé de l'agriculture et de la pêche
+- Ministère chargé de l'enseignement supérieur et de la recherche
+- Ministère chargé de l'écologie, du développement et de l'aménagement durables
+- Secrétariat d'Etat à la fonction publique
+- Ministère chargé du logement et de la ville
+- Secrétariat d'Etat à la coopération et à la francophonie
+- Secrétariat d'Etat à l'outre-mer
+- Secrétariat d'Etat à la jeunesse, des sports et de la vie associative
+- Secrétariat d'Etat aux anciens combattants
+- Ministère chargé de l'immigration, de l'intégration, de l'identité nationale et du
 co-développement
-– Secrétariat d'Etat en charge de la prospective et de l'évaluation des politiques publiques
-– Secrétariat d'Etat aux affaires européennes,
-– Secrétariat d'Etat aux affaires étrangères et aux droits de l'homme
-– Secrétariat d'Etat à la consommation et au tourisme
-– Secrétariat d'Etat à la politique de la ville
-– Secrétariat d'Etat à la solidarité
-– Secrétariat d'Etat en charge de l'industrie et de la consommation
-– Secrétariat d'Etat en charge de l'emploi
-– Secrétariat d'Etat en charge du commerce, de l'artisanat, des PME, du tourisme et
+- Secrétariat d'Etat en charge de la prospective et de l'évaluation des politiques publiques
+- Secrétariat d'Etat aux affaires européennes,
+- Secrétariat d'Etat aux affaires étrangères et aux droits de l'homme
+- Secrétariat d'Etat à la consommation et au tourisme
+- Secrétariat d'Etat à la politique de la ville
+- Secrétariat d'Etat à la solidarité
+- Secrétariat d'Etat en charge de l'industrie et de la consommation
+- Secrétariat d'Etat en charge de l'emploi
+- Secrétariat d'Etat en charge du commerce, de l'artisanat, des PME, du tourisme et
 des services
-– Secrétariat d'Etat en charge de l'écologie
-– Secrétariat d'Etat en charge du développement de la région-capitale
-– Secrétariat d'Etat en charge de l'aménagement du territoire
+- Secrétariat d'Etat en charge de l'écologie
+- Secrétariat d'Etat en charge du développement de la région-capitale
+- Secrétariat d'Etat en charge de l'aménagement du territoire
 (2) Instituciones, autoridades independientes y jurisdicciones
-– Présidence de la République
-– Assemblée Nationale
-– Sénat
-– Conseil constitutionnel
-– Conseil économique et social
-– Conseil supérieur de la magistrature
-– Agence française contre le dopage
-– Autorité de contrôle des assurances et des mutuelles
-– Autorité de contrôle des nuisances sonores aéroportuaires
-– Autorité de régulation des communications électroniques et des postes
-– Autorité de sûreté nucléaire
-– Autorité indépendante des marchés financiers
-– Comité national d'évaluation des établissements publics à caractère scientifique, culturel et professionnel
-– Commission d'accès aux documents administratifs
-– Commission consultative du secret de la défense nationale
-– Commission nationale des comptes de campagne et des financements politiques
-– Commission nationale de contrôle des interceptions de sécurité
-– Commission nationale de déontologie de la sécurité
-– Commission nationale du débat public
-– Commission nationale de l'informatique et des libertés
-– Commission des participations et des transferts
-– Commission de régulation de l'énergie
-– Commission de la sécurité des consommateurs
-– Commission des sondages
-– Commission de la transparence financière de la vie politique
-– Conseil de la concurrence
-– Conseil des ventes volontaires de meubles aux enchères publiques
-– Conseil supérieur de l'audiovisuel
-– Défenseur des enfants
-– Haute autorité de lutte contre les discriminations et pour l'égalité
-– Haute autorité de santé
-– Médiateur de la République
-– Cour de justice de la République
-– Tribunal des Conflits
-– Conseil d'Etat
-– Cours administratives d'appel
-– Tribunaux administratifs
-– Cour des Comptes
-– Chambres régionales des Comptes
-– Cours et tribunaux de l'ordre judiciaire (Cour de Cassation, Cours d'Appel, Tribunaux d'instance et Tribunaux de grande instance)
+- Présidence de la République
+- Assemblée Nationale
+- Sénat
+- Conseil constitutionnel
+- Conseil économique et social
+- Conseil supérieur de la magistrature
+- Agence française contre le dopage
+- Autorité de contrôle des assurances et des mutuelles
+- Autorité de contrôle des nuisances sonores aéroportuaires
+- Autorité de régulation des communications électroniques et des postes
+- Autorité de sûreté nucléaire
+- Autorité indépendante des marchés financiers
+- Comité national d'évaluation des établissements publics à caractère scientifique, culturel et professionnel
+- Commission d'accès aux documents administratifs
+- Commission consultative du secret de la défense nationale
+- Commission nationale des comptes de campagne et des financements politiques
+- Commission nationale de contrôle des interceptions de sécurité
+- Commission nationale de déontologie de la sécurité
+- Commission nationale du débat public
+- Commission nationale de l'informatique et des libertés
+- Commission des participations et des transferts
+- Commission de régulation de l'énergie
+- Commission de la sécurité des consommateurs
+- Commission des sondages
+- Commission de la transparence financière de la vie politique
+- Conseil de la concurrence
+- Conseil des ventes volontaires de meubles aux enchères publiques
+- Conseil supérieur de l'audiovisuel
+- Défenseur des enfants
+- Haute autorité de lutte contre les discriminations et pour l'égalité
+- Haute autorité de santé
+- Médiateur de la République
+- Cour de justice de la République
+- Tribunal des Conflits
+- Conseil d'Etat
+- Cours administratives d'appel
+- Tribunaux administratifs
+- Cour des Comptes
+- Chambres régionales des Comptes
+- Cours et tribunaux de l'ordre judiciaire (Cour de Cassation, Cours d'Appel, Tribunaux d'instance et Tribunaux de grande instance)
 (3) Entes públicos nacionales
-– Académie de France à Rome
-– Académie de marine
-– Académie des sciences d'outre-mer
-– Académie des technologies
-– Agence centrale des organismes de sécurité sociale (ACOSS)
-– Agence de biomédicine
-– Agence pour l'enseignement du français à l'étranger
-– Agence française de sécurité sanitaire des aliments
-– Agence française de sécurité sanitaire de l'environnement et du travail
-– Agence Nationale pour la cohésion sociale et l'égalité des chances
-– Agence nationale pour la garantie des droits des mineurs
-– Agences de l'eau
-– Agence Nationale de l'Accueil des Etrangers et des migrations
-– Agence nationale pour l'amélioration des conditions de travail (ANACT)
-– Agence nationale pour l'amélioration de l'habitat (ANAH)
-– Agence Nationale pour la Cohésion Sociale et l'Egalité des Chances
-– Agence nationale pour l'indemnisation des français d'outre-mer (ANIFOM)
-– Assemblée permanente des chambres d'agriculture (APCA)
-– Bibliothèque publique d'information
-– Bibliothèque nationale de France
-– Bibliothèque nationale et universitaire de Strasbourg
-– Caisse des Dépôts et Consignations
-– Caisse nationale des autoroutes (CNA)
-– Caisse nationale militaire de sécurité sociale (CNMSS)
-– Caisse de garantie du logement locatif social
-– Casa de Velasquez
-– Centre d'enseignement zootechnique
-– Centre d'études de l'emploi
-– Centre d'études supérieures de la sécurité sociale
-– Centres de formation professionnelle et de promotion agricole
-– Centre hospitalier des Quinze-Vingts
-– Centre international d'études supérieures en sciences agronomiques (Montpellier Sup Agro)
-– Centre des liaisons européennes et internationales de sécurité sociale
-– Centre des Monuments Nationaux
-– Centre national d'art et de culture Georges Pompidou
-– Centre national des arts plastiques
-– Centre national de la cinématographie
-– Centre National d'Etudes et d'expérimentation du machinisme agricole, du génie rural, des eaux et des forêts (CEMAGREF)
-– Centre national du livre
-– Centre national de documentation pédagogique
-– Centre national des oeuvres universitaires et scolaires (CNOUS)
-– Centre national professionnel de la propriété forestière
-– Centre National de la Recherche Scientifique (C.N.R.S)
-– Centres d'éducation populaire et de sport (CREPS)
-– Centres régionaux des oeuvres universitaires (CROUS)
-– Collège de France
-– Conservatoire de l'espace littoral et des rivages lacustres
-– Conservatoire National des Arts et Métiers
-– Conservatoire national supérieur de musique et de danse de Paris
-– Conservatoire national supérieur de musique et de danse de Lyon
-– Conservatoire national supérieur d'art dramatique
-– École centrale de Lille
-– École centrale de Lyon
-– École centrale des arts et manufactures
-– École française d'archéologie d'Athènes
-– École française d'Extrême-Orient
-– École française de Rome
-– École des hautes études en sciences sociales
-– École du Louvre
-– École nationale d'administration
-– École nationale de l'aviation civile (ENAC)
-– École nationale des Chartes
-– École nationale d'équitation
-– École Nationale du Génie de l'Eau et de l'environnement de Strasbourg
-– Écoles nationales d'ingénieurs
-– École nationale d'ingénieurs des industries des techniques agricoles et alimentaires de Nantes
-– Écoles nationales d'ingénieurs des travaux agricoles
-– École nationale de la magistrature
-– Écoles nationales de la marine marchande
-– École nationale de la santé publique (ENSP)
-– École nationale de ski et d'alpinisme
-– École nationale supérieure des arts décoratifs
-– École nationale supérieure des arts et techniques du théâtre
-– École nationale supérieure des arts et industries textiles Roubaix
-– Écoles nationales supérieures d'arts et métiers
-– École nationale supérieure des beaux-arts
-– École nationale supérieure de céramique industrielle
-– École nationale supérieure de l'électronique et de ses applications (ENSEA)
-– École nationale supérieure du paysage de Versailles
-– École Nationale Supérieure des Sciences de l'information et des bibliothécaires
-– École nationale supérieure de la sécurité sociale
-– Écoles nationales vétérinaires
-– École nationale de voile
-– École normales supérieures
-– École polytechnique
-– École technique professionnelle agricole et forestière de Meymac (Corrèze)
-– École de sylviculture Crogny (Aube)
-– École de viticulture et d'oenologie de la Tour- Blanche (Gironde)
-– École de viticulture — Avize (Marne)
-– Établissement national d'enseignement agronomique de Dijon
-– Établissement national des invalides de la marine (ENIM)
-– Établissement national de bienfaisance Koenigswarter
-– Établissement public du musée et du domaine national de Versailles
-– Fondation Carnegie
-– Fondation Singer-Polignac
-– Haras nationaux
-– Hôpital national de Saint-Maurice
-– Institut des hautes études pour la science et la technologie
-– Institut français d'archéologie orientale du Caire
-– Institut géographique national
-– Institut National de l'origine et de la qualité
-– Institut national des hautes études de sécurité
-– Institut de veille sanitaire
-– Institut National d'enseignement supérieur et de recherche agronomique et agroalimentaire de Rennes
-– Institut National d'Etudes Démographiques (I.N.E.D)
-– Institut National d'Horticulture
-– Institut National de la jeunesse et de l'éducation populaire
-– Institut national des jeunes aveugles — Paris
-– Institut national des jeunes sourds — Bordeaux
-– Institut national des jeunes sourds — Chambéry
-– Institut national des jeunes sourds — Metz
-– Institut national des jeunes sourds — Paris
-– Institut national de physique nucléaire et de physique des particules (I.N.P.N.P.P)
-– Institut national de la propriété industrielle
-– Institut National de la Recherche Agronomique (I.N.R.A)
-– Institut National de la Recherche Pédagogique (I.N.R.P)
-– Institut National de la Santé et de la Recherche Médicale (I.N.S.E.R.M)
-– Institut national d'histoire de l'art (I.N.H.A.)
-– Institut national de recherches archéologiques préventives
-– Institut National des Sciences de l'Univers
-– Institut National des Sports et de l'Education Physique
-– Institut national supérieur de formation et de recherche pour l'éducation des jeunes handicapés et les enseignements inadaptés
-– Instituts nationaux polytechniques
-– Instituts nationaux des sciences appliquées
-– Institut national de recherche en informatique et en automatique (INRIA)
-– Institut national de recherche sur les transports et leur sécurité (INRETS)
-– Institut de Recherche pour le Développement
-– Instituts régionaux d'administration
-– Institut des Sciences et des Industries du vivant et de l'environnement (Agro Paris Tech)
-– Institut supérieur de mécanique de Paris
-– Institut Universitaires de Formation des Maîtres
-– Musée de l'armée
-– Musée Gustave-Moreau
-– Musée national de la marine
-– Musée national J.-J.-Henner
-– Musée du Louvre
-– Musée du Quai Branly
-– Muséum National d'Histoire Naturelle
-– Musée Auguste-Rodin
-– Observatoire de Paris
-– Office français de protection des réfugiés et apatrides
-– Office National des Anciens Combattants et des Victimes de Guerre (ONAC)
-– Office national de la chasse et de la faune sauvage
-– Office National de l'eau et des milieux aquatiques
-– Office national d'information sur les enseignements et les professions (ONISEP)
-– Office universitaire et culturel français pour l'Algérie
-– Ordre national de la Légion d'honneur
-– Palais de la découverte
-– Parcs nationaux
-– Universités
+- Académie de France à Rome
+- Académie de marine
+- Académie des sciences d'outre-mer
+- Académie des technologies
+- Agence centrale des organismes de sécurité sociale (ACOSS)
+- Agence de biomédicine
+- Agence pour l'enseignement du français à l'étranger
+- Agence française de sécurité sanitaire des aliments
+- Agence française de sécurité sanitaire de l'environnement et du travail
+- Agence Nationale pour la cohésion sociale et l'égalité des chances
+- Agence nationale pour la garantie des droits des mineurs
+- Agences de l'eau
+- Agence Nationale de l'Accueil des Etrangers et des migrations
+- Agence nationale pour l'amélioration des conditions de travail (ANACT)
+- Agence nationale pour l'amélioration de l'habitat (ANAH)
+- Agence Nationale pour la Cohésion Sociale et l'Egalité des Chances
+- Agence nationale pour l'indemnisation des français d'outre-mer (ANIFOM)
+- Assemblée permanente des chambres d'agriculture (APCA)
+- Bibliothèque publique d'information
+- Bibliothèque nationale de France
+- Bibliothèque nationale et universitaire de Strasbourg
+- Caisse des Dépôts et Consignations
+- Caisse nationale des autoroutes (CNA)
+- Caisse nationale militaire de sécurité sociale (CNMSS)
+- Caisse de garantie du logement locatif social
+- Casa de Velasquez
+- Centre d'enseignement zootechnique
+- Centre d'études de l'emploi
+- Centre d'études supérieures de la sécurité sociale
+- Centres de formation professionnelle et de promotion agricole
+- Centre hospitalier des Quinze-Vingts
+- Centre international d'études supérieures en sciences agronomiques (Montpellier Sup Agro)
+- Centre des liaisons européennes et internationales de sécurité sociale
+- Centre des Monuments Nationaux
+- Centre national d'art et de culture Georges Pompidou
+- Centre national des arts plastiques
+- Centre national de la cinématographie
+- Centre National d'Etudes et d'expérimentation du machinisme agricole, du génie rural, des eaux et des forêts (CEMAGREF)
+- Centre national du livre
+- Centre national de documentation pédagogique
+- Centre national des oeuvres universitaires et scolaires (CNOUS)
+- Centre national professionnel de la propriété forestière
+- Centre National de la Recherche Scientifique (C.N.R.S)
+- Centres d'éducation populaire et de sport (CREPS)
+- Centres régionaux des oeuvres universitaires (CROUS)
+- Collège de France
+- Conservatoire de l'espace littoral et des rivages lacustres
+- Conservatoire National des Arts et Métiers
+- Conservatoire national supérieur de musique et de danse de Paris
+- Conservatoire national supérieur de musique et de danse de Lyon
+- Conservatoire national supérieur d'art dramatique
+- École centrale de Lille
+- École centrale de Lyon
+- École centrale des arts et manufactures
+- École française d'archéologie d'Athènes
+- École française d'Extrême-Orient
+- École française de Rome
+- École des hautes études en sciences sociales
+- École du Louvre
+- École nationale d'administration
+- École nationale de l'aviation civile (ENAC)
+- École nationale des Chartes
+- École nationale d'équitation
+- École Nationale du Génie de l'Eau et de l'environnement de Strasbourg
+- Écoles nationales d'ingénieurs
+- École nationale d'ingénieurs des industries des techniques agricoles et alimentaires de Nantes
+- Écoles nationales d'ingénieurs des travaux agricoles
+- École nationale de la magistrature
+- Écoles nationales de la marine marchande
+- École nationale de la santé publique (ENSP)
+- École nationale de ski et d'alpinisme
+- École nationale supérieure des arts décoratifs
+- École nationale supérieure des arts et techniques du théâtre
+- École nationale supérieure des arts et industries textiles Roubaix
+- Écoles nationales supérieures d'arts et métiers
+- École nationale supérieure des beaux-arts
+- École nationale supérieure de céramique industrielle
+- École nationale supérieure de l'électronique et de ses applications (ENSEA)
+- École nationale supérieure du paysage de Versailles
+- École Nationale Supérieure des Sciences de l'information et des bibliothécaires
+- École nationale supérieure de la sécurité sociale
+- Écoles nationales vétérinaires
+- École nationale de voile
+- École normales supérieures
+- École polytechnique
+- École technique professionnelle agricole et forestière de Meymac (Corrèze)
+- École de sylviculture Crogny (Aube)
+- École de viticulture et d'oenologie de la Tour- Blanche (Gironde)
+- École de viticulture - Avize (Marne)
+- Établissement national d'enseignement agronomique de Dijon
+- Établissement national des invalides de la marine (ENIM)
+- Établissement national de bienfaisance Koenigswarter
+- Établissement public du musée et du domaine national de Versailles
+- Fondation Carnegie
+- Fondation Singer-Polignac
+- Haras nationaux
+- Hôpital national de Saint-Maurice
+- Institut des hautes études pour la science et la technologie
+- Institut français d'archéologie orientale du Caire
+- Institut géographique national
+- Institut National de l'origine et de la qualité
+- Institut national des hautes études de sécurité
+- Institut de veille sanitaire
+- Institut National d'enseignement supérieur et de recherche agronomique et agroalimentaire de Rennes
+- Institut National d'Etudes Démographiques (I.N.E.D)
+- Institut National d'Horticulture
+- Institut National de la jeunesse et de l'éducation populaire
+- Institut national des jeunes aveugles - Paris
+- Institut national des jeunes sourds - Bordeaux
+- Institut national des jeunes sourds - Chambéry
+- Institut national des jeunes sourds - Metz
+- Institut national des jeunes sourds - Paris
+- Institut national de physique nucléaire et de physique des particules (I.N.P.N.P.P)
+- Institut national de la propriété industrielle
+- Institut National de la Recherche Agronomique (I.N.R.A)
+- Institut National de la Recherche Pédagogique (I.N.R.P)
+- Institut National de la Santé et de la Recherche Médicale (I.N.S.E.R.M)
+- Institut national d'histoire de l'art (I.N.H.A.)
+- Institut national de recherches archéologiques préventives
+- Institut National des Sciences de l'Univers
+- Institut National des Sports et de l'Education Physique
+- Institut national supérieur de formation et de recherche pour l'éducation des jeunes handicapés et les enseignements inadaptés
+- Instituts nationaux polytechniques
+- Instituts nationaux des sciences appliquées
+- Institut national de recherche en informatique et en automatique (INRIA)
+- Institut national de recherche sur les transports et leur sécurité (INRETS)
+- Institut de Recherche pour le Développement
+- Instituts régionaux d'administration
+- Institut des Sciences et des Industries du vivant et de l'environnement (Agro Paris Tech)
+- Institut supérieur de mécanique de Paris
+- Institut Universitaires de Formation des Maîtres
+- Musée de l'armée
+- Musée Gustave-Moreau
+- Musée national de la marine
+- Musée national J.-J.-Henner
+- Musée du Louvre
+- Musée du Quai Branly
+- Muséum National d'Histoire Naturelle
+- Musée Auguste-Rodin
+- Observatoire de Paris
+- Office français de protection des réfugiés et apatrides
+- Office National des Anciens Combattants et des Victimes de Guerre (ONAC)
+- Office national de la chasse et de la faune sauvage
+- Office National de l'eau et des milieux aquatiques
+- Office national d'information sur les enseignements et les professions (ONISEP)
+- Office universitaire et culturel français pour l'Algérie
+- Ordre national de la Légion d'honneur
+- Palais de la découverte
+- Parcs nationaux
+- Universités
 (4) Otros entes públicos nacionales
-– Union des groupements d'achats publics (UGAP)
-– Agence Nationale pour l'emploi (A.N.P.E)
-– Caisse Nationale des Allocations Familiales (CNAF)
-– Caisse Nationale d'Assurance Maladie des Travailleurs Salariés (CNAMS)
-– Caisse Nationale d'Assurance-Vieillesse des Travailleurs Salariés (CNAVTS) Italia
+- Union des groupements d'achats publics (UGAP)
+- Agence Nationale pour l'emploi (A.N.P.E)
+- Caisse Nationale des Allocations Familiales (CNAF)
+- Caisse Nationale d'Assurance Maladie des Travailleurs Salariés (CNAMS)
+- Caisse Nationale d'Assurance-Vieillesse des Travailleurs Salariés (CNAVTS) Italia
 (1) Organismos de adquisición
-– Presidenza del Consiglio dei Ministri
-– Ministero degli Affari Esteri
-– Ministero dell'Interno
-– Ministero della Giustizia e Uffici giudiziari (esclusi i giudici di pace)
-– Ministero della Difesa
-– Ministero dell'Economia e delle Finanze
-– Ministero dello Sviluppo Economico
-– Ministero delle Politiche Agricole, Alimentari e Forestali
-– Ministero dell'Ambiente - Tutela del Territorio e del Mare
-– Ministero delle Infrastrutture e dei Trasporti
-– Ministero del Lavoro, della Salute e delle Politiche Sociali
-– Ministero dell' Istruzione, Università e Ricerca
-– Ministero per i Beni e le Attività culturali, comprensivo delle sue articolazioni periferiche
+- Presidenza del Consiglio dei Ministri
+- Ministero degli Affari Esteri
+- Ministero dell'Interno
+- Ministero della Giustizia e Uffici giudiziari (esclusi i giudici di pace)
+- Ministero della Difesa
+- Ministero dell'Economia e delle Finanze
+- Ministero dello Sviluppo Economico
+- Ministero delle Politiche Agricole, Alimentari e Forestali
+- Ministero dell'Ambiente - Tutela del Territorio e del Mare
+- Ministero delle Infrastrutture e dei Trasporti
+- Ministero del Lavoro, della Salute e delle Politiche Sociali
+- Ministero dell' Istruzione, Università e Ricerca
+- Ministero per i Beni e le Attività culturali, comprensivo delle sue articolazioni periferiche
 (2) Otros entes públicos nacionales
-– CONSIP (Concessionaria Servizi Informatici Pubblici)
+- CONSIP (Concessionaria Servizi Informatici Pubblici)
 Chipre
-– ΠξνƂƁξίƀ θƀη ΠξνƂƁξηθό Μέγƀξν
-– ŽξƀƅƂίν ΢πλƄνληƃƄή Δλƀξκόληƃεο
-– Τπνπξγηθό ΢πκβνύιην
-– Βνπιή Ƅωλ ΑλƄηπξνƃώπωλ
-– ΓηθƀƃƄηθή ΤπεξƂƃίƀ
-– Ννκηθή ΤπεξƂƃίƀ Ƅεο ΓεκνθξƀƄίƀο
-– ΔιƂγθƄηθή ΤπεξƂƃίƀ Ƅεο ΓεκνθξƀƄίƀο
-– ΔπηƄξνπή Γεκόƃηƀο ΤπεξƂƃίƀο
-– ΔπηƄξνπή ΔθπƀηƁƂπƄηθήο ΤπεξƂƃίƀο
-– ŽξƀƅƂίν ΔπηƄξόπνπ ΓηνηθήƃƂωο
-– ΔπηƄξνπή ΠξνƃƄƀƃίƀο ΑλƄƀγωληƃκνύ
-– ΤπεξƂƃίƀ ΔƃωƄƂξηθνύ Διέγρνπ
-– ŽξƀƅƂίν ΠξνγξƀκκƀƄηƃκνύ
-– ŽƂληθό ΛνγηƃƄήξην Ƅεο ΓεκνθξƀƄίƀο
-– ŽξƀƅƂίν ΔπηƄξόπνπ ΠξνƃƄƀƃίƀο ΓƂƁνκέλωλ Πξνƃωπηθνύ ΥƀξƀθƄήξƀ
-– ŽξƀƅƂίν Δƅόξνπ Γεκνƃίωλ ΔληƃρύƃƂωλ
-– ΑλƀζƂωξεƄηθή Αξρή Πξνƃƅνξώλ
-– ΤπεξƂƃίƀ ΔπνπƄƂίƀο θƀη ΑλάπƄπμεο ΢πλƂξγƀƄηθώλ ΔƄƀηξƂηώλ
-– ΑλƀζƂωξεƄηθή Αξρή Πξνƃƅύγωλ
-– ΤπνπξγƂίν Άκπλƀο
-– ΤπνπξγƂίν ŽƂωξγίƀο, ſπƃηθώλ Πόξωλ θƀη ΠƂξηβάιινλƄνο
-– Σκήκƀ ŽƂωξγίƀο
-– ΚƄεληƀƄξηθέο ΤπεξƂƃίƂο
-– Σκήκƀ Γƀƃώλ
-– Σκήκƀ ΑλƀπƄύμƂωο ΤƁάƄωλ
-– Σκήκƀ ŽƂωινγηθήο Δπηƃθόπεƃεο
-– ΜƂƄƂωξνινγηθή ΤπεξƂƃίƀ
-– Σκήκƀ ΑλƀƁƀƃκνύ
-– ΤπεξƂƃίƀ ΜƂƄƀιιƂίωλ
-– ΙλƃƄηƄνύƄν ŽƂωξγηθώλ ΔξƂπλώλ
-– Σκήκƀ ΑιηƂίƀο θƀη žƀιάƃƃηωλ ΔξƂπλώλ
-– ΤπνπξγƂίν Γηθƀηνƃύλεο θƀη Γεκνƃίƀο ΣάμƂωο
-– ΑƃƄπλνκίƀ
-– ΠπξνƃβƂƃƄηθή ΤπεξƂƃίƀ Κύπξνπ
-– Σκήκƀ ſπιƀθώλ
-– ΤπνπξγƂίν Δκπνξίνπ, Βηνκερƀλίƀο θƀη Σνπξηƃκνύ
-– Σκήκƀ Δƅόξνπ ΔƄƀηξƂηώλ θƀη Δπίƃεκνπ ΠƀξƀιήπƄε
-– ΤπνπξγƂίν Δξγƀƃίƀο θƀη Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
-– Σκήκƀ Δξγƀƃίƀο
-– Σκήκƀ Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
-– Σκήκƀ ΤπεξƂƃηώλ Κνηλωληθήο ΔπεκƂξίƀο
-– ΚέλƄξν ΠƀξƀγωγηθόƄεƄƀο Κύπξνπ
-– ΑλώƄƂξν ΞƂλνƁνρƂηƀθό ΙλƃƄηƄνύƄν Κύπξνπ
-– ΑλώƄƂξν ΣƂρλνινγηθό ΙλƃƄηƄνύƄν
-– Σκήκƀ ΔπηζƂώξεƃεο Δξγƀƃίƀο
-– Σκήκƀ Δξγƀƃηƀθώλ ΢ρέƃƂωλ
-– ΤπνπξγƂίν ΔƃωƄƂξηθώλ
-– Δπƀξρηƀθέο ΓηνηθήƃƂηο
-– Σκήκƀ ΠνιƂνƁνκίƀο θƀη ΟηθήƃƂωο
-– Σκήκƀ ΑξρƂίνπ Πιεζπƃκνύ θƀη ΜƂƄƀλƀƃƄƂύƃƂωο
-– Σκήκƀ ΚƄεκƀƄνινγίνπ θƀη ΥωξνκƂƄξίƀο
-– ŽξƀƅƂίν Σύπνπ θƀη Πιεξνƅνξηώλ
-– ΠνιηƄηθή Άκπλƀ
-– ΤπεξƂƃίƀ Μέξηκλƀο θƀη ΑπνθƀƄƀƃƄάƃƂωλ ΔθƄνπηƃζέλƄωλ
-– ΤπεξƂƃίƀ Αƃύινπ
-– ΤπνπξγƂίν ΔμωƄƂξηθώλ
-– ΤπνπξγƂίν Οηθνλνκηθώλ
-– ΣƂιωλƂίƀ
-– Σκήκƀ ΔƃωƄƂξηθώλ ΠξνƃόƁωλ
-– ΢ƄƀƄηƃƄηθή ΤπεξƂƃίƀ
-– Σκήκƀ ΚξƀƄηθώλ Αγνξώλ θƀη ΠξνκεζƂηώλ
-– Σκήκƀ Γεκόƃηƀο Γηνίθεƃεο θƀη Πξνƃωπηθνύ
-– ΚπβƂξλεƄηθό ΣππνγξƀƅƂίν
-– Σκήκƀ ΤπεξƂƃηώλ Πιεξνƅνξηθήο
-– ΤπνπξγƂίν ΠƀηƁƂίƀο θƀη ΠνιηƄηƃκνύ
-– ΤπνπξγƂίν ΢πγθνηλωληώλ θƀη Έξγωλ
-– Σκήκƀ Γεκνƃίωλ Έξγωλ
-– Σκήκƀ ΑξρƀηνƄήƄωλ
-– Σκήκƀ ΠνιηƄηθήο ΑƂξνπνξίƀο
-– Σκήκƀ Δκπνξηθήο ΝƀπƄηιίƀο
-– Σκήκƀ ΟƁηθώλ ΜƂƄƀƅνξώλ
-– Σκήκƀ ΗιƂθƄξνκερƀλνινγηθώλ ΤπεξƂƃηώλ
-– Σκήκƀ ΗιƂθƄξνληθώλ Δπηθνηλωληώλ
-– ΤπνπξγƂίν ΤγƂίƀο
-– ſƀξκƀθƂπƄηθέο ΤπεξƂƃίƂο
-– ŽƂληθό ΥεκƂίν
-– ΙƀƄξηθέο ΤπεξƂƃίƂο θƀη ΤπεξƂƃίƂο Γεκόƃηƀο ΤγƂίƀο
-– ΟƁνλƄηƀƄξηθέο ΤπεξƂƃίƂο
-– ΤπεξƂƃίƂο Φπρηθήο ΤγƂίƀο
+- ΠξνƂƁξίƀ θƀη ΠξνƂƁξηθό Μέγƀξν
+- ZξƀƅƂίν ΢πλƄνληƃƄή Δλƀξκόληƃεο
+- Τπνπξγηθό ΢πκβνύιην
+- Βνπιή Ƅωλ ΑλƄηπξνƃώπωλ
+- ΓηθƀƃƄηθή ΤπεξƂƃίƀ
+- Ννκηθή ΤπεξƂƃίƀ Ƅεο ΓεκνθξƀƄίƀο
+- ΔιƂγθƄηθή ΤπεξƂƃίƀ Ƅεο ΓεκνθξƀƄίƀο
+- ΔπηƄξνπή Γεκόƃηƀο ΤπεξƂƃίƀο
+- ΔπηƄξνπή ΔθπƀηƁƂπƄηθήο ΤπεξƂƃίƀο
+- ZξƀƅƂίν ΔπηƄξόπνπ ΓηνηθήƃƂωο
+- ΔπηƄξνπή ΠξνƃƄƀƃίƀο ΑλƄƀγωληƃκνύ
+- ΤπεξƂƃίƀ ΔƃωƄƂξηθνύ Διέγρνπ
+- ZξƀƅƂίν ΠξνγξƀκκƀƄηƃκνύ
+- ZƂληθό ΛνγηƃƄήξην Ƅεο ΓεκνθξƀƄίƀο
+- ZξƀƅƂίν ΔπηƄξόπνπ ΠξνƃƄƀƃίƀο ΓƂƁνκέλωλ Πξνƃωπηθνύ ΥƀξƀθƄήξƀ
+- ZξƀƅƂίν Δƅόξνπ Γεκνƃίωλ ΔληƃρύƃƂωλ
+- ΑλƀζƂωξεƄηθή Αξρή Πξνƃƅνξώλ
+- ΤπεξƂƃίƀ ΔπνπƄƂίƀο θƀη ΑλάπƄπμεο ΢πλƂξγƀƄηθώλ ΔƄƀηξƂηώλ
+- ΑλƀζƂωξεƄηθή Αξρή Πξνƃƅύγωλ
+- ΤπνπξγƂίν Άκπλƀο
+- ΤπνπξγƂίν ZƂωξγίƀο, ſπƃηθώλ Πόξωλ θƀη ΠƂξηβάιινλƄνο
+- Σκήκƀ ZƂωξγίƀο
+- ΚƄεληƀƄξηθέο ΤπεξƂƃίƂο
+- Σκήκƀ Γƀƃώλ
+- Σκήκƀ ΑλƀπƄύμƂωο ΤƁάƄωλ
+- Σκήκƀ ZƂωινγηθήο Δπηƃθόπεƃεο
+- ΜƂƄƂωξνινγηθή ΤπεξƂƃίƀ
+- Σκήκƀ ΑλƀƁƀƃκνύ
+- ΤπεξƂƃίƀ ΜƂƄƀιιƂίωλ
+- ΙλƃƄηƄνύƄν ZƂωξγηθώλ ΔξƂπλώλ
+- Σκήκƀ ΑιηƂίƀο θƀη zƀιάƃƃηωλ ΔξƂπλώλ
+- ΤπνπξγƂίν Γηθƀηνƃύλεο θƀη Γεκνƃίƀο ΣάμƂωο
+- ΑƃƄπλνκίƀ
+- ΠπξνƃβƂƃƄηθή ΤπεξƂƃίƀ Κύπξνπ
+- Σκήκƀ ſπιƀθώλ
+- ΤπνπξγƂίν Δκπνξίνπ, Βηνκερƀλίƀο θƀη Σνπξηƃκνύ
+- Σκήκƀ Δƅόξνπ ΔƄƀηξƂηώλ θƀη Δπίƃεκνπ ΠƀξƀιήπƄε
+- ΤπνπξγƂίν Δξγƀƃίƀο θƀη Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
+- Σκήκƀ Δξγƀƃίƀο
+- Σκήκƀ Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
+- Σκήκƀ ΤπεξƂƃηώλ Κνηλωληθήο ΔπεκƂξίƀο
+- ΚέλƄξν ΠƀξƀγωγηθόƄεƄƀο Κύπξνπ
+- ΑλώƄƂξν ΞƂλνƁνρƂηƀθό ΙλƃƄηƄνύƄν Κύπξνπ
+- ΑλώƄƂξν ΣƂρλνινγηθό ΙλƃƄηƄνύƄν
+- Σκήκƀ ΔπηζƂώξεƃεο Δξγƀƃίƀο
+- Σκήκƀ Δξγƀƃηƀθώλ ΢ρέƃƂωλ
+- ΤπνπξγƂίν ΔƃωƄƂξηθώλ
+- Δπƀξρηƀθέο ΓηνηθήƃƂηο
+- Σκήκƀ ΠνιƂνƁνκίƀο θƀη ΟηθήƃƂωο
+- Σκήκƀ ΑξρƂίνπ Πιεζπƃκνύ θƀη ΜƂƄƀλƀƃƄƂύƃƂωο
+- Σκήκƀ ΚƄεκƀƄνινγίνπ θƀη ΥωξνκƂƄξίƀο
+- ZξƀƅƂίν Σύπνπ θƀη Πιεξνƅνξηώλ
+- ΠνιηƄηθή Άκπλƀ
+- ΤπεξƂƃίƀ Μέξηκλƀο θƀη ΑπνθƀƄƀƃƄάƃƂωλ ΔθƄνπηƃζέλƄωλ
+- ΤπεξƂƃίƀ Αƃύινπ
+- ΤπνπξγƂίν ΔμωƄƂξηθώλ
+- ΤπνπξγƂίν Οηθνλνκηθώλ
+- ΣƂιωλƂίƀ
+- Σκήκƀ ΔƃωƄƂξηθώλ ΠξνƃόƁωλ
+- ΢ƄƀƄηƃƄηθή ΤπεξƂƃίƀ
+- Σκήκƀ ΚξƀƄηθώλ Αγνξώλ θƀη ΠξνκεζƂηώλ
+- Σκήκƀ Γεκόƃηƀο Γηνίθεƃεο θƀη Πξνƃωπηθνύ
+- ΚπβƂξλεƄηθό ΣππνγξƀƅƂίν
+- Σκήκƀ ΤπεξƂƃηώλ Πιεξνƅνξηθήο
+- ΤπνπξγƂίν ΠƀηƁƂίƀο θƀη ΠνιηƄηƃκνύ
+- ΤπνπξγƂίν ΢πγθνηλωληώλ θƀη Έξγωλ
+- Σκήκƀ Γεκνƃίωλ Έξγωλ
+- Σκήκƀ ΑξρƀηνƄήƄωλ
+- Σκήκƀ ΠνιηƄηθήο ΑƂξνπνξίƀο
+- Σκήκƀ Δκπνξηθήο ΝƀπƄηιίƀο
+- Σκήκƀ ΟƁηθώλ ΜƂƄƀƅνξώλ
+- Σκήκƀ ΗιƂθƄξνκερƀλνινγηθώλ ΤπεξƂƃηώλ
+- Σκήκƀ ΗιƂθƄξνληθώλ Δπηθνηλωληώλ
+- ΤπνπξγƂίν ΤγƂίƀο
+- ſƀξκƀθƂπƄηθέο ΤπεξƂƃίƂο
+- ZƂληθό ΥεκƂίν
+- ΙƀƄξηθέο ΤπεξƂƃίƂο θƀη ΤπεξƂƃίƂο Γεκόƃηƀο ΤγƂίƀο
+- ΟƁνλƄηƀƄξηθέο ΤπεξƂƃίƂο
+- ΤπεξƂƃίƂο Φπρηθήο ΤγƂίƀο
 Letonia
 (1) Ministerios, secretarías de ministerios para asuntos especiales y sus instituciones subordinadas
-– Aizsardzības ministrija un tās padotībā esońās iestādes
-– Ārlietu ministrija un tas padotībā esońās iestādes
-– Bērnu un ģimenes lietu ministrija un tās padotībā esońas iestādes
-– Ekonomikas ministrija un tās padotībā esońās iestādes
-– Finanńu ministrija un tās padotībā esońās iestādes
-– Iekńlietu ministrija un tās padotībā esońās iestādes
-– Izglītības un zinātnes ministrija un tās padotībā esońās iestādes
-– Kultūras ministrija un tas padotībā esońās iestādes
-– Labklājības ministrija un tās padotībā esońās iestādes
-– Reģionālās attīstības un pańvaldības lietu ministrija un tās padotībā esońās iestādes
-– Satiksmes ministrija un tās padotībā esońās iestādes
-– Tieslietu ministrija un tās padotībā esońās iestādes
-– Veselības ministrija un tās padotībā esońās iestādes
-– Vides ministrija un tās padotībā esońās iestādes
-– Zemkopības ministrija un tās padotībā esońās iestādes
-– Īpańu uzdevumu ministra sekretariāti un to padotībā esońās iestādes
-– Satversmes aizsardzības birojs
+- Aizsardzības ministrija un tās padotībā esońās iestādes
+- Ārlietu ministrija un tas padotībā esońās iestādes
+- Bērnu un ģimenes lietu ministrija un tās padotībā esońas iestādes
+- Ekonomikas ministrija un tās padotībā esońās iestādes
+- Finanńu ministrija un tās padotībā esońās iestādes
+- Iekńlietu ministrija un tās padotībā esońās iestādes
+- Izglītības un zinātnes ministrija un tās padotībā esońās iestādes
+- Kultūras ministrija un tas padotībā esońās iestādes
+- Labklājības ministrija un tās padotībā esońās iestādes
+- Reģionālās attīstības un pańvaldības lietu ministrija un tās padotībā esońās iestādes
+- Satiksmes ministrija un tās padotībā esońās iestādes
+- Tieslietu ministrija un tās padotībā esońās iestādes
+- Veselības ministrija un tās padotībā esońās iestādes
+- Vides ministrija un tās padotībā esońās iestādes
+- Zemkopības ministrija un tās padotībā esońās iestādes
+- Īpańu uzdevumu ministra sekretariāti un to padotībā esońās iestādes
+- Satversmes aizsardzības birojs
 (2) Otras instituciones estatales
-– Augstākā tiesa
-– Centrālā vēlēńanu komisija
-– Finanńu un kapitāla tirgus komisija
-– Latvijas Banka
-– Prokuratūra un tās pārraudzībā esońās iestādes
-– Saeimas kanceleja un tās padotībā esońās iestādes
-– Satversmes tiesa
-– Valsts kanceleja un tās padotībā esońās iestādes
-– Valsts kontrole
-– Valsts prezidenta kanceleja
-– Tiesībsarga birojs
-– Nacionālā radio un televīzijas padome
-– Citas valsts iestādes, kuras nav ministriju padotībā (Otras instituciones estatales no
+- Augstākā tiesa
+- Centrālā vēlēńanu komisija
+- Finanńu un kapitāla tirgus komisija
+- Latvijas Banka
+- Prokuratūra un tās pārraudzībā esońās iestādes
+- Saeimas kanceleja un tās padotībā esońās iestādes
+- Satversmes tiesa
+- Valsts kanceleja un tās padotībā esońās iestādes
+- Valsts kontrole
+- Valsts prezidenta kanceleja
+- Tiesībsarga birojs
+- Nacionālā radio un televīzijas padome
+- Citas valsts iestādes, kuras nav ministriju padotībā (Otras instituciones estatales no
 subordinadas a los ministerios)
 Lituania
-– Prezidentūros kanceliarija
-– Seimo kanceliarija
-– Instituciones responsables ante el Seimas [Parlamento]:
-– Lietuvos mokslo taryba
-– Seimo kontrolierių įstaiga
-– Valstybės kontrolė
-– Specialiųjų tyrimų tarnyba
-– Valstybės saugumo departamentas
-– Konkurencijos taryba
-– Lietuvos gyventojų genocido ir rezistencijos tyrimo centras
-– Vertybinių popierių komisija
-– Ryńių reguliavimo tarnyba
-– Nacionalinė sveikatos taryba
-– Etninės kultūros globos taryba
-– Lygių galimybių kontrolieriaus tarnyba
-– Valstybinė kultūros paveldo komisija
-– Vaiko teisių apsaugos kontrolieriaus įstaiga
-– Valstybinė kainų ir energetikos kontrolės komisija
-– Valstybinė lietuvių kalbos komisija
-– Vyriausioji rinkimų komisija
-– Vyriausioji tarnybinės etikos komisija
-– Ņurnalistų etikos inspektoriaus tarnyba
-– Vyriausybės kanceliarija
-– Instituciones responsables ante el Vyriausybė (Gobierno):
-– Ginklų fondas
-– Informacinės visuomenės plėtros komitetas
-– Kūno kultūros ir sporto departamentas
-– Lietuvos archyvų departamentas
-– Mokestinių ginčų komisija
-– Statistikos departamentas
-– Tautinių maņumų ir ińeivijos departamentas
-– Valstybinė tabako ir alkoholio kontrolės tarnyba
-– Vieńųjų pirkimų tarnyba
-– Narkotikų kontrolės departamentas
-– Valstybinė atominės energetikos saugos inspekcija
-– Valstybinė duomenų apsaugos inspekcija
-– Valstybinė maisto ir veterinarijos tarnyba
-– Vyriausioji administracinių ginčų komisija
-– Draudimo prieņiūros komisija
-– Lietuvos valstybinis mokslo ir studijų fondas
-– Lietuvių grįņimo į Tėvynę informacijos centras
-– Konstitucinis Teismas
-– Lietuvos bankas
-– Aplinkos ministerija
-– Instituciones bajo el Aplinkos ministerija (Ministerio del Medio Ambiente):
-– Generalinė mińkų urėdija
-– Lietuvos geologijos tarnyba
-– Lietuvos hidrometeorologijos tarnyba
-– Lietuvos standartizacijos departamentas
-– Nacionalinis akreditacijos biuras
-– Valstybinė metrologijos tarnyba
-– Valstybinė saugomų teritorijų tarnyba
-– Valstybinė teritorijų planavimo ir statybos inspekcija
-– Finansų ministerija
-– Instituciones bajo el Finansų ministerija (Ministerio de Finanzas):
-– Muitinės departamentas
-– Valstybės dokumentų technologinės apsaugos tarnyba
-– Valstybinė mokesčių inspekcija
-– Finansų ministerijos mokymo centras
-– Valstybinė lońimų prieņiūros komisija
-– Krańto apsaugos ministerija
-– Instituciones bajo el Krańto apsaugos ministerija (Ministerio de Defensa Nacional):
-– Antrasis operatyvinių tarnybų departamentas
-– Centralizuota finansų ir turto tarnyba
-– Karo prievolės administravimo tarnyba
-– Krańto apsaugos archyvas
-– Krizių valdymo centras
-– Mobilizacijos departamentas
-– Ryńių ir informacinių sistemų tarnyba
-– Infrastruktūros plėtros departamentas
-– Valstybinis pilietinio pasiprieńinimo rengimo centras
-– Lietuvos kariuomenė
-– Krańto apsaugos sistemos kariniai vienetai ir tarnybos
-– Kultūros ministerija
-– Instituciones bajo el Kultūros ministerija (Ministerio de Cultura):
-– Kultūros paveldo departamentas
-– Valstybinė kalbos inspekcija
-– Socialinės apsaugos ir darbo ministerija
-– Instituciones bajo el Socialinės apsaugos ir darbo ministerija (Ministerio de Seguridad Social y Trabajo):
-– Garantinio fondo administracija
-– Valstybės vaiko teisių apsaugos ir įvaikinimo tarnyba
-– Lietuvos darbo birņa
-– Lietuvos darbo rinkos mokymo tarnyba
-– Trińalės tarybos sekretoriatas
-– Socialinių paslaugų prieņiūros departamentas
-– Darbo inspekcija
-– Valstybinio socialinio draudimo fondo valdyba
-– Neįgalumo ir darbingumo nustatymo tarnyba
-– Ginčų komisija
-– Techninės pagalbos neįgaliesiems centras
-– Neįgaliųjų reikalų departamentas
-– Susisiekimo ministerija
-– Instituciones bajo el Susisiekimo ministerija (Ministerio de Transporte y Comunicaciones):
-– Lietuvos automobilių kelių direkcija
-– Valstybinė geleņinkelio inspekcija
-– Valstybinė kelių transporto inspekcija
-– Pasienio kontrolės punktų direkcija
-– Sveikatos apsaugos ministerija
-– Instituciones bajo el Sveikatos apsaugos ministerija (Ministerio de Salud):
-– Valstybinė akreditavimo sveikatos prieņiūros veiklai tarnyba
-– Valstybinė ligonių kasa
-– Valstybinė medicininio audito inspekcija
-– Valstybinė vaistų kontrolės tarnyba
-– Valstybinė teismo psichiatrijos ir narkologijos tarnyba
-– Valstybinė visuomenės sveikatos prieņiūros tarnyba
-– Farmacijos departamentas
-– Ekstremalių sveikatai situacijų centras
-– Lietuvos bioetikos komitetas
-– Radiacinės saugos centras
-– Ńvietimo ir mokslo ministerija
-– Instituciones bajo el Ńvietimo ir mokslo ministerija (Ministerio de Educación y Ciencia):
-– Nacionalinis egzaminų centras
-– Studijų kokybės vertinimo centras
-– Teisingumo ministerija
-– Instituciones bajo el Teisingumo ministerija (Ministerio de Justicia):
-– Kalėjimų departamentas
-– Nacionalinė vartotojų teisių apsaugos taryba
-– Europos teisės departamentas
-– Ūkio ministerija
-– Instituciones bajo el Ūkio ministerija (Ministerio de Economía):
-– Įmonių bankroto valdymo departamentas
-– Valstybinė energetikos inspekcija
-– Valstybinė ne maisto produktų inspekcija
-– Valstybinis turizmo departamentas
-– Uņsienio reikalų ministerija
-– Diplomatinės atstovybės ir konsulinės įstaigos uņsienyje bei atstovybės prie tarptautinių organizacijų
-– Vidaus reikalų ministerija
-– Instituciones bajo el Vidaus reikalų ministerija (Ministerio del Interior):
-– Asmens dokumentų ińrańymo centras
-– Finansinių nusikaltimų tyrimo tarnyba
-– Gyventojų registro tarnyba
-– Policijos departamentas
-– Prieńgaisrinės apsaugos ir gelbėjimo departamentas
-– Turto valdymo ir ūkio departamentas
-– Vadovybės apsaugos departamentas
-– Valstybės sienos apsaugos tarnyba
-– Valstybės tarnybos departamentas
-– Informatikos ir ryńių departamentas
-– Migracijos departamentas
-– Sveikatos prieņiūros tarnyba
-– Bendrasis pagalbos centras
-– Ņemės ūkio ministerija
-– Instituciones bajo el Ņemės ūkio ministerija (Ministerio de Agricultura):
-– Nacionalinė mokėjimo agentūra
-– Nacionalinė ņemės tarnyba
-– Valstybinė augalų apsaugos tarnyba
-– Valstybinė gyvulių veislininkystės prieņiūros tarnyba
-– Valstybinė sėklų ir grūdų tarnyba
-– Ņuvininkystės departamentas
-– Teismai (Cortes):
-– Lietuvos Aukńčiausiasis Teismas
-– Lietuvos apeliacinis teismas
-– Lietuvos vyriausiasis administracinis teismas
-– apygardų teismai
-– apygardų administraciniai teismai
-– apylinkių teismai
-– Nacionalinė teismų administracija
-– Generalinė prokuratūra
-– Otras Entidades de la Administración Pública (institucijos (instituciones), įstaigos (establecimientos), tarnybos (agencias))
-– Aplinkos apsaugos agentūra
-– Valstybinė aplinkos apsaugos inspekcija
-– Aplinkos projektų valdymo agentūra
-– Mińko genetinių ińteklių, sėklų ir sodmenų tarnyba
-– Mińko sanitarinės apsaugos tarnyba
-– Valstybinė mińkotvarkos tarnyba
-– Nacionalinis visuomenės sveikatos tyrimų centras
-– Lietuvos AIDS centras
-– Nacionalinis organų transplantacijos biuras
-– Valstybinis patologijos centras
-– Valstybinis psichikos sveikatos centras
-– Lietuvos sveikatos informacijos centras
-– Slaugos darbuotojų tobulinimosi ir specializacijos centras
-– Valstybinis aplinkos sveikatos centras
-– Respublikinis mitybos centras
-– Uņkrečiamųjų ligų profilaktikos ir kontrolės centras
-– Trakų visuomenės sveikatos prieņiūros ir specialistų tobulinimosi centras
-– Visuomenės sveikatos ugdymo centras
-– Muitinės kriminalinė tarnyba
-– Muitinės informacinių sistemų centras
-– Muitinės laboratorija
-– Muitinės mokymo centras
-– Valstybinis patentų biuras
-– Lietuvos teismo ekspertizės centras
-– Centrinė hipotekos įstaiga
-– Lietuvos metrologijos inspekcija
-– Civilinės aviacijos administracija
-– Lietuvos saugios laivybos administracija
-– Transporto investicijų direkcija
-– Valstybinė vidaus vandenų laivybos inspekcija
-– Pabėgėlių priėmimo centras
+- Prezidentūros kanceliarija
+- Seimo kanceliarija
+- Instituciones responsables ante el Seimas [Parlamento]:
+- Lietuvos mokslo taryba
+- Seimo kontrolierių įstaiga
+- Valstybės kontrolė
+- Specialiųjų tyrimų tarnyba
+- Valstybės saugumo departamentas
+- Konkurencijos taryba
+- Lietuvos gyventojų genocido ir rezistencijos tyrimo centras
+- Vertybinių popierių komisija
+- Ryńių reguliavimo tarnyba
+- Nacionalinė sveikatos taryba
+- Etninės kultūros globos taryba
+- Lygių galimybių kontrolieriaus tarnyba
+- Valstybinė kultūros paveldo komisija
+- Vaiko teisių apsaugos kontrolieriaus įstaiga
+- Valstybinė kainų ir energetikos kontrolės komisija
+- Valstybinė lietuvių kalbos komisija
+- Vyriausioji rinkimų komisija
+- Vyriausioji tarnybinės etikos komisija
+- Ņurnalistų etikos inspektoriaus tarnyba
+- Vyriausybės kanceliarija
+- Instituciones responsables ante el Vyriausybė (Gobierno):
+- Ginklų fondas
+- Informacinės visuomenės plėtros komitetas
+- Kūno kultūros ir sporto departamentas
+- Lietuvos archyvų departamentas
+- Mokestinių ginčų komisija
+- Statistikos departamentas
+- Tautinių maņumų ir ińeivijos departamentas
+- Valstybinė tabako ir alkoholio kontrolės tarnyba
+- Vieńųjų pirkimų tarnyba
+- Narkotikų kontrolės departamentas
+- Valstybinė atominės energetikos saugos inspekcija
+- Valstybinė duomenų apsaugos inspekcija
+- Valstybinė maisto ir veterinarijos tarnyba
+- Vyriausioji administracinių ginčų komisija
+- Draudimo prieņiūros komisija
+- Lietuvos valstybinis mokslo ir studijų fondas
+- Lietuvių grįņimo į Tėvynę informacijos centras
+- Konstitucinis Teismas
+- Lietuvos bankas
+- Aplinkos ministerija
+- Instituciones bajo el Aplinkos ministerija (Ministerio del Medio Ambiente):
+- Generalinė mińkų urėdija
+- Lietuvos geologijos tarnyba
+- Lietuvos hidrometeorologijos tarnyba
+- Lietuvos standartizacijos departamentas
+- Nacionalinis akreditacijos biuras
+- Valstybinė metrologijos tarnyba
+- Valstybinė saugomų teritorijų tarnyba
+- Valstybinė teritorijų planavimo ir statybos inspekcija
+- Finansų ministerija
+- Instituciones bajo el Finansų ministerija (Ministerio de Finanzas):
+- Muitinės departamentas
+- Valstybės dokumentų technologinės apsaugos tarnyba
+- Valstybinė mokesčių inspekcija
+- Finansų ministerijos mokymo centras
+- Valstybinė lońimų prieņiūros komisija
+- Krańto apsaugos ministerija
+- Instituciones bajo el Krańto apsaugos ministerija (Ministerio de Defensa Nacional):
+- Antrasis operatyvinių tarnybų departamentas
+- Centralizuota finansų ir turto tarnyba
+- Karo prievolės administravimo tarnyba
+- Krańto apsaugos archyvas
+- Krizių valdymo centras
+- Mobilizacijos departamentas
+- Ryńių ir informacinių sistemų tarnyba
+- Infrastruktūros plėtros departamentas
+- Valstybinis pilietinio pasiprieńinimo rengimo centras
+- Lietuvos kariuomenė
+- Krańto apsaugos sistemos kariniai vienetai ir tarnybos
+- Kultūros ministerija
+- Instituciones bajo el Kultūros ministerija (Ministerio de Cultura):
+- Kultūros paveldo departamentas
+- Valstybinė kalbos inspekcija
+- Socialinės apsaugos ir darbo ministerija
+- Instituciones bajo el Socialinės apsaugos ir darbo ministerija (Ministerio de Seguridad Social y Trabajo):
+- Garantinio fondo administracija
+- Valstybės vaiko teisių apsaugos ir įvaikinimo tarnyba
+- Lietuvos darbo birņa
+- Lietuvos darbo rinkos mokymo tarnyba
+- Trińalės tarybos sekretoriatas
+- Socialinių paslaugų prieņiūros departamentas
+- Darbo inspekcija
+- Valstybinio socialinio draudimo fondo valdyba
+- Neįgalumo ir darbingumo nustatymo tarnyba
+- Ginčų komisija
+- Techninės pagalbos neįgaliesiems centras
+- Neįgaliųjų reikalų departamentas
+- Susisiekimo ministerija
+- Instituciones bajo el Susisiekimo ministerija (Ministerio de Transporte y Comunicaciones):
+- Lietuvos automobilių kelių direkcija
+- Valstybinė geleņinkelio inspekcija
+- Valstybinė kelių transporto inspekcija
+- Pasienio kontrolės punktų direkcija
+- Sveikatos apsaugos ministerija
+- Instituciones bajo el Sveikatos apsaugos ministerija (Ministerio de Salud):
+- Valstybinė akreditavimo sveikatos prieņiūros veiklai tarnyba
+- Valstybinė ligonių kasa
+- Valstybinė medicininio audito inspekcija
+- Valstybinė vaistų kontrolės tarnyba
+- Valstybinė teismo psichiatrijos ir narkologijos tarnyba
+- Valstybinė visuomenės sveikatos prieņiūros tarnyba
+- Farmacijos departamentas
+- Ekstremalių sveikatai situacijų centras
+- Lietuvos bioetikos komitetas
+- Radiacinės saugos centras
+- Ńvietimo ir mokslo ministerija
+- Instituciones bajo el Ńvietimo ir mokslo ministerija (Ministerio de Educación y Ciencia):
+- Nacionalinis egzaminų centras
+- Studijų kokybės vertinimo centras
+- Teisingumo ministerija
+- Instituciones bajo el Teisingumo ministerija (Ministerio de Justicia):
+- Kalėjimų departamentas
+- Nacionalinė vartotojų teisių apsaugos taryba
+- Europos teisės departamentas
+- Ūkio ministerija
+- Instituciones bajo el Ūkio ministerija (Ministerio de Economía):
+- Įmonių bankroto valdymo departamentas
+- Valstybinė energetikos inspekcija
+- Valstybinė ne maisto produktų inspekcija
+- Valstybinis turizmo departamentas
+- Uņsienio reikalų ministerija
+- Diplomatinės atstovybės ir konsulinės įstaigos uņsienyje bei atstovybės prie tarptautinių organizacijų
+- Vidaus reikalų ministerija
+- Instituciones bajo el Vidaus reikalų ministerija (Ministerio del Interior):
+- Asmens dokumentų ińrańymo centras
+- Finansinių nusikaltimų tyrimo tarnyba
+- Gyventojų registro tarnyba
+- Policijos departamentas
+- Prieńgaisrinės apsaugos ir gelbėjimo departamentas
+- Turto valdymo ir ūkio departamentas
+- Vadovybės apsaugos departamentas
+- Valstybės sienos apsaugos tarnyba
+- Valstybės tarnybos departamentas
+- Informatikos ir ryńių departamentas
+- Migracijos departamentas
+- Sveikatos prieņiūros tarnyba
+- Bendrasis pagalbos centras
+- Ņemės ūkio ministerija
+- Instituciones bajo el Ņemės ūkio ministerija (Ministerio de Agricultura):
+- Nacionalinė mokėjimo agentūra
+- Nacionalinė ņemės tarnyba
+- Valstybinė augalų apsaugos tarnyba
+- Valstybinė gyvulių veislininkystės prieņiūros tarnyba
+- Valstybinė sėklų ir grūdų tarnyba
+- Ņuvininkystės departamentas
+- Teismai (Cortes):
+- Lietuvos Aukńčiausiasis Teismas
+- Lietuvos apeliacinis teismas
+- Lietuvos vyriausiasis administracinis teismas
+- apygardų teismai
+- apygardų administraciniai teismai
+- apylinkių teismai
+- Nacionalinė teismų administracija
+- Generalinė prokuratūra
+- Otras Entidades de la Administración Pública (institucijos (instituciones), įstaigos (establecimientos), tarnybos (agencias))
+- Aplinkos apsaugos agentūra
+- Valstybinė aplinkos apsaugos inspekcija
+- Aplinkos projektų valdymo agentūra
+- Mińko genetinių ińteklių, sėklų ir sodmenų tarnyba
+- Mińko sanitarinės apsaugos tarnyba
+- Valstybinė mińkotvarkos tarnyba
+- Nacionalinis visuomenės sveikatos tyrimų centras
+- Lietuvos AIDS centras
+- Nacionalinis organų transplantacijos biuras
+- Valstybinis patologijos centras
+- Valstybinis psichikos sveikatos centras
+- Lietuvos sveikatos informacijos centras
+- Slaugos darbuotojų tobulinimosi ir specializacijos centras
+- Valstybinis aplinkos sveikatos centras
+- Respublikinis mitybos centras
+- Uņkrečiamųjų ligų profilaktikos ir kontrolės centras
+- Trakų visuomenės sveikatos prieņiūros ir specialistų tobulinimosi centras
+- Visuomenės sveikatos ugdymo centras
+- Muitinės kriminalinė tarnyba
+- Muitinės informacinių sistemų centras
+- Muitinės laboratorija
+- Muitinės mokymo centras
+- Valstybinis patentų biuras
+- Lietuvos teismo ekspertizės centras
+- Centrinė hipotekos įstaiga
+- Lietuvos metrologijos inspekcija
+- Civilinės aviacijos administracija
+- Lietuvos saugios laivybos administracija
+- Transporto investicijų direkcija
+- Valstybinė vidaus vandenų laivybos inspekcija
+- Pabėgėlių priėmimo centras
 Luxemburgo
-– Ministère d"Etat
-– Ministère des Affaires Etrangères et de l'Immigration
-– Ministère de l'Agriculture, de la Viticulture et du Développement Rural
-– Ministère des Classes moyennes, du Tourisme et du Logement
-– Ministère de la Culture, de l'Enseignement Supérieur et de la Recherche
-– Ministère de l'Economie et du Commerce extérieur
-– Ministère de l'Education nationale et de la Formation professionnelle
-– Ministère de l'Egalité des chances
-– Ministère de l'Environnement
-– Ministère de la Famille et de l'Intégration
-– Ministère des Finances
-– Ministère de la Fonction publique et de la Réforme administrative
-– Ministère de l'Intérieur et de l'Aménagement du territoire
-– Ministère de la Justice
-– Ministère de la Santé
-– Ministère de la Sécurité sociale
-– Ministère des Transports
-– Ministère du Travail et de l'Emploi
-– Ministère des Travaux publics
+- Ministère d"Etat
+- Ministère des Affaires Etrangères et de l'Immigration
+- Ministère de l'Agriculture, de la Viticulture et du Développement Rural
+- Ministère des Classes moyennes, du Tourisme et du Logement
+- Ministère de la Culture, de l'Enseignement Supérieur et de la Recherche
+- Ministère de l'Economie et du Commerce extérieur
+- Ministère de l'Education nationale et de la Formation professionnelle
+- Ministère de l'Egalité des chances
+- Ministère de l'Environnement
+- Ministère de la Famille et de l'Intégration
+- Ministère des Finances
+- Ministère de la Fonction publique et de la Réforme administrative
+- Ministère de l'Intérieur et de l'Aménagement du territoire
+- Ministère de la Justice
+- Ministère de la Santé
+- Ministère de la Sécurité sociale
+- Ministère des Transports
+- Ministère du Travail et de l'Emploi
+- Ministère des Travaux publics
 Hungría
-– Egészségügyi Minisztérium
-– Földművelésügyi és Vidékfejlesztési Minisztérium
-– Gazdasági és Közlekedési Minisztérium
-– Honvédelmi Minisztérium
-– Igazságügyi és Rendészeti Minisztérium
-– Környezetvédelmi és Vízügyi Minisztérium
-– Külügyminisztérium
-– Miniszterelnöki Hivatal
-– Oktatási és Kulturális Minisztérium
-– Önkormányzati és Területfejlesztési Minisztérium
-– Pénzügyminisztérium
-– Szociális és Munkaügyi Minisztérium
-– Központi Szolgáltatási Főigazgatóság
+- Egészségügyi Minisztérium
+- Földművelésügyi és Vidékfejlesztési Minisztérium
+- Gazdasági és Közlekedési Minisztérium
+- Honvédelmi Minisztérium
+- Igazságügyi és Rendészeti Minisztérium
+- Környezetvédelmi és Vízügyi Minisztérium
+- Külügyminisztérium
+- Miniszterelnöki Hivatal
+- Oktatási és Kulturális Minisztérium
+- Önkormányzati és Területfejlesztési Minisztérium
+- Pénzügyminisztérium
+- Szociális és Munkaügyi Minisztérium
+- Központi Szolgáltatási Főigazgatóság
 Malta
-– Uffiċċju tal-Prim Ministru (Office of the Prime Minister) [Oficina del Primer Ministro]
-– Ministeru għall-Familja u Solidarjeta' Soċjali (Ministry for the Family and Social Solidarity) [Ministerio de Familia y Solidaridad Social]
-– Ministeru ta' l-Edukazzjoni Zghazagh u Impjieg (Ministry for Education Youth and Employment) [Ministerio de Educación Juvenil y Empleo]
-– Ministeru tal-Finanzi (Ministry of Finance) [Ministerio de Finanzas]
-– Ministeru tar-Riżorsi u l-Infrastruttura (Ministry for Resources and Infrastructure)
+- Uffiċċju tal-Prim Ministru (Office of the Prime Minister) [Oficina del Primer Ministro]
+- Ministeru għall-Familja u Solidarjeta' Soċjali (Ministry for the Family and Social Solidarity) [Ministerio de Familia y Solidaridad Social]
+- Ministeru ta' l-Edukazzjoni Zghazagh u Impjieg (Ministry for Education Youth and Employment) [Ministerio de Educación Juvenil y Empleo]
+- Ministeru tal-Finanzi (Ministry of Finance) [Ministerio de Finanzas]
+- Ministeru tar-Riżorsi u l-Infrastruttura (Ministry for Resources and Infrastructure)
 [Ministerio de Recursos e Infraestructura]
-– Ministeru tat-Turiżmu u Kultura (Ministry for Tourism and Culture) [Ministerio de
+- Ministeru tat-Turiżmu u Kultura (Ministry for Tourism and Culture) [Ministerio de
 Turismo y Cultura]
-– Ministeru tal-Ġustizzja u l-Intern (Ministry for Justice and Home Affairs) [Ministerio de
+- Ministeru tal-Ġustizzja u l-Intern (Ministry for Justice and Home Affairs) [Ministerio de
 Justicia y del Interior]
-– Ministeru għall-Affarijiet Rurali u l-Ambjent (Ministry for Rural Affairs and
+- Ministeru għall-Affarijiet Rurali u l-Ambjent (Ministry for Rural Affairs and
 the Environment) [Ministerio de Asuntos Rurales y Medio Ambiente]
-– Ministeru għal Għawdex (Ministry for Gozo) [Ministerio para Gozo]
-– Ministeru tas-Saħħa, l-Anzjani u Kura fil-Kommunita' (Ministry of Health, the Elderly and Community Care) [Ministerio de Salud, de la Tercera Edad y de Atención a la Comunidad]
-– Ministeru ta' l-Affarijiet Barranin (Ministry of Foreign Affairs) [Ministerio de Asuntos Exteriores]
-– Ministeru għall-Investimenti, Industrija u Teknologija ta' Informazzjoni (Ministry for
+- Ministeru għal Għawdex (Ministry for Gozo) [Ministerio para Gozo]
+- Ministeru tas-Saħħa, l-Anzjani u Kura fil-Kommunita' (Ministry of Health, the Elderly and Community Care) [Ministerio de Salud, de la Tercera Edad y de Atención a la Comunidad]
+- Ministeru ta' l-Affarijiet Barranin (Ministry of Foreign Affairs) [Ministerio de Asuntos Exteriores]
+- Ministeru għall-Investimenti, Industrija u Teknologija ta' Informazzjoni (Ministry for
 Investment, Industry and Information Technology) [Ministerio de Inversión, Industria y Tecnología de la Información]
-– Ministeru għall-Kompetittivà u Komunikazzjoni (Ministry for Competitiveness
+- Ministeru għall-Kompetittivà u Komunikazzjoni (Ministry for Competitiveness
 and Communications) [Ministerio de Competitividad y Comunicaciones]
-– Ministeru għall-Iżvilupp Urban u Toroq (Ministry for Urban Development and Roads)
+- Ministeru għall-Iżvilupp Urban u Toroq (Ministry for Urban Development and Roads)
 [Ministerio de Desarrollo Urbano y de Carreteras]
 Países Bajos
-– Ministerie van Algemene Zaken
-– Bestuursdepartement
-– Bureau van de Wetenschappelijke Raad voor het Regeringsbeleid
-– Rijksvoorlichtingsdienst
-– Ministerie van Binnenlandse Zaken en Koninkrijksrelaties
-– Bestuursdepartement
-– Centrale Archiefselectiedienst (CAS)
-– Algemene Inlichtingen- en Veiligheidsdienst (AIVD)
-– Agentschap Basisadministratie Persoonsgegevens en Reisdocumenten (BPR)
-– Agentschap Korps Landelijke Politiediensten
-– Ministerie van Buitenlandse Zaken
-– Directoraat-generaal Regiobeleid en Consulaire Zaken (DGRC)
-– Directoraat-generaal Politieke Zaken (DGPZ)
-– Directoraat-generaal Internationale Samenwerking (DGIS)
-– Directoraat-generaal Europese Samenwerking (DGES)
-– Centrum tot Bevordering van de Import uit Ontwikkelingslanden (CBI)
-– Centrale diensten ressorterend onder S/PlvS (Servicios de apoyo comprendidos dentro de la Secretaría general y la Subsecretaría general)
-– Buitenlandse Posten (ieder afzonderlijk)
-– Ministerie van Defensie — (Ministerio de Defensa)
-– Bestuursdepartement
-– Commando Diensten Centra (CDC)
-– Defensie Telematica Organisatie (DTO)
-– Centrale directie van de Defensie Vastgoed Dienst
-– De afzonderlijke regionale directies van de Defensie Vastgoed Dienst
-– Defensie Materieel Organisatie (DMO)
-– Landelijk Bevoorradingsbedrijf van de Defensie Materieel Organisatie
-– Logistiek Centrum van de Defensie Materieel Organisatie
-– Marinebedrijf van de Defensie Materieel Organisatie
-– Defensie Pijpleiding Organisatie (DPO)
-– Ministerie van Economische Zaken
-– Bestuursdepartement
-– Centraal Planbureau (CPB)
-– SenterNovem
-– Staatstoezicht op de Mijnen (SodM)
-– Nederlandse Mededingingsautoriteit (NMa)
-– Economische Voorlichtingsdienst (EVD)
-– Agentschap Telecom
-– Kenniscentrum Professioneel & Innovatief Aanbesteden, Netwerk voor – Overheidsopdrachtgevers (PIANOo)
-– Regiebureau Inkoop Rijksoverheid
-– Octrooicentrum Nederland
-– Consumentenautoriteit
-– Ministerie van Financiën
-– Bestuursdepartement
-– Belastingdienst Automatiseringscentrum
-– Belastingdienst
-– de afzonderlijke Directies der Rijksbelastingen (las diversas Divisiones de Impuestos y Administración de Aduanas en todos los Países Bajos)
-– Fiscale Inlichtingen- en Opsporingsdienst (incl. Economische Controle dienst (ECD))
-– Belastingdienst Opleidingen
-– Dienst der Domeinen
-– Ministerie van Justitie
-– Bestuursdepartement
-– Dienst Justitiële Inrichtingen
-– Raad voor de Kinderbescherming
-– Centraal Justitie Incasso Bureau
-– Openbaar Ministerie
-– Immigratie en Naturalisatiedienst
-– Nederlands Forensisch Instituut
-– Dienst Terugkeer & Vertrek
-– Ministerie van Landbouw, Natuur en Voedselkwaliteit
-– Bestuursdepartement
-– Dienst Regelingen (DR)
-– Agentschap Plantenziektenkundige Dienst (PD)
-– Algemene Inspectiedienst (AID)
-– Dienst Landelijk Gebied (DLG)
-– Voedsel en Waren Autoriteit (VWA)
-– Ministerie van Onderwijs, Cultuur en Wetenschappen
-– Bestuursdepartement
-– Inspectie van het Onderwijs
-– Erfgoedinspectie
-– Centrale Financiën Instellingen
-– Nationaal Archief
-– Adviesraad voor Wetenschaps- en Technologiebeleid
-– Onderwijsraad
-– Raad voor Cultuur
-– Ministerie van Sociale Zaken en Werkgelegenheid
-– Bestuursdepartement
-– Inspectie Werk en Inkomen
-– Agentschap SZW
-– Ministerie van Verkeer en Waterstaat
-– Bestuursdepartement
-– Directoraat-Generaal Transport en Luchtvaart
-– Directoraat-generaal Personenvervoer
-– Directoraat-generaal Water
-– Centrale diensten (Servicios Centrales)
-– Shared services Organisatie Verkeer en Waterstaat
-– Koninklijke Nederlandse Meteorologisch Instituut KNMI
-– Rijkswaterstaat, Bestuur
-– De afzonderlijke regionale Diensten van Rijkswaterstaat (Cada servicio individual regional de la Dirección General de Obras Públicas y Manejo de Aguas)
-– De afzonderlijke specialistische diensten van Rijkswaterstaat (Cada servicio individual especializado de la Dirección General de Obras Públicas y Manejo de Aguas)
-– Adviesdienst Geo-Informatie en ICT
-– Adviesdienst Verkeer en Vervoer (AVV)
-– Bouwdienst
-– Corporate Dienst
-– Data ICT Dienst
-– Dienst Verkeer en Scheepvaart
-– Dienst Weg- en Waterbouwkunde (DWW)
-– Rijksinstituut voor Kunst en Zee (RIKZ)
-– Rijksinstituut voor Integraal Zoetwaterbeheer en Afvalwaterbehandeling (RIZA)
-– Waterdienst
-– Inspectie Verkeer en Waterstaat, Hoofddirectie
-– Port state Control
-– Directie Toezichtontwikkeling Communicatie en Onderzoek (TCO)
-– Toezichthouder Beheer Eenheid Lucht
-– Toezichthouder Beheer Eenheid Water
-– Toezichthouder Beheer Eenheid Land
-– Ministerie van Volkshuisvesting, Ruimtelijke Ordening en Milieubeheer
-– Bestuursdepartement
-– Directoraat-generaal Wonen, Wijken en Integratie
-– Directoraat-generaal Ruimte
-– Directoraat-general Milieubeheer
-– Rijksgebouwendienst
-– VROM Inspectie
-– Ministerie van Volksgezondheid, Welzijn en Sport
-– Bestuursdepartement
-– Inspectie Gezondheidsbescherming, Waren en Veterinaire Zaken
-– Inspectie Gezondheidszorg
-– Inspectie Jeugdhulpverlening en Jeugdbescherming
-– Rijksinstituut voor de Volksgezondheid en Milieu (RIVM)
-– Sociaal en Cultureel Planbureau
-– Agentschap t.b.v. het College ter Beoordeling van Geneesmiddelen
-– Tweede Kamer der Staten-Generaal
-– Eerste Kamer der Staten-Generaal
-– Raad van State
-– Algemene Rekenkamer
-– Nationale Ombudsman
-– Kanselarij der Nederlandse Orden
-– Kabinet der Koningin
-– Raad voor de rechtspraak en de Rechtbanken
+- Ministerie van Algemene Zaken
+- Bestuursdepartement
+- Bureau van de Wetenschappelijke Raad voor het Regeringsbeleid
+- Rijksvoorlichtingsdienst
+- Ministerie van Binnenlandse Zaken en Koninkrijksrelaties
+- Bestuursdepartement
+- Centrale Archiefselectiedienst (CAS)
+- Algemene Inlichtingen- en Veiligheidsdienst (AIVD)
+- Agentschap Basisadministratie Persoonsgegevens en Reisdocumenten (BPR)
+- Agentschap Korps Landelijke Politiediensten
+- Ministerie van Buitenlandse Zaken
+- Directoraat-generaal Regiobeleid en Consulaire Zaken (DGRC)
+- Directoraat-generaal Politieke Zaken (DGPZ)
+- Directoraat-generaal Internationale Samenwerking (DGIS)
+- Directoraat-generaal Europese Samenwerking (DGES)
+- Centrum tot Bevordering van de Import uit Ontwikkelingslanden (CBI)
+- Centrale diensten ressorterend onder S/PlvS (Servicios de apoyo comprendidos dentro de la Secretaría general y la Subsecretaría general)
+- Buitenlandse Posten (ieder afzonderlijk)
+- Ministerie van Defensie - (Ministerio de Defensa)
+- Bestuursdepartement
+- Commando Diensten Centra (CDC)
+- Defensie Telematica Organisatie (DTO)
+- Centrale directie van de Defensie Vastgoed Dienst
+- De afzonderlijke regionale directies van de Defensie Vastgoed Dienst
+- Defensie Materieel Organisatie (DMO)
+- Landelijk Bevoorradingsbedrijf van de Defensie Materieel Organisatie
+- Logistiek Centrum van de Defensie Materieel Organisatie
+- Marinebedrijf van de Defensie Materieel Organisatie
+- Defensie Pijpleiding Organisatie (DPO)
+- Ministerie van Economische Zaken
+- Bestuursdepartement
+- Centraal Planbureau (CPB)
+- SenterNovem
+- Staatstoezicht op de Mijnen (SodM)
+- Nederlandse Mededingingsautoriteit (NMa)
+- Economische Voorlichtingsdienst (EVD)
+- Agentschap Telecom
+- Kenniscentrum Professioneel & Innovatief Aanbesteden, Netwerk voor - Overheidsopdrachtgevers (PIANOo)
+- Regiebureau Inkoop Rijksoverheid
+- Octrooicentrum Nederland
+- Consumentenautoriteit
+- Ministerie van Financiën
+- Bestuursdepartement
+- Belastingdienst Automatiseringscentrum
+- Belastingdienst
+- de afzonderlijke Directies der Rijksbelastingen (las diversas Divisiones de Impuestos y Administración de Aduanas en todos los Países Bajos)
+- Fiscale Inlichtingen- en Opsporingsdienst (incl. Economische Controle dienst (ECD))
+- Belastingdienst Opleidingen
+- Dienst der Domeinen
+- Ministerie van Justitie
+- Bestuursdepartement
+- Dienst Justitiële Inrichtingen
+- Raad voor de Kinderbescherming
+- Centraal Justitie Incasso Bureau
+- Openbaar Ministerie
+- Immigratie en Naturalisatiedienst
+- Nederlands Forensisch Instituut
+- Dienst Terugkeer & Vertrek
+- Ministerie van Landbouw, Natuur en Voedselkwaliteit
+- Bestuursdepartement
+- Dienst Regelingen (DR)
+- Agentschap Plantenziektenkundige Dienst (PD)
+- Algemene Inspectiedienst (AID)
+- Dienst Landelijk Gebied (DLG)
+- Voedsel en Waren Autoriteit (VWA)
+- Ministerie van Onderwijs, Cultuur en Wetenschappen
+- Bestuursdepartement
+- Inspectie van het Onderwijs
+- Erfgoedinspectie
+- Centrale Financiën Instellingen
+- Nationaal Archief
+- Adviesraad voor Wetenschaps- en Technologiebeleid
+- Onderwijsraad
+- Raad voor Cultuur
+- Ministerie van Sociale Zaken en Werkgelegenheid
+- Bestuursdepartement
+- Inspectie Werk en Inkomen
+- Agentschap SZW
+- Ministerie van Verkeer en Waterstaat
+- Bestuursdepartement
+- Directoraat-Generaal Transport en Luchtvaart
+- Directoraat-generaal Personenvervoer
+- Directoraat-generaal Water
+- Centrale diensten (Servicios Centrales)
+- Shared services Organisatie Verkeer en Waterstaat
+- Koninklijke Nederlandse Meteorologisch Instituut KNMI
+- Rijkswaterstaat, Bestuur
+- De afzonderlijke regionale Diensten van Rijkswaterstaat (Cada servicio individual regional de la Dirección General de Obras Públicas y Manejo de Aguas)
+- De afzonderlijke specialistische diensten van Rijkswaterstaat (Cada servicio individual especializado de la Dirección General de Obras Públicas y Manejo de Aguas)
+- Adviesdienst Geo-Informatie en ICT
+- Adviesdienst Verkeer en Vervoer (AVV)
+- Bouwdienst
+- Corporate Dienst
+- Data ICT Dienst
+- Dienst Verkeer en Scheepvaart
+- Dienst Weg- en Waterbouwkunde (DWW)
+- Rijksinstituut voor Kunst en Zee (RIKZ)
+- Rijksinstituut voor Integraal Zoetwaterbeheer en Afvalwaterbehandeling (RIZA)
+- Waterdienst
+- Inspectie Verkeer en Waterstaat, Hoofddirectie
+- Port state Control
+- Directie Toezichtontwikkeling Communicatie en Onderzoek (TCO)
+- Toezichthouder Beheer Eenheid Lucht
+- Toezichthouder Beheer Eenheid Water
+- Toezichthouder Beheer Eenheid Land
+- Ministerie van Volkshuisvesting, Ruimtelijke Ordening en Milieubeheer
+- Bestuursdepartement
+- Directoraat-generaal Wonen, Wijken en Integratie
+- Directoraat-generaal Ruimte
+- Directoraat-general Milieubeheer
+- Rijksgebouwendienst
+- VROM Inspectie
+- Ministerie van Volksgezondheid, Welzijn en Sport
+- Bestuursdepartement
+- Inspectie Gezondheidsbescherming, Waren en Veterinaire Zaken
+- Inspectie Gezondheidszorg
+- Inspectie Jeugdhulpverlening en Jeugdbescherming
+- Rijksinstituut voor de Volksgezondheid en Milieu (RIVM)
+- Sociaal en Cultureel Planbureau
+- Agentschap t.b.v. het College ter Beoordeling van Geneesmiddelen
+- Tweede Kamer der Staten-Generaal
+- Eerste Kamer der Staten-Generaal
+- Raad van State
+- Algemene Rekenkamer
+- Nationale Ombudsman
+- Kanselarij der Nederlandse Orden
+- Kabinet der Koningin
+- Raad voor de rechtspraak en de Rechtbanken
 Austria
-– Bundeskanzleramt
-– Bundesministerium für europäische und internationale Angelegenheiten
-– Bundesministerium für Finanzen
-– Bundesministerium für Gesundheit, Familie und Jugend
-– Bundesministerium für Inneres
-– Bundesministerium für Justiz
-– Bundesministerium für Landesverteidigung
-– Bundesministerium für Land- und Forstwirtschaft, Umwelt und Wasserwirtschaft
-– Bundesministerium für Soziales und Konsumentenschutz
-– Bundesministerium für Unterricht, Kunst und Kultur
-– Bundesministerium für Verkehr, Innovation und Technologie
-– Bundesministerium für Wirtschaft und Arbeit
-– Bundesministerium für Wissenschaft und Forschung
-– Österreichische Forschungs- und Prüfzentrum Arsenal Gesellschaft m.b.H
-– Bundesbeschaffung G.m.b.H
-– Bundesrechenzentrum G.m.b.H
+- Bundeskanzleramt
+- Bundesministerium für europäische und internationale Angelegenheiten
+- Bundesministerium für Finanzen
+- Bundesministerium für Gesundheit, Familie und Jugend
+- Bundesministerium für Inneres
+- Bundesministerium für Justiz
+- Bundesministerium für Landesverteidigung
+- Bundesministerium für Land- und Forstwirtschaft, Umwelt und Wasserwirtschaft
+- Bundesministerium für Soziales und Konsumentenschutz
+- Bundesministerium für Unterricht, Kunst und Kultur
+- Bundesministerium für Verkehr, Innovation und Technologie
+- Bundesministerium für Wirtschaft und Arbeit
+- Bundesministerium für Wissenschaft und Forschung
+- Österreichische Forschungs- und Prüfzentrum Arsenal Gesellschaft m.b.H
+- Bundesbeschaffung G.m.b.H
+- Bundesrechenzentrum G.m.b.H
 Polonia
-– Kancelaria Prezydenta RP
-– Kancelaria Sejmu RP
-– Kancelaria Senatu RP
-– Kancelaria Prezesa Rady Ministrów
-– Sąd Najwyższy
-– Naczelny Sąd Administracyjny
-– Wojewódzkie sądy administracyjne
-– Sądy powszechne - rejonowe, okręgowe i apelacyjne
-– Trybunal Konstytucyjny
-– Najwyższa Izba Kontroli
-– Biuro Rzecznika Praw Obywatelskich
-– Biuro Rzecznika Praw Dziecka
-– Biuro Ochrony Rządu
-– Biuro Bezpieczeństwa Narodowego
-– Centralne Biuro Antykorupcyjne
-– Ministerstwo Pracy i Polityki Społecznej
-– Ministerstwo Finansów
-– Ministerstwo Gospodarki
-– Ministerstwo Rozwoju Regionalnego
-– Ministerstwo Kultury i Dziedzictwa Narodowego
-– Ministerstwo Edukacji Narodowej
-– Ministerstwo Obrony Narodowej
-– Ministerstwo Rolnictwa i Rozwoju Wsi
-– Ministerstwo Skarbu Państwa
-– Ministerstwo Sprawiedliwości
-– Ministerstwo Infrastruktury
-– Ministerstwo Nauki i Szkolnictwa Wyższego
-– Ministerstwo Środowiska
-– Ministerstwo Spraw Wewnętrznych i Administracji
-– Ministerstwo Spraw Zagranicznych
-– Ministerstwo Zdrowia
-– Ministerstwo Sportu i Turystyki
-– Urząd Komitetu Integracji Europejskiej
-– Urząd Patentowy Rzeczypospolitej Polskiej
-– Urząd Regulacji Energetyki
-– Urząd do Spraw Kombatantów i Osób Represjonowanych
-– Urząd Transportu Kolejowego
-– Urząd Dozoru Technicznego
-– Urząd Rejestracji Produktów Leczniczych, Wyrobów Medycznych i Produktów
+- Kancelaria Prezydenta RP
+- Kancelaria Sejmu RP
+- Kancelaria Senatu RP
+- Kancelaria Prezesa Rady Ministrów
+- Sąd Najwyższy
+- Naczelny Sąd Administracyjny
+- Wojewódzkie sądy administracyjne
+- Sądy powszechne - rejonowe, okręgowe i apelacyjne
+- Trybunal Konstytucyjny
+- Najwyższa Izba Kontroli
+- Biuro Rzecznika Praw Obywatelskich
+- Biuro Rzecznika Praw Dziecka
+- Biuro Ochrony Rządu
+- Biuro Bezpieczeństwa Narodowego
+- Centralne Biuro Antykorupcyjne
+- Ministerstwo Pracy i Polityki Społecznej
+- Ministerstwo Finansów
+- Ministerstwo Gospodarki
+- Ministerstwo Rozwoju Regionalnego
+- Ministerstwo Kultury i Dziedzictwa Narodowego
+- Ministerstwo Edukacji Narodowej
+- Ministerstwo Obrony Narodowej
+- Ministerstwo Rolnictwa i Rozwoju Wsi
+- Ministerstwo Skarbu Państwa
+- Ministerstwo Sprawiedliwości
+- Ministerstwo Infrastruktury
+- Ministerstwo Nauki i Szkolnictwa Wyższego
+- Ministerstwo Środowiska
+- Ministerstwo Spraw Wewnętrznych i Administracji
+- Ministerstwo Spraw Zagranicznych
+- Ministerstwo Zdrowia
+- Ministerstwo Sportu i Turystyki
+- Urząd Komitetu Integracji Europejskiej
+- Urząd Patentowy Rzeczypospolitej Polskiej
+- Urząd Regulacji Energetyki
+- Urząd do Spraw Kombatantów i Osób Represjonowanych
+- Urząd Transportu Kolejowego
+- Urząd Dozoru Technicznego
+- Urząd Rejestracji Produktów Leczniczych, Wyrobów Medycznych i Produktów
 Biobójczych
-– Urząd do Spraw Repatriacji i Cudzoziemców
-– Urząd Zamówień Publicznych
-– Urząd Ochrony Konkurencji i Konsumentów
-– Urząd Lotnictwa Cywilnego
-– Urząd Komunikacji Elektronicznej
-– Wyższy Urząd Górniczy
-– Główny Urząd Miar
-– Główny Urząd Geodezji i Kartografii
-– Główny Urząd Nadzoru Budowlanego
-– Główny Urząd Statystyczny
-– Krajowa Rada Radiofonii i Telewizji
-– Generalny Inspektor Ochrony Danych Osobowych
-– Państwowa Komisja Wyborcza
-– Państwowa Inspekcja Pracy
-– Rządowe Centrum Legislacji
-– Narodowy Fundusz Zdrowia
-– Polska Akademia Nauk
-– Polskie Centrum Akredytacji
-– Polskie Centrum Badań i Certyfikacji
-– Polska Organizacja Turystyczna
-– Polski Komitet Normalizacyjny
-– Zakład Ubezpieczeń Społecznych
-– Komisja Nadzoru Finansowego
-– Naczelna Dyrekcja Archiwów Państwowych
-– Kasa Rolniczego Ubezpieczenia Społecznego
-– Generalna Dyrekcja Dróg Krajowych i Autostrad
-– Państwowa Inspekcja Ochrony Roślin i Nasiennictwa
-– Komenda Główna Państwowej Straży Pożarnej
-– Komenda Główna Policji
-– Komenda Główna Straży Granicznej
-– Inspekcja Jakości Handlowej Artykułów Rolno-Spożywczych
-– Główny Inspektorat Ochrony Środowiska
-– Główny Inspektorat Transportu Drogowego
-– Główny Inspektorat Farmaceutyczny
-– Główny Inspektorat Sanitarny
-– Główny Inspektorat Weterynarii
-– Agencja Bezpieczeństwa Wewnętrznego
-– Agencja Wywiadu
-– Agencja Mienia Wojskowego
-– Wojskowa Agencja Mieszkaniowa
-– Agencja Restrukturyzacji i Modernizacji Rolnictwa
-– Agencja Rynku Rolnego
-– Agencja Nieruchomości Rolnych
-– Państwowa Agencja Atomistyki
-– Polska Agencja Żeglugi Powietrznej
-– Polska Agencja Rozwiązywania Problemów Alkoholowych
-– Agencja Rezerw Materiałowych
-– Narodowy Bank Polski
-– Narodowy Fundusz Ochrony Środowiska i Gospodarki Wodnej
-– Państwowy Fundusz Rehabilitacji Osób Niepełnosprawnych
-– Instytut Pamięci Narodowej - Komisja Ścigania Zbrodni Przeciwko Narodowi
+- Urząd do Spraw Repatriacji i Cudzoziemców
+- Urząd Zamówień Publicznych
+- Urząd Ochrony Konkurencji i Konsumentów
+- Urząd Lotnictwa Cywilnego
+- Urząd Komunikacji Elektronicznej
+- Wyższy Urząd Górniczy
+- Główny Urząd Miar
+- Główny Urząd Geodezji i Kartografii
+- Główny Urząd Nadzoru Budowlanego
+- Główny Urząd Statystyczny
+- Krajowa Rada Radiofonii i Telewizji
+- Generalny Inspektor Ochrony Danych Osobowych
+- Państwowa Komisja Wyborcza
+- Państwowa Inspekcja Pracy
+- Rządowe Centrum Legislacji
+- Narodowy Fundusz Zdrowia
+- Polska Akademia Nauk
+- Polskie Centrum Akredytacji
+- Polskie Centrum Badań i Certyfikacji
+- Polska Organizacja Turystyczna
+- Polski Komitet Normalizacyjny
+- Zakład Ubezpieczeń Społecznych
+- Komisja Nadzoru Finansowego
+- Naczelna Dyrekcja Archiwów Państwowych
+- Kasa Rolniczego Ubezpieczenia Społecznego
+- Generalna Dyrekcja Dróg Krajowych i Autostrad
+- Państwowa Inspekcja Ochrony Roślin i Nasiennictwa
+- Komenda Główna Państwowej Straży Pożarnej
+- Komenda Główna Policji
+- Komenda Główna Straży Granicznej
+- Inspekcja Jakości Handlowej Artykułów Rolno-Spożywczych
+- Główny Inspektorat Ochrony Środowiska
+- Główny Inspektorat Transportu Drogowego
+- Główny Inspektorat Farmaceutyczny
+- Główny Inspektorat Sanitarny
+- Główny Inspektorat Weterynarii
+- Agencja Bezpieczeństwa Wewnętrznego
+- Agencja Wywiadu
+- Agencja Mienia Wojskowego
+- Wojskowa Agencja Mieszkaniowa
+- Agencja Restrukturyzacji i Modernizacji Rolnictwa
+- Agencja Rynku Rolnego
+- Agencja Nieruchomości Rolnych
+- Państwowa Agencja Atomistyki
+- Polska Agencja Żeglugi Powietrznej
+- Polska Agencja Rozwiązywania Problemów Alkoholowych
+- Agencja Rezerw Materiałowych
+- Narodowy Bank Polski
+- Narodowy Fundusz Ochrony Środowiska i Gospodarki Wodnej
+- Państwowy Fundusz Rehabilitacji Osób Niepełnosprawnych
+- Instytut Pamięci Narodowej - Komisja Ścigania Zbrodni Przeciwko Narodowi
 Polskiemu
-– Rada Ochrony Pamięci Walk i Męczeństwa
-– Służba Celna Rzeczypospolitej Polskiej
-– Państwowe Gospodarstwo Leśne "Lasy Państwowe"
-– Polska Agencja Rozwoju Przedsiębiorczości
-– Urzędy wojewódzkie
-– Samodzielne Publiczne Zakłady Opieki Zdrowotnej, jeśli ich organem założycielskim
+- Rada Ochrony Pamięci Walk i Męczeństwa
+- Służba Celna Rzeczypospolitej Polskiej
+- Państwowe Gospodarstwo Leśne "Lasy Państwowe"
+- Polska Agencja Rozwoju Przedsiębiorczości
+- Urzędy wojewódzkie
+- Samodzielne Publiczne Zakłady Opieki Zdrowotnej, jeśli ich organem założycielskim
 jest minister, centralny organ administracji rządowej lub wojewoda
 Portugal
-– Presidência do Conselho de Ministros
-– Ministério das Finanças e da Administração Pública
-– Ministério da Defesa Nacional
-– Ministério dos Negócios Estrangeiros
-– Ministério da Administração Interna
-– Ministério da Justiça
-– Ministério da Economia e da Inovação
-– Ministério da Agricultura, Desenvolvimento Rural e Pescas
-– Ministério da Educação
-– Ministério da Ciência, Tecnologia e do Ensino Superior
-– Ministério da Cultura
-– Ministério da Saúde
-– Ministério do Trabalho e da Solidariedade Social
-– Ministério das Obras Públicas, Transportes e Comunicações
-– Ministério do Ambiente, do Ordenamento do Território e do Desenvolvimento
+- Presidência do Conselho de Ministros
+- Ministério das Finanças e da Administração Pública
+- Ministério da Defesa Nacional
+- Ministério dos Negócios Estrangeiros
+- Ministério da Administração Interna
+- Ministério da Justiça
+- Ministério da Economia e da Inovação
+- Ministério da Agricultura, Desenvolvimento Rural e Pescas
+- Ministério da Educação
+- Ministério da Ciência, Tecnologia e do Ensino Superior
+- Ministério da Cultura
+- Ministério da Saúde
+- Ministério do Trabalho e da Solidariedade Social
+- Ministério das Obras Públicas, Transportes e Comunicações
+- Ministério do Ambiente, do Ordenamento do Território e do Desenvolvimento
 Regional
-– Presidência da República
-– Tribunal Constitucional
-– Tribunal de Contas
-– Provedoria de Justiça
+- Presidência da República
+- Tribunal Constitucional
+- Tribunal de Contas
+- Provedoria de Justiça
 Rumanía
-– Administraţia Prezidenţială
-– Senatul României
-– Camera Deputaţilor
-– Înalta Curte de Casaţie şi Justiţie
-– Curtea Constituţională
-– Consiliul Legislativ
-– Curtea de Conturi
-– Consiliul Superior al Magistraturii
-– Parchetul de pe lângă Înalta Curte de Casaţie şi Justiţie
-– Secretariatul General al Guvernului
-– Cancelaria Primului-Ministru
-– Ministerul Afacerilor Externe
-– Ministerul Economiei şi Finanţelor
-– Ministerul Justiţiei
-– Ministerul Apărării
-– Ministerul Internelor şi Reformei Administrative
-– Ministerul Muncii, Familiei şi Egalităţii de Șanse
-– Ministerul pentru Întreprinderi Mici şi Mijlocii, Comerţ, Turism şi Profesii Liberale
-– Ministerul Agriculturii şi Dezvoltării Rurale
-– Ministerul Transporturilor
-– Ministerul Dezvoltării, Lucrărilor Publice şi Locuinţei
-– Ministerul Educaţiei, Cercetării şi Tineretului
-– Ministerul Sănătăţii Publice
-– Ministerul Culturii şi Cultelor
-– Ministerul Comunicaţiilor şi Tehnologiei Informaţiei
-– Ministerul Mediului şi Dezvoltării Durabile
-– Serviciul Român de Informaţii
-– Serviciul de Informaţii Externe
-– Serviciul de Protecţie şi Pază
-– Serviciul de Telecomunicaţii Speciale
-– Consiliul Naţional al Audiovizualului
-– Consiliul Concurenţei (CC)
-– Direcţia Naţională Anticorupţie
-– Inspectoratul General de Poliţie
-– Autoritatea Naţională pentru Reglementarea şi Monitorizarea Achiziţiilor Publice
-– Consiliul Naţional de Soluţionare a Contestaţiilor
-– Autoritatea Naţională de Reglementare pentru Serviciile Comunitare de utilităţi publice (ANRSC)
-– Autoritatea Naţională Sanitară Veterinară şi pentru Siguranţa Alimentelor
-– Autoritatea Naţională pentru Protecţia Consumatorilor
-– Autoritatea Navală Română
-– Autoritatea Feroviară Română
-– Autoritatea Rutieră Română
-– Autoritatea Naţională pentru Protecţia Drepturilor Copilului
-– Autoritatea Naţională pentru Persoanele cu Handicap
-– Autoritatea Naţională pentru Turism
-– Autoritatea Naţională pentru Restituirea Proprietăţilor
-– Autoritatea Naţională pentru Tineret
-– Autoritatea Naţională pentru Cercetare Stiinţifică
-– Autoritatea Naţională pentru Reglementare în Comunicaţii şi Tehnologia Informaţiei
-– Autoritatea Naţională pentru Serviciile Societăţii Informaţionale
-– Autoritatea Electorală Permanentă
-– Agenţia pentru Strategii Guvernamentale
-– Agenţia Naţională a Medicamentului
-– Agenţia Naţională pentru Sport
-– Agenţia Naţională pentru Ocuparea Forţei de Muncă
-– Agenţia Naţională de Reglementare în Domeniul Energiei
-– Agenţia Română pentru Conservarea Energiei
-– Agenţia Naţională pentru Resurse Minerale
-– Agenţia Română pentru Investiţii Străine
-– Agenţia Naţională pentru Întreprinderi Mici şi Mijlocii şi Cooperaţie
-– Agenţia Naţională a Funcţionarilor Publici
-– Agenţia Naţională de Administrare Fiscală
-– Agenţia de Compensare pentru Achiziţii de Tehnică Specială
-– Agenţia Naţională Anti-doping
-– Agenţia Nucleară
-– Agenţia Naţională pentru Protecţia Familiei
-– Agenţia Naţională pentru Egalitatea de Șanse între Bărbaţi şi Femei
-– Agenţia Naţională pentru Protecţia Mediului
-– Agenţia Naţională Antidrog
+- Administraţia Prezidenţială
+- Senatul României
+- Camera Deputaţilor
+- Înalta Curte de Casaţie şi Justiţie
+- Curtea Constituţională
+- Consiliul Legislativ
+- Curtea de Conturi
+- Consiliul Superior al Magistraturii
+- Parchetul de pe lângă Înalta Curte de Casaţie şi Justiţie
+- Secretariatul General al Guvernului
+- Cancelaria Primului-Ministru
+- Ministerul Afacerilor Externe
+- Ministerul Economiei şi Finanţelor
+- Ministerul Justiţiei
+- Ministerul Apărării
+- Ministerul Internelor şi Reformei Administrative
+- Ministerul Muncii, Familiei şi Egalităţii de Șanse
+- Ministerul pentru Întreprinderi Mici şi Mijlocii, Comerţ, Turism şi Profesii Liberale
+- Ministerul Agriculturii şi Dezvoltării Rurale
+- Ministerul Transporturilor
+- Ministerul Dezvoltării, Lucrărilor Publice şi Locuinţei
+- Ministerul Educaţiei, Cercetării şi Tineretului
+- Ministerul Sănătăţii Publice
+- Ministerul Culturii şi Cultelor
+- Ministerul Comunicaţiilor şi Tehnologiei Informaţiei
+- Ministerul Mediului şi Dezvoltării Durabile
+- Serviciul Român de Informaţii
+- Serviciul de Informaţii Externe
+- Serviciul de Protecţie şi Pază
+- Serviciul de Telecomunicaţii Speciale
+- Consiliul Naţional al Audiovizualului
+- Consiliul Concurenţei (CC)
+- Direcţia Naţională Anticorupţie
+- Inspectoratul General de Poliţie
+- Autoritatea Naţională pentru Reglementarea şi Monitorizarea Achiziţiilor Publice
+- Consiliul Naţional de Soluţionare a Contestaţiilor
+- Autoritatea Naţională de Reglementare pentru Serviciile Comunitare de utilităţi publice (ANRSC)
+- Autoritatea Naţională Sanitară Veterinară şi pentru Siguranţa Alimentelor
+- Autoritatea Naţională pentru Protecţia Consumatorilor
+- Autoritatea Navală Română
+- Autoritatea Feroviară Română
+- Autoritatea Rutieră Română
+- Autoritatea Naţională pentru Protecţia Drepturilor Copilului
+- Autoritatea Naţională pentru Persoanele cu Handicap
+- Autoritatea Naţională pentru Turism
+- Autoritatea Naţională pentru Restituirea Proprietăţilor
+- Autoritatea Naţională pentru Tineret
+- Autoritatea Naţională pentru Cercetare Stiinţifică
+- Autoritatea Naţională pentru Reglementare în Comunicaţii şi Tehnologia Informaţiei
+- Autoritatea Naţională pentru Serviciile Societăţii Informaţionale
+- Autoritatea Electorală Permanentă
+- Agenţia pentru Strategii Guvernamentale
+- Agenţia Naţională a Medicamentului
+- Agenţia Naţională pentru Sport
+- Agenţia Naţională pentru Ocuparea Forţei de Muncă
+- Agenţia Naţională de Reglementare în Domeniul Energiei
+- Agenţia Română pentru Conservarea Energiei
+- Agenţia Naţională pentru Resurse Minerale
+- Agenţia Română pentru Investiţii Străine
+- Agenţia Naţională pentru Întreprinderi Mici şi Mijlocii şi Cooperaţie
+- Agenţia Naţională a Funcţionarilor Publici
+- Agenţia Naţională de Administrare Fiscală
+- Agenţia de Compensare pentru Achiziţii de Tehnică Specială
+- Agenţia Naţională Anti-doping
+- Agenţia Nucleară
+- Agenţia Naţională pentru Protecţia Familiei
+- Agenţia Naţională pentru Egalitatea de Șanse între Bărbaţi şi Femei
+- Agenţia Naţională pentru Protecţia Mediului
+- Agenţia Naţională Antidrog
 Eslovenia
-– Predsednik Republike Slovenije
-– Drņavni zbor Republike Slovenije
-– Drņavni svet Republike Slovenije
-– Varuh človekovih pravic
-– Ustavno sodińče Republike Slovenije
-– Računsko sodińče Republike Slovenije
-– Drņavna revizijska komisja za revizijo postopkov oddaje javnih naročil
-– Slovenska akademija znanosti in umetnosti
-– Vladne sluņbe
-– Ministrstvo za finance
-– Ministrstvo za notranje zadeve
-– Ministrstvo za zunanje zadeve
-– Ministrstvo za obrambo
-– Ministrstvo za pravosodje
-– Ministrstvo za gospodarstvo
-– Ministrstvo za kmetijstvo, gozdarstvo in prehrano
-– Ministrstvo za promet
-– Ministrstvo za okolje in, prostor
-– Ministrstvo za delo, druņino in socialne zadeve
-– Ministrstvo za zdravje
-– Ministrstvo za javno upravo
-– Ministrstvo za ńolstvo in ńport
-– Ministrstvo za visoko ńolstvo, znanost in tehnologijo
-– Ministrstvo za kulturo
-– Vrhovno sodińče Republike Slovenije
-– vińja sodińča
-– okroņna sodińča
-– okrajna sodińča
-– Vrhovno drņavno toņilstvo Republike Slovenije
-– okroņna drņavna toņilstva
-– Drņavno pravobranilstvo
-– Upravno sodińče Republike Slovenije
-– Vińje delovno in socialno sodińče
-– delovna sodińča
-– Davčna uprava Republike Slovenije
-– Carinska uprava Republike Slovenije
-– Urad Republike Slovenije za preprečevanje pranja denarja
-– Urad Republike Slovenije za nadzor prirejanja iger na srečo
-– Uprava Republike Slovenije za javna plačila
-– Urad Republike Slovenije za nadzor proračuna
-– Policija
-– Inńpektorat Republike Slovenije za notranje zadeve
-– General ńtab Slovenske vojske
-– Uprava Republike Slovenije za zańčito in reńevanje
-– Inńpektorat Republike Slovenije za obrambo
-– Inńpektorat Republike Slovenije za varstvo pred naravnimi in drugimi nesrečami
-– Uprava Republike Slovenije za izvrńevanje kazenskih sankcij
-– Urad Republike Slovenije za varstvo konkurence
-– Urad Republike Slovenije za varstvo potrońnikov
-– Trņni inńpektorat Republike Slovenije
-– Urad Republike Slovenije za intelektualno lastnino
-– Inńpektorat Republike Slovenije za elektronske komunikacije, elektronsko
+- Predsednik Republike Slovenije
+- Drņavni zbor Republike Slovenije
+- Drņavni svet Republike Slovenije
+- Varuh človekovih pravic
+- Ustavno sodińče Republike Slovenije
+- Računsko sodińče Republike Slovenije
+- Drņavna revizijska komisja za revizijo postopkov oddaje javnih naročil
+- Slovenska akademija znanosti in umetnosti
+- Vladne sluņbe
+- Ministrstvo za finance
+- Ministrstvo za notranje zadeve
+- Ministrstvo za zunanje zadeve
+- Ministrstvo za obrambo
+- Ministrstvo za pravosodje
+- Ministrstvo za gospodarstvo
+- Ministrstvo za kmetijstvo, gozdarstvo in prehrano
+- Ministrstvo za promet
+- Ministrstvo za okolje in, prostor
+- Ministrstvo za delo, druņino in socialne zadeve
+- Ministrstvo za zdravje
+- Ministrstvo za javno upravo
+- Ministrstvo za ńolstvo in ńport
+- Ministrstvo za visoko ńolstvo, znanost in tehnologijo
+- Ministrstvo za kulturo
+- Vrhovno sodińče Republike Slovenije
+- vińja sodińča
+- okroņna sodińča
+- okrajna sodińča
+- Vrhovno drņavno toņilstvo Republike Slovenije
+- okroņna drņavna toņilstva
+- Drņavno pravobranilstvo
+- Upravno sodińče Republike Slovenije
+- Vińje delovno in socialno sodińče
+- delovna sodińča
+- Davčna uprava Republike Slovenije
+- Carinska uprava Republike Slovenije
+- Urad Republike Slovenije za preprečevanje pranja denarja
+- Urad Republike Slovenije za nadzor prirejanja iger na srečo
+- Uprava Republike Slovenije za javna plačila
+- Urad Republike Slovenije za nadzor proračuna
+- Policija
+- Inńpektorat Republike Slovenije za notranje zadeve
+- General ńtab Slovenske vojske
+- Uprava Republike Slovenije za zańčito in reńevanje
+- Inńpektorat Republike Slovenije za obrambo
+- Inńpektorat Republike Slovenije za varstvo pred naravnimi in drugimi nesrečami
+- Uprava Republike Slovenije za izvrńevanje kazenskih sankcij
+- Urad Republike Slovenije za varstvo konkurence
+- Urad Republike Slovenije za varstvo potrońnikov
+- Trņni inńpektorat Republike Slovenije
+- Urad Republike Slovenije za intelektualno lastnino
+- Inńpektorat Republike Slovenije za elektronske komunikacije, elektronsko
 podpisovanje in pońto
-– Inńpektorat za energetiko in rudarstvo
-– Agencija Republike Slovenije za kmetijske trge in razvoj podeņelja
-– Inńpektorat Republike Slovenije za kmetijstvo, gozdarstvo in hrano
-– Fitosanitarna uprava Republike Slovenije
-– Veterinarska uprava Republike Slovenije
-– Uprava Republike Slovenije za pomorstvo
-– Direkcija Republike Slovenije za caste
-– Prometni inńpektorat Republike Slovenije
-– Direkcija za vodenje investicij v javno ņeleznińko infrastrukturo
-– Agencija Republike Slovenije za okolje
-– Geodetska uprava Republike Slovenije
-– Uprava Republike Slovenije za jedrsko varstvo
-– Inńpektorat Republike Slovenije za okolje in prostor
-– Inńpektorat Republike Slovenije za delo
-– Zdravstveni inńpektorat
-– Urad Republike Slovenije za kemikalije
-– Uprava Republike Slovenije za varstvo pred sevanji
-– Urad Republike Slovenije za meroslovje
-– Urad za visoko ńolstvo
-– Urad Republike Slovenije za mladino
-– Inńpektorat Republike Slovenije za ńolstvo in ńport
-– Arhiv Republike Slovenije
-– Inńpektorat Republike Slovenije za kulturo in medije
-– Kabinet predsednika Vlade Republike Slovenije
-– Generalni sekretariat Vlade Republike Slovenije
-– Sluņba vlade za zakonodajo
-– Sluņba vlade za evropske zadeve
-– Sluņba vlade za lokalno samoupravo in regionalno politiko
-– Urad vlade za komuniciranje
-– Urad za enake moņnosti
-– Urad za verske skupnosti
-– Urad za narodnosti
-– Urad za makroekonomske analize in razvoj
-– Statistični urad Republike Slovenije
-– Slovenska obveńčevalno-varnostna agencija
-– Protokol Republike Slovenije
-– Urad za varovanje tajnih podatkov
-– Urad za Slovence v zamejstvu in po svetu
-– Sluņba Vlade Republike Slovenije za razvoj
-– Informacijski pooblańčenec
-– Drņavna volilna komisija
+- Inńpektorat za energetiko in rudarstvo
+- Agencija Republike Slovenije za kmetijske trge in razvoj podeņelja
+- Inńpektorat Republike Slovenije za kmetijstvo, gozdarstvo in hrano
+- Fitosanitarna uprava Republike Slovenije
+- Veterinarska uprava Republike Slovenije
+- Uprava Republike Slovenije za pomorstvo
+- Direkcija Republike Slovenije za caste
+- Prometni inńpektorat Republike Slovenije
+- Direkcija za vodenje investicij v javno ņeleznińko infrastrukturo
+- Agencija Republike Slovenije za okolje
+- Geodetska uprava Republike Slovenije
+- Uprava Republike Slovenije za jedrsko varstvo
+- Inńpektorat Republike Slovenije za okolje in prostor
+- Inńpektorat Republike Slovenije za delo
+- Zdravstveni inńpektorat
+- Urad Republike Slovenije za kemikalije
+- Uprava Republike Slovenije za varstvo pred sevanji
+- Urad Republike Slovenije za meroslovje
+- Urad za visoko ńolstvo
+- Urad Republike Slovenije za mladino
+- Inńpektorat Republike Slovenije za ńolstvo in ńport
+- Arhiv Republike Slovenije
+- Inńpektorat Republike Slovenije za kulturo in medije
+- Kabinet predsednika Vlade Republike Slovenije
+- Generalni sekretariat Vlade Republike Slovenije
+- Sluņba vlade za zakonodajo
+- Sluņba vlade za evropske zadeve
+- Sluņba vlade za lokalno samoupravo in regionalno politiko
+- Urad vlade za komuniciranje
+- Urad za enake moņnosti
+- Urad za verske skupnosti
+- Urad za narodnosti
+- Urad za makroekonomske analize in razvoj
+- Statistični urad Republike Slovenije
+- Slovenska obveńčevalno-varnostna agencija
+- Protokol Republike Slovenije
+- Urad za varovanje tajnih podatkov
+- Urad za Slovence v zamejstvu in po svetu
+- Sluņba Vlade Republike Slovenije za razvoj
+- Informacijski pooblańčenec
+- Drņavna volilna komisija
 Eslovaquia
 Ministerios y otras autoridades de gobierno central indicadas como tales en la Ley nº 575/2001 Coll. sobre la estructura de las actividades del Gobierno y las autoridades de la Administración central del Estado, en la redacción de disposiciones posteriores:
-– Kancelária prezidenta Slovenskej republiky
-– Národná rada Slovenskej republiky
-– Ministerstvo hospodárstva Slovenskej republiky
-– Ministerstvo financií Slovenskej republiky
-– Ministerstvo dopravy, pôńt a telekomunikácií Slovenskej republiky
-– Ministerstvo pôdohospodárstva Slovenskej republiky
-– Ministerstvo výstavby a regionálneho rozvoja Slovenskej republiky
-– Ministerstvo vnútra Slovenskej republiky
-– Ministerstvo obrany Slovenskej republiky
-– Ministerstvo spravodlivosti Slovenskej republiky
-– Ministerstvo zahraničných vecí Slovenskej republiky
-– Ministerstvo práce, sociálnych vecí a rodiny Slovenskej republiky
-– Ministerstvo ņivotného prostredia Slovenskej republiky
-– Ministerstvo ńkolstva Slovenskej republiky
-– Ministerstvo kultúry Slovenskej republiky
-– Ministerstvo zdravotníctva Slovenskej republiky
-– Úrad vlády Slovenskej republiky
-– Protimonopolný úrad Slovenskej republiky
-– Ńtatistický úrad Slovenskej republiky
-– Úrad geodézie, kartografie a katastra Slovenskej republiky
-– Úrad jadrového dozoru Slovenskej republiky
-– Úrad pre normalizáciu, metrológiu a skúńobníctvo Slovenskej republiky
-– Úrad pre verejné obstarávanie
-– Úrad priemyselného vlastníctva Slovenskej republiky
-– Správa ńtátnych hmotných rezerv Slovenskej republiky
-– Národný bezpečnostný úrad
-– Ústavný súd Slovenskej republiky
-– Najvyńńí súd Slovenskej republiky
-– Generálna prokuratúra Slovenskej republiky
-– Najvyńńí kontrolný úrad Slovenskej republiky
-– Telekomunikačný úrad Slovenskej republiky
-– Úrad pre finančný trh
-– Úrad na ochranu osobných údajov Slovenskej republiky
-– Kancelária verejného ochrancu práv
+- Kancelária prezidenta Slovenskej republiky
+- Národná rada Slovenskej republiky
+- Ministerstvo hospodárstva Slovenskej republiky
+- Ministerstvo financií Slovenskej republiky
+- Ministerstvo dopravy, pôńt a telekomunikácií Slovenskej republiky
+- Ministerstvo pôdohospodárstva Slovenskej republiky
+- Ministerstvo výstavby a regionálneho rozvoja Slovenskej republiky
+- Ministerstvo vnútra Slovenskej republiky
+- Ministerstvo obrany Slovenskej republiky
+- Ministerstvo spravodlivosti Slovenskej republiky
+- Ministerstvo zahraničných vecí Slovenskej republiky
+- Ministerstvo práce, sociálnych vecí a rodiny Slovenskej republiky
+- Ministerstvo ņivotného prostredia Slovenskej republiky
+- Ministerstvo ńkolstva Slovenskej republiky
+- Ministerstvo kultúry Slovenskej republiky
+- Ministerstvo zdravotníctva Slovenskej republiky
+- Úrad vlády Slovenskej republiky
+- Protimonopolný úrad Slovenskej republiky
+- Ńtatistický úrad Slovenskej republiky
+- Úrad geodézie, kartografie a katastra Slovenskej republiky
+- Úrad jadrového dozoru Slovenskej republiky
+- Úrad pre normalizáciu, metrológiu a skúńobníctvo Slovenskej republiky
+- Úrad pre verejné obstarávanie
+- Úrad priemyselného vlastníctva Slovenskej republiky
+- Správa ńtátnych hmotných rezerv Slovenskej republiky
+- Národný bezpečnostný úrad
+- Ústavný súd Slovenskej republiky
+- Najvyńńí súd Slovenskej republiky
+- Generálna prokuratúra Slovenskej republiky
+- Najvyńńí kontrolný úrad Slovenskej republiky
+- Telekomunikačný úrad Slovenskej republiky
+- Úrad pre finančný trh
+- Úrad na ochranu osobných údajov Slovenskej republiky
+- Kancelária verejného ochrancu práv
 Finlandia
-– Oikeuskanslerinvirasto – Justitiekanslersämbetet
-– Liikenne- Ja Viestintäministeriö – Kommunikationsministeriet
-– Ajoneuvohallintokeskus AKE – Fordonsförvaltningscentralen AKE
-– Ilmailuhallinto – Luftfartsförvaltningen
-– Ilmatieteen laitos – Meteorologiska institutet
-– Merenkulkulaitos – Sjöfartsverket
-– Merentutkimuslaitos – Havsforskningsinstitutet
-– Ratahallintokeskus RHK – Banförvaltningscentralen RHK
-– Rautatievirasto – Järnvägsverket
-– Tiehallinto – Vägförvaltningen
-– Viestintävirasto – Kommunikationsverket
-– Maa- Ja Metsätalousministeriö – Jord- Och Skogsbruksministeriet
-– Elintarviketurvallisuusvirasto – Livsmedelssäkerhetsverket
-– Maanmittauslaitos – Lantmäteriverket
-– Maaseutuvirasto – Landsbygdsverket
-– Oikeusministeriö – Justitieministeriet
-– Tietosuojavaltuutetun toimisto – Dataombudsmannens byrå
-– Tuomioistuimet – domstolar
-– Korkein oikeus – Högsta domstolen
-– Korkein hallinto-oikeus – Högsta förvaltningsdomstolen
-– Hovioikeudet – hovrätter
-– Käräjäoikeudet – tingsrätter
-– Hallinto-oikeudet –förvaltningsdomstolar
-– Markkinaoikeus - Marknadsdomstolen
-– Työtuomioistuin – Arbetsdomstolen
-– Vakuutusoikeus – Försäkringsdomstolen
-– Kuluttajariitalautakunta – Konsumenttvistenämnden
-– Vankeinhoitolaitos – Fångvårdsväsendet
-– HEUNI - Yhdistyneiden Kansakuntien yhteydessä toimiva Euroopan kriminaalipolitiikan instituutti – HEUNI - Europeiska institutet för kriminalpolitik, verksamt i anslutning till Förenta Nationerna
-– Konkurssiasiamiehen toimisto – Konkursombudsmannens byrå
-– Kuluttajariitalautakunta – Konsumenttvistenämnden
-– Oikeushallinnon palvelukeskus – Justitieförvaltningens servicecentral
-– Oikeushallinnon tietotekniikkakeskus – Justitieförvaltningens datateknikcentral
-– Oikeuspoliittinen tutkimuslaitos (Optula) – Rättspolitiska forskningsinstitutet
-– Oikeusrekisterikeskus – Rättsregistercentralen
-– Onnettomuustutkintakeskus – Centralen för undersökning av olyckor
-– Rikosseuraamusvirasto – Brottspåföljdsverket
-– Rikosseuraamusalan koulutuskeskus – Brottspåföljdsområdets utbildningscentral
-– Rikoksentorjuntaneuvosto Rådet för brottsförebyggande
-– Saamelaiskäräjät – Sametinget
-– Valtakunnansyyttäjänvirasto – Riksåklagarämbetet
-– Vankeinhoitolaitos – Fångvårdsväsendet
-– Opetusministeriö – Undervisningsministeriet
-– Opetushallitus – Utbildningsstyrelsen
-– Valtion elokuvatarkastamo – Statens filmgranskningsbyrå
-– Puolustusministeriö – Försvarsministeriet
-– Puolustusvoimat – Försvarsmakten
-– Sisäasiainministeriö – Inrikesministeriet
-– Väestörekisterikeskus – Befolkningsregistercentralen
-– Keskusrikospoliisi – Centralkriminalpolisen
-– Liikkuva poliisi – Rörliga polisen
-– Rajavartiolaitos – Gränsbevakningsväsendet
-– Lääninhallitukset – Länstyrelserna
-– Suojelupoliisi – Skyddspolisen
-– Poliisiammattikorkeakoulu – Polisyrkeshögskolan
-– Poliisin tekniikkakeskus – Polisens teknikcentral
-– Poliisin tietohallintokeskus – Polisens datacentral
-– Helsingin kihlakunnan poliisilaitos – Polisinrättningen i Helsingfors
-– Pelastusopisto – Räddningsverket
-– Hätäkeskuslaitos – Nödcentralsverket
-– Maahanmuuttovirasto – Migrationsverket
-– Sisäasiainhallinnon palvelukeskus – Inrikesförvaltningens servicecentral
-– Sosiaali- Ja Terveysministeriö – Social- Och Hälsovårdsministeriet
-– Työttömyysturvan muutoksenhakulautakunta – Besvärsnämnden för utkomstskyddsärenden
-– Sosiaaliturvan muutoksenhakulautakunta – Besvärsnämnden för socialtrygghet
-– Lääkelaitos – Läkemedelsverket
-– Terveydenhuollon oikeusturvakeskus – Rättsskyddscentralen för hälsovården
-– Säteilyturvakeskus – Strålsäkerhetscentralen
-– Kansanterveyslaitos – Folkhälsoinstitutet
-– Lääkehoidon kehittämiskeskus ROHTO – Utvecklingscentralen för läkemedelsbe-handling
-– Sosiaali- ja terveydenhuollon tuotevalvontakeskus – Social- och hälsovårdens produkttill-synscentral
-– Sosiaali- ja terveysalan tutkimus- ja kehittämiskeskus Stakes – Forsknings- och utvecklingscentralen för social- och hälsovården Stakes
-– Vakuutusvalvontavirasto – Försäkringsinspektionen
-– Työ- Ja Elinkeinoministeriö – Arbets- Och Näringsministeriet
-– Kuluttajavirasto – Konsumentverket
-– Kilpailuvirasto – Konkurrensverket
-– Patentti- ja rekisterihallitus – Patent- och registerstyrelsen
-– Valtakunnansovittelijain toimisto – Riksförlikningsmännens byrå
-– Valtion turvapaikanhakijoiden vastaanottokeskukset– Statliga förläggningar för asylsökande
-– Energiamarkkinavirasto − Energimarknadsverket
-– Geologian tutkimuskeskus – Geologiska forskningscentralen
-– Huoltovarmuuskeskus – Försörjningsberedskapscentralen
-– Kuluttajatutkimuskeskus – Konsumentforskningscentralen
-– Matkailun edistämiskeskus (MEK) – Centralen för turistfrämjande
-– Mittatekniikan keskus (MIKES) – Mätteknikcentralen
-– Tekes - teknologian ja innovaatioiden kehittämiskeskus −Tekes - utvecklingscentralen för teknologi och innovationer
-– Turvatekniikan keskus (TUKES) – Säkerhetsteknikcentralen
-– Valtion teknillinen tutkimuskeskus (VTT) – Statens tekniska forskningscentral
-– Syrjintälautakunta – Nationella diskrimineringsnämnden
-– Työneuvosto – Arbetsrådet
-– Vähemmistövaltuutetun toimisto – Minoritetsombudsmannens byrå
-– Ulkoasiainministeriö – Utrikesministeriet
-– Valtioneuvoston Kanslia – Statsrådets Kansli
-– Valtiovarainministeriö – Finansministeriet
-– Valtiokonttori – Statskontoret
-– Verohallinto – Skatteförvaltningen
-– Tullilaitos – Tullverket
-– Tilastokeskus – Statistikcentralen
-– Valtiontaloudellinen tutkimuskeskus – Statens ekonomiska forskiningscentral
-– Ympäristöministeriö – Miljöministeriet
-– Suomen ympäristökeskus - Finlands miljöcentral
-– Asumisen rahoitus- ja kehityskeskus – Finansierings- och utvecklingscentralen för boendet
-– Valtiontalouden Tarkastusvirasto – Statens Revisionsverk
+- Oikeuskanslerinvirasto - Justitiekanslersämbetet
+- Liikenne- Ja Viestintäministeriö - Kommunikationsministeriet
+- Ajoneuvohallintokeskus AKE - Fordonsförvaltningscentralen AKE
+- Ilmailuhallinto - Luftfartsförvaltningen
+- Ilmatieteen laitos - Meteorologiska institutet
+- Merenkulkulaitos - Sjöfartsverket
+- Merentutkimuslaitos - Havsforskningsinstitutet
+- Ratahallintokeskus RHK - Banförvaltningscentralen RHK
+- Rautatievirasto - Järnvägsverket
+- Tiehallinto - Vägförvaltningen
+- Viestintävirasto - Kommunikationsverket
+- Maa- Ja Metsätalousministeriö - Jord- Och Skogsbruksministeriet
+- Elintarviketurvallisuusvirasto - Livsmedelssäkerhetsverket
+- Maanmittauslaitos - Lantmäteriverket
+- Maaseutuvirasto - Landsbygdsverket
+- Oikeusministeriö - Justitieministeriet
+- Tietosuojavaltuutetun toimisto - Dataombudsmannens byrå
+- Tuomioistuimet - domstolar
+- Korkein oikeus - Högsta domstolen
+- Korkein hallinto-oikeus - Högsta förvaltningsdomstolen
+- Hovioikeudet - hovrätter
+- Käräjäoikeudet - tingsrätter
+- Hallinto-oikeudet -förvaltningsdomstolar
+- Markkinaoikeus - Marknadsdomstolen
+- Työtuomioistuin - Arbetsdomstolen
+- Vakuutusoikeus - Försäkringsdomstolen
+- Kuluttajariitalautakunta - Konsumenttvistenämnden
+- Vankeinhoitolaitos - Fångvårdsväsendet
+- HEUNI - Yhdistyneiden Kansakuntien yhteydessä toimiva Euroopan kriminaalipolitiikan instituutti - HEUNI - Europeiska institutet för kriminalpolitik, verksamt i anslutning till Förenta Nationerna
+- Konkurssiasiamiehen toimisto - Konkursombudsmannens byrå
+- Kuluttajariitalautakunta - Konsumenttvistenämnden
+- Oikeushallinnon palvelukeskus - Justitieförvaltningens servicecentral
+- Oikeushallinnon tietotekniikkakeskus - Justitieförvaltningens datateknikcentral
+- Oikeuspoliittinen tutkimuslaitos (Optula) - Rättspolitiska forskningsinstitutet
+- Oikeusrekisterikeskus - Rättsregistercentralen
+- Onnettomuustutkintakeskus - Centralen för undersökning av olyckor
+- Rikosseuraamusvirasto - Brottspåföljdsverket
+- Rikosseuraamusalan koulutuskeskus - Brottspåföljdsområdets utbildningscentral
+- Rikoksentorjuntaneuvosto Rådet för brottsförebyggande
+- Saamelaiskäräjät - Sametinget
+- Valtakunnansyyttäjänvirasto - Riksåklagarämbetet
+- Vankeinhoitolaitos - Fångvårdsväsendet
+- Opetusministeriö - Undervisningsministeriet
+- Opetushallitus - Utbildningsstyrelsen
+- Valtion elokuvatarkastamo - Statens filmgranskningsbyrå
+- Puolustusministeriö - Försvarsministeriet
+- Puolustusvoimat - Försvarsmakten
+- Sisäasiainministeriö - Inrikesministeriet
+- Väestörekisterikeskus - Befolkningsregistercentralen
+- Keskusrikospoliisi - Centralkriminalpolisen
+- Liikkuva poliisi - Rörliga polisen
+- Rajavartiolaitos - Gränsbevakningsväsendet
+- Lääninhallitukset - Länstyrelserna
+- Suojelupoliisi - Skyddspolisen
+- Poliisiammattikorkeakoulu - Polisyrkeshögskolan
+- Poliisin tekniikkakeskus - Polisens teknikcentral
+- Poliisin tietohallintokeskus - Polisens datacentral
+- Helsingin kihlakunnan poliisilaitos - Polisinrättningen i Helsingfors
+- Pelastusopisto - Räddningsverket
+- Hätäkeskuslaitos - Nödcentralsverket
+- Maahanmuuttovirasto - Migrationsverket
+- Sisäasiainhallinnon palvelukeskus - Inrikesförvaltningens servicecentral
+- Sosiaali- Ja Terveysministeriö - Social- Och Hälsovårdsministeriet
+- Työttömyysturvan muutoksenhakulautakunta - Besvärsnämnden för utkomstskyddsärenden
+- Sosiaaliturvan muutoksenhakulautakunta - Besvärsnämnden för socialtrygghet
+- Lääkelaitos - Läkemedelsverket
+- Terveydenhuollon oikeusturvakeskus - Rättsskyddscentralen för hälsovården
+- Säteilyturvakeskus - Strålsäkerhetscentralen
+- Kansanterveyslaitos - Folkhälsoinstitutet
+- Lääkehoidon kehittämiskeskus ROHTO - Utvecklingscentralen för läkemedelsbe-handling
+- Sosiaali- ja terveydenhuollon tuotevalvontakeskus - Social- och hälsovårdens produkttill-synscentral
+- Sosiaali- ja terveysalan tutkimus- ja kehittämiskeskus Stakes - Forsknings- och utvecklingscentralen för social- och hälsovården Stakes
+- Vakuutusvalvontavirasto - Försäkringsinspektionen
+- Työ- Ja Elinkeinoministeriö - Arbets- Och Näringsministeriet
+- Kuluttajavirasto - Konsumentverket
+- Kilpailuvirasto - Konkurrensverket
+- Patentti- ja rekisterihallitus - Patent- och registerstyrelsen
+- Valtakunnansovittelijain toimisto - Riksförlikningsmännens byrå
+- Valtion turvapaikanhakijoiden vastaanottokeskukset- Statliga förläggningar för asylsökande
+- Energiamarkkinavirasto − Energimarknadsverket
+- Geologian tutkimuskeskus - Geologiska forskningscentralen
+- Huoltovarmuuskeskus - Försörjningsberedskapscentralen
+- Kuluttajatutkimuskeskus - Konsumentforskningscentralen
+- Matkailun edistämiskeskus (MEK) - Centralen för turistfrämjande
+- Mittatekniikan keskus (MIKES) - Mätteknikcentralen
+- Tekes - teknologian ja innovaatioiden kehittämiskeskus −Tekes - utvecklingscentralen för teknologi och innovationer
+- Turvatekniikan keskus (TUKES) - Säkerhetsteknikcentralen
+- Valtion teknillinen tutkimuskeskus (VTT) - Statens tekniska forskningscentral
+- Syrjintälautakunta - Nationella diskrimineringsnämnden
+- Työneuvosto - Arbetsrådet
+- Vähemmistövaltuutetun toimisto - Minoritetsombudsmannens byrå
+- Ulkoasiainministeriö - Utrikesministeriet
+- Valtioneuvoston Kanslia - Statsrådets Kansli
+- Valtiovarainministeriö - Finansministeriet
+- Valtiokonttori - Statskontoret
+- Verohallinto - Skatteförvaltningen
+- Tullilaitos - Tullverket
+- Tilastokeskus - Statistikcentralen
+- Valtiontaloudellinen tutkimuskeskus - Statens ekonomiska forskiningscentral
+- Ympäristöministeriö - Miljöministeriet
+- Suomen ympäristökeskus - Finlands miljöcentral
+- Asumisen rahoitus- ja kehityskeskus - Finansierings- och utvecklingscentralen för boendet
+- Valtiontalouden Tarkastusvirasto - Statens Revisionsverk
 Suecia
 A
-– Affärsverket svenska kraftnät
-– Akademien för de fria konsterna
-– Alkohol- och läkemedelssortiments-nämnden
-– Allmänna pensionsfonden
-– Allmänna reklamationsnämnden
-– Ambassader
-– Ansvarsnämnd, statens
-– Arbetsdomstolen
-– Arbetsförmedlingen
-– Arbetsgivarverk, statens
-– Arbetslivsinstitutet
-– Arbetsmiljöverket
-– Arkitekturmuseet
-– Arrendenämnder
-– Arvsfondsdelegationen
+- Affärsverket svenska kraftnät
+- Akademien för de fria konsterna
+- Alkohol- och läkemedelssortiments-nämnden
+- Allmänna pensionsfonden
+- Allmänna reklamationsnämnden
+- Ambassader
+- Ansvarsnämnd, statens
+- Arbetsdomstolen
+- Arbetsförmedlingen
+- Arbetsgivarverk, statens
+- Arbetslivsinstitutet
+- Arbetsmiljöverket
+- Arkitekturmuseet
+- Arrendenämnder
+- Arvsfondsdelegationen
 B
-– Banverket
-– Barnombudsmannen
-– Beredning för utvärdering av medicinsk metodik, statens
-– Bergsstaten
-– Biografbyrå, statens
-– Biografiskt lexikon, svenskt
-– Birgittaskolan
-– Blekinge tekniska högskola
-– Bokföringsnämnden
-– Bolagsverket
-– Bostadsnämnd, statens
-– Bostadskreditnämnd, statens
-– Boverket
-– Brottsförebyggande rådet
-– Brottsoffermyndigheten
+- Banverket
+- Barnombudsmannen
+- Beredning för utvärdering av medicinsk metodik, statens
+- Bergsstaten
+- Biografbyrå, statens
+- Biografiskt lexikon, svenskt
+- Birgittaskolan
+- Blekinge tekniska högskola
+- Bokföringsnämnden
+- Bolagsverket
+- Bostadsnämnd, statens
+- Bostadskreditnämnd, statens
+- Boverket
+- Brottsförebyggande rådet
+- Brottsoffermyndigheten
 C
-– Centrala studiestödsnämnden
+- Centrala studiestödsnämnden
 D
-– Danshögskolan
-– Datainspektionen
-– Departementen
-– Domstolsverket
-– Dramatiska institutet
+- Danshögskolan
+- Datainspektionen
+- Departementen
+- Domstolsverket
+- Dramatiska institutet
 E
-– Ekeskolan
-– Ekobrottsmyndigheten
-– Ekonomistyrningsverket
-– Ekonomiska rådet
-– Elsäkerhetsverket
-– Energimarknadsinspektionen
-– Energimyndighet, statens
-– EU/FoU-rådet
-– Exportkreditnämnden
-– Exportråd, Sveriges
+- Ekeskolan
+- Ekobrottsmyndigheten
+- Ekonomistyrningsverket
+- Ekonomiska rådet
+- Elsäkerhetsverket
+- Energimarknadsinspektionen
+- Energimyndighet, statens
+- EU/FoU-rådet
+- Exportkreditnämnden
+- Exportråd, Sveriges
 F
-– Fastighetsmäklarnämnden
-– Fastighetsverk, statens
-– Fideikommissnämnden
-– Finansinspektionen
-– Finanspolitiska rådet
-– Finsk-svenska gränsälvskommissionen
-– Fiskeriverket
-– Flygmedicincentrum
-– Folkhälsoinstitut, statens
-– Fonden för fukt- och mögelskador
-– Forskningsrådet för miljö, areella näringar och samhällsbyggande, Formas
-– Folke Bernadotte Akademin
-– Forskarskattenämnden
-– Forskningsrådet för arbetsliv och socialvetenskap
-– Fortifikationsverket
-– Forum för levande historia
-– Försvarets materielverk
-– Försvarets radioanstalt
-– Försvarets underrättelsenämnd
-– Försvarshistoriska museer, statens
-– Försvarshögskolan
-– Försvarsmakten
-– Försäkringskassan
+- Fastighetsmäklarnämnden
+- Fastighetsverk, statens
+- Fideikommissnämnden
+- Finansinspektionen
+- Finanspolitiska rådet
+- Finsk-svenska gränsälvskommissionen
+- Fiskeriverket
+- Flygmedicincentrum
+- Folkhälsoinstitut, statens
+- Fonden för fukt- och mögelskador
+- Forskningsrådet för miljö, areella näringar och samhällsbyggande, Formas
+- Folke Bernadotte Akademin
+- Forskarskattenämnden
+- Forskningsrådet för arbetsliv och socialvetenskap
+- Fortifikationsverket
+- Forum för levande historia
+- Försvarets materielverk
+- Försvarets radioanstalt
+- Försvarets underrättelsenämnd
+- Försvarshistoriska museer, statens
+- Försvarshögskolan
+- Försvarsmakten
+- Försäkringskassan
 G
-– Gentekniknämnden
-– Geologiska undersökning
-– Geotekniska institut, statens
-– Giftinformationscentralen
-– Glesbygdsverket
-– Grafiska institutet och institutet för högre kommunikation- och reklamutbildning
-– Granskningsnämnden för radio och TV
-– Granskningsnämnden för försvarsuppfinningar
-– Gymnastik- och Idrottshögskolan
-– Göteborgs universitet
+- Gentekniknämnden
+- Geologiska undersökning
+- Geotekniska institut, statens
+- Giftinformationscentralen
+- Glesbygdsverket
+- Grafiska institutet och institutet för högre kommunikation- och reklamutbildning
+- Granskningsnämnden för radio och TV
+- Granskningsnämnden för försvarsuppfinningar
+- Gymnastik- och Idrottshögskolan
+- Göteborgs universitet
 H
-– Handelsflottans kultur- och fritidsråd
-– Handelsflottans pensionsanstalt
-– Handelssekreterare
-– Handelskamrar, auktoriserade
-– Handikappombudsmannen
-– Handikappråd, statens
-– Harpsundsnämnden
-– Haverikommission, statens
-– Historiska museer, statens
-– Hjälpmedelsinstitutet
-– Hovrätterna
-– Hyresnämnder
-– Häktena
-– Hälso- och sjukvårdens ansvarsnämnd
-– Högskolan Dalarna
-– Högskolan i Borås
-– Högskolan i Gävle
-– Högskolan i Halmstad
-– Högskolan i Kalmar
-– Högskolan i Karlskrona/Ronneby
-– Högskolan i Kristianstad
-– Högskolan i Skövde
-– Högskolan i Trollhättan/Uddevalla
-– Högskolan på Gotland
-– Högskolans avskiljandenämnd
-– Högskoleverket
-– Högsta domstolen
+- Handelsflottans kultur- och fritidsråd
+- Handelsflottans pensionsanstalt
+- Handelssekreterare
+- Handelskamrar, auktoriserade
+- Handikappombudsmannen
+- Handikappråd, statens
+- Harpsundsnämnden
+- Haverikommission, statens
+- Historiska museer, statens
+- Hjälpmedelsinstitutet
+- Hovrätterna
+- Hyresnämnder
+- Häktena
+- Hälso- och sjukvårdens ansvarsnämnd
+- Högskolan Dalarna
+- Högskolan i Borås
+- Högskolan i Gävle
+- Högskolan i Halmstad
+- Högskolan i Kalmar
+- Högskolan i Karlskrona/Ronneby
+- Högskolan i Kristianstad
+- Högskolan i Skövde
+- Högskolan i Trollhättan/Uddevalla
+- Högskolan på Gotland
+- Högskolans avskiljandenämnd
+- Högskoleverket
+- Högsta domstolen
 I
-– ILO kommittén
-– Inspektionen för arbetslöshetsförsäkringen
-– Inspektionen för strategiska produkter
-– Institut för kommunikationsanalys, statens
-– Institut för psykosocial medicin, statens
-– Institut för särskilt utbildningsstöd, statens
-– Institutet för arbetsmarknadspolitisk utvärdering
-– Institutet för rymdfysik
-– Institutet för tillväxtpolitiska studier
-– Institutionsstyrelse, statens
-– Insättningsgarantinämnden
-– Integrationsverket
-– Internationella programkontoret för utbildningsområdet
+- ILO kommittén
+- Inspektionen för arbetslöshetsförsäkringen
+- Inspektionen för strategiska produkter
+- Institut för kommunikationsanalys, statens
+- Institut för psykosocial medicin, statens
+- Institut för särskilt utbildningsstöd, statens
+- Institutet för arbetsmarknadspolitisk utvärdering
+- Institutet för rymdfysik
+- Institutet för tillväxtpolitiska studier
+- Institutionsstyrelse, statens
+- Insättningsgarantinämnden
+- Integrationsverket
+- Internationella programkontoret för utbildningsområdet
 J
-– Jordbruksverk, statens
-– Justitiekanslern
-– Jämställdhetsombudsmannen
-– Jämställdhetsnämnden
-– Järnvägar, statens
-– Järnvägsstyrelsen
+- Jordbruksverk, statens
+- Justitiekanslern
+- Jämställdhetsombudsmannen
+- Jämställdhetsnämnden
+- Järnvägar, statens
+- Järnvägsstyrelsen
 K
-– Kammarkollegiet
-– Kammarrätterna
-– Karlstads universitet
-– Karolinska Institutet
-– Kemikalieinspektionen
-– Kommerskollegium
-– Konjunkturinstitutet
-– Konkurrensverket
-– Konstfack
-– Konsthögskolan
-– Konstnärsnämnden
-– Konstråd, statens
-– Konsulat
-– Konsumentverket
-– Krigsvetenskapsakademin
-– Krigsförsäkringsnämnden
-– Kriminaltekniska laboratorium, statens
-– Kriminalvården
-– Krisberedskapsmyndigheten
-– Kristinaskolan
-– Kronofogdemyndigheten
-– Kulturråd, statens
-– Kungl. Biblioteket
-– Kungl. Konsthögskolan
-– Kungl. Musikhögskolan i Stockholm
-– Kungl. Tekniska högskolan
-– Kungl. Vitterhets-, historie- och antikvitetsakademien
-– Kungl Vetenskapsakademin
-– Kustbevakningen
-– Kvalitets- och kompetensråd, statens
-– Kärnavfallsfondens styrelse
+- Kammarkollegiet
+- Kammarrätterna
+- Karlstads universitet
+- Karolinska Institutet
+- Kemikalieinspektionen
+- Kommerskollegium
+- Konjunkturinstitutet
+- Konkurrensverket
+- Konstfack
+- Konsthögskolan
+- Konstnärsnämnden
+- Konstråd, statens
+- Konsulat
+- Konsumentverket
+- Krigsvetenskapsakademin
+- Krigsförsäkringsnämnden
+- Kriminaltekniska laboratorium, statens
+- Kriminalvården
+- Krisberedskapsmyndigheten
+- Kristinaskolan
+- Kronofogdemyndigheten
+- Kulturråd, statens
+- Kungl. Biblioteket
+- Kungl. Konsthögskolan
+- Kungl. Musikhögskolan i Stockholm
+- Kungl. Tekniska högskolan
+- Kungl. Vitterhets-, historie- och antikvitetsakademien
+- Kungl Vetenskapsakademin
+- Kustbevakningen
+- Kvalitets- och kompetensråd, statens
+- Kärnavfallsfondens styrelse
 L
-– Lagrådet
-– Lantbruksuniversitet, Sveriges
-– Lantmäteriverket
-– Linköpings universitet
-– Livrustkammaren, Skoklosters slott och Hallwylska museet
-– Livsmedelsverk, statens
-– Livsmedelsekonomiska institutet
-– Ljud- och bildarkiv, statens
-– Lokala säkerhetsnämnderna vid kärnkraftverk
-– Lotteriinspektionen
-– Luftfartsverket
-– Luftfartsstyrelsen
-– Luleå tekniska universitet
-– Lunds universitet
-– Läkemedelsverket
-– Läkemedelsförmånsnämnden
-– Länsrätterna
-– Länsstyrelserna
-– Lärarhögskolan i Stockholm
+- Lagrådet
+- Lantbruksuniversitet, Sveriges
+- Lantmäteriverket
+- Linköpings universitet
+- Livrustkammaren, Skoklosters slott och Hallwylska museet
+- Livsmedelsverk, statens
+- Livsmedelsekonomiska institutet
+- Ljud- och bildarkiv, statens
+- Lokala säkerhetsnämnderna vid kärnkraftverk
+- Lotteriinspektionen
+- Luftfartsverket
+- Luftfartsstyrelsen
+- Luleå tekniska universitet
+- Lunds universitet
+- Läkemedelsverket
+- Läkemedelsförmånsnämnden
+- Länsrätterna
+- Länsstyrelserna
+- Lärarhögskolan i Stockholm
 M
-– Malmö högskola
-– Manillaskolan
-– Maritima muséer, statens
-– Marknadsdomstolen
-– Medlingsinstitutet
-– Meteorologiska och hydrologiska institut, Sveriges
-– Migrationsverket
-– Militärhögskolor
-– Mittuniversitetet
-– Moderna museet
-– Museer för världskultur, statens
-– Musikaliska Akademien
-– Musiksamlingar, statens
-– Myndigheten för handikappolitisk samordning
-– Myndigheten för internationella adoptionsfrågor
-– Myndigheten för skolutveckling
-– Myndigheten för kvalificerad yrkesutbildning
-– Myndigheten för nätverk och samarbete inom högre utbildning
-– Myndigheten för Sveriges nätuniversitet
-– Myndigheten för utländska investeringar i Sverige
-– Mälardalens högskola
+- Malmö högskola
+- Manillaskolan
+- Maritima muséer, statens
+- Marknadsdomstolen
+- Medlingsinstitutet
+- Meteorologiska och hydrologiska institut, Sveriges
+- Migrationsverket
+- Militärhögskolor
+- Mittuniversitetet
+- Moderna museet
+- Museer för världskultur, statens
+- Musikaliska Akademien
+- Musiksamlingar, statens
+- Myndigheten för handikappolitisk samordning
+- Myndigheten för internationella adoptionsfrågor
+- Myndigheten för skolutveckling
+- Myndigheten för kvalificerad yrkesutbildning
+- Myndigheten för nätverk och samarbete inom högre utbildning
+- Myndigheten för Sveriges nätuniversitet
+- Myndigheten för utländska investeringar i Sverige
+- Mälardalens högskola
 N
-– Nationalmuseum
-– Nationellt centrum för flexibelt lärande
-– Naturhistoriska riksmuseet
-– Naturvårdsverket
-– Nordiska Afrikainstitutet
-– Notarienämnden
-– Nämnd för arbetstagares uppfinningar, statens
-– Nämnden för statligt stöd till trossamfund
-– Nämnden för styrelserepresentationsfrågor
-– Nämnden mot diskriminering
-– Nämnden för elektronisk förvaltning
-– Nämnden för RH anpassad utbildning
-– Nämnden för hemslöjdsfrågor
+- Nationalmuseum
+- Nationellt centrum för flexibelt lärande
+- Naturhistoriska riksmuseet
+- Naturvårdsverket
+- Nordiska Afrikainstitutet
+- Notarienämnden
+- Nämnd för arbetstagares uppfinningar, statens
+- Nämnden för statligt stöd till trossamfund
+- Nämnden för styrelserepresentationsfrågor
+- Nämnden mot diskriminering
+- Nämnden för elektronisk förvaltning
+- Nämnden för RH anpassad utbildning
+- Nämnden för hemslöjdsfrågor
 O
-– Oljekrisnämnden
-– Ombudsmannen mot diskriminering på grund av sexuell läggning
-– Ombudsmannen mot etnisk diskriminering
-– Operahögskolan i Stockholm
+- Oljekrisnämnden
+- Ombudsmannen mot diskriminering på grund av sexuell läggning
+- Ombudsmannen mot etnisk diskriminering
+- Operahögskolan i Stockholm
 P
-– Patent- och registreringsverket
-– Patentbesvärsrätten
-– Pensionsverk, statens
-– Personregisternämnd statens, SPAR-nämnden
-– Pliktverk, Totalförsvarets
-– Polarforskningssekretariatet
-– Post- och telestyrelsen
-– Premiepensionsmyndigheten
-– Presstödsnämnden
+- Patent- och registreringsverket
+- Patentbesvärsrätten
+- Pensionsverk, statens
+- Personregisternämnd statens, SPAR-nämnden
+- Pliktverk, Totalförsvarets
+- Polarforskningssekretariatet
+- Post- och telestyrelsen
+- Premiepensionsmyndigheten
+- Presstödsnämnden
 R
-– Radio- och TV–verket
-– Rederinämnden
-– Regeringskansliet
-– Regeringsrätten
-– Resegarantinämnden
-– Registernämnden
-– Revisorsnämnden
-– Riksantikvarieämbetet
-– Riksarkivet
-– Riksbanken
-– Riksdagsförvaltningen
-– Riksdagens ombudsmän
-– Riksdagens revisorer
-– Riksgäldskontoret
-– Rikshemvärnsrådet
-– Rikspolisstyrelsen
-– Riksrevisionen
-– Rikstrafiken
-– Riksutställningar, Stiftelsen
-– Riksvärderingsnämnden
-– Rymdstyrelsen
-– Rådet för Europeiska socialfonden i Sverige
-– Räddningsverk, statens
-– Rättshjälpsmyndigheten
-– Rättshjälpsnämnden
-– Rättsmedicinalverket
+- Radio- och TV-verket
+- Rederinämnden
+- Regeringskansliet
+- Regeringsrätten
+- Resegarantinämnden
+- Registernämnden
+- Revisorsnämnden
+- Riksantikvarieämbetet
+- Riksarkivet
+- Riksbanken
+- Riksdagsförvaltningen
+- Riksdagens ombudsmän
+- Riksdagens revisorer
+- Riksgäldskontoret
+- Rikshemvärnsrådet
+- Rikspolisstyrelsen
+- Riksrevisionen
+- Rikstrafiken
+- Riksutställningar, Stiftelsen
+- Riksvärderingsnämnden
+- Rymdstyrelsen
+- Rådet för Europeiska socialfonden i Sverige
+- Räddningsverk, statens
+- Rättshjälpsmyndigheten
+- Rättshjälpsnämnden
+- Rättsmedicinalverket
 S
-– Samarbetsnämnden för statsbidrag till trossamfund
-– Sameskolstyrelsen och sameskolor
-– Sametinget
-– SIS, Standardiseringen i Sverige
-– Sjöfartsverket
-– Skatterättsnämnden
-– Skatteverket
-– Skaderegleringsnämnd, statens
-– Skiljenämnden i vissa trygghetsfrågor
-– Skogsstyrelsen
-– Skogsvårdsstyrelserna
-– Skogs och lantbruksakademien
-– Skolverk, statens
-– Skolväsendets överklagandenämnd
-– Smittskyddsinstitutet
-– Socialstyrelsen
-– Specialpedagogiska institutet
-– Specialskolemyndigheten
-– Språk- och folkminnesinstitutet
-– Sprängämnesinspektionen
-– Statistiska centralbyrån
-– Statskontoret
-– Stockholms universitet
-– Stockholms internationella miljöinstitut
-– Strålsäkerhetsmyndigheten
-– Styrelsen för ackreditering och teknisk kontroll
-– Styrelsen för internationellt utvecklingssamarbete, SIDA
-– Styrelsen för Samefonden
-– Styrelsen för psykologiskt försvar
-– Stängselnämnden
-– Svenska institutet
-– Svenska institutet för europapolitiska studier
-– Svenska ESF rådet
-– Svenska Unescorådet
-– Svenska FAO kommittén
-– Svenska Språknämnden
-– Svenska Skeppshypotekskassan
-– Svenska institutet i Alexandria
-– Sveriges författarfond
-– Säkerhetspolisen
-– Säkerhets- och integritetsskyddsnämnden
-– Södertörns högskola
+- Samarbetsnämnden för statsbidrag till trossamfund
+- Sameskolstyrelsen och sameskolor
+- Sametinget
+- SIS, Standardiseringen i Sverige
+- Sjöfartsverket
+- Skatterättsnämnden
+- Skatteverket
+- Skaderegleringsnämnd, statens
+- Skiljenämnden i vissa trygghetsfrågor
+- Skogsstyrelsen
+- Skogsvårdsstyrelserna
+- Skogs och lantbruksakademien
+- Skolverk, statens
+- Skolväsendets överklagandenämnd
+- Smittskyddsinstitutet
+- Socialstyrelsen
+- Specialpedagogiska institutet
+- Specialskolemyndigheten
+- Språk- och folkminnesinstitutet
+- Sprängämnesinspektionen
+- Statistiska centralbyrån
+- Statskontoret
+- Stockholms universitet
+- Stockholms internationella miljöinstitut
+- Strålsäkerhetsmyndigheten
+- Styrelsen för ackreditering och teknisk kontroll
+- Styrelsen för internationellt utvecklingssamarbete, SIDA
+- Styrelsen för Samefonden
+- Styrelsen för psykologiskt försvar
+- Stängselnämnden
+- Svenska institutet
+- Svenska institutet för europapolitiska studier
+- Svenska ESF rådet
+- Svenska Unescorådet
+- Svenska FAO kommittén
+- Svenska Språknämnden
+- Svenska Skeppshypotekskassan
+- Svenska institutet i Alexandria
+- Sveriges författarfond
+- Säkerhetspolisen
+- Säkerhets- och integritetsskyddsnämnden
+- Södertörns högskola
 T
-– Taltidningsnämnden
-– Talboks- och punktskriftsbiblioteket
-– Teaterhögskolan i Stockholm
-– Tingsrätterna
-– Tjänstepensions och grupplivnämnd, statens
-– Tjänsteförslagsnämnden för domstolsväsendet
-– Totalförsvarets forskningsinstitut
-– Totalförsvarets pliktverk
-– Tullverket
-– Turistdelegationen
+- Taltidningsnämnden
+- Talboks- och punktskriftsbiblioteket
+- Teaterhögskolan i Stockholm
+- Tingsrätterna
+- Tjänstepensions och grupplivnämnd, statens
+- Tjänsteförslagsnämnden för domstolsväsendet
+- Totalförsvarets forskningsinstitut
+- Totalförsvarets pliktverk
+- Tullverket
+- Turistdelegationen
 U
-– Umeå universitet
-– Ungdomsstyrelsen
-– Uppsala universitet
-– Utlandslönenämnd, statens
-– Utlänningsnämnden
-– Utrikesförvaltningens antagningsnämnd
-– Utrikesnämnden
-– Utsädeskontroll, statens
+- Umeå universitet
+- Ungdomsstyrelsen
+- Uppsala universitet
+- Utlandslönenämnd, statens
+- Utlänningsnämnden
+- Utrikesförvaltningens antagningsnämnd
+- Utrikesnämnden
+- Utsädeskontroll, statens
 V
-– Valideringsdelegationen
-– Valmyndigheten
-– Vatten- och avloppsnämnd, statens
-– Vattenöverdomstolen
-– Verket för förvaltningsutveckling
-– Verket för högskoleservice
-– Verket för innovationssystem (VINNOVA)
-– Verket för näringslivsutveckling (NUTEK)
-– Vetenskapsrådet
-– Veterinärmedicinska anstalt, statens
-– Veterinära ansvarsnämnden
-– Väg- och transportforskningsinstitut, statens
-– Vägverket
-– Vänerskolan
-– Växjö universitet
-– Växtsortnämnd, statens
+- Valideringsdelegationen
+- Valmyndigheten
+- Vatten- och avloppsnämnd, statens
+- Vattenöverdomstolen
+- Verket för förvaltningsutveckling
+- Verket för högskoleservice
+- Verket för innovationssystem (VINNOVA)
+- Verket för näringslivsutveckling (NUTEK)
+- Vetenskapsrådet
+- Veterinärmedicinska anstalt, statens
+- Veterinära ansvarsnämnden
+- Väg- och transportforskningsinstitut, statens
+- Vägverket
+- Vänerskolan
+- Växjö universitet
+- Växtsortnämnd, statens
 Å
-– Åklagarmyndigheten
-– Åsbackaskolan
+- Åklagarmyndigheten
+- Åsbackaskolan
 Ö
-– Örebro universitet
-– Örlogsmannasällskapet
-– Östervångsskolan
-– Överbefälhavaren
-– Överklagandenämnden för högskolan
-– Överklagandenämnden för nämndemanna-uppdrag
-– Överklagandenämnden för studiestöd
-– Överklagandenämnden för totalförsvaret
+- Örebro universitet
+- Örlogsmannasällskapet
+- Östervångsskolan
+- Överbefälhavaren
+- Överklagandenämnden för högskolan
+- Överklagandenämnden för nämndemanna-uppdrag
+- Överklagandenämnden för studiestöd
+- Överklagandenämnden för totalförsvaret
 Reino Unido
-– Cabinet Office
-– Office of the Parliamentary Counsel
-– Central Office of Information
-– Charity Commission
-– Crown Estate Commissioners (Únicamente el voto del gasto)
-– Crown Prosecution Service
-– Department for Business, Enterprise and Regulatory Reform
-– Competition Commission
-– Gas and Electricity Consumers' Council
-– Office of Manpower Economics
-– Department for Children, Schools and Families
-– Department of Communities and Local Government
-– Rent Assessment Panels
-– Department for Culture, Media and Sport
-– British Library
-– British Museum
-– Commission for Architecture and the Built Environment
-– The Gambling Commission
-– Historic Buildings and Monuments Commission for England (English Heritage)
-– Imperial War Museum
-– Museums, Libraries and Archives Council
-– National Gallery
-– National Maritime Museum
-– National Portrait Gallery
-– Natural History Museum
-– Science Museum
-– Tate Gallery
-– Victoria and Albert Museum
-– Wallace Collection
-– Department for Environment, Food and Rural Affairs
-– Agricultural Dwelling House Advisory Committees
-– Agricultural Land Tribunals
-– Agricultural Wages Board and Committees
-– Cattle Breeding Centre
-– Countryside Agency
-– Plant Variety Rights Office
-– Royal Botanic Gardens, Kew
-– Royal Commission on Environmental Pollution
-– Department of Health
-– Dental Practice Board
-– National Health Service Strategic Health Authorities
-– NHS Trusts
-– Prescription Pricing Authority
-– Department for Innovation, Universities and Skills
-– Higher Education Funding Council for England
-– National Weights and Measures Laboratory
-– Patent Office
-– Department for International Development
-– Department of the Procurator General and Treasury Solicitor
-– Legal Secretariat to the Law Officers
-– Department for Transport
-– Maritime and Coastguard Agency
-– Department for Work and Pensions
-– Disability Living Allowance Advisory Board
-– Independent Tribunal Service
-– Medical Boards and Examining Medical Officers (Pensiones de Guerra)
-– Occupational Pensions Regulatory Authority
-– Regional Medical Service
-– Social Security Advisory Committee
-– Export Credits Guarantee Department
-– Foreign and Commonwealth Office
-– Wilton Park Conference Centre
-– Government Actuary's Department
-– Government Communications Headquarters
-– Home Office
-– HM Inspectorate of Constabulary
-– House of Commons
-– House of Lords
-– Ministry of Defence
-– Defence Equipment & Support
-– Meteorological Office
-– Ministry of Justice
-– Boundary Commission for England
-– Combined Tax Tribunal
-– Council on Tribunals
-– Court of Appeal - Criminal
-– Employment Appeals Tribunal
-– Employment Tribunals
-– HMCS Regions, Crown, County and Combined Courts (Inglaterra y Gales)
-– Immigration Appellate Authorities
-– Immigration Adjudicators
-– Immigration Appeals Tribunal
-– Lands Tribunal
-– Law Commission
-– Legal Aid Fund (Inglaterra y Gales)
-– Office of the Social Security Commissioners
-– Parole Board and Local Review Committees
-– Pensions Appeal Tribunals
-– Public Trust Office
-– Supreme Court Group (Inglaterra y Gales)
-– Transport Tribunal
-– The National Archives
-– National Audit Office
-– National Savings and Investments
-– National School of Government
-– Northern Ireland Assembly Commission
-– Northern Ireland Court Service
-– Coroners Courts
-– County Courts
-– Court of Appeal and High Court of Justice in Northern Ireland
-– Crown Court
-– Enforcement of Judgements Office
-– Legal Aid Fund
-– Magistrates' Courts
-– Pensions Appeals Tribunals
-– Northern Ireland, Department for Employment and Learning
-– Northern Ireland, Department for Regional Development
-– Northern Ireland, Department for Social Development
-– Northern Ireland, Department of Agriculture and Rural Development
-– Northern Ireland, Department of Culture, Arts and Leisure
-– Northern Ireland, Department of Education
-– Northern Ireland, Department of Enterprise, Trade and Investment
-– Northern Ireland, Department of the Environment
-– Northern Ireland, Department of Finance and Personnel
-– Northern Ireland, Department of Health, Social Services and Public Safety
-– Northern Ireland, Office of the First Minister and Deputy First Minister
-– Northern Ireland Office
-– Crown Solicitor's Office
-– Department of the Director of Public Prosecutions for Northern Ireland
-– Forensic Science Laboratory of Northern Ireland
-– Office of the Chief Electoral Officer for Northern Ireland
-– Police Service of Northern Ireland
-– Probation Board for Northern Ireland
-– State Pathologist Service
-– Office of Fair Trading
-– Office for National Statistics
-– National Health Service Central Register
-– Office of the Parliamentary Commissioner for Administration and Health
+- Cabinet Office
+- Office of the Parliamentary Counsel
+- Central Office of Information
+- Charity Commission
+- Crown Estate Commissioners (Únicamente el voto del gasto)
+- Crown Prosecution Service
+- Department for Business, Enterprise and Regulatory Reform
+- Competition Commission
+- Gas and Electricity Consumers' Council
+- Office of Manpower Economics
+- Department for Children, Schools and Families
+- Department of Communities and Local Government
+- Rent Assessment Panels
+- Department for Culture, Media and Sport
+- British Library
+- British Museum
+- Commission for Architecture and the Built Environment
+- The Gambling Commission
+- Historic Buildings and Monuments Commission for England (English Heritage)
+- Imperial War Museum
+- Museums, Libraries and Archives Council
+- National Gallery
+- National Maritime Museum
+- National Portrait Gallery
+- Natural History Museum
+- Science Museum
+- Tate Gallery
+- Victoria and Albert Museum
+- Wallace Collection
+- Department for Environment, Food and Rural Affairs
+- Agricultural Dwelling House Advisory Committees
+- Agricultural Land Tribunals
+- Agricultural Wages Board and Committees
+- Cattle Breeding Centre
+- Countryside Agency
+- Plant Variety Rights Office
+- Royal Botanic Gardens, Kew
+- Royal Commission on Environmental Pollution
+- Department of Health
+- Dental Practice Board
+- National Health Service Strategic Health Authorities
+- NHS Trusts
+- Prescription Pricing Authority
+- Department for Innovation, Universities and Skills
+- Higher Education Funding Council for England
+- National Weights and Measures Laboratory
+- Patent Office
+- Department for International Development
+- Department of the Procurator General and Treasury Solicitor
+- Legal Secretariat to the Law Officers
+- Department for Transport
+- Maritime and Coastguard Agency
+- Department for Work and Pensions
+- Disability Living Allowance Advisory Board
+- Independent Tribunal Service
+- Medical Boards and Examining Medical Officers (Pensiones de Guerra)
+- Occupational Pensions Regulatory Authority
+- Regional Medical Service
+- Social Security Advisory Committee
+- Export Credits Guarantee Department
+- Foreign and Commonwealth Office
+- Wilton Park Conference Centre
+- Government Actuary's Department
+- Government Communications Headquarters
+- Home Office
+- HM Inspectorate of Constabulary
+- House of Commons
+- House of Lords
+- Ministry of Defence
+- Defence Equipment & Support
+- Meteorological Office
+- Ministry of Justice
+- Boundary Commission for England
+- Combined Tax Tribunal
+- Council on Tribunals
+- Court of Appeal - Criminal
+- Employment Appeals Tribunal
+- Employment Tribunals
+- HMCS Regions, Crown, County and Combined Courts (Inglaterra y Gales)
+- Immigration Appellate Authorities
+- Immigration Adjudicators
+- Immigration Appeals Tribunal
+- Lands Tribunal
+- Law Commission
+- Legal Aid Fund (Inglaterra y Gales)
+- Office of the Social Security Commissioners
+- Parole Board and Local Review Committees
+- Pensions Appeal Tribunals
+- Public Trust Office
+- Supreme Court Group (Inglaterra y Gales)
+- Transport Tribunal
+- The National Archives
+- National Audit Office
+- National Savings and Investments
+- National School of Government
+- Northern Ireland Assembly Commission
+- Northern Ireland Court Service
+- Coroners Courts
+- County Courts
+- Court of Appeal and High Court of Justice in Northern Ireland
+- Crown Court
+- Enforcement of Judgements Office
+- Legal Aid Fund
+- Magistrates' Courts
+- Pensions Appeals Tribunals
+- Northern Ireland, Department for Employment and Learning
+- Northern Ireland, Department for Regional Development
+- Northern Ireland, Department for Social Development
+- Northern Ireland, Department of Agriculture and Rural Development
+- Northern Ireland, Department of Culture, Arts and Leisure
+- Northern Ireland, Department of Education
+- Northern Ireland, Department of Enterprise, Trade and Investment
+- Northern Ireland, Department of the Environment
+- Northern Ireland, Department of Finance and Personnel
+- Northern Ireland, Department of Health, Social Services and Public Safety
+- Northern Ireland, Office of the First Minister and Deputy First Minister
+- Northern Ireland Office
+- Crown Solicitor's Office
+- Department of the Director of Public Prosecutions for Northern Ireland
+- Forensic Science Laboratory of Northern Ireland
+- Office of the Chief Electoral Officer for Northern Ireland
+- Police Service of Northern Ireland
+- Probation Board for Northern Ireland
+- State Pathologist Service
+- Office of Fair Trading
+- Office for National Statistics
+- National Health Service Central Register
+- Office of the Parliamentary Commissioner for Administration and Health
 Service Commissioners
-– Paymaster General's Office
-– Postal Business of the Post Office
-– Privy Council Office
-– Public Record Office
-– HM Revenue and Customs
-– The Revenue and Customs Prosecutions Office
-– Royal Hospital, Chelsea
-– Royal Mint
-– Rural Payments Agency
-– Scotland, Auditor-General
-– Scotland, Crown Office and Procurator Fiscal Service
-– Scotland, General Register Office
-– Scotland, Queen's and Lord Treasurer's Remembrancer
-– Scotland, Registers of Scotland
-– The Scotland Office
-– The Scottish Ministers
-– Architecture and Design Scotland
-– Crofters Commission
-– Deer Commission for Scotland
-– Lands Tribunal for Scotland
-– National Galleries of Scotland
-– National Library of Scotland
-– National Museums of Scotland
-– Royal Botanic Garden, Edinburgh
-– Royal Commission on the Ancient and Historical Monuments of Scotland
-– Scottish Further and Higher Education Funding Council
-– Scottish Law Commission
-– Community Health Partnerships
-– Special Health Boards
-– Health Boards
-– The Office of the Accountant of Court
-– High Court of Justiciary
-– Court of Session
-– HM Inspectorate of Constabulary
-– Parole Board for Scotland
-– Pensions Appeal Tribunals
-– Scottish Land Court
-– Sheriff Courts
-– Scottish Police Services Authority
-– Office of the Social Security Commissioners
-– The Private Rented Housing Panel and Private Rented Housing Committees
-– Keeper of the Records of Scotland
-– The Scottish Parliamentary Body Corporate
-– HM Treasury
-– Office of Government Commerce
-– United Kingdom Debt Management Office
-– The Wales Office (Oficina del Secretario de Estado para Gales)
-– The Welsh Ministers
-– Higher Education Funding Council for Wales
-– Local Government Boundary Commission for Wales
-– The Royal Commission on the Ancient and Historical Monuments of Wales
-– Valuation Tribunals (Gales)
-– Welsh National Health Service Trusts and Local Health Boards
-– Welsh Rent Assessment Panels
+- Paymaster General's Office
+- Postal Business of the Post Office
+- Privy Council Office
+- Public Record Office
+- HM Revenue and Customs
+- The Revenue and Customs Prosecutions Office
+- Royal Hospital, Chelsea
+- Royal Mint
+- Rural Payments Agency
+- Scotland, Auditor-General
+- Scotland, Crown Office and Procurator Fiscal Service
+- Scotland, General Register Office
+- Scotland, Queen's and Lord Treasurer's Remembrancer
+- Scotland, Registers of Scotland
+- The Scotland Office
+- The Scottish Ministers
+- Architecture and Design Scotland
+- Crofters Commission
+- Deer Commission for Scotland
+- Lands Tribunal for Scotland
+- National Galleries of Scotland
+- National Library of Scotland
+- National Museums of Scotland
+- Royal Botanic Garden, Edinburgh
+- Royal Commission on the Ancient and Historical Monuments of Scotland
+- Scottish Further and Higher Education Funding Council
+- Scottish Law Commission
+- Community Health Partnerships
+- Special Health Boards
+- Health Boards
+- The Office of the Accountant of Court
+- High Court of Justiciary
+- Court of Session
+- HM Inspectorate of Constabulary
+- Parole Board for Scotland
+- Pensions Appeal Tribunals
+- Scottish Land Court
+- Sheriff Courts
+- Scottish Police Services Authority
+- Office of the Social Security Commissioners
+- The Private Rented Housing Panel and Private Rented Housing Committees
+- Keeper of the Records of Scotland
+- The Scottish Parliamentary Body Corporate
+- HM Treasury
+- Office of Government Commerce
+- United Kingdom Debt Management Office
+- The Wales Office (Oficina del Secretario de Estado para Gales)
+- The Welsh Ministers
+- Higher Education Funding Council for Wales
+- Local Government Boundary Commission for Wales
+- The Royal Commission on the Ancient and Historical Monuments of Wales
+- Valuation Tribunals (Gales)
+- Welsh National Health Service Trusts and Local Health Boards
+- Welsh Rent Assessment Panels
 LISTA DE SUMINISTROS Y EQUIPOS ADQUIRIDOS POR LOS MINISTERIOS DE
 DEFENSA Y AGENCIAS PARA LAS ACTIVIDADES DE DEFENSA O SEGURIDAD EN
 BÉLGICA, BULGARIA, REPÚBLICA CHECA, DINAMARCA, ALEMANIA, ESTONIA,
@@ -3082,424 +3082,424 @@ SEGÚN LO DEFINIDO POR LA DIRECTIVA DE CONTRATACIÓN PÚBLICA DE LA UE
 Bélgica
 Entidades
 A
-Agence fédérale pour l'Accueil des demandeurs d'Asile — Federaal Agentschap voor Opvang van Asielzoekers
-Agence fédérale pour la Sécurité de la Chaîne alimentaire — Federaal Agentschap voor de Veiligheid van de Voedselketen
-Agence fédérale de Contrôle nucléaire — Federaal Agentschap voor nucleaire Controle
+Agence fédérale pour l'Accueil des demandeurs d'Asile - Federaal Agentschap voor Opvang van Asielzoekers
+Agence fédérale pour la Sécurité de la Chaîne alimentaire - Federaal Agentschap voor de Veiligheid van de Voedselketen
+Agence fédérale de Contrôle nucléaire - Federaal Agentschap voor nucleaire Controle
 Agence wallonne à l'Exportation
 Agence wallonne des Télécommunications
 Agence wallonne pour l'Intégration des Personnes handicapées
 Aquafin
 Arbeitsamt der Deutschsprachigen Gemeinschaft
-Archives générales du Royaume et Archives de l'Etat dans les Provinces — Algemeen Rijksarchief en Rijksarchief in de Provinciën
+Archives générales du Royaume et Archives de l'Etat dans les Provinces - Algemeen Rijksarchief en Rijksarchief in de Provinciën
 ASTRID
 B
-– Banque nationale de Belgique — Nationale Bank van België
-– Belgisches Rundfunk- und Fernsehzentrum der Deutschsprachigen Gemeinschaft
-– Berlaymont 2000
-– Bibliothèque royale Albert Ier — Koninklijke Bilbliotheek Albert I
-– Bruxelles-Propreté — Agence régionale pour la Propreté — Net–Brussel — Gewestelijke Agentschap voor Netheid
-– Bureau d'Intervention et de Restitution belge — Belgisch Interventie en Restitutiebureau
-– Bureau fédéral du Plan — Federaal Planbureau
+- Banque nationale de Belgique - Nationale Bank van België
+- Belgisches Rundfunk- und Fernsehzentrum der Deutschsprachigen Gemeinschaft
+- Berlaymont 2000
+- Bibliothèque royale Albert Ier - Koninklijke Bilbliotheek Albert I
+- Bruxelles-Propreté - Agence régionale pour la Propreté - Net-Brussel - Gewestelijke Agentschap voor Netheid
+- Bureau d'Intervention et de Restitution belge - Belgisch Interventie en Restitutiebureau
+- Bureau fédéral du Plan - Federaal Planbureau
 C
-– Caisse auxiliaire de Paiement des Allocations de Chômage — Hulpkas voor Werkloosheidsuitkeringen
-– Caisse de Secours et de Prévoyance en Faveur des Marins — Hulp en Voorzorgskas voor Zeevarenden
-– Caisse de Soins de Santé de la Société Nationale des Chemins de Fer Belges — Kas der geneeskundige Verzorging van de Nationale Maatschappij der Belgische Spoorwegen
-– Caisse nationale des Calamités — Nationale Kas voor Rampenschade
-– Caisse spéciale de Compensation pour Allocations familiales en Faveur dês Travailleurs occupés dans les Entreprises de Batellerie — Bijzondere Verrekenkas voor Gezinsvergoedingen ten Bate van de Arbeiders der Ondernemingen voor Binnenscheepvaart
-– Caisse spéciale de Compensation pour Allocations familiales en Faveur des Travailleurs occupés dans les Entreprises de Chargement, Déchargement et Manutention de Marchandises dans les Ports, Débarcadères, Entrepôts et Stations (appelée habituellement "Caisse spéciale de Compensation pour Allocations familiales des Régions maritimes") — Bijzondere Verrekenkas voor Gezinsvergoedingen ten Bate van de Arbeiders gebezigd door Ladings- — en Lossingsondernemingen en door de Stuwadoors in de Havens, Losplaatsen, Stapelplaatsen en Stations (gewoonlijk genoemd "Bijzondere Compensatiekas voor Kindertoeslagen van de Zeevaartgewesten")
-– Centre d'Etude de l'Energie nucléaire — Studiecentrum voor Kernenergie
-– Centre de recherches agronomiques de Gembloux
-– Centre hospitalier de Mons
-– Centre hospitalier de Tournai
-– Centre hospitalier universitaire de Liège
-– Centre informatique pour la Région de Bruxelles-Capitale — Centrum voor Informatica voor het Brusselse Gewest
-– Centre pour l'Egalité des Chances et la Lutte contre le Racisme — Centrum voor Gelijkheid van Kansen en voor Racismebestrijding
-– Centre régional d'Aide aux Communes
-– Centrum voor Bevolkings- en Gezinsstudiën
-– Centrum voor landbouwkundig Onderzoek te Gent
-– Comité de Contrôle de l'Electricité et du Gaz — Controlecomité voor Elekticiteit en Gas
-– Comité national de l'Energie — Nationaal Comité voor de Energie
-– Commissariat général aux Relations internationales
-– Commissariaat-Generaal voor de Bevordering van de lichamelijke Ontwikkeling, de Sport en de Openluchtrecreatie
-– Commissariat général pour les Relations internationales de la Communauté française de Belgique
-– Conseil central de l'Economie — Centrale Raad voor het Bedrijfsleven
-– Conseil économique et social de la Région wallonne
-– Conseil national du Travail — Nationale Arbeidsraad
-– Conseil supérieur de la Justice — Hoge Raad voor de Justitie
-– Conseil supérieur des Indépendants et des petites et moyennes Entreprises —Hoge Raad voor Zelfstandigen en de kleine en middelgrote Ondernemingen
-– Conseil supérieur des Classes moyennes
-– Coopération technique belge — Belgische technische Coöperatie
+- Caisse auxiliaire de Paiement des Allocations de Chômage - Hulpkas voor Werkloosheidsuitkeringen
+- Caisse de Secours et de Prévoyance en Faveur des Marins - Hulp en Voorzorgskas voor Zeevarenden
+- Caisse de Soins de Santé de la Société Nationale des Chemins de Fer Belges - Kas der geneeskundige Verzorging van de Nationale Maatschappij der Belgische Spoorwegen
+- Caisse nationale des Calamités - Nationale Kas voor Rampenschade
+- Caisse spéciale de Compensation pour Allocations familiales en Faveur dês Travailleurs occupés dans les Entreprises de Batellerie - Bijzondere Verrekenkas voor Gezinsvergoedingen ten Bate van de Arbeiders der Ondernemingen voor Binnenscheepvaart
+- Caisse spéciale de Compensation pour Allocations familiales en Faveur des Travailleurs occupés dans les Entreprises de Chargement, Déchargement et Manutention de Marchandises dans les Ports, Débarcadères, Entrepôts et Stations (appelée habituellement "Caisse spéciale de Compensation pour Allocations familiales des Régions maritimes") - Bijzondere Verrekenkas voor Gezinsvergoedingen ten Bate van de Arbeiders gebezigd door Ladings- - en Lossingsondernemingen en door de Stuwadoors in de Havens, Losplaatsen, Stapelplaatsen en Stations (gewoonlijk genoemd "Bijzondere Compensatiekas voor Kindertoeslagen van de Zeevaartgewesten")
+- Centre d'Etude de l'Energie nucléaire - Studiecentrum voor Kernenergie
+- Centre de recherches agronomiques de Gembloux
+- Centre hospitalier de Mons
+- Centre hospitalier de Tournai
+- Centre hospitalier universitaire de Liège
+- Centre informatique pour la Région de Bruxelles-Capitale - Centrum voor Informatica voor het Brusselse Gewest
+- Centre pour l'Egalité des Chances et la Lutte contre le Racisme - Centrum voor Gelijkheid van Kansen en voor Racismebestrijding
+- Centre régional d'Aide aux Communes
+- Centrum voor Bevolkings- en Gezinsstudiën
+- Centrum voor landbouwkundig Onderzoek te Gent
+- Comité de Contrôle de l'Electricité et du Gaz - Controlecomité voor Elekticiteit en Gas
+- Comité national de l'Energie - Nationaal Comité voor de Energie
+- Commissariat général aux Relations internationales
+- Commissariaat-Generaal voor de Bevordering van de lichamelijke Ontwikkeling, de Sport en de Openluchtrecreatie
+- Commissariat général pour les Relations internationales de la Communauté française de Belgique
+- Conseil central de l'Economie - Centrale Raad voor het Bedrijfsleven
+- Conseil économique et social de la Région wallonne
+- Conseil national du Travail - Nationale Arbeidsraad
+- Conseil supérieur de la Justice - Hoge Raad voor de Justitie
+- Conseil supérieur des Indépendants et des petites et moyennes Entreprises -Hoge Raad voor Zelfstandigen en de kleine en middelgrote Ondernemingen
+- Conseil supérieur des Classes moyennes
+- Coopération technique belge - Belgische technische Coöperatie
 D
-– Dienststelle der Deutschprachigen Gemeinschaft für Personen mit einer Behinderung
-– Dienst voor de Scheepvaart
-– Dienst voor Infrastructuurwerken van het gesubsidieerd Onderwijs
-– Domus Flandria
+- Dienststelle der Deutschprachigen Gemeinschaft für Personen mit einer Behinderung
+- Dienst voor de Scheepvaart
+- Dienst voor Infrastructuurwerken van het gesubsidieerd Onderwijs
+- Domus Flandria
 E
-– Entreprise publique des Technologies nouvelles de l'Information et de la Communication de la Communauté française
-– Export Vlaanderen
+- Entreprise publique des Technologies nouvelles de l'Information et de la Communication de la Communauté française
+- Export Vlaanderen
 F
-– Financieringsfonds voor Schuldafbouw en Eenmalige Investeringsuitgaven
-– Financieringsinstrument voor de Vlaamse Visserij- en Aquicultuursector
-– Fonds bijzondere Jeugdbijstand
-– Fonds communautaire de Garantie des Bâtiments scolaires
-– Fonds culturele Infrastructuur
-– Fonds de Participation
-– Fonds de Vieillissement — Zilverfonds
-– Fonds d'Aide médicale urgente — Fonds voor dringende geneeskundige Hulp
-– Fonds de Construction d'Institutions hospitalières et médico-sociales de la Communauté française
-– Fonds de Pension pour les Pensions de Retraite du Personnel statutaire de Belgacom — Pensioenfonds voor de Rustpensioenen van het statutair Personeel van Belgacom
-– Fonds des Accidents du Travail — Fonds voor Arbeidsongevallen
-– Fonds d'Indemnisation des Travailleurs licenciés en cas de Fermeture d'Entreprises
-– Fonds tot Vergoeding van de in geval van Sluiting van Ondernemingen ontslagen Werknemers
-– Fonds du Logement des Familles nombreuses de la Région de Bruxelles-Capitale —
+- Financieringsfonds voor Schuldafbouw en Eenmalige Investeringsuitgaven
+- Financieringsinstrument voor de Vlaamse Visserij- en Aquicultuursector
+- Fonds bijzondere Jeugdbijstand
+- Fonds communautaire de Garantie des Bâtiments scolaires
+- Fonds culturele Infrastructuur
+- Fonds de Participation
+- Fonds de Vieillissement - Zilverfonds
+- Fonds d'Aide médicale urgente - Fonds voor dringende geneeskundige Hulp
+- Fonds de Construction d'Institutions hospitalières et médico-sociales de la Communauté française
+- Fonds de Pension pour les Pensions de Retraite du Personnel statutaire de Belgacom - Pensioenfonds voor de Rustpensioenen van het statutair Personeel van Belgacom
+- Fonds des Accidents du Travail - Fonds voor Arbeidsongevallen
+- Fonds d'Indemnisation des Travailleurs licenciés en cas de Fermeture d'Entreprises
+- Fonds tot Vergoeding van de in geval van Sluiting van Ondernemingen ontslagen Werknemers
+- Fonds du Logement des Familles nombreuses de la Région de Bruxelles-Capitale -
 Woningfonds van de grote Gezinnen van het Brusselse hoofdstedelijk Gewest
-– Fonds du Logement des Familles nombreuses de Wallonie
-– Fonds Film in Vlaanderen
-– Fonds national de Garantie des Bâtiments scolaires — Nationaal Waarborgfonds voor Schoolgebouwen
-– Fonds national de Garantie pour la Réparation des Dégâts houillers — Nationaal
+- Fonds du Logement des Familles nombreuses de Wallonie
+- Fonds Film in Vlaanderen
+- Fonds national de Garantie des Bâtiments scolaires - Nationaal Waarborgfonds voor Schoolgebouwen
+- Fonds national de Garantie pour la Réparation des Dégâts houillers - Nationaal
 Waarborgfonds inzake Kolenmijnenschade
-– Fonds piscicole de Wallonie
-– Fonds pour le Financement des Prêts à des Etats étrangers — Fonds voor Financiering van de Leningen aan Vreemde Staten
-– Fonds pour la Rémunération des Mousses — Fonds voor Scheepsjongens
-– Fonds régional bruxellois de Refinancement des Trésoreries communales —Brussels gewestelijk Herfinancieringsfonds van de gemeentelijke Thesaurieën
-– Fonds voor flankerend economisch Beleid
-– Fonds wallon d'Avances pour la Réparation des Dommages provoqués par des
+- Fonds piscicole de Wallonie
+- Fonds pour le Financement des Prêts à des Etats étrangers - Fonds voor Financiering van de Leningen aan Vreemde Staten
+- Fonds pour la Rémunération des Mousses - Fonds voor Scheepsjongens
+- Fonds régional bruxellois de Refinancement des Trésoreries communales -Brussels gewestelijk Herfinancieringsfonds van de gemeentelijke Thesaurieën
+- Fonds voor flankerend economisch Beleid
+- Fonds wallon d'Avances pour la Réparation des Dommages provoqués par des
 Pompages et des Prises d'Eau souterraine
 G
-– Garantiefonds der Deutschsprachigen Gemeinschaft für Schulbauten
-– Grindfonds
+- Garantiefonds der Deutschsprachigen Gemeinschaft für Schulbauten
+- Grindfonds
 H
-– Herplaatsingfonds
-– Het Gemeenschapsonderwijs
-– Hulpfonds tot financieel Herstel van de Gemeenten
+- Herplaatsingfonds
+- Het Gemeenschapsonderwijs
+- Hulpfonds tot financieel Herstel van de Gemeenten
 I
-– Institut belge de Normalisation — Belgisch Instituut voor Normalisatie
-– Institut belge des Services postaux et des Télécommunications — Belgisch Instituut
+- Institut belge de Normalisation - Belgisch Instituut voor Normalisatie
+- Institut belge des Services postaux et des Télécommunications - Belgisch Instituut
 voor Postdiensten en Telecommunicatie
-– Institut bruxellois francophone pour la Formation professionnelle
-– Institut bruxellois pour la Gestion de l'Environnement — Brussels Instituut voor Milieubeheer
-– Institut d'Aéronomie spatiale — Instituut voor Ruimte aëronomie
-– Institut de Formation permanente pour les Classes moyennes et les petites et
+- Institut bruxellois francophone pour la Formation professionnelle
+- Institut bruxellois pour la Gestion de l'Environnement - Brussels Instituut voor Milieubeheer
+- Institut d'Aéronomie spatiale - Instituut voor Ruimte aëronomie
+- Institut de Formation permanente pour les Classes moyennes et les petites et
 moyennes Entreprises
-– Institut des Comptes nationaux — Instituut voor de nationale Rekeningen
-– Institut d'Expertise vétérinaire — Instituut voor veterinaire Keuring
-– Institut du Patrimoine wallon
-– Institut für Aus- und Weiterbildung im Mittelstand und in kleinen und mittleren
+- Institut des Comptes nationaux - Instituut voor de nationale Rekeningen
+- Institut d'Expertise vétérinaire - Instituut voor veterinaire Keuring
+- Institut du Patrimoine wallon
+- Institut für Aus- und Weiterbildung im Mittelstand und in kleinen und mittleren
 Unternehmen
-– Institut géographique national — Nationaal geografisch Instituut
-– Institution pour le Développement de la Gazéification souterraine —Instelling voor de Ontwikkeling van ondergrondse Vergassing
-– Institution royale de Messine — Koninklijke Gesticht van Mesen
-– Institutions universitaires de droit public relevant de la Communauté française —
+- Institut géographique national - Nationaal geografisch Instituut
+- Institution pour le Développement de la Gazéification souterraine -Instelling voor de Ontwikkeling van ondergrondse Vergassing
+- Institution royale de Messine - Koninklijke Gesticht van Mesen
+- Institutions universitaires de droit public relevant de la Communauté française -
 Universitaire instellingen van publiek recht afhangende van de Franse Gemeenschap
-– Institut national des Industries extractives — Nationaal Instituut voor de Extractiebedrijven
-– Institut national de Recherche sur les Conditions de Travail — Nationaal Onderzoeksinstituut voor Arbeidsomstandigheden
-– Institut national des Invalides de Guerre, anciens Combattants et Victimes de Guerre
-— Nationaal Instituut voor Oorlogsinvaliden, Oudstrijders en Oorlogsslachtoffers
-– Institut national des Radioéléments — Nationaal Instituut voor Radio-Elementen
-– Institut national pour la Criminalistique et la Criminologie — Nationaal Instituut loor Criminalistiek en Criminologie
-– Institut pour l'Amélioration des Conditions de Travail — Instituut voor Verbetering van
+- Institut national des Industries extractives - Nationaal Instituut voor de Extractiebedrijven
+- Institut national de Recherche sur les Conditions de Travail - Nationaal Onderzoeksinstituut voor Arbeidsomstandigheden
+- Institut national des Invalides de Guerre, anciens Combattants et Victimes de Guerre
+- Nationaal Instituut voor Oorlogsinvaliden, Oudstrijders en Oorlogsslachtoffers
+- Institut national des Radioéléments - Nationaal Instituut voor Radio-Elementen
+- Institut national pour la Criminalistique et la Criminologie - Nationaal Instituut loor Criminalistiek en Criminologie
+- Institut pour l'Amélioration des Conditions de Travail - Instituut voor Verbetering van
 de Arbeidsvoorwaarden
-– Institut royal belge des Sciences naturelles — Koninklijk Belgisch Instituut voor Natuurwetenschappen
-– Institut royal du Patrimoine culturel — Koninklijk Instituut voor het Kunstpatrimonium
-– Institut royal météorologique de Belgique — Koninklijk meteorologisch Instituut van België
-– Institut scientifique de Service public en Région wallonne
-– Institut scientifique de la Santé publique - Louis Pasteur — Wetenschappelijk Instituut Volksgezondheid - Louis Pasteur
-– Instituut voor de Aanmoediging van Innovatie door Wetenschap en Technologie in Vlaanderen
-– Instituut voor Bosbouw en Wildbeheer
-– Instituut voor het archeologisch Patrimonium
-– Investeringsdienst voor de Vlaamse autonome Hogescholen
-– Investeringsfonds voor Grond- en Woonbeleid voor Vlaams-Brabant
+- Institut royal belge des Sciences naturelles - Koninklijk Belgisch Instituut voor Natuurwetenschappen
+- Institut royal du Patrimoine culturel - Koninklijk Instituut voor het Kunstpatrimonium
+- Institut royal météorologique de Belgique - Koninklijk meteorologisch Instituut van België
+- Institut scientifique de Service public en Région wallonne
+- Institut scientifique de la Santé publique - Louis Pasteur - Wetenschappelijk Instituut Volksgezondheid - Louis Pasteur
+- Instituut voor de Aanmoediging van Innovatie door Wetenschap en Technologie in Vlaanderen
+- Instituut voor Bosbouw en Wildbeheer
+- Instituut voor het archeologisch Patrimonium
+- Investeringsdienst voor de Vlaamse autonome Hogescholen
+- Investeringsfonds voor Grond- en Woonbeleid voor Vlaams-Brabant
 J
-– Jardin botanique national de Belgique — Nationale Plantentuin van België
+- Jardin botanique national de Belgique - Nationale Plantentuin van België
 K
-– Kind en Gezin
-– Koninklijk Museum voor schone Kunsten te Antwerpen
+- Kind en Gezin
+- Koninklijk Museum voor schone Kunsten te Antwerpen
 L
-– Loterie nationale — Nationale Loterij
+- Loterie nationale - Nationale Loterij
 M
-– Mémorial national du Fort de Breendonk — Nationaal Gedenkteken van het Fort van Breendonk
-– Musée royal de l'Afrique centrale — Koninklijk Museum voor Midden- Afrika
-– Musées royaux d'Art et d'Histoire — Koninklijke Musea voor Kunst en Geschiedenis
-– Musées royaux des Beaux-Arts de Belgique — Koninklijke Musea voor schone Kunsten van België
+- Mémorial national du Fort de Breendonk - Nationaal Gedenkteken van het Fort van Breendonk
+- Musée royal de l'Afrique centrale - Koninklijk Museum voor Midden- Afrika
+- Musées royaux d'Art et d'Histoire - Koninklijke Musea voor Kunst en Geschiedenis
+- Musées royaux des Beaux-Arts de Belgique - Koninklijke Musea voor schone Kunsten van België
 O
-– Observatoire royal de Belgique — Koninklijke Sterrenwacht van België
-– Office central d'Action sociale et culturelle du Ministère de la Défense —Centrale Dienst voor sociale en culturele Actie van het Ministerie van Defensie
-– Office communautaire et régional de la Formation professionnelle et de l'Emploi
-– Office de Contrôle des Assurances — Controledienst voor de Verzekeringen
-– Office de Contrôle des Mutualités et des Unions nationales de Mutualités — Controledienst voor de Ziekenfondsen en de Landsbonden van Ziekenfondsen
-– Office de la Naissance et de l'Enfance
-– Office de Promotion du Tourisme
-– Office de Sécurité sociale d'Outre-mer — Dienst voor de overzeese sociale Zekerheid
-– Office for Foreign Investors in Wallonia
-– Office national d'Allocations familiales pour Travailleurs salariés —Rijksdienst voor Kinderbijslag voor Werknemers
-– Office national de Sécurité sociale des Administrations provinciales et locales — Rijksdienst voor sociale Zekerheid van de provinciale en plaatselijke Overheidsdiensten
-– Office national des Vacances annuelles — Rijksdienst voor jaarlijkse Vakantie
-– Office national du Ducroire — Nationale Delcrederedienst
-– Office régional bruxellois de l'Emploi — Brusselse gewestelijke Dienst voor Arbeidsbemiddeling
-– Office régional de Promotion de l'Agriculture et de l'Horticulture
-– Office régional pour le Financement des Investissements communaux
-– Office wallon de la Formation professionnelle et de l'Emploi
-– Openbaar psychiatrisch Ziekenhuis-Geel
-– Openbaar psychiatrisch Ziekenhuis-Rekem
-– Openbare Afvalstoffenmaatschappij voor het Vlaams Gewest
-– Orchestre national de Belgique — Nationaal Orkest van België
-– Organisme national des Déchets radioactifs et des Matières fissiles —Nationale Instelling voor radioactief Afval en Splijtstoffen
+- Observatoire royal de Belgique - Koninklijke Sterrenwacht van België
+- Office central d'Action sociale et culturelle du Ministère de la Défense -Centrale Dienst voor sociale en culturele Actie van het Ministerie van Defensie
+- Office communautaire et régional de la Formation professionnelle et de l'Emploi
+- Office de Contrôle des Assurances - Controledienst voor de Verzekeringen
+- Office de Contrôle des Mutualités et des Unions nationales de Mutualités - Controledienst voor de Ziekenfondsen en de Landsbonden van Ziekenfondsen
+- Office de la Naissance et de l'Enfance
+- Office de Promotion du Tourisme
+- Office de Sécurité sociale d'Outre-mer - Dienst voor de overzeese sociale Zekerheid
+- Office for Foreign Investors in Wallonia
+- Office national d'Allocations familiales pour Travailleurs salariés -Rijksdienst voor Kinderbijslag voor Werknemers
+- Office national de Sécurité sociale des Administrations provinciales et locales - Rijksdienst voor sociale Zekerheid van de provinciale en plaatselijke Overheidsdiensten
+- Office national des Vacances annuelles - Rijksdienst voor jaarlijkse Vakantie
+- Office national du Ducroire - Nationale Delcrederedienst
+- Office régional bruxellois de l'Emploi - Brusselse gewestelijke Dienst voor Arbeidsbemiddeling
+- Office régional de Promotion de l'Agriculture et de l'Horticulture
+- Office régional pour le Financement des Investissements communaux
+- Office wallon de la Formation professionnelle et de l'Emploi
+- Openbaar psychiatrisch Ziekenhuis-Geel
+- Openbaar psychiatrisch Ziekenhuis-Rekem
+- Openbare Afvalstoffenmaatschappij voor het Vlaams Gewest
+- Orchestre national de Belgique - Nationaal Orkest van België
+- Organisme national des Déchets radioactifs et des Matières fissiles -Nationale Instelling voor radioactief Afval en Splijtstoffen
 P
-– Palais des Beaux-Arts — Paleis voor schone Kunsten
-– Participatiemaatschappij Vlaanderen
-– Pool des Marins de la Marine marchande — Pool van de Zeelieden der Koopvaardij
+- Palais des Beaux-Arts - Paleis voor schone Kunsten
+- Participatiemaatschappij Vlaanderen
+- Pool des Marins de la Marine marchande - Pool van de Zeelieden der Koopvaardij
 R
-– Radio et Télévision belge de la Communauté française
-– Reproductiefonds voor de Vlaamse Musea
+- Radio et Télévision belge de la Communauté française
+- Reproductiefonds voor de Vlaamse Musea
 S
-– Service d'Incendie et d'Aide médicale urgente de la Région de Bruxelles-Capitale — Brusselse hoofdstedelijk Dienst voor Brandweer en dringende medische Hulp
-– Société belge d'Investissement pour les pays en développement — Belgische Investeringsmaatschappij voor Ontwinkkelingslanden
-– Société d'Assainissement et de Rénovation des Sites industriels dans l'Ouest du Brabant wallon
-– Société de Garantie régionale
-– Sociaal economische Raad voor Vlaanderen
-– Société du Logement de la Région bruxelloise et sociétés agréées —Brusselse
+- Service d'Incendie et d'Aide médicale urgente de la Région de Bruxelles-Capitale - Brusselse hoofdstedelijk Dienst voor Brandweer en dringende medische Hulp
+- Société belge d'Investissement pour les pays en développement - Belgische Investeringsmaatschappij voor Ontwinkkelingslanden
+- Société d'Assainissement et de Rénovation des Sites industriels dans l'Ouest du Brabant wallon
+- Société de Garantie régionale
+- Sociaal economische Raad voor Vlaanderen
+- Société du Logement de la Région bruxelloise et sociétés agréées -Brusselse
 Gewestelijke Huisvestingsmaatschappij en erkende maatschappijen
-– Société publique d'Aide à la Qualité de l'Environnement
-– Société publique d'Administration des Bâtiments scolaires bruxellois
-– Société publique d'Administration des Bâtiments scolaires du Brabant wallon
-– Société publique d'Administration des Bâtiments scolaires du Hainaut
-– Société publique d'Administration des Bâtiments scolaires de Namur
-– Société publique d'Administration des Bâtiments scolaires de Liège
-– Société publique d'Administration des Bâtiments scolaires du Luxembourg
-– Société publique de Gestion de l'Eau
-– Société wallonne du Logement et sociétés agréées
-– Sofibail
-– Sofibru
-– Sofico
+- Société publique d'Aide à la Qualité de l'Environnement
+- Société publique d'Administration des Bâtiments scolaires bruxellois
+- Société publique d'Administration des Bâtiments scolaires du Brabant wallon
+- Société publique d'Administration des Bâtiments scolaires du Hainaut
+- Société publique d'Administration des Bâtiments scolaires de Namur
+- Société publique d'Administration des Bâtiments scolaires de Liège
+- Société publique d'Administration des Bâtiments scolaires du Luxembourg
+- Société publique de Gestion de l'Eau
+- Société wallonne du Logement et sociétés agréées
+- Sofibail
+- Sofibru
+- Sofico
 T
-– Théâtre national
-– Théâtre royal de la Monnaie — Koninklijke Muntschouwburg
-– Toerisme Vlaanderen
-– Tunnel Liefkenshoek
+- Théâtre national
+- Théâtre royal de la Monnaie - Koninklijke Muntschouwburg
+- Toerisme Vlaanderen
+- Tunnel Liefkenshoek
 U
-– Universitaire instellingen van publiek recht afhangende van de Vlaamse Gemeenschap
-– Universitair Ziekenhuis Gent
+- Universitaire instellingen van publiek recht afhangende van de Vlaamse Gemeenschap
+- Universitair Ziekenhuis Gent
 V
-– Vlaams Commissariaat voor de Media
-– Vlaamse Dienst voor Arbeidsbemiddeling en Beroepsopleiding
-– Vlaams Egalisatie Rente Fonds
-– Vlaamse Hogescholenraad
-– Vlaamse Huisvestingsmaatschappij en erkende maatschappijen
-– Vlaamse Instelling voor technologisch Onderzoek
-– Vlaamse interuniversitaire Raad
-– Vlaamse Landmaatschappij
-– Vlaamse Milieuholding
-– Vlaamse Milieumaatschappij
-– Vlaamse Onderwijsraad
-– Vlaamse Opera
-– Vlaamse Radio- en Televisieomroep
-– Vlaamse Reguleringsinstantie voor de Elektriciteits- en Gasmarkt
-– Vlaamse Stichting voor Verkeerskunde
-– Vlaams Fonds voor de Lastendelging
-– Vlaams Fonds voor de Letteren
-– Vlaams Fonds voor de sociale Integratie van Personen met een Handicap
-– Vlaams Informatiecentrum over Land- en Tuinbouw
-– Vlaams Infrastructuurfonds voor Persoonsgebonden Aangelegenheden
-– Vlaams Instituut voor de Bevordering van het wetenschappelijk- en technologisch Onderzoek in de Industrie
-– Vlaams Instituut voor Gezondheidspromotie
-– Vlaams Instituut voor het Zelfstandig ondernemen
-– Vlaams Landbouwinvesteringsfonds
-– Vlaams Promotiecentrum voor Agro- en Visserijmarketing
-– Vlaams Zorgfonds
-– Vlaams Woningsfonds voor de grote Gezinnen
+- Vlaams Commissariaat voor de Media
+- Vlaamse Dienst voor Arbeidsbemiddeling en Beroepsopleiding
+- Vlaams Egalisatie Rente Fonds
+- Vlaamse Hogescholenraad
+- Vlaamse Huisvestingsmaatschappij en erkende maatschappijen
+- Vlaamse Instelling voor technologisch Onderzoek
+- Vlaamse interuniversitaire Raad
+- Vlaamse Landmaatschappij
+- Vlaamse Milieuholding
+- Vlaamse Milieumaatschappij
+- Vlaamse Onderwijsraad
+- Vlaamse Opera
+- Vlaamse Radio- en Televisieomroep
+- Vlaamse Reguleringsinstantie voor de Elektriciteits- en Gasmarkt
+- Vlaamse Stichting voor Verkeerskunde
+- Vlaams Fonds voor de Lastendelging
+- Vlaams Fonds voor de Letteren
+- Vlaams Fonds voor de sociale Integratie van Personen met een Handicap
+- Vlaams Informatiecentrum over Land- en Tuinbouw
+- Vlaams Infrastructuurfonds voor Persoonsgebonden Aangelegenheden
+- Vlaams Instituut voor de Bevordering van het wetenschappelijk- en technologisch Onderzoek in de Industrie
+- Vlaams Instituut voor Gezondheidspromotie
+- Vlaams Instituut voor het Zelfstandig ondernemen
+- Vlaams Landbouwinvesteringsfonds
+- Vlaams Promotiecentrum voor Agro- en Visserijmarketing
+- Vlaams Zorgfonds
+- Vlaams Woningsfonds voor de grote Gezinnen
 Bulgaria
 Entidades
-– Икономически и социален съвет
-– Национален осигурителен институт
-– Национална здравноосигурителна каса
-– Български червен кръст
-– Българска академия на науките
-– Национален център за аграрни науки
-– Български институт за стандартизация
-– Българско национално радио
-– Българска национална телевизия
+- Икономически и социален съвет
+- Национален осигурителен институт
+- Национална здравноосигурителна каса
+- Български червен кръст
+- Българска академия на науките
+- Национален център за аграрни науки
+- Български институт за стандартизация
+- Българско национално радио
+- Българска национална телевизия
 Categorías
 Empresas del Estado de conformidad con el artículo 62, apartado 3, del Търговския закон (обн., ДВ, бр.48/18.6.1991), Código de Derecho mercantil (publicado en el Boletín del Estado nº 48 de 18.6.1991):
-– Национална компания "Железопътна инфраструктура"
-– ДП "Пристанищна инфраструктура"
-– ДП "Ръководство на въздушното движение"
-– ДП "Строителство и възстановяване"
-– ДП "Транспортно строителство и възстановяване"
-– ДП "Съобщително строителство и възстановяване"
-– ДП "Радиоактивни отпадъци"
-– ДП "Предприятие за управление на дейностите по опазване на околната среда"
-– ДП "Български спортен тотализатор"
-– ДП "Държавна парично-предметна лотария"
-– ДП "Кабиюк", Шумен
-– ДП "Фонд затворно дело"
-– Държавни дивечовъдни станции
+- Национална компания "Железопътна инфраструктура"
+- ДП "Пристанищна инфраструктура"
+- ДП "Ръководство на въздушното движение"
+- ДП "Строителство и възстановяване"
+- ДП "Транспортно строителство и възстановяване"
+- ДП "Съобщително строителство и възстановяване"
+- ДП "Радиоактивни отпадъци"
+- ДП "Предприятие за управление на дейностите по опазване на околната среда"
+- ДП "Български спортен тотализатор"
+- ДП "Държавна парично-предметна лотария"
+- ДП "Кабиюк", Шумен
+- ДП "Фонд затворно дело"
+- Държавни дивечовъдни станции
 Universidades Estatales, establecidas de conformidad con el artículo 13 de la Закона за висшето образование (обн., ДВ, бр.112/27.12.1995) Ley de Enseñanza Superior (publicada en el Boletín del Estado nº 112 de 27.12.1995):
-– Аграрен университет – Пловдив
-– Академия за музикално, танцово и изобразително изкуство – Пловдив
-– Академия на Министерството на вътрешните работи
-– Великотърновски университет "Св. св. Кирил и Методий"
-– Висше военноморско училище "Н. Й. Вапцаров" – Варна
-– Висше строително училище "Любен Каравелов" – София
-– Висше транспортно училище "Тодор Каблешков" – София
-– Военна академия "Г. С. Раковски" – София
-– Национална музикална академия "Проф. Панчо Владигеров" – София
-– Икономически университет – Варна
-– Колеж по телекомуникации и пощи – София
-– Лесотехнически университет - София
-– Медицински университет "Проф. д-р Параскев Иванов Стоянов" – Варна
-– Медицински университет – Плевен
-– Медицински университет – Пловдив
-– Медицински университет – София
-– Минно-геоложки университет "Св. Иван Рилски" – София
-– Национален военен университет "Васил Левски" – Велико Търново
-– Национална академия за театрално и филмово изкуство "Кръстьо Сарафов" – София
-– Национална спортна академия "Васил Левски" – София
-– Национална художествена академия – София
-– Пловдивски университет "Паисий Хилендарски"
-– Русенски университет "Ангел Кънчев"
-– Софийски университет "Св. Климент Охридски"
-– Специализирано висше училище по библиотекознание и информационни технологии – София
-– Стопанска академия "Д. А. Ценов" – Свищов
-– Технически университет – Варна
-– Технически университет – Габрово
-– Технически университет – София
-– Tракийски университет - Стара Загора
-– Университет "Проф. д-р Асен Златаров" – Бургас
-– Университет за национално и световно стопанство – София
-– Университет по архитектура, строителство и геодезия – София
-– Университет по хранителни технологии – Пловдив
-– Химико-технологичен и металургичен университет - София
-– Шуменски университет "Епископ Константин Преславски"
-– Югозападен университет "Неофит Рилски" – Благоевград
+- Аграрен университет - Пловдив
+- Академия за музикално, танцово и изобразително изкуство - Пловдив
+- Академия на Министерството на вътрешните работи
+- Великотърновски университет "Св. св. Кирил и Методий"
+- Висше военноморско училище "Н. Й. Вапцаров" - Варна
+- Висше строително училище "Любен Каравелов" - София
+- Висше транспортно училище "Тодор Каблешков" - София
+- Военна академия "Г. С. Раковски" - София
+- Национална музикална академия "Проф. Панчо Владигеров" - София
+- Икономически университет - Варна
+- Колеж по телекомуникации и пощи - София
+- Лесотехнически университет - София
+- Медицински университет "Проф. д-р Параскев Иванов Стоянов" - Варна
+- Медицински университет - Плевен
+- Медицински университет - Пловдив
+- Медицински университет - София
+- Минно-геоложки университет "Св. Иван Рилски" - София
+- Национален военен университет "Васил Левски" - Велико Търново
+- Национална академия за театрално и филмово изкуство "Кръстьо Сарафов" - София
+- Национална спортна академия "Васил Левски" - София
+- Национална художествена академия - София
+- Пловдивски университет "Паисий Хилендарски"
+- Русенски университет "Ангел Кънчев"
+- Софийски университет "Св. Климент Охридски"
+- Специализирано висше училище по библиотекознание и информационни технологии - София
+- Стопанска академия "Д. А. Ценов" - Свищов
+- Технически университет - Варна
+- Технически университет - Габрово
+- Технически университет - София
+- Tракийски университет - Стара Загора
+- Университет "Проф. д-р Асен Златаров" - Бургас
+- Университет за национално и световно стопанство - София
+- Университет по архитектура, строителство и геодезия - София
+- Университет по хранителни технологии - Пловдив
+- Химико-технологичен и металургичен университет - София
+- Шуменски университет "Епископ Константин Преславски"
+- Югозападен университет "Неофит Рилски" - Благоевград
 Escuelas municipales y estatales de conformidad con la Закона за народната просвета (обн., ДВ, бр. 86/18.10.1991) Ley de Educación Pública (publicada en el Boletín del Estado nº 86 de 18.10.1991)
 Institutos culturales establecidos de conformidad con la Закона за закрила и развитие на културата (обн., ДВ, бр.50/1.6.1999) Ley de Protección y Fomento de la Cultura (publicada en el Boletín del Estado nº 50 de 1.6.1999):
-– Народна библиотека "Св. св. Кирил и Методий"
-– Българска национална фонотека
-– Българска национална филмотека
-– Национален фонд "Култура"
-– Национален институт за паметниците на културата
-– Театри (Theatres)
-– Опери, филхармонии и ансамбли (Operas, orquestas filarmónicas y conjuntos)
-– Музеи и галерии (Museos y galerías)
-– Училища по изкуствата и културата (Escuelas de arte y cultura)
-– Български културни институти в чужбина (Institutos culturales búlgaros en el extranjero)
+- Народна библиотека "Св. св. Кирил и Методий"
+- Българска национална фонотека
+- Българска национална филмотека
+- Национален фонд "Култура"
+- Национален институт за паметниците на културата
+- Театри (Theatres)
+- Опери, филхармонии и ансамбли (Operas, orquestas filarmónicas y conjuntos)
+- Музеи и галерии (Museos y galerías)
+- Училища по изкуствата и културата (Escuelas de arte y cultura)
+- Български културни институти в чужбина (Institutos culturales búlgaros en el extranjero)
 Instituciones médicas estatales y/o municipales a las que hace referencia el artículo 3, apartado 1, de la Закона за лечебните заведения (обн., ДВ, бр.62/9.7.1999), Ley de instituciones médicas (publicada en el Boletín del Estado nº 62 de 9.7.1999).
 Instituciones médicas estatales o municipales a las que hace referencia el artículo 5, apartado 1, de la Закона за лечебните заведения (обн., ДВ, бр.62/9.7.1999), Ley de instituciones médicas (publicada en el Boletín del Estado nº 62 de 9.7.1999):
-– Домове за медико-социални грижи за деца
-– Лечебни заведения за стационарна психиатрична помощ
-– Центрове за спешна медицинска помощ
-– Центрове за трансфузионна хематология
-– Болница "Лозенец"
-– Военномедицинска академия
-– Медицински институт на Министерство на вътрешните работи
-– Лечебни заведения към Министерството на правосъдието
-– Лечебни заведения към Министерството на транспорта
+- Домове за медико-социални грижи за деца
+- Лечебни заведения за стационарна психиатрична помощ
+- Центрове за спешна медицинска помощ
+- Центрове за трансфузионна хематология
+- Болница "Лозенец"
+- Военномедицинска академия
+- Медицински институт на Министерство на вътрешните работи
+- Лечебни заведения към Министерството на правосъдието
+- Лечебни заведения към Министерството на транспорта
 Personas jurídicas de carácter no comercial establecidas con el propósito de cumplir necesidades de interés general, de acuerdo con la Закона за юридическите лица с нестопанска цел (обн., ДВ, бр.81/6.10.2000), Ley de personas jurídicas de carácter no comercial (publicada en el Boletín del Estado nº 81 de 6.10.2000), y que satisfagan las condiciones del artículo 1, apartado 1, de la Ley de Contratación Pública (publicada en el Boletín del Estado nº 28 /6.4.2004).
 República Checa
-– Pozemkový fond and other state funds
-– Česká národní banka
-– Česká televize
-– Český rozhlas
-– Rada pro rozhlasové a televizní vysílaní
-– Vńeobecná zdravotní pojińťovna České republiky
-– Zdravotní pojińťovna ministerstva vnitra ČR
-– Universidades
+- Pozemkový fond and other state funds
+- Česká národní banka
+- Česká televize
+- Český rozhlas
+- Rada pro rozhlasové a televizní vysílaní
+- Vńeobecná zdravotní pojińťovna České republiky
+- Zdravotní pojińťovna ministerstva vnitra ČR
+- Universidades
 y otras entidades legales establecidas por ley especial las cuales para su operación y de conformidad con regulaciones presupuestarias utilizan dinero del presupuesto estatal, fondos estatales, contribuciones de instituciones internacionales, autoridad presupuestaria distrital, o presupuesto de divisiones territoriales autogobernadas.
 Dinamarca
 Entidades
-– Danmarks Radio
-– Det landsdækkende TV2
-– Danmarks Nationalbank
-– Sund og Bælt Holding A/S
-– A/S Storebælt
-– A/S Øresund
-– Øresundskonsortiet
-– Metroselskabet I/S
-– Arealudviklingsselskabet I/S
-– Statens og Kommunernes Indkøbsservice
-– Arbejdsmarkedets Tillægspension
-– Arbejdsmarkedets Feriefond
-– Lønmodtagernes Dyrtidsfond
-– Naviair
+- Danmarks Radio
+- Det landsdækkende TV2
+- Danmarks Nationalbank
+- Sund og Bælt Holding A/S
+- A/S Storebælt
+- A/S Øresund
+- Øresundskonsortiet
+- Metroselskabet I/S
+- Arealudviklingsselskabet I/S
+- Statens og Kommunernes Indkøbsservice
+- Arbejdsmarkedets Tillægspension
+- Arbejdsmarkedets Feriefond
+- Lønmodtagernes Dyrtidsfond
+- Naviair
 Categorías
-– De Almene Boligorganisationer (organizaciones de vivienda social)
-– Andre forvaltningssubjekter (otros entes públicos administrativos)
-– Universiteterne, jf. lovbekendtgørelse nr. 1368 af 7. december 2007 af lov om universiteter (Universidades, ver Ley de Consolidación nr. 1368 del 7 de diciembre de 2007 sobre universidades)
+- De Almene Boligorganisationer (organizaciones de vivienda social)
+- Andre forvaltningssubjekter (otros entes públicos administrativos)
+- Universiteterne, jf. lovbekendtgørelse nr. 1368 af 7. december 2007 af lov om universiteter (Universidades, ver Ley de Consolidación nr. 1368 del 7 de diciembre de 2007 sobre universidades)
 Alemania
 Categorías
 Personas jurídicas regidas por el derecho público
 Autoridades, establecimientos y fundaciones gobernadas por el derecho público y creadas por autoridades federales, estatales o locales particularmente en los siguientes campos:
 (1) Autoridades
-- Wissenschaftliche Hochschulen und verfasste Studentenschaften — (universidades y organismos estudiantiles establecidos),
+- Wissenschaftliche Hochschulen und verfasste Studentenschaften - (universidades y organismos estudiantiles establecidos),
 - berufsständige Vereinigungen (Rechtsanwalts-, notar-, Steuerberater-, Wirtschaftsprüfer-, Architekten-, Ärzte- und Apothekerkammern) (asociaciones profesionales que representen abogados, notarios, consultores de impuestos, contadores, arquitectos médicos y farmacéuticos),
-- Wirtschaftsvereinigungen (Landwirtschafts-, Handwerks-, Industrie- und Handelskammern, Handwerksinnungen, Handwerkerschaften) — (asociaciones de negocios y comercio: asociaciones de agricultura y artesanía, cámaras de industria y comercio, gremios de artesanos, asociaciones de comerciantes),
-- Sozialversicherungen (Krankenkassen, Unfall- und Rentenversicherungsträger)— (instituciones de seguridad social: salud, fondos de seguros de salud, accidentes y pensiones),
-- kassenärztliche Vereinigungen — (asociaciones de médicos de panel),
-- Genossenschaften und Verbände — (cooperativas y otras asociaciones).
+- Wirtschaftsvereinigungen (Landwirtschafts-, Handwerks-, Industrie- und Handelskammern, Handwerksinnungen, Handwerkerschaften) - (asociaciones de negocios y comercio: asociaciones de agricultura y artesanía, cámaras de industria y comercio, gremios de artesanos, asociaciones de comerciantes),
+- Sozialversicherungen (Krankenkassen, Unfall- und Rentenversicherungsträger)- (instituciones de seguridad social: salud, fondos de seguros de salud, accidentes y pensiones),
+- kassenärztliche Vereinigungen - (asociaciones de médicos de panel),
+- Genossenschaften und Verbände - (cooperativas y otras asociaciones).
 (2) Establecimientos y fundaciones Establecimientos no industriales y no comerciales sujetos al control estatal y que opera para el interés general, particularmente en los siguientes campos:
-– Rechtsfähige Bundesanstalten — (Instituciones federales con capacidad jurídica)
-– Versorgungsanstalten und Studentenwerke — (organizaciones de pensiones y
+- Rechtsfähige Bundesanstalten - (Instituciones federales con capacidad jurídica)
+- Versorgungsanstalten und Studentenwerke - (organizaciones de pensiones y
 sindicatos estudiantiles)
-– Kultur-, Wohlfahrts- und Hilfsstiftungen — (fundaciones culturales, de bienestar y de apoyo)
+- Kultur-, Wohlfahrts- und Hilfsstiftungen - (fundaciones culturales, de bienestar y de apoyo)
 Personas jurídicas regidas por el derecho privado
 Establecimientos no industriales y no comerciales sujetos al control estatal y que opera en el interés general, como los kommunale Versorgungsunternehmen (servicios públicos municipales):
-- Gesundheitswesen (Krankenhäuser, Kurmittelbetriebe, medizinische Forschungseinrichtungen, Untersuchungs- und Tierkörperbeseitigungsanstalten)— [salud: hospitales, establecimientos de complejos de salud, instituciones de investigación médica, establecimientos de pruebas y de restos de animales],
-- Kultur (öffentliche Bühnen, Orchester, Museen, Bibliotheken, Archive, zoologische und botanische Gärten) — [cultura: teatros públicos, orquestas, museos, bibliotecas, archivos, jardines botánicos y zoológicos],
+- Gesundheitswesen (Krankenhäuser, Kurmittelbetriebe, medizinische Forschungseinrichtungen, Untersuchungs- und Tierkörperbeseitigungsanstalten)- [salud: hospitales, establecimientos de complejos de salud, instituciones de investigación médica, establecimientos de pruebas y de restos de animales],
+- Kultur (öffentliche Bühnen, Orchester, Museen, Bibliotheken, Archive, zoologische und botanische Gärten) - [cultura: teatros públicos, orquestas, museos, bibliotecas, archivos, jardines botánicos y zoológicos],
 - Soziales (Kindergärten, Kindertagesheime, Erholungseinrichtungen, Kinder-und
-Jugendheime, Freizeiteinrichtungen, Gemeinschafts- und Bürgerhäuser, Frauenhäuser, Altersheime, Obdachlosenunterkünfte) — [bienestar social: escuelas materiales, guarderías infantiles, casas de reposo, hogares infantiles, albergues para gente joven, centros de entretenimiento, centros comunales y cívicos, casas para mujeres maltratadas, asilos de ancianos, alojamientos para las personas sin hogar],
-- Sport (Schwimmbäder, Sportanlagen und -einrichtungen) — [deporte: piscinas, establecimientos deportivos],
-- Sicherheit (Feuerwehren, Rettungsdienste) — [seguridad: bomberos, otros servicios de emergencia],
+Jugendheime, Freizeiteinrichtungen, Gemeinschafts- und Bürgerhäuser, Frauenhäuser, Altersheime, Obdachlosenunterkünfte) - [bienestar social: escuelas materiales, guarderías infantiles, casas de reposo, hogares infantiles, albergues para gente joven, centros de entretenimiento, centros comunales y cívicos, casas para mujeres maltratadas, asilos de ancianos, alojamientos para las personas sin hogar],
+- Sport (Schwimmbäder, Sportanlagen und -einrichtungen) - [deporte: piscinas, establecimientos deportivos],
+- Sicherheit (Feuerwehren, Rettungsdienste) - [seguridad: bomberos, otros servicios de emergencia],
 - Bildung (Umschulungs-, Aus-, Fort- und Weiterbildungseinrichtungen, Volkshochschulen) [educación: formación, formación adicional, formación continua y establecimientos de readaptación, clases nocturnas para adultos],
-- Wissenschaft, Forschung und Entwicklung (Großforschungseinrichtungen, wissenschaftliche Gesellschaften und Vereine, Wissenschaftsförderung) — [ciencia, investigación y desarrollo: institutos de investigación a larga escala, sociedades y asociaciones científicas, entes promotores de la ciencia],
-- Entsorgung (Straßenreinigung, Abfall- und Abwasserbeseitigung) — [servicios de eliminación de basura y desperdicios: limpieza de calles, eliminación de desechos y aguas negras],
-- Bauwesen und Wohnungswirtschaft (Stadtplanung, Stadtentwicklung, Wohnungsunternehmen soweit im Allgemeininteresse tätig, Wohnraumvermittlung)— [construcción, ingeniería civil y vivienda: planificación urbana, desarrollo urbano, vivienda, empresa (que operan para el interés general), servicios de agencias de vivienda],
-- Wirtschaft (Wirtschaftsförderungsgesellschaften) — (economía: organizaciones que promueven del desarrollo económico),
-- Friedhofs- und Bestattungswesen — (cementerios y servicios funerarios),
-- Zusammenarbeit mit den Entwicklungsländern (Finanzierung, technische Zusammenarbeit, Entwicklungshilfe, Ausbildung) — [cooperación con países en desarrollo: financiamiento, cooperación técnica, ayuda para el desarrollo, capacitación].
+- Wissenschaft, Forschung und Entwicklung (Großforschungseinrichtungen, wissenschaftliche Gesellschaften und Vereine, Wissenschaftsförderung) - [ciencia, investigación y desarrollo: institutos de investigación a larga escala, sociedades y asociaciones científicas, entes promotores de la ciencia],
+- Entsorgung (Straßenreinigung, Abfall- und Abwasserbeseitigung) - [servicios de eliminación de basura y desperdicios: limpieza de calles, eliminación de desechos y aguas negras],
+- Bauwesen und Wohnungswirtschaft (Stadtplanung, Stadtentwicklung, Wohnungsunternehmen soweit im Allgemeininteresse tätig, Wohnraumvermittlung)- [construcción, ingeniería civil y vivienda: planificación urbana, desarrollo urbano, vivienda, empresa (que operan para el interés general), servicios de agencias de vivienda],
+- Wirtschaft (Wirtschaftsförderungsgesellschaften) - (economía: organizaciones que promueven del desarrollo económico),
+- Friedhofs- und Bestattungswesen - (cementerios y servicios funerarios),
+- Zusammenarbeit mit den Entwicklungsländern (Finanzierung, technische Zusammenarbeit, Entwicklungshilfe, Ausbildung) - [cooperación con países en desarrollo: financiamiento, cooperación técnica, ayuda para el desarrollo, capacitación].
 Estonia
-– Eesti Kunstiakadeemia
-– Eesti Muusika- ja Teatriakadeemia
-– Eesti Maaülikool
-– Eesti Teaduste Akadeemia
-– Eesti Rahvusringhaaling
-– Tagatisfond
-– Kaitseliit
-– Keemilise ja Bioloogilise Füüsika Instituut
-– Eesti Haigekassa
-– Eesti Kultuurkapital
-– Notarite Koda
-– Rahvusooper Estonia
-– Eesti Rahvusraamatukogu
-– Tallinna Ülikool
-– Tallinna Tehnikaülikool
-– Tartu Ülikool
-– Eesti Advokatuur
-– Audiitorkogu
-– Eesti Töötukassa
-– Eesti Arengufond
+- Eesti Kunstiakadeemia
+- Eesti Muusika- ja Teatriakadeemia
+- Eesti Maaülikool
+- Eesti Teaduste Akadeemia
+- Eesti Rahvusringhaaling
+- Tagatisfond
+- Kaitseliit
+- Keemilise ja Bioloogilise Füüsika Instituut
+- Eesti Haigekassa
+- Eesti Kultuurkapital
+- Notarite Koda
+- Rahvusooper Estonia
+- Eesti Rahvusraamatukogu
+- Tallinna Ülikool
+- Tallinna Tehnikaülikool
+- Tartu Ülikool
+- Eesti Advokatuur
+- Audiitorkogu
+- Eesti Töötukassa
+- Eesti Arengufond
 Categorías
 Otras personas jurídicas regidas por el derecho público o personas jurídicas de derecho privado de conformidad con el artículo 10, apartado 2, de la Ley de Contratos Públicos (RT I 21.7.2007, 15, 76).
 Irlanda
 Entidades
-– Enterprise Ireland [Mercadeo, tecnología y desarrollo empresarial]
-– Forfás [Política y asesoría para empresa, comercio, ciencia, tecnología e innovación]
-– Industrial Development Authority
-– FÁS [Asesoría industrial y de empleo]
-– Health and Safety Authority
-– Bord Fáilte Éireann — [Desarrollo Turístico]
-– CERT [Capacitación en industria hotelera, de servicios de alimentos y turismo]
-– Irish Sports Council
-– National Roads Authority
-– Údarás na Gaeltachta — [Autoridad para las regiones de habla gaélica]
-– Teagasc [Investigación agrícola, capacitación y desarrollo]
-– An Bord Bia — [Promoción de la industria alimentaria]
-– Irish Horseracing Authority
-– Bord na gCon — [Apoyo y desarrollo de las carreras de galgos]
-– Marine Institute
-– Bord Iascaigh Mhara — [Desarrollo de Pesquerías]
-– Equality Authority
-– Legal Aid Board
-– Forbas [Forbairt]
+- Enterprise Ireland [Mercadeo, tecnología y desarrollo empresarial]
+- Forfás [Política y asesoría para empresa, comercio, ciencia, tecnología e innovación]
+- Industrial Development Authority
+- FÁS [Asesoría industrial y de empleo]
+- Health and Safety Authority
+- Bord Fáilte Éireann - [Desarrollo Turístico]
+- CERT [Capacitación en industria hotelera, de servicios de alimentos y turismo]
+- Irish Sports Council
+- National Roads Authority
+- Údarás na Gaeltachta - [Autoridad para las regiones de habla gaélica]
+- Teagasc [Investigación agrícola, capacitación y desarrollo]
+- An Bord Bia - [Promoción de la industria alimentaria]
+- Irish Horseracing Authority
+- Bord na gCon - [Apoyo y desarrollo de las carreras de galgos]
+- Marine Institute
+- Bord Iascaigh Mhara - [Desarrollo de Pesquerías]
+- Equality Authority
+- Legal Aid Board
+- Forbas [Forbairt]
 Categorías
 - Servicio Ejecutivo de Salud
 - Hospitales e instituciones similares de carácter público
@@ -3517,119 +3517,119 @@ Categorías
 - Personas jurídicas regidas por el derecho privado que son propiedad de personas jurídicas regidas por el derecho público, por autoridades locales de cualquier nivel incluyendo la asociación central griega de autoridades locales (Κ.Δ.Γ.Κ.Δ.), por asociaciones locales de ayuntamientos (áreas administrativas locales) o por empresas o entidades públicas, o por personas jurídicas indicadas en b) o que regularmente reciben al menos el 50% de su presupuesto anual en la forma de subsidios de dichas personas jurídicas, sujetos a las reglas aplicables o sus artículos de asociación, o personas jurídicas mencionadas anteriormente que poseen acciones de capital de al menos el 51% en dichas personas jurídicas regidas por el derecho público.
 España
 Categorías
-- Entes y entidades regidas por el derecho público que están sujetas a la Ley 30/2007, de 30 de octubre, de Contratos del sector público, — [legislación española de contratación pública] –, de acuerdo con su artículo 3, distintas de aquellas que han sido parte de la Administración General del Estado, la Administración de las Comunidades Autónomas y las Corporaciones Locales.
+- Entes y entidades regidas por el derecho público que están sujetas a la Ley 30/2007, de 30 de octubre, de Contratos del sector público, - [legislación española de contratación pública] -, de acuerdo con su artículo 3, distintas de aquellas que han sido parte de la Administración General del Estado, la Administración de las Comunidades Autónomas y las Corporaciones Locales.
 - Entidades Gestoras y los Servicios Comunes de la Seguridad Social
 Francia
 Entidades
 - Compagnies et établissements consulaires, chambres de commerce et d'industrie (CCI), chambres des métiers et chambres d'agriculture.
 Categorías
 (1) Entes públicos nacionales:
-– Académie des Beaux-arts
-– Académie française
-– Académie des inscriptions et belles-lettres
-– Académie des sciences
-– Académie des sciences morales et politiques
-– Banque de France
-– Centre de coopération internationale en recherche agronomique pour lê développement
-– Écoles d'architecture
-– Institut national de la consommation
-– Reunion des musées nationaux
-– Thermes nationaux - Aix-les-Bains
-– Groupements d'intérêt public; exemples:
-– Agence EduFrance
-– ODIT France (observation, développement et ingénierie touristique)
-– Agence nationale de lutte contre l'illettrisme
+- Académie des Beaux-arts
+- Académie française
+- Académie des inscriptions et belles-lettres
+- Académie des sciences
+- Académie des sciences morales et politiques
+- Banque de France
+- Centre de coopération internationale en recherche agronomique pour lê développement
+- Écoles d'architecture
+- Institut national de la consommation
+- Reunion des musées nationaux
+- Thermes nationaux - Aix-les-Bains
+- Groupements d'intérêt public; exemples:
+- Agence EduFrance
+- ODIT France (observation, développement et ingénierie touristique)
+- Agence nationale de lutte contre l'illettrisme
 (2) Organismos públicos administrativos regionales, departamentales y locales:
-– Collèges
-– Lycées
-– Etablissements publics locaux d'enseignement et de formation professionnelle agricole
-– Etablissements publics hospitaliers
-– Offices publics de l'habitat
+- Collèges
+- Lycées
+- Etablissements publics locaux d'enseignement et de formation professionnelle agricole
+- Etablissements publics hospitaliers
+- Offices publics de l'habitat
 (3) Agrupaciones de autoridades territoriales:
-– Etablissements publics de coopération intercommunale
-– Institutions interdépartementales et interrégionales
-– Syndicat des transports d'Île-de-France
+- Etablissements publics de coopération intercommunale
+- Institutions interdépartementales et interrégionales
+- Syndicat des transports d'Île-de-France
 Italia
 Entidades
-– Società Stretto di Messina S.p.A.
-– Mostra d'oltremare S.p.A.
-– Ente nazionale per l'aviazione civile - ENAC
-– Società nazionale per l'assistenza al volo S.p.A. - ENAV
-– ANAS S.p.A
-– Società Stretto di Messina S.p.A.
-– Mostra d'oltremare S.p.A.
-– Ente nazionale per l'aviazione civile - ENAC
-– Società nazionale per l'assistenza al volo S.p.A. - ENAV
-– ANAS S.p.A
+- Società Stretto di Messina S.p.A.
+- Mostra d'oltremare S.p.A.
+- Ente nazionale per l'aviazione civile - ENAC
+- Società nazionale per l'assistenza al volo S.p.A. - ENAV
+- ANAS S.p.A
+- Società Stretto di Messina S.p.A.
+- Mostra d'oltremare S.p.A.
+- Ente nazionale per l'aviazione civile - ENAC
+- Società nazionale per l'assistenza al volo S.p.A. - ENAV
+- ANAS S.p.A
 Categorías
-– Consorzi per le opere idrauliche (consorcios para obras hidráulicas)
-– Università statali, gli istituti universitari statali, i consorzi per i lavori interessanti lê università (Universidades estatales, institutos universitarios estatales, consórcios para obras de interés universitario)
-– Istituzioni pubbliche di assistenza e di beneficenza (entidades públicas de asistencia y beneficencia)
-– Istituti superiori scientifici e culturali, osservatori astronomici, astrofisici, geofisici o vulcanologici (institutos científicos y culturales superiores, observatorios astronómicos, astrofísicos, geofísicos o vulcanológicos)
-– Enti di ricerca e sperimentazione (organizaciones de investigación y experimentación)
-– Enti che gestiscono forme obbligatorie di previdenza e di assistenza (agencias que
+- Consorzi per le opere idrauliche (consorcios para obras hidráulicas)
+- Università statali, gli istituti universitari statali, i consorzi per i lavori interessanti lê università (Universidades estatales, institutos universitarios estatales, consórcios para obras de interés universitario)
+- Istituzioni pubbliche di assistenza e di beneficenza (entidades públicas de asistencia y beneficencia)
+- Istituti superiori scientifici e culturali, osservatori astronomici, astrofisici, geofisici o vulcanologici (institutos científicos y culturales superiores, observatorios astronómicos, astrofísicos, geofísicos o vulcanológicos)
+- Enti di ricerca e sperimentazione (organizaciones de investigación y experimentación)
+- Enti che gestiscono forme obbligatorie di previdenza e di assistenza (agencias que
 gestionan formas obligatorias de seguridad social y asistencia )
-– Consorzi di bonifica (consorcios para la bonificación de tierras)
-– Enti di sviluppo e di irrigazione (agencias de desarrollo y de irrigación)
-– Consorzi per le aree industriali (asociaciones para áreas industriales)
-– Enti preposti a servizi di pubblico interesse (organizaciones proveedoras de servicios de interés público)
-– Enti pubblici preposti ad attività di spettacolo, sportive, turistiche e del tempo libero (entes públicos comprometidos con actividades de entretenimiento, deporte, turismo y recreación)
-– Enti culturali e di promozione artistica (organizaciones promotoras de actividades culturales y artísticas)
+- Consorzi di bonifica (consorcios para la bonificación de tierras)
+- Enti di sviluppo e di irrigazione (agencias de desarrollo y de irrigación)
+- Consorzi per le aree industriali (asociaciones para áreas industriales)
+- Enti preposti a servizi di pubblico interesse (organizaciones proveedoras de servicios de interés público)
+- Enti pubblici preposti ad attività di spettacolo, sportive, turistiche e del tempo libero (entes públicos comprometidos con actividades de entretenimiento, deporte, turismo y recreación)
+- Enti culturali e di promozione artistica (organizaciones promotoras de actividades culturales y artísticas)
 Chipre
-– Αξρή ΡƀƁηνƄειƂόξƀƃεο Κύπξνπ
-– ΔπηƄξνπή ΚƂƅƀιƀηƀγνξάο Κύπξνπ
-– ΔπίƄξνπνο ΡπζκίƃƂωο ΗιƂθƄξνληθώλ Δπηθνηλωληώλ θƀη ΣƀρπƁξνκƂίωλ
-– ΡπζκηƃƄηθή Αξρή ΔλέξγƂηƀο Κύπξνπ
-– Δƅνξηƀθό ΢πκβνύιην
-– ΢πκβνύιην Δγγξƀƅήο θƀη Διέγρνπ ΔξγνιεπƄώλ
-– ΑλνηθƄό ΠƀλƂπηƃƄήκην Κύπξνπ
-– ΠƀλƂπηƃƄήκην Κύπξνπ
-– ΣƂρλνινγηθό ΠƀλƂπηƃƄήκην Κύπξνπ
-– Έλωƃε Γήκωλ
-– Έλωƃε ΚνηλνƄήƄωλ
-– ΑλƀπƄπμηƀθή ΔƄƀηξƂίƀ Λάξλƀθƀο
-– ΣƀκƂίν Κνηλωληθήο ΢πλνρήο
-– ΣƀκƂίν Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
-– ΣƀκƂίν ΠιƂνλάδνλƄνο Πξνƃωπηθνύ
-– ΚƂλƄξηθό ΣƀκƂίν ΑƁƂηώλ
-– ΑλƄηλƀξθωƄηθό ΢πκβνύιην Κύπξνπ
-– Ογθνινγηθό ΚέλƄξν Ƅεο ΣξάπƂδƀο Κύπξνπ
-– Οξγƀληƃκόο Αƃƅάιηƃεο ΤγƂίƀο
-– ΙλƃƄηƄνύƄν ŽƂλƂƄηθήο θƀη ΝƂπξνινγίƀο
-– ΚƂλƄξηθή ΣξάπƂδƀ Ƅεο Κύπξνπ
-– ΥξεκƀƄηƃƄήξην Αμηώλ Κύπξνπ
-– Οξγƀληƃκόο ΥξεκƀƄνƁνƄήƃƂωο ΢Ƅέγεο
-– ΚƂλƄξηθόο ſνξέƀο ΙƃόƄηκεο ΚƀƄƀλνκήο Βƀξώλ
-– ΊƁξπκƀ ΚξƀƄηθώλ ΤπνƄξνƅηώλ Κύπξνπ
-– Κππξηƀθόο Οξγƀληƃκόο ΑγξνƄηθώλ Πιεξωκώλ
-– Οξγƀληƃκόο ŽƂωξγηθήο Αƃƅάιηƃεο
-– ΔηƁηθό ΣƀκƂίν ΑλƀλƂώƃηκωλ Πεγώλ ΔλέξγƂηƀο θƀη Δμνηθνλόκεƃεο ΔλέξγƂηƀο
-– ΢πκβνύιην Διƀηνθνκηθώλ ΠξνϊόλƄωλ
-– Οξγƀληƃκόο Κππξηƀθήο ŽƀιƀθƄνθνκηθήο Βηνκερƀλίƀο
-– ΢πκβνύιην ΑκπƂιννηληθώλ ΠξνϊόλƄωλ
-– ΢πκβνύιην Δκπνξίƀο Κππξηƀθώλ ΠƀƄƀƄώλ
-– Δπξωπƀϊθό ΙλƃƄηƄνύƄν Κύπξνπ
-– ΡƀƁηνƅωληθό ΊƁξπκƀ Κύπξνπ
-– Οξγƀληƃκόο ΝƂνιƀίƀο Κύπξνπ
-– Κππξηƀθόλ ΠξƀθƄνξƂίνλ ΔηƁήƃƂωλ
-– žƂƀƄξηθόο Οξγƀληƃκόο Κύπξνπ
-– Κππξηƀθόο Οξγƀληƃκόο ΑζιεƄηƃκνύ
-– Αξρή ΑλάπƄπμεο Αλζξώπηλνπ Γπλƀκηθνύ Κύπξνπ
-– Αξρή ΚξƀƄηθώλ ΔθζέƃƂωλ Κύπξνπ
-– ΔιƂγθƄηθή ΤπεξƂƃίƀ ΢πλƂξγƀƄηθώλ ΔƄƀηξƂηώλ
-– Κππξηƀθόο Οξγƀληƃκόο Σνπξηƃκνύ
-– Κππξηƀθόο Οξγƀληƃκόο ΑλƀπƄύμƂωο Žεο
-– ΢πκβνύιηƀ ΑπνρƂƄƂύƃƂωλ (Esta categoría hace referencia a la ΢πκβνύιηƀ ΑπνρƂƄƂύƃƂωλ que ha sido establecida y es operativa de conformidad con las disposiciones de la ΑπνρƂƄƂπƄηθώλ ΢πƃƄεκάƄωλ Νόκνπ Ν.1(Ι) de 1971)
-– ΢πκβνύιηƀ ΢ƅƀγƂίωλ (Esta categoría hace referencia a la ΚƂλƄξηθά θƀη ΚνηλνƄηθά ΢πκβνύιηƀ ΢ƅƀγƂίωλ gestionada por las autoridades locales, que ha sido establecida y es operativa de conformidad con las disposiciones de la ΢ƅƀγƂίωλ Νόκνπ N.26(Ι) de 2003)
-– ΢ρνιηθέο ΔƅνξƂίƂο (Esta categoría hace referencia a la ΢ρνιηθέο ΔƅνξƂίƂο que ha sido establecida y es operativa de conformidad con las disposiciones de la ΢ρνιηθώλ ΔƅνξƂηώλ Νόκνπ N.108 de 2003)
-– ΣƀκƂίν žήξƀο
-– Κππξηƀθόο Οξγƀληƃκόο ΓηƀρƂίξηƃεο ΑπνζƂκάƄωλ ΠƂƄξƂιƀηνƂηƁώλ
-– ΊƁξπκƀ ΣƂρλνινγίƀο Κύπξνπ
-– ΊƁξπκƀ Πξνώζεƃεο ΈξƂπλƀο
-– ΊƁξπκƀ ΔλέξγƂηƀο Κύπξνπ
-– ΔηƁηθό ΣƀκƂίν Πƀξƀρώξεƃεο ΔπηƁόκƀƄνο Γηƀθίλεƃεο Αλƀπήξωλ
-– ΣƀκƂίν ΔπεκƂξίƀο Δζλνƅξνπξνύ
-– ΊƁξπκƀ ΠνιηƄηƃκνύ Κύπξνπ
+- Αξρή ΡƀƁηνƄειƂόξƀƃεο Κύπξνπ
+- ΔπηƄξνπή ΚƂƅƀιƀηƀγνξάο Κύπξνπ
+- ΔπίƄξνπνο ΡπζκίƃƂωο ΗιƂθƄξνληθώλ Δπηθνηλωληώλ θƀη ΣƀρπƁξνκƂίωλ
+- ΡπζκηƃƄηθή Αξρή ΔλέξγƂηƀο Κύπξνπ
+- Δƅνξηƀθό ΢πκβνύιην
+- ΢πκβνύιην Δγγξƀƅήο θƀη Διέγρνπ ΔξγνιεπƄώλ
+- ΑλνηθƄό ΠƀλƂπηƃƄήκην Κύπξνπ
+- ΠƀλƂπηƃƄήκην Κύπξνπ
+- ΣƂρλνινγηθό ΠƀλƂπηƃƄήκην Κύπξνπ
+- Έλωƃε Γήκωλ
+- Έλωƃε ΚνηλνƄήƄωλ
+- ΑλƀπƄπμηƀθή ΔƄƀηξƂίƀ Λάξλƀθƀο
+- ΣƀκƂίν Κνηλωληθήο ΢πλνρήο
+- ΣƀκƂίν Κνηλωληθώλ ΑƃƅƀιίƃƂωλ
+- ΣƀκƂίν ΠιƂνλάδνλƄνο Πξνƃωπηθνύ
+- ΚƂλƄξηθό ΣƀκƂίν ΑƁƂηώλ
+- ΑλƄηλƀξθωƄηθό ΢πκβνύιην Κύπξνπ
+- Ογθνινγηθό ΚέλƄξν Ƅεο ΣξάπƂδƀο Κύπξνπ
+- Οξγƀληƃκόο Αƃƅάιηƃεο ΤγƂίƀο
+- ΙλƃƄηƄνύƄν ZƂλƂƄηθήο θƀη ΝƂπξνινγίƀο
+- ΚƂλƄξηθή ΣξάπƂδƀ Ƅεο Κύπξνπ
+- ΥξεκƀƄηƃƄήξην Αμηώλ Κύπξνπ
+- Οξγƀληƃκόο ΥξεκƀƄνƁνƄήƃƂωο ΢Ƅέγεο
+- ΚƂλƄξηθόο ſνξέƀο ΙƃόƄηκεο ΚƀƄƀλνκήο Βƀξώλ
+- ΊƁξπκƀ ΚξƀƄηθώλ ΤπνƄξνƅηώλ Κύπξνπ
+- Κππξηƀθόο Οξγƀληƃκόο ΑγξνƄηθώλ Πιεξωκώλ
+- Οξγƀληƃκόο ZƂωξγηθήο Αƃƅάιηƃεο
+- ΔηƁηθό ΣƀκƂίν ΑλƀλƂώƃηκωλ Πεγώλ ΔλέξγƂηƀο θƀη Δμνηθνλόκεƃεο ΔλέξγƂηƀο
+- ΢πκβνύιην Διƀηνθνκηθώλ ΠξνϊόλƄωλ
+- Οξγƀληƃκόο Κππξηƀθήο ZƀιƀθƄνθνκηθήο Βηνκερƀλίƀο
+- ΢πκβνύιην ΑκπƂιννηληθώλ ΠξνϊόλƄωλ
+- ΢πκβνύιην Δκπνξίƀο Κππξηƀθώλ ΠƀƄƀƄώλ
+- Δπξωπƀϊθό ΙλƃƄηƄνύƄν Κύπξνπ
+- ΡƀƁηνƅωληθό ΊƁξπκƀ Κύπξνπ
+- Οξγƀληƃκόο ΝƂνιƀίƀο Κύπξνπ
+- Κππξηƀθόλ ΠξƀθƄνξƂίνλ ΔηƁήƃƂωλ
+- zƂƀƄξηθόο Οξγƀληƃκόο Κύπξνπ
+- Κππξηƀθόο Οξγƀληƃκόο ΑζιεƄηƃκνύ
+- Αξρή ΑλάπƄπμεο Αλζξώπηλνπ Γπλƀκηθνύ Κύπξνπ
+- Αξρή ΚξƀƄηθώλ ΔθζέƃƂωλ Κύπξνπ
+- ΔιƂγθƄηθή ΤπεξƂƃίƀ ΢πλƂξγƀƄηθώλ ΔƄƀηξƂηώλ
+- Κππξηƀθόο Οξγƀληƃκόο Σνπξηƃκνύ
+- Κππξηƀθόο Οξγƀληƃκόο ΑλƀπƄύμƂωο Zεο
+- ΢πκβνύιηƀ ΑπνρƂƄƂύƃƂωλ (Esta categoría hace referencia a la ΢πκβνύιηƀ ΑπνρƂƄƂύƃƂωλ que ha sido establecida y es operativa de conformidad con las disposiciones de la ΑπνρƂƄƂπƄηθώλ ΢πƃƄεκάƄωλ Νόκνπ Ν.1(Ι) de 1971)
+- ΢πκβνύιηƀ ΢ƅƀγƂίωλ (Esta categoría hace referencia a la ΚƂλƄξηθά θƀη ΚνηλνƄηθά ΢πκβνύιηƀ ΢ƅƀγƂίωλ gestionada por las autoridades locales, que ha sido establecida y es operativa de conformidad con las disposiciones de la ΢ƅƀγƂίωλ Νόκνπ N.26(Ι) de 2003)
+- ΢ρνιηθέο ΔƅνξƂίƂο (Esta categoría hace referencia a la ΢ρνιηθέο ΔƅνξƂίƂο que ha sido establecida y es operativa de conformidad con las disposiciones de la ΢ρνιηθώλ ΔƅνξƂηώλ Νόκνπ N.108 de 2003)
+- ΣƀκƂίν zήξƀο
+- Κππξηƀθόο Οξγƀληƃκόο ΓηƀρƂίξηƃεο ΑπνζƂκάƄωλ ΠƂƄξƂιƀηνƂηƁώλ
+- ΊƁξπκƀ ΣƂρλνινγίƀο Κύπξνπ
+- ΊƁξπκƀ Πξνώζεƃεο ΈξƂπλƀο
+- ΊƁξπκƀ ΔλέξγƂηƀο Κύπξνπ
+- ΔηƁηθό ΣƀκƂίν Πƀξƀρώξεƃεο ΔπηƁόκƀƄνο Γηƀθίλεƃεο Αλƀπήξωλ
+- ΣƀκƂίν ΔπεκƂξίƀο Δζλνƅξνπξνύ
+- ΊƁξπκƀ ΠνιηƄηƃκνύ Κύπξνπ
 Letonia
 - Sujetos de derecho público que realizan compras de acuerdo con "Publisko iepirkumu likuma prasībām"
 Lituania
@@ -3654,16 +3654,16 @@ Luxemburgo
 - Syndicats de communes créés en vertu de la loi du 23 février 2001 concernant les syndicats de communes.
 Hungría
 Entidades
-– Egyes költségvetési szervek (ciertos organismos presupuestarios)
-– Az elkülönített állami pénzalapok kezelője (organismos gestores de los diversos fondos estatales)
-– A közalapítványok (fundaciones públicas)
-– A Magyar Nemzeti Bank
-– A Magyar Nemzeti Vagyonkezelő Zrt.
-– A Magyar Fejlesztési Bank Részvénytársaság
-– A Magyar Távirati Iroda Részvénytársaság
-– A közszolgálati műsorszolgáltatók (entes públicos de radiofusión)
-– Azok a közműsor-szolgáltatók, amelyek működését többségi részben állami, illetve önkormányzati költségvetésből finanszírozzák (entes públicos de radiofusión, financiados mayoritariamente con cargo al presupuesto público)
-– Az Országos Rádió és Televízió Testület
+- Egyes költségvetési szervek (ciertos organismos presupuestarios)
+- Az elkülönített állami pénzalapok kezelője (organismos gestores de los diversos fondos estatales)
+- A közalapítványok (fundaciones públicas)
+- A Magyar Nemzeti Bank
+- A Magyar Nemzeti Vagyonkezelő Zrt.
+- A Magyar Fejlesztési Bank Részvénytársaság
+- A Magyar Távirati Iroda Részvénytársaság
+- A közszolgálati műsorszolgáltatók (entes públicos de radiofusión)
+- Azok a közműsor-szolgáltatók, amelyek működését többségi részben állami, illetve önkormányzati költségvetésből finanszírozzák (entes públicos de radiofusión, financiados mayoritariamente con cargo al presupuesto público)
+- Az Országos Rádió és Televízió Testület
 Categorías
 - Organizaciones establecidas para el propósito de cumplir necesidades de interés público, que no tengan un carácter industrial o comercial, y controladas por entidades públicas, o financiadas, mayoritariamente, por entidades públicas (con presupuesto público)
 - Organizaciones establecidas por ley que determina sus tareas públicas y operación, y controladas por entidades públicas, o financiadas, en la mayor parte, por entidades públicas (del presupuesto público)
@@ -3746,41 +3746,41 @@ Malta
 - Istitut Internazzjonali tal-Anzjani (Instituto Internacional sobre el Envejecimiento).
 Países Bajos
 Entidades
-– Ministerie van Binnenlandse Zaken en Koninkrijksrelaties
-– Nederlands Instituut voor Brandweer en rampenbestrijding (NIBRA)
-– Nederlands Bureau Brandweer Examens (NBBE)
-– Landelijk Selectie- en Opleidingsinstituut Politie (LSOP)
-– 25 afzonderlijke politieregio's — (25 regiones policiales individuales)
-– Stichting ICTU
-– Voorziening tot samenwerking Politie Nederland
-– Ministerie van Economische Zaken
-– Stichting Syntens
-– Van Swinden Laboratorium B.V.
-– Nederlands Meetinstituut B.V.
-– Nederland Instituut voor Vliegtuigontwikkeling en Ruimtevaart (NIVR)
-– Nederlands Bureau voor Toerisme en Congressen
-– Samenwerkingsverband Noord Nederland (SNN)
-– Ontwikkelingsmaatschappij Oost Nederland N.V.(Oost N.V.)
-– LIOF (Limburg Investment Development Company LIOF)
-– Noordelijke Ontwikkelingsmaatschappij (NOM)
-– Brabantse Ontwikkelingsmaatschappij (BOM)
-– Onafhankelijke Post en Telecommunicatie Autoriteit (Opta)
-– Centraal Bureau voor de Statistiek (CBS)
-– Energieonderzoek Centrum Nederland (ECN)
-– Stichting PUM (Programma Uitzending Managers)
-– Stichting Kenniscentrum Maatschappelijk Verantwoord Ondernemen (MVO)
-– Kamer van Koophandel Nederland
-– Ministerie van Financiën
-– De Nederlandse Bank N.V.
-– Autoriteit Financiële Markten
-– Pensioen- & Verzekeringskamer
-– Ministerie van Justitie
+- Ministerie van Binnenlandse Zaken en Koninkrijksrelaties
+- Nederlands Instituut voor Brandweer en rampenbestrijding (NIBRA)
+- Nederlands Bureau Brandweer Examens (NBBE)
+- Landelijk Selectie- en Opleidingsinstituut Politie (LSOP)
+- 25 afzonderlijke politieregio's - (25 regiones policiales individuales)
+- Stichting ICTU
+- Voorziening tot samenwerking Politie Nederland
+- Ministerie van Economische Zaken
+- Stichting Syntens
+- Van Swinden Laboratorium B.V.
+- Nederlands Meetinstituut B.V.
+- Nederland Instituut voor Vliegtuigontwikkeling en Ruimtevaart (NIVR)
+- Nederlands Bureau voor Toerisme en Congressen
+- Samenwerkingsverband Noord Nederland (SNN)
+- Ontwikkelingsmaatschappij Oost Nederland N.V.(Oost N.V.)
+- LIOF (Limburg Investment Development Company LIOF)
+- Noordelijke Ontwikkelingsmaatschappij (NOM)
+- Brabantse Ontwikkelingsmaatschappij (BOM)
+- Onafhankelijke Post en Telecommunicatie Autoriteit (Opta)
+- Centraal Bureau voor de Statistiek (CBS)
+- Energieonderzoek Centrum Nederland (ECN)
+- Stichting PUM (Programma Uitzending Managers)
+- Stichting Kenniscentrum Maatschappelijk Verantwoord Ondernemen (MVO)
+- Kamer van Koophandel Nederland
+- Ministerie van Financiën
+- De Nederlandse Bank N.V.
+- Autoriteit Financiële Markten
+- Pensioen- & Verzekeringskamer
+- Ministerie van Justitie
 - Stichting Reclassering Nederland (SRN)
 - Stichting VEDIVO
-- Voogdij- en gezinsvoogdij instellingen — (Instituciones de Tutela y Tutela Familiar)
+- Voogdij- en gezinsvoogdij instellingen - (Instituciones de Tutela y Tutela Familiar)
 - Stichting Halt Nederland (SHN)
-- Particuliere Internaten — (Internados Privados)
-- Particuliere Jeugdinrichtingen — (Instituciones Penales para Infractores Juveniles)
+- Particuliere Internaten - (Internados Privados)
+- Particuliere Jeugdinrichtingen - (Instituciones Penales para Infractores Juveniles)
 - Schadefonds Geweldsmisdrijven
 - Centraal Orgaan opvang asielzoekers (COA)
 - Landelijk Bureau Inning Onderhoudsbijdragen (LBIO)
@@ -3789,17 +3789,17 @@ Entidades
 - Raden voor de Rechtsbijstand
 - Stichting Rechtsbijstand Asiel
 - Stichtingen Rechtsbijstand
-– Landelijk Bureau Racisme bestrijding (LBR)
-– Clara Wichman Instituut
-– Ministerie van Landbouw, Natuur en Voedselkwaliteit
-– Bureau Beheer Landbouwgronden
-– Faunafonds
-– Staatsbosbeheer
-– Stichting Voorlichtingsbureau voor de Voeding
-– Universiteit Wageningen
-– Stichting DLO
-– (Hoofd) productschappen — (agrupaciones profesionales)
-– Ministerie van Onderwijs, Cultuur en Wetenschap
+- Landelijk Bureau Racisme bestrijding (LBR)
+- Clara Wichman Instituut
+- Ministerie van Landbouw, Natuur en Voedselkwaliteit
+- Bureau Beheer Landbouwgronden
+- Faunafonds
+- Staatsbosbeheer
+- Stichting Voorlichtingsbureau voor de Voeding
+- Universiteit Wageningen
+- Stichting DLO
+- (Hoofd) productschappen - (agrupaciones profesionales)
+- Ministerie van Onderwijs, Cultuur en Wetenschap
 Las autoridades competentes de:
 - escuelas públicas o escuelas privadas financiadas con fondos públicos sometidas a la Wet op het primair onderwijs (Ley de Educación Primaria);
 - escuelas públicas o privadas financiadas con fondos públicos para la educación primaria especial, sometidas a la Wet op het primair onderwijs (Ley de Educación Primaria);
@@ -3812,478 +3812,478 @@ Las autoridades competentes de:
 - Organizaciones de radiodifusión sometidas a la Mediawet (Ley de Medios de Comunicación), siempre que estén financiadas en más del 50% por el Ministerio de Educación, Cultura y Ciencia;
 - Servicios sometidos a la Wet Verzelfstandiging Rijksmuseale Diensten (Ley de Privatización de Servicios de Museos Nacionales);
 - Otras organizaciones e instituciones del ámbito de la educación, la cultura y la ciencia que estén financiadas en más del 50% por el Ministerio de Educación, Cultura y Ciencia.
-– Todas las organizaciones que estén financiadas en más del 50% por el Ministerio de Educación, Cultura y Ciencia, como, por ejemplo:
-– Bedrijfsfonds voor de Pers (BvdP)
-– Commissariaat voor de Media (CvdM)
-– Informatie Beheer Groep (IB-Groep)
-– Koninklijke Bibliotheek (KB)
-– Koninklijke Nederlandse Academie van Wetenschappen (KNAW)
-– Vereniging voor Landelijke organen voor beroepsonderwijs (COLO)
-– Nederlands Vlaams Accreditatieorgaan Hoger Onderwijs (NVAO)
-– Fonds voor beeldende kunsten, vormgeving en bouwkunst
-– Fonds voor Amateurkunsten en Podiumkunsten
-– Fonds voor de scheppende toonkunst
-– Mondriaanstichting
-– Nederlands fonds voor de film
-– Stimuleringsfonds voor de architectuur
-– Fonds voor Podiumprogrammering- en marketing
-– Fonds voor de letteren
-– Nederlands Literair Productie- en Vertalingsfonds
-– Nederlandse Omroepstichting (NOS)
-– Nederlandse Organisatie voor Toegepast Natuurwetenschappelijk Onderwijs (TNO)
-– Nederlandse Organisatie voor Wetenschappelijk Onderzoek (NWO)
-– Stimuleringsfonds Nederlandse culturele omroepproducties (STIFO)
-– Vervangingsfonds en bedrijfsgezondheidszorg voor het onderwijs (VF)
-– Nederlandse organisatie voor internationale samenwerking in het hoger onderwijs (Nuffic)
-– Europees Platform voor het Nederlandse Onderwijs
-– Nederlands Instituut voor Beeld en Geluid (NIBG)
-– Stichting ICT op school
-– Stichting Anno
-– Stichting Educatieve Omroepcombinatie (EduCom)
-– Stichting Kwaliteitscentrum Examinering (KCE)
-– Stichting Kennisnet
-– Stichting Muziek Centrum van de Omroep
-– Stichting Nationaal GBIF Kennisknooppunt (NL-BIF)
-– Stichting Centraal Bureau voor Genealogie
-– Stichting Ether Reclame (STER)
-– Stichting Nederlands Instituut Architectuur en Stedenbouw
-– Stichting Radio Nederland Wereldomroep
-– Stichting Samenwerkingsorgaan Beroepskwaliteit Leraren (SBL)
-– Stichting tot Exploitatie van het Rijksbureau voor Kunsthistorische documentatie (RKD)
-– Stichting Sectorbestuur Onderwijsarbeidsmarkt
-– Stichting Nationaal Restauratiefonds
-– Stichting Forum voor Samenwerking van het Nederlands Archiefwezen en Documentaire Informatie
-– Rijksacademie voor Beeldende Kunst en Vormgeving
-– Stichting Nederlands Onderwijs in het Buitenland
-– Stichting Nederlands Instituut voor Fotografie
-– Nederlandse Taalunie
-– Stichting Participatiefonds voor het onderwijs
-– Stichting Uitvoering Kinderopvangregelingen/Kintent
-– Stichting voor Vluchteling-Studenten UAF
-– Stichting Nederlands Interdisciplinair Demografisch Instituut
-– College van Beroep voor het Hoger Onderwijs
-– Vereniging van openbare bibliotheken NBLC
-– Nederlandse Programmastichting
-– Stichting Stimuleringsfonds Nederlandse Culturele Omroepproducties
-– Stichting Lezen
-– Centrum voor innovatie van opleidingen
-– Instituut voor Leerplanontwikkeling
-– Landelijk Dienstverlenend Centrum voor studie- en beroepskeuzevoorlichting
-– Max Goote Kenniscentrum voor Beroepsonderwijs en Volwasseneneducatie
-– Stichting Vervangingsfonds en Bedrijfsgezondheidszorg voor het Onderwijs
-– BVE-Raad
-– Colo, Vereniging kenniscentra beroepsonderwijs bedrijfsleven
-– Stichting kwaliteitscentrum examinering beroepsonderwijs
-– Vereniging Jongerenorganisatie Beroepsonderwijs
-– Combo, Stichting Combinatie Onderwijsorganisatie
-– Stichting Financiering Struktureel Vakbondsverlof Onderwijs
-– Stichting Samenwerkende Centrales in het COPWO
-– Stichting SoFoKles
-– Europees Platform
-– Stichting mobiliteitsfonds HBO
-– Nederlands Audiovisueel Archiefcentrum
-– Stichting minderheden Televisie Nederland
-– Stichting omroep allochtonen
-– Stichting Multiculturele Activiteiten Utrecht
-– School der Poëzie
-– Nederlands Perscentrum
-– Nederlands Letterkundig Museum en documentatiecentrum
-– Bibliotheek voor varenden
-– Christelijke bibliotheek voor blinden en slechtzienden
-– Federatie van Nederlandse Blindenbibliotheken
-– Nederlandse luister- en braillebibliotheek
-– Federatie Slechtzienden- en Blindenbelang
-– Bibliotheek Le Sage Ten Broek
-– Doe Maar Dicht Maar
-– ElHizjra
-– Fonds Bijzondere Journalistieke Projecten
-– Fund for Central and East European Bookprojects
-– Jongeren Onderwijs Media
-– Ministerie van Sociale Zaken en Werkgelegenheid
-– Sociale Verzekeringsbank
-– Sociaal Economische Raad (SER)
-– Raad voor Werk en Inkomen (RWI)
-– Centrale organisatie voor werk en inkomen
-– Uitvoeringsinstituut werknemersverzekeringen
-– Ministerie van Verkeer en Waterstaat
-– RDW, Dienst Wegverkeer
-– Luchtverkeersleiding Nederland (LVNL)
-– Nederlandse Loodsencorporatie (NLC)
-– Regionale Loodsencorporatie (RLC)
-– Ministerie van Volkshuisvesting, Ruimtelijke Ordening en Milieubeheer
-– Kadaster
-– Centraal Fonds voor de Volkshuisvesting
-– Stichting Bureau Architectenregister
-– Ministerie van Volksgezondheid, Welzijn en Sport
-– Commissie Algemene Oorlogsongevallenregeling Indonesië (COAR)
-– College ter beoordeling van de Geneesmiddelen (CBG)
-– Commissies voor gebiedsaanwijzing
-– College sanering Ziekenhuisvoorzieningen
-– Zorgonderzoek Nederland (ZON)
-– Inspection bodies under the Wet medische hulpmiddelen
-– N.V. KEMA/Stichting TNO Certification
-– College Bouw Ziekenhuisvoorzieningen (CBZ)
-– College voor Zorgverzekeringen (CVZ)
-– Nationaal Comité 4 en 5 mei
-– Pensioen- en Uitkeringsraad (PUR)
-– College Tarieven Gezondheidszorg (CTG)
-– Stichting Uitvoering Omslagregeling Wet op de Toegang Ziektekostenverzekering (SUO)
-– Stichting tot bevordering van de Volksgezondheid en Milieuhygiëne (SVM)
-– Stichting Facilitair Bureau Gemachtigden Bouw VWS
-– Stichting Sanquin Bloedvoorziening
-– College van Toezicht op de Zorgverzekeringen organen ex artikel 14, lid 2c, Wet BIG
-– Ziekenfondsen
-– Nederlandse Transplantatiestichting (NTS)
-– Regionale Indicatieorganen (RIO's)
+- Todas las organizaciones que estén financiadas en más del 50% por el Ministerio de Educación, Cultura y Ciencia, como, por ejemplo:
+- Bedrijfsfonds voor de Pers (BvdP)
+- Commissariaat voor de Media (CvdM)
+- Informatie Beheer Groep (IB-Groep)
+- Koninklijke Bibliotheek (KB)
+- Koninklijke Nederlandse Academie van Wetenschappen (KNAW)
+- Vereniging voor Landelijke organen voor beroepsonderwijs (COLO)
+- Nederlands Vlaams Accreditatieorgaan Hoger Onderwijs (NVAO)
+- Fonds voor beeldende kunsten, vormgeving en bouwkunst
+- Fonds voor Amateurkunsten en Podiumkunsten
+- Fonds voor de scheppende toonkunst
+- Mondriaanstichting
+- Nederlands fonds voor de film
+- Stimuleringsfonds voor de architectuur
+- Fonds voor Podiumprogrammering- en marketing
+- Fonds voor de letteren
+- Nederlands Literair Productie- en Vertalingsfonds
+- Nederlandse Omroepstichting (NOS)
+- Nederlandse Organisatie voor Toegepast Natuurwetenschappelijk Onderwijs (TNO)
+- Nederlandse Organisatie voor Wetenschappelijk Onderzoek (NWO)
+- Stimuleringsfonds Nederlandse culturele omroepproducties (STIFO)
+- Vervangingsfonds en bedrijfsgezondheidszorg voor het onderwijs (VF)
+- Nederlandse organisatie voor internationale samenwerking in het hoger onderwijs (Nuffic)
+- Europees Platform voor het Nederlandse Onderwijs
+- Nederlands Instituut voor Beeld en Geluid (NIBG)
+- Stichting ICT op school
+- Stichting Anno
+- Stichting Educatieve Omroepcombinatie (EduCom)
+- Stichting Kwaliteitscentrum Examinering (KCE)
+- Stichting Kennisnet
+- Stichting Muziek Centrum van de Omroep
+- Stichting Nationaal GBIF Kennisknooppunt (NL-BIF)
+- Stichting Centraal Bureau voor Genealogie
+- Stichting Ether Reclame (STER)
+- Stichting Nederlands Instituut Architectuur en Stedenbouw
+- Stichting Radio Nederland Wereldomroep
+- Stichting Samenwerkingsorgaan Beroepskwaliteit Leraren (SBL)
+- Stichting tot Exploitatie van het Rijksbureau voor Kunsthistorische documentatie (RKD)
+- Stichting Sectorbestuur Onderwijsarbeidsmarkt
+- Stichting Nationaal Restauratiefonds
+- Stichting Forum voor Samenwerking van het Nederlands Archiefwezen en Documentaire Informatie
+- Rijksacademie voor Beeldende Kunst en Vormgeving
+- Stichting Nederlands Onderwijs in het Buitenland
+- Stichting Nederlands Instituut voor Fotografie
+- Nederlandse Taalunie
+- Stichting Participatiefonds voor het onderwijs
+- Stichting Uitvoering Kinderopvangregelingen/Kintent
+- Stichting voor Vluchteling-Studenten UAF
+- Stichting Nederlands Interdisciplinair Demografisch Instituut
+- College van Beroep voor het Hoger Onderwijs
+- Vereniging van openbare bibliotheken NBLC
+- Nederlandse Programmastichting
+- Stichting Stimuleringsfonds Nederlandse Culturele Omroepproducties
+- Stichting Lezen
+- Centrum voor innovatie van opleidingen
+- Instituut voor Leerplanontwikkeling
+- Landelijk Dienstverlenend Centrum voor studie- en beroepskeuzevoorlichting
+- Max Goote Kenniscentrum voor Beroepsonderwijs en Volwasseneneducatie
+- Stichting Vervangingsfonds en Bedrijfsgezondheidszorg voor het Onderwijs
+- BVE-Raad
+- Colo, Vereniging kenniscentra beroepsonderwijs bedrijfsleven
+- Stichting kwaliteitscentrum examinering beroepsonderwijs
+- Vereniging Jongerenorganisatie Beroepsonderwijs
+- Combo, Stichting Combinatie Onderwijsorganisatie
+- Stichting Financiering Struktureel Vakbondsverlof Onderwijs
+- Stichting Samenwerkende Centrales in het COPWO
+- Stichting SoFoKles
+- Europees Platform
+- Stichting mobiliteitsfonds HBO
+- Nederlands Audiovisueel Archiefcentrum
+- Stichting minderheden Televisie Nederland
+- Stichting omroep allochtonen
+- Stichting Multiculturele Activiteiten Utrecht
+- School der Poëzie
+- Nederlands Perscentrum
+- Nederlands Letterkundig Museum en documentatiecentrum
+- Bibliotheek voor varenden
+- Christelijke bibliotheek voor blinden en slechtzienden
+- Federatie van Nederlandse Blindenbibliotheken
+- Nederlandse luister- en braillebibliotheek
+- Federatie Slechtzienden- en Blindenbelang
+- Bibliotheek Le Sage Ten Broek
+- Doe Maar Dicht Maar
+- ElHizjra
+- Fonds Bijzondere Journalistieke Projecten
+- Fund for Central and East European Bookprojects
+- Jongeren Onderwijs Media
+- Ministerie van Sociale Zaken en Werkgelegenheid
+- Sociale Verzekeringsbank
+- Sociaal Economische Raad (SER)
+- Raad voor Werk en Inkomen (RWI)
+- Centrale organisatie voor werk en inkomen
+- Uitvoeringsinstituut werknemersverzekeringen
+- Ministerie van Verkeer en Waterstaat
+- RDW, Dienst Wegverkeer
+- Luchtverkeersleiding Nederland (LVNL)
+- Nederlandse Loodsencorporatie (NLC)
+- Regionale Loodsencorporatie (RLC)
+- Ministerie van Volkshuisvesting, Ruimtelijke Ordening en Milieubeheer
+- Kadaster
+- Centraal Fonds voor de Volkshuisvesting
+- Stichting Bureau Architectenregister
+- Ministerie van Volksgezondheid, Welzijn en Sport
+- Commissie Algemene Oorlogsongevallenregeling Indonesië (COAR)
+- College ter beoordeling van de Geneesmiddelen (CBG)
+- Commissies voor gebiedsaanwijzing
+- College sanering Ziekenhuisvoorzieningen
+- Zorgonderzoek Nederland (ZON)
+- Inspection bodies under the Wet medische hulpmiddelen
+- N.V. KEMA/Stichting TNO Certification
+- College Bouw Ziekenhuisvoorzieningen (CBZ)
+- College voor Zorgverzekeringen (CVZ)
+- Nationaal Comité 4 en 5 mei
+- Pensioen- en Uitkeringsraad (PUR)
+- College Tarieven Gezondheidszorg (CTG)
+- Stichting Uitvoering Omslagregeling Wet op de Toegang Ziektekostenverzekering (SUO)
+- Stichting tot bevordering van de Volksgezondheid en Milieuhygiëne (SVM)
+- Stichting Facilitair Bureau Gemachtigden Bouw VWS
+- Stichting Sanquin Bloedvoorziening
+- College van Toezicht op de Zorgverzekeringen organen ex artikel 14, lid 2c, Wet BIG
+- Ziekenfondsen
+- Nederlandse Transplantatiestichting (NTS)
+- Regionale Indicatieorganen (RIO's)
 Austria
 - Todos los organismos sometidos al control presupuestario del Rechnungshof (Tribunal de Auditores), excepto aquellos de naturaleza industrial o comercial.
 Polonia
 (1) Universidades públicas e instituciones académicas
-– Uniwersytet w Białymstoku
-– Uniwersytet w Gdańsku
-– Uniwersytet Śląski
-– Uniwersytet Jagielloński w Krakowie
-– Uniwersytet Kardynała Stefana Wyszyńskiego
-– Katolicki Uniwersytet Lubelski
-– Uniwersytet Marii Curie-Skłodowskiej
-– Uniwersytet Łódzki
-– Uniwersytet Opolski
-– Uniwersytet im. Adama Mickiewicza
-– Uniwersytet Mikołaja Kopernika
-– Uniwersytet Szczeciński
-– Uniwersytet Warmińsko-Mazurski w Olsztynie
-– Uniwersytet Warszawski
-– Uniwersytet Rzeszowski
-– Uniwersytet Wrocławski
-– Uniwersytet Zielonogórski
-– Uniwersytet Kazimierza Wielkiego w Bydgoszczy
-– Akademia Techniczno-Humanistyczna w Bielsku-Białej
-– Akademia Górniczo-Hutnicza im. St. Staszica w Krakowie
-– Politechnika Białostocka
-– Politechnika Częstochowska
-– Politechnika Gdańska
-– Politechnika Koszalińska
-– Politechnika Krakowska
-– Politechnika Lubelska
-– Politechnika Łódzka
-– Politechnika Opolska
-– Politechnika Poznańska
-– Politechnika Radomska im. Kazimierza Pułaskiego
-– Politechnika Rzeszowska im. Ignacego Łukasiewicza
-– Politechnika Szczecińska
-– Politechnika Śląska
-– Politechnika Świętokrzyska
-– Politechnika Warszawska
-– Politechnika Wrocławska
-– Akademia Morska w Gdyni
-– Wyższa Szkoła Morska w Szczecinie
-– Akademia Ekonomiczna im. Karola Adamieckiego w Katowicach
-– Akademia Ekonomiczna w Krakowie
-– Akademia Ekonomiczna w Poznaniu
-– Szkoła Główna Handlowa
-– Akademia Ekonomiczna im. Oskara Langego we Wrocławiu
-– Akademia Pedagogiczna im. KEN w Krakowie
-– Akademia Pedagogiki Specjalnej im. Marii Grzegorzewskiej
-– Akademia Podlaska w Siedlcach
-– Akademia Świętokrzyska im. Jana Kochanowskiego w Kielcach
-– Pomorska Akademia Pedagogiczna w Słupsku
-– Akademia Pedagogiczna im. Jana Długosza w Częstochowie
-– Wyższa Szkoła Filozoficzno-Pedagogiczna "Ignatianum" w Krakowie
-– Wyższa Szkoła Pedagogiczna w Rzeszowie
-– Akademia Techniczno-Rolnicza im. J. J. Śniadeckich w Bydgoszczy
-– Akademia Rolnicza im. Hugona Kołłątaja w Krakowie
-– Akademia Rolnicza w Lublinie
-– Akademia Rolnicza im. Augusta Cieszkowskiego w Poznaniu
-– Akademia Rolnicza w Szczecinie
-– Szkoła Główna Gospodarstwa Wiejskiego w Warszawie
-– Akademia Rolnicza we Wrocławiu
-– Akademia Medyczna w Białymstoku
-– Akademia Medyczna imt Ludwika Rydygiera w Bydgoszczy
-– Akademia Medyczna w Gdańsku
-– Śląska Akademia Medyczna w Katowicach
-– Collegium Medicum Uniwersytetu Jagiellońskiego w Krakowie
-– Akademia Medyczna w Lublinie
-– Uniwersytet Medyczny w Łodzi
-– Akademia Medyczna im. Karola Marcinkowskiego w Poznaniu
-– Pomorska Akademia Medyczna w Szczecinie
-– Akademia Medyczna w Warszawie
-– Akademia Medyczna im. Piastów Śląskich we Wrocławiu
-– Centrum Medyczne Kształcenia Podyplomowego
-– Chrześcijańska Akademia Teologiczna w Warszawie
-– Papieski Fakultet Teologiczny we Wrocławiu
-– Papieski Wydział Teologiczny w Warszawie
-– Instytut Teologiczny im. Błogosławionego Wincentego Kadłubka w Sandomierzu
-– Instytut Teologiczny im. Świętego Jana Kantego w Bielsku-Białej
-– Akademia Marynarki Wojennej im. Bohaterów Westerplatte w Gdyni
-– Akademia Obrony Narodowej
-– Wojskowa Akademia Techniczna im. Jarosława Dąbrowskiego w Warszawie
-– Wojskowa Akademia Medyczna im. Gen. Dyw. Bolesława Szareckiego w Łodzi
-– Wyższa Szkoła Oficerska Wojsk Lądowych im. Tadeusza Kościuszki we Wrocławiu
-– Wyższa Szkoła Oficerska Wojsk Obrony Przeciwlotniczej im. Romualda Traugutta
-– Wyższa Szkoła Oficerska im. gen. Józefa Bema w Toruniu
-– Wyższa Szkoła Oficerska Sił Powietrznych w Dęblinie
-– Wyższa Szkoła Oficerska im. Stefana Czarnieckiego w Poznaniu
-– Wyższa Szkoła Policji w Szczytnie
-– Szkoła Główna Służby Pożarniczej w Warszawie
-– Akademia Muzyczna im. Feliksa Nowowiejskiego w Bydgoszczy
-– Akademia Muzyczna im. Stanisława Moniuszki w Gdańsku
-– Akademia Muzyczna im. Karola Szymanowskiego w Katowicach
-– Akademia Muzyczna w Krakowie
-– Akademia Muzyczna im. Grażyny i Kiejstuta Bacewiczów w Łodzi
-– Akademia Muzyczna im. Ignacego Jana Paderewskiego w Poznaniu
-– Akademia Muzyczna im. Fryderyka Chopina w Warszawie
-– Akademia Muzyczna im. Karola Lipińskiego we Wrocławiu
-– Akademia Wychowania Fizycznego i Sportu im. Jędrzeja Śniadeckiego w Gdańsku
-– Akademia Wychowania Fizycznego w Katowicach
-– Akademia Wychowania Fizycznego im. Bronisława Czecha w Krakowie
-– Akademia Wychowania Fizycznego im. Eugeniusza Piaseckiego w Poznaniu
-– Akademia Wychowania Fizycznego Józefa Piłsudskiego w Warszawie
-– Akademia Wychowania Fizycznego we Wrocławiu
-– Akademia Sztuk Pięknych w Gdańsku
-– Akademia Sztuk Pięknych Katowicach
-– Akademia Sztuk Pięknych im. Jana Matejki w Krakowie
-– Akademia Sztuk Pięknych im. Władysława Strzemińskiego w Łodzi
-– Akademia Sztuk Pięknych w Poznaniu
-– Akademia Sztuk Pięknych w Warszawie
-– Akademia Sztuk Pięknych we Wrocławiu
-– Państwowa Wyższa Szkoła Teatralna im. Ludwika Solskiego w Krakowie
-– Państwowa Wyższa Szkoła Filmowa, Telewizyjna i Teatralna im. Leona Schillera w Łodzi
-– Akademia Teatralna im. Aleksandra Zelwerowicza w Warszawie
-– Państwowa Wyższa Szkoła Zawodowa im. Jana Pawła II w Białej Podlaskiej
-– Państwowa Wyższa Szkoła Zawodowa w Chełmie
-– Państwowa Wyższa Szkoła Zawodowa w Ciechanowie
-– Państwowa Wyższa Szkoła Zawodowa w Elblągu
-– Państwowa Wyższa Szkoła Zawodowa w Głogowie
-– Państwowa Wyższa Szkoła Zawodowa w Gorzowie Wielkopolskim
-– Państwowa Wyższa Szkoła Zawodowa im. Ks, Bronisława Markiewicza w Jarosławiu
-– Kolegium Karkonoskie w Jeleniej Górze
-– Państwowa Wyższa Szkoła Zawodowa im. Prezydenta Stanisława Wojciechowskiego w Kaliszu
-– Państwowa Wyższa Szkoła Zawodowa w Koninie
-– Państwowa Wyższa Szkoła Zawodowa w Krośnie
-– Państwowa Wyższa Szkoła Zawodowa im, Witelona w Legnicy
-– Państwowa Wyższa Szkoła Zawodowa im. Jana Amosa Komeńskiego w Lesznie
-– Państwowa Wyższa Szkoła Zawodowa w Nowym Sączu
-– Państwowa Wyższa Szkoła Zawodowa w Nowym Targu
-– Państwowa Wyższa Szkoła Zawodowa w Nysie
-– Państwowa Wyższa Szkoła Zawodowa im. Stanisława Staszica w Pile
-– Państwowa Wyższa Szkoła Zawodowa w Płocku
-– Państwowa Wyższa Szkoła Wschodnioeuropejska w Przemyślu
-– Państwowa Wyższa Szkoła Zawodowa w Raciborzu
-– Państwowa Wyższa Szkoła Zawodowa im. Jana Gródka w Sanoku
-– Państwowa Wyższa Szkoła Zawodowa w Sulechowie
-– Państwowa Wyższa Szkoła Zawodowa im. Prof. Stanisława Tarnowskiego w Tarnobrzegu
-– Państwowa Wyższa Szkoła Zawodowa w Tarnowie
-– Państwowa Wyższa Szkoła Zawodowa im. Angelusa Silesiusa w Wałbrzychu
-– Państwowa Wyższa Szkoła Zawodowa we Włocławku
-– Państwowa Medyczna Wyższa Szkoła Zawodowa w Opolu
-– Państwowa Wyższa Szkoła Informatyki i Przedsiębiorczości w Łomży
-– Państwowa Wyższa Szkoła Zawodowa w Gnieźnie
-– Państwowa Wyższa Szkoła Zawodowa w Suwałkach
-– Państwowa Wyższa Szkoła Zawodowa w Wałczu
-– Państwowa Wyższa Szkoła Zawodowa w Oświęcimiu
-– Państwowa Wyższa Szkoła Zawodowa w Zamościu
+- Uniwersytet w Białymstoku
+- Uniwersytet w Gdańsku
+- Uniwersytet Śląski
+- Uniwersytet Jagielloński w Krakowie
+- Uniwersytet Kardynała Stefana Wyszyńskiego
+- Katolicki Uniwersytet Lubelski
+- Uniwersytet Marii Curie-Skłodowskiej
+- Uniwersytet Łódzki
+- Uniwersytet Opolski
+- Uniwersytet im. Adama Mickiewicza
+- Uniwersytet Mikołaja Kopernika
+- Uniwersytet Szczeciński
+- Uniwersytet Warmińsko-Mazurski w Olsztynie
+- Uniwersytet Warszawski
+- Uniwersytet Rzeszowski
+- Uniwersytet Wrocławski
+- Uniwersytet Zielonogórski
+- Uniwersytet Kazimierza Wielkiego w Bydgoszczy
+- Akademia Techniczno-Humanistyczna w Bielsku-Białej
+- Akademia Górniczo-Hutnicza im. St. Staszica w Krakowie
+- Politechnika Białostocka
+- Politechnika Częstochowska
+- Politechnika Gdańska
+- Politechnika Koszalińska
+- Politechnika Krakowska
+- Politechnika Lubelska
+- Politechnika Łódzka
+- Politechnika Opolska
+- Politechnika Poznańska
+- Politechnika Radomska im. Kazimierza Pułaskiego
+- Politechnika Rzeszowska im. Ignacego Łukasiewicza
+- Politechnika Szczecińska
+- Politechnika Śląska
+- Politechnika Świętokrzyska
+- Politechnika Warszawska
+- Politechnika Wrocławska
+- Akademia Morska w Gdyni
+- Wyższa Szkoła Morska w Szczecinie
+- Akademia Ekonomiczna im. Karola Adamieckiego w Katowicach
+- Akademia Ekonomiczna w Krakowie
+- Akademia Ekonomiczna w Poznaniu
+- Szkoła Główna Handlowa
+- Akademia Ekonomiczna im. Oskara Langego we Wrocławiu
+- Akademia Pedagogiczna im. KEN w Krakowie
+- Akademia Pedagogiki Specjalnej im. Marii Grzegorzewskiej
+- Akademia Podlaska w Siedlcach
+- Akademia Świętokrzyska im. Jana Kochanowskiego w Kielcach
+- Pomorska Akademia Pedagogiczna w Słupsku
+- Akademia Pedagogiczna im. Jana Długosza w Częstochowie
+- Wyższa Szkoła Filozoficzno-Pedagogiczna "Ignatianum" w Krakowie
+- Wyższa Szkoła Pedagogiczna w Rzeszowie
+- Akademia Techniczno-Rolnicza im. J. J. Śniadeckich w Bydgoszczy
+- Akademia Rolnicza im. Hugona Kołłątaja w Krakowie
+- Akademia Rolnicza w Lublinie
+- Akademia Rolnicza im. Augusta Cieszkowskiego w Poznaniu
+- Akademia Rolnicza w Szczecinie
+- Szkoła Główna Gospodarstwa Wiejskiego w Warszawie
+- Akademia Rolnicza we Wrocławiu
+- Akademia Medyczna w Białymstoku
+- Akademia Medyczna imt Ludwika Rydygiera w Bydgoszczy
+- Akademia Medyczna w Gdańsku
+- Śląska Akademia Medyczna w Katowicach
+- Collegium Medicum Uniwersytetu Jagiellońskiego w Krakowie
+- Akademia Medyczna w Lublinie
+- Uniwersytet Medyczny w Łodzi
+- Akademia Medyczna im. Karola Marcinkowskiego w Poznaniu
+- Pomorska Akademia Medyczna w Szczecinie
+- Akademia Medyczna w Warszawie
+- Akademia Medyczna im. Piastów Śląskich we Wrocławiu
+- Centrum Medyczne Kształcenia Podyplomowego
+- Chrześcijańska Akademia Teologiczna w Warszawie
+- Papieski Fakultet Teologiczny we Wrocławiu
+- Papieski Wydział Teologiczny w Warszawie
+- Instytut Teologiczny im. Błogosławionego Wincentego Kadłubka w Sandomierzu
+- Instytut Teologiczny im. Świętego Jana Kantego w Bielsku-Białej
+- Akademia Marynarki Wojennej im. Bohaterów Westerplatte w Gdyni
+- Akademia Obrony Narodowej
+- Wojskowa Akademia Techniczna im. Jarosława Dąbrowskiego w Warszawie
+- Wojskowa Akademia Medyczna im. Gen. Dyw. Bolesława Szareckiego w Łodzi
+- Wyższa Szkoła Oficerska Wojsk Lądowych im. Tadeusza Kościuszki we Wrocławiu
+- Wyższa Szkoła Oficerska Wojsk Obrony Przeciwlotniczej im. Romualda Traugutta
+- Wyższa Szkoła Oficerska im. gen. Józefa Bema w Toruniu
+- Wyższa Szkoła Oficerska Sił Powietrznych w Dęblinie
+- Wyższa Szkoła Oficerska im. Stefana Czarnieckiego w Poznaniu
+- Wyższa Szkoła Policji w Szczytnie
+- Szkoła Główna Służby Pożarniczej w Warszawie
+- Akademia Muzyczna im. Feliksa Nowowiejskiego w Bydgoszczy
+- Akademia Muzyczna im. Stanisława Moniuszki w Gdańsku
+- Akademia Muzyczna im. Karola Szymanowskiego w Katowicach
+- Akademia Muzyczna w Krakowie
+- Akademia Muzyczna im. Grażyny i Kiejstuta Bacewiczów w Łodzi
+- Akademia Muzyczna im. Ignacego Jana Paderewskiego w Poznaniu
+- Akademia Muzyczna im. Fryderyka Chopina w Warszawie
+- Akademia Muzyczna im. Karola Lipińskiego we Wrocławiu
+- Akademia Wychowania Fizycznego i Sportu im. Jędrzeja Śniadeckiego w Gdańsku
+- Akademia Wychowania Fizycznego w Katowicach
+- Akademia Wychowania Fizycznego im. Bronisława Czecha w Krakowie
+- Akademia Wychowania Fizycznego im. Eugeniusza Piaseckiego w Poznaniu
+- Akademia Wychowania Fizycznego Józefa Piłsudskiego w Warszawie
+- Akademia Wychowania Fizycznego we Wrocławiu
+- Akademia Sztuk Pięknych w Gdańsku
+- Akademia Sztuk Pięknych Katowicach
+- Akademia Sztuk Pięknych im. Jana Matejki w Krakowie
+- Akademia Sztuk Pięknych im. Władysława Strzemińskiego w Łodzi
+- Akademia Sztuk Pięknych w Poznaniu
+- Akademia Sztuk Pięknych w Warszawie
+- Akademia Sztuk Pięknych we Wrocławiu
+- Państwowa Wyższa Szkoła Teatralna im. Ludwika Solskiego w Krakowie
+- Państwowa Wyższa Szkoła Filmowa, Telewizyjna i Teatralna im. Leona Schillera w Łodzi
+- Akademia Teatralna im. Aleksandra Zelwerowicza w Warszawie
+- Państwowa Wyższa Szkoła Zawodowa im. Jana Pawła II w Białej Podlaskiej
+- Państwowa Wyższa Szkoła Zawodowa w Chełmie
+- Państwowa Wyższa Szkoła Zawodowa w Ciechanowie
+- Państwowa Wyższa Szkoła Zawodowa w Elblągu
+- Państwowa Wyższa Szkoła Zawodowa w Głogowie
+- Państwowa Wyższa Szkoła Zawodowa w Gorzowie Wielkopolskim
+- Państwowa Wyższa Szkoła Zawodowa im. Ks, Bronisława Markiewicza w Jarosławiu
+- Kolegium Karkonoskie w Jeleniej Górze
+- Państwowa Wyższa Szkoła Zawodowa im. Prezydenta Stanisława Wojciechowskiego w Kaliszu
+- Państwowa Wyższa Szkoła Zawodowa w Koninie
+- Państwowa Wyższa Szkoła Zawodowa w Krośnie
+- Państwowa Wyższa Szkoła Zawodowa im, Witelona w Legnicy
+- Państwowa Wyższa Szkoła Zawodowa im. Jana Amosa Komeńskiego w Lesznie
+- Państwowa Wyższa Szkoła Zawodowa w Nowym Sączu
+- Państwowa Wyższa Szkoła Zawodowa w Nowym Targu
+- Państwowa Wyższa Szkoła Zawodowa w Nysie
+- Państwowa Wyższa Szkoła Zawodowa im. Stanisława Staszica w Pile
+- Państwowa Wyższa Szkoła Zawodowa w Płocku
+- Państwowa Wyższa Szkoła Wschodnioeuropejska w Przemyślu
+- Państwowa Wyższa Szkoła Zawodowa w Raciborzu
+- Państwowa Wyższa Szkoła Zawodowa im. Jana Gródka w Sanoku
+- Państwowa Wyższa Szkoła Zawodowa w Sulechowie
+- Państwowa Wyższa Szkoła Zawodowa im. Prof. Stanisława Tarnowskiego w Tarnobrzegu
+- Państwowa Wyższa Szkoła Zawodowa w Tarnowie
+- Państwowa Wyższa Szkoła Zawodowa im. Angelusa Silesiusa w Wałbrzychu
+- Państwowa Wyższa Szkoła Zawodowa we Włocławku
+- Państwowa Medyczna Wyższa Szkoła Zawodowa w Opolu
+- Państwowa Wyższa Szkoła Informatyki i Przedsiębiorczości w Łomży
+- Państwowa Wyższa Szkoła Zawodowa w Gnieźnie
+- Państwowa Wyższa Szkoła Zawodowa w Suwałkach
+- Państwowa Wyższa Szkoła Zawodowa w Wałczu
+- Państwowa Wyższa Szkoła Zawodowa w Oświęcimiu
+- Państwowa Wyższa Szkoła Zawodowa w Zamościu
 (2) Instituciones culturales de gobiernos autónomos regionales y locales
 (3) Parques nacionales
-– Babiogórski Park Narodowy
-– Białowieski Park Narodowy
-– Biebrzański Park Narodowy
-– Bieszczadzki Park Narodowy
-– Drawieński Park Narodowy
-– Gorczański Park Narodowy
-– Kampinoski Park Narodowy
-– Karkonoski Park Narodowy
-– Magurski Park Narodowy
-– Narwiański Park Narodowy
-– Ojcowski Park Narodowy
-– Park Narodowy "Bory Tucholskie"
-– Park Narodowy Gór Stołowych
-– Park Narodowy "Ujście Warty"
-– Pieniński Park Narodowy
-– Poleski Park Narodowy
-– Roztoczański Park Narodowy
-– Słowiński Park Narodowy
-– Świętokrzyski Park Narodowy
-– Tatrzański Park Narodowy
-– Wielkopolski Park Narodowy
-– Wigierski Park Narodowy
-– Woliński Park Narodowy
+- Babiogórski Park Narodowy
+- Białowieski Park Narodowy
+- Biebrzański Park Narodowy
+- Bieszczadzki Park Narodowy
+- Drawieński Park Narodowy
+- Gorczański Park Narodowy
+- Kampinoski Park Narodowy
+- Karkonoski Park Narodowy
+- Magurski Park Narodowy
+- Narwiański Park Narodowy
+- Ojcowski Park Narodowy
+- Park Narodowy "Bory Tucholskie"
+- Park Narodowy Gór Stołowych
+- Park Narodowy "Ujście Warty"
+- Pieniński Park Narodowy
+- Poleski Park Narodowy
+- Roztoczański Park Narodowy
+- Słowiński Park Narodowy
+- Świętokrzyski Park Narodowy
+- Tatrzański Park Narodowy
+- Wielkopolski Park Narodowy
+- Wigierski Park Narodowy
+- Woliński Park Narodowy
 (4) Escuelas públicas primarias y secundarias
 (5) Emisoras públicas de radio y televisión
-– Telewizja Polska S.A. (Polish TV)
-– Polskie Radio S.A. (Polish Radio)
+- Telewizja Polska S.A. (Polish TV)
+- Polskie Radio S.A. (Polish Radio)
 (6) Museos públicos, teatros, bibliotecas y otras instituciones culturales públicas:
-– Muzeum Narodowe w Krakowie
-– Muzeum Narodowe w Poznaniu
-– Muzeum Narodowe w Warszawie
-– Zamek Królewski w Warszawie
-– Zamek Królewski na Wawelu - Państwowe Zbiory Sztuki
-– Muzeum Żup Krakowskich
-– Państwowe Muzeum Auschwitz-Birkenau
-– Państwowe Muzeum na Majdanku
-– Muzeum Stutthof w Sztutowie
-– Muzeum Zamkowe w Malborku
-– Centralne Muzeum Morskie
-– Muzeum "Łazienki Królewskie"
-– Muzeum Pałac w Wilanowie
-– Muzeum Łowiectwa i Jeździectwa w Warszawie
-– Muzeum Wojska Polskiego
-– Teatr Narodowy
-– Narodowy Stary Teatr Kraków
-– Teatr Wielki - Opera Narodowa
-– Filharmonia Narodowa
-– Galeria Zachęta
-– Centrum Sztuki Współczesnej
-– Centrum Rzeźby Polskiej w Orońsku
-– Międzynarodowe Centrum Kultury w Krakowie
-– Instytut im, Adama Mickiewicza
-– Dom Pracy Twórczej w Wigrach
-– Dom Pracy Twórczej w Radziejowicach
-– Instytut Dziedzictwa Narodowego
-– Biblioteka Narodowa
-– Instytut Książki
-– Polski Instytut Sztuki Filmowej
-– Instytut Teatralny
-– Filmoteka Narodowa
-– Narodowe Centrum Kultury
-– Muzeum Sztuki Nowoczesnej w Warszawie
-– Muzeum Historii Polski w Warszawie
-– Centrum Edukacji Artystycznej
+- Muzeum Narodowe w Krakowie
+- Muzeum Narodowe w Poznaniu
+- Muzeum Narodowe w Warszawie
+- Zamek Królewski w Warszawie
+- Zamek Królewski na Wawelu - Państwowe Zbiory Sztuki
+- Muzeum Żup Krakowskich
+- Państwowe Muzeum Auschwitz-Birkenau
+- Państwowe Muzeum na Majdanku
+- Muzeum Stutthof w Sztutowie
+- Muzeum Zamkowe w Malborku
+- Centralne Muzeum Morskie
+- Muzeum "Łazienki Królewskie"
+- Muzeum Pałac w Wilanowie
+- Muzeum Łowiectwa i Jeździectwa w Warszawie
+- Muzeum Wojska Polskiego
+- Teatr Narodowy
+- Narodowy Stary Teatr Kraków
+- Teatr Wielki - Opera Narodowa
+- Filharmonia Narodowa
+- Galeria Zachęta
+- Centrum Sztuki Współczesnej
+- Centrum Rzeźby Polskiej w Orońsku
+- Międzynarodowe Centrum Kultury w Krakowie
+- Instytut im, Adama Mickiewicza
+- Dom Pracy Twórczej w Wigrach
+- Dom Pracy Twórczej w Radziejowicach
+- Instytut Dziedzictwa Narodowego
+- Biblioteka Narodowa
+- Instytut Książki
+- Polski Instytut Sztuki Filmowej
+- Instytut Teatralny
+- Filmoteka Narodowa
+- Narodowe Centrum Kultury
+- Muzeum Sztuki Nowoczesnej w Warszawie
+- Muzeum Historii Polski w Warszawie
+- Centrum Edukacji Artystycznej
 (7) Instituciones públicas de investigación, instituciones de investigación y desarrollo, y otras instituciones de investigación
 (8) Unidades Gerenciales de Cuidados de Salud Pública Autónomas cuyo ente de financiamiento es un ente autónomo regional o local o asociación del mismo
 (9) Otros
 - Państwowa Agencja Informacji i Inwestycji Zagranicznych
 Portugal
-- Institutos públicos sem carácter comercial ou industrial — (institutos públicos sin
+- Institutos públicos sem carácter comercial ou industrial - (institutos públicos sin
 carácter comercial o industrial)
-- Serviços públicos personalizados — (servicios públicos con personalidad jurídica)
-- Fundações públicas— (fundaciones públicas)
-- Estabelecimentos públicos de ensino, investigação científica e saúde —
+- Serviços públicos personalizados - (servicios públicos con personalidad jurídica)
+- Fundações públicas- (fundaciones públicas)
+- Estabelecimentos públicos de ensino, investigação científica e saúde -
 (instituciones públicas para educación, investigación científica y salud),
 - INGA (Instituto Nacional de Intervenção e Garantia Agrícola/Instituto Nacional de
 Intervención y Garantía Agrícola)
-- Instituto do Consumidor— (Instituto del Consumidor)
-- Instituto de Meteorologia —(Instituto de Meteorología)
-- Instituto da Conservação da Natureza —(Instituto de Conservación de la Naturaleza)
-Instituto da Agua—(Instituto del Agua)
-- ICEP / Instituto de Comércio Externo de Portugal—(Instituto de Comercio Exterior de
+- Instituto do Consumidor- (Instituto del Consumidor)
+- Instituto de Meteorologia -(Instituto de Meteorología)
+- Instituto da Conservação da Natureza -(Instituto de Conservación de la Naturaleza)
+Instituto da Agua-(Instituto del Agua)
+- ICEP / Instituto de Comércio Externo de Portugal-(Instituto de Comercio Exterior de
 Portugal)
-- Instituto do Sangue —(Instituto de la Sangre)
+- Instituto do Sangue -(Instituto de la Sangre)
 Rumanía
-– Academia Română
-– Biblioteca Naţională a României
-– Arhivele Naţionale
-– Institutul Diplomatic Român
-– Institutul Cultural Român
-– Institutul European din România
-– Institutul de Investigare a Crimelor Comunismului
-– Institutul de Memorie Culturală
-– Agenţia Naţională pentru Programe Comunitare în Domeniul Educaţiei şi Formării Profesionale
-– Centrul European UNESCO pentru Invăţământul Superior
-– Comisia Naţională a României pentru UNESCO
-– Societatea Română de Radiodifuziune
-– Societatea Română de Televiziune
-– Societatea Naţională pentru Radiocomunicaţii
-– Centrul Naţional al Cinematografiei
-– Studioul de Creaţie Cinematografică
-– Arhiva Naţională de Filme
-– Muzeul Naţional de Artă Contemporană
-– Palatul Naţional al Copiilor
-– Centrul Naţional pentru Burse de Studii în Străinătate
-– Agenţia pentru Sprijinirea Studenţilor
-– Comitetul Olimpic şi Sportiv Român
-– Agenţia pentru Cooperare Europeană în domeniul Tineretului (EUROTIN)
-– Agenţia Naţională pentru Sprijinirea Iniţiativelor Tinerilor (ANSIT)
-– Institutul Naţional de Cercetare pentru Sport
-– Consiliul Naţional pentru Combaterea Discriminării
-– Secretariatul de Stat pentru Problemele Revoluţionarilor din Decembrie 1989
-– Secretariatul de Stat pentru Culte
-– Agenţia Naţională pentru Locuinţe
-– Casa Naţională de Pensii şi alte Drepturi de Asigurări Sociale
-– Casa Naţională de Asigurări de Sănătate
-– Inspecţia Muncii
-– Oficiul Central de Stat pentru Probleme Speciale
-– Inspectoratul General pentru Situaţii de Urgenţă
-– Agenţia Naţională de Consultanţă Agrícola
-– Agenţia Naţională pentru Ameliorare şi Reproducţie în Zootehnie
-– Laboratorul Central pentru Carantină Fitosanitară
-– Laboratorul Central pentru Calitatea Seminţelor şi a Materialului Săditor
-– Insitutul pentru Controlul produselor Biologice şi Medicamentelor de Uz Veterinar
-– Institutul de Igienă şi Sănătate Publică şi Veterinară
-– Institutul de Diagnostic şi Sănătate Animală
-– Institutul de Stat pentru Testarea şi Înregistrarea Soiurilor
-– Banca de Resurse GeneticeVegetale
-– Agenţia Naţională pentru Dezvoltarea şi Implementarea Programelor de Reconstrucţie a Zonele Miniere
-– Agenţia Naţională pentru Substanţe şi Preparate Chimice Periculoase
-– Agenţia Naţională de Control al Exporturilor Strategice şi al Interzicerii Armelor Chimice
-– Administraţia Rezervaţiei Biosferei "Delta Dunării" Tulcea
-– Regia Naţională a Pădurilor (ROMSILVA)
-– Administraţia Naţională a Rezervelor de Stat
-– Administraţia Naţională Apele Române
-– Administraţia Naţională de Meteorologie
-– Comisia Naţională pentru Reciclarea Materialelor
-– Comisia Naţională pentru Controlul Activităţilor Nucleare
-– Agenţia Manageriala de Cercetare Știinţifică, Inovare şi Transfer Tehnologic
-– Oficiul pentru Administrare şi Operare al Infrastructurii de Comunicaţii de Date "RoEduNet"
-– Inspecţia de Stat pentru Controlul Cazanelor, Recipientelor sub Presiune şi Instalaţiilor de Ridicat
-– Centrul Român pentru Pregătirea şi Perfecţionarea Personalului din Transporturi Navale
-– Inspectoratul Navigaţiei Civile (INC)
-– Regia Autonomă Registrul Auto Român
-– Agenţia Spaţială Română
-– Scoala Superioară de Aviaţie Civilă
-– Regia Autonomă "Autoritatea Aeronautică Civilă Română
-– Aeroclubul României
-– Centrul de Pregătire pentru Personalul din Industrie Buşteni
-– Centrul Român de Comerţ Exterior
-– Centrul de Formare şi Management Bucureşti
-– Agenţia de Cercetare pentru Tehnică şi Tehnologii militare
-– Agenţia Română de Intervenţii şi Salvare Navală-ARSIN
-– Asociaţia Română de Standardizare (ASRO)
-– Asociaţia de Acreditare din România (RENAR)
-– Comisia Naţională de Prognoză (CNP)
-– Institutul Naţional de Statistică (INS)
-– Comisia Naţională a Valorilor Mobiliare (CNVM)
-– Comisia de Supraveghere a Asigurărilor (CSA)
-– Comisia de Supraveghere a Sistemului de Pensii Private
-– Consiliul Economic şi Social (CES)
-– Agenţia Domeniilor Statului
-– Oficiul Naţional al Registrului Comerţului
-– Autoritatea pentru Valorificarea Activelor Statului (AVAS)
-– Consiliul Naţional pentru Studierea Arhivelor Securităţii
-– Avocatul Poporului
-– Institutul Naţional de Administraţie (INA)
-– Inspectoratul Naţional pentru Evidenţa Persoanelor
-– Oficiul de Stat pentru Invenţii şi Mărci (OSIM)
-– Oficiul Român pentru Drepturile de Autor (ORDA)
-– Oficiul Naţional al Monumentelor Istorice
-– Oficiul Naţional de Prevenire şi Combatere a Spălării Banilor (ONPCSB)
-– Biroul Român de Metrologie Legală
-– Inspectoratul de Stat în Construcţii
-– Compania Naţională de Investiţii
-– Compania Naţională de Autostrăzi şi Drumuri Naţionale
-– Agenţia Naţională de Cadastru şi Publicitate Imobiliară
-– Administraţia Naţională a Îmbunătăţirilor Funciare
-– Garda Financiară
-– Garda Naţională de Mediu
-– Institutul Naţional de Expertize Criminalistice
-– Institutul Naţional al Magistraturii
-– Scoala Nationala de Grefieri
-– Administraţia Generală a Penitenciarelor
-– Oficiul Registrului Naţional al Informaţiilor Secrete de Stat
-– Autoritatea Naţională a Vămilor
-– Banca Naţională a României
-– Regia Autonomă "Monetăria Statului"
-– Regia Autonomă "Imprimeria Băncii Naţionale"
-– Regia Autonomă "Monitorul Oficial"
-– Oficiul Naţional pentru Cultul Eroilor
-– Oficiul Român pentru Adopţii
-– Oficiul Român pentru Imigrări
-– Compania Naţională "Loteria Română"
-– Compania Naţională "ROMTEHNICA"
-– Compania Naţională "ROMARM"
-– Agenţia Naţională pentru Romi
-– Agenţia Naţională de Presă "ROMPRESS"
-– Regia Autonomă "Administraţia Patrimoniului Protocolului de Stat"
-– Institute şi Centre de Cercetare (Institutos y Centros de Investigación )
+- Academia Română
+- Biblioteca Naţională a României
+- Arhivele Naţionale
+- Institutul Diplomatic Român
+- Institutul Cultural Român
+- Institutul European din România
+- Institutul de Investigare a Crimelor Comunismului
+- Institutul de Memorie Culturală
+- Agenţia Naţională pentru Programe Comunitare în Domeniul Educaţiei şi Formării Profesionale
+- Centrul European UNESCO pentru Invăţământul Superior
+- Comisia Naţională a României pentru UNESCO
+- Societatea Română de Radiodifuziune
+- Societatea Română de Televiziune
+- Societatea Naţională pentru Radiocomunicaţii
+- Centrul Naţional al Cinematografiei
+- Studioul de Creaţie Cinematografică
+- Arhiva Naţională de Filme
+- Muzeul Naţional de Artă Contemporană
+- Palatul Naţional al Copiilor
+- Centrul Naţional pentru Burse de Studii în Străinătate
+- Agenţia pentru Sprijinirea Studenţilor
+- Comitetul Olimpic şi Sportiv Român
+- Agenţia pentru Cooperare Europeană în domeniul Tineretului (EUROTIN)
+- Agenţia Naţională pentru Sprijinirea Iniţiativelor Tinerilor (ANSIT)
+- Institutul Naţional de Cercetare pentru Sport
+- Consiliul Naţional pentru Combaterea Discriminării
+- Secretariatul de Stat pentru Problemele Revoluţionarilor din Decembrie 1989
+- Secretariatul de Stat pentru Culte
+- Agenţia Naţională pentru Locuinţe
+- Casa Naţională de Pensii şi alte Drepturi de Asigurări Sociale
+- Casa Naţională de Asigurări de Sănătate
+- Inspecţia Muncii
+- Oficiul Central de Stat pentru Probleme Speciale
+- Inspectoratul General pentru Situaţii de Urgenţă
+- Agenţia Naţională de Consultanţă Agrícola
+- Agenţia Naţională pentru Ameliorare şi Reproducţie în Zootehnie
+- Laboratorul Central pentru Carantină Fitosanitară
+- Laboratorul Central pentru Calitatea Seminţelor şi a Materialului Săditor
+- Insitutul pentru Controlul produselor Biologice şi Medicamentelor de Uz Veterinar
+- Institutul de Igienă şi Sănătate Publică şi Veterinară
+- Institutul de Diagnostic şi Sănătate Animală
+- Institutul de Stat pentru Testarea şi Înregistrarea Soiurilor
+- Banca de Resurse GeneticeVegetale
+- Agenţia Naţională pentru Dezvoltarea şi Implementarea Programelor de Reconstrucţie a Zonele Miniere
+- Agenţia Naţională pentru Substanţe şi Preparate Chimice Periculoase
+- Agenţia Naţională de Control al Exporturilor Strategice şi al Interzicerii Armelor Chimice
+- Administraţia Rezervaţiei Biosferei "Delta Dunării" Tulcea
+- Regia Naţională a Pădurilor (ROMSILVA)
+- Administraţia Naţională a Rezervelor de Stat
+- Administraţia Naţională Apele Române
+- Administraţia Naţională de Meteorologie
+- Comisia Naţională pentru Reciclarea Materialelor
+- Comisia Naţională pentru Controlul Activităţilor Nucleare
+- Agenţia Manageriala de Cercetare Știinţifică, Inovare şi Transfer Tehnologic
+- Oficiul pentru Administrare şi Operare al Infrastructurii de Comunicaţii de Date "RoEduNet"
+- Inspecţia de Stat pentru Controlul Cazanelor, Recipientelor sub Presiune şi Instalaţiilor de Ridicat
+- Centrul Român pentru Pregătirea şi Perfecţionarea Personalului din Transporturi Navale
+- Inspectoratul Navigaţiei Civile (INC)
+- Regia Autonomă Registrul Auto Român
+- Agenţia Spaţială Română
+- Scoala Superioară de Aviaţie Civilă
+- Regia Autonomă "Autoritatea Aeronautică Civilă Română
+- Aeroclubul României
+- Centrul de Pregătire pentru Personalul din Industrie Buşteni
+- Centrul Român de Comerţ Exterior
+- Centrul de Formare şi Management Bucureşti
+- Agenţia de Cercetare pentru Tehnică şi Tehnologii militare
+- Agenţia Română de Intervenţii şi Salvare Navală-ARSIN
+- Asociaţia Română de Standardizare (ASRO)
+- Asociaţia de Acreditare din România (RENAR)
+- Comisia Naţională de Prognoză (CNP)
+- Institutul Naţional de Statistică (INS)
+- Comisia Naţională a Valorilor Mobiliare (CNVM)
+- Comisia de Supraveghere a Asigurărilor (CSA)
+- Comisia de Supraveghere a Sistemului de Pensii Private
+- Consiliul Economic şi Social (CES)
+- Agenţia Domeniilor Statului
+- Oficiul Naţional al Registrului Comerţului
+- Autoritatea pentru Valorificarea Activelor Statului (AVAS)
+- Consiliul Naţional pentru Studierea Arhivelor Securităţii
+- Avocatul Poporului
+- Institutul Naţional de Administraţie (INA)
+- Inspectoratul Naţional pentru Evidenţa Persoanelor
+- Oficiul de Stat pentru Invenţii şi Mărci (OSIM)
+- Oficiul Român pentru Drepturile de Autor (ORDA)
+- Oficiul Naţional al Monumentelor Istorice
+- Oficiul Naţional de Prevenire şi Combatere a Spălării Banilor (ONPCSB)
+- Biroul Român de Metrologie Legală
+- Inspectoratul de Stat în Construcţii
+- Compania Naţională de Investiţii
+- Compania Naţională de Autostrăzi şi Drumuri Naţionale
+- Agenţia Naţională de Cadastru şi Publicitate Imobiliară
+- Administraţia Naţională a Îmbunătăţirilor Funciare
+- Garda Financiară
+- Garda Naţională de Mediu
+- Institutul Naţional de Expertize Criminalistice
+- Institutul Naţional al Magistraturii
+- Scoala Nationala de Grefieri
+- Administraţia Generală a Penitenciarelor
+- Oficiul Registrului Naţional al Informaţiilor Secrete de Stat
+- Autoritatea Naţională a Vămilor
+- Banca Naţională a României
+- Regia Autonomă "Monetăria Statului"
+- Regia Autonomă "Imprimeria Băncii Naţionale"
+- Regia Autonomă "Monitorul Oficial"
+- Oficiul Naţional pentru Cultul Eroilor
+- Oficiul Român pentru Adopţii
+- Oficiul Român pentru Imigrări
+- Compania Naţională "Loteria Română"
+- Compania Naţională "ROMTEHNICA"
+- Compania Naţională "ROMARM"
+- Agenţia Naţională pentru Romi
+- Agenţia Naţională de Presă "ROMPRESS"
+- Regia Autonomă "Administraţia Patrimoniului Protocolului de Stat"
+- Institute şi Centre de Cercetare (Institutos y Centros de Investigación )
 - Instituţii de învăţământ de stat (Institutos de Educación Estatal)
 - Universităţi de stat (Universidades Estatales)
 - Muzee (Museos)
@@ -4325,11 +4325,11 @@ central y de los municipios)
 Eslovaquia
 - Cualquier persona jurídica constituida o establecida por cualquier reglamento o medida administrativa con el propósito de cumplir necesidades de interés general, que no tenga carácter industrial o comercial, y que al mismo tiempo satisfaga al menos alguna de las siguientes condiciones:
 - estar total o parcialmente financiada por una autoridad contratante, por ejemplo autoridad de gobierno, municipalidad, Región Autónoma u otra persona jurídica, que satisface las mismas condiciones indicadas en el artículo 1, apartado 9, letras a), b) o c) de la Directiva 2004/18/EC del Parlamento del Reino Unido(*) y del Consejo,
-(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba ”Parlamento Europeo")
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba "Parlamento Europeo")
 - estar manejada o controlada por una autoridad contratante, por ejemplo autoridad de gobierno, municipalidad, Región Autónoma u otra persona jurídica, que satisface las mismas condiciones indicadas en el artículo 1, apartado 9, letras a), b) o c) de la Directiva 2004/18/EC del Parlamento del Reino Unido(*) y del Consejo,
-(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba ”Parlamento Europeo")
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba "Parlamento Europeo")
 - ser autoridad contratante, por ejemplo autoridad de gobierno, municipalidad, Región Autónoma u otra persona jurídica, que satisface las mismas condiciones indicadas en el artículo 1, apartado 9, letras a), b) o c) de la Directiva 2004/18/EC del Parlamento del Reino Unido(*) y del Consejo, que nombra o elige más de la mitad mas uno de los miembros de la junta general o supervisora.
-(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba ”Parlamento Europeo")
+(*) (Así sustituída su denominación por el apartado de las Declaraciones Conjuntas "Declaración Conjunta sobre Mutatis Mutandis" del anexo del Tratado Internacional, N° 9775 del 29 de octubre de 2019, "Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, suscrito en Managua, Nicaragua, el 18 de mes de julio de 2019; su Anexo, sus Declaraciones Conjuntas y el Entendimiento Alcanzado entre las Delegaciones de los Gobiernos del Reino Unido de Gran Bretaña e Irlanda del Norte y de las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá sobre el Apartado 8 del Anexo del Acuerdo por el que se Establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte, y Centroamérica, firmado el 18 de julio de 2019". Anteriormente se indicaba "Parlamento Europeo")
 Dichas personas son entidades de Derecho público que ejercen la actividad, por ejemplo:
 - Conforme a la Ley nº 16/2004 Coll. sobre la Televisión Eslovaca,
 - Conforme a la Ley nº 619/2003 Coll. sobre la Radio Eslovaca,
@@ -4341,17 +4341,17 @@ Suecia
 Todos los entes no comerciales cuyos contratos públicos están sujetos a la supervisión de la Autoridad Sueca de la Competencia.
 Reino Unido
 Entidades
-– Design Council
-– Health and Safety Executive
-– National Research Development Corporation
-– Public Health Laboratory Service Board
-– Advisory, Conciliation and Arbitration Service
-– Commission for the New Towns
-– National Blood Authority
-– National Rivers Authority
-– Scottish Enterprise
-– Ordnance Survey
-– Financial Services Authority
+- Design Council
+- Health and Safety Executive
+- National Research Development Corporation
+- Public Health Laboratory Service Board
+- Advisory, Conciliation and Arbitration Service
+- Commission for the New Towns
+- National Blood Authority
+- National Rivers Authority
+- Scottish Enterprise
+- Ordnance Survey
+- Financial Services Authority
 Categorías
 - Escuelas gestionadas
 - Universidades y colegios financiados mayoritariamente por otras entidades contratantes
@@ -4386,16 +4386,16 @@ Lista A:
 3. Banco Hipotecario de la Vivienda -BANHVI
 4. Consejo de Transporte Público
 5. Instituto Costarricense del Deporte y la Recreación
-6. Instituto Nacional de Fomento Cooperativo – INFOCOOP
+6. Instituto Nacional de Fomento Cooperativo - INFOCOOP
 7. Banco Central de Costa Rica (nota 1)
 8. Instituto Costarricense de Ferrocarriles - INCOFER
 9. Instituto Costarricense de Puertos del Pacífico - INCOP
 10. Autoridad Reguladora de los Servicios Públicos - ARESEP
 11. Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento
 Lista B
-1. Caja Costarricense del Seguro Social – CCSS
+1. Caja Costarricense del Seguro Social - CCSS
 2. Dirección General de Aviación Civil
-3. Instituto Costarricense de Electricidad – ICE (nota 2)
+3. Instituto Costarricense de Electricidad - ICE (nota 2)
 4. Refinadora Costarricense de Petróleo (RECOPE)
 Notas a la sección C
 1. Banco Central de Costa Rica. El título no se aplica a las contrataciones para la emisión de billetes y monedas.
@@ -4722,59 +4722,59 @@ Bélgica
 - Elia
 Bulgaria
 Organismos autorizados para la producción, el transporte, la distribución y el suministro público de electricidad de conformidad con el artículo 39, apartado 1, de la Закона за енергетиката (обн., ДВ, бр.107/09.12.2003), Ley sobre Energía (publicada en el Diario Oficial nº 107 de 9.12.2003):
-– АЕЦ Козлодуй - ЕАД
-– Болкан Енерджи АД
-– Брикел - ЕАД
-– Българско акционерно дружество Гранитоид АД
-– Девен АД
-– ЕВН България Електроразпределение АД
-– ЕВН България Електроснабдяване АД
-– ЕЙ И ЕС – 3С Марица Изток 1
-– Енергийна компания Марица Изток III - АД
-– Енерго-про България - АД
-– ЕОН България Мрежи АД
-– ЕОН България Продажби АД
-– ЕРП Златни пясъци АД
-– ЕСО ЕАД
-– ЕСП "Златни пясъци" АД
-– Златни пясъци-сервиз АД
-– Калиакра Уинд Пауър АД
-– НЕК ЕАД
-– Петрол АД
-– Петрол Сторидж АД
-– Пиринска Бистрица-Енергия АД
-– Руно-Казанлък АД
-– Сентрал хидроелектрик дьо Булгари ЕООД
-– Слънчев бряг АД
-– ТЕЦ - Бобов Дол ЕАД
-– ТЕЦ - Варна ЕАД
-– ТЕЦ "Марица 3" – АД
-– ТЕЦ Марица Изток 2 – ЕАД
-– Топлофикация Габрово – ЕАД
-– Топлофикация Казанлък – ЕАД
-– Топлофикация Перник – ЕАД
-– Топлофикация Плевен – ЕАД
-– ЕВН България Топлофикация - Пловдив - ЕАД
-– Топлофикация Русе – ЕАД
-– Топлофикация Сливен – ЕАД
-– Топлофикация София – ЕАД
-– Топлофикация Шумен – ЕАД
-– Хидроенергострой ЕООД
-– ЧЕЗ България Разпределение АД
-– ЧЕЗ Електро България АД
+- АЕЦ Козлодуй - ЕАД
+- Болкан Енерджи АД
+- Брикел - ЕАД
+- Българско акционерно дружество Гранитоид АД
+- Девен АД
+- ЕВН България Електроразпределение АД
+- ЕВН България Електроснабдяване АД
+- ЕЙ И ЕС - 3С Марица Изток 1
+- Енергийна компания Марица Изток III - АД
+- Енерго-про България - АД
+- ЕОН България Мрежи АД
+- ЕОН България Продажби АД
+- ЕРП Златни пясъци АД
+- ЕСО ЕАД
+- ЕСП "Златни пясъци" АД
+- Златни пясъци-сервиз АД
+- Калиакра Уинд Пауър АД
+- НЕК ЕАД
+- Петрол АД
+- Петрол Сторидж АД
+- Пиринска Бистрица-Енергия АД
+- Руно-Казанлък АД
+- Сентрал хидроелектрик дьо Булгари ЕООД
+- Слънчев бряг АД
+- ТЕЦ - Бобов Дол ЕАД
+- ТЕЦ - Варна ЕАД
+- ТЕЦ "Марица 3" - АД
+- ТЕЦ Марица Изток 2 - ЕАД
+- Топлофикация Габрово - ЕАД
+- Топлофикация Казанлък - ЕАД
+- Топлофикация Перник - ЕАД
+- Топлофикация Плевен - ЕАД
+- ЕВН България Топлофикация - Пловдив - ЕАД
+- Топлофикация Русе - ЕАД
+- Топлофикация Сливен - ЕАД
+- Топлофикация София - ЕАД
+- Топлофикация Шумен - ЕАД
+- Хидроенергострой ЕООД
+- ЧЕЗ България Разпределение АД
+- ЧЕЗ Електро България АД
 República Checa
 Todas las entidades contratantes en los sectores que suministran servicios de electricidad definidas en la sección 4, apartado 1, letra c) de la Ley nº 137/2006 Coll. sobre contratos públicos, modificada.
 Ejemplos de autoridades contratantes:
-– ČEPS, a.s.
-– ČEZ, a.s.
-– Dalkia Česká republika, a.s.
-– PREdistribuce, a.s.
-– Plzeňská energetika a.s.
-– Sokolovská uhelná, právní nástupce, a.s.
+- ČEPS, a.s.
+- ČEZ, a.s.
+- Dalkia Česká republika, a.s.
+- PREdistribuce, a.s.
+- Plzeňská energetika a.s.
+- Sokolovská uhelná, právní nástupce, a.s.
 Dinamarca
-– Entidades que producen electricidad sobre la base de una licencia de conformidad con el artículo 10 de la Lov om elforsyning, ver Ley de Consolidación nº 1115 del 8 de noviembre de 2006.
-– Entidades que transportan electricidad sobre la base de una licencia de conformidad con el artículo 19 de la Lov om elforsyning, ver Ley de Consolidación nº 1115 del 8 de noviembre de 2006.
-– Transporte de electricidad llevado a cabo por Energinet Danmark o compañías filiales propiedad de Energinet Danmark de acuerdo con la Lov om Energinet Danmark artículo 2, stk. 2 og 3, ver Ley nº 1384 del 20 de diciembre de 2004.
+- Entidades que producen electricidad sobre la base de una licencia de conformidad con el artículo 10 de la Lov om elforsyning, ver Ley de Consolidación nº 1115 del 8 de noviembre de 2006.
+- Entidades que transportan electricidad sobre la base de una licencia de conformidad con el artículo 19 de la Lov om elforsyning, ver Ley de Consolidación nº 1115 del 8 de noviembre de 2006.
+- Transporte de electricidad llevado a cabo por Energinet Danmark o compañías filiales propiedad de Energinet Danmark de acuerdo con la Lov om Energinet Danmark artículo 2, stk. 2 og 3, ver Ley nº 1384 del 20 de diciembre de 2004.
 Alemania
 Autoridades locales, entes de derecho público o asociaciones de entes de derecho público o empresas estatales, que provean energía a otras empresas, que operan una red de suministros de energía o tengan capacidad para disponer de una red local de suministro de energía en razón de su propiedad de conformidad con el artículo 3, apartado 18, de la Gesetz über die Elektrizitäts- und Gasversorgung (Energiewirtschaftsgesetz) del 24 de abril de 1998, modificada por última vez el 9 de diciembre de 2006.
 Estonia
@@ -4784,147 +4784,147 @@ Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Púb
 - AS Narva Elektrijaamad;
 - OÜ Põhivõrk.
 Irlanda
-– The Electricity Supply Board
-– ESB Independent Energy [ESBIE — suministro de electricidad]
-– Synergen Ltd. [generación de electricidad]
-– Viridian Energy Supply Ltd. [suministro de electricidad]
-– Huntstown Power Ltd. [generación de electricidad]
-– Bord Gáis Éireann [suministro de electricidad]
-– Suministradores y generadores de electricidad autorizados en virtud de la Electricity Regulation Act 1999
-– EirGrid plc
+- The Electricity Supply Board
+- ESB Independent Energy [ESBIE - suministro de electricidad]
+- Synergen Ltd. [generación de electricidad]
+- Viridian Energy Supply Ltd. [suministro de electricidad]
+- Huntstown Power Ltd. [generación de electricidad]
+- Bord Gáis Éireann [suministro de electricidad]
+- Suministradores y generadores de electricidad autorizados en virtud de la Electricity Regulation Act 1999
+- EirGrid plc
 Grecia
 'Γεκόƃηƀ ΔπηρƂίξεƃε ΗιƂθƄξηƃκνύ Α.Δ.', creada por la Ley nº 1468/1950 πƂξί ηƁξύƃƂωο Ƅεο ΓΔΗ y gestionada de conformidad con la Ley nº 2773/1999 y el Decreto de la Presidencia nº 333/1999.
 España
-– Red Eléctrica de España, S.A.
-– Endesa, S.A.
-– Iberdrola, S.A.
-– Unión Fenosa, S.A.
-– Hidroeléctrica del Cantábrico, S.A.
-– Electra del Viesgo, S.A.
-– Otras entidades de producción, transporte y distribución de electricidad, de conformidad con la "Ley 54/1997, de 27 de noviembre, del Sector eléctrico" y sus disposiciones de aplicación.
+- Red Eléctrica de España, S.A.
+- Endesa, S.A.
+- Iberdrola, S.A.
+- Unión Fenosa, S.A.
+- Hidroeléctrica del Cantábrico, S.A.
+- Electra del Viesgo, S.A.
+- Otras entidades de producción, transporte y distribución de electricidad, de conformidad con la "Ley 54/1997, de 27 de noviembre, del Sector eléctrico" y sus disposiciones de aplicación.
 Francia
-– Électricité de France, establecida y que opera de conformidad con la Loi n°46-628 sur la nationalisation de l'électricité et du gaz de 8 de abril de 1946, modificada.
-– RTE, que gestiona la red de transporte de electricidad.
-– Entidades de distribución de electricidad, mencionadas en el artículo 23 de la Loi n°46-628 sur la nationalisation de l'électricité et du gaz de 8 de abril de 1946, modificada. (Compañías de distribución de economía mixta, gestoras o servicios similares compuestos por autoridades regionales o locales). Por ejemplo: Gaz de Bordeaux, Gaz de Strasbourg.
-– Compagnie nationale du Rhône
-– Électricité de Strasbourg
+- Électricité de France, establecida y que opera de conformidad con la Loi n°46-628 sur la nationalisation de l'électricité et du gaz de 8 de abril de 1946, modificada.
+- RTE, que gestiona la red de transporte de electricidad.
+- Entidades de distribución de electricidad, mencionadas en el artículo 23 de la Loi n°46-628 sur la nationalisation de l'électricité et du gaz de 8 de abril de 1946, modificada. (Compañías de distribución de economía mixta, gestoras o servicios similares compuestos por autoridades regionales o locales). Por ejemplo: Gaz de Bordeaux, Gaz de Strasbourg.
+- Compagnie nationale du Rhône
+- Électricité de Strasbourg
 Italia
-– Compañías del Grupo Enel autorizadas para producir, transmitir y distribuir electricidad dentro del ámbito del Decreto Legislativo nº 79 de 16 de marzo de 1999, modificado y complementado
-– TERNA- Rete elettrica nazionale SpA
-– Otras empresas titulares de concesiones otorgadas por el Decreto Legislativo nº 79 de 16 de marzo de 1999
+- Compañías del Grupo Enel autorizadas para producir, transmitir y distribuir electricidad dentro del ámbito del Decreto Legislativo nº 79 de 16 de marzo de 1999, modificado y complementado
+- TERNA- Rete elettrica nazionale SpA
+- Otras empresas titulares de concesiones otorgadas por el Decreto Legislativo nº 79 de 16 de marzo de 1999
 Chipre
-– Η Αξρή ΗιƂθƄξηƃκνύ Κύπξνπ, creada por la πƂξί ΑλƀπƄύμƂωο ΗιƂθƄξηƃκνύ Νόκν, ΚƂƅ. 171.
-– ΓηƀρƂηξηƃƄήο ΢πƃƄήκƀƄνο ΜƂƄƀƅνξάο, creada de conformidad con el artículo 57 de la ΠƂξί Ρύζκηƃεο Ƅεο Αγνξάο ΗιƂθƄξηƃκνύ Νόκνπ 122(Ι) Ƅνπ 2003 Otras personas, entidades o empresas que realizan actividades contempladas en el artículo 3 de la Directiva 2004/17/EC y operan mediante licencia concedida de conformidad con el artículo 34 de la πƂξί Ρύζκηƃεο Ƅεο ƀγνξάο ΗιƂθƄξηƃκνύ Νόκνπ Ƅνπ 2003 {Ν. 122(Ι)/2003}.
+- Η Αξρή ΗιƂθƄξηƃκνύ Κύπξνπ, creada por la πƂξί ΑλƀπƄύμƂωο ΗιƂθƄξηƃκνύ Νόκν, ΚƂƅ. 171.
+- ΓηƀρƂηξηƃƄήο ΢πƃƄήκƀƄνο ΜƂƄƀƅνξάο, creada de conformidad con el artículo 57 de la ΠƂξί Ρύζκηƃεο Ƅεο Αγνξάο ΗιƂθƄξηƃκνύ Νόκνπ 122(Ι) Ƅνπ 2003 Otras personas, entidades o empresas que realizan actividades contempladas en el artículo 3 de la Directiva 2004/17/EC y operan mediante licencia concedida de conformidad con el artículo 34 de la πƂξί Ρύζκηƃεο Ƅεο ƀγνξάο ΗιƂθƄξηƃκνύ Νόκνπ Ƅνπ 2003 {Ν. 122(Ι)/2003}.
 Letonia
 VAS Latvenergo y otras empresas que producen, transmiten y distribuyen electricidad, y que realizan adquisiciones de acuerdos con la ley Par iepirkumu sabiedrisko pakalpojumu sniedzēju vajadzībām
 Lituania
-– Empresa Estatal de la Central Nuclear de Ignalina
-– Akcinė bendrovė "Lietuvos energija"
-– Akcinė bendrovė "Lietuvos elektrinė"
-– Akcinė bendrovė Rytų skirstomieji tinklai
-– Akcinė bendrovė "VST"
-– Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que ejecutan actividad de producción, transporte o distribución e electricidad conforme con la Ley de Electricidad de la República de Lituania (Boletín Oficial nº 66-1984, 2000; nº 107-3964, 2004) y la Ley sobre Energía Nuclear de la República de Lituania (Boletín Oficial nº 119-2771, 1996).
+- Empresa Estatal de la Central Nuclear de Ignalina
+- Akcinė bendrovė "Lietuvos energija"
+- Akcinė bendrovė "Lietuvos elektrinė"
+- Akcinė bendrovė Rytų skirstomieji tinklai
+- Akcinė bendrovė "VST"
+- Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que ejecutan actividad de producción, transporte o distribución e electricidad conforme con la Ley de Electricidad de la República de Lituania (Boletín Oficial nº 66-1984, 2000; nº 107-3964, 2004) y la Ley sobre Energía Nuclear de la República de Lituania (Boletín Oficial nº 119-2771, 1996).
 Luxemburgo
-– Compagnie grand-ducale d'électricité de Luxembourg (CEGEDEL), que produce o distribuye electricidad de conformidad con la Convention concernant l'établissement et l'exploitation des réseaux de distribution d'énergie électrique dans le Grand-Duché du Luxembourg de 11 de noviembre de 1927, aprobada por Ley del 4 de enero de 1928.
-– Autoridades locales responsables del transporte o la distribución de electricidad.
-– Société électrique de l'Our (SEO).
-– Syndicat de communes SIDOR
+- Compagnie grand-ducale d'électricité de Luxembourg (CEGEDEL), que produce o distribuye electricidad de conformidad con la Convention concernant l'établissement et l'exploitation des réseaux de distribution d'énergie électrique dans le Grand-Duché du Luxembourg de 11 de noviembre de 1927, aprobada por Ley del 4 de enero de 1928.
+- Autoridades locales responsables del transporte o la distribución de electricidad.
+- Société électrique de l'Our (SEO).
+- Syndicat de communes SIDOR
 Hungría
 Entidades que producen, transportan o distribuyen electricidad de conformidad con los artículos 162 y 163 de 2003. évi CXXIX. törvény a közbeszerzésekről and 2007. évi LXXXVI. törvény a villamos energiáról.
 Malta
 Korporazzjoni Enemalta (Enemalta Corporation)
 Países Bajos
 Entidades que distribuyen electricidad a partir de una licencia (vergunning) otorgada por las autoridades provinciales de conformidad con la Provinciewet. Por ejemplo:
-– Essent
-– Nuon
+- Essent
+- Nuon
 Austria
 Entidades responsables de la red de transmisión o distribución de conformidad con la Elektrizitätswirtschafts- und Organisationsgesetz, BGBl. I nº 143/1998, modificada, o con las Elektrizitätswirtschafts(wesen)gesetze de los nueve estados federados.
 Polonia
 Compañías de energía dentro del ámbito de la Ustawa z dnia 10 kwietnia 1997 r. Prado energetyczne, entre las que figuran:
-– BOT Elektrownia "Opole" S.A., Brzezie
-– BOT Elektrownia Bełchatów S.A.
-– BOT Elektrownia Turów S.A., Bogatynia
-– Elbląskie Zakłady Energetyczne S.A. w Elblągu
-– Elektrociepłownia Chorzów "ELCHO" Sp. z o.o.
-– Elektrociepłownia Lublin - Wrotków Sp. z o.o.
-– Elektrociepłownia Nowa Sarzyna Sp. z o.o.
-– Elektrociepłownia Rzeszów S.A.
-– Elektrociepłownie Warszawskie S.A.
-– Elektrownia "Kozienice" S.A.
-– Elektrownia "Stalowa Wola" S.A.
-– Elektrownia Wiatrowa, Sp. z o.o., Kamieńsk
-– Elektrownie Szczytowo-Pompowe S.A., Warszawa
-– ENEA S.A., Poznań
-– Energetyka Sp. z o.o. Lublin
-– EnergiaPro Koncern Energetyczny S.A., Wrocław
-– ENION S.A., Kraków
-– Górnośląski Zakład Elektroenergetyczny S.A., Gliwice
-– Koncern Energetyczny Energa S.A., Gdańsk
-– Lubelskie Zakłady Energetyczne S.A.
-– Łódzki Zakład Energetyczny S.A.
-– PKP Energetyka Sp. z o.o., Warszawa
-– Polskie Sieci Elektroenergetyczne S.A., Warszawa
-– Południowy Koncern Energetyczny S.A., Katowice
-– Przedsiębiorstwo Energetyczne w Siedlcach Sp. z o.o.
-– PSE-Operator S.A., Warszawa
-– Rzeszowski Zakład Energetyczny S.A.
-– Zakład Elektroenergetyczny "Elsen" Sp. z o.o., Częstochowa
-– Zakład Energetyczny Białystok S.A.
-– Zakład Energetyczny Łódź-Teren S,A.
-– Zakład Energetyczny Toruń S.A.
-– Zakład Energetyczny Warszawa-Teren
-– Zakłady Energetyczne Okręgu Radomsko-Kieleckiego S.A.
-– Zespół Elektrociepłowni Bydgoszcz S.A.
-– Zespół Elektrowni Dolna Odra S.A., Nowe Czarnowo
-– Zespół Elektrowni Ostrołęka S.A.
-– Zespół Elektrowni Pątnów-Adamów-Konin S.A.
-– Polskie Sieci Elektroenergetyczne S.A,
-– Przedsiębiorstwo Energetyczne MEGAWAT Sp. zν.ν.
-– Zespół Elektrowni Wodnych Niedzica S.A.
-– Energetyka Południe S.A.
+- BOT Elektrownia "Opole" S.A., Brzezie
+- BOT Elektrownia Bełchatów S.A.
+- BOT Elektrownia Turów S.A., Bogatynia
+- Elbląskie Zakłady Energetyczne S.A. w Elblągu
+- Elektrociepłownia Chorzów "ELCHO" Sp. z o.o.
+- Elektrociepłownia Lublin - Wrotków Sp. z o.o.
+- Elektrociepłownia Nowa Sarzyna Sp. z o.o.
+- Elektrociepłownia Rzeszów S.A.
+- Elektrociepłownie Warszawskie S.A.
+- Elektrownia "Kozienice" S.A.
+- Elektrownia "Stalowa Wola" S.A.
+- Elektrownia Wiatrowa, Sp. z o.o., Kamieńsk
+- Elektrownie Szczytowo-Pompowe S.A., Warszawa
+- ENEA S.A., Poznań
+- Energetyka Sp. z o.o. Lublin
+- EnergiaPro Koncern Energetyczny S.A., Wrocław
+- ENION S.A., Kraków
+- Górnośląski Zakład Elektroenergetyczny S.A., Gliwice
+- Koncern Energetyczny Energa S.A., Gdańsk
+- Lubelskie Zakłady Energetyczne S.A.
+- Łódzki Zakład Energetyczny S.A.
+- PKP Energetyka Sp. z o.o., Warszawa
+- Polskie Sieci Elektroenergetyczne S.A., Warszawa
+- Południowy Koncern Energetyczny S.A., Katowice
+- Przedsiębiorstwo Energetyczne w Siedlcach Sp. z o.o.
+- PSE-Operator S.A., Warszawa
+- Rzeszowski Zakład Energetyczny S.A.
+- Zakład Elektroenergetyczny "Elsen" Sp. z o.o., Częstochowa
+- Zakład Energetyczny Białystok S.A.
+- Zakład Energetyczny Łódź-Teren S,A.
+- Zakład Energetyczny Toruń S.A.
+- Zakład Energetyczny Warszawa-Teren
+- Zakłady Energetyczne Okręgu Radomsko-Kieleckiego S.A.
+- Zespół Elektrociepłowni Bydgoszcz S.A.
+- Zespół Elektrowni Dolna Odra S.A., Nowe Czarnowo
+- Zespół Elektrowni Ostrołęka S.A.
+- Zespół Elektrowni Pątnów-Adamów-Konin S.A.
+- Polskie Sieci Elektroenergetyczne S.A,
+- Przedsiębiorstwo Energetyczne MEGAWAT Sp. zν.ν.
+- Zespół Elektrowni Wodnych Niedzica S.A.
+- Energetyka Południe S.A.
 Portugal
 (1) Producción de electricidad
 Entidades que producen electricidad de conformidad con :
-– Decreto-Lei nº29/2006, de 15 de Fevereiro que estabelece as bases gerais da organização e o funcionamento do sistema eléctrico nacional (SEN), e as bases gerais aplicáveis ao exercício das actividades de produção, transporte, distribuição e comercialização de electricidade e à organização dos mercados de electricidade;
-– Decreto-Lei nº 172/2006, de 23 de Agosto, que desenvolve os princípios gerais relativos à organização e ao funcionamento do SEN, regulamentando o diploma a trás referido.
-– Entidades que producen electricidad de conformidad con un régimen especial en virtud de los Decreto-Lei nº 189/88 de 27 de Maio, com a redacção dada pelos Decretos-Lei nº 168/99, de 18 de Maio, nº 313/95, de 24 de Novembro, nº 538/99, de 13 de Dezembro, nº 312/2001 e nº 313/2001, ambos de 10 de Dezembro, Decreto- Lei nº 339-C/2001, de 29 de Dezembro, Decreto-Lei nº 68/2002, de 25 de Março, Decreto-Lei nº 33-A/2005, de 16 de Fevereiro, Decreto-Lei nº 225/2007, de 31 de Maio e Decreto-Lei nº 363/2007, de 2 de Novembro.
+- Decreto-Lei nº29/2006, de 15 de Fevereiro que estabelece as bases gerais da organização e o funcionamento do sistema eléctrico nacional (SEN), e as bases gerais aplicáveis ao exercício das actividades de produção, transporte, distribuição e comercialização de electricidade e à organização dos mercados de electricidade;
+- Decreto-Lei nº 172/2006, de 23 de Agosto, que desenvolve os princípios gerais relativos à organização e ao funcionamento do SEN, regulamentando o diploma a trás referido.
+- Entidades que producen electricidad de conformidad con un régimen especial en virtud de los Decreto-Lei nº 189/88 de 27 de Maio, com a redacção dada pelos Decretos-Lei nº 168/99, de 18 de Maio, nº 313/95, de 24 de Novembro, nº 538/99, de 13 de Dezembro, nº 312/2001 e nº 313/2001, ambos de 10 de Dezembro, Decreto- Lei nº 339-C/2001, de 29 de Dezembro, Decreto-Lei nº 68/2002, de 25 de Março, Decreto-Lei nº 33-A/2005, de 16 de Fevereiro, Decreto-Lei nº 225/2007, de 31 de Maio e Decreto-Lei nº 363/2007, de 2 de Novembro.
 (2) Transporte de electricidad:
 Entidades que transportan electricidad de conformidad con el:
-– Decreto-Lei nº29/2006, de 15 de Fevereiro y con el Decreto-lei nº 172/2006, de 23 de Agosto.
+- Decreto-Lei nº29/2006, de 15 de Fevereiro y con el Decreto-lei nº 172/2006, de 23 de Agosto.
 (3) Distribución de electricidad:
-– Entidades que distribuyen electricidad de conformidad con el Decreto-Lei nº29/2006, de 15 de Fevereiro, y con el Decreto-lei nº 172/2006, de 23 de Agosto.
-– Entidades que distribuyen electricidad de conformidad con el Decreto Decreto-Lei nº 184/95, de 27 de Julho, reformulado en el Decreto-Lei nº 56/97, de 14 de Março y el Decreto-Lei nº 344-B/82, de 1 de Setembro, en su redacción del Decreto-Lei nº 297/86, de 19 de Setembro, Decreto-Lei nº 341/90, de 30 de Outubro y Decreto-Lei nº 17/92, de 5 de Fevereiro.
+- Entidades que distribuyen electricidad de conformidad con el Decreto-Lei nº29/2006, de 15 de Fevereiro, y con el Decreto-lei nº 172/2006, de 23 de Agosto.
+- Entidades que distribuyen electricidad de conformidad con el Decreto Decreto-Lei nº 184/95, de 27 de Julho, reformulado en el Decreto-Lei nº 56/97, de 14 de Março y el Decreto-Lei nº 344-B/82, de 1 de Setembro, en su redacción del Decreto-Lei nº 297/86, de 19 de Setembro, Decreto-Lei nº 341/90, de 30 de Outubro y Decreto-Lei nº 17/92, de 5 de Fevereiro.
 Rumanía
-– Societatea comercială de producere a energiei electrice "Hidroelectrica"-AS Bucureşti
-– Societatea Naţională "Nuclearelectrica" SA
-– Societatea comercială de producere a energiei electrice şi termice "Termoelectrica" SA
-– S. C. Electrocentrale Deva S.A.
-– S.C. Electrocentrale Bucureşti S.A.
-– SC Electrocentrale Galaţi SA
-– S.C. Electrocentrale Termoelectrica SA
-– SC Complexul Energetic Craiova SA
-– SC Complexul Energetic Rovinari SA
-– SC Complexul Energetic Turceni SA
-– Compania Naţională de transport a energiei electrice "Transelectrica" SA Bucureşti
-– Societatea comercială Electrica SA, Bucureşti
-– S.C. Filiala de Distribuţie a Energiei Electrice
-– "Electrica Distribuţie Muntenia Nord" S.A
-– S.C. Filiala de Furnizare a Energiei Electrice
-– "Electrica Furnizare Muntenia Nord" S.A
-– S.C. Filiala de distributie si furnizare a energiei electrice Electrica Muntenia Sud
-– S.C. Filiala de Distribuţie a Energiei Electrice
-– "Electrica Distribuţie Transilvania Sud" S.A
-– S.C. filiala de furnizare a energiei electrice
-– "Electrica Furnizare Transilvania Sud" S.A
-– S.C. Filiala de distributie a energiei electrice
-– "Electrica Distribuţie Transilvania Nord" S.A
-– S.C. Filiala de furnizare a energiei electrice
-– "Electrica Furnizare Transilvania Nord" S.A
-– Enel Energie
-– Enel Distribuţie Banat
-– Enel Distribuţie Dobrogea
-– E.ON Moldova SA
-– CEZ Distribuţie
+- Societatea comercială de producere a energiei electrice "Hidroelectrica"-AS Bucureşti
+- Societatea Naţională "Nuclearelectrica" SA
+- Societatea comercială de producere a energiei electrice şi termice "Termoelectrica" SA
+- S. C. Electrocentrale Deva S.A.
+- S.C. Electrocentrale Bucureşti S.A.
+- SC Electrocentrale Galaţi SA
+- S.C. Electrocentrale Termoelectrica SA
+- SC Complexul Energetic Craiova SA
+- SC Complexul Energetic Rovinari SA
+- SC Complexul Energetic Turceni SA
+- Compania Naţională de transport a energiei electrice "Transelectrica" SA Bucureşti
+- Societatea comercială Electrica SA, Bucureşti
+- S.C. Filiala de Distribuţie a Energiei Electrice
+- "Electrica Distribuţie Muntenia Nord" S.A
+- S.C. Filiala de Furnizare a Energiei Electrice
+- "Electrica Furnizare Muntenia Nord" S.A
+- S.C. Filiala de distributie si furnizare a energiei electrice Electrica Muntenia Sud
+- S.C. Filiala de Distribuţie a Energiei Electrice
+- "Electrica Distribuţie Transilvania Sud" S.A
+- S.C. filiala de furnizare a energiei electrice
+- "Electrica Furnizare Transilvania Sud" S.A
+- S.C. Filiala de distributie a energiei electrice
+- "Electrica Distribuţie Transilvania Nord" S.A
+- S.C. Filiala de furnizare a energiei electrice
+- "Electrica Furnizare Transilvania Nord" S.A
+- Enel Energie
+- Enel Distribuţie Banat
+- Enel Distribuţie Dobrogea
+- E.ON Moldova SA
+- CEZ Distribuţie
 Eslovenia
 Entidades que producen, transportan o distribuyen electricidad de conformidad con el Energetski zakon (Uradni list RS, 79/99).
 Mat. Ńt. Naziv Pońtna Ńt. Kraj
@@ -4949,168 +4949,168 @@ Električno Energijo, D.O.O.
 Eslovaquia
 Entidades que prestan, con base en un permiso, producción, transporte a través del sistema transmisión de redes, distribución y suministro para el público de electricidad a través de una red de distribución de conformidad con la ley nº 656/2004 Coll.
 Por ejemplo:
-– Slovenské elektrárne, a.s.
-– Slovenská elektrizačná prenosová sústava, a.s.
-– Západoslovenská energetika, a.s.
-– Stredoslovenská energetika, a.s.
-– Východoslovenská energetika, a.s.
+- Slovenské elektrárne, a.s.
+- Slovenská elektrizačná prenosová sústava, a.s.
+- Západoslovenská energetika, a.s.
+- Stredoslovenská energetika, a.s.
+- Východoslovenská energetika, a.s.
 Finlandia
 Entidades municipales y empresas públicas que producen electricidad y entidades responsables del mantenimiento del sistema eléctrico bajo autorización de conformidad con la sección 4 o 16 del sähkömarkkinalaki/elmarknadslagen (386/1995) y de conformidad con la Laki vesi- ja energiahuollon, liikenteen ja postipalvelujen alalla toimivien yksiköiden hankinnoista (349/2007)/lag om upphandling inom sektorerna vatten, energi, transporter och posttjänster (349/2007).
 Suecia
 Entidades que transportan o distribuyen electricidad sobre la base de una concesión de conformidad con la Lagen (1997:857)
 Reino Unido
-– Una persona autorizada bajo la sección 6 de la Electricity Act 1989.
-– Una persona autorizada bajo el artículo 10, apartado 1, de la Electricity (Northern Ireland) Order 1992.
-– National Grid Electricity Transmission plc
-– System Operation NorthernIrland Ltd
-– Scottish & Southern Energy plc
-– SPTransmission plc
+- Una persona autorizada bajo la sección 6 de la Electricity Act 1989.
+- Una persona autorizada bajo el artículo 10, apartado 1, de la Electricity (Northern Ireland) Order 1992.
+- National Grid Electricity Transmission plc
+- System Operation NorthernIrland Ltd
+- Scottish & Southern Energy plc
+- SPTransmission plc
 II. PRODUCCIÓN, TRANSPORTE O DISTRIBUCION DE AGUA POTABLE
 Bélgica
-– Autoridades locales y asociaciones de autoridades locales, para esta parte de sus actividades
-– Société Wallonne des Eaux
-– Vlaams Maatschappij voor Watervoorziening
+- Autoridades locales y asociaciones de autoridades locales, para esta parte de sus actividades
+- Société Wallonne des Eaux
+- Vlaams Maatschappij voor Watervoorziening
 Bulgaria
-– "Тузлушка гора" – ЕООД, Антоново
-– "В И К – Батак" – ЕООД, Батак
-– "В и К – Белово" – ЕООД, Белово
-– "Водоснабдяване и канализация Берковица" – ЕООД, Берковица
-– "Водоснабдяване и канализация" – ЕООД, Благоевград
-– "В и К – Бебреш" – ЕООД, Ботевград
-– "Инфрастрой" – ЕООД, Брацигово
-– "Водоснабдяване" – ЕООД, Брезник
-– "Водоснабдяване и канализация" – ЕАД, Бургас
-– "Лукойл Нефтохим Бургас" АД, Бургас
-– "Бързийска вода" – ЕООД, Бързия
-– "Водоснабдяване и канализация" – ООД, Варна
-– "ВиК" ООД, к.к. Златни пясъци
-– "Водоснабдяване и канализация Йовковци" – ООД, Велико Търново
-– "Водоснабдяване, канализация и териториален водоинженеринг" – ЕООД,
+- "Тузлушка гора" - ЕООД, Антоново
+- "В И К - Батак" - ЕООД, Батак
+- "В и К - Белово" - ЕООД, Белово
+- "Водоснабдяване и канализация Берковица" - ЕООД, Берковица
+- "Водоснабдяване и канализация" - ЕООД, Благоевград
+- "В и К - Бебреш" - ЕООД, Ботевград
+- "Инфрастрой" - ЕООД, Брацигово
+- "Водоснабдяване" - ЕООД, Брезник
+- "Водоснабдяване и канализация" - ЕАД, Бургас
+- "Лукойл Нефтохим Бургас" АД, Бургас
+- "Бързийска вода" - ЕООД, Бързия
+- "Водоснабдяване и канализация" - ООД, Варна
+- "ВиК" ООД, к.к. Златни пясъци
+- "Водоснабдяване и канализация Йовковци" - ООД, Велико Търново
+- "Водоснабдяване, канализация и териториален водоинженеринг" - ЕООД,
 Велинград
-– "ВИК" – ЕООД, Видин
-– "Водоснабдяване и канализация" – ООД, Враца
-– "В И К" – ООД, Габрово
-– "В И К" – ООД, Димитровград
-– "Водоснабдяване и канализация" – ЕООД, Добрич
-– "Водоснабдяване и канализация – Дупница" – ЕООД, Дупница
-– ЧПСОВ, в.с. Елени
-– "Водоснабдяване и канализация" – ООД, Исперих
-– "Аспарухов вал" ЕООД, Кнежа
-– "В И К – Кресна" – ЕООД, Кресна
-– "Меден кладенец" – ЕООД, Кубрат
-– "ВИК" – ООД, Кърджали
-– "Водоснабдяване и канализация" – ООД, Кюстендил
-– "Водоснабдяване и канализация" – ООД, Ловеч
-– "В и К – Стримон" – ЕООД, Микрево
-– "Водоснабдяване и канализация" – ООД, Монтана
-– "Водоснабдяване и канализация – П" – ЕООД, Панагюрище
-– "Водоснабдяване и канализация" – ООД, Перник
-– "В И К" – ЕООД, Петрич
-– "Водоснабдяване, канализация и строителство" – ЕООД, Пещера
-– "Водоснабдяване и канализация" – ЕООД, Плевен
-– "Водоснабдяване и канализация" – ЕООД, Пловдив
-– "Водоснабдяване–Дунав" – ЕООД, Разград
-– "ВКТВ" – ЕООД, Ракитово
-– ЕТ "Ердуван Чакър", Раковски
-– "Водоснабдяване и канализация" – ООД, Русе
-– "Екопроект-С" ООД, Русе
-– "УВЕКС" – ЕООД, Сандански
-– "ВиК-Паничище" ЕООД, Сапарева баня
-– "Водоснабдяване и канализация" – ЕАД, Свищов
-– "Бяла" – ЕООД, Севлиево
-– "Водоснабдяване и канализация" – ООД, Силистра
-– "В и К" – ООД, Сливен
-– "Водоснабдяване и канализация" – ЕООД, Смолян
-– "Софийска вода" – АД, София
-– "Водоснабдяване и канализация" – ЕООД, София
-– "Стамболово" – ЕООД, Стамболово
-– "Водоснабдяване и канализация" – ЕООД, Стара Загора
-– "Водоснабдяване и канализация-С" – ЕООД, Стрелча
-– "Водоснабдяване и канализация – Тетевен" – ЕООД, Тетевен
-– "В и К – Стенето" – ЕООД, Троян
-– "Водоснабдяване и канализация" – ООД, Търговище
-– "Водоснабдяване и канализация" – ЕООД, Хасково
-– "Водоснабдяване и канализация" – ООД, Шумен
-– "Водоснабдяване и канализация" – ЕООД, Ямбол
+- "ВИК" - ЕООД, Видин
+- "Водоснабдяване и канализация" - ООД, Враца
+- "В И К" - ООД, Габрово
+- "В И К" - ООД, Димитровград
+- "Водоснабдяване и канализация" - ЕООД, Добрич
+- "Водоснабдяване и канализация - Дупница" - ЕООД, Дупница
+- ЧПСОВ, в.с. Елени
+- "Водоснабдяване и канализация" - ООД, Исперих
+- "Аспарухов вал" ЕООД, Кнежа
+- "В И К - Кресна" - ЕООД, Кресна
+- "Меден кладенец" - ЕООД, Кубрат
+- "ВИК" - ООД, Кърджали
+- "Водоснабдяване и канализация" - ООД, Кюстендил
+- "Водоснабдяване и канализация" - ООД, Ловеч
+- "В и К - Стримон" - ЕООД, Микрево
+- "Водоснабдяване и канализация" - ООД, Монтана
+- "Водоснабдяване и канализация - П" - ЕООД, Панагюрище
+- "Водоснабдяване и канализация" - ООД, Перник
+- "В И К" - ЕООД, Петрич
+- "Водоснабдяване, канализация и строителство" - ЕООД, Пещера
+- "Водоснабдяване и канализация" - ЕООД, Плевен
+- "Водоснабдяване и канализация" - ЕООД, Пловдив
+- "Водоснабдяване-Дунав" - ЕООД, Разград
+- "ВКТВ" - ЕООД, Ракитово
+- ЕТ "Ердуван Чакър", Раковски
+- "Водоснабдяване и канализация" - ООД, Русе
+- "Екопроект-С" ООД, Русе
+- "УВЕКС" - ЕООД, Сандански
+- "ВиК-Паничище" ЕООД, Сапарева баня
+- "Водоснабдяване и канализация" - ЕАД, Свищов
+- "Бяла" - ЕООД, Севлиево
+- "Водоснабдяване и канализация" - ООД, Силистра
+- "В и К" - ООД, Сливен
+- "Водоснабдяване и канализация" - ЕООД, Смолян
+- "Софийска вода" - АД, София
+- "Водоснабдяване и канализация" - ЕООД, София
+- "Стамболово" - ЕООД, Стамболово
+- "Водоснабдяване и канализация" - ЕООД, Стара Загора
+- "Водоснабдяване и канализация-С" - ЕООД, Стрелча
+- "Водоснабдяване и канализация - Тетевен" - ЕООД, Тетевен
+- "В и К - Стенето" - ЕООД, Троян
+- "Водоснабдяване и канализация" - ООД, Търговище
+- "Водоснабдяване и канализация" - ЕООД, Хасково
+- "Водоснабдяване и канализация" - ООД, Шумен
+- "Водоснабдяване и канализация" - ЕООД, Ямбол
 República Checa
 Todas las entidades contratantes en los sectores que prestan servicios en la industria de manejo del agua definidos en la sección 4, apartado 1, letras d) y e) de la Ley nº 137/2006 Sb. sobre contratos públicos.
 Ejemplos de autoridades contratantes:
-– Veolia Voda Česká Republika, a.s.
-– Praņské vodovody a kanalizace, a.s.
-– Severočeská vodárenská společnost a.s.
-– Severomoravské vodovody a kanalizace Ostrava a.s.
-– Ostravské vodárny a kanalizace a.s.Severočeská vodárenská společnost a.s.
+- Veolia Voda Česká Republika, a.s.
+- Praņské vodovody a kanalizace, a.s.
+- Severočeská vodárenská společnost a.s.
+- Severomoravské vodovody a kanalizace Ostrava a.s.
+- Ostravské vodárny a kanalizace a.s.Severočeská vodárenská společnost a.s.
 Dinamarca
-– Entidades que suministran agua tal como se define en artículo 3(3) de la Lov om vandforsyning m.v., ver Ley de Consolidación nº 71 de 17 de enero de 2007.
+- Entidades que suministran agua tal como se define en artículo 3(3) de la Lov om vandforsyning m.v., ver Ley de Consolidación nº 71 de 17 de enero de 2007.
 Alemania
-– Entidades que producen o distribuyen agua de conformidad con las Eigenbetriebsverordnungen o Eigenbetriebsgesetze de los estados federados (empresas de servicios públicos).
-– Entidades que producen o distribuyen agua de conformidad con las Gesetze ubre die kommunale Gemeinschaftsarbeit oder Zusammenarbeit de los estados federados.
-– Entidades que producen agua de conformidad con la Gesetz über Wasser- und Bodenverbände del 12 de febrero de 1991, modificado el 15 de mayo de 2002.
-– Compañías de propiedad pública que producen o distribuyen agua de conformidad con las Kommunalgesetze, en particular Gemeindeverordnungen de los estados federados.
-– Empresas establecidas de conformidad con las Aktiengesetz del 6 de septiembre de 1965, modificada el 5 de enero de 2007, o GmbH-Gesetz del 20 de abril de 1892, modificada el 10 de noviembre de 2006, o que tienen el estatus legal de Kommanditgesellschaft (sociedad limitada), que producen o distribuyen agua sobre la base de un contrato especial con autoridades regionales o locales.
+- Entidades que producen o distribuyen agua de conformidad con las Eigenbetriebsverordnungen o Eigenbetriebsgesetze de los estados federados (empresas de servicios públicos).
+- Entidades que producen o distribuyen agua de conformidad con las Gesetze ubre die kommunale Gemeinschaftsarbeit oder Zusammenarbeit de los estados federados.
+- Entidades que producen agua de conformidad con la Gesetz über Wasser- und Bodenverbände del 12 de febrero de 1991, modificado el 15 de mayo de 2002.
+- Compañías de propiedad pública que producen o distribuyen agua de conformidad con las Kommunalgesetze, en particular Gemeindeverordnungen de los estados federados.
+- Empresas establecidas de conformidad con las Aktiengesetz del 6 de septiembre de 1965, modificada el 5 de enero de 2007, o GmbH-Gesetz del 20 de abril de 1892, modificada el 10 de noviembre de 2006, o que tienen el estatus legal de Kommanditgesellschaft (sociedad limitada), que producen o distribuyen agua sobre la base de un contrato especial con autoridades regionales o locales.
 Estonia
 Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.02.2007, 15, 76) y al artículo 14 de la Ley de Competencia (RT I 2001, 56 332):
-– AS Haapsalu Veevärk
-– AS Kuressaare Veevärk
-– AS Narva Vesi
-– AS Paide Vesi
-– AS Pärnu Vesi
-– AS Tartu Veevärk
-– AS Valga Vesi
-– AS Võru Vesi
+- AS Haapsalu Veevärk
+- AS Kuressaare Veevärk
+- AS Narva Vesi
+- AS Paide Vesi
+- AS Pärnu Vesi
+- AS Tartu Veevärk
+- AS Valga Vesi
+- AS Võru Vesi
 Irlanda
 Entidades que producen o distribuyen agua de conformidad con la Local Government [Sanitary Services] Act 1878 a 1964
 Grecia
-– 'ΔƄƀηξƂίƀ ΤƁξƂύƃƂωο θƀη ΑπνρƂƄƂύƃƂωο ΠξωƄƂπνύƃεο Α.Δ.' ('Δ.Τ.Γ.Α.Π.' or 'Δ.Τ.Γ.Α.Π. Α.Δ.'). El estatuto legal de la compañía está regido por las disposiciones de la Ley Consolidada nº 2190/1920, Ley nº 2414/1996 y adicionalmente por las disposiciones de la Ley nº 1068/80 y Ley nº 2744/1999.
-'– ΔƄƀηξƂίƀ ΎƁξƂπƃεο θƀη ΑπνρέƄƂπƃεο žƂƃƃƀινλίθεο Α.Δ.' ('Δ.Τ.Α.ž. Α.Δ.') regidas por las disposiciones de la Ley nº 2937/2001 (Boletín Oficial de Grecia 169 Α΄) y la Ley nº 2651/1998 (Boletín Oficial de Grecia 248 Α΄).
-– 'ΓεκνƄηθή ΔπηρƂίξεƃε ΎƁξƂπƃεο θƀη ΑπνρέƄƂπƃεο ΜƂίδνλνο ΠƂξηνρήο Βόινπ' ('ΓΔΤΑΜΒ'), que opera de conformidad con la Ley nº 890/1979.
-– 'ΓεκνƄηθέο ΔπηρƂηξήƃƂηο ΎƁξƂπƃεο — ΑπνρέƄƂπƃεο', (Compañías Municipales de
+- 'ΔƄƀηξƂίƀ ΤƁξƂύƃƂωο θƀη ΑπνρƂƄƂύƃƂωο ΠξωƄƂπνύƃεο Α.Δ.' ('Δ.Τ.Γ.Α.Π.' or 'Δ.Τ.Γ.Α.Π. Α.Δ.'). El estatuto legal de la compañía está regido por las disposiciones de la Ley Consolidada nº 2190/1920, Ley nº 2414/1996 y adicionalmente por las disposiciones de la Ley nº 1068/80 y Ley nº 2744/1999.
+'- ΔƄƀηξƂίƀ ΎƁξƂπƃεο θƀη ΑπνρέƄƂπƃεο zƂƃƃƀινλίθεο Α.Δ.' ('Δ.Τ.Α.z. Α.Δ.') regidas por las disposiciones de la Ley nº 2937/2001 (Boletín Oficial de Grecia 169 Α΄) y la Ley nº 2651/1998 (Boletín Oficial de Grecia 248 Α΄).
+- 'ΓεκνƄηθή ΔπηρƂίξεƃε ΎƁξƂπƃεο θƀη ΑπνρέƄƂπƃεο ΜƂίδνλνο ΠƂξηνρήο Βόινπ' ('ΓΔΤΑΜΒ'), que opera de conformidad con la Ley nº 890/1979.
+- 'ΓεκνƄηθέο ΔπηρƂηξήƃƂηο ΎƁξƂπƃεο - ΑπνρέƄƂπƃεο', (Compañías Municipales de
 Suministro de Agua y Acueductos) que producen y distribuyen agua de conformidad
 con la Ley nº 1069/80 de 23 de agosto de 1980.
-– '΢ύλƁƂƃκνη ΎƁξƂπƃεο', (asociaciones de suministro de agua municipales y comunales) que operan de conformidad con el Decreto Presidencial nº 410/1995, de conformidad con ΚώƁηθoο Γήκωλ θƀη ΚνηλνƄήƄωλ.
-– 'Γήκνη θƀη ΚνηλόƄεƄƂο', (municipalidades y comunidades) que operan de conformidad con el Decreto Presidencial nº 410/1995, de conformidad con ΚώƁηθoο Γήκωλ θƀη ΚνηλνƄήƄωλ.
+- '΢ύλƁƂƃκνη ΎƁξƂπƃεο', (asociaciones de suministro de agua municipales y comunales) que operan de conformidad con el Decreto Presidencial nº 410/1995, de conformidad con ΚώƁηθoο Γήκωλ θƀη ΚνηλνƄήƄωλ.
+- 'Γήκνη θƀη ΚνηλόƄεƄƂο', (municipalidades y comunidades) que operan de conformidad con el Decreto Presidencial nº 410/1995, de conformidad con ΚώƁηθoο Γήκωλ θƀη ΚνηλνƄήƄωλ.
 España
-– Mancomunidad de Canales de Taibilla.
-– Aigües de Barcelona S.A., y sociedades filiales
-– Canal de Isabel II
-– Agencia Andaluza del Agua
-– Agencia Balear de Agua y de la Calidad Ambiental
-– Otras entidades públicas que forman parte o dependen de las Comunidades Autónomas y de las corporaciones locales, y activas en el campo de distribución de agua potable.
-– Otras entidades privadas que gozan de privilegios especiales o derechos exclusivos otorgados por las corporaciones locales en el campo de distribución de agua potable.
+- Mancomunidad de Canales de Taibilla.
+- Aigües de Barcelona S.A., y sociedades filiales
+- Canal de Isabel II
+- Agencia Andaluza del Agua
+- Agencia Balear de Agua y de la Calidad Ambiental
+- Otras entidades públicas que forman parte o dependen de las Comunidades Autónomas y de las corporaciones locales, y activas en el campo de distribución de agua potable.
+- Otras entidades privadas que gozan de privilegios especiales o derechos exclusivos otorgados por las corporaciones locales en el campo de distribución de agua potable.
 Francia
 Autoridades regionales o locales y entes públicos locales que producen o distribuyen agua potable:
-– Régies des eaux (juntas de agua) (ejemplos: Régie des eaux de Grenoble, régie des eaux de Megève, régie municipale des eaux et de l'assainissement de Mont-de- Marsan, régie des eaux de Venelles)
-– Entidades de transporte, suministro y producción de agua (ejemplos: Syndicat des eaux d'Ile de France, syndicat départemental d'alimentation en eau potable de la Vendée, syndicat des eaux et de l'assainissement du Bas-Rhin, syndicat intercommunal des eaux de la région grenobloise, syndicat de l'eau du Var-est, syndicat des eaux et de l'assainissement du Bas-Rhin).
+- Régies des eaux (juntas de agua) (ejemplos: Régie des eaux de Grenoble, régie des eaux de Megève, régie municipale des eaux et de l'assainissement de Mont-de- Marsan, régie des eaux de Venelles)
+- Entidades de transporte, suministro y producción de agua (ejemplos: Syndicat des eaux d'Ile de France, syndicat départemental d'alimentation en eau potable de la Vendée, syndicat des eaux et de l'assainissement du Bas-Rhin, syndicat intercommunal des eaux de la région grenobloise, syndicat de l'eau du Var-est, syndicat des eaux et de l'assainissement du Bas-Rhin).
 Italia
-– Entes responsables de la gestión de diversas etapas del proceso de distribución de agua, sometido al texto legislativo consolidado sobre la asunción directa del control de los servicios públicos por las autoridades locales y provinciales, aprobado por el Regio Decreto nº 2578 del 15 de octubre de 1925, D.P.R. nº 902 de 4 de octubre de 1986 y Decreto Legislativo nº 267 de 18 de agosto de 2000 que establece el texto consolidado de las leyes sobre la estructura de las autoridades locales, con particular referencia a los artículos 112 y 116
-– Acquedotto Pugliese S.p.A. (D.lgs. 11.5.1999 n. 141)
-– Ente acquedotti siciliani establecido por Legge Regionale nº 2/2 del 4 de setiembre 1979 y Legge Regionale nº 81 del 9 de agosto de 1980, in liquidazione con Legge Regionale nº 9 del 31 de mayo de 2004 (art. 1)
-– Ente sardo acquedotti e fognature establecido por Ley nº 9 del 5 de julio de 1963. Poi ESAF S.p.A. nel 2003 – confluita in ABBANOA S.p.A: ente soppresso il 29.7.2005 e posto in liquidazione con L.R. 21.4.2005 n°7 (art. 5, comma 1)- Legge finanziaria 2005
+- Entes responsables de la gestión de diversas etapas del proceso de distribución de agua, sometido al texto legislativo consolidado sobre la asunción directa del control de los servicios públicos por las autoridades locales y provinciales, aprobado por el Regio Decreto nº 2578 del 15 de octubre de 1925, D.P.R. nº 902 de 4 de octubre de 1986 y Decreto Legislativo nº 267 de 18 de agosto de 2000 que establece el texto consolidado de las leyes sobre la estructura de las autoridades locales, con particular referencia a los artículos 112 y 116
+- Acquedotto Pugliese S.p.A. (D.lgs. 11.5.1999 n. 141)
+- Ente acquedotti siciliani establecido por Legge Regionale nº 2/2 del 4 de setiembre 1979 y Legge Regionale nº 81 del 9 de agosto de 1980, in liquidazione con Legge Regionale nº 9 del 31 de mayo de 2004 (art. 1)
+- Ente sardo acquedotti e fognature establecido por Ley nº 9 del 5 de julio de 1963. Poi ESAF S.p.A. nel 2003 - confluita in ABBANOA S.p.A: ente soppresso il 29.7.2005 e posto in liquidazione con L.R. 21.4.2005 n°7 (art. 5, comma 1)- Legge finanziaria 2005
 Chipre
-– Σƀ ΢πκβνύιηƀ ΤƁƀƄνπξνκήζƂηƀο, que distribuyen agua en areas municipales y otras de conformidad con πƂξί ΤƁƀƄνπξνκήζƂηƀο ΓεκνƄηθώλ θƀη Άιιωλ ΠƂξηνρώλ Νόκνπ, ΚƂƅ.
+- Σƀ ΢πκβνύιηƀ ΤƁƀƄνπξνκήζƂηƀο, que distribuyen agua en areas municipales y otras de conformidad con πƂξί ΤƁƀƄνπξνκήζƂηƀο ΓεκνƄηθώλ θƀη Άιιωλ ΠƂξηνρώλ Νόκνπ, ΚƂƅ.
 Letonia
-– Sujetos de derecho público y privado que producen transmiten y distribuyen agua potable a un sistema fijo, y que realizan adquisiciones de conformidad con la ley "Par iepirkumu sabiedrisko pakalpojumu sniedzēju vajadzībām"
+- Sujetos de derecho público y privado que producen transmiten y distribuyen agua potable a un sistema fijo, y que realizan adquisiciones de conformidad con la ley "Par iepirkumu sabiedrisko pakalpojumu sniedzēju vajadzībām"
 Lituania
-– Entidades que cumplen los requerimientos del artículo 70 (1, 2) de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y ejecutando producción de agua potable, y actividades de transporte o distribución de acuerdo con la Ley de Agua Potable y Tratamiento de aguas Residuales de la República de Lituania (Boletín Oficial nº 82-3260, 2006).
+- Entidades que cumplen los requerimientos del artículo 70 (1, 2) de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y ejecutando producción de agua potable, y actividades de transporte o distribución de acuerdo con la Ley de Agua Potable y Tratamiento de aguas Residuales de la República de Lituania (Boletín Oficial nº 82-3260, 2006).
 Luxemburgo
-– Departamentos de las autoridades locales responsables de la distribución de agua
-– Asociaciones de autoridades locales que producen o distribuyen agua, establecidas de conformidad con la Loi concernant la création des syndicats de communes del 23 de febrero de 2001, modificada y ampliada por la Ley del 23 de diciembre de 1958 y por la Ley del 29 de julio de 1981, y de conformidad con la loi ayant pour objet le renforcement de l'alimentation en eau potable du Grand-Duché du Luxemburgo à partir du réservoir d'Esch-sur-Sûre del 31 de julio de 1962
-– Syndicat de communes pour la construction, l'exploitation et l'entretien de la
-conduite d'eau du Sud-Est – SESE
-– Syndicat des Eaux du Barrage d'Esch-sur-Sûre – SEBES
-– Syndicat intercommunal pour la distribution d'eau dans la région de l'Est –
+- Departamentos de las autoridades locales responsables de la distribución de agua
+- Asociaciones de autoridades locales que producen o distribuyen agua, establecidas de conformidad con la Loi concernant la création des syndicats de communes del 23 de febrero de 2001, modificada y ampliada por la Ley del 23 de diciembre de 1958 y por la Ley del 29 de julio de 1981, y de conformidad con la loi ayant pour objet le renforcement de l'alimentation en eau potable du Grand-Duché du Luxemburgo à partir du réservoir d'Esch-sur-Sûre del 31 de julio de 1962
+- Syndicat de communes pour la construction, l'exploitation et l'entretien de la
+conduite d'eau du Sud-Est - SESE
+- Syndicat des Eaux du Barrage d'Esch-sur-Sûre - SEBES
+- Syndicat intercommunal pour la distribution d'eau dans la région de l'Est -
 SIDERE
-– Syndicat des Eaux du Sud – SES
-– Syndicat des communes pour la construction, l'exploitation et l'entretien d'une distribution d'eau à Savelborn-Freckeisen
-– Syndicat pour la distribution d'eau dans les communes de Bous, Dalheim, Remich, Stadtbredimus et Waldbredimus – SR
-– Syndicat de distribution d'eau des Ardennes – DEA
-– Syndicat de communes pour la construction, l'exploitation et l'entretien d'une distribution d'eau dans les communes de Beaufort, Berdorf et Waldbillig
-– Syndicat des eaux du Centre – SEC
+- Syndicat des Eaux du Sud - SES
+- Syndicat des communes pour la construction, l'exploitation et l'entretien d'une distribution d'eau à Savelborn-Freckeisen
+- Syndicat pour la distribution d'eau dans les communes de Bous, Dalheim, Remich, Stadtbredimus et Waldbredimus - SR
+- Syndicat de distribution d'eau des Ardennes - DEA
+- Syndicat de communes pour la construction, l'exploitation et l'entretien d'une distribution d'eau dans les communes de Beaufort, Berdorf et Waldbillig
+- Syndicat des eaux du Centre - SEC
 Hungría
-– Entidades que producen, transportan o distribuyen agua de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 1995. évi LVII. törvény a vízgazdálkodásról.
+- Entidades que producen, transportan o distribuyen agua de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 1995. évi LVII. törvény a vízgazdálkodásról.
 Malta
-– Korporazzjoni għas-Servizzi ta' l-Ilma (Empresa de Servicios de Agua)
-– Korporazzjoni għas-Servizzi ta' Desalinazzjoni (Empresa de Servicios de
+- Korporazzjoni għas-Servizzi ta' l-Ilma (Empresa de Servicios de Agua)
+- Korporazzjoni għas-Servizzi ta' Desalinazzjoni (Empresa de Servicios de
 Desalinización de Agua)
 Países Bajos
 Entidades que producen o distribuyen agua de conformidad con la Waterleidingwet
@@ -5118,46 +5118,46 @@ Austria
 Autoridades locales y asociaciones de autoridades locales, que transportan o distribuyen agua potable de conformidad con las Wasserversorgungsgesetze de los nueve estados federados
 Polonia
 Empresas de agua y alcantarillado definidas en la Ustawa z dnia 7 czerwca 2001 r., o zbiorowym zaopatrzeniu w wodę i zbiorowym odprowadzaniu ścieków, que realizan una actividad económica de suministro de agua o evaluación de aguas residuales al conjunto de la población, entre las que figuran:
-– AQUANET S.A., Poznań
-– Górnośląskie Przedsiębiorstwo Wodociągów S.A. w Katowicach
-– Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji S.A. w Krakowie
-– Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji Sp. z o. o. Wrocław
-– Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji w Lublinie Sp. z o.o.
-– Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji w m. st. Warszawie S.A.
-– Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji w Tychach S.A.
-– Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji Sp. z o.o. w Zawierciu
-– Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji w Katowicach S.A.
-– Wodociągi Ustka Sp. z o.o.
-– Zakład Wodociągów i Kanalizacji Sp. z o.o. Łódź
-– Zakład Wodociągów i Kanalizacji Sp. z o.o. Szczecin
+- AQUANET S.A., Poznań
+- Górnośląskie Przedsiębiorstwo Wodociągów S.A. w Katowicach
+- Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji S.A. w Krakowie
+- Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji Sp. z o. o. Wrocław
+- Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji w Lublinie Sp. z o.o.
+- Miejskie Przedsiębiorstwo Wodociągów i Kanalizacji w m. st. Warszawie S.A.
+- Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji w Tychach S.A.
+- Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji Sp. z o.o. w Zawierciu
+- Rejonowe Przedsiębiorstwo Wodociągów i Kanalizacji w Katowicach S.A.
+- Wodociągi Ustka Sp. z o.o.
+- Zakład Wodociągów i Kanalizacji Sp. z o.o. Łódź
+- Zakład Wodociągów i Kanalizacji Sp. z o.o. Szczecin
 Portugal
-- Sistemas intermunicipales — Empresas con participación del Estado u otros entre públicos, con una participación mayoritaria, y empresas privadas, de conformidad con el Decreto-Lei nº 379/93 do 5 de Novembro 1993, modificado por el Decreto-Lei nº 176/99 do 25 de Outubro 1999, Decreto-Lei nº 439-A/99 do 29 de Outubro 1999 y Decreto-Lei nº 103/2003 do 23 de Maio 2003. Es permitida la administración directa del Estado.
-- Sistemas Municipales — Autoridades locales, asociaciones de autoridades locales, autoridades locales de servicios, empresas en que todo o la mayoría del capital es de propiedad pública o empresas privadas de conformidad con la Lei 53-F/2006, do 29 de Dezembro 2006, y el Decreto-Lei nº 379/93 do 5 de Novembro 1993 modificado por Decreto-Lei nº 176/99 de 25 de Outubro 1999, Decreto-Lei nº 439- A/99 do 29 de Outubro 1999 e Decreto-Lei nº 103/2003 do 23 de Maio 2003
+- Sistemas intermunicipales - Empresas con participación del Estado u otros entre públicos, con una participación mayoritaria, y empresas privadas, de conformidad con el Decreto-Lei nº 379/93 do 5 de Novembro 1993, modificado por el Decreto-Lei nº 176/99 do 25 de Outubro 1999, Decreto-Lei nº 439-A/99 do 29 de Outubro 1999 y Decreto-Lei nº 103/2003 do 23 de Maio 2003. Es permitida la administración directa del Estado.
+- Sistemas Municipales - Autoridades locales, asociaciones de autoridades locales, autoridades locales de servicios, empresas en que todo o la mayoría del capital es de propiedad pública o empresas privadas de conformidad con la Lei 53-F/2006, do 29 de Dezembro 2006, y el Decreto-Lei nº 379/93 do 5 de Novembro 1993 modificado por Decreto-Lei nº 176/99 de 25 de Outubro 1999, Decreto-Lei nº 439- A/99 do 29 de Outubro 1999 e Decreto-Lei nº 103/2003 do 23 de Maio 2003
 Rumanía
 Departamente ale autorităţilor locale şi companii care produc, transportă şi distribuie apă (departamentos de las autoridades locales y empresas de producción, transporte y distribución de agua); ejemplos:
-– S.C. APA –C.T.T.A. S.A. Alba Iulia, Alba
-– S.C. APA –C.T.T.A. S.A. Filiala Alba Iulia SA., Alba Iulia, Alba
-– S.C. APA –C.T.T.A. S.A Filiala Blaj, Blaj, Alba
-– Compania de Apă Arad
-– S.C. Aquaterm AG 98 S.A. Curtea de Argeş, Argeş
-– S.C. APA Canal 2000 S.A. Piteşti, Argeş
-– S.C. APA Canal S.A. Oneşti, Bacău
-– Compania de Apă-Canal, Oradea, Bihor
-– R.A.J.A. Aquabis Bistriţa, Bistriţa-Năsăud
-– S.C. APA Grup SA Botoşani, Botoşani
-– Compania de Apă, Braşov, Braşov
-– R.A. APA, Brăila, Brăila
-– S.C. Ecoaquasa Sucursala Călăraşi, Călăraşi, Călăraşi
-– S.C. Compania de Apă Someş S.A., Cluj, Cluj-Napoca
-– S.C. Aquasom S.A. Dej, Dej, Cluj
-– Regia Autonomă Judeţeană de Apă, Constanţa, Constanţa
-– R.A.G.C. Târgovişte, Târgovişte Dâmboviţa
-– R.A. APA Craiova, Craiova, Dolj
-– S.C. Apa-Canal S.A., Băileşti, Dolj
-– S.C. Apa-Prod S.A. Deva, Deva, Hunedoara
-– R.A.J.A.C. Iaşi, Iaşi
-– Direcţia Apă-Canal, Paşcani, Iaşi
-– Societatea Naţională a Apelor Minerale (SNAM)
+- S.C. APA -C.T.T.A. S.A. Alba Iulia, Alba
+- S.C. APA -C.T.T.A. S.A. Filiala Alba Iulia SA., Alba Iulia, Alba
+- S.C. APA -C.T.T.A. S.A Filiala Blaj, Blaj, Alba
+- Compania de Apă Arad
+- S.C. Aquaterm AG 98 S.A. Curtea de Argeş, Argeş
+- S.C. APA Canal 2000 S.A. Piteşti, Argeş
+- S.C. APA Canal S.A. Oneşti, Bacău
+- Compania de Apă-Canal, Oradea, Bihor
+- R.A.J.A. Aquabis Bistriţa, Bistriţa-Năsăud
+- S.C. APA Grup SA Botoşani, Botoşani
+- Compania de Apă, Braşov, Braşov
+- R.A. APA, Brăila, Brăila
+- S.C. Ecoaquasa Sucursala Călăraşi, Călăraşi, Călăraşi
+- S.C. Compania de Apă Someş S.A., Cluj, Cluj-Napoca
+- S.C. Aquasom S.A. Dej, Dej, Cluj
+- Regia Autonomă Judeţeană de Apă, Constanţa, Constanţa
+- R.A.G.C. Târgovişte, Târgovişte Dâmboviţa
+- R.A. APA Craiova, Craiova, Dolj
+- S.C. Apa-Canal S.A., Băileşti, Dolj
+- S.C. Apa-Prod S.A. Deva, Deva, Hunedoara
+- R.A.J.A.C. Iaşi, Iaşi
+- Direcţia Apă-Canal, Paşcani, Iaşi
+- Societatea Naţională a Apelor Minerale (SNAM)
 Eslovenia
 Entidades que producen, transportan o distribuyen agua potable, de conformidad con una concesión otorgada de conformidad con la Zakon o varstvu okolja (Uradni list RS, 32/93, 1/96) y las decisiones emitidas por las municipalidades.
 Mat. St | Naziv | Pońtna Ńt. | Kraj
@@ -5177,7 +5177,7 @@ Mat. St | Naziv | Pońtna Ńt. | Kraj
 5015367 | Javno Podjetje Kovod Postojna, Vodovod, Kanalizacija, D.O.O., Postojna | 6230 | Postojna
 5015707 | Komunalno Podjetje Vrhnika Proizvodnja In Distribucija Vode, D.D. | 1360 | Vrhnika
 5016100 | Komunalno Podjetje Ilirska Bistrica | 6250 | Ilirska Bistrica
-5046688 | Javno Podjetje Vodovod – Kanalizacija, D.O.O. Ljubljana | 1000 | Ljubljana
+5046688 | Javno Podjetje Vodovod - Kanalizacija, D.O.O. Ljubljana | 1000 | Ljubljana
 5062403 | Javno Podjetje Komunala Črnomelj D.O.O. | 8340 | Črnomelj
 5063485 | Komunala Radovljica, Javno Podjetje Za Komunalno Dejavnost, D.O.O. | 4240 | Radovljica
 5067731 | Komunala Kranj, Javno Podjetje, D.O.O. | 4000 | Kranj
@@ -5264,274 +5264,274 @@ Mat. St | Naziv | Pońtna Ńt. | Kraj
 5874327 | Reņijski Obrat Občina Kranjska Gora | 4280 | Kranjska Gora
 1197380 | Čista Narava, Javno Komunalno Podjetje D.O.O. Moravske Toplice | 9226 | Moravske Toplice
 Eslovaquia
-– Entidades que operan sistemas públicos de agua en conexión con la producción o transporte o distribución de agua potable al público sobre la base de una licencia de comercialización y certificado de competencia profesional para operación de sistemas públicos de agua otorgada de conformidad con la Ley nº 442/2002 Coll. En la redacción de las leyes nº 525/2003 Coll., nº 364/2004 Coll., nº 587/2004 Coll. y nº 230/2005 Coll.,
-– Entidades que operan plantas de tratamiento de aguas de conformidad con las condiciones indicadas en la Ley nº 364/2004 Coll. en la redacción de las leyes nº 587/2004 Coll. y nº 230/2005 Coll., sobre la base de un permiso otorgado de conformidad con la ley nº 135/1994 Coll. con la redacción de las leyes nº 52/1982 Coll., nº 595/1990 Coll., nº 128/1991 Coll., nº 238/1993 Coll., nº 416/2001 Coll., nº 533/2001 Coll. y simultáneamente previsto para transporte o distribución de agua potable al público de conformidad con la ley nº 442/2002 Coll. en la redacción de las leyes nº 525/2003 Coll., nº 364/2004 Coll., nº 587/2004 Coll. y nº 230/2005 Coll.
+- Entidades que operan sistemas públicos de agua en conexión con la producción o transporte o distribución de agua potable al público sobre la base de una licencia de comercialización y certificado de competencia profesional para operación de sistemas públicos de agua otorgada de conformidad con la Ley nº 442/2002 Coll. En la redacción de las leyes nº 525/2003 Coll., nº 364/2004 Coll., nº 587/2004 Coll. y nº 230/2005 Coll.,
+- Entidades que operan plantas de tratamiento de aguas de conformidad con las condiciones indicadas en la Ley nº 364/2004 Coll. en la redacción de las leyes nº 587/2004 Coll. y nº 230/2005 Coll., sobre la base de un permiso otorgado de conformidad con la ley nº 135/1994 Coll. con la redacción de las leyes nº 52/1982 Coll., nº 595/1990 Coll., nº 128/1991 Coll., nº 238/1993 Coll., nº 416/2001 Coll., nº 533/2001 Coll. y simultáneamente previsto para transporte o distribución de agua potable al público de conformidad con la ley nº 442/2002 Coll. en la redacción de las leyes nº 525/2003 Coll., nº 364/2004 Coll., nº 587/2004 Coll. y nº 230/2005 Coll.
 Por ejemplo:
-– Bratislavská vodárenská spoločnosť, a.s.
-– Západoslovenská vodárenská spoločnosť, a.s.
-– Povaņská vodárenská spoločnosť, a.s.
-– Severoslovenské vodárne a kanalizácie, a.s.
-– Stredoslovenská vodárenská spoločnosť, a.s.
-– Podtatranská vodárenská spoločnosť, a.s.
-– Východoslovenská vodárenská spoločnosť, a.s.
+- Bratislavská vodárenská spoločnosť, a.s.
+- Západoslovenská vodárenská spoločnosť, a.s.
+- Povaņská vodárenská spoločnosť, a.s.
+- Severoslovenské vodárne a kanalizácie, a.s.
+- Stredoslovenská vodárenská spoločnosť, a.s.
+- Podtatranská vodárenská spoločnosť, a.s.
+- Východoslovenská vodárenská spoločnosť, a.s.
 Finlandia
-– Autoridades de suministro de agua bajo la sección 3 de Vesihuoltolaki/lagen om vattentjänster (119/2001).
+- Autoridades de suministro de agua bajo la sección 3 de Vesihuoltolaki/lagen om vattentjänster (119/2001).
 Suecia
 Autoridades locales y compañías municipales que producen, transportan o distribuyen agua potable de conformidad con la Lagen (2006:412) om allmänna vattentjänster.
 Reino Unido
-– Una compañía designada como responsable de la gestión de agua o de aguas residuales de conformidad con la Water Industry Act 1991
-– Una autoridad de agua y alcantarillado establecida por la sección 62 de Local Government etc. (Scotland) Act 1994.
-– The Department for Regional Development (Northern Ireland)
+- Una compañía designada como responsable de la gestión de agua o de aguas residuales de conformidad con la Water Industry Act 1991
+- Una autoridad de agua y alcantarillado establecida por la sección 62 de Local Government etc. (Scotland) Act 1994.
+- The Department for Regional Development (Northern Ireland)
 III. SERVICIOS URBANOS DE FERROCARRIL, TRANVÍA, TROLEBÚS O AUTOBÚS
 Bélgica
-– Société des Transports intercommunaux de Bruxelles/Maatschappij voor intercommunaal Vervoer van Brussel
-– Société régionale wallonne du Transport et ses sociétés d'exploitation (TEC Liège– Verviers, TEC Namur–Luxembourg, TEC Brabant wallon, TEC Charleroi, TEC Hainaut)/ Société régionale wallonne du Transport en haar exploitatiemaatschappijen (TEC Liège–Verviers, TEC Namur–Luxembourg, TEC Brabant wallon, TEC Charleroi, TEC Hainaut)
-– Vlaamse Vervoermaatschappij (De Lijn)
-– Empresas privadas que gozan de derechos especiales o exclusivos
+- Société des Transports intercommunaux de Bruxelles/Maatschappij voor intercommunaal Vervoer van Brussel
+- Société régionale wallonne du Transport et ses sociétés d'exploitation (TEC Liège- Verviers, TEC Namur-Luxembourg, TEC Brabant wallon, TEC Charleroi, TEC Hainaut)/ Société régionale wallonne du Transport en haar exploitatiemaatschappijen (TEC Liège-Verviers, TEC Namur-Luxembourg, TEC Brabant wallon, TEC Charleroi, TEC Hainaut)
+- Vlaamse Vervoermaatschappij (De Lijn)
+- Empresas privadas que gozan de derechos especiales o exclusivos
 Bulgaria
-– "Метрополитен" ЕАД, София
-– "Столичен електротранспорт" ЕАД, София
-– "Столичен автотранспорт" ЕАД, София
-– "Бургасбус" ЕООД, Бургас
-– "Градски транспорт" ЕАД, Варна
-– "Тролейбусен транспорт" ЕООД, Враца
-– "Общински пътнически транспорт" ЕООД, Габрово
-– "Автобусен транспорт" ЕООД, Добрич
-– "Тролейбусен транспорт" ЕООД, Добрич
-– "Тролейбусен транспорт" ЕООД, Пазарджик
-– "Тролейбусен транспорт" ЕООД, Перник
-– "Автобусни превози" ЕАД, Плевен
-– "Тролейбусен транспорт" ЕООД, Плевен
-– "Градски транспорт Пловдив" ЕАД, Пловдив
-– "Градски транспорт" ЕООД, Русе
-– "Пътнически превози" ЕАД, Сливен
-– "Автобусни превози" ЕООД, Стара Загора
-– "Тролейбусен транспорт" ЕООД, Хасково
+- "Метрополитен" ЕАД, София
+- "Столичен електротранспорт" ЕАД, София
+- "Столичен автотранспорт" ЕАД, София
+- "Бургасбус" ЕООД, Бургас
+- "Градски транспорт" ЕАД, Варна
+- "Тролейбусен транспорт" ЕООД, Враца
+- "Общински пътнически транспорт" ЕООД, Габрово
+- "Автобусен транспорт" ЕООД, Добрич
+- "Тролейбусен транспорт" ЕООД, Добрич
+- "Тролейбусен транспорт" ЕООД, Пазарджик
+- "Тролейбусен транспорт" ЕООД, Перник
+- "Автобусни превози" ЕАД, Плевен
+- "Тролейбусен транспорт" ЕООД, Плевен
+- "Градски транспорт Пловдив" ЕАД, Пловдив
+- "Градски транспорт" ЕООД, Русе
+- "Пътнически превози" ЕАД, Сливен
+- "Автобусни превози" ЕООД, Стара Загора
+- "Тролейбусен транспорт" ЕООД, Хасково
 República Checa
 Todas las entidades contratantes en los sectores que prestan servicios en el campo de servicios de ferrocarril urbano, tranvía, trolebús o autobús definidos en la sección 4 del apartado 1, letra f) de la Ley nº 137/2006 Coll. sobre contratos públicos, modificada.
 Ejemplos de autoridades contratantes:
-– Dopravní podnik hl.m. Prahy,akciová společnost
-– Dopravní podnik města Brna, a. s.
-– Dopravní podnik Ostrava a.s.
-– Plzeňské městské dopravní podniky, a.s.
-– Dopravní podnik města Olomouce, a.s.
+- Dopravní podnik hl.m. Prahy,akciová společnost
+- Dopravní podnik města Brna, a. s.
+- Dopravní podnik Ostrava a.s.
+- Plzeňské městské dopravní podniky, a.s.
+- Dopravní podnik města Olomouce, a.s.
 Dinamarca
-– DSB
-– DSB S-tog A/S
-– Entidades que prestan servicios de autobús al público (servicios regulares ordinarios) sobre la base de una autorización de conformidad con la Lov om buskørsel, ver Ley de Consolidación nº 107 del 19 de febrero de 2003.
-– Metroselskabet I/S
+- DSB
+- DSB S-tog A/S
+- Entidades que prestan servicios de autobús al público (servicios regulares ordinarios) sobre la base de una autorización de conformidad con la Lov om buskørsel, ver Ley de Consolidación nº 107 del 19 de febrero de 2003.
+- Metroselskabet I/S
 Alemania
 Empresas que proveen, sobre la base de una autorización, servicios de transporte de corta distancia al público de conformidad con la Personenbeförderungsgesetz de 21 de marzo de 1961, modificada el 31 de octubre de 2006.
 Estonia
-– Entidades que operan de conformidad con el artículo 10(3) de la Ley de Contratación Pública (RT I 21.02.2007,15, 76) y el artículo 14 de la Ley de Competencia (RT I 2001, 56 332)
-– AS Tallinna Autobussikoondis
-– AS Tallinna Trammi- ja Trollibussikoondis
-– Narva Bussiveod AS
+- Entidades que operan de conformidad con el artículo 10(3) de la Ley de Contratación Pública (RT I 21.02.2007,15, 76) y el artículo 14 de la Ley de Competencia (RT I 2001, 56 332)
+- AS Tallinna Autobussikoondis
+- AS Tallinna Trammi- ja Trollibussikoondis
+- Narva Bussiveod AS
 Irlanda
-– Iarnród Éireann [Irish Rail]
-– Railway Procurement Agency
-– Luas [Dublin Light Rail]
-– Bus Éireann [Irish Bus]
-– Bus Átha Cliath [Dublin Bus]
-– Entidades que prestan servicios de transporte al público de conformidad con la Road Transport Act 1932 modificada.
+- Iarnród Éireann [Irish Rail]
+- Railway Procurement Agency
+- Luas [Dublin Light Rail]
+- Bus Éireann [Irish Bus]
+- Bus Átha Cliath [Dublin Bus]
+- Entidades que prestan servicios de transporte al público de conformidad con la Road Transport Act 1932 modificada.
 Grecia
-– 'ΗιƂθƄξνθίλεƄƀ ΛƂωƅνξƂίƀ ΠƂξηνρήο Αζελώλ - ΠƂηξƀηώο Α.Δ.' ('Η.Λ.Π.Α.Π. Α.Δ.') (Trolebuses Atenas- El Pireo- S.A), establecida y que opera de confomidad con el Decreto Legislativo nº 768/1970 (Α΄273), la Ley nº 588/1977 (Α΄148) y la Ley nº 2669/1998 (Α΄283).
-– 'ΗιƂθƄξηθνί ΢ηƁεξόƁξνκνη Αζελώλ – ΠƂηξƀηώο' ('Η.΢.Α.Π. Α.Δ.') (Ferrocarril Eléctrico Atenas-El Pireo S.A), establecida y que opera de conformidad con las Leyes 352/1976 (Α΄ 147) y 2669/1998 (Α΄283)
-– 'Οξγƀληƃκόο ΑƃƄηθώλ ΢πγθνηλωληώλ Αζελώλ Α.Δ.' ('Ο.Α.΢Α. Α.Δ.') (Organización de Transportes Urbanos de Atenas S.A), establecida y que opera de conformidad con las Leyes nºs 2175/1993 (Α΄211) y 2669/1998 (Α΄283)
-– 'ΔƄƀηξƂίƀ žƂξκηθώλ ΛƂωƅνξƂίωλ Α.Δ.' ('Δ.ž.Δ.Λ. Α.Δ.'), ) (Compañía de Autobuses Térmicos S.A., establecida y que opera de conformidad con las Leyes nºs 2175/1993 (Α΄211) y 2669/1998 (Α΄283)
-– 'ΑƄƄηθό ΜƂƄξό Α.Δ.' (Attiko Metro S.A), establecida y que opera de conformidad con la Ley nº 1955/1991
-– "Οξγƀληƃκόο ΑƃƄηθώλ ΢πγθνηλωληώλ žƂƃƃƀινλίθεο" ("Ο.Α.΢.ž."), establecido y que opera de conformidad con el Decreto nº 3721/1957, Decreto Legislativo nº 716/1970 y Leyes nºs 866/79 y 2898/2001 (Α'71).
-– "Κνηλό ΣƀκƂίν Δίƃπξƀμεο ΛƂωƅνξƂίωλ" ("Κ.Σ.Δ.Λ."), que opera de conformidad con la Ley nº 2963/2001 (Α'268).
-– "ΓεκνƄηθέο ΔπηρƂηξήƃƂηο ΛƂωƅνξƂίωλ ΡόƁνπ θƀη Κω", también conocidos como "ΡΟΓΑ" y "ΓΔΑ΢ ΚΧ" respectivamente, que operan de conformidad con la Ley nº 2963/2001 (Α'268).
+- 'ΗιƂθƄξνθίλεƄƀ ΛƂωƅνξƂίƀ ΠƂξηνρήο Αζελώλ - ΠƂηξƀηώο Α.Δ.' ('Η.Λ.Π.Α.Π. Α.Δ.') (Trolebuses Atenas- El Pireo- S.A), establecida y que opera de confomidad con el Decreto Legislativo nº 768/1970 (Α΄273), la Ley nº 588/1977 (Α΄148) y la Ley nº 2669/1998 (Α΄283).
+- 'ΗιƂθƄξηθνί ΢ηƁεξόƁξνκνη Αζελώλ - ΠƂηξƀηώο' ('Η.΢.Α.Π. Α.Δ.') (Ferrocarril Eléctrico Atenas-El Pireo S.A), establecida y que opera de conformidad con las Leyes 352/1976 (Α΄ 147) y 2669/1998 (Α΄283)
+- 'Οξγƀληƃκόο ΑƃƄηθώλ ΢πγθνηλωληώλ Αζελώλ Α.Δ.' ('Ο.Α.΢Α. Α.Δ.') (Organización de Transportes Urbanos de Atenas S.A), establecida y que opera de conformidad con las Leyes nºs 2175/1993 (Α΄211) y 2669/1998 (Α΄283)
+- 'ΔƄƀηξƂίƀ zƂξκηθώλ ΛƂωƅνξƂίωλ Α.Δ.' ('Δ.z.Δ.Λ. Α.Δ.'), ) (Compañía de Autobuses Térmicos S.A., establecida y que opera de conformidad con las Leyes nºs 2175/1993 (Α΄211) y 2669/1998 (Α΄283)
+- 'ΑƄƄηθό ΜƂƄξό Α.Δ.' (Attiko Metro S.A), establecida y que opera de conformidad con la Ley nº 1955/1991
+- "Οξγƀληƃκόο ΑƃƄηθώλ ΢πγθνηλωληώλ zƂƃƃƀινλίθεο" ("Ο.Α.΢.z."), establecido y que opera de conformidad con el Decreto nº 3721/1957, Decreto Legislativo nº 716/1970 y Leyes nºs 866/79 y 2898/2001 (Α'71).
+- "Κνηλό ΣƀκƂίν Δίƃπξƀμεο ΛƂωƅνξƂίωλ" ("Κ.Σ.Δ.Λ."), que opera de conformidad con la Ley nº 2963/2001 (Α'268).
+- "ΓεκνƄηθέο ΔπηρƂηξήƃƂηο ΛƂωƅνξƂίωλ ΡόƁνπ θƀη Κω", también conocidos como "ΡΟΓΑ" y "ΓΔΑ΢ ΚΧ" respectivamente, que operan de conformidad con la Ley nº 2963/2001 (Α'268).
 España
 - Entidades que prestan servicios de transporte público urbano de conformidad con la "Ley 7/1985 Reguladora de las Bases de Régimen Local del 2 de abril 1985; Real Decreto legislativo 781/1986, de 18 de abril, por el que se aprueba el texto refundido de las disposiciones legales vigentes en materia de régimen local" y correspondiente con la legislación regional, si aplica.
 - Entidades que prestan servicios de autobús al público de conformidad con la disposición transitoria número tres de la "Ley 16/1987, de 30 de julio, de Ordenación de los Transportes Terrestres".
 Ejemplos:
-– Empresa Municipal de Transportes de Madrid
-– Empresa Municipal de Transportes de Málaga
-– Empresa Municipal de Transportes Urbanos de Palma de Mallorca
-– Empresa Municipal de Transportes Públicos de Tarragona
-– Empresa Municipal de Transportes de Valencia
-– Transporte Urbano de Sevilla, S.A.M. (TUSSAM)
-– Transporte Urbano de Zaragoza, S.A. (TUZSA)
-– Entitat Metropolitana de Transport - AMB
-– Eusko Trenbideak, s.a.
-– Ferrocarril Metropolitá de Barcelona, sa
-– Ferrocariles de la Generalitat Valenciana
-– Consorcio de Transportes de Mallorca
-– Metro de Madrid
-– Metro de Málaga, S.A.
-– Red Nacional de los Ferrocarriles Españoles (Renfe)
+- Empresa Municipal de Transportes de Madrid
+- Empresa Municipal de Transportes de Málaga
+- Empresa Municipal de Transportes Urbanos de Palma de Mallorca
+- Empresa Municipal de Transportes Públicos de Tarragona
+- Empresa Municipal de Transportes de Valencia
+- Transporte Urbano de Sevilla, S.A.M. (TUSSAM)
+- Transporte Urbano de Zaragoza, S.A. (TUZSA)
+- Entitat Metropolitana de Transport - AMB
+- Eusko Trenbideak, s.a.
+- Ferrocarril Metropolitá de Barcelona, sa
+- Ferrocariles de la Generalitat Valenciana
+- Consorcio de Transportes de Mallorca
+- Metro de Madrid
+- Metro de Málaga, S.A.
+- Red Nacional de los Ferrocarriles Españoles (Renfe)
 Francia
-– Entidades que prestan servicios de transporte al público de conformidad con el artículo 7-II de Loi d'orientation des transports intérieurs nº 82-1153 del 30 de diciembre de 1982.
-– Régie des transports de Marseille
-– RDT 13 Régie départementale des transports des Bouches du Rhône
-– Régie départementale des transports du Jura
-– DTHV Régie départementale des transports de la Haute-Vienne
-– Régie autonome des transports parisiens, Société nationale des chemins de fer français y otras entidades que proveen servicios de transporte sobre la base de una autorización otorgada por el Syndicat des transports d'Île-de-France, de conformidad con la Orden n°59-151 del 7 de enero de 1959 reformada y los Decretos de implementación en relación con la organización del transporte de pasajeros en la región Île-de-France.
-– Réseau ferré de France, compañía de propiedad estatal establecida por la Ley n°97-
+- Entidades que prestan servicios de transporte al público de conformidad con el artículo 7-II de Loi d'orientation des transports intérieurs nº 82-1153 del 30 de diciembre de 1982.
+- Régie des transports de Marseille
+- RDT 13 Régie départementale des transports des Bouches du Rhône
+- Régie départementale des transports du Jura
+- DTHV Régie départementale des transports de la Haute-Vienne
+- Régie autonome des transports parisiens, Société nationale des chemins de fer français y otras entidades que proveen servicios de transporte sobre la base de una autorización otorgada por el Syndicat des transports d'Île-de-France, de conformidad con la Orden n°59-151 del 7 de enero de 1959 reformada y los Decretos de implementación en relación con la organización del transporte de pasajeros en la región Île-de-France.
+- Réseau ferré de France, compañía de propiedad estatal establecida por la Ley n°97-
 135 del 13 de febrero de 1997.
-– Autoridades regionales o locales o grupos de autoridades regionales o locales que conforman una autoridad organizada de transportes (ejemplo: Communauté urbaine de Lyon).
+- Autoridades regionales o locales o grupos de autoridades regionales o locales que conforman una autoridad organizada de transportes (ejemplo: Communauté urbaine de Lyon).
 Italia
 Entidades, compañías y empresas que proveen servicio de transporte por ferrocarril, sistema automatizado, tranvía, trolebús o autobús o que manejan la infraestructura a nivel nacional, regional, o local Incluyen, por ejemplo:
-– Entidades, compañías y empresas que prestan servicios públicos de transporte sobre la base de una autorización de conformidad con el Decreto del Ministro dei Trasporti nº 316 del 1 de diciembre de 2006 "Regolamento recante riordino dei servizi automobilistici interregionali di competenza statale"
-– Entidades, compañías y empresas que prestan servicios de transporte al público de
-conformidad con el artículo 1(4) o (15) del Regio Decreto nº 2578 del 15 de octubre de 1925 — Approvazione del testo unico della legge sull'assunzione diretta dei pubblici servizi da parte dei comuni e delle province.
-– Entidades, compañías y empresas que prestan servicios de transporte al público de conformidad con el Decreto Legislativo nº 422 del 19 de noviembre de 1997 — Conferimento alle regioni ed agli enti locali di funzioni e compiti in materia di trasporto pubblico locale, bajo los términos del artículo 4(4) de la Legge nº 59 del 15 de marzo de 1997 — modificada por el Decreto Legislativo nº 400 del 20 de septiembre de 1999, y por el artículo 45 de la Legge nº 166 del 1 de agosto de 2002.
-– Entidades, compañías y empresas que prestan servicios de transporte al público de conformidad con el artículo 113 del texto consolidado de las leyes sobre estructura de las autoridades locales, aprobado por Legge nº 267 del 18 de agosto de 2000 modificada por el artículo 35 de la Legge nº 448 del 28 de diciembre de 2001.
-– Entidades, compañías y empresas que operan sobre la base de una concesión de conformidad con los artículos 242 o 256 del Regio Decreto nº 1447 del 9 de mayo de 1912 por el que se aprueba el texto consolidado de las leyes sobre le ferrovie concesse all'industria privata, le tramvie a trazione meccanica e gli automobili.
-– Entidades, compañías y empresas y autoridades locales que operan sobre la base de una concesión de conformidad con el artículo 4 de la Legge nº 410 del 4 de junio de1949 — Concorso dello Stato per la riattivazione dei pubblici servizi di trasporto in concessione.
-– Entidades, compañías y empresas que operan sobre la base de una conceción de conformidad con el artículo 14 de la Legge nº 1221 del 2 de agosto de 1952 — Provvedimenti per l'esercizio ed il potenziamento di ferrovie e di altre linee di trasporto in regime di concessione Chipre
+- Entidades, compañías y empresas que prestan servicios públicos de transporte sobre la base de una autorización de conformidad con el Decreto del Ministro dei Trasporti nº 316 del 1 de diciembre de 2006 "Regolamento recante riordino dei servizi automobilistici interregionali di competenza statale"
+- Entidades, compañías y empresas que prestan servicios de transporte al público de
+conformidad con el artículo 1(4) o (15) del Regio Decreto nº 2578 del 15 de octubre de 1925 - Approvazione del testo unico della legge sull'assunzione diretta dei pubblici servizi da parte dei comuni e delle province.
+- Entidades, compañías y empresas que prestan servicios de transporte al público de conformidad con el Decreto Legislativo nº 422 del 19 de noviembre de 1997 - Conferimento alle regioni ed agli enti locali di funzioni e compiti in materia di trasporto pubblico locale, bajo los términos del artículo 4(4) de la Legge nº 59 del 15 de marzo de 1997 - modificada por el Decreto Legislativo nº 400 del 20 de septiembre de 1999, y por el artículo 45 de la Legge nº 166 del 1 de agosto de 2002.
+- Entidades, compañías y empresas que prestan servicios de transporte al público de conformidad con el artículo 113 del texto consolidado de las leyes sobre estructura de las autoridades locales, aprobado por Legge nº 267 del 18 de agosto de 2000 modificada por el artículo 35 de la Legge nº 448 del 28 de diciembre de 2001.
+- Entidades, compañías y empresas que operan sobre la base de una concesión de conformidad con los artículos 242 o 256 del Regio Decreto nº 1447 del 9 de mayo de 1912 por el que se aprueba el texto consolidado de las leyes sobre le ferrovie concesse all'industria privata, le tramvie a trazione meccanica e gli automobili.
+- Entidades, compañías y empresas y autoridades locales que operan sobre la base de una concesión de conformidad con el artículo 4 de la Legge nº 410 del 4 de junio de1949 - Concorso dello Stato per la riattivazione dei pubblici servizi di trasporto in concessione.
+- Entidades, compañías y empresas que operan sobre la base de una conceción de conformidad con el artículo 14 de la Legge nº 1221 del 2 de agosto de 1952 - Provvedimenti per l'esercizio ed il potenziamento di ferrovie e di altre linee di trasporto in regime di concessione Chipre
 Letonia
 Sujetos de derecho público y privado que prestan servicios a los pasajeros transportados en autobuses, trolebuses y/o trams al menos en las siguientes ciudades: Riga, Jurmala Liepaja, Daugavpils, Jelgava, Rezekne and Ventspils
 Lituania
-– Akcinė bendrovė "Autrolis"
-– Uņdaroji akcinė bendrovė "Vilniaus autobusai"
-– Uņdaroji akcinė bendrovė "Kauno autobusai"
-– Uņdaroji akcinė bendrovė "Vilniaus troleibusai"
-– Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan en el campo de los servicios de transporte ferroviario, tranvía, trolebús y autobús de conformidad con el Código de Transporte Terrestre de la República de Lituania (Boletín Oficial nº 119-2772, 1996).
+- Akcinė bendrovė "Autrolis"
+- Uņdaroji akcinė bendrovė "Vilniaus autobusai"
+- Uņdaroji akcinė bendrovė "Kauno autobusai"
+- Uņdaroji akcinė bendrovė "Vilniaus troleibusai"
+- Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan en el campo de los servicios de transporte ferroviario, tranvía, trolebús y autobús de conformidad con el Código de Transporte Terrestre de la República de Lituania (Boletín Oficial nº 119-2772, 1996).
 Luxemburgo
-– Chemins de fer luxembourgeois (CFL).
-– Service communal des autobus municipaux de la Ville de Luxembourg.
-– Transports intercommunaux du canton d'Esch–sur–Alzette (TICE).
-– Empresas de servicios de autobús que operan de conformidad con el Règlement grand-ducal concernant les conditions d'octroi des autorisations d'établissement et d'exploitation des servicios de transports routiers réguliers de personnes remuneres del 3 de febrero de 1978.
+- Chemins de fer luxembourgeois (CFL).
+- Service communal des autobus municipaux de la Ville de Luxembourg.
+- Transports intercommunaux du canton d'Esch-sur-Alzette (TICE).
+- Empresas de servicios de autobús que operan de conformidad con el Règlement grand-ducal concernant les conditions d'octroi des autorisations d'établissement et d'exploitation des servicios de transports routiers réguliers de personnes remuneres del 3 de febrero de 1978.
 Hungría
-– Entidades que prestan servicios de transporte público por autobús programados y de larga distancia de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 1988. évi I. törvény a közúti közlekedésről.
-– Entidades que proveen transporte público ferroviario interno de pasajeros de conformidad con artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2005. évi CLXXXIII. törvény a vasúti közlekedésről.
+- Entidades que prestan servicios de transporte público por autobús programados y de larga distancia de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 1988. évi I. törvény a közúti közlekedésről.
+- Entidades que proveen transporte público ferroviario interno de pasajeros de conformidad con artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2005. évi CLXXXIII. törvény a vasúti közlekedésről.
 Malta
-– L-Awtorita` dwar it-Trasport ta' Malta (Malta Transport Authority)
+- L-Awtorita` dwar it-Trasport ta' Malta (Malta Transport Authority)
 Países Bajos
 Entidades que prestan servicios de transporte al público de conformidad con el capítulo II (Openbaar Vervoer) del Wet Personenvervoer. Por ejemplo:
-– RET (Rotterdam)
-– HTM (Den Haag)
-– GVB (Amsterdam)
+- RET (Rotterdam)
+- HTM (Den Haag)
+- GVB (Amsterdam)
 Austria
-– Entidades autorizadas a ofrecer servicios de transporte público de conformidad con la Eisenbahngesetz, BGBl. nº 60/1957, modificada, o la Kraftfahrliniengesetz, BGBl. I nº 203/1999, modificada.
+- Entidades autorizadas a ofrecer servicios de transporte público de conformidad con la Eisenbahngesetz, BGBl. nº 60/1957, modificada, o la Kraftfahrliniengesetz, BGBl. I nº 203/1999, modificada.
 Polonia
 (1) Entidades que prestan servicios ferroviarios urbanos, que operan sobre la base de una concesión otorgada de conformidad con Ustawa z dnia 28 marca 2003 r. o transporcie kolejowym,
 (2) Entidades que prestan servicios de transporte por autobús para el público en general, que operan sobre la base de una autorización de conformidad con Ustawa z dnia 6 września 2001 r. o transporcie drogowym y entidades que prestan servicios urbanos de transporte al público en general, entre las que figuran:
-– Komunalne Przedsiębiorstwo Komunikacyjne Sp. z o.o., Białystok
-– Komunalny Zakład Komunikacyjny Sp. z o.o., Białystok
-– Miejski Zakład Komunikacji Sp. z o.o., Grudziądz
-– Miejski Zakład Komunikacji Sp. z o.o., w Zamościu
-– Miejskie Przedsiębiorstwo Komunikacyjne - Łódź Sp. z o.o.
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o. o., Lublin
-– Miejskie Przedsiębiorstwo Komunikacyjne S.A., Kraków
-– Miejskie Przedsiębiorstwo Komunikacyjne S.A., Wrocław
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., Częstochowa
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν.ν., Gniezno
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν,ν., Olsztyn
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., Radomsko
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν.ν., Wałbrzych
-– Miejskie Przedsiębiorstwo Komunikacyjne w Poznaniu Sp. z o.o.
-– Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., w Świdnicy
-– Miejskie Zakłady Komunikacyjne Sp. z o.o, Bydgoszcz
-– Miejskie Zakłady Autobusowe Sp. z o.o., Warszawa
-– Opolskie Przedsiębiorstwo Komunikacji Samochodowej S.A. w Opolu
-– Polbus - PKS Sp. z o.o., Wrocław
-– Polskie Koleje Linowe Sp. z o.o Zakopane
-– Przedsiębiorstwo Komunikacji Miejskiej Sp. z o.o., Gliwice
-– Przedsiębiorstwo Komunikacji Miejskiej Sp. z o.o. w Sosnowcu
-– Przedsiębiorstwo Komunikacji Samochodowej Leszno Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej S.A., Kłodzko
-– Przedsiębiorstwo Komunikacji Samochodowej S.A., Katowice
-– Przedsiębiorstwo Komunikacji Samochodowej w Brodnicy S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Dzierżoniowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Kluczborku Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Krośnie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Raciborzu Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Rzeszowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Strzelcach Opolskich S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej Wieluń Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Kamiennej Górze Sp. z.ν.ν.
-– Przedsiębiorstwo Komunikacji Samochodowej w Białymstoku S.A
-– Przedsiębiorstwo Komunikacji Samochodowej w Bielsku-Białej S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Bolesławcu Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Cieszynie Sp. z ν.ν.
-– Przedsiębiorstwo Przewozu Towarów Powszechnej Komunikacji Samochodowej S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Bolesławcu Sp. z ν.ν
-– Przedsiębiorstwo Komunikacji Samochodowej w Mińsku Mazowieckim S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Siedlcach S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej "SOKOŁÓW" w Sokołowie Podlaskim
+- Komunalne Przedsiębiorstwo Komunikacyjne Sp. z o.o., Białystok
+- Komunalny Zakład Komunikacyjny Sp. z o.o., Białystok
+- Miejski Zakład Komunikacji Sp. z o.o., Grudziądz
+- Miejski Zakład Komunikacji Sp. z o.o., w Zamościu
+- Miejskie Przedsiębiorstwo Komunikacyjne - Łódź Sp. z o.o.
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o. o., Lublin
+- Miejskie Przedsiębiorstwo Komunikacyjne S.A., Kraków
+- Miejskie Przedsiębiorstwo Komunikacyjne S.A., Wrocław
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., Częstochowa
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν.ν., Gniezno
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν,ν., Olsztyn
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., Radomsko
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z ν.ν., Wałbrzych
+- Miejskie Przedsiębiorstwo Komunikacyjne w Poznaniu Sp. z o.o.
+- Miejskie Przedsiębiorstwo Komunikacyjne Sp. z o.o., w Świdnicy
+- Miejskie Zakłady Komunikacyjne Sp. z o.o, Bydgoszcz
+- Miejskie Zakłady Autobusowe Sp. z o.o., Warszawa
+- Opolskie Przedsiębiorstwo Komunikacji Samochodowej S.A. w Opolu
+- Polbus - PKS Sp. z o.o., Wrocław
+- Polskie Koleje Linowe Sp. z o.o Zakopane
+- Przedsiębiorstwo Komunikacji Miejskiej Sp. z o.o., Gliwice
+- Przedsiębiorstwo Komunikacji Miejskiej Sp. z o.o. w Sosnowcu
+- Przedsiębiorstwo Komunikacji Samochodowej Leszno Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej S.A., Kłodzko
+- Przedsiębiorstwo Komunikacji Samochodowej S.A., Katowice
+- Przedsiębiorstwo Komunikacji Samochodowej w Brodnicy S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Dzierżoniowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Kluczborku Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Krośnie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Raciborzu Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Rzeszowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Strzelcach Opolskich S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej Wieluń Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Kamiennej Górze Sp. z.ν.ν.
+- Przedsiębiorstwo Komunikacji Samochodowej w Białymstoku S.A
+- Przedsiębiorstwo Komunikacji Samochodowej w Bielsku-Białej S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Bolesławcu Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Cieszynie Sp. z ν.ν.
+- Przedsiębiorstwo Przewozu Towarów Powszechnej Komunikacji Samochodowej S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Bolesławcu Sp. z ν.ν
+- Przedsiębiorstwo Komunikacji Samochodowej w Mińsku Mazowieckim S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Siedlcach S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej "SOKOŁÓW" w Sokołowie Podlaskim
 S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Garwolinie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Lubaniu Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Łukowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Wadowicach S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Staszowie Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Krakowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Dębicy S.A.,
-– Przedsiębiorstwo Komunikacji Samochodowej w Zawierciu S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Żyrardowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Pszczynie Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Płocku S.A.
-– Przedsiębiorstwo Spedycyjno-Transportowe "Transgór" Sp. z o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Stalowej Woli S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Jarosławiu S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Ciechanowie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Mławie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Nysie Sp. z, o.o.
-– Przedsiębiorstwo Komunikacji Samochodowej w Ostrowcu Świętokrzyskim S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Kielcach S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Końskich S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Jędrzejowie Spółka Akcyjna
-– Przedsiębiorstwo Komunikacji Samochodowej w Oławie Spółka Akcyjna
-– Przedsiębiorstwo Komunikacji Samochodowej w Wałbrzychu Sp. z o.o
-– Przedsiębiorstwo Komunikacji Samochodowej w Busku Zdroju S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Ostrołęce S.A.
-– Tramwaje Śląskie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Olkuszu S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Przasnyszu S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Nowym Sączu S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej Radomsko Sp. z o.o
-– Przedsiębiorstwo Komunikacji Samochodowej w Myszkowie Sp. z ν.ν.
-– Przedsiębiorstwo Komunikacji Samochodowej w Lublińcu Sp. z o.o
-– Przedsiębiorstwo Komunikacji Samochodowej w Głubczycach Sp. z o.o
-– PKS w Suwałkach S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Koninie S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Turku S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Zgorzelcu Sp. z o.o
-– PKS Nowa Sól Sp. z o.o
-– Przedsiębiorstwo Komunikacji Samochodowej Zielona Góra Sp. z o.o
-– Przedsiębiorstwo Komunikacji Samochodowej Sp. z o.o. w Przemyślu
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Koło
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Biłgoraj
-– Przedsiębiorstwo Komunikacji Samochodowej Częstochowa S.A.
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Gdańsk
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Kalisz
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Konin
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Nowy Dwór Mazowiecki
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Starogard Gdański
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Toruń
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Warszawa
-– Przedsiębiorstwo Komunikacji Samochodowej w Białymstoku S.A.
-– Przedsiębiorstwo Komunikacji Samochodowej w Cieszynie Sp, z o.o.
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Gnieźnie
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Krasnymstawie
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Olsztynie
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Ostrowie Wlkp.
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Poznaniu
-– Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Zgorzelcu Sp. z o.o.
-– Szczecińsko-Polickie Przedsiębiorstwo Komunikacyjne Sp. z o.o.
-– Tramwaje Śląskie S.A., Katowice
-– Tramwaje Warszawskie Sp. z o.o.
-– Zakład Komunikacji Miejskiej w Gdańsku Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Garwolinie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Lubaniu Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Łukowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Wadowicach S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Staszowie Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Krakowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Dębicy S.A.,
+- Przedsiębiorstwo Komunikacji Samochodowej w Zawierciu S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Żyrardowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Pszczynie Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Płocku S.A.
+- Przedsiębiorstwo Spedycyjno-Transportowe "Transgór" Sp. z o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Stalowej Woli S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Jarosławiu S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Ciechanowie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Mławie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Nysie Sp. z, o.o.
+- Przedsiębiorstwo Komunikacji Samochodowej w Ostrowcu Świętokrzyskim S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Kielcach S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Końskich S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Jędrzejowie Spółka Akcyjna
+- Przedsiębiorstwo Komunikacji Samochodowej w Oławie Spółka Akcyjna
+- Przedsiębiorstwo Komunikacji Samochodowej w Wałbrzychu Sp. z o.o
+- Przedsiębiorstwo Komunikacji Samochodowej w Busku Zdroju S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Ostrołęce S.A.
+- Tramwaje Śląskie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Olkuszu S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Przasnyszu S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Nowym Sączu S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej Radomsko Sp. z o.o
+- Przedsiębiorstwo Komunikacji Samochodowej w Myszkowie Sp. z ν.ν.
+- Przedsiębiorstwo Komunikacji Samochodowej w Lublińcu Sp. z o.o
+- Przedsiębiorstwo Komunikacji Samochodowej w Głubczycach Sp. z o.o
+- PKS w Suwałkach S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Koninie S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Turku S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Zgorzelcu Sp. z o.o
+- PKS Nowa Sól Sp. z o.o
+- Przedsiębiorstwo Komunikacji Samochodowej Zielona Góra Sp. z o.o
+- Przedsiębiorstwo Komunikacji Samochodowej Sp. z o.o. w Przemyślu
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Koło
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Biłgoraj
+- Przedsiębiorstwo Komunikacji Samochodowej Częstochowa S.A.
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Gdańsk
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Kalisz
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Konin
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Nowy Dwór Mazowiecki
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Starogard Gdański
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Toruń
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej, Warszawa
+- Przedsiębiorstwo Komunikacji Samochodowej w Białymstoku S.A.
+- Przedsiębiorstwo Komunikacji Samochodowej w Cieszynie Sp, z o.o.
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Gnieźnie
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Krasnymstawie
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Olsztynie
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Ostrowie Wlkp.
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Poznaniu
+- Przedsiębiorstwo Państwowej Komunikacji Samochodowej w Zgorzelcu Sp. z o.o.
+- Szczecińsko-Polickie Przedsiębiorstwo Komunikacyjne Sp. z o.o.
+- Tramwaje Śląskie S.A., Katowice
+- Tramwaje Warszawskie Sp. z o.o.
+- Zakład Komunikacji Miejskiej w Gdańsku Sp. z o.o.
 Portugal
-– Metropolitano de Lisboa, E.P., de conformidad con el Decreto-Lei nº 439/78 do 30 de Dezembro de 1978
-– Autoridades locales, servicios de autoridades locales y empresas de autoridades locales de conformidad con la Lei nº 58/98 do 18 de Agosto 1998, que prestan servicios de transporte de conformidad con la Lei nº 159/99 do 14 de Septembro 1999
-– Autoridades públicas y empresas públicas que prestan servicios ferroviarios de conformidad con la Lei nº 10/90 do 17 de Março 1990
-– Entidades que prestan servicio de transporte público de conformidad con el artículo 98 del Regulamento de Transportes em Automóveis (Decreto nº 37272 do 31 de Dezembro 1948)
-– Entidades que prestan servicios de transporte público de conformidad con la Lei nº 688/73 do 21 de Dezembro 1973
-– Entidades que prestan servicios de transporte público de conformidad con el Decreto-Lei nº 38144 do 31 de Dezembro 1950
-– Metro do Porto, S.A., de conformidad con el Decreto-Lei nº 394-A/98 do 15 de Dezembro 1998, modificado por Decreto-Lei nº 261/2001 do 26 September 2001
-– Normetro, S.A., de conformidad con el Decreto-Lei nº 394-A/98 do 15 de Dezembro 1998, modificado por Decreto-Lei nº 261/2001 do 26 de Septembro 2001
-– Metropolitano Ligeiro de Mirandela, S.A., de conformidad con el Decreto-Lei nº 24/95 do 8 de Fevereiro 1995
-– Metro do Mondego, S.A., de conformidad con el Decreto-Lei nº 10/2002 do 24 de Janeiro 2002
-– Metro Transportes do Sul, S.A., de conformidad con el Decreto-Lei nº 337/99 do 24 de Agosto 1999
-– Autoridades locales y empresas de autoridades locales que prestan servicios de transporte de conformidad con la Lei nº 159/99 do 14 de Septembro 1999
+- Metropolitano de Lisboa, E.P., de conformidad con el Decreto-Lei nº 439/78 do 30 de Dezembro de 1978
+- Autoridades locales, servicios de autoridades locales y empresas de autoridades locales de conformidad con la Lei nº 58/98 do 18 de Agosto 1998, que prestan servicios de transporte de conformidad con la Lei nº 159/99 do 14 de Septembro 1999
+- Autoridades públicas y empresas públicas que prestan servicios ferroviarios de conformidad con la Lei nº 10/90 do 17 de Março 1990
+- Entidades que prestan servicio de transporte público de conformidad con el artículo 98 del Regulamento de Transportes em Automóveis (Decreto nº 37272 do 31 de Dezembro 1948)
+- Entidades que prestan servicios de transporte público de conformidad con la Lei nº 688/73 do 21 de Dezembro 1973
+- Entidades que prestan servicios de transporte público de conformidad con el Decreto-Lei nº 38144 do 31 de Dezembro 1950
+- Metro do Porto, S.A., de conformidad con el Decreto-Lei nº 394-A/98 do 15 de Dezembro 1998, modificado por Decreto-Lei nº 261/2001 do 26 September 2001
+- Normetro, S.A., de conformidad con el Decreto-Lei nº 394-A/98 do 15 de Dezembro 1998, modificado por Decreto-Lei nº 261/2001 do 26 de Septembro 2001
+- Metropolitano Ligeiro de Mirandela, S.A., de conformidad con el Decreto-Lei nº 24/95 do 8 de Fevereiro 1995
+- Metro do Mondego, S.A., de conformidad con el Decreto-Lei nº 10/2002 do 24 de Janeiro 2002
+- Metro Transportes do Sul, S.A., de conformidad con el Decreto-Lei nº 337/99 do 24 de Agosto 1999
+- Autoridades locales y empresas de autoridades locales que prestan servicios de transporte de conformidad con la Lei nº 159/99 do 14 de Septembro 1999
 Rumanía
-– S.C. de transport cu metroul Bucureşti - "Metrorex" SA
-– Regii autonome locale de transport urban de călători
+- S.C. de transport cu metroul Bucureşti - "Metrorex" SA
+- Regii autonome locale de transport urban de călători
 Eslovenia
 Compañías que prestan servicio público urbano de transporte por autobús a Zakon o
 prevozih v cestnem prometu (Uradni list RS, 72/94, 54/96, 48/98 in 65/99).
@@ -5567,169 +5567,169 @@ Mat. St. | Naziv | Pońtna St. | Kraj
 5544378 | KAM-BUS Druņba Za Prevoz Potnikov, Turizem In Vzdrņevanje Vozil, D.D. Kamnik | 1241 | KAMNIK
 5880190 | MPOV Storitve In Trgovina D.O.O. Vinica | 8344 | VINICA
 Eslovaquia
-– Transportistas que operan, sobre la base de una licencia, transporte público de pasajeros en tranvía, trolebús, especial o por cable de conformidad con el artículo 23 de la ley nº 164/1996 Coll. con la redacción de las leyes nº 58/1997 Coll., nº 260/2001 Coll., nº 416/2001 Coll. y nº 114/2004 Coll.
-– Transportistas que operan transporte por autobús local regular para el público en el territorio de Eslovaquia, o en parte del territorio de un estado extranjero también, o en determinada parte del territorio de Eslovaquia sobre la base de un permiso para operar el transporte de autobús sobre la base del permiso de transporte para la ruta específica, que es otorgado de conformidad con la ley nº 168/1996 Coll. en la redacción de las leyes nº 386/1996 Coll., nº 58/1997 Coll., nº 340/2000 Coll., nº 416/2001 Coll., nº 506/2002 Coll., nº 534/2003 Coll. y nº 114/2004 Coll.
+- Transportistas que operan, sobre la base de una licencia, transporte público de pasajeros en tranvía, trolebús, especial o por cable de conformidad con el artículo 23 de la ley nº 164/1996 Coll. con la redacción de las leyes nº 58/1997 Coll., nº 260/2001 Coll., nº 416/2001 Coll. y nº 114/2004 Coll.
+- Transportistas que operan transporte por autobús local regular para el público en el territorio de Eslovaquia, o en parte del territorio de un estado extranjero también, o en determinada parte del territorio de Eslovaquia sobre la base de un permiso para operar el transporte de autobús sobre la base del permiso de transporte para la ruta específica, que es otorgado de conformidad con la ley nº 168/1996 Coll. en la redacción de las leyes nº 386/1996 Coll., nº 58/1997 Coll., nº 340/2000 Coll., nº 416/2001 Coll., nº 506/2002 Coll., nº 534/2003 Coll. y nº 114/2004 Coll.
 Por ejemplo:
-– Dopravný podnik Bratislava, a.s.
-– Dopravný podnik mesta Końice, a.s.
-– Dopravný podnik mesta Preńov, a.s.
-– Dopravný podnik mesta Ņilina, a.s.
+- Dopravný podnik Bratislava, a.s.
+- Dopravný podnik mesta Końice, a.s.
+- Dopravný podnik mesta Preńov, a.s.
+- Dopravný podnik mesta Ņilina, a.s.
 Finlandia
 Entidades que prestan servicios de transporte regular en autobuses bajo un permiso especial o exclusivo de conformidad con la Laki luvanvaraisesta henkilöliikenteestä tiellä/ lagen om tillståndspliktig persontrafik på väg (343/1991) y autoridades municipales de transporte y empresas públicas que prestan servicios de trasporte por autobús, tren o tren subterráneo, o mantienen una red con el propósito de proveer dichos servicios de transporte.
 Suecia
 - Entidades que operan servicios ferroviarios o de tranvía de conformidad con la Lagen (1997:734) om ansvar för viss kollektiv persontrafik y lagen (1990:1157) säkerhet vid tunnelbana och spårväg.
 - Entidades públicas o privadas que prestan servicio de trolebús o autobús de conformidad con la Lagen (1997:734) om ansvar för viss kollektiv persontrafik y yrkestrafiklagen (1998:490).
 Reino Unido
-– London Regional Transport
-– London Underground Limited
-– Transport for London
-– Una subsidaria del Transport for London dentro del ámbito de la sección 424(1) de la Greater London Authority Act 1999
-– Strathclyde Passenger Transport Executive
-– Greater Manchester Passenger Transport Executive
-– Tyne and Wear Passenger Transport Executive
-– Brighton Borough Council
-– South Yorkshire Passenger Transport Executive
-– South Yorkshire Supertram Limited
-– Blackpool Transport Services Limited
-– Conwy County Borough Council
-– Una persona que provee un servicio local en Londres definido en la sección 179(1) de la Greater London Authority Act 1999 (un servicio de autobús) de conformidad con un acuerdo suscrito por Transport for London bajo la sección 156(2) de esa Ley o de conformidad con un acuerdo de transporte subsidiario definido por la sección 169 de esa Ley
-– Northern Ireland Transport Holding Company
-– Una persona que posee una licencia de servicio por vía terrestre bajo la sección 4(1)
+- London Regional Transport
+- London Underground Limited
+- Transport for London
+- Una subsidaria del Transport for London dentro del ámbito de la sección 424(1) de la Greater London Authority Act 1999
+- Strathclyde Passenger Transport Executive
+- Greater Manchester Passenger Transport Executive
+- Tyne and Wear Passenger Transport Executive
+- Brighton Borough Council
+- South Yorkshire Passenger Transport Executive
+- South Yorkshire Supertram Limited
+- Blackpool Transport Services Limited
+- Conwy County Borough Council
+- Una persona que provee un servicio local en Londres definido en la sección 179(1) de la Greater London Authority Act 1999 (un servicio de autobús) de conformidad con un acuerdo suscrito por Transport for London bajo la sección 156(2) de esa Ley o de conformidad con un acuerdo de transporte subsidiario definido por la sección 169 de esa Ley
+- Northern Ireland Transport Holding Company
+- Una persona que posee una licencia de servicio por vía terrestre bajo la sección 4(1)
 de la Transport Act (Northern Irland) 1967 que le autoriza a prestar servicio regular dentro del ámbito de la licencia.
 IV. PUERTOS MARÍTIMOS O FLUVIALES U OTRAS TERMINALES
 Bélgica
-– Gemeentelijk Havenbedrijf van Antwerpen
-– Havenbedrijf van Gent
-– Maatschappij der Brugse Zeevaartinrichtigen
-– Port autonome de Charleroi
-– Port autonome de Namur
-– Port autonome de Liège
-– Port autonome du Centre et de l'Ouest
-– Société régionale du Port de Bruxelles/Gewestelijke Vennootschap van de Haven van Brussel
-– Waterwegen en Zeekanaal
-– De Scheepvaart
+- Gemeentelijk Havenbedrijf van Antwerpen
+- Havenbedrijf van Gent
+- Maatschappij der Brugse Zeevaartinrichtigen
+- Port autonome de Charleroi
+- Port autonome de Namur
+- Port autonome de Liège
+- Port autonome du Centre et de l'Ouest
+- Société régionale du Port de Bruxelles/Gewestelijke Vennootschap van de Haven van Brussel
+- Waterwegen en Zeekanaal
+- De Scheepvaart
 Bulgaria
 ДП "Пристанищна инфраструктура"
 Entidades que, mediante derechos especiales o exclusivos, explotan puertos de transporte público de importancia nacional o partes de los mismos, relacionadas en el anexo 1 del artículo 103a de la Закона за морските пространства, вътрешните водни пътища и пристанищата на Република България (обн., ДВ, бр.12/11.02.2000):
-– "Пристанище Варна" ЕАД
-– "Порт Балчик" АД
-– "БМ Порт" АД
-– "Пристанище Бургас" ЕАД
-– "Пристанищен комплекс – Русе" ЕАД
-– "Пристанищен комплекс – Лом" ЕАД
-– "Пристанище Видин" ЕООД
-– "Драгажен флот – Истър" АД
-– "Дунавски индустриален парк" АД
+- "Пристанище Варна" ЕАД
+- "Порт Балчик" АД
+- "БМ Порт" АД
+- "Пристанище Бургас" ЕАД
+- "Пристанищен комплекс - Русе" ЕАД
+- "Пристанищен комплекс - Лом" ЕАД
+- "Пристанище Видин" ЕООД
+- "Драгажен флот - Истър" АД
+- "Дунавски индустриален парк" АД
 Entidades que, mediante derechos especiales o exclusivos, explotan puertos de transporte público de importancia nacional o partes de los mismos, relacionadas en el anexo 2 del artículo 103a de la Закона за морските пространства, вътрешните водни пътища и пристанищата на Република България (обн., ДВ, бр.12/11.02.2000):
-– "Фиш Порт" АД
-– Кораборемонтен завод "Порт - Бургас" АД
-– "Либърти металс груп" АД
-– "Трансстрой – Бургас" АД
-– "Одесос ПБМ" АД
-– "Поддържане чистотата на морските води" АД
-– "Поларис 8" ООД
-– "Лесил" АД
-– "Ромпетрол – България" АД
-– "Булмаркет – ДМ" ООД
-– "Свободна зона – Русе" ЕАД
-– "Дунавски драгажен флот" – АД
-– "Нарен" ООД
-– "ТЕЦ Свилоза" АД
-– НЕК ЕАД – клон "АЕЦ – Белене"
-– "Нафтекс Петрол" ЕООД
-– "Фериботен комплекс" АД
-– "Дунавски драгажен флот Дуним" АД
-– "ОМВ България" ЕООД
-– СО МАТ АД – клон Видин
-– "Свободна зона – Видин" ЕАД
-– "Дунавски драгажен флот Видин"
-– "Дунав турс" АД
-– "Меком" ООД
-– "Дубъл Ве Ко" ЕООД
+- "Фиш Порт" АД
+- Кораборемонтен завод "Порт - Бургас" АД
+- "Либърти металс груп" АД
+- "Трансстрой - Бургас" АД
+- "Одесос ПБМ" АД
+- "Поддържане чистотата на морските води" АД
+- "Поларис 8" ООД
+- "Лесил" АД
+- "Ромпетрол - България" АД
+- "Булмаркет - ДМ" ООД
+- "Свободна зона - Русе" ЕАД
+- "Дунавски драгажен флот" - АД
+- "Нарен" ООД
+- "ТЕЦ Свилоза" АД
+- НЕК ЕАД - клон "АЕЦ - Белене"
+- "Нафтекс Петрол" ЕООД
+- "Фериботен комплекс" АД
+- "Дунавски драгажен флот Дуним" АД
+- "ОМВ България" ЕООД
+- СО МАТ АД - клон Видин
+- "Свободна зона - Видин" ЕАД
+- "Дунавски драгажен флот Видин"
+- "Дунав турс" АД
+- "Меком" ООД
+- "Дубъл Ве Ко" ЕООД
 República Checa
 Todas las autoridades contratantes en los sectores que explotan una determinada área geográfica para el propósito de la prestación y operación de puertos marítimos o fluviales u otras terminales de transporte aéreo, marítimo o fluvial (regulados por la sección 4, apartado 1, letra i) de la Ley nº 137/2006 Coll. de Contratos Públicos, modificada).
 Ejemplos de autoridades contratantes:
-– České přístavy, a.s.
+- České přístavy, a.s.
 Dinamarca
-– Puertos definidos en el artículo 1 de la Lov om havne, ver Act nº 326 of 28 May 1999
+- Puertos definidos en el artículo 1 de la Lov om havne, ver Act nº 326 of 28 May 1999
 Alemania
 - Puertos marítimos propiedad total o parcial de las autoridades territoriales (Länder, Kreise Gemeinden).
-– Puertos fluviales sometidos a la Hafenordnung de conformidad con las Wassergesetze de los estados federados
+- Puertos fluviales sometidos a la Hafenordnung de conformidad con las Wassergesetze de los estados federados
 Estonia
-– Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.02.2007, 15, 76) y al artículo 14 de la Ley de Competencia (RT I 2001, 56 332):
-– AS Saarte Liinid;
-– AS Tallinna Sadam
+- Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.02.2007, 15, 76) y al artículo 14 de la Ley de Competencia (RT I 2001, 56 332):
+- AS Saarte Liinid;
+- AS Tallinna Sadam
 Irlanda
-– Puertos que operan de conformidad con las Harbours Acts 1946 a 2000
-– Puerto de Rosslare Harbour que opera de conformidad con las Fishguard and Rosslare Railways and Harbours Acts 1899
+- Puertos que operan de conformidad con las Harbours Acts 1946 a 2000
+- Puerto de Rosslare Harbour que opera de conformidad con las Fishguard and Rosslare Railways and Harbours Acts 1899
 Grecia
-– 'Οξγƀληƃκόο Ληκέλνο Βόινπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Β. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο ΔιƂπƃίλƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Δ. Α.Δ.'), de conformidad con la Ley nº2932/01
-– 'Οξγƀληƃκόο Ληκέλνο ΗγνπκƂλίƄƃƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΗŽ. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο ΗξƀθιƂίνπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Η. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο Κƀβάιƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Κ. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο Κέξθπξƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΚΔ. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο ΠƀƄξώλ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΠΑ. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο Λƀπξίνπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Λ. Α.Δ.'), de conformidad con la Ley nº 2932/01
-– 'Οξγƀληƃκόο Ληκέλνο Ρƀƅήλƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Ρ. Α.Δ'), de conformidad con la Ley nº 2932/01
-– (Autoridades portuarias)
-– Otros puertos, ΓεκνƄηθά θƀη Ννκƀξρηƀθά ΣƀκƂίƀ (Puertos Municipales y de Prefecturas) regidos por Decreto Presidencial nº 649/1977, Ley 2987/02, Decreto Presidencial 362/97 y Ley 2738/99
+- 'Οξγƀληƃκόο Ληκέλνο Βόινπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Β. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο ΔιƂπƃίλƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Δ. Α.Δ.'), de conformidad con la Ley nº2932/01
+- 'Οξγƀληƃκόο Ληκέλνο ΗγνπκƂλίƄƃƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΗZ. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο ΗξƀθιƂίνπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Η. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο Κƀβάιƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Κ. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο Κέξθπξƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΚΔ. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο ΠƀƄξώλ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.ΠΑ. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο Λƀπξίνπ Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Λ. Α.Δ.'), de conformidad con la Ley nº 2932/01
+- 'Οξγƀληƃκόο Ληκέλνο Ρƀƅήλƀο Αλώλπκε ΔƄƀηξƂίƀ' ('Ο.Λ.Ρ. Α.Δ'), de conformidad con la Ley nº 2932/01
+- (Autoridades portuarias)
+- Otros puertos, ΓεκνƄηθά θƀη Ννκƀξρηƀθά ΣƀκƂίƀ (Puertos Municipales y de Prefecturas) regidos por Decreto Presidencial nº 649/1977, Ley 2987/02, Decreto Presidencial 362/97 y Ley 2738/99
 España
-– Ente público Puertos del Estado
-– Autoridad Portuaria de Alicante
-– Autoridad Portuaria de Almería – Motril
-– Autoridad Portuaria de Avilés
-– Autoridad Portuaria de la Bahía de Algeciras
-– Autoridad Portuaria de la Bahía de Cádiz
-– Autoridad Portuaria de Baleares
-– Autoridad Portuaria de Barcelona
-– Autoridad Portuaria de Bilbao
-– Autoridad Portuaria de Cartagena
-– Autoridad Portuaria de Castellón
-– Autoridad Portuaria de Ceuta
-– Autoridad Portuaria de Ferrol – San Cibrao
-– Autoridad Portuaria de Gijón
-– Autoridad Portuaria de Huelva
-– Autoridad Portuaria de Las Palmas
-– Autoridad Portuaria de Málaga
-– Autoridad Portuaria de Marín y Ría de Pontevedra
-– Autoridad Portuaria de Melilla
-– Autoridad Portuaria de Pasajes
-– Autoridad Portuaria de Santa Cruz de Tenerife
-– Autoridad Portuaria de Santander
-– Autoridad Portuaria de Sevilla
-– Autoridad Portuaria de Tarragona
-– Autoridad Portuaria de Valencia
-– Autoridad Portuaria de Vigo
-– Autoridad Portuaria de Villagarcía de Arousa
-– Otras autoridades portuarias de las "Comunidades Autónomas" de Andalucía, Asturias, Baleares, Canarias, Cantabria, Cataluña, Galicia, Murcia, País Vasco y Valencia
+- Ente público Puertos del Estado
+- Autoridad Portuaria de Alicante
+- Autoridad Portuaria de Almería - Motril
+- Autoridad Portuaria de Avilés
+- Autoridad Portuaria de la Bahía de Algeciras
+- Autoridad Portuaria de la Bahía de Cádiz
+- Autoridad Portuaria de Baleares
+- Autoridad Portuaria de Barcelona
+- Autoridad Portuaria de Bilbao
+- Autoridad Portuaria de Cartagena
+- Autoridad Portuaria de Castellón
+- Autoridad Portuaria de Ceuta
+- Autoridad Portuaria de Ferrol - San Cibrao
+- Autoridad Portuaria de Gijón
+- Autoridad Portuaria de Huelva
+- Autoridad Portuaria de Las Palmas
+- Autoridad Portuaria de Málaga
+- Autoridad Portuaria de Marín y Ría de Pontevedra
+- Autoridad Portuaria de Melilla
+- Autoridad Portuaria de Pasajes
+- Autoridad Portuaria de Santa Cruz de Tenerife
+- Autoridad Portuaria de Santander
+- Autoridad Portuaria de Sevilla
+- Autoridad Portuaria de Tarragona
+- Autoridad Portuaria de Valencia
+- Autoridad Portuaria de Vigo
+- Autoridad Portuaria de Villagarcía de Arousa
+- Otras autoridades portuarias de las "Comunidades Autónomas" de Andalucía, Asturias, Baleares, Canarias, Cantabria, Cataluña, Galicia, Murcia, País Vasco y Valencia
 Francia
-– Port autonome de Paris establecido de conformidad con la Loi n°68-917 relative au port autonome de Paris del 24 de octubre de 1968
-– Port autonome de Strasbourg establecido de conformidad con la convention entre l'Etat et la ville de Strasbourg relative à la construction du port rhénan de Strasbourg et à l'exécution de travaux d'extension de ce port del 20 de mayo de 1923, aprobada por Ley del 26 de abril de 1924
-– Puertos autónomos que operan de conformidad con los artículos L. 111-1 y siguientes del code des ports maritimes, dotadas de personalidad jurídica:
-– Port autonome de Bordeaux
-– Port autonome de Dunkerque
-– Port autonome de La Rochelle
-– Port autonome du Havre
-– Port autonome de Marseille
-– Port autonome de Nantes-Saint-Nazaire
-– Port autonome de Pointe-à-Pitre
-– Port autonome de Rouen
-– Puertos sin personalidad jurídica, propiedad del Estados (décret n°2006-330 del 20 de marzo de 2006 fixant la liste des ports des départements d'outre-mer exclus du transfert prévu à l'article 30 de la loi du 13 août 2004 relative aux libertés et responsabilités locales), cuya administración haya sido concedida a las cámaras locales de comercio e industria:
-– Port de Fort de France (Martinique)
-– Port de Dégrad des Cannes (Guyane)
-– Port-Réunion (île de la Réunion)
-– Ports de Saint-Pierre et Miquelon
-– Puertos sin personalidad jurídica cuya propiedad ha sido transferida a las autorices regionales o locales y su administración haya sido concedida a las cámaras locales de comercio e industria (artículo 30 de la Loi n°2004-809 del 13 de agosto de 2004 relative aux libertés et responsabilités locales, modificada por la Loi n°2006-1771 del 30 de diciembre de 2006):
-– Port de Calais
-– Port de Boulogne-sur-Mer
-– Port de Nice
-– Port de Bastia
-– Port de Sète
-– Port de Lorient
-– Port de Cannes
-– Port de Villefranche-sur-Mer
-– Voies navigables de France, ente público sujeto al artículo 124 de la Loi n°90-1168 del 29 de diciembre de 1990, modificada
+- Port autonome de Paris establecido de conformidad con la Loi n°68-917 relative au port autonome de Paris del 24 de octubre de 1968
+- Port autonome de Strasbourg establecido de conformidad con la convention entre l'Etat et la ville de Strasbourg relative à la construction du port rhénan de Strasbourg et à l'exécution de travaux d'extension de ce port del 20 de mayo de 1923, aprobada por Ley del 26 de abril de 1924
+- Puertos autónomos que operan de conformidad con los artículos L. 111-1 y siguientes del code des ports maritimes, dotadas de personalidad jurídica:
+- Port autonome de Bordeaux
+- Port autonome de Dunkerque
+- Port autonome de La Rochelle
+- Port autonome du Havre
+- Port autonome de Marseille
+- Port autonome de Nantes-Saint-Nazaire
+- Port autonome de Pointe-à-Pitre
+- Port autonome de Rouen
+- Puertos sin personalidad jurídica, propiedad del Estados (décret n°2006-330 del 20 de marzo de 2006 fixant la liste des ports des départements d'outre-mer exclus du transfert prévu à l'article 30 de la loi du 13 août 2004 relative aux libertés et responsabilités locales), cuya administración haya sido concedida a las cámaras locales de comercio e industria:
+- Port de Fort de France (Martinique)
+- Port de Dégrad des Cannes (Guyane)
+- Port-Réunion (île de la Réunion)
+- Ports de Saint-Pierre et Miquelon
+- Puertos sin personalidad jurídica cuya propiedad ha sido transferida a las autorices regionales o locales y su administración haya sido concedida a las cámaras locales de comercio e industria (artículo 30 de la Loi n°2004-809 del 13 de agosto de 2004 relative aux libertés et responsabilités locales, modificada por la Loi n°2006-1771 del 30 de diciembre de 2006):
+- Port de Calais
+- Port de Boulogne-sur-Mer
+- Port de Nice
+- Port de Bastia
+- Port de Sète
+- Port de Lorient
+- Port de Cannes
+- Port de Villefranche-sur-Mer
+- Voies navigables de France, ente público sujeto al artículo 124 de la Loi n°90-1168 del 29 de diciembre de 1990, modificada
 Italia
 - Puertos estatales (Porti statali) y otros puertos operados por Capitaneria di Porto de conformidad con el Codice della navigazione, Regio Decreto nº 327 del 30 de marzo de 1942
 - Puertos autónomos (enti portuali) establecidos por leyes especiales de conformidad con el artículo 19 del Codice della navigazione, Regio Decreto nº 327 del 30 de marzo de 1942
@@ -5737,57 +5737,57 @@ Chipre
 Η Αξρή Ληκέλωλ Κύπξνπ creado por la πƂξί Αξρήο Ληκέλωλ Κύπξνπ Νόκν Ƅνπ 1973.
 Letonia
 Autoridades, que regulan puertos de conformidad con la ley "Likumu par ostām":
-– Rīgas brīvostas pārvalde
-– Ventspils brīvostas pārvalde
-– Liepājas speciālas ekonomiskās zona pārvalde
-– Salacgrīvas ostas pārvalde
-– Skultes ostas pārvalde
-– Lielupes ostas pārvalde
-– Engures ostas pārvalde
-– Mērsraga ostas pārvalde
-– Pāvilostas ostas pārvalde
-– Rojas ostas pārvalde
+- Rīgas brīvostas pārvalde
+- Ventspils brīvostas pārvalde
+- Liepājas speciālas ekonomiskās zona pārvalde
+- Salacgrīvas ostas pārvalde
+- Skultes ostas pārvalde
+- Lielupes ostas pārvalde
+- Engures ostas pārvalde
+- Mērsraga ostas pārvalde
+- Pāvilostas ostas pārvalde
+- Rojas ostas pārvalde
 Otras instituciones contratantes de conformidad con la ley "Par iepirkumu sabiedrisko pakalpojumu sniedzēju vajadzībām" y que operan los puertos de conformidad con la ley "Likumu par ostām".
 Lituania
-– Empresa estatal Klaipėda State Sea Port Administration, sometida a la Ley sobre la Klaipėda State Sea Port Administration de la República de Lituania (Boletín Oficial nº 53-1245, 1996);
-– Empresa estatal Vidaus vandens kelių direkcija, sometida al Código del transporte
+- Empresa estatal Klaipėda State Sea Port Administration, sometida a la Ley sobre la Klaipėda State Sea Port Administration de la República de Lituania (Boletín Oficial nº 53-1245, 1996);
+- Empresa estatal Vidaus vandens kelių direkcija, sometida al Código del transporte
 por vías fluviales de la República de Lituania (Boletín Oficial nº 105-2393, 1996);
-– Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que funcionan, en el campo de puertos marítimos o fluviales u otras terminales, de conformidad con el Código del transporte por vías fluviales de la República de Lituania).
+- Otras entidades de conformidad con los requerimientos del artículo 70, apartados 1 y 2, de la Ley sobre Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que funcionan, en el campo de puertos marítimos o fluviales u otras terminales, de conformidad con el Código del transporte por vías fluviales de la República de Lituania).
 Luxemburgo
-– Port de Mertert, establecido y que opera de conformidad con la Loi relative à l'aménagement et à l'exploitation d'un port fluvial sur la Moselle de 22 de julio de 1963, modificada.
+- Port de Mertert, establecido y que opera de conformidad con la Loi relative à l'aménagement et à l'exploitation d'un port fluvial sur la Moselle de 22 de julio de 1963, modificada.
 Hungría
-– Puertos que operan de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2000. évi XLII. törvény a vízi közlekedésről.
+- Puertos que operan de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2000. évi XLII. törvény a vízi közlekedésről.
 Malta
-– L-Awtorita' Marittima ta' Malta (Malta Maritime Authority)
+- L-Awtorita' Marittima ta' Malta (Malta Maritime Authority)
 Países Bajos
 Entidades contratantes en los campos de puertos marítimos, puertos fluviales, otras terminales u otro equipamiento de terminales. Por ejemplo:
-– Havenbedrijf Rotterdam
+- Havenbedrijf Rotterdam
 Austria
-– Puerto fluviales propiedad total o parcial de estados federados o municipalidades.
+- Puerto fluviales propiedad total o parcial de estados federados o municipalidades.
 Polonia
 Entidades establecidas sobre la base de la Ustawa z dnia 20 grudnia 1996 r. o portach i przystaniach morskich, entre otras:
-– Zarząd Morskiego Portu Gdańsk S.A,
-– Zarząd Morskiego Portu Gdynia S.A.
-– Zarząd Portów Morskich Szczecin i Świnoujście S.A.
-– Zarząd Portu Morskiego Darłowo Sp. z o.o.
-– Zarząd Portu Morskiego Elbląg Sp. z o.o.
-– Zarząd Portu Morskiego Kołobrzeg Sp. z o.o.
-– Przedsiębiorstwo Państwowe Polska Żegluga Morska
+- Zarząd Morskiego Portu Gdańsk S.A,
+- Zarząd Morskiego Portu Gdynia S.A.
+- Zarząd Portów Morskich Szczecin i Świnoujście S.A.
+- Zarząd Portu Morskiego Darłowo Sp. z o.o.
+- Zarząd Portu Morskiego Elbląg Sp. z o.o.
+- Zarząd Portu Morskiego Kołobrzeg Sp. z o.o.
+- Przedsiębiorstwo Państwowe Polska Żegluga Morska
 Portugal
-– APDL — Administração dos Portos do Douro e Leixões, S.A., de conformidad con el Decreto-Lei nº 335/98 do 3 de Novembro 1998.
-– APL — Administração do Porto de Lisboa, S.A., de conformidad con el Decreto-Lei nº 336/98 do 3 de Novembro 1998.
-– APS — Administração do Porto de Sines, S.A., de conformidad con el Decreto-Lei nº 337/98 do 3 de Novembro 1998.
-– APSS — Administração dos Portos de Setúbal e Sesimbra, S.A., de conformidad com el Decreto-Lei nº 338/98 do 3 de Novembro 1998.
-– APA — Administração do Porto de Aveiro, S.A., de conformidad con el Decreto-Lei nº 339/98 do 3 de Novembro 1998.
-– Instituto Portuário dos Transportes Marítimos, I.P. (IPTM, I.P.), de conformidad com el Decreto-Lei nº 146/2007, do 27 de Abril 2007.
+- APDL - Administração dos Portos do Douro e Leixões, S.A., de conformidad con el Decreto-Lei nº 335/98 do 3 de Novembro 1998.
+- APL - Administração do Porto de Lisboa, S.A., de conformidad con el Decreto-Lei nº 336/98 do 3 de Novembro 1998.
+- APS - Administração do Porto de Sines, S.A., de conformidad con el Decreto-Lei nº 337/98 do 3 de Novembro 1998.
+- APSS - Administração dos Portos de Setúbal e Sesimbra, S.A., de conformidad com el Decreto-Lei nº 338/98 do 3 de Novembro 1998.
+- APA - Administração do Porto de Aveiro, S.A., de conformidad con el Decreto-Lei nº 339/98 do 3 de Novembro 1998.
+- Instituto Portuário dos Transportes Marítimos, I.P. (IPTM, I.P.), de conformidad com el Decreto-Lei nº 146/2007, do 27 de Abril 2007.
 Rumanía
-– Compania Naţională "Administraţia Porturilor Maritime" SA Constanţa
-– Compania Naţională "Administraţia Canalelor Navigabile SA"
-– Compania Naţională de Radiocomunicaţii Navale "RADIONAV" SA
-– Regia Autonomă "Administraţia Fluvială a Dunării de Jos"
-– Compania Naţională "Administraţia Porturilor Dunării Maritime"
-– Compania Naţională "Administraţia Porturilor Dunării Fluviale" SA
-– Porturile: Sulina, Brăila, Zimnicea şi Turnul-Măgurele
+- Compania Naţională "Administraţia Porturilor Maritime" SA Constanţa
+- Compania Naţională "Administraţia Canalelor Navigabile SA"
+- Compania Naţională de Radiocomunicaţii Navale "RADIONAV" SA
+- Regia Autonomă "Administraţia Fluvială a Dunării de Jos"
+- Compania Naţională "Administraţia Porturilor Dunării Maritime"
+- Compania Naţională "Administraţia Porturilor Dunării Fluviale" SA
+- Porturile: Sulina, Brăila, Zimnicea şi Turnul-Măgurele
 Eslovenia
 Puertos marítimos propiedad total o parcial del Estado que prestan un servicio público económico de conformidad con Pomorski Zakonik (Uradni list RS, 56/99). Mat. Ńt. Naziv Pońtna Ńt. Kraj
 Mat. St. | Naziv | Pońtna Ńt. | Kraj
@@ -5796,163 +5796,163 @@ Mat. St. | Naziv | Pońtna Ńt. | Kraj
 Eslovaquia
 Entidades que operan puertos fluviales no públicos para transporte de mercancías por autorización concedida por una autoridad estatal o entidades establecidas por una autoridad estatal para operar puertos públicos en ríos de conformidad con la ley nº 338/2000 Coll. según la redacción de las leyes nº 57/2001 Coll. y nº 580/2003 Coll.
 Finlandia
-– Puertos que operan de conformidad con la Laki kunnallisista satamajärjestyksistä ja liikennemaksuista/lagen om kommunala hamnanordningar och trafikavgifter (955/1976) y puertos establecidos por licencia según la sección 3 de laki yksityisistä yleisistä satamista/lagen om privata allmänna hamnar (1156/1994).
-– Saimaan kanavan hoitokunta/Förvaltningsnämnden för Saima kanal.
+- Puertos que operan de conformidad con la Laki kunnallisista satamajärjestyksistä ja liikennemaksuista/lagen om kommunala hamnanordningar och trafikavgifter (955/1976) y puertos establecidos por licencia según la sección 3 de laki yksityisistä yleisistä satamista/lagen om privata allmänna hamnar (1156/1994).
+- Saimaan kanavan hoitokunta/Förvaltningsnämnden för Saima kanal.
 Suecia
 Puertos y terminales de acuerdo con la Lagen (1983:293) om inrättande, utvidgning och avlysning av allmän farled och allmän hamn and förordningen (1983:744) om trafiken på Göta kanal
 Reino Unido
-– Una autoridad local que explota un área geográfica para propósito de proveer puertos marítimos o fluviales u otras terminales a los transportistas por mar o vías navegables internas
-– Una autoridad portuaria en el sentido de la sección 57 de la Harbours Act 1964
-– British Waterways Board
-– Una autoridad portuaria definida por la sección 38(1) de la Harbours Act (Northern Ireland) 1970
+- Una autoridad local que explota un área geográfica para propósito de proveer puertos marítimos o fluviales u otras terminales a los transportistas por mar o vías navegables internas
+- Una autoridad portuaria en el sentido de la sección 57 de la Harbours Act 1964
+- British Waterways Board
+- Una autoridad portuaria definida por la sección 38(1) de la Harbours Act (Northern Ireland) 1970
 V. INSTALACIONES DE AEROPUERTOS
 Bélgica
-– Brussels International Airport Company
-– Belgocontrol
-– Luchthaven Antwerpen
-– Internationale Luchthaven Oostende-Brugge
-– Société Wallonne des Aéroports
-– Brussels South Charleroi Airport
-– Liège Airport
+- Brussels International Airport Company
+- Belgocontrol
+- Luchthaven Antwerpen
+- Internationale Luchthaven Oostende-Brugge
+- Société Wallonne des Aéroports
+- Brussels South Charleroi Airport
+- Liège Airport
 Bulgaria
 Главна дирекция "Гражданска въздухоплавателна администрация" ДП "Ръководство на въздушното движение" Operadores de los aeropuertos civiles de uso público que determine el Consejo de Ministros de acuerdo con el artículo 43, apartado 3, de la Закона на гражданското въздухоплаване (обн., ДВ, бр.94/01.12.1972):
-– "Летище София" ЕАД
-– "Фрапорт Туин Стар Еърпорт Мениджмънт" АД
-– "Летище Пловдив" ЕАД
-– "Летище Русе" ЕООД
-– "Летище Горна Оряховица" ЕАД
+- "Летище София" ЕАД
+- "Фрапорт Туин Стар Еърпорт Мениджмънт" АД
+- "Летище Пловдив" ЕАД
+- "Летище Русе" ЕООД
+- "Летище Горна Оряховица" ЕАД
 República Checa
 Todas las autoridades contratantes en los sectores que explotan aéreas geográficas específicas para el propósito de suministro y operación de aeropuertos (regulados por la sección 4, apartado 1, letra i), de la ley nº 137/2006 Coll. sobre contratos públicos, modificada).
 Ejemplos de autoridades contratantes:
-– Česká správa letińť, s.p.
-– Letińtě Karlovy Vary s.r.o.
-– Letińtě Ostrava, a.s.
-– Správa Letińtě Praha, s. p.
+- Česká správa letińť, s.p.
+- Letińtě Karlovy Vary s.r.o.
+- Letińtě Ostrava, a.s.
+- Správa Letińtě Praha, s. p.
 Dinamarca
-– Aeropuertos que operan sobre la base de una autorización de conformidad con el artículo 55, apartado 1, de la Lov om luftfart, ver Ley de Consolidación nº 731 de 21 de junio de 2007.
+- Aeropuertos que operan sobre la base de una autorización de conformidad con el artículo 55, apartado 1, de la Lov om luftfart, ver Ley de Consolidación nº 731 de 21 de junio de 2007.
 Alemania
-– Aeropuertos según la definición del artículo 38, apartado 2, apartado 1, de la Luftverkehrs-Zulassungs-Ordnung del 19 de junio 1964, modificada el 5 de enero de 2007.
+- Aeropuertos según la definición del artículo 38, apartado 2, apartado 1, de la Luftverkehrs-Zulassungs-Ordnung del 19 de junio 1964, modificada el 5 de enero de 2007.
 Estonia
-– Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.02.2007, 15, 76) y al artículo 14 de la Ley de Competencia (RT I 2001, 56 332)
-– AS Tallinna Lennujaam
-– Tallinn Airport GH AS
+- Entidades sometidas al artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.02.2007, 15, 76) y al artículo 14 de la Ley de Competencia (RT I 2001, 56 332)
+- AS Tallinna Lennujaam
+- Tallinn Airport GH AS
 Irlanda
-– Aeropuertos de Dublin, Cork y Shannon operados por Aer Rianta –Irish Airports.
-– Aeropuertos que operan sobre la base de una autorización otorgada de conformidad con una licencia pública de uso otorgada de conformidad con la Irish Aviation Authority Act 1993 modificada por Air Navigation and Transport (Amendment) Act, 1998, y en que los servicios aéreos regulares se realizan con aeronaves para el transporte público de pasajeros, correo o carga.
+- Aeropuertos de Dublin, Cork y Shannon operados por Aer Rianta -Irish Airports.
+- Aeropuertos que operan sobre la base de una autorización otorgada de conformidad con una licencia pública de uso otorgada de conformidad con la Irish Aviation Authority Act 1993 modificada por Air Navigation and Transport (Amendment) Act, 1998, y en que los servicios aéreos regulares se realizan con aeronaves para el transporte público de pasajeros, correo o carga.
 Grecia
-– 'ΤπεξƂƃίƀ ΠνιηƄηθήο ΑƂξνπνξίƀο' ('ΤΠΑ'), que opera de conformidad con el Decreto Legislativo nº 714/70, modificado por Ley nº 1340/83; la organización de la compañía está establecida por el Decreto Presidencial nº 56/89, modificado ulteriormente.
-– La compañía 'ΓηƂζλήο ΑƂξνιηκέλƀο Αζελώλ' en Spata, que opera de conformidad con el Decreto Legislativo nº 2338/95 Κύξωƃε ΢ύκβƀƃεο ΑλάπƄπμεο Ƅνπ Νένπ ΓηƂζλνύο ΑƂξνƁξνκίνπ Ƅεο Αζήλƀο ƃƄƀ ΢πάƄƀ, 'ίƁξπƃε Ƅεο ƂƄƀηξƂίƀο 'ΓηƂζλήο ΑƂξνιηκέλƀο Αζελώλ Α.Δ.' έγθξηƃε πƂξηβƀιινλƄηθώλ όξωλ θƀη άιιƂο ƁηƀƄάμƂηο').
-– 'ſνξƂίο ΓηƀρƂίξηƃεο' de conformidad con el Decreto Presidencial nº 158/02 'ΊƁξπƃε, θƀƄƀƃθƂπή, Ƃμνπιηƃκόο, νξγάλωƃε, Ɓηνίθεƃε, ιƂηƄνπξγίƀ θƀη ƂθκƂ- ƄάιιƂπƃε πνιηƄηθώλ ƀƂξνιηκέλωλ ƀπό ƅπƃηθά πξόƃωπƀ, λνκηθά πξόƃωπƀ ηƁηωƄηθνύ Ɓηθƀίνπ θƀη Οξγƀληƃκνύο Σνπηθήο ΑπƄνƁηνίθεƃεο' (Boletín Oficial de Grecia Α 137)
+- 'ΤπεξƂƃίƀ ΠνιηƄηθήο ΑƂξνπνξίƀο' ('ΤΠΑ'), que opera de conformidad con el Decreto Legislativo nº 714/70, modificado por Ley nº 1340/83; la organización de la compañía está establecida por el Decreto Presidencial nº 56/89, modificado ulteriormente.
+- La compañía 'ΓηƂζλήο ΑƂξνιηκέλƀο Αζελώλ' en Spata, que opera de conformidad con el Decreto Legislativo nº 2338/95 Κύξωƃε ΢ύκβƀƃεο ΑλάπƄπμεο Ƅνπ Νένπ ΓηƂζλνύο ΑƂξνƁξνκίνπ Ƅεο Αζήλƀο ƃƄƀ ΢πάƄƀ, 'ίƁξπƃε Ƅεο ƂƄƀηξƂίƀο 'ΓηƂζλήο ΑƂξνιηκέλƀο Αζελώλ Α.Δ.' έγθξηƃε πƂξηβƀιινλƄηθώλ όξωλ θƀη άιιƂο ƁηƀƄάμƂηο').
+- 'ſνξƂίο ΓηƀρƂίξηƃεο' de conformidad con el Decreto Presidencial nº 158/02 'ΊƁξπƃε, θƀƄƀƃθƂπή, Ƃμνπιηƃκόο, νξγάλωƃε, Ɓηνίθεƃε, ιƂηƄνπξγίƀ θƀη ƂθκƂ- ƄάιιƂπƃε πνιηƄηθώλ ƀƂξνιηκέλωλ ƀπό ƅπƃηθά πξόƃωπƀ, λνκηθά πξόƃωπƀ ηƁηωƄηθνύ Ɓηθƀίνπ θƀη Οξγƀληƃκνύο Σνπηθήο ΑπƄνƁηνίθεƃεο' (Boletín Oficial de Grecia Α 137)
 España
-– Ente público Aeropuertos Españoles y Navegación Aérea (AENA)
+- Ente público Aeropuertos Españoles y Navegación Aérea (AENA)
 Francia
-– Aeropuertos gestionados por compañías de propiedad estatal de conformidad con los artículos L.251-1, L.260-1 y L.270-1 del Code de l'aviation civile.
-– Aeropuertos gestionados sobre la base de una concesión otorgada por el Estado de conformidad con el artículo R.223-2 del Code de l'aviation civile.
-– Aeropuertos gestionados de conformidad con un arrêté préfectoral portant autorisation d'occupation temporaire.
-– Aeropuertos establecidos por una autoridad pública que están sujetos a convención según lo establecido en el artículo L.221-1 del Code de l'aviation civile.
-– Aeropuertos cuya propiedad ha sido transferida a las autoridades regionales o locales o a un grupo de estas de conformidad con la Loi n°2004-809 del 13 de agosto de 2004 relative aux libertés et responsabilités locales, particularmente su artículo 28:
-– Aérodrome d'Ajaccio Campo-dell'Oro
-– Aérodrome d'Avignon
-– Aérodrome de Bastia-Poretta
-– Aérodrome de Beauvais-Tillé
-– Aérodrome de Bergerac-Roumanière
-– Aérodrome de Biarritz-Anglet-Bayonne
-– Aérodrome de Brest Bretagne
-– Aérodrome de Calvi-Sainte-Catherine
-– Aérodrome de Carcassonne en Pays Cathare
-– Aérodrome de Dinard-Pleurthuit-Saint-Malo
-– Aérodrome de Figari-Sud Corse
-– Aérodrome de Lille-Lesquin
-– Aérodrome de Metz-Nancy-Lorraine
-– Aérodrome de Pau-Pyrénées
-– Aérodrome de Perpignan-Rivesaltes
-– Aérodrome de Poitiers-Biard
-– Aérodrome de Rennes-Saint-Jacques
-– Aeropuertos civiles de propiedad estatal cuya gestión ha sido concedida a la Chambre de commerce et d'industrie (artículo 7 de la Loi n°2005-357 de 21 de abril de 2005 relative aux aéroports y Décret n°2007-444 de 23 de febrero de 2007 relatif aux aérodromes appartenant à l'Etat).
-– Aérodrome de Marseille-Provence
-– Aérodrome d'Aix-les-Milles et Marignane-Berre
-– Aérodrome de Nice Côte-d'Azur et Cannes-Mandelieu
-– Aérodrome de Strasbourg-Entzheim
-– Aérodrome de Fort-de France-le Lamentin
-– Aérodrome de Pointe-à-Pitre-le Raizet
-– Aérodrome de Saint-Denis-Gillot
-– Otros aeropuertos civiles propiedad del Estado excluidos de la transferencia a autoridades regionales y locales de conformidad con el Decreto n° 2005-1070 del 24 de agosto de 2005, modificado:
-– Aérodrome de Saint-Pierre Pointe Blanche
-– Aérodrome de Nantes Atlantique et Saint-Nazaire-Montoir
-– Aéroports de Paris (Loi n°2005-357 del 20 de abril de 2005 y Décret n°2005-828 del
+- Aeropuertos gestionados por compañías de propiedad estatal de conformidad con los artículos L.251-1, L.260-1 y L.270-1 del Code de l'aviation civile.
+- Aeropuertos gestionados sobre la base de una concesión otorgada por el Estado de conformidad con el artículo R.223-2 del Code de l'aviation civile.
+- Aeropuertos gestionados de conformidad con un arrêté préfectoral portant autorisation d'occupation temporaire.
+- Aeropuertos establecidos por una autoridad pública que están sujetos a convención según lo establecido en el artículo L.221-1 del Code de l'aviation civile.
+- Aeropuertos cuya propiedad ha sido transferida a las autoridades regionales o locales o a un grupo de estas de conformidad con la Loi n°2004-809 del 13 de agosto de 2004 relative aux libertés et responsabilités locales, particularmente su artículo 28:
+- Aérodrome d'Ajaccio Campo-dell'Oro
+- Aérodrome d'Avignon
+- Aérodrome de Bastia-Poretta
+- Aérodrome de Beauvais-Tillé
+- Aérodrome de Bergerac-Roumanière
+- Aérodrome de Biarritz-Anglet-Bayonne
+- Aérodrome de Brest Bretagne
+- Aérodrome de Calvi-Sainte-Catherine
+- Aérodrome de Carcassonne en Pays Cathare
+- Aérodrome de Dinard-Pleurthuit-Saint-Malo
+- Aérodrome de Figari-Sud Corse
+- Aérodrome de Lille-Lesquin
+- Aérodrome de Metz-Nancy-Lorraine
+- Aérodrome de Pau-Pyrénées
+- Aérodrome de Perpignan-Rivesaltes
+- Aérodrome de Poitiers-Biard
+- Aérodrome de Rennes-Saint-Jacques
+- Aeropuertos civiles de propiedad estatal cuya gestión ha sido concedida a la Chambre de commerce et d'industrie (artículo 7 de la Loi n°2005-357 de 21 de abril de 2005 relative aux aéroports y Décret n°2007-444 de 23 de febrero de 2007 relatif aux aérodromes appartenant à l'Etat).
+- Aérodrome de Marseille-Provence
+- Aérodrome d'Aix-les-Milles et Marignane-Berre
+- Aérodrome de Nice Côte-d'Azur et Cannes-Mandelieu
+- Aérodrome de Strasbourg-Entzheim
+- Aérodrome de Fort-de France-le Lamentin
+- Aérodrome de Pointe-à-Pitre-le Raizet
+- Aérodrome de Saint-Denis-Gillot
+- Otros aeropuertos civiles propiedad del Estado excluidos de la transferencia a autoridades regionales y locales de conformidad con el Decreto n° 2005-1070 del 24 de agosto de 2005, modificado:
+- Aérodrome de Saint-Pierre Pointe Blanche
+- Aérodrome de Nantes Atlantique et Saint-Nazaire-Montoir
+- Aéroports de Paris (Loi n°2005-357 del 20 de abril de 2005 y Décret n°2005-828 del
 20 de julio de 2005)
 Italia
-– A partir del 1 de enero de 1996, Decreto Legislativo nº 497 del 25 de noviembre 1995, relativo alla trasformazione dell'Azienda autonoma di assistenza al volo per il traffico aereo generale in ente pubblico economico, denominato ENAV, Ente nazionale di assistenza al volo, reconducido en varias ocasiones y subsecuentemente transformado en ley, Legge nº 665 del 21 de diciembre de 1996 ha asumido finalmente la transformación de la entidad en una compañía societaria (S.p.A) a partir del 1 de enero de 2001.
-– Entidades gestoras regidas por leyes especiales.
-– Entidades que operan instalaciones aeroportuarias sobre la base de una concesión otorgada de conformidad con el artículo 694 del Codice della navigazione, Regio Decreto nº 327 del 30 de marzo de 1942.
-– Entidades aeroportuarias, incluidas las gestoras SEA (Milán) y ADR (Fiumicino).
+- A partir del 1 de enero de 1996, Decreto Legislativo nº 497 del 25 de noviembre 1995, relativo alla trasformazione dell'Azienda autonoma di assistenza al volo per il traffico aereo generale in ente pubblico economico, denominato ENAV, Ente nazionale di assistenza al volo, reconducido en varias ocasiones y subsecuentemente transformado en ley, Legge nº 665 del 21 de diciembre de 1996 ha asumido finalmente la transformación de la entidad en una compañía societaria (S.p.A) a partir del 1 de enero de 2001.
+- Entidades gestoras regidas por leyes especiales.
+- Entidades que operan instalaciones aeroportuarias sobre la base de una concesión otorgada de conformidad con el artículo 694 del Codice della navigazione, Regio Decreto nº 327 del 30 de marzo de 1942.
+- Entidades aeroportuarias, incluidas las gestoras SEA (Milán) y ADR (Fiumicino).
 Chipre
 Letonia
-– Valsts akciju sabiedrība "Latvijas gaisa satiksme"
-– Valsts akciju sabiedrība "Starptautiskā lidosta "Rīga""
-– SIA "Aviasabiedrība "Liepāja""
+- Valsts akciju sabiedrība "Latvijas gaisa satiksme"
+- Valsts akciju sabiedrība "Starptautiskā lidosta "Rīga""
+- SIA "Aviasabiedrība "Liepāja""
 Lituania
-– State Enterprise Vilnius International Airport
-– State Enterprise Kaunas Airport
-– State Enterprise Palanga International Airport
-– State Enterprise "Oro navigacija"
-– Municipal Enterprise "Ńiaulių oro uostas"
-– Otras entidades en cumplimiento de los requerimientos del artículo 70 (1, 2) de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan en el campo de las instalaciones aeroportuarias de conformidad con la Ley de Aviación de la República de Lituania (Boletín Oficial nº 94-2918, 2000).
+- State Enterprise Vilnius International Airport
+- State Enterprise Kaunas Airport
+- State Enterprise Palanga International Airport
+- State Enterprise "Oro navigacija"
+- Municipal Enterprise "Ńiaulių oro uostas"
+- Otras entidades en cumplimiento de los requerimientos del artículo 70 (1, 2) de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan en el campo de las instalaciones aeroportuarias de conformidad con la Ley de Aviación de la República de Lituania (Boletín Oficial nº 94-2918, 2000).
 Luxemburgo
-– Aéroport du Findel.
+- Aéroport du Findel.
 Hungría
 - Aeropuertos gestionados de conformidad con los artículos 162-163 a 2003. évi CXXIX. törvény a közbeszerzésekről and 1995. évi XCVII. törvény a légiközlekedésről.
 - Budapest Ferihegy Nemzetközi Repülőtér gestionado por Budapest Airport Rt. Sobre la base de 1995. évi XCVII. törvény a légiközlekedésről y 83/2006. (XII. 13.) GKM rendelet a légiforgalmi irányító szolgálatot ellátó és a légiforgalmi szakszemélyzet képzését végző szervezetről.
 Malta
-– L-Ajruport Internazzjonali ta' Malta (Malta International Airport)
+- L-Ajruport Internazzjonali ta' Malta (Malta International Airport)
 Países Bajos
 Aeropuertos que funcionan de conformidad con los artículos 18 y siguientes de
 Luchtvaartwet. Por ejemplo:
-– Luchthaven Schiphol
+- Luchthaven Schiphol
 Austria
 - Entidades autorizadas para proveer servicios aeroportuarios de conformidad con las
 Luftfahrtgesetz, BGBl. 253/1957, modificada.
 Polonia
-– Empresa pública "Porty Lotnicze", que opera sobre la base de la Ustawa z dnia 23
+- Empresa pública "Porty Lotnicze", que opera sobre la base de la Ustawa z dnia 23
 października l987 r. o przedsiębiorstwie państwowym "Porty Lotnicze"
-– Port Lotniczy Bydgoszcz S.A.
-– Port Lotniczy Gdańsk Sp. z o.o.
-– Górnośląskie Towarzystwo Lotnicze S.A. Międzynarodowy Port Lotniczy Katowice
-– Międzynarodowy Port Lotniczy im. Jana Pawła II Kraków - Balice Sp. z o.o.
-– Lotnisko Łódź Lublinek Sp. z o.o.
-– Port Lotniczy Poznań - Ławica Sp. z o.o.
-– Port Lotniczy Szczecin - Goleniów Sp. z o.o.
-– Port Lotniczy Wrocław S.A.
-– Port Lotniczy im. Fryderyka Chopina w Warszawie
-– Port Lotniczy Rzeszów - Jasionka
-– Porty Lotnicze "Mazury- Szczytno" Sp. z o.o. w Szczytnie
-– Port Lotniczy Zielona Góra - Babimost
+- Port Lotniczy Bydgoszcz S.A.
+- Port Lotniczy Gdańsk Sp. z o.o.
+- Górnośląskie Towarzystwo Lotnicze S.A. Międzynarodowy Port Lotniczy Katowice
+- Międzynarodowy Port Lotniczy im. Jana Pawła II Kraków - Balice Sp. z o.o.
+- Lotnisko Łódź Lublinek Sp. z o.o.
+- Port Lotniczy Poznań - Ławica Sp. z o.o.
+- Port Lotniczy Szczecin - Goleniów Sp. z o.o.
+- Port Lotniczy Wrocław S.A.
+- Port Lotniczy im. Fryderyka Chopina w Warszawie
+- Port Lotniczy Rzeszów - Jasionka
+- Porty Lotnicze "Mazury- Szczytno" Sp. z o.o. w Szczytnie
+- Port Lotniczy Zielona Góra - Babimost
 Portugal
-– ANA — Aeroportos de Portugal, S.A., establecida de conformidad con el Decreto-Lei
+- ANA - Aeroportos de Portugal, S.A., establecida de conformidad con el Decreto-Lei
 No 404/98 do 18 de Dezembro 1998
-– NAV — Empresa Pública de Navegação Aérea de Portugal, E. P., establecida de
+- NAV - Empresa Pública de Navegação Aérea de Portugal, E. P., establecida de
 conformidad con el Decreto-Lei No 404/98 do 18 de Dezembro 1998
-– ANAM — Aeroportos e Navegação Aérea da Madeira, S. A., establecido de
+- ANAM - Aeroportos e Navegação Aérea da Madeira, S. A., establecido de
 conformidad con el Decreto-Lei nº 453/91 do 11 de Dezembro 1991.
 Rumanía
-– Compania Naţională "Aeroporturi Bucureşti" SA
-– Societatea Naţională "Aeroportul Internaţional Mihail Kogălniceanu-Constanţa"
-– Societatea Naţională "Aeroportul Internaţional Timişoara-Traian Vuia"-SA
-– Regia Autonomă "Administraţia Română a Serviciilor de Trafic Aerian ROMAT SA
-– Aeroporturile aflate în subordinea Consiliilor Locale
-– SC Aeroportul Arad SA
-– Regia Autonomă Aeroportul Bacău
-– Regia Autonomă Aeroportul Baia Mare
-– Regia Autonomă Aeroportul Cluj Napoca
-– Regia Autonomă Aeroportul Internaţional Craiova
-– Regia Autonomă Aeroportul Iaşi
-– Regia Autonomă Aeroportul Oradea
-– Regia Autonomă Aeroportul Satu-Mare
-– Regia Autonomă Aeroportul Sibiu
-– Regia Autonomă Aeroportul Suceava
-– Regia Autonomă Aeroportul Târgu Mureş
-– Regia Autonomă Aeroportul Tulcea
-– Regia Autonomă Aeroportul Caransebeş
+- Compania Naţională "Aeroporturi Bucureşti" SA
+- Societatea Naţională "Aeroportul Internaţional Mihail Kogălniceanu-Constanţa"
+- Societatea Naţională "Aeroportul Internaţional Timişoara-Traian Vuia"-SA
+- Regia Autonomă "Administraţia Română a Serviciilor de Trafic Aerian ROMAT SA
+- Aeroporturile aflate în subordinea Consiliilor Locale
+- SC Aeroportul Arad SA
+- Regia Autonomă Aeroportul Bacău
+- Regia Autonomă Aeroportul Baia Mare
+- Regia Autonomă Aeroportul Cluj Napoca
+- Regia Autonomă Aeroportul Internaţional Craiova
+- Regia Autonomă Aeroportul Iaşi
+- Regia Autonomă Aeroportul Oradea
+- Regia Autonomă Aeroportul Satu-Mare
+- Regia Autonomă Aeroportul Sibiu
+- Regia Autonomă Aeroportul Suceava
+- Regia Autonomă Aeroportul Târgu Mureş
+- Regia Autonomă Aeroportul Tulcea
+- Regia Autonomă Aeroportul Caransebeş
 Eslovenia
 Aeropuertos públicos civiles que operan de conformidad con la Zakon o letalstvu (Uradnilist RS, 18/01)
 Mat. St. | Naziv | Pońtna Ńt. | Kraj
@@ -5963,145 +5963,145 @@ Mat. St. | Naziv | Pońtna Ńt. | Kraj
 Eslovaquia
 Entidades que operan aeropuertos sobre la base del consentimiento otorgado por la autoridad estatal y entidades que ofrecen servicios de telecomunicaciones aéreas de conformidad con la ley nº 143/1998 Coll. según la redacción de las leyes nº 57/2001 Coll., nº 37/2002 Coll., nº 136/2004 Coll. y nº 544/2004 Coll.
 Por ejemplo:
-– Letisko M. R. Ńtefánika, a.s., Bratislava
-– Letisko Poprad – Tatry, a.s.
-– Letisko Końice, a.s.
+- Letisko M. R. Ńtefánika, a.s., Bratislava
+- Letisko Poprad - Tatry, a.s.
+- Letisko Końice, a.s.
 Finlandia
 Aeropuertos gestionados por "Ilmailulaitos Finavia/Luftfartsverket Finavia", o por una empresa municipal o una empresa pública de conformidad con la Ilmailulaki/luftfartslagen (1242/2005) y la Laki Ilmailulaitoksesta/lag om Luftfartsverket (1245/2005).
 Suecia
-– Aeropuertos de propiedad pública gestionados de conformidad con las luftfartslagen (1957:297)
-– Aeropuertos de propiedad privada y gestionados con una licencia de operación en virtud de esta ley, cuando la licencia corresponde al criterio del artículo 2, apartado 3, de la Directiva.
+- Aeropuertos de propiedad pública gestionados de conformidad con las luftfartslagen (1957:297)
+- Aeropuertos de propiedad privada y gestionados con una licencia de operación en virtud de esta ley, cuando la licencia corresponde al criterio del artículo 2, apartado 3, de la Directiva.
 Reino Unido
-– Una autoridad local que explota un área geográfica para el propósito de prestar servicios aeroportuarios o de otros servicios de terminal a transportistas aéreos.
-– Un operador de aeropuertos dentro del ámbito de la Airports Act 1986 que gestiona un aeropuerto sujeto a la regulación económica bajo la parte IV de dicha ley.
-– Highland and Islands Airports Limited
-– Un operador de aeropuerto dentro del ámbito de la Airports (Northern Ireland) Order 1994
-– BAA Ltd.
+- Una autoridad local que explota un área geográfica para el propósito de prestar servicios aeroportuarios o de otros servicios de terminal a transportistas aéreos.
+- Un operador de aeropuertos dentro del ámbito de la Airports Act 1986 que gestiona un aeropuerto sujeto a la regulación económica bajo la parte IV de dicha ley.
+- Highland and Islands Airports Limited
+- Un operador de aeropuerto dentro del ámbito de la Airports (Northern Ireland) Order 1994
+- BAA Ltd.
 VI. SERVICIOS DE FERROCARRIL
 Bélgica
-– SNCB Holding/NMBS Holding
-– Société nationale des Chemins de fer belges//Nationale Maatschappij der
+- SNCB Holding/NMBS Holding
+- Société nationale des Chemins de fer belges//Nationale Maatschappij der
 Belgische Spoorwegen
-– Infrabel
+- Infrabel
 Bulgaria
-– Национална компания 'Железопътна инфраструктура'
-– 'Български държавни железници' ЕАД
-– 'БДЖ — Пътнически превози' ЕООД
-– 'БДЖ — Тягов подвижен състав (Локомотиви)' ЕООД
-– 'БДЖ — Товарни превози' ЕООД
-– 'Българска Железопътна Компания' АД
-– 'Булмаркет — ДМ' ООД
+- Национална компания 'Железопътна инфраструктура'
+- 'Български държавни железници' ЕАД
+- 'БДЖ - Пътнически превози' ЕООД
+- 'БДЖ - Тягов подвижен състав (Локомотиви)' ЕООД
+- 'БДЖ - Товарни превози' ЕООД
+- 'Българска Железопътна Компания' АД
+- 'Булмаркет - ДМ' ООД
 República Checa
 Todas las entidades contratantes en los sectores que prestan servicios en el campo de servicios ferroviarios definidos en la sección 4, apartado 1, letra f), de la ley nº 137/2006 Coll. sobre contratos públicos, modificada.
 Ejemplos de autoridades contratantes:
-– ČD Cargo, a.s.
-– České dráhy, a.s
-– Správa ņelezniční dopravní cesty, státní organizace
+- ČD Cargo, a.s.
+- České dráhy, a.s
+- Správa ņelezniční dopravní cesty, státní organizace
 Dinamarca
-– DSB
-– DSB S-tog A/S
-– Metroselskabet I/S
+- DSB
+- DSB S-tog A/S
+- Metroselskabet I/S
 Alemania
-– Deutsche Bahn AG
-– Otras empresas que prestan servicios ferroviarios al público de conformidad con el artículo 2, apartado 1, de la Allgemeines Eisenbahngesetz de 27 de diciembre de 1993, modificada el 26 de febrero de 2008.
+- Deutsche Bahn AG
+- Otras empresas que prestan servicios ferroviarios al público de conformidad con el artículo 2, apartado 1, de la Allgemeines Eisenbahngesetz de 27 de diciembre de 1993, modificada el 26 de febrero de 2008.
 Estonia
-– Entidades que operan de conformidad con el artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.2.2007, 15, 76) y el artículo 14 de la Ley de Competencia (RT I 2001, 56 332).
-– AS Eesti Raudtee
-– AS Elektriraudtee
+- Entidades que operan de conformidad con el artículo 10, apartado 3, de la Ley de Contratación Pública (RT I 21.2.2007, 15, 76) y el artículo 14 de la Ley de Competencia (RT I 2001, 56 332).
+- AS Eesti Raudtee
+- AS Elektriraudtee
 Irlanda
-– Iarnród Éireann [Irish Rail]
-– Railway Procurement Agency
+- Iarnród Éireann [Irish Rail]
+- Railway Procurement Agency
 Grecia
-– 'Oξγƀληƃκόο ΢ηƁεξνƁξόκωλ ΔιιάƁνο Α.Δ.' ('Ο.΢.Δ. Α.Δ.'), de conformidad con la Ley
+- 'Oξγƀληƃκόο ΢ηƁεξνƁξόκωλ ΔιιάƁνο Α.Δ.' ('Ο.΢.Δ. Α.Δ.'), de conformidad con la Ley
 nº 2671/98
-– 'ΔΡŽΟ΢Δ Α.Δ.' de conformidad con la Ley nº 2366/95
+- 'ΔΡZΟ΢Δ Α.Δ.' de conformidad con la Ley nº 2366/95
 España
-– Ente público Administración de Infraestructuras Ferroviarias (ADIF)
-– Red Nacional de los Ferrocarriles Españoles (RENFE)
-– Ferrocarriles de Vía Estrecha (FEVE)
-– Ferrocarrils de la Generalitat de Catalunya (FGC)
-– Eusko Trenbideak (Bilbao)
-– Ferrocarrils de la Generalitat Valenciana. (FGV)
-– Serveis Ferroviaris de Mallorca (Ferrocarriles de Mallorca)
-– Ferrocarril de Soller
-– Funicular de Bulnes
+- Ente público Administración de Infraestructuras Ferroviarias (ADIF)
+- Red Nacional de los Ferrocarriles Españoles (RENFE)
+- Ferrocarriles de Vía Estrecha (FEVE)
+- Ferrocarrils de la Generalitat de Catalunya (FGC)
+- Eusko Trenbideak (Bilbao)
+- Ferrocarrils de la Generalitat Valenciana. (FGV)
+- Serveis Ferroviaris de Mallorca (Ferrocarriles de Mallorca)
+- Ferrocarril de Soller
+- Funicular de Bulnes
 Francia
-– Société nationale des chemins de fer français y otras redes ferroviarias abiertas al público, a las que hace referencia la Loi d'orientation des transports intérieurs nº 82- 1153 del 30 de diciembre de 1982, título II, Capítulo 1.
-– Réseau ferré de France, empresa estatal creada por la Ley nº 97-135 de 13 de
+- Société nationale des chemins de fer français y otras redes ferroviarias abiertas al público, a las que hace referencia la Loi d'orientation des transports intérieurs nº 82- 1153 del 30 de diciembre de 1982, título II, Capítulo 1.
+- Réseau ferré de France, empresa estatal creada por la Ley nº 97-135 de 13 de
 febrero de 1997.
 Italia
-– Ferrovie dello Stato S. p. A.incluida la Società partecipate
-– Entidades, compañías y empresas que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 10 del Real Decreto nº 1447 del 9 de mayo de 1912, aprobando el texto consolidado de las leyes en le ferrovie concesse all'industria privata, le tramvie a trazione meccanica e gli automobili
-– Entidades, compañías y empresas que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 14 de la Ley nº 410 del 4 de junio de 1949 — Concorso dello Stato per la riattivazione dei pubblici servizi di trasporto in concessione.
-– Entidades, compañías y empresas que prestan servicios ferroviarios o autoridades
-locales que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 14 de la Ley 1221 del 2 de agosto de 1952 — Provvedimenti per l'esercizio ed il potenziamento di ferrovie e di altre linee di trasporto in regime di concessione.
-– Entidades, compañías y empresas que prestan servicio público de transporte, de conformidad con los artículos 8 y 9 del Decreto legislativo nº 422 del 19 de noviembre de 1997 — Conferimento alle regioni ed agli enti locali di funzioni e compiti in materia di trasporto pubblico locale, a norma dell'articolo 4, comma 4, Della L. 15 marzo 1997, n. 9 — modificado por el Decreto legislativo nº 400 del 20 de septiembre de 1999, y por el artículo 45 de Legge nº 166 del 1 de agosto de 2002.
+- Ferrovie dello Stato S. p. A.incluida la Società partecipate
+- Entidades, compañías y empresas que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 10 del Real Decreto nº 1447 del 9 de mayo de 1912, aprobando el texto consolidado de las leyes en le ferrovie concesse all'industria privata, le tramvie a trazione meccanica e gli automobili
+- Entidades, compañías y empresas que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 14 de la Ley nº 410 del 4 de junio de 1949 - Concorso dello Stato per la riattivazione dei pubblici servizi di trasporto in concessione.
+- Entidades, compañías y empresas que prestan servicios ferroviarios o autoridades
+locales que prestan servicios ferroviarios sobre la base de una concesión de conformidad con el artículo 14 de la Ley 1221 del 2 de agosto de 1952 - Provvedimenti per l'esercizio ed il potenziamento di ferrovie e di altre linee di trasporto in regime di concessione.
+- Entidades, compañías y empresas que prestan servicio público de transporte, de conformidad con los artículos 8 y 9 del Decreto legislativo nº 422 del 19 de noviembre de 1997 - Conferimento alle regioni ed agli enti locali di funzioni e compiti in materia di trasporto pubblico locale, a norma dell'articolo 4, comma 4, Della L. 15 marzo 1997, n. 9 - modificado por el Decreto legislativo nº 400 del 20 de septiembre de 1999, y por el artículo 45 de Legge nº 166 del 1 de agosto de 2002.
 Chipre
 Letonia
-– Valsts akciju sabiedrība 'Latvijas dzelzceļń'
-– Valsts akciju sabiedrība 'Vaiņodes dzelzceļń'
+- Valsts akciju sabiedrība 'Latvijas dzelzceļń'
+- Valsts akciju sabiedrība 'Vaiņodes dzelzceļń'
 Lituania
-– Akcinė bendrovė 'Lietuvos geleņinkeliai'
-– Otras entidades en cumplimiento de los requerimientos del artículo 70, apartados 1 y 2, de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan servicios ferroviarios de conformidad con el Código de Transporte Ferroviario de la República de Lituania (Boletín Oficial nº 72-2489, 2004).
+- Akcinė bendrovė 'Lietuvos geleņinkeliai'
+- Otras entidades en cumplimiento de los requerimientos del artículo 70, apartados 1 y 2, de la Ley de Contratación Pública de la República de Lituania (Boletín Oficial nº 84-2000, 1996; nº 4-102, 2006) y que operan servicios ferroviarios de conformidad con el Código de Transporte Ferroviario de la República de Lituania (Boletín Oficial nº 72-2489, 2004).
 Luxemburgo
-– Chemins de fer luxembourgeois (CFL)
+- Chemins de fer luxembourgeois (CFL)
 Hungría
-– Entidades que prestan servicio de transporte ferroviario al público de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2005. évi CLXXXIII. törvény a vasúti közlekedésről y sobre la base de una autorización de conformidad con 45/2006. (VII. 11.) GKM rendelet a vasúti társaságok működésének engedélyezéséről.
+- Entidades que prestan servicio de transporte ferroviario al público de conformidad con los artículos 162-163 de 2003. évi CXXIX. törvény a közbeszerzésekről y 2005. évi CLXXXIII. törvény a vasúti közlekedésről y sobre la base de una autorización de conformidad con 45/2006. (VII. 11.) GKM rendelet a vasúti társaságok működésének engedélyezéséről.
 Por ejemplo:
-– Magyar Államvasutak (MÁV)
+- Magyar Államvasutak (MÁV)
 Malta
 Países Bajos
-– Entidades contratantes en el campo de servicios ferroviarios. Por ejemplo:
-– Nederlandse Spoorwegen
-– ProRail
+- Entidades contratantes en el campo de servicios ferroviarios. Por ejemplo:
+- Nederlandse Spoorwegen
+- ProRail
 Austria
-– Österreichische Bundesbahn
-– Schieneninfrastrukturfinanzierungs-Gesellschaft mbH sowie
-– Entidades autorizadas para proveer servicios aeroportuarios de conformidad con la
+- Österreichische Bundesbahn
+- Schieneninfrastrukturfinanzierungs-Gesellschaft mbH sowie
+- Entidades autorizadas para proveer servicios aeroportuarios de conformidad con la
 Luftfahrtgesetz, BGBl. 60/1957, modificada.
 Polonia
-– Entidades que prestan servicios de transporte ferroviario, operando sobre la base de la Ustawa o komercjalizacji, restrukturyzacji i prywatyzacji przedsiębiorstwa państwowego 'Polskie Koleje Państwowe' z dnia 8 września 2000 r.; incluyendo entre otros:
-– PKP Intercity Sp. z o.o.
-– PKP Przewozy Regionalne Sp. z o.o.
-– PKP Polskie Linie Kolejowe S.A.
-– 'Koleje Mazowieckie — KM' Sp. z o.o.
-– PKP Szybka Kolej Miejska w Trójmieście Sp. z ν.ν.
-– PKP Warszawska Kolej Dojazdowa Sp. z o.o.
+- Entidades que prestan servicios de transporte ferroviario, operando sobre la base de la Ustawa o komercjalizacji, restrukturyzacji i prywatyzacji przedsiębiorstwa państwowego 'Polskie Koleje Państwowe' z dnia 8 września 2000 r.; incluyendo entre otros:
+- PKP Intercity Sp. z o.o.
+- PKP Przewozy Regionalne Sp. z o.o.
+- PKP Polskie Linie Kolejowe S.A.
+- 'Koleje Mazowieckie - KM' Sp. z o.o.
+- PKP Szybka Kolej Miejska w Trójmieście Sp. z ν.ν.
+- PKP Warszawska Kolej Dojazdowa Sp. z o.o.
 Portugal
-– CP — Caminhos de Ferro de Portugal, E.P., de conformidad con el Decreto-Lei No
+- CP - Caminhos de Ferro de Portugal, E.P., de conformidad con el Decreto-Lei No
 109/77 do 23 de Março 1977
-– REFER, E.P., de conformidad con el Decreto-Lei No 104/97 do 29 de Abril 1997
-– RAVE, S.A., de conformidad con el Decreto-Lei No 323-H/2000 do 19 de Dezembro 2000
-– Fertagus, S.A., de conformidad con el Decreto-Lei 78/2005, do 13 de Abril
-– Autoridades públicas y empresas públicas que proveen servicios ferroviarios de
+- REFER, E.P., de conformidad con el Decreto-Lei No 104/97 do 29 de Abril 1997
+- RAVE, S.A., de conformidad con el Decreto-Lei No 323-H/2000 do 19 de Dezembro 2000
+- Fertagus, S.A., de conformidad con el Decreto-Lei 78/2005, do 13 de Abril
+- Autoridades públicas y empresas públicas que proveen servicios ferroviarios de
 conformidad con la Lei nº 10/90 do 17 de Março 1990.
-– Empresas privadas que proveen servicios ferroviarios de conformidad con la Lei nº 10/90 do 17 de Março 1990, cuando tengan derechos especiales o exclusivos.
+- Empresas privadas que proveen servicios ferroviarios de conformidad con la Lei nº 10/90 do 17 de Março 1990, cuando tengan derechos especiales o exclusivos.
 Rumanía
-– Compania Naţională Căi Ferate — CFR
-– Societatea Naţională de Transport Feroviar de Marfă 'CFR — Marfă',
-– Societatea Naţională de Transport Feroviar de Călători 'CFR — Călători'
+- Compania Naţională Căi Ferate - CFR
+- Societatea Naţională de Transport Feroviar de Marfă 'CFR - Marfă',
+- Societatea Naţională de Transport Feroviar de Călători 'CFR - Călători'
 Eslovenia
 Mat. St. | Naziv | Pońtna Ńt. | KRAJ
 5142733 | Slovenske ņeleznice, d. o. o. | 1000 | LJUBLJANA
 Eslovaquia
-– Entidades que operan ferrocarriles y teleféricos e instalaciones relacionadas con estos de conformidad con la ley nº 258/1993 Coll. en la redacción de las leyes nº 152/1997 Coll. and nº 259/2001 Coll.
-– Entidades que son transportistas que ofrecen servicio de transporte ferroviario al público bajo la ley nº 164/1996 Coll. en la redacción de las leyes nº 58/1997 Coll., nº 260/2001 Coll., nº 416/2001 Coll. y nº 114/2004 Coll. y sobre la base del decreto gubernamental nº 662 de 7 de julio de 2004.
+- Entidades que operan ferrocarriles y teleféricos e instalaciones relacionadas con estos de conformidad con la ley nº 258/1993 Coll. en la redacción de las leyes nº 152/1997 Coll. and nº 259/2001 Coll.
+- Entidades que son transportistas que ofrecen servicio de transporte ferroviario al público bajo la ley nº 164/1996 Coll. en la redacción de las leyes nº 58/1997 Coll., nº 260/2001 Coll., nº 416/2001 Coll. y nº 114/2004 Coll. y sobre la base del decreto gubernamental nº 662 de 7 de julio de 2004.
 Por ejemplo:
-– Ņeleznice Slovenskej republiky, a.s.
-– Ņelezničná spoločnosť Slovensko, a.s.
+- Ņeleznice Slovenskej republiky, a.s.
+- Ņelezničná spoločnosť Slovensko, a.s.
 Finlandia
-– VR Osakeyhtiö//VR Aktiebolag
+- VR Osakeyhtiö//VR Aktiebolag
 Suecia
-– Entidades públicas de servicios ferroviarios de acuerdo con järnvägslagen
+- Entidades públicas de servicios ferroviarios de acuerdo con järnvägslagen
 (2004:519) y järnvägsförordningen (2004:526).
-– Entidades públicas regionales y locales que operan comunicaciones ferroviarias regionales o locales de conformidad con la Lagen (1997:734) om ansvar för viss kollektiv persontrafik.
-– Entidades privadas que operan servicios ferroviarios de conformidad con autorización otorgada bajo förordningen (1996:734) om statens spåranläggningar, cuando dichas autorizaciones sean conformes con el artículo 2(3) de la Directiva 2004/17/EC.
+- Entidades públicas regionales y locales que operan comunicaciones ferroviarias regionales o locales de conformidad con la Lagen (1997:734) om ansvar för viss kollektiv persontrafik.
+- Entidades privadas que operan servicios ferroviarios de conformidad con autorización otorgada bajo förordningen (1996:734) om statens spåranläggningar, cuando dichas autorizaciones sean conformes con el artículo 2(3) de la Directiva 2004/17/EC.
 Reino Unido
-– Network Rail plc
-– Eurotunnel plc
-– Northern Ireland Transport Holding Company
-– Northern Ireland Railways Company Limited
-– Proveedores de servicios ferroviarios que operan sobre la base de derechos especiales o exclusivos otorgados por el Department of Transport o cualquier otra autoridad competente.
+- Network Rail plc
+- Eurotunnel plc
+- Northern Ireland Transport Holding Company
+- Northern Ireland Railways Company Limited
+- Proveedores de servicios ferroviarios que operan sobre la base de derechos especiales o exclusivos otorgados por el Department of Transport o cualquier otra autoridad competente.
 SECCIÓN D
 SERVICIOS CUBIERTOS POR EL TÍTULO V DE LA PARTE IV DEL PRESENTE ACUERDO
 A. LISTA DE COSTA RICA
@@ -6178,8 +6178,8 @@ Notas
 1. *Excepto servicios que las entidades deban adquirir de otra entidad en razón de un derecho exclusivo establecido por una ley publicada, regulación o disposición administrativa.
 2. **Excepto los servicios de telefonía de voz, télex, radiotelefonía, radio búsqueda y comunicación por satélite
 3. ***
-– Excepto la contratación o adquisición de servicios de agencia o depósitos fiscales, liquidación, y administración de servicios para instituciones financieras reguladas o servicios relacionados con la venta, amortización y distribución de deuda pública, incluyendo préstamos y bonos de gobierno, notas y otras seguridades.
-– En Suecia, pagos a y de agencias gubernamentales serán transados a través de Swedish Postal Giro System (Postgiro).
+- Excepto la contratación o adquisición de servicios de agencia o depósitos fiscales, liquidación, y administración de servicios para instituciones financieras reguladas o servicios relacionados con la venta, amortización y distribución de deuda pública, incluyendo préstamos y bonos de gobierno, notas y otras seguridades.
+- En Suecia, pagos a y de agencias gubernamentales serán transados a través de Swedish Postal Giro System (Postgiro).
 4. **** Excepto servicios de arbitraje y conciliación.
 SECCIÓN E
 SERVICIOS DE CONSTRUCCIÓN
@@ -6351,8 +6351,8 @@ Las Repúblicas de la Parte CA convertirán los umbrales de este título a su re
 G. LISTA DE LA PARTE UE
 A. Notas generales:
 1. El título V de la parte IV del presente Acuerdo no se aplica a:
-– La contratación de productos agrícolas realizada para el fomento de programas de apoyo agrícola y programas de alimentación humana (por ejemplo, ayuda alimentaria, incluida la de socorro urgente), y
-– Contrataciones para la adquisición, desarrollo, producción o coproducción de materiales de programas de radiodifusión y contratos para espacio de radiodifusión.
+- La contratación de productos agrícolas realizada para el fomento de programas de apoyo agrícola y programas de alimentación humana (por ejemplo, ayuda alimentaria, incluida la de socorro urgente), y
+- Contrataciones para la adquisición, desarrollo, producción o coproducción de materiales de programas de radiodifusión y contratos para espacio de radiodifusión.
 2. Los contratos adjudicados por entidades contratantes cubiertas bajo las secciones A y B en relación con actividades en los sectores de agua potable, energía, transporte y el sector postal no están cubiertos por el título V de la parte IV del presente Acuerdo, salvo que estén cubiertos en la sección C.
 3. Finlandia se reserva su posición en relación con la aplicación del título V de la parte IV del presente Acuerdo a las islas Åland (Ahvenanmaa).
 4. La legislación interna sobre contratación pública de los Estados miembros de la Unión Europea expresa el valor de los umbrales en EUR u otra moneda nacional de los Estados miembros de la Unión Europea. El cálculo de los valores de estos umbrales está basado en el promedio de los valores diarios de los DEG con respecto a la tasa de cambio del EUR en los veinticuatro meses que concluyen el último día de agosto precedente a la revisión efectiva el 1 de enero. El valor de los umbrales revisados, en su caso, se redondea al millar de EUR más cercano. Los cambios de esta metodología serán notificados a las Repúblicas de la Parte CA mediante el Comité de Asociación.
@@ -6391,33 +6391,33 @@ www.nicaraguacompra.gob.ni
 Panamá
 Leyes y reglamentos: www.gacetaoficial.gob.pa
 Jurisprudencia: www.organojudicial.gob.pa
-Bélgica | – Diario Oficial de la Unión Europea – Le Bulletin des Adjudications – Otras publicaciones en prensa especializada
-Bulgaria | – Diario Oficial de la Unión Europea – Държавен вестник (Boletín Oficial del Estado) http://dv.parliament.bg – Public Procurement Register (www.aop.bg)
-República Checa | – Diario Oficial de la Unión Europea
-Dinamarca | – Diario Oficial de la Unión Europea
-Alemania | – Diario Oficial de la Unión Europea
-Estonia | – Diario Oficial de la Unión Europea
-Grecia | – Diario Oficial de la Unión Europea – Publicación en la prensa diaria, financiera, regional y especializada
-España | – Diario Oficial de la Unión Europea
-Francia | – Diario Oficial de la Unión Europea – Bulletin officiel des annonces des marchés publics
-Irlanda | – Diario Oficial de la Unión Europea – Diarios: Irish Independent, Irish Times, Irish Press, Cork Examiner
-Italia | – Diario Oficial de la Unión Europea
-Chipre | – Diario Oficial de la Unión Europea – Boletín Oficial de la República – Prensa diaria local
-Letonia | – Diario Oficial de la Unión Europea – Latvijas vēstnesis (diario oficial) CUADRO 254-255, TOMO 11
-Lituania | – Diario Oficial de la Unión Europea – Información suplementaria "Informaciniai praneńimai" a la Boletín Oficial "Valstybės ņinios") de la República de Lituania
-Luxemburgo | – Diario Oficial de la Unión Europea – Prensa Diaria
-Hungría | – Diario Oficial de la Unión Europea – Közbeszerzési Értesítő - a Közbeszerzések Tanácsa Hivatalos Lapja (Boletín de Contratación Pública – Órgano Oficial del Consejo de Contratación Pública)
-Malta | – Diario Oficial de la Unión Europea – Government Gazette
-Países Bajos | – Diario Oficial de la Unión Europea
-Austria | – Diario Oficial de la Unión Europea – Amtsblatt zur Wiener Zeitung
-Polonia | – Diario Oficial de la Unión Europea – Biuletyn Zamówień Publicznych (Boletín de Contratación Pública)
-Portugal | – Diario Oficial de la Unión Europe
-Rumanía | – Diario Oficial de la Unión Europea – Monitorul Oficial al României (Órgano Oficial de Rumania) – Sistema Electrónico de Contratación Pública (http://www.e-licitatie.ro)
-Eslovenia | – Diario Oficial de la Unión Europea – Boletín Oficial de la República
-Eslovaquia | – Diario Oficial de la Unión Europea – Vestník verejného obstarávania (Diario de Contratación Pública)
-Finlandia | – Diario Oficial de la Unión Europea – Julkiset hankinnat Suomessa ja ETA-alueella, Virallisen lehden liite (Contratación Pública en Finlandia y el área EEA, Suplemento a la Boletín Oficial de Finlandia)
-Suecia | – Diario Oficial de la Unión Europea
-Reino Unido | – Diario Oficial de la Unión Europea
+Bélgica | - Diario Oficial de la Unión Europea - Le Bulletin des Adjudications - Otras publicaciones en prensa especializada
+Bulgaria | - Diario Oficial de la Unión Europea - Държавен вестник (Boletín Oficial del Estado) http://dv.parliament.bg - Public Procurement Register (www.aop.bg)
+República Checa | - Diario Oficial de la Unión Europea
+Dinamarca | - Diario Oficial de la Unión Europea
+Alemania | - Diario Oficial de la Unión Europea
+Estonia | - Diario Oficial de la Unión Europea
+Grecia | - Diario Oficial de la Unión Europea - Publicación en la prensa diaria, financiera, regional y especializada
+España | - Diario Oficial de la Unión Europea
+Francia | - Diario Oficial de la Unión Europea - Bulletin officiel des annonces des marchés publics
+Irlanda | - Diario Oficial de la Unión Europea - Diarios: Irish Independent, Irish Times, Irish Press, Cork Examiner
+Italia | - Diario Oficial de la Unión Europea
+Chipre | - Diario Oficial de la Unión Europea - Boletín Oficial de la República - Prensa diaria local
+Letonia | - Diario Oficial de la Unión Europea - Latvijas vēstnesis (diario oficial) CUADRO 254-255, TOMO 11
+Lituania | - Diario Oficial de la Unión Europea - Información suplementaria "Informaciniai praneńimai" a la Boletín Oficial "Valstybės ņinios") de la República de Lituania
+Luxemburgo | - Diario Oficial de la Unión Europea - Prensa Diaria
+Hungría | - Diario Oficial de la Unión Europea - Közbeszerzési Értesítő - a Közbeszerzések Tanácsa Hivatalos Lapja (Boletín de Contratación Pública - Órgano Oficial del Consejo de Contratación Pública)
+Malta | - Diario Oficial de la Unión Europea - Government Gazette
+Países Bajos | - Diario Oficial de la Unión Europea
+Austria | - Diario Oficial de la Unión Europea - Amtsblatt zur Wiener Zeitung
+Polonia | - Diario Oficial de la Unión Europea - Biuletyn Zamówień Publicznych (Boletín de Contratación Pública)
+Portugal | - Diario Oficial de la Unión Europe
+Rumanía | - Diario Oficial de la Unión Europea - Monitorul Oficial al României (Órgano Oficial de Rumania) - Sistema Electrónico de Contratación Pública (http://www.e-licitatie.ro)
+Eslovenia | - Diario Oficial de la Unión Europea - Boletín Oficial de la República
+Eslovaquia | - Diario Oficial de la Unión Europea - Vestník verejného obstarávania (Diario de Contratación Pública)
+Finlandia | - Diario Oficial de la Unión Europea - Julkiset hankinnat Suomessa ja ETA-alueella, Virallisen lehden liite (Contratación Pública en Finlandia y el área EEA, Suplemento a la Boletín Oficial de Finlandia)
+Suecia | - Diario Oficial de la Unión Europea
+Reino Unido | - Diario Oficial de la Unión Europea
 APÉNDICE 3
 MEDIOS PARA LA PUBLICACIÓN DE AVISOS
 Costa Rica
@@ -6499,3 +6499,17 @@ e) si la entidad contratante realiza una subasta electrónica, las reglas de la 
 f) si hay apertura pública de ofertas, la fecha, hora y lugar de la misma y, en su caso, las personas autorizadas a presenciarla;
 g) cualquier otro término o condición, como los términos de pago y los posibles límites del modo de presentación de ofertas, por ejemplo en papel o por vía electrónica; y
 h) las posibles fechas de entrega de mercancías o prestación de servicios.
+(Nota de Sinalevi: Mediante el artículo 8 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció que el valor de los umbrales, tomando para tales efectos la suma de un dólar con treinta y siete centavos (USD 1,37) por Derechos Especiales de Giro (DEG) y quinientos dieciséis colones con cuarenta y tres céntimos (¢516,43) por dólar estadounidense será:
+b) Para el Acuerdo que establece una asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro; el Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos; y el Acuerdo por el que se establece una asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica:
+Tipo de contratación | Derechos especiales de giro | Equivalente en Colones
+Instituciones de gobierno central
+Mercancías y Servicios. | 130.000 | 89.432.214,49
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Instituciones de sector subcentral
+Mercancías y Servicios. | 355.000 | 244.218.739,58
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Otras instituciones
+Lista A: Mercancías y Servicios. | 200.000 | 137.588.022,30
+Lista B: Mercancías y Servicios. | 400.000 | 275.176.044,60
+Lista A y Lista B: Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+")

@@ -1,6 +1,6 @@
 # Acuerdo que establece asociación entre Centroamérica y la Unión Europea y sus Estados miembros
 
-Tratados Internacionales N° 9154 del 2013-07-03. SINALEVI, ficha 75384: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75384&param2=128567&param3=1>.
+Tratados Internacionales N° 9154 del 2013-07-03. SINALEVI, ficha 75384: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75384&param2=151024&param3=1>.
 
 Publicada en La Gaceta N° 133 del 2013-07-11.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2019-10-30 | Tratados Internacionales 9775 (2019-10-29) | 2019-10-29 |
 | 6 de 8 | 2021-06-12 | Decreto Ejecutivo 43148 (2021-05-10) | 2021-05-10 |
 | 7 de 8 | 2021-06-12 | Decreto Ejecutivo 43149 (2021-05-10) | 2021-05-10 |
+| 8 de 8 | 2026-01-01 | Decreto Ejecutivo 45761 (2026-04-08) | 2026-04-08 |
