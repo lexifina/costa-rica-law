@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Transitorio II de las "Normas Técnicas sobre el presupuesto de los beneficios patrimoniales otorgados mediante transferencia del Sector Público a Sujetos Privados" (R-DC-00122-2019).
