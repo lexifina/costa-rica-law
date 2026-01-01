@@ -227,7 +227,7 @@ Artículo 8.16: Procedimientos Internos de Revisión
 (a) medidas provisionales rápidas para preservar la posibilidad del proveedor de participar en la contratación. Esas medidas provisionales podrán tener por efecto la suspensión del proceso de contratación. Los procedimientos podrán prever la posibilidad de que se tengan en consideración las consecuencias desfavorables predominantes para los intereses afectados, incluido el interés público, al decidir si deben aplicarse esas medidas. Se proporcionará por escrito la justa causa para no adoptar esas medidas; y
 (b) medidas correctivas o una compensación por los daños o perjuicios sufridos, de conformidad con la legislación de cada Parte, en los casos en que un órgano de revisión haya determinado que existe una falta o un incumplimiento de conformidad con el párrafo 1.
 Artículo 8.17: Participación de las Micro, Pequeñas y Medianas Empresas
-1. Las Partes reconocen la importancia de la participación de las micro, pequeñas y medianas empresas (en adelante referidas como “MIPYMES”) en las contrataciones públicas y alianzas de negocios entre proveedores de cada Parte, y en particular de MIPYMES, incluyendo la participación conjunta en los procesos de contratación.
+1. Las Partes reconocen la importancia de la participación de las micro, pequeñas y medianas empresas (en adelante referidas como "MIPYMES") en las contrataciones públicas y alianzas de negocios entre proveedores de cada Parte, y en particular de MIPYMES, incluyendo la participación conjunta en los procesos de contratación.
 2. Las Partes podrán adoptar, desarrollar, mantener o implementar medidas para promover las oportunidades en políticas de contratación para el desarrollo de sus MIPYMES, incluyendo reglas preferenciales.
 Artículo 8.18: Cooperación y Asistencia Técnica en Contratación Pública
 1. Las Partes acuerdan que es su interés común promover iniciativas de cooperación y asistencia técnica en asuntos relacionados con contratación pública.
@@ -245,7 +245,7 @@ Artículo 8.19: Modificaciones y Rectificaciones a la Cobertura
 4. Cuando las Partes en cuestión hayan acordado la rectificación, cambio menor, ajuste o modificación propuesta, o cuando no se hayan presentado objeciones en un plazo de 30 días desde la recepción de la notificación, las modificaciones se realizarán de conformidad con las disposiciones del párrafo 5.
 5. El Comité Conjunto del Tratado modificará la sección correspondiente del Anexo 8-A para reflejar cualquier rectificación, cambio menor o modificación acordada.
 Artículo 8.20: Comité de Contratación Pública
-1. Las Partes establecen un Comité de Contratación Pública (en adelante referido como el “Comité”) compuesto por representantes de cada Parte.
+1. Las Partes establecen un Comité de Contratación Pública (en adelante referido como el "Comité") compuesto por representantes de cada Parte.
 2. El Comité:
 (a) evaluará la implementación de este Capítulo, incluyendo su aplicación, y recomendar a las Partes las actividades apropiadas;
 (b) coordinará las actividades de cooperación;
@@ -339,7 +339,7 @@ LISTA DE ENTIDADES
 44. | Administración Meteorológica de Corea; | Korea Meteorological Administration;
 45. | Agencia Nacional para la Construcción Administrativa de la Ciudad. | National Agency for Administrative City Construction.
 Notas a la Sección A
-1. Las anteriores entidades del gobierno central cubren sus “organizaciones lineales subordinadas”, “agencias locales administrativas especiales” y “órganos adscritos”, según lo previsto en las disposiciones pertinentes de la Ley de Organización Gubernamental de la República de Corea (Government Organization Act of the Republic of Korea). Cualquier entidad con personería jurídica separada que no esté listada en este Anexo no está cubierta.
+1. Las anteriores entidades del gobierno central cubren sus "organizaciones lineales subordinadas", "agencias locales administrativas especiales" y "órganos adscritos", según lo previsto en las disposiciones pertinentes de la Ley de Organización Gubernamental de la República de Corea (Government Organization Act of the Republic of Korea). Cualquier entidad con personería jurídica separada que no esté listada en este Anexo no está cubierta.
 2. El Capítulo 8 no aplicará a cualquier reserva para las pequeñas y medianas empresas, de conformidad con la Ley Relativa a los Contratos en los cuales el Estado es una Parte (Act Relating to Contracts to Which the State is a Party) y su Decreto Presidencial (Presidential Decree), y la contratación de productos de agricultura, pesca y ganadería de conformidad con la Ley de Gestión de Granos (Grain Management Act), la Ley sobre Distribución y Estabilización de Precios para Productos Agrícolas y de Pesca (Act on Distribution and Price Stabilization of Agricultural and Fishery Products) y la Ley de la Industria Ganadera (Livestock Industry Act).
 3.Cuando el Servicio Público de Contratación (Public Procurement Service) realice una contratación en nombre de una entidad listada en la Sección B o Sección C, se aplica el ámbito de cobertura y el umbral para dicha entidad.
 B. LISTA DE COSTA RICA
@@ -491,7 +491,7 @@ Umbral: 130 000 DEG
 SERVICIOS
 Especificados en la Sección E
 Umbral: 130 000 DEG
-SERVICIOS DE CONSTRUCCIÓN (incluidos los contratos de construcción, operación y transferencia, en adelante referidos como, contratos “COT”)
+SERVICIOS DE CONSTRUCCIÓN (incluidos los contratos de construcción, operación y transferencia, en adelante referidos como, contratos "COT")
 Especificados en la Sección F
 Umbral: 5 000 000 DEG
 LISTA DE ENTIDADES
@@ -602,7 +602,7 @@ LISTA DE ENTIDADES:
 2.3.9. Ganghwa-gun;
 2.3.10. Ongjin-gun.
 Notas a la Sección B
-1. Las anteriores entidades administrativas del gobierno subcentral cubren las “organizaciones subordinadas bajo control directo”, “oficinas” y “sucursales”, según lo previsto en las disposiciones pertinentes de la Ley de Autonomía Local de la República de Corea (Local Autonomy Act of the Republic of Korea). Cualquier entidad con una personería jurídica separada que no esté listada en este Anexo no está cubierta.
+1. Las anteriores entidades administrativas del gobierno subcentral cubren las "organizaciones subordinadas bajo control directo", "oficinas" y "sucursales", según lo previsto en las disposiciones pertinentes de la Ley de Autonomía Local de la República de Corea (Local Autonomy Act of the Republic of Korea). Cualquier entidad con una personería jurídica separada que no esté listada en este Anexo no está cubierta.
 2. El Capítulo 8 no aplicará a cualquier reserva para las pequeñas y medianas empresas, de conformidad con la Ley Relativa a los Contratos de los que el Gobierno Local es una Parte (Act Relating to Contracts to Which the Local Government is a Party) y su Decreto Presidencial (Presidential Decree).
 B. LISTA DE COSTA RICA
 El Capítulo 8 aplicará a las entidades del nivel subcentral de gobierno que contratan de conformidad con las disposiciones de dicho Capítulo, cuando el valor de la contratación sea igual o mayor a:
@@ -1063,7 +1063,7 @@ LISTA DE ENTIDADES
 Lista A:
 1. Junta Administrativa de la Imprenta Nacional
 2. Programa Integral de Mercadeo Agropecuario - PIMA
-3. Banco Hipotecario de la Vivienda – BANHVI
+3. Banco Hipotecario de la Vivienda - BANHVI
 4. Consejo de Transporte Público
 5. Instituto Costarricense del Deporte y la Recreación
 6. Instituto Nacional de Fomento Cooperativo - INFOCOOP
@@ -1103,18 +1103,18 @@ Lista A
 5. | Federación Salvadoreña de Fútbol
 6. | Centro Internacional de Ferias y Convenciones de El Salvador
 7. | Fondo de Inversión Social para el Desarrollo
-8. | Hogar de Ancianos “Narcisa Castillo”, Santa Ana
-9. | Hospital Nacional de Niños “Benjamín Bloom”
-10. | Hospital Nacional “Dr. Luis Edmundo Vásquez”, Chalatenango
-11. | Hospital Nacional “Francisco Menéndez”, Ahuachapán
-12. | Hospital Nacional “Juan José Fernández”, Zacamil
-13. | Hospital Nacional “San Juan de Dios”, San Miguel
-14. | Hospital Nacional “San Juan de Dios”, Santa Ana
-15. | Hospital Nacional “San Juan de Dios”, Sonsonate
-16. | Hospital Nacional “San Pedro”, Usulután
-17. | Hospital Nacional “San Rafael”, Santa Tecla
-18. | Hospital Nacional “Santa Gertrudis”, San Vicente
-19. | Hospital Nacional “Santa Teresa”, Zacatecoluca
+8. | Hogar de Ancianos "Narcisa Castillo", Santa Ana
+9. | Hospital Nacional de Niños "Benjamín Bloom"
+10. | Hospital Nacional "Dr. Luis Edmundo Vásquez", Chalatenango
+11. | Hospital Nacional "Francisco Menéndez", Ahuachapán
+12. | Hospital Nacional "Juan José Fernández", Zacamil
+13. | Hospital Nacional "San Juan de Dios", San Miguel
+14. | Hospital Nacional "San Juan de Dios", Santa Ana
+15. | Hospital Nacional "San Juan de Dios", Sonsonate
+16. | Hospital Nacional "San Pedro", Usulután
+17. | Hospital Nacional "San Rafael", Santa Tecla
+18. | Hospital Nacional "Santa Gertrudis", San Vicente
+19. | Hospital Nacional "Santa Teresa", Zacatecoluca
 20. | Hospital Nacional de Ciudad Barrios
 21. | Hospital Nacional de Cojutepeque
 22. | Hospital Nacional de Ilobasco
@@ -1128,9 +1128,9 @@ Lista A
 30. | Hospital Nacional de Santiago de María
 31. | Hospital Nacional de Sensuntepeque
 32. | Hospital Nacional de Suchitoto
-33. | Hospital Nacional Neumológico “Dr. José Antonio Saldaña”
-34. | Hospital Nacional Psiquiátrico “Dr. José Molina Martínez”
-35. | Hospital Nacional “Enfermera Angélica Vidal de Najarro”, San Bartolo
+33. | Hospital Nacional Neumológico "Dr. José Antonio Saldaña"
+34. | Hospital Nacional Psiquiátrico "Dr. José Molina Martínez"
+35. | Hospital Nacional "Enfermera Angélica Vidal de Najarro", San Bartolo
 36. | Instituto Nacional de los Deportes de El Salvador
 37. | Instituto Nacional de Pensiones de los Empleados Públicos
 38. | Instituto Salvadoreño de Desarrollo de la Mujer
@@ -1359,7 +1359,7 @@ MTN.GNS/W/120 | CPC | Descripción
 11.I. | - | - Expedición de mercancías por ferrocarril
 | |
 Nota a la Sección E
-Los asteriscos (*) designan “parte de” como se describe en detalle en la Oferta Condicional Revisada de la República de Corea Relativa a los Compromisos Iniciales en Comercio de Servicios.
+Los asteriscos (*) designan "parte de" como se describe en detalle en la Oferta Condicional Revisada de la República de Corea Relativa a los Compromisos Iniciales en Comercio de Servicios.
 B. LISTA DE COSTA RICA
 El Capítulo 8 aplicará a todos los servicios contratados por las entidades listadas en las Secciones A, B y C de este Anexo, sujeto a las Notas Generales, excepto para los servicios listados en este Anexo. Todos los servicios cubiertos por este Anexo están sujetos a las medidas existentes listadas por Costa Rica en los Anexos I, II y III.
 El Capítulo 8 no cubre los siguientes servicios como se clasifican en la Clasificación Central de Productos de Naciones Unidas 1.0 (CPC versión 1.0):
@@ -1420,7 +1420,7 @@ Código Descripción
 92 Servicios de enseñanza
 93 Servicios sociales y de salud
 9692 Servicios de juegos de azar y apuestas
-D304 Servicios de procesamiento automático de datos (PAD) para telecomunicaciones y transmisión, excepto para aquellos servicios clasificados como “servicios mejorados o de valor agregado”. Para efectos de esta disposición, la contratación de “servicios de telecomunicaciones y transmisión PAD” no incluye la propiedad ni el suministro de instalaciones para la transmisión de voz o de datos.
+D304 Servicios de procesamiento automático de datos (PAD) para telecomunicaciones y transmisión, excepto para aquellos servicios clasificados como "servicios mejorados o de valor agregado". Para efectos de esta disposición, la contratación de "servicios de telecomunicaciones y transmisión PAD" no incluye la propiedad ni el suministro de instalaciones para la transmisión de voz o de datos.
 D305 Servicios de teleprocesamiento y tiempo compartido
 D316 Servicios de administración de redes de telecomunicaciones
 D317 Servicios automatizados de noticias, servicios de datos u otros servicios de información
@@ -1479,7 +1479,7 @@ Exclusiones específicas
 D.LISTA DE HONDURAS
 A menos que se especifique lo contrario, las siguientes Notas Generales se aplicarán sin excepción al Capítulo 8, incluyendo todas las Secciones de este Anexo.
 1. Exclusiones específicas:
-(a) El Capítulo 8 no aplicará a los programas de compras gubernamentales para las pequeñas, medianas y microempresas (MIPYME’s).
+(a) El Capítulo 8 no aplicará a los programas de compras gubernamentales para las pequeñas, medianas y microempresas (MIPYME's).
 (b) El Capítulo 8 no aplicará a las compras por parte de una entidad contratante de Honduras de mercancías o servicios realizados o suministrados por una entidad pública de Honduras.
 (c) El Capítulo 8 no aplicará a las compras efectuadas en condiciones excepcionalmente ventajosas que solo surjan en el muy corto plazo, tales como inusuales enajenaciones realizadas por empresas que normalmente no son proveedores o la enajenación de activos de las empresas en liquidación o bajo administración judicial.
 (d) Las entidades podrán otorgar contratos por procedimientos de licitación restringida en las circunstancias siguientes, además de las enumeradas en el Artículo 8.11:
@@ -1490,8 +1490,8 @@ A menos que se especifique lo contrario, las siguientes Notas Generales se aplic
 E. LISTA DE NICARAGUA
 Las siguientes Notas Generales aplicarán sin excepción al Capítulo 8, incluyendo a todas las Secciones de este Anexo.
 1. Exclusiones específicas
-(a) El Capítulo 8 no aplicará a los programas de gobierno para las MIPYME’s;
-(b) El Capítulo 8 no aplicará a las contrataciones efectuadas en el marco de programas o iniciativas para mejorar la calidad de vida de la población, especialmente la que vive en pobreza o extrema pobreza, tales como el programa “Hambre Cero” y el programa “Usura Cero”;
+(a) El Capítulo 8 no aplicará a los programas de gobierno para las MIPYME's;
+(b) El Capítulo 8 no aplicará a las contrataciones efectuadas en el marco de programas o iniciativas para mejorar la calidad de vida de la población, especialmente la que vive en pobreza o extrema pobreza, tales como el programa "Hambre Cero" y el programa "Usura Cero";
 (c) El Capítulo 8 no aplicará a los programas de gobierno para la protección de la salud pública, reducción de la pobreza, protección de niños, personas con discapacidad, adolescentes y personas mayores en situación de vulnerabilidad;
 (d) El Capítulo 8 no aplicará a las adquisiciones cuyo propósito sea preservar, promover y mantener la seguridad soberana, la seguridad nacional y/o el interés público;
 (e) El Capítulo 8 no aplicará a las contrataciones realizadas por o para el Ejército de Nicaragua y la Policía Nacional;
@@ -1518,8 +1518,22 @@ Exclusiones específicas
 (h) las contrataciones realizadas bajo procedimiento especial y procedimiento especial para adquisiciones de emergencia.
 Ajuste de umbrales
 4. Panamá convertirá el valor de los umbrales de este Anexo en su moneda nacional a intervalos de dos años después de la entrada en vigencia de este Tratado. Cada ajuste surtirá efecto el 1 de enero del año respectivo.
-5. Panamá calculará el ajuste de umbrales basado en un promedio de las tasas de conversión diaria del dólar de los Estados Unidos en términos de DEG, publicados mensualmente por el Fondo Monetario Internacional (FMI) en sus “Estadísticas Financieras Internacionales”, para el período de dos años previos al 1º de octubre o 1º de noviembre de aquel en que los umbrales ajustados surtirán efecto.
+5. Panamá calculará el ajuste de umbrales basado en un promedio de las tasas de conversión diaria del dólar de los Estados Unidos en términos de DEG, publicados mensualmente por el Fondo Monetario Internacional (FMI) en sus "Estadísticas Financieras Internacionales", para el período de dos años previos al 1º de octubre o 1º de noviembre de aquel en que los umbrales ajustados surtirán efecto.
 Panamá proporcionará el valor de los umbrales nuevamente calculados en su respectiva moneda nacional, antes que el umbral respectivo surta efecto.
+(Nota de Sinalevi: Mediante el artículo 8 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció que el valor de los umbrales, tomando para tales efectos la suma de un dólar con treinta y siete centavos (USD 1,37) por Derechos Especiales de Giro (DEG) y quinientos dieciséis colones con cuarenta y tres céntimos (¢516,43) por dólar estadounidense será:
+c) Para el Tratado de Libre Comercio entre la República de Corea y las Repúblicas de Centroamérica:
+Tipo de contratación | Derechos especiales de giro | Equivalente en Colones
+Instituciones de gobierno central
+Mercancías y Servicios | 130.000 | 109.253.729
+Servicios de construcción | 5.000.000 | 4.202.066.500
+Instituciones de sector subcentral
+Mercancías y Servicios. | 355.000 | 244.218.739,58
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Otras instituciones
+Lista A: Mercancías y Servicios. | 200.000 | 137.588.022,30
+Lista B: Mercancías y Servicios. | 400.000 | 275.176.044,60
+Lista A y Lista B: Servicios de construcción. | 15.000.000 | 10.319.101.672,48
+")
 Anexo 8-B
 MEDIO ELECTRÓNICO O IMPRESO UTILIZADO POR LAS PARTES PARA LA PUBLICACIÓN DE INFORMACIÓN EN VIRTUD DEL ARTÍCULO 8.5
 COREA
@@ -1544,11 +1558,11 @@ www.lagaceta.gob.ni
 Sistema de Contrataciones Administrativas Electrónicas
 www.nicaraguacompra.gob.ni
 PANAMÁ
-Gaceta Oficial – Versión Digital
+Gaceta Oficial - Versión Digital
 www.gacetaoficial.gob.pa
 Asamblea Nacional (Legispan y Gacetas Oficiales)
 www.asamblea.gob.pa
-Sistema Electrónico de Contrataciones Públicas “PanamaCompra”
+Sistema Electrónico de Contrataciones Públicas "PanamaCompra"
 www.panamacompra.gob.pa
 Anexo 8-C
 MEDIO ELECTRÓNICO O IMPRESO UTILIZADO POR LAS PARTES PARA LA PUBLICACIÓN DE AVISOS REQUERIDOS EN LOS ARTÍCULOS 8.6 Y 8.15.2
@@ -1572,5 +1586,5 @@ NICARAGUA
 Sistema de Contrataciones Administrativas Electrónicas
 www.nicaraguacompra.gob.ni
 PANAMÁ
-Sistema Electrónico de Contrataciones Públicas “PanamaCompra”
+Sistema Electrónico de Contrataciones Públicas "PanamaCompra"
 www.panamacompra.gob.pa
