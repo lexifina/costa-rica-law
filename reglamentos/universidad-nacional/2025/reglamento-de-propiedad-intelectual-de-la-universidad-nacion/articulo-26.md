@@ -1,0 +1,2 @@
+ARTÍCULO 26. NO DIVULGACIÓN CON FINES DE PROTECCIÓN DE LA PI
+Es obligación de los creadores identificar, lo antes posible, cualquier tipo de PI susceptible de protección de conformidad con lo indicado en el artículo 25, y consultar a la OTVE antes de divulgar al público la posible PI cuya titularidad pertenece a la universidad. Lo anterior, con el fin de garantizar que no se produzcan divulgaciones prematuras que pueden tener como consecuencia la pérdida de derechos de protección de la PI.

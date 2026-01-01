@@ -1,0 +1,3 @@
+ARTÍCULO 12. TRANSFERENCIA DE TITULARIDAD EN FAVOR DEL CREADOR
+En caso de que la Universidad decida no hacer uso de su derecho a solicitar la protección o registro de su PI, el creador que desee gestionar su comercialización, podrá solicitar por escrito, que los derechos de la Universidad sobre dicha creación intelectual sean transferidos a él, autorizando su registro o apropiación a su nombre. Este pronunciamiento deberá ser emitido por la OTVE.
+No obstante lo anterior, en dichos supuestos, la UNA siempre se reservará una licencia no exclusiva, gratuita, universal e indefinida que le permita utilizar el conocimiento para el cumplimiento de sus fines institucionales.

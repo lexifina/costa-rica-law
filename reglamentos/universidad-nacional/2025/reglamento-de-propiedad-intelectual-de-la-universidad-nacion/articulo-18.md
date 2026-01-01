@@ -1,0 +1,3 @@
+ARTÍCULO 18. CONOCIMIENTOS SUSCEPTIBLES DE PROTECCIÓN
+Cuando en el planteamiento de la propuesta o el desarrollo del trabajo final de graduación se determine por el estudiante, la Universidad Nacional u otra entidad pública o privada que se vincule como parte o auspiciante de este, que del trabajo final de graduación pueden derivarse resultados susceptibles de protección intelectual (patentes de invención, modelos de utilidad, diseños industriales, secretos comerciales o industriales, obtenciones vegetales u otros), estos podrán mantenerse confidenciales mientras se realizan los trámites registrales para obtener su correspondiente protección.
+Para tales efectos, se aplicarán las mismas reglas de confidencialidad contenidas en los artículos 16 y 17.

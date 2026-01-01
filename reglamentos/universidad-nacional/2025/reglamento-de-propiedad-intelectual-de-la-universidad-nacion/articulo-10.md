@@ -1,0 +1,3 @@
+ARTÍCULO 10. DEBER DE COMUNICACIÓN A LA FUNCIONES DE LA OFICINA DE TRANSFERENCIA DE CONOCIMIENTO Y VINCULACIÓN EXTERNA
+Todo personal académico y administrativo que haya generado una creación susceptible de protección intelectual con potencial de transferencia de conocimientos y aprovechamiento a través de la explotación comercial o social, cuya titularidad correspondiente es de la universidad, deberá comunicarlo de forma inmediata y por escrito a la OTVE.
+De igual forma, deberá hacerlo la vicerrectoría académica correspondiente, cuando en su labor asesora y de apoyo en la gestión de la innovación universitaria, identifique un derecho de PI en el marco de la ejecución de un programa, proyecto o actividad académica.

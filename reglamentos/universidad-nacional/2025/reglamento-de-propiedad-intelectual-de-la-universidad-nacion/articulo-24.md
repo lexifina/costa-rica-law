@@ -1,0 +1,3 @@
+ARTÍCULO 24. APLAZAMIENTO DE LA DIVULGACIÓN DE RESULTADOS
+La universidad promoverá su participación en ARES o PPAA financiados por terceros, cuando los resultados puedan ser publicados y utilizados con fines estrictamente académicos. En casos excepcionales, la publicación puede ser aplazada por un tiempo razonable durante el cual la universidad y el tercero deben examinar la viabilidad de proteger una patente u otra medida de protección de una creación intelectual descrita en la publicación.
+Si es necesario, la OTVE facilitará un acuerdo de no divulgación por los revisores de la publicación, de forma que la revisión del artículo para su publicación pueda iniciarse mientras se siguen los trámites necesarios para obtener la protección de la PI.
