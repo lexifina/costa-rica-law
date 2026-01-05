@@ -1,0 +1,1 @@
+Artículo 2º.- Se faculta a la administración pública central, las instituciones y empresas del Estado y se insta a las Municipalidades del país, para que, en la medida de sus posibilidades, y dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, puedan brindar facilidades y cooperación a la Comisión indicada.

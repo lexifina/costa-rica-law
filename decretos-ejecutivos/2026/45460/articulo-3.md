@@ -1,0 +1,1 @@
+Artículo 3º.- De previo a la constitución de la Comisión de Traspaso de Poderes, la Dirección de Protocolo y Ceremonial del Estado del Ministerio de Relaciones Exteriores y Culto, coordinará y será el enlace logístico para atender los requerimientos asociados a la organización de la transmisión de Mando Presidencial.
