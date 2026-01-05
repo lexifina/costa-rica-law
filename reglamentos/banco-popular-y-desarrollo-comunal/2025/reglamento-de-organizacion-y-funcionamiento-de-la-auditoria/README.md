@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-01-05 | la propia norma |
+| 2 | 2026-01-05 | Reglamento 6256 (2025-11-04) |

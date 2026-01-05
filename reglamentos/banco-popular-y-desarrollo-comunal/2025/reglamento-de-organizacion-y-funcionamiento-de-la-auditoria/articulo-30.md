@@ -1,2 +1,1 @@
-Artículo 30° Vigencia. Rige a partir de su notificación en el Diario Oficial La Gaceta.
-(Ref . : acuerdo CCA-12-ACD-105-2025-Art -8 y CTAJ-10-ACD-42-2025-Art -4)
+Artículo 30° Causales de responsabilidad. Incurrirán en responsabilidad administrativa el auditor interno y los demás funcionarios de la auditoría interna cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable o el régimen de prohibiciones; todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente. Lo anterior de conformidad con lo dispuesto por los artículos 40, 41, 42 y 43 de la Ley General de Control Interno.
