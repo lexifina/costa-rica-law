@@ -1,0 +1,1 @@
+Artículo 11.- Combustible: En caso de trámites de combustible las solicitudes de pago deberán ser realizadas por cada UE a la UP cada quince días (máximo) adjuntando de forma digital (o escaneada de forma legible) los respaldos necesarios.

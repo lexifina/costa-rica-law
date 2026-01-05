@@ -1,0 +1,1 @@
+Artículo 10.- Comisiones bancarias: La Tesorería mensualmente, basándose en la conciliación bancaria realizada, emitirá una resolución administrativa, la cual trasladará como documentación de respaldo a la UP solicitando el respectivo trámite de pago.

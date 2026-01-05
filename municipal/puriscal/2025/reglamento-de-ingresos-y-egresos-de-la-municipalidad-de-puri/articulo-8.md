@@ -1,0 +1,1 @@
+Artículo 8.- Transferencias a entidades según leyes específicas: Trimestralmente la Dirección Financiera Administrativa basada en el análisis de ingresos, solicitará según corresponda a la UP la realización del trámite de pago.

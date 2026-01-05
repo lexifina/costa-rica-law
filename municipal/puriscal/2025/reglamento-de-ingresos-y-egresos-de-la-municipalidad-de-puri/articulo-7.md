@@ -1,0 +1,1 @@
+Artículo 7.- Pago de bienes y servicios: Todos los egresos por la adquisición de bienes y servicios se tramitarán por medio de orden de compra obligatoriamente, acatando lo dispuesto en la Ley de Contratación Pública Nº 9986 y su reglamento.
