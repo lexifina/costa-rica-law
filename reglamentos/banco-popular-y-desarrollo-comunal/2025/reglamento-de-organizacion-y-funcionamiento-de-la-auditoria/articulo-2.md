@@ -1,0 +1,1 @@
+Artículo 2° Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación obligatoria para el personal de la Auditoría Interna y para todo trabajador de Popular Servicios Compartidos S.R.L. en lo que resulte aplicable y no podrán alegar desconocimiento de este.

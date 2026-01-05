@@ -1,0 +1,2 @@
+Artículo 3° Aprobación y actualización del Reglamento. El Auditor Interno está en la obligación de elaborar el Reglamento y remitirlo a la Asamblea de Cuotistas para su conocimiento y aprobación, adicionalmente, es responsable de mantenerlo actualizado y de proponer las modificaciones o reformas que se estimen convenientes, observando las regulaciones aplicables.
+La vigencia de cualquier modificación regirá a partir de que éstas sean aprobadas por la Asamblea de Cuotistas, la Contraloría General de la República y publicadas en el Diario Oficial La Gaceta.

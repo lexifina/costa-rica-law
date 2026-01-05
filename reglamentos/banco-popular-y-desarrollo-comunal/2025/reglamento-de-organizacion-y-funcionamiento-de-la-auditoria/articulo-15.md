@@ -1,0 +1,9 @@
+Artículo 15° Potestades del Auditor Interno. Sin perjuicio de lo establecido en otras disposiciones, el Auditor Interno tendrá las siguientes facultades:
+Ejercer la responsabilidad de dirección como máxima autoridad de la Auditoría Interna, así como las funciones que le son propias de conformidad con lo establecido en la Ley General de Control Interno.
+Informar a la Asamblea de Cuotistas, cuando resulte pertinente para su resolución, sobre aquellos casos en los que no haya recibido la debida respuesta de los diferentes componentes de la organización, sobre solicitudes de información, de asesoría o de colaboración.
+Proponer a la Asamblea de Cuotistas, debidamente justificadas, la creación de plazas que considere indispensables para el funcionamiento de la Auditoría Interna.
+Gestionar los requerimientos de personal ante la instancia competente, la cual deberá atender prioritariamente dichos requerimientos, para cumplir con los plazos estipulados en el artículo 28 de la Ley General de Control Interno.
+Solicitar la contratación o incorporación de profesionales, técnicos de diferentes disciplinas, trabajadores o no de Popular Servicios Compartidos S.R.L. para l levar a cabo labores de su especialidad en apoyo a los estudios que real ice la Auditoría Interna.
+Diseñar los lineamientos, políticas, procesos, directrices e instructivos según la normativa legal y técnica aplicable.
+Atenderá los requerimientos que formulen la Contraloría General de la República, la Superintendencia General de Entidades Financieras y cualquier otra instancia competente, tendrá libertad de proveer e intercambiar información, informando de lo actuado a l a Asamblea de Cuotistas, excepto a las solicitudes de carácter confidencial, los cuales serán comunicados únicamente a las instancias solicitantes.
+La Auditoría Interna ejercerá sus competencias en todos los procesos y órganos que integran Popular Servicios Compartidos S.R.L.

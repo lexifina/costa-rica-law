@@ -1,0 +1,1 @@
+Artículo 28° Autoevaluación de calidad. La autoevaluación anual y la evaluación externa de calidad de la Auditoría Interna de Popular Servicios Compartidos S.R.L. se aplicará de conformidad con lo establecido en las directrices D-2-2008-CO-DFOE emitidas por la Contraloría General de la República.

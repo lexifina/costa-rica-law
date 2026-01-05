@@ -1,0 +1,16 @@
+Artículo 22° Competencias. Además de las competencias establecidas en el artículo 22 de la Ley General de Control Interno, le corresponde a la Auditoría Interna:
+Desarrollar auditorías o estudios especiales en cualquiera de las unidades administrativas y operativas, sistemas, procesos, operaciones, funciones, programas o actividades de la Entidad, en el momento que considere oportuno y las veces que sea necesario.
+Verificar el cumplimiento de las disposiciones legales y reglamentarias, de los objetivos y metas, de los planes y procedimientos financieros y administrativos establecidos por Popular Servicios Compartidos S.R.L.
+Evaluar el Sistema de Control Interno, en relación con los aspectos administrativos, presupuestarios, contables, financieros, tecnológicos, de riesgo y de cualquier otra naturaleza, con el f in de determinar su cumplimiento, suficiencia, confiabilidad, validez y eficiencia, y recomendar las mejoras que considere necesarias y oportunas.
+Evaluar la suficiencia, oportunidad y confiabilidad de la información contable, financiera, administrativa y de otro tipo producida en la Entidad.
+Examinar en forma regular la operación efectiva de los controles críticos en la prestación de servicios de apoyo contratados con terceros, sean públicos o privados.
+Evaluar que los recursos financieros, materiales, humanos, tecnológicos y en general, los activos de Popular Servicios Compartidos S.R.L. sean administrados con eficiencia, eficacia y economía, de conformidad con las sanas prácticas administrativas, contables y financieras, y de acuerdo con las normas del ordenamiento jurídico vigente.
+Efectuar evaluaciones de los sistemas de planificación, procesamiento electrónico de datos y otros sistemas, de acuerdo con las normas técnicas y jurídicas aplicables.
+Refrendar los balances, cuentas y estados financieros anuales e intermedios de conformidad con el Reglamento de Información Financiera, acuerdo CONASSIF 6 -18.
+Revisar cuando lo considere pertinente, las operaciones administativas, contables, presupuestarias, financieras, tecnológicas y de cualquier otra naturaleza, los registros, informes y estados financieros, así como cualquier otro tipo de documentación e in formación.
+Efectuar la evaluación de la formulación, ejecución y liquidación del presupuesto de Popular Servicios Compartidos S.R.L.
+Evaluar el funcionamiento del sistema específico de valoración de riesgos de la Entidad.
+Incluir en el plan de trabajo anual la evaluación, seguimiento y control, para la prevención del riesgo de LC/FT/FPADM.
+Verificar el cumplimiento de las políticas y los procedimientos que se establezcan en relación con las tecnologías de información.
+Implementar un plan de auditoría basado en riesgos, el cual, permita evaluar la calidad y la eficacia del marco de gobierno y gestión de las tecnologías de información, así como de la seguridad de la información y la ciberseguridad.
+Verificar que los responsables hayan tomado las medidas y acciones pertinentes para poner en práctica las recomendaciones aceptadas por la administración activa y contenida en los informes de la auditoría interna, auditoría externa, Superintendencia General de Entidades Financieras y Contraloría General de la República.
