@@ -14,3 +14,4 @@ Reglamento para prevenir y sancionar el acoso laboral en la Municipalidad de Cur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-02 | la propia norma |
+| 2 | 2026-01-06 | Reglamento municipal 88 (2026-01-06) |
