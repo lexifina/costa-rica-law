@@ -1,3 +1,0 @@
-Artículo 17.—Del depósito. El dinero recaudado en las cajas municipales, será entregado al tesorero o persona asignada por éste, quien debe preparar el depósito bancario con lo recaudado durante el día, guardará en la caja fuerte lo correspondiente al fondo fijo y remitirá la documentación al departamento emisor para sus respectivas anotaciones.
-El depósito al que se refiere el párrafo anterior se hará las veces que sean necesarios para mantener en las arcas lo menos posible, según las remesas parciales de liquidación que efectúe la caja recaudadora.
-La persona que lleva el depósito al banco, lo hará en compañía de un guarda municipal armado. El depósito se hará en el banco más cercano o en el de mejor conveniencia para los intereses de la municipalidad.

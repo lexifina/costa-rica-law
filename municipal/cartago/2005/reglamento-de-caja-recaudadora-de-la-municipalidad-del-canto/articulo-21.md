@@ -1,2 +1,0 @@
-Artículo 21.—Póliza. El encargado de la caja recaudadora, deberá contar con una póliza de fidelidad, dicha póliza deber ser otorgada por el Instituto Nacional de Seguros, cuyo monto se fijará de acuerdo con sus disposiciones internas. Mientras se tramita esta ante el INS, deberá rendir una garantía fiduciaria.
-Igual deber de suscribir dicha póliza tendrán los demás funcionarios municipales destacados en el Departamento de Tesorería Municipal, de conformidad con las disposiciones emitidas por la Contraloría General de la República.

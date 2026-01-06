@@ -1,1 +1,0 @@
-Artículo 11.—Del ingreso de dinero. A la Caja recaudadora ingresará únicamente dinero en efectivo, salvo cheques por el monto completo que se adeuda a nombre de la Municipalidad del Cantón Central de Cartago y que dicho cheque sea debidamente firmado por el dorso con el número de cédula del endosante y su número telefónico.
