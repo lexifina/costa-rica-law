@@ -1,2 +1,0 @@
-Artículo 2°-Ámbito de aplicación
-Este reglamento se aplicará a todas las personas funcionarias del 9-1-1 en cualquiera de las modalidades de trabajo y regirá el trámite de las denuncias que se interpongan tanto por, personal interno, así como por ciudadanos en el ejercicio de sus derechos, por presuntos hechos irregulares u omisiones, sobre los cuales tenga conocimiento del régimen legal que cubre la institución.

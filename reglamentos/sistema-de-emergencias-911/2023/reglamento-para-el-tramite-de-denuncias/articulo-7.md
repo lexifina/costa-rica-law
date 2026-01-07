@@ -1,2 +1,0 @@
-Artículo 7º-De las represalias. Se asegura al denunciante que no se tomarán represalias de ninguna índole y en caso de presentarse alguna, será revertido contra la persona que las emprenda, mediante la aplicación de las sanciones pertinentes. Adicionalmente aplica todo lo establecido en la Ley 10437 Protección de las personas denunciantes y testigos de actos de corrupción contra represalias laborales, según corresponda.
-(Así reformado y publicado en La Gaceta N° 55 del 22 de marzo de 2024)
