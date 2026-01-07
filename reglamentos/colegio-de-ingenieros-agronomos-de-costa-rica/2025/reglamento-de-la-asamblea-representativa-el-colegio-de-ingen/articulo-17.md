@@ -1,0 +1,2 @@
+Artículo 17.-De la firmeza de acuerdos. Los acuerdos quedarán firmes al aprobarse el acta respectiva. En casos especiales de urgencia, emergencia o necesidad la asamblea, solicitud de la presidencia o que cualquiera de los asambleístas, podrá declarar firme un acuerdo mediante votación de los dos tercios de los votos de los miembros presentes.
+Los acuerdos de asamblea representativa podrán derogarse, modificarse o adicionarse por mayoría absoluta de los miembros presentes en posteriores sesiones, siempre que el asunto figure en la convocatoria.

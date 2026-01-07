@@ -1,0 +1,6 @@
+Artículo 5°-Del nombramiento y sustitución. El nombramiento de los integrantes de la asamblea representativa se hará en la asamblea general ordinaria del año que corresponda entrará en funciones a partir de primero de febrero siguiente y hasta el 31 de enero del año que corresponda.
+En la misma sesión se nombrarán cinco suplentes de los miembros titulares con grado académico de licenciado o con un grado superior a este; por dos suplentes de los miembros titulares colegiados con el grado de bachiller universitario y un suplente de los cinco miembros titulares profesionales con grado para-universitario.
+En el caso de renuncia, muerte o impedimento permanente de un representante para continuar con su cargo, se le sustituirá por un suplente hasta finalizar el plazo de nombramiento de la persona sustituida.
+Los suplentes serán llamados en el orden en que fueron nombrados.
+Si los suplentes se encuentran imposibilitados para asumir el cargo, la junta directiva deberá de convocar a asamblea general extraordinaria para llenar la vacante.
+Para ser electos las personas colegiadas deben de estar presentes en la sesión de asamblea general en que haya de hacerse el nombramiento, no obstante las Asamblea podrá considerar a aquellas personas colegiadas que, mediante nota formal dirigida a la asamblea, manifiesten su anuencia y deseo de integrar el órgano.
