@@ -1,0 +1,11 @@
+CAPÍTULO IV
+SOBRE LAS OBLIGACIONES DEL PERMISIARIO
+Artículo 10. - Serán obligaciones del permisiario:
+a) Mantener el recibo de pago de la licencia al día y en un lugar visible dentro de su unidad móvil.
+b) Una vez terminada la venta según el horario diario previamente establecido, el permisionario deberá retirar el puesto. De no hacerlo, la Municipalidad procederá a retirarlo y el p perderá su derecho a continuar realizando la actividad comercial, sin que esto genere responsabilidad para la Municipalidad.
+c) Todos los permisionario de comercio sobre ruedas deberán mantener un basurero y un lavamanos funcional al lado de su puesto. De igual forma deberán mantener el debido orden y aseo en su puesto y alrededor del mismo.
+d) Todo permisionario deberá mostrar al funcionario o funcionarios municipales que estén debidamente identificados, la documentación requerida cuando este se la solicite; por ejemplo: cédula de identidad, DIMEX en caso de ser extranjero, licencia para comercio sobre ruedas, facturas o cualquier otro documento que el funcionario municipal considere necesario para demostrar la legitimación del comercio.
+e) Quien ejerza la actividad comercial sobre ruedas, deberá estar debidamente inscrito ante Tributación Directa.
+f) Todo puesto de comercio sobre ruedas, deberá tener el respectivo permiso de funcionamiento del Ministerio de Salud vigente y en un lugar visible, la no portación de dicho permiso, faculta a los funcionarios municipales a clausurar la actividad comercial de forma inmediata, hasta que cumpla con lo solicitado, sin que esto genere responsabilidad para la municipalidad.
+g) Todo permisionario deberá respetar el área asignada por la municipalidad, no se permite la ampliación ni extensión del local o la instalación de rótulos, sillas, mesas o toldos fuera del área asignada. El incumplimiento a este inciso, faculta a la municipalidad para proceder con el decomiso inmediato de los objetos colocados sin autorización.
+h) La licencia es intransferible. Esta absolutamente prohibido comerciar la licencia, alquilar o ser explotada por un tercero, lo anterior faculta a la municipalidad a cancelar la licencia de madera inmediata, sin responsabilidad para la municipalidad.

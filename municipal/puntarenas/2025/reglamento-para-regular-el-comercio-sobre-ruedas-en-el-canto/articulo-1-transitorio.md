@@ -1,0 +1,5 @@
+DISPOCICIONES TRANSITORIAS
+Transitorio Uno - Obligación de realizar estudio técnico: La Administración Municipal, por medio del Departamento de Administración Tributaria y con el acompañamiento técnico de la Unidad Técnica de Gestión Vial, deberá elaborar un estudio técnico integral que permita identificar, evaluar y delimitar adecuadamente el uso de calles públicas y otros espacios públicos municipales, para el desarrollo del comercio sobre ruedas, de conformidad con lo establecido en el artículo 7 del presente Reglamento.
+Este estudio deberá contemplar variables tales como: la compatibilidad con el ordenamiento vial, la seguridad peatonal y vehicular, el acceso a servicios públicos, la movilidad urbana y la coexistencia con otras actividades del entorno.
+El plazo para la realización y entrega de este estudio será improrrogable y no podrá exceder los seis meses, contados a partir de la entrada en vigencia del presente Reglamento.
+Una vez concluido, deberá ser remitido al Concejo Municipal, el cual deberá conocerlo, analizarlo y tomar acuerdo de aprobación en un plazo no mayor a un mes calendario contado a partir de la fecha de su recepción".

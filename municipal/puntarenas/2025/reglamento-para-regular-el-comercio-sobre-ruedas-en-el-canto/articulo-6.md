@@ -1,0 +1,1 @@
+Artículo 6. - La fiscalización de las licencias, como el monto a pagar, los decomisos y multas por incumplimiento o infracción, estarán bajo la responsabilidad del departamento de Administración Tributaria Municipal.
