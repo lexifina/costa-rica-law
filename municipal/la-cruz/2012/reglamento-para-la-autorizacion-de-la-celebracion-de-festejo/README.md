@@ -16,3 +16,4 @@ Reglamento para la autorización de la celebración de Festejos Populares, Feria
 | 1 | 2012-06-15 | la propia norma |
 | 2 | 2024-08-12 | Reglamento municipal 23 (2024-08-12) |
 | 3 | 2025-03-19 | Reglamento municipal 71 (2025-03-19) |
+| 4 | 2026-01-07 | Reglamento municipal 132 (2026-01-07) |
