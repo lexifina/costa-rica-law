@@ -1,0 +1,1 @@
+Artículo 15. La solicitud debe acompañarse de los documentos que sustenten esta como, por ejemplo: invitación, información del evento, programa de actividades, desglose de costos del evento, entre otros.

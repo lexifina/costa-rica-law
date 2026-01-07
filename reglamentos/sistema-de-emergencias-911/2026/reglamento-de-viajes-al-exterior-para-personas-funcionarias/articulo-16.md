@@ -1,0 +1,1 @@
+Artículo 16. Una vez analizada y aprobada la solicitud por el Superior Jerárquico, se deberá elaborar el Acuerdo de Viaje correspondiente, utilizando el "F-DR-004, Acuerdo de Viaje", al cual se debe adjuntar la solicitud inicial con los documentos de respaldo.

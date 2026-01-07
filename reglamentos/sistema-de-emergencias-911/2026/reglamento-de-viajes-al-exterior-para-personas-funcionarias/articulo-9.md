@@ -1,0 +1,1 @@
+Artículo 9. No se reconocerán como gastos: el exceso de equipaje, pago por concepto de visa o pasaporte, alquiler de vehículo y combustible, salvo que sea para movilizar a personas funcionarias entre dos ciudades y haya sido contemplado en el acuerdo de viaje.

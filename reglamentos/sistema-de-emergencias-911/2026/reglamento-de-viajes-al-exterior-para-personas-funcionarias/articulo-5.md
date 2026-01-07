@@ -1,0 +1,1 @@
+Artículo 5. La persona funcionaria que por alguna razón no pueda viajar, deberá presentar ante el Jerarca y el Superior Jerárquico los elementos que justifiquen la imposibilidad para gestionar lo correspondiente y valorar posibles responsabilidades.

@@ -1,0 +1,1 @@
+Artículo 2. Este reglamento aplica a todas las personas funcionarias del Sistema de Emergencias 9-1-1 en el ejercicio de sus funciones, tareas y actividades propias del cargo que viajen fuera del país, así como las unidades solicitantes y tramitadoras.

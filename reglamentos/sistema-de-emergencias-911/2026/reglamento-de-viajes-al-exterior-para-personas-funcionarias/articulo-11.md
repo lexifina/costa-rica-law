@@ -1,0 +1,1 @@
+Artículo 11. Las personas funcionarias deberán presentar al Superior Jerárquico de la unidad un informe de viaje en un plazo máximo de ocho días hábiles posterior su regreso, para lo cual deberá utilizar el formulario correspondiente. En el caso de la Dirección, deberá presentarlo a la dependencia autorizada en el Instituto Costarricense de Electricidad.

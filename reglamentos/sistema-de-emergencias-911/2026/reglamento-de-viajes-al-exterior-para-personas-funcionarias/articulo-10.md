@@ -1,0 +1,1 @@
+Artículo 10. Corresponderá a la Dirección autorizar y fijar, en el acuerdo de viaje el monto del gasto de representación en los viajes al exterior y establecer el tipo de atención hacia las personas que visita. En el caso de que el gasto corresponda a la Dirección lo aprobará la dependencia autorizada en el Instituto Costarricense de Electricidad.
