@@ -1,1 +1,0 @@
-Artículo 100.—Si el profesional investigado tuviere conocimiento de alguno de los motivos que inhiban a un miembro del Tribunal para conocer su causa, podrá recusarlo por escrito ante la Junta Directiva para lo que corresponda.

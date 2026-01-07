@@ -1,1 +1,0 @@
-Artículo 144.—El Tribunal publicará los puestos disponibles y las fechas de inicio y cierre de inscripción de candidatos. Asimismo proporcionará el formulario de inscripción, donde los candidatos indicaran el puesto de su interés.

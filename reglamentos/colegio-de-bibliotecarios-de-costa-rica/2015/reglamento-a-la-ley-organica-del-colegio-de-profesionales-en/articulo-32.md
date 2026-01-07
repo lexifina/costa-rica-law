@@ -1,1 +1,0 @@
-Artículo 32.—Formaran quórum en las Asambleas Generales Ordinarias o Extraordinarias la mitad más uno de los miembros del Colegio. En caso de no reunirse el quórum requerido en la primera convocatoria, la Junta Directiva, hará una nueva convocatoria para una hora después de la señalada y entonces la Asamblea podrá sesionar válidamente con los miembros presentes.

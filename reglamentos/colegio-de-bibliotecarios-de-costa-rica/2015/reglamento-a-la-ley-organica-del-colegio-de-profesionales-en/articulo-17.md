@@ -1,1 +1,0 @@
-Artículo 17.—Todo miembro inscrito en el Colegio para asumir funciones como miembro de la Junta, Tribunales, Comisiones, Delegaciones o cualquiera otra actividad del Colegio, deberá juramentarse ante la Junta Directiva no pudiendo ejecutar funciones hasta tanto no cumpla este requisito.

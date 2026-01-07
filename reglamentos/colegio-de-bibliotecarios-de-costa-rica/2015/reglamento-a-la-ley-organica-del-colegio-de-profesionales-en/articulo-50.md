@@ -1,1 +1,0 @@
-Artículo 50.—Para declarar firmes los acuerdos, la Junta Directiva necesita contar con el voto afirmativo de por lo menos dos tercios de los votos de los miembros presentes. Caso contrario quedarán firmes en la sesión de Junta Directiva siguiente.

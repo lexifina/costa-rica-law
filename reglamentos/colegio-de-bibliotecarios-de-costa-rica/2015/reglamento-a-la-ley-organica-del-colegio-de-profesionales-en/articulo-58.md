@@ -1,1 +1,0 @@
-Artículo 58.—El recurso de apelación debidamente interpuesto, será admitido por Junta Directiva para ser elevado ante la Asamblea General Extraordinaria, siempre y cuando haya sido interpuesto dentro de los tres días de notificado el acuerdo.

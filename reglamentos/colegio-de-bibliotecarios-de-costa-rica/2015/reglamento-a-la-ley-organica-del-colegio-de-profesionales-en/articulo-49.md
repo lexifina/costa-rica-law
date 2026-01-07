@@ -1,1 +1,0 @@
-Artículo 49.—Los acuerdos se tomarán por simple mayoría de los presentes y quedarán firmes una vez aprobados el acta en la sesión inmediata siguiente; en caso de empate la Presidencia tendrá doble voto.

@@ -1,1 +1,0 @@
-Artículo 20.—Nomina y diplomas: Los diplomas los autorizará con su firma la Presidencia y la Secretaría. La Secretaría llevará nómina de los miembros honorarios, por orden alfabético con indicación de las fechas y número de acuerdo que confirió ese título.

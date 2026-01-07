@@ -1,1 +1,0 @@
-Artículo 159.—Todo Colegiado deberá designar por escrito, mediante una comunicación escrita debidamente firmada y dirigida a la Junta a la persona o personas beneficiario (s), para que en caso de fallecimiento reciban el subsidio correspondiente.

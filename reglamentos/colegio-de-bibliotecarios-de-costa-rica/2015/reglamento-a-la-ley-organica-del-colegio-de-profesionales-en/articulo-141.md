@@ -1,1 +1,0 @@
-Artículo 141.—El Tribunal sesionará ordinariamente los días, horas y lugares que se fije a sí misma. Solamente los miembros del Tribunal intervendrán con voz y voto en las sesiones. Otras personas presentes no tendrán derecho a voz ni a voto.

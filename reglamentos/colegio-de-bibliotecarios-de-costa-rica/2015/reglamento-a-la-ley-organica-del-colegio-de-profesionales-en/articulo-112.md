@@ -1,1 +1,0 @@
-Artículo 112.—Calificada la contestación, o en rebeldía del profesional investigado, la Presidencia, mediante acuerdo, designará el miembro del Tribunal, que deba tramitar las diligencias y estudio de la causa hasta ser conocido por el Tribunal y se dicte resolución. La designación se hará en forma sucesiva, siguiendo el orden de nombramiento de los miembros.

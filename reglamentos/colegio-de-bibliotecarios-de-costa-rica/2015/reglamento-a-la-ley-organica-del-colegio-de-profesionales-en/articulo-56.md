@@ -1,1 +1,0 @@
-Artículo 56.—El recurso de revisión deberá ser planteado por alguno de los miembros de la Junta. Presentado éste, deberá conocerse y resolverse en la misma sesión o a más tardar en la sesión inmediata siguiente. Las simples observaciones de forma relativas a la redacción de los acuerdos, no serán consideradas como recurso de revisión.

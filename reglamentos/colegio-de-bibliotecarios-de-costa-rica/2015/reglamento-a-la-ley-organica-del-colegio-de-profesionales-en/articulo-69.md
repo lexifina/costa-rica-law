@@ -1,1 +1,0 @@
-Artículo 69.—Los dictámenes del Comité serán adoptados por mayoría relativa de votos de sus miembros, no siendo vinculantes para la Junta Directiva, que podrá acoger el dictamen y emitirlo a nombre del Colegio.

@@ -1,1 +1,0 @@
-Artículo 40.—La Junta Directiva, se juramentará una vez firme el acuerdo de elección, de conformidad en el Artículo 16 de la Ley Orgánica, en esa primera sesión se fijara el día, hora y lugar de sesiones.

@@ -1,1 +1,0 @@
-Artículo 26.—Cuando un miembro del Colegio no hubiere cancelado seis cuotas mensuales y consecutivas, la Tesorería de Junta Directiva lo reconvendrá para que pague las cuotas atrasadas dentro del plazo improrrogable de treinta días naturales, previniéndole que transcurrido ese plazo será suspendido del ejercicio de la profesión.

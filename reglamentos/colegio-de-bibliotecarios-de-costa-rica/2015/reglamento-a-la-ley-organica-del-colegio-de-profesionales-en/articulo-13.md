@@ -1,1 +1,0 @@
-Artículo 13.—Libro Registro de Incorporación: El acto de incorporación de un nuevo miembro deberá constar el orden cronológico. En él se registrarán la sesión, la fecha, el número de asociado y datos de carácter personal y profesional que sean de interés. Esa acta será firmada por la Presidencia, la Secretaría y el incorporado al Colegio.

@@ -1,2 +1,0 @@
-Artículo 161.—En relación con los beneficios del miembro colegiado, se brindara auxilio económico a los beneficiarios designados por éste, por concepto de mutualidad establecido por la Junta Directiva. Así como para cualquier otro beneficio solidario que en el futuro llegare a establecer la Asamblea General.
-La solicitud deberá interponerla el interesado, adjuntando certificado de defunción con no menos de un mes de expedido, así como solicitud formal autenticada por Notario Público, ante las oficinas administrativas del Colegio para su estudio.

@@ -1,1 +1,0 @@
-Artículo 124.—El Tribunal deberá relacionar la pena que va a imponer, según la gravedad de la trasgresión al Código de Ética de la causa que motivó la queja del particular o del miembro en conflicto, con las sanciones señaladas en el artículo anterior.

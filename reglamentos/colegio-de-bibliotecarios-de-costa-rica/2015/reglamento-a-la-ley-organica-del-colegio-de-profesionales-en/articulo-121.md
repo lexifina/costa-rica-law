@@ -1,1 +1,0 @@
-Artículo 121.—Todo interesado podrá desistir de su denuncia, instancia o recurso. Habrá deserción cuando el denunciante deje de impulsar la causa por escrito, al no contestar loas autos o resoluciones del Tribunal de Honor.

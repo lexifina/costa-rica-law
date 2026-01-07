@@ -1,1 +1,0 @@
-Artículo 33.—Llegada la hora en que debe iniciarse la Asamblea, la Presidencia o quien la sustituye en su ausencia, abrirá la sesión siempre que haya quórum. A falta de los miembros de la Junta Directiva y de los vocales, podrá abrir y presidir la sesión el miembro más antiguo.

@@ -1,1 +1,0 @@
-Artículo 146.—El Tribunal informara a la Asamblea las instrucciones del procedimiento para votar, en la que se especifique claramente los requisitos de validez, nulidad del voto y cualquiera otra norma de procedimiento que el Tribunal considere pertinente.

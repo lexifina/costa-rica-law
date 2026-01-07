@@ -1,2 +1,0 @@
-Artículo 117.—Una vez notificado el acto final por parte de la Junta Directiva, las partes podrán interponer recurso de apelación ante la Asamblea General, dentro del término de ocho días hábiles posteriores a la notificación del acto, excepto la sanción prevista en el artículo 46 inciso a) de la Ley.
-De ser procedente, la Junta Directiva admitirá el recurso previniendo a las partes que concurran a hacer valer sus derechos ante dicho organismo.

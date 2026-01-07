@@ -1,1 +1,0 @@
-Artículo 60.—Vicepresidencia: Quien ostente el cargo de Vicepresidencia, asumirá las funciones de la Presidencia en ausencia de éste. En ausencia de ambos, asumirá ese cargo el vocal a quien le corresponda por orden de nombramiento.

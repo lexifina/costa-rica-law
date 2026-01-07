@@ -1,1 +1,0 @@
-Artículo 16.—Únicamente los profesionales inscritos y con las cuotas de colegiatura al día, tienen derecho a asistir a la Asamblea General y a elegir y ser elegidos en cargos de la Junta, a formar parte de Tribunales, Comisiones, Delegaciones o cualquiera otra actividad del Colegio.

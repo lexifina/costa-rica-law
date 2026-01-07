@@ -1,1 +1,0 @@
-Artículo 54.—La Junta Directiva sesionará en forma privada, salvo que acuerde lo contrario por simple mayoría de los miembros presentes. Podrán asistir con voz pero sin voto los representantes ejecutivos del Colegio y aquellas personas colegiadas o no a quienes se les conceda el derecho de participar en las deliberaciones.

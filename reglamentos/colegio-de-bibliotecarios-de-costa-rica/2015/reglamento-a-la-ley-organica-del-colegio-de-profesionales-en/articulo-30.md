@@ -1,1 +1,0 @@
-Artículo 30.—Todo profesional inscrito que se encuentre presente en la Asamblea tiene derecho a que se le inserte su voto razonado en el acta, siempre que su razonamiento lo tenga por escrito a la Secretaría a más tardar de cuarenta y ocho horas siguientes a la sesión.

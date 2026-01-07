@@ -1,1 +1,0 @@
-Artículo 12.—Los profesionales inscritos podrán ejercer la profesión en el territorio nacional. Quedan sometidos al régimen disciplinario del Colegio y a satisfacer una cuota mensual que será fijada por la Junta, perdiendo la autorización si faltare al pago de seis o más cuotas.

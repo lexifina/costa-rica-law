@@ -1,1 +1,0 @@
-Artículo 27.—Una vez cumplido el plazo señalado en el artículo anterior, quien ostente el cargo de Tesorería, en la próxima sesión informará a la Junta Directiva de los casos de morosidad de asociados para que resuelva lo que corresponda. La suspensión surtirá sus efectos el día siguiente de la publicación en el diario oficial.

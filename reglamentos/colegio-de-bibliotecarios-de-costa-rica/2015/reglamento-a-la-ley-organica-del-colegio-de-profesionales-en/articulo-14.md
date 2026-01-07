@@ -1,1 +1,0 @@
-Artículo 14.—Para la reincorporación deberá cumplirse con los requisitos estipulados en los incisos a), ch y d del artículo 11, de este Reglamento. En caso de que no hubiera expediente del colegiado o colegiada, deberá cumplirse con la totalidad de los requisitos establecidos para la incorporación.

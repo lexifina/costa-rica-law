@@ -1,1 +1,0 @@
-Artículo 138.—Las sesiones del Tribunal Electoral serán privadas. Sin embargo, mediante acuerdo tomado en el seno del Tribunal, éste podrá invitar a las personas interesadas que considere conveniente, así como también recibir, en audiencia oral y privada, a todos aquellos con interés legítimo y – o derecho subjetivo que así lo soliciten.
