@@ -1,0 +1,1 @@
+Artículo 13.- A toda persona incorporada se le emitirá un carné que incluya como mínimo: fotografía, el nombre completo, el número de cédula, número colegiado, fecha de incorporación, fecha de emisión y de vencimiento.

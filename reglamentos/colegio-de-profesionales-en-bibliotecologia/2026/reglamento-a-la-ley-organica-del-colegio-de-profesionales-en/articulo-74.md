@@ -1,0 +1,1 @@
+Artículo 74.- Si la denuncia no reúne los requisitos determinados en el artículo anterior, la Fiscalía prevendrá al denunciante para que la amplíe o la complete dentro del término de tres días hábiles, bajo advertencia de que de no hacerlo se ordenará su archivo.

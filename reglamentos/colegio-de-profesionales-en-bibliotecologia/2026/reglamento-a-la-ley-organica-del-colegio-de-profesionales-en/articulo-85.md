@@ -1,0 +1,1 @@
+Artículo 85.- El Tribunal de Honor llevará un registro reservado de sanciones impuestas a los profesionales en bibliotecología. Bajo ninguna circunstancia podrá publicarse el contenido de una resolución mientras no se encuentre en firme. Esta prohibición es sin perjuicio de la responsabilidad civil y penal a la que hubiera lugar.

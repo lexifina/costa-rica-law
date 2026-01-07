@@ -1,0 +1,1 @@
+Artículo 90.- La Junta Directiva elaborará y aprobará los lineamientos y procedimientos necesarios para el funcionamiento del Comité Consultivo, con el fin de ejecutar lo dispuesto en el capítulo VIII de la Ley Orgánica.

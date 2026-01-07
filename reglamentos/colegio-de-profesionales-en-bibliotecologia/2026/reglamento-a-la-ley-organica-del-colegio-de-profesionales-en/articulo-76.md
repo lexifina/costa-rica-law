@@ -1,0 +1,2 @@
+Artículo 76.- El traslado de cargos se le notificará al colegiado investigado, concediéndole el término de quince días para que lo conteste, previniéndole de la obligación de señalar medio para atender notificaciones.
+Si el colegiado investigado no contestara dentro del término concedido, la Presidencia del Tribunal, de oficio o a petición de parte, le declarará rebelde y ordenará continuar con el procedimiento. La declaración de rebeldía no impide que el afectado pueda comparecer en cualquier momento, tomando el proceso en el estado en que se encuentre.

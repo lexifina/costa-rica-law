@@ -1,0 +1,1 @@
+Artículo 39.- La Junta Directiva sesionará en forma privada, no obstante, la Junta Directiva podrá disponer celebrar sesiones abiertas al público. Podrá asistir con voz, pero sin voto quien ejerza la Dirección Ejecutiva del Colegio o aquellas personas, colegiadas o no, a quienes la Junta Directiva convoque o les conceda participar en las deliberaciones.

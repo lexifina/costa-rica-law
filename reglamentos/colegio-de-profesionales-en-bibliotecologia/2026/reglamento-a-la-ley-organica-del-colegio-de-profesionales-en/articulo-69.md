@@ -1,0 +1,2 @@
+Artículo 69.- El procedimiento administrativo de responsabilidad disciplinaria que realice el Tribunal de Honor, se regirá por lo establecido en el Libro Segundo del Procedimiento Administrativo de la Ley General de la Dirección Ejecutiva Pública, salvo que exista disposición expresa en la Ley Orgánica y en este reglamento.
+Con el fin de ordenar el trámite de las quejas y denuncias y de garantizar el debido proceso y el derecho de defensa, el Tribunal de Honor, la Presidencia y Fiscalía elaborarán un manual del procedimiento administrativo del Colegio.

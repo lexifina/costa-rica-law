@@ -1,0 +1,1 @@
+Artículo 56.- Para que el Tribunal de Honor pueda celebrar sus sesiones, se requiere la presencia de al menos tres de sus miembros, y para que haya acuerdo se requerirá el voto de la mayoría simple de los presentes.

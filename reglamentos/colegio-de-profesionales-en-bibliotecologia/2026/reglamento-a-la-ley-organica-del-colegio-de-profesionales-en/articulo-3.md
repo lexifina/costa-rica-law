@@ -1,0 +1,1 @@
+Artículo 3.- -El Colegio se regirá por su Ley Orgánica, la Ley General de Dirección Ejecutiva Pública, el Derecho Privado y las demás leyes aplicables; así como por este Reglamento y los demás reglamentos aprobados por la Asamblea General.

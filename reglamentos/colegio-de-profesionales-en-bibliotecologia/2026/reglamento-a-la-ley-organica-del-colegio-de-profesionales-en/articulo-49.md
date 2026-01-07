@@ -1,0 +1,1 @@
+Artículo 49.- Además de sustituir a la Secretaría en sus ausencias temporales y auxiliarla en sus funciones, la Prosecretaría deberá levantar un cuadro de resumen de los acuerdos del periodo de la Junta Directiva.

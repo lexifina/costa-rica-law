@@ -1,0 +1,1 @@
+Artículo 50.- Los vocales auxiliarán en forma permanente los integrantes de la Junta Directiva conforme lo decida la presidencia; sustituirán por su orden las ausencias temporales de los integrantes de la Junta Directiva.

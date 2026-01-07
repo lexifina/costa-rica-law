@@ -1,0 +1,1 @@
+Artículo 12.- El acto de juramentación de los nuevos miembros deberá quedar registrado en orden cronológico en un Libro de Actas de Incorporación, el nombre completo, el número de cédula del profesional, número de carné, el número de sesión, la fecha, las firmas del colegiado recién incorporado. El acta de apertura del libro deberá ser firmado por secretaría y presidencia.

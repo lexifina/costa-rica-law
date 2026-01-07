@@ -1,0 +1,4 @@
+Artículo 23.- Cuando un miembro del Colegio acumule seis cuotas mensuales consecutivas sin pago, la Tesorería de la Junta Directiva le prevendrá por escrito y por única vez, al medio de notificación registrado, para que cancele lo adeudado más una multa del 2% mensual, dentro de un plazo improrrogable de quince días naturales, bajo apercibimiento de suspensión de sus derechos y, en consecuencia, del ejercicio profesional.
+Vencido el plazo sin que se produzca el pago, la Tesorería presentará en la próxima sesión de la Junta Directiva un informe de morosidad para que se resuelva lo correspondiente a la suspensión.
+El acuerdo de suspensión se publicará en La Gaceta y surtirá efectos el día siguiente a su publicación, quedando en suspenso todos los derechos del colegiado.
+Para recuperar la condición de activo, el colegiado deberá cancelar la totalidad de la deuda y de la multa indicada.

@@ -1,0 +1,1 @@
+Artículo 80.- El Tribunal de Honor convocará a una Audiencia Oral y Privada, para lo cual señalará día y hora. En la audiencia se dispondrá la práctica de todas las diligencias probatorias pedidas por las partes.

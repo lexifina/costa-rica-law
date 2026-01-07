@@ -1,0 +1,1 @@
+Artículo 34.- Al inicio de cada período con nuevos miembros de la Junta Directiva, se comunicará su integración a la Federación de Colegios Profesionales Universitarios de Costa Rica, a las instituciones de educación superior, a las juntas directivas de otros colegios profesionales y a las personas o entidades nacionales o extranjeras que se considere pertinente.

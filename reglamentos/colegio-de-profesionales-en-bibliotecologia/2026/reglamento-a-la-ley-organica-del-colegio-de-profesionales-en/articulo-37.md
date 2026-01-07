@@ -1,0 +1,1 @@
+Artículo 37.- Cuando ocurra la separación de un miembro de la Junta Directiva se levantará la información correspondiente, se comunicará al Tribunal de Elecciones y se hará la convocatoria de la Asamblea Extraordinaria a la brevedad posible, a fin de que se conozca el caso y se elija al sustituto o sustitutos por el resto del período legal.

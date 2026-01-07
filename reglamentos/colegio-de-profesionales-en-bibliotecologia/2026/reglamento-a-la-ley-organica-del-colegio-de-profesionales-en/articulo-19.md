@@ -1,0 +1,2 @@
+Artículo 19.- Colegiado suspendido es el profesional incorporado al que de conformidad con la Ley Orgánica, este Reglamento, el Reglamento del Tribunal de Honor y el Código de Ética, se le suspenden sus derechos por presentar cuotas no pagadas durante al menos un semestre o por sanción disciplinaria.
+La Junta Directiva podrá para realizar acuerdos de pago con los colegiados suspendidos por morosidad, para lo cual emitirá los lineamientos necesarios.

@@ -1,0 +1,1 @@
+Artículo 4.- Para el cumplimiento de los fines establecidos en la Ley Orgánica, el Colegio impulsará y organizará actividades que promuevan el progreso de la Bibliotecología, que mejoren e impulsen la Excelencia y la Ética en el ejercicio profesional de sus miembros, en beneficio de la ciudadanía.

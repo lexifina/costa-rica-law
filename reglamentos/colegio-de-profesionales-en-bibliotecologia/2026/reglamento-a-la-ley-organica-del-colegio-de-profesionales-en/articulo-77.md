@@ -1,0 +1,1 @@
+Artículo 77.- La contestación del colegiado investigado debe ser clara, precisa y circunscrita únicamente al caso denunciado. Determinará específicamente las pruebas que pide que se practiquen y acompañará a aquella todas las pruebas que considere conveniente para su defensa.

@@ -1,0 +1,1 @@
+Artículo 40.- Para que la Junta Directiva pueda sesionar válidamente se requiere la presencia de al menos cinco de sus miembros en la sesión. Para declarar firmes los acuerdos, la Junta Directiva necesita contar con el voto afirmativo de por lo menos un tercio de los votos de los miembros presentes.

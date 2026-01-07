@@ -1,0 +1,1 @@
+Artículo 55.- Las sesiones del Tribunal de Honor son de carácter privado. En las audiencias de los procesos estarán presentes únicamente los miembros del Tribunal de Honor, las partes y sus abogados si los hubiese.

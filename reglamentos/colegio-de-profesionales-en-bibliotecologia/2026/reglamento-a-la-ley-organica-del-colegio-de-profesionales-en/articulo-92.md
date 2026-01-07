@@ -1,0 +1,2 @@
+Artículo 92.- La participación de los colegiados en los Comités de Trabajo es voluntaria y ad honorem. Para la conformación de los Comités de Trabajo que la Junta Directiva considere conveniente y necesario crear, convocará a los colegiados para que se incorporen voluntariamente a dichos organismos.
+Una vez que la Junta Directiva nombre a los integrantes de los Comités de Trabajo, se les comunicará el nombramiento y se les convocará para su juramentación.

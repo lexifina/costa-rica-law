@@ -1,0 +1,1 @@
+Artículo 8.- La Junta Directiva podrá realizar gastos y contraer compromisos dentro del marco del presupuesto aprobado por la Asamblea General; podrá hacer transferencias entre partidas y abrir nuevas partidas dentro de un programa sin sobrepasar el monto asignado a este, únicamente por razones de urgencia o necesidad debidamente justificadas y comprobadas.

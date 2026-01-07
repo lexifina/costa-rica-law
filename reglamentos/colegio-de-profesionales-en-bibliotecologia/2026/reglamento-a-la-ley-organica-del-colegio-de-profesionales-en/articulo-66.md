@@ -1,0 +1,1 @@
+Artículo 66.- El cargo de miembro de Tribunal es incompatible con cualquier otro cargo en cualquier otro órgano del Colegio, exceptuándose al miembro de la Junta Directiva, designado para formar parte del Tribunal durante el período respectivo.

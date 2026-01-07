@@ -1,0 +1,1 @@
+Artículo 25.- Cuando un colegiado se inscriba para asistir a una actividad programada y no pueda presentarse, deberá justificar debidamente su ausencia. De lo contrario, deberá cubrir los costos en los que se incurrió debido a su registro.

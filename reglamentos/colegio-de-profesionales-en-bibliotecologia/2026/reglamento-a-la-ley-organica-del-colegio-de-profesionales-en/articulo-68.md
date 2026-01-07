@@ -1,0 +1,2 @@
+Artículo 68.- Si una de las partes tuviere conocimiento de alguno de los motivos que inhiban a un miembro del Tribunal de Honor para conocer su causa, podrá recusarlo ante ese mismo órgano. La recusación deberá presentarse en forma escrita debiéndose motivar las razones en que funda su petición. El Tribunal de Honor conocerá la recusación y resolverá lo que corresponda.
+Apartado 2. De las formalidades del Procedimiento Administrativo de Responsabilidad Disciplinaria

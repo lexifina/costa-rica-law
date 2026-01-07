@@ -1,0 +1,2 @@
+Articulo 54.- - La Fiscalía del Colegio realizará las investigaciones preliminares de las quejas de colegiados sobre violaciones a la Ley Orgánica y al Reglamento General. Una vez concluida esa investigación, pondrá en conocimiento de la Junta Directiva sus conclusiones. La Junta Directiva valorará el mérito del asunto y resolverá si lo eleva al Tribunal de Honor.
+Contra el acuerdo en el que se deniegue la tramitación de una denuncia cabe recurso de revocatoria dentro del término de tres días de notificada la resolución.

@@ -1,0 +1,1 @@
+Artículo 47.- La Fiscalía promoverá ante quien corresponda, las gestiones y acciones pertinentes por el incumpliendo de la Ley Orgánica, por el ejercicio ilegal de la profesión y realizará las investigaciones preliminares de las quejas y denuncias contempladas en el artículo 42 de la Ley que se presenten ante el Colegio.

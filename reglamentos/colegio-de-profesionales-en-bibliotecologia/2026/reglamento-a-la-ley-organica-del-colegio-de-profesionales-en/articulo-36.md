@@ -1,0 +1,1 @@
+Artículo 36.-No podrán ser miembros de la junta directiva ellos colegiados que se encuentren en las limitaciones señaladas en el último párrafo del artículo 17 de la Ley Orgánica. Los miembros de la Junta Directiva, además los causales indicadas en el artículo 19, serán separados de sus funciones si son suspendidos por cualquier causa.

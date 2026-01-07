@@ -1,0 +1,2 @@
+Artículo 75.- Si la denuncia reúne los requisitos señalados, la Fiscalía clasificará el caso dentro de los causales del artículo 42 de la Ley Orgánica. Realizará la investigación preliminar y lo pondrá a conocimiento de la Junta Directiva para la debida valoración del mérito.
+En el caso de que la Junta Directiva determine la pertinencia y trámite de la denuncia, trasladará el expediente al Tribunal de Honor. La Presidencia del Tribunal de Honor reunirá el Tribunal para dar inicio al procedimiento.

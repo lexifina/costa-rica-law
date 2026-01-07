@@ -1,0 +1,2 @@
+Artículo 44.- El recurso de revisión podrá ser interpuesto por alguno de los miembros de la Junta Directiva dentro de las 24 horas posteriores a la aprobación del acuerdo y resuelto al conocerse el acta para su aprobación, salvo que hubiese sido interpuesto en la misma sesión.
+Los recursos de revocatoria y apelación podrán ser interpuestos dentro de los tres días de notificado el acuerdo. El recurso de apelación debidamente interpuesto, deberá ser admitido por la Junta Directiva para ser elevado a la próxima Asamblea General.

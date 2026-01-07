@@ -1,0 +1,1 @@
+Artículo 7.- Cada dos años o en un plazo menor si fuese necesario, la Junta Directiva revisará los montos de colegiatura y de considerarlo necesario, propondrá para su aprobación por la Asamblea General los ajustes que, con base en estudios técnicos, se determine que sean requeridos.

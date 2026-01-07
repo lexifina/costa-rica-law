@@ -1,0 +1,2 @@
+Artículo 33.- La elección de los miembros de la Junta Directiva se realizará de conformidad con lo que dispone el artículo 17 de la Ley Orgánica, este Reglamento y el Reglamento de Elecciones.
+En Asamblea General Extraordinaria se elegirán aquellos miembros que deban ser sustituidos por incapacidad permanente, renuncia, muerte del titular o por separación del cargo según lo dispone el artículo 19 de la Ley Orgánica.

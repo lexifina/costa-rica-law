@@ -1,0 +1,1 @@
+Artículo 97.- La Junta Directiva nombrará a la persona en el cargo de Director Ejecutivo, quién no podrá ser pariente por consanguinidad o afinidad, hasta el tercer grado, de cualquiera de los miembros de la Junta Directiva a la que corresponda su nombramiento.

@@ -1,0 +1,3 @@
+Artículo 18. -Colegiado honorario es la persona que, por acuerdo de la Asamblea General, recibe la distinción de Miembro Honorario del Colegio
+La Junta Directiva podrá estudiar el nombre de personas ilustres en el campo de la Bibliotecología, sean del país o de otras naciones, que se proponga por algún agremiado del Colegio para someterla a aprobación de la Asamblea General. La propuesta deberá ser debidamente razonada.
+El miembro honorario tendrá derecho a participar en las reuniones de la asamblea general, con voz, pero sin voto y en todas las demás actividades del Colegio. No estarán en la obligación de cancelar las cuotas fijadas por la Asamblea General y tampoco recibirán algún beneficio patrimonial.

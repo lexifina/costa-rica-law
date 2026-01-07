@@ -1,0 +1,2 @@
+Artículo 9. Además de lo dispuesto por el artículo 29 de la Ley Orgánica, el Colegio se financiará con las multas por morosidad dispuestas en el artículo 30 de esa misma Ley Orgánica.
+Las subvenciones, donaciones o legados que le sean otorgadas por cualquier persona, cualquier empresa o institución nacional, internacional o extranjera, no deberán comprometer la autonomía del Colegio. La aceptación de esos fondos deberá ser aprobada por la Junta Directiva previa verificación de su procedencia.
