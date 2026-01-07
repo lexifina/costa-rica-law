@@ -1,0 +1,2 @@
+Artículo 43. Principios aplicables a la interpretación del Reglamento
+Para efectos de interpretar el presente Reglamento y la distribución de los beneficios en él regulados, aplicarán los principios de suficiencia, sostenibilidad, y los demás propios y conexos de los regímenes de jubilaciones complementarias. En todo caso se tomará en Cuando se compruebe que la persona trabajadora ha incumplido cualquier disposición de cuenta el interés de la colectividad y no el particular, de modo que la duda se resolverá en favor del Fondo.

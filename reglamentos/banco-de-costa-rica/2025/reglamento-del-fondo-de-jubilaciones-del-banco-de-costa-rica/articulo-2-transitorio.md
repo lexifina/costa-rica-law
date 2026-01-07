@@ -1,0 +1,2 @@
+Transitorio II: Para aquellas personas trabajadoras que ingresaron a laborar para el Banco de Costa Rica antes del 18 de febrero del año 2000, fecha en que se publicó la Ley de Protección al Trabajador, que dejen de laborar por motivo de pensión, pueden optar voluntariamente por una modalidad de retiro que le permita acogerse a un plan de beneficio de acuerdo con los procedimientos establecidos.
+San José, 17 de diciembre de 2025.
