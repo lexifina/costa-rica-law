@@ -1,0 +1,1 @@
+ARTÍCULO 2- Participación del Estado. El Estado podrá apoyar todas las iniciativas que promuevan el desarrollo local y las actividades de la pequeña y mediana empresas de los habitantes del distrito, que estén vinculadas al desarrollo del turismo.
