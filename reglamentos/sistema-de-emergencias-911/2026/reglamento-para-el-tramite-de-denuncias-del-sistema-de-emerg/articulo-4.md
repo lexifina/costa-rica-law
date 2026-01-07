@@ -1,0 +1,2 @@
+Sección IV. De las represalias
+Artículo 4. Se asegura al denunciante que no se tomarán represalias de ninguna índole y en caso de presentarse alguna, será revertido contra la persona que las emprenda, mediante la aplicación de las sanciones pertinentes. Adicionalmente aplica todo lo establecido en la Ley 10437 Protección de las personas denunciantes y testigos de actos de corrupción contra represalias laborales, según corresponda.

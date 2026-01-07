@@ -1,0 +1,1 @@
+Artículo 13. Los elementos y la información que respalden cualquier denuncia deben de ser enviadas por medio de los canales establecidos, en un lapso prudencial a partir de la fecha del levantamiento de la denuncia. Si la información no es entregada en ese plazo o bien si hay faltante de información fundamental para continuar el procedimiento, el mismo se archivará.

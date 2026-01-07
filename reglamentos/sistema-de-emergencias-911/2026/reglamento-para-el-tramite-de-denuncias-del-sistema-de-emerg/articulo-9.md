@@ -1,0 +1,1 @@
+Artículo 9. Las denuncias en contra la Dirección deberán ser presentadas ante la instancia que el Consejo Directivo del Instituto Costarricense de Electricidad haya asignado o ante la Auditoría Interna para lo cual se debe proceder según lo señalado en el I-AI-001 Instructivo para el análisis de hechos presuntamente irregulares.
