@@ -1,1 +1,0 @@
-Artículo 35.—Aprobación definitiva de acuerdos. Los acuerdos no se tendrán como definitivamente aprobados o firmes, sino una vez aprobada y firmada el acta que los contenga, excepto aquellos aprobados por unanimidad y con declaratoria de firmeza.

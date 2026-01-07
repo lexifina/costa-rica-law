@@ -1,4 +1,0 @@
-Artículo 38.—Forma de resolver la revisión. Presentada una revisión y siendo admisible, el Presidente leerá el recurso y se procederá a deliberar sobre la procedencia o improcedencia de la misma. El Consejo Directivo, por mayoría simple de votos, decidirá si acepta o no la revisión.
-Admitida la revisión, el Consejo resolverá si revoca, modifica o confirma el acuerdo. También podrá demorar la discusión, la resolución o ambos trámites, para otra sesión, quedando entretanto en suspenso la ejecución del acuerdo recurrido; no así el resto de los acuerdos aprobados en la correspondiente sesión.
-Denegada la revisión, se continuará conforme al orden del día y sus alteraciones.
-Si se hubieren presentado dos o más recursos de revisión, se conocerán sucesivamente en el orden de su presentación, pero si se refieren a un mismo acuerdo se resolverán al mismo tiempo.

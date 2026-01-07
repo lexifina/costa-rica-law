@@ -1,1 +1,0 @@
-Artículo 3º—Lugar de sesiones. Las sesiones ordinarias y extraordinarias se celebrarán en el Salón de Sesiones destinado al efecto, en la sede administrativa de la Institución. No obstante, podrán celebrarse sesiones en otros lugares, cuando los asuntos a conocer así lo ameriten o la mayoría de los miembros del Consejo así lo disponga.

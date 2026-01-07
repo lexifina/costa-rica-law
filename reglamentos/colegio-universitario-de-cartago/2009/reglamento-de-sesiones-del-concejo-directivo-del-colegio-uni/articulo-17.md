@@ -1,4 +1,0 @@
-Artículo 17.—Trámite de acuerdos. Los acuerdos resultarán del conocimiento del asunto respectivo, del dictamen de una comisión del Consejo, de la deliberación sobre todo lo anterior y de la votación del asunto en cuestión, en ese mismo orden.
-No podrá prescindirse de ninguno de esos trámites, excepto del dictamen de comisión cuando ésta no exista.
-Los acuerdos de mero trámite, rutinarios, de menor importancia, para los que no se hubiere nombrado comisión, que no sean deliberativos por su naturaleza o que el Presidente propusiere para darle curso a un asunto y no fueren objetados por ningún miembro del Consejo, requerirán estudio o en todo caso aprobación. Quedan a salvo los requisitos especiales de tramitación ordenados por ley.
-Serán nulos los acuerdos que se adopten sin los trámites referidos.

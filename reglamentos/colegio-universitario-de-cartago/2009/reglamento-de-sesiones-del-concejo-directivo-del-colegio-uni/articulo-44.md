@@ -1,1 +1,0 @@
-Artículo 44.—Asignación de dietas. Todo miembro del Consejo Directivo tendrá derecho a devengar dietas en la cantidad mensual y por el monto unitario que la ley estipula. Se observará al efecto lo dispuesto en los artículos 1, 5, 6 y 7 y en los siguientes de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 45.—Justificación de inasistencia a sesiones. Todo miembro del Consejo Directivo que no asistiere a una sesión, podrá justificar la ausencia a más tardar en la sesión ordinaria inmediata, pero no devengará dieta esa sesión.).

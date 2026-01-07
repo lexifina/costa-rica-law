@@ -1,1 +1,0 @@
-Artículo 30.—Grabación de las sesiones. Las sesiones deberán grabarse en su totalidad. Únicamente se suspenderá una grabación en curso, de manera momentánea, cuando algún miembro del Consejo Directivo así lo solicite, indicando las razones del caso.
