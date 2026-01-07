@@ -1,1 +1,0 @@
-Artículo 10.-Cancelaciones o anulaciones del acuerdo de viaje. El funcionario que por alguna razón no pueda viajar, debe presentar ante el Jerarca una nota firmada por él y por su Coordinador de Proceso inmediato, donde se indiquen las razones de por qué no se realiza el viaje.

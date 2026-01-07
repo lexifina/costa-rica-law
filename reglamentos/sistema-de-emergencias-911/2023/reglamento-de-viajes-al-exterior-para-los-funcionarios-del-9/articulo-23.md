@@ -1,1 +1,0 @@
-Artículo 23.-Incumplimiento. En caso de incumplimiento de las disposiciones contenidas en este Reglamento, se procederá de conformidad con lo dispuesto en la normativa aplicable por las faltas cometidas.
