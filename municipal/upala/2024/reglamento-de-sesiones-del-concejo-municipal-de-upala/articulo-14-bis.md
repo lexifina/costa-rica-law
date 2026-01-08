@@ -1,0 +1,2 @@
+Artículo 14 bis.-La asistencia a reuniones de Comisiones Permanentes es obligatoria. La inasistencia comprobada y sin justa causa será causal para iniciar un procedimiento que brinde las garantías mínimas del debido proceso con el fin de suspender del cargo al regidor(a) propietario o suplente faltista para efectos de que el Tribunal Supremo de Elecciones le revoque las credenciales.
+(Así adicionado en sesión N° 0147 del 8 de enero de 2026)

@@ -1,1 +1,2 @@
-Artículo 25.-Las actas serán preparadas por la secretaría y se entregarán a todos los regidores y síndicos, Una para el alcalde municipal. Los dictámenes de Comisión solo se entregarán a los regidores propietarios y suplentes.
+Artículo 25.-El recurso ordinario de revisión procederá contra los acuerdos que no han sido declarados en firme y solo podrá ser presentado por los regidores antes de la aprobación del acta. Para acordar la revisión se necesitará la misma mayoría requerida para dictar el acuerdo.
+(Así modificada su numeración en sesión N° 0147 del 8 de enero de 2026, que lo traspaso del antiguo artículo 24 al artículo 25)

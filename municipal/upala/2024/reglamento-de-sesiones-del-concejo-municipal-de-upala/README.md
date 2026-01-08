@@ -14,3 +14,4 @@ Reglamento de sesiones del Concejo Municipal de Upala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-08-09 | la propia norma |
+| 2 | 2026-01-08 | Reglamento municipal 147 (2026-01-08) |

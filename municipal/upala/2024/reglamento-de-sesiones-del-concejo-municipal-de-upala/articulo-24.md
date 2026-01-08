@@ -1,1 +1,2 @@
-Artículo 24.-El recurso ordinario de revisión procederá contra los acuerdos que no han sido declarados en firme y solo podrá ser presentado por los regidores antes de la aprobación del acta. Para acordar la revisión se necesitará la misma mayoría requerida para dictar el acuerdo.
+Artículo 24.-Al aprobarse el acta respectiva los acuerdos tomados quedarán definitivamente firmes. Para declarar como definitivamente aprobado un acuerdo se necesitará el voto de las dos terceras partes de la totalidad de los miembros del Concejo.
+(Así modificada su numeración en sesión N° 0147 del 8 de enero de 2026, que lo traspaso del antiguo artículo 23 al artículo 24)

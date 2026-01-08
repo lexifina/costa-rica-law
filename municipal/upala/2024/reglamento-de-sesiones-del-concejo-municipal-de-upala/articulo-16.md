@@ -1,1 +1,2 @@
-Artículo 16.-De las mociones, acuerdos, votaciones y actas: En cuanto a las iniciativas de los regidores, deberán presentar sus mociones, preferiblemente, por escrito en hojas que para ese efecto confeccione la secretaria del Concejo, sin perjuicio de que sea presentada en otro tipo de papel.
+Artículo 16.—Las Comisiones Permanentes y Especiales resolverán los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que la Presidencia del Concejo en forma expresa da un término menor o mayor. Las Comisiones Permanentes y Especiales deberán rendir sus dictámenes en un plazo no mayor a quince días prorrogables por otros quince días a juicio de la Presidencia del Concejo Municipal.
+(Así adicionado en sesión N° 0147 del 8 de enero de 2026)

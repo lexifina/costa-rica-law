@@ -1,1 +1,2 @@
-Artículo 23.-Al aprobarse el acta respectiva los acuerdos tomados quedarán definitivamente firmes. Para declarar como definitivamente aprobado un acuerdo se necesitará el voto de las dos terceras partes de la totalidad de los miembros del Concejo.
+Artículo 23.-Todo acuerdo de Concejo se tomará previo dictamen de una comisión del Concejo y después de considerarse suficientemente discutido el asunto. El trámite de comisión podrá dispensarse en casos urgentes y si el Concejo así lo autoriza por mayoría establecida en el artículo 44 del Código Municipal.
+(Así modificada su numeración en sesión N° 0147 del 8 de enero de 2026, que lo traspaso del antiguo artículo 22 al artículo 23)

@@ -1,1 +1,2 @@
-Artículo 28.-En todas las sesiones ordinarias se atenderá al público. Los interesados deberán solicitar su participación por escrito con al menos 24 horas de anticipación, donde se explicaran los motivos de la solicitud y se aceptarán las audiencias que la presidencia considere necesarias, de personas físicas o jurídicas. En caso de que sea por invitación del Concejo se omitirá el trámite anterior.
+Artículo 28.-Las actas se aprobarán en la sesión ordinaria inmediata posterior salvo por razones de fuerza mayor. En este caso la aprobación se pospondrá para la siguiente sesión ordinaria de la atención audiencias e intervención de los particulares.
+(Así modificada su numeración en sesión N° 0147 del 8 de enero de 2026, que lo traspaso del antiguo artículo 27 al artículo 28)

@@ -1,1 +1,2 @@
-Artículo 17.-Se excluye del trámite anterior las mociones de orden y de su alteración o las que surjan después del debate de algún tema específico.
+Artículo 17.-De las mociones, acuerdos, votaciones y actas: En cuanto a las iniciativas de los regidores, deberán presentar sus mociones, preferiblemente, por escrito en hojas que para ese efecto confeccione la secretaria del Concejo, sin perjuicio de que sea presentada en otro tipo de papel.
+(Así modificada su numeración en sesión N° 0147 del 8 de enero de 2026, que lo traspaso del antiguo artículo 16 al artículo 17)

@@ -3,3 +3,5 @@ a) para formar parte del quorum los regidores deberán encontrarse dentro del sa
 b) Si en el transcurso de la sesión se rompe el quorum, el presidente llamará a los regidores a ocupar sus curules; si en cinco minutos no se incorporaran, levantará la sesión dejando constancia de los miembros presentes para efecto del pago de la dieta.
 c) Cuando los Regidores deban asistir a una actividad en representación de la Municipalidad, ya sea por invitación o donde tenga interés la Municipalidad, tendrán derecho a la misma dieta de asistencia de las sesiones, así como a los viáticos respectivos.
 d) Cuando las sesiones del Concejo Municipal se extiendan a horas en que no exista transporte público, la Municipalidad deberá trasladar por sus medios a los miembros del Concejo que así lo requieran.
+e) Los miembros del Concejo Municipal de la Municipalidad de Upala tendrán derecho al pago de dietas por la asistencia hasta de un máximo de dos sesiones extraordinarias durante el mes calendario, indistintamente del orden de las sesiones se le pagarán dos sesiones extraordinarias.
+(Así adicionado el inciso anterior en sesión N° 0147 del 8 de enero de 2026)
