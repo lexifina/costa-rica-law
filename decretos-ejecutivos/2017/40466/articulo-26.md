@@ -1,1 +1,0 @@
-Artículo 26. Tipos de modalidades de teletrabajo. Le corresponde a la Comisión Institucional de Teletrabajo en coordinación con la jefatura, definir el tipo de modalidad de teletrabajo a convenir, ya sea tipo hogar, móvil o telecentro. Los requisitos establecidos en el artículo 29 del presente reglamento, no aplican para las modalidades de teletrabajo móvil y telecentro.

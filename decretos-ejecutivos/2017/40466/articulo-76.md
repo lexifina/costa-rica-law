@@ -1,1 +1,0 @@
-Artículo 76. Informes financieros. La Dirección Financiera será la responsable de emitir un informe semestral a la Comisión Institucional de Teletrabajo, que permita identificar, determinar y cuantificar los beneficios institucionales obtenidos y las economías en que incurre el Cosevi producto de la gestión de teletrabajo.

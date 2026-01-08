@@ -1,1 +1,0 @@
-Artículo 63. Colaboración con la gestión de teletrabajo. La jefatura involucrada en el Programa de Teletrabajo deberá coadyuvar con la Comisión Institucional de Teletrabajo en la implementación de la modalidad de teletrabajo dentro de su gestión.
