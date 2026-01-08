@@ -15,3 +15,4 @@ Reglamento de Notificaciones y Comunicaciones de la SUTEL por medios electrónic
 | --- | --- | --- |
 | 1 | 2012-08-01 | la propia norma |
 | 2 | 2012-09-12 | Resolución 264 (2012-09-12) |
+| 3 | 2026-01-08 | Reglamento 1 (2026-01-08) |
