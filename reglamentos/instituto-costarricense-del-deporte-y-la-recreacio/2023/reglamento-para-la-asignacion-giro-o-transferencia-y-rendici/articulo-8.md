@@ -1,4 +1,0 @@
-Artículo 8º- Entrega de la documentación para la asignación de recursos económicos.
-Los sujetos privados tienen la obligación de entregar toda la documentación solicitada según el manual de procedimientos del presente reglamento para su estudio y análisis en tiempo y forma.
-Deberán enviarla por el medio idóneo y en orden señalado por la Autoridad Competente, quien dispondrá de la Plataforma Tecnológica que el ICODER provea para ese fin. En caso de que la Plataforma Tecnológica no se encuentre disponible, la comunicación será por medio de los correos electrónicos oficializados y actualizados más recientes.
-No se aceptarán solicitudes que no cuente con la documentación requerida en el manual de procedimientos del presente reglamento, la autoridad competente notificará la ausencia de alguno de los documentos requeridos para lo cual la entidad contará con el plazo de subsanación indicado en el artículo 6 del presente reglamento.

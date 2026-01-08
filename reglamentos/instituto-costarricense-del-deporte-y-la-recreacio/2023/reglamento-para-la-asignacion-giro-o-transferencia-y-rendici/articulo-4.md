@@ -1,4 +1,0 @@
-Artículo 4º- Del presupuesto de beneficios patrimoniales
-Corresponde al Consejo, definir las políticas y parámetros para la asignación de recursos para el siguiente ejercicio económico, destinados a entidades cuyo objetivo sea promover la actividad física, el deporte o la recreación.
-La autoridad competente remitirá a la Dirección Nacional, a más tardar el quinto día hábil del setiembre, la propuesta de distribución de recursos entre las entidades que cuenten con Calificación de Idoneidad vigente, y según su Categoría, basada en el informe de los últimos tres periodos fiscales, y será el insumo para la formulación del presupuesto ordinario.
-Para lo anterior deberá existir un acuerdo en firme por parte del CNDR y será comunicado a la Dirección Nacional y enviado a la Contraloría a más tardar el 30 de setiembre de cada año.

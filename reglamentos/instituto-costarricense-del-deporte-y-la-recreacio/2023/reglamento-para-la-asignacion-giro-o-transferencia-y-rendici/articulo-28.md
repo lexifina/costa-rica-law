@@ -1,2 +1,0 @@
-Artículo 28º-Medios para la presentación de documentos.
-Los sujetos privados deberán presentar el Presupuesto y todos aquellos documentos relacionados con el giro, transferencia, ejecución, avance y rendición de cuentas de los beneficios patrimoniales otorgados por el ICODER, por medio de la Plataforma Tecnológica establecida para tal fin, o en su defecto, el medio que la Autoridad Competente defina, mismo que será comunicado oficial y oportunamente al sujeto privado, de acuerdo con lo establecido en el siguiente artículo.
