@@ -1,2 +1,0 @@
-ARTÍCULO 13. Recursos didácticos
-El Viceministerio Académico coordinará la Dirección de Recursos tecnológicos, la Dirección de Desarrollo Curricular, la Fundación Omar Dengo y otras instituciones para el desarrollo de recursos tecnológicos y materiales de apoyo al estudiantado, al personal docente y técnico-docente de las Direcciones Regionales. De estas acciones brindara informes periódicos al Consejo Superior de Educación.
