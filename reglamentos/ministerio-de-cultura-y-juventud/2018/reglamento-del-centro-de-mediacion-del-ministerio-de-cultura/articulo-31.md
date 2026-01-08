@@ -1,1 +1,0 @@
-Artículo 31.- Validez del acuerdo. El acuerdo de mediación tendrá total validez ante las partes y el Ministerio. En caso que se incumpla, cualquiera de las partes podrá recurrir a la sede administrativa o judicial que considere pertinente.
