@@ -1,1 +1,0 @@
-Artículo 25.—Ejecución parcial, flexible o total: Le corresponde a la Comisión Institucional de Teletrabajo en coordinación con la jefatura, definir la conveniencia y oportunidad del cumplimiento de la modalidad de teletrabajo, sea esta parcial, flexible.

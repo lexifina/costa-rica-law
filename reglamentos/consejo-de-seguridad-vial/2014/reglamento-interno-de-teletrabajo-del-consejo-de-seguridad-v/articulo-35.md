@@ -1,1 +1,0 @@
-Artículo 35.—Telecentros y otros: Previa coordinación con su jefatura e indistintamente de la modalidad en que se encuentre el teletrabajador, éste podrá hacer uso de telecentros y salas de videoconferencias disponibles para realizar sus funciones en forma transitoria, debiendo acatar las normas de uso que se establezcan.

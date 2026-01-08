@@ -1,1 +1,0 @@
-Artículo 8º—Deber de colaboración: Todas las jefaturas y los funcionarios relacionados directa o indirectamente con las personas que teletrabajen, están obligados a colaborar, dentro de sus posibilidades y ámbitos de competencia, en la gestión y en función del cumplimiento de los objetivos del programa de teletrabajo.

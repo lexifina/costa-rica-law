@@ -1,1 +1,0 @@
-Artículo 78.—Divulgación y comunicación: La Dirección de Proyectos es la responsable elaborar y dar a conocer los programas de comunicación institucional asociados a la implementación de la gestión de teletrabajo, actividad que desarrollará en coordinación con la Comisión Institucional de Teletrabajo.

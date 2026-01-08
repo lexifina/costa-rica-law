@@ -1,1 +1,0 @@
-Artículo 42.—Teletrabajo modalidad hogar: En caso de que las actividades se realicen desde el domicilio, el trabajador debe acondicionar un espacio físico con las características recomendadas por la Unidad de Salud Ocupacional, que permita el acceso de sus funcionarios para que realicen las inspecciones de las condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

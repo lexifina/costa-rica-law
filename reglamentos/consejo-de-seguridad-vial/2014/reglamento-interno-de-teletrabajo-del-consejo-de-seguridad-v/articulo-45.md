@@ -1,1 +1,0 @@
-Artículo 45.—Herramientas tecnológicas: El teletrabajador debe mantenerse actualizado en las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con lo que establezca el Consejo, mediante la Asesoría en Tecnología de la Información.

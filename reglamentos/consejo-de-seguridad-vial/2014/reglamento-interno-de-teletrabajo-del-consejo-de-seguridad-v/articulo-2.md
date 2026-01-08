@@ -1,1 +1,0 @@
-Artículo 2º—Objetivos de la gestión de teletrabajo. Responderá prioritariamente a la modernización de la gestión, al aumento y medición de la productividad, a la incorporación y aprovechamiento de las tecnologías de la información y comunicación, al mejoramiento en la prestación de servicios a la ciudadanía, mediante una mayor eficiencia en el uso de los fondos públicos.

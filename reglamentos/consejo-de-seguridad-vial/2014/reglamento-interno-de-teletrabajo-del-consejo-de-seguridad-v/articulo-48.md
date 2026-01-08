@@ -1,1 +1,0 @@
-Artículo 48.—Costos fijos de la actividad de teletrabajo: El teletrabajador debe asumir los gastos de electricidad, agua y alimentación, e internet relacionados con el desarrollo de las actividades teletrabajables.

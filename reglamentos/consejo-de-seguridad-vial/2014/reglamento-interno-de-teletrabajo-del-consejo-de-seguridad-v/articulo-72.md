@@ -1,1 +1,0 @@
-Artículo 72.—Confección y aval a los contratos: La Asesoría Legal es la responsable de confeccionar, avalar y recomendar a la Dirección Ejecutiva la firma de las adendas al contrato de trabajo, velando porque se cumpla con los requisitos establecidos en este reglamento.

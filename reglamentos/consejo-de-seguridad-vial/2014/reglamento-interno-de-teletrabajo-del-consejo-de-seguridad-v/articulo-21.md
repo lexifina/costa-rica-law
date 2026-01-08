@@ -1,1 +1,0 @@
-Artículo 21.—Solicitud de ingreso: El funcionario o la jefatura interesada de participar bajo la modalidad de teletrabajo, deberá presentar una solicitud formal ante la Comisión Institucional de Teletrabajo la cual procederá a su estudio y emitirá la recomendación correspondiente.

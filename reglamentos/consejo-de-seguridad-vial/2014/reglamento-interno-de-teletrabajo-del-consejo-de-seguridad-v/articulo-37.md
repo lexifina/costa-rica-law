@@ -1,1 +1,0 @@
-Artículo 37.—Póliza de Riesgos del Trabajador: Los teletrabajadores están protegidos por la Póliza de Riesgos del Trabajo que tiene el Cosevi, siempre que se encuentren ejerciendo las labores propias de su función en el lugar que se haya pactado para realizar las labores tele trabajables.
