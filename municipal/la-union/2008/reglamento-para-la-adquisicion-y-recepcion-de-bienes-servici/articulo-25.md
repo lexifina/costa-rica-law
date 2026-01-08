@@ -1,1 +1,0 @@
-Artículo 25.—Comunicación. Tratándose de Licitaciones Abreviadas y de Contrataciones Directas de Escasa Cuantía, la Proveeduría Municipal será la encargada de comunicar los acuerdos o resoluciones de adjudicación dentro de los plazos y parámetros previstos en el Reglamento General de Contratación Administrativa.

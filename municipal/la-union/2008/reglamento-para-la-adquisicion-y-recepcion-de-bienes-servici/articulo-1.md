@@ -1,7 +1,0 @@
-MUNICIPALIDAD DE LA UNIÓN
-La Municipalidad de La Unión por medio de la presente, informa que el Reglamento para la Adquisición y Recepción de Bienes, Servicios y Obras de la Municipalidad de La Unión, publicado el jueves 14 de febrero del 2008, en La Gaceta N° 32, fue aprobado en el Acuerdo de Concejo Municipal N° SM 021-08, sesión ordinaria N° 138, capítulo quinto, celebrada el 24 de enero del año en curso.
-(NOTA DE SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en La Gaceta N° 32 de 14 de febrero de 2008).
-REGLAMENTO PARA LA ADQUISICIÓN Y RECEPCIÓN DE BIENES, SERVICIOS Y OBRAS DE LA MUNICIPALIDAD DE LA UNIÓN 2008
-CAPÍTULO I
-Disposiciones generales
-Artículo 1º—Objeto. El presente Reglamento deroga cualquier otro reglamento anterior, dictándose el presente con el fin de regular las disposiciones y procedimientos que regirán en las diferentes etapas de la actividad contractual que despliegue la Municipalidad de La Unión, a través del Departamento de Proveeduría, de conformidad con la normativa de la Ley Nº 7494 del 2 de mayo de 1995 y sus reformas, Ley de Contratación Administrativa, Ley 8511 del 16 de mayo del 2006, el Reglamento de Contratación Administrativa y sus reformas, Decreto Ejecutivo Nº 33411-H del 27 de setiembre del 2006, el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, y el Código Municipal.

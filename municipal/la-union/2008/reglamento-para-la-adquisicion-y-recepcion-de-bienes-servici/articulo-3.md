@@ -1,1 +1,0 @@
-Artículo 3º—Alcance de este Reglamento. Este Reglamento será aplicable -sin excepción-, a todos los procedimientos de contratación que promueva la Municipalidad de La Unión por medio de la Proveeduría.

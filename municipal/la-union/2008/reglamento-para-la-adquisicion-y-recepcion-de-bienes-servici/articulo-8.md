@@ -1,1 +1,0 @@
-Artículo 8º—Agrupación de los pedidos. La Proveeduría agrupará los pedidos de las diversas dependencias que versen sobre la misma clase de objetos, siempre que la naturaleza y circunstancias lo permitan, para ello fijará las políticas de recepción de pedidos con el objeto de lograr las mejores condiciones y evitar a la vez fraccionamiento.
