@@ -1,0 +1,1 @@
+ARTÍCULO 5 - Registro de símbolos nacionales. El Ministerio de Educación Pública de Costa Rica será la entidad encargada de elaborar un registro de los símbolos nacionales declarados, así como de promover su conocimiento, informar sus valores culturales y fomentar su preservación.
