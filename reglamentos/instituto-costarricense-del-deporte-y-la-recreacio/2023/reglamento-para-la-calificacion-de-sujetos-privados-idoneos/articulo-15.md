@@ -1,1 +1,0 @@
-Artículo 15.-Fiscalización. La Auditoría Interna del ICODER, podrá fiscalizar la actuación realizada por la CCID, la Dirección Nacional, el Consejo y al sujeto privado en la aplicación de este Reglamento.
