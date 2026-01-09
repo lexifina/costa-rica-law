@@ -1,0 +1,1 @@
+Artículo 20. Queda derogado expresamente el Reglamento para la Calificación de Sujetos Privados Idóneos para Administrar Fondos Públicos asignados al Presupuesto del Instituto Costarricense del Deporte y la Recreación, publicado en la Gaceta del 49 de 16 de marzo del 2023.

@@ -1,0 +1,8 @@
+Artículo 3. Comisión Calificadora de Idoneidad: La Comisión Calificadora de Idoneidad (CCID) será nombrada por la Dirección Nacional y estará conformada por una persona funcionaria de las siguientes unidades organizativas del ICODER:
+a) Unidad de Asesoría Jurídica,
+b) Departamento de Deporte y
+Recreación,
+c) Departamento de Administración y Finanzas,
+d) Unidad Financiera. Cuando se analice la solicitud de un sujeto privado para ejecución de proyectos de obra pública, se integrará a la Comisión, la Jefatura del Departamento de Gestión de Instalaciones. La Comisión contará con dos personas funcionarias que asistirá a la CCID en la revisión preliminar de las solicitudes, la logística de las sesiones, levantamiento y comunicación de las minutas, así como en la custodia de los expedientes digitales y demás aspectos de apoyo a la Comisión.
+La CCID tendrá como función principal, estudiar las solicitudes de idoneidad que presenten los sujetos privados y recomendar ante la Dirección Nacional el dictamen favorable. La Dirección Nacional aprobará y emitirá la calificación de idoneidad.
+La CCID tendrá 30 días naturales para ejecutar el acto de revisión de la solicitud. En caso de requerir subsanaciones de la información presentada, concederá 10 días hábiles al sujeto privado para que sean atendidas por una única vez. La prevención indicada suspende el plazo de resolución de la Administración, transcurrido este, continuará el cómputo del plazo restante previsto para resolver y trasladar a la Dirección Nacional, la recomendación del dictamen favorable para iniciar la gestión de calificación de idoneidad. Sujeto Privado. Cualquier persona jurídica sin fines de lucro que procura obtener la

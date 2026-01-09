@@ -1,0 +1,1 @@
+Artículo 13. Vigencia de la calificación de idoneidad. La calificación de idoneidad otorgada por la Dirección Nacional para administrar fondos públicos de las leyes 7800, 9739, o de cualquier otra fuente de financiamiento con cargo al presupuesto del ICODER, tendrá una vigencia de dos años, contados a partir de la fecha de su emisión.
