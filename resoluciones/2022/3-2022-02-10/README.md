@@ -14,3 +14,4 @@ Requisitos para la atención de solicitudes para recibir donaciones deducibles d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-15 | la propia norma |
+| 2 | 2026-01-09 | Resolución 1 (2026-01-09) |
