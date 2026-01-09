@@ -1,0 +1,8 @@
+ARTÍCULO 4- Requisitos para la declaratoria de los símbolos nacionales de Costa Rica: para que un elemento, objeto, manifestación cultural o natural sea acreedor de la declaratoria de símbolo nacional, deberá cumplir con las características indicadas en el inciso g y otros dos incisos, según se corresponda, de este artículo; las cuales deben constar en la argumentación para su declaratoria, a través de documentos técnicos y científicos correspondientes:
+a) Representatividad: el símbolo debe representar la historia y la variedad multiétnica y pluricultural costarricense.
+b) Identidad: el símbolo debe ser único y distintivo del pais, de forma que promueva las identidades costarricenses.
+c) Relevancia histórica: debe tener una relevancia histórica que lo vincule con eventos, personas o momentos significativos de la historia del país.
+d) Perennidad: el símbolo debe ser duradero y capaz de representar al país a lo largo del tiempo.
+e) Potencial económico: un símbolo patrio puede aportar un valor económico al país, como una fuente de ingresos por medio de bienes y servicios asociados al turismo, a la exportación o a la promoción de la industria local.
+f) Si el símbolo es una planta, animal o característica natural, debe ser propio de una región geográfica del país y tener un papel importante en el ecosistema y para las comunidades locales.
+g) Relevancia cultural: el Ministerio de Cultura y Juventud emitirá el criterio de si el símbolo nacional o patrio cuenta con relevancia cultural, por medio de un dictamen generado por aquella instancia perteneciente a la cartera que tenga la mayor afinidad con la declaratoria en estudio.

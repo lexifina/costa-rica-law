@@ -1,0 +1,1 @@
+ARTÍCULO 7 - Deberes del Ministerio de Ambiente y Energía. Le corresponde al Ministerio de Ambiente y Energía (Minae) velar por la conservación adecuada de las poblaciones de especies declaradas como símbolo nacional existentes en el territorio costarricense y procurar por la debida protección del hábitat natural de dichas especies.
