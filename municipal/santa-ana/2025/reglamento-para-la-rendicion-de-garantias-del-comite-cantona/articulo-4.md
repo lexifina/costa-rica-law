@@ -1,0 +1,3 @@
+Artículo 4°-Funcionarios obligados a rendir la garantía. Los funcionarios que deben rendir la señalada garantía, según el extracto definido en el artículo anterior, por medio de una póliza de fidelidad, son los que ocupen, de forma interina o en propiedad, los siguientes cargos:
+a) Coordinador Administrativo y Contadora; quienes deben suscribir la referida póliza de fidelidad conforme al monto señalado en el Monto I definido en el artículo 3 que antecede.
+b) Presidente y tesorero del Comité Comunal de Deportes y Recreación; quienes deben suscribir la señalada póliza de fidelidad conforme al monto señalado en el Monto II definido en el artículo 3 de este Reglamento.
