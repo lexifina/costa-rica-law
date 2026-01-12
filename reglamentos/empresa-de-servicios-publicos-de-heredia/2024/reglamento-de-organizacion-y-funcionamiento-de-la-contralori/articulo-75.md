@@ -1,2 +1,0 @@
-Sección Tercera. Planificación de los servicios
-Artículo 75. Planificación de un trabajo de auditoría. Las personas encargadas establecerán en la planificación del trabajo de auditoría las comunicaciones necesarias con las personas que corresponda, de acuerdo con los objetivos, el alcance, las responsabilidades, la comunicación de resultados y otros. La persona CI evaluará si procede o no con la comunicación previa a las personas según el tema a investigar y determinará si es necesario informar las potestades legales de las que dispone para realizar el trabajo.

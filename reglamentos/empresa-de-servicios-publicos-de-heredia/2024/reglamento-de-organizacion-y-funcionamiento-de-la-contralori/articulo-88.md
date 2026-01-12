@@ -1,1 +1,0 @@
-Artículo 88. Supervisión del trabajo. Los trabajos serán supervisados de forma apropiada por la persona CI y la persona directora de Servicios de Auditoría según corresponda, para asegurar el logro de los objetivos, la calidad del trabajo y el desarrollo profesional del personal.

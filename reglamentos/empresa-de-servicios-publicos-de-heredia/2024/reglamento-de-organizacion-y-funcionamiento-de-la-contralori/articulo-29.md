@@ -1,1 +1,0 @@
-Artículo 29. Cambios en recursos. La Junta Directiva deberá dar audiencia a la CEM en caso de rebajos presupuestarios y la posición de la CEM deberá dejarse constando. La Junta Directiva deberá motivar su posición en caso de que se aparte de la posición de la CEM.

@@ -1,2 +1,0 @@
-Artículo 135. Sanciones. El incumplimiento injustificado de lo dispuesto en este Reglamento será causal de responsabilidad administrativa, de conformidad con el Capítulo V de la Ley General de Control Interno n.° 8292, y la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública n.° 8422 y su Reglamento.
-La determinación de responsabilidades y la aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

@@ -1,1 +1,0 @@
-Artículo 119. Confidencialidad de los expedientes. La CEM guardará confidencialidad de los expedientes de investigación en trámite y de todos aquellos datos que por disposición específica del ordenamiento jurídico se consideren como tales, así como los que hayan sido declarados por un sujeto público con competencia.

@@ -1,1 +1,0 @@
-Artículo 122. Solicitud de aclaración. La CEM otorgará un plazo prudencial para que la persona denunciante complete su información, si se determina que existe imprecisión de los hechos, de lo contrario, se podrá archivar o desestimar la denuncia sin perjuicio de que luego se presente como una nueva gestión con mayores elementos.

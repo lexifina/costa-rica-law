@@ -1,1 +1,0 @@
-Artículo 58. Administración de los recursos. La persona CI verificará que los recursos de la CEM sean adecuados, suficientes y asignados con efectividad para cumplir con su Plan de Trabajo. La persona CI informará a la Junta Directiva si hay limitaciones, esto para su oportuna atención, y ejecutará los recursos de la CEM de manera independiente de la AA.

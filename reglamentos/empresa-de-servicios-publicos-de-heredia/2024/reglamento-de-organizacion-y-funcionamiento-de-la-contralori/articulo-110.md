@@ -1,1 +1,0 @@
-Artículo 110. Seguimiento de acciones. La persona auditora de Servicios Preventivos y Seguimiento de la CEM llevará el control de implementación de acciones por parte de la AA dentro del plazo definido.

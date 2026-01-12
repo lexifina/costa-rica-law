@@ -1,1 +1,0 @@
-Artículo 72. Atención de solicitudes. Son solicitudes de un ente externo, con el fin de proporcionar criterios, observaciones y demás elementos de juicio para la toma de decisiones, en relación con temas que sean competencia de la CEM, y se brinda si la CEM lo considera pertinente.

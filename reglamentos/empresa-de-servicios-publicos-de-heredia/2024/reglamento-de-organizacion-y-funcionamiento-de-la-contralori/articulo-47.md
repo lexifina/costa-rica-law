@@ -1,5 +1,0 @@
-CAPÍTULO III. DEL FUNCIONAMIENTO DE LA CONTRALORÍA
-EMPRESARIAL
-Sección Primera. Aspectos relativos al funcionamiento de la Contraloría Empresarial
-Artículo 47. Debido cuidado profesional. Las personas trabajadoras de la CEM realizarán su trabajo con el debido cuidado y la pericia que se espera de una persona auditora interna prudente y competente, con apego a la normativa legal y técnica aplicable, así como a las mejores prácticas y la normativa de la ESPH S.A. El debido cuidado profesional no implica que sea infalible.
-Las personas trabajadoras de la CEM considerarán el uso de herramientas de auditoría y técnicas de análisis de datos al ejercer el debido cuidado profesional, y estarán alerta a los riesgos que pudieran afectar los objetivos, las operaciones o los recursos de la ESPH S.A. con relación al objeto del estudio. Los procedimientos de auditoría por sí solos, incluso cuando se efectúan con el debido cuidado profesional, no garantizan que todos los riesgos posibles sean identificados.

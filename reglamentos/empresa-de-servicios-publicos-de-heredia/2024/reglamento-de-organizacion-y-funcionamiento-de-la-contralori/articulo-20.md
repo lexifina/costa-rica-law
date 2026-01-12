@@ -1,1 +1,0 @@
-Artículo 20. Salidas de trabajo. La persona CI podrá informar a la persona presidente de la Junta Directiva sus salidas de la empresa para el cumplimento de sus funciones, siempre y cuando esta comunicación no entorpezca su labor e independencia.

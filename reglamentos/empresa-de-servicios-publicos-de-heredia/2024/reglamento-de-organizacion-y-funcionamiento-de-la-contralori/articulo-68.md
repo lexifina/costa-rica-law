@@ -1,1 +1,0 @@
-Artículo 68. Informes de Control Interno. Se realizan producto de una investigación, que puede dar por resultado un informe de una investigación. El objetivo es emitir medidas correctivas por medio de recomendaciones u observaciones, para que la AA mejore el Sistema de Control Interno al implementarlas.

@@ -1,2 +1,0 @@
-Artículo 51. Programa de aseguramiento de la calidad. La CEM desarrollará, aplicará, mantendrá y perfeccionará un programa de aseguramiento de la calidad que cubra los aspectos de la actividad de la CEM, para lo cual considerará la cantidad de recurso humano, los recursos con los que cuenta la CEM y la oportunidad.
-Este programa podrá incluir evaluaciones de calidad externa e interna periódicas, con supervisión interna continua, de acuerdo con el recurso humano, la normativa aplicable en la materia y en atención de las regulaciones emitidas por la CGR.

@@ -1,1 +1,0 @@
-Artículo 134. Obligación de acatar las disposiciones del Reglamento. Las disposiciones de este Reglamento son de acatamiento obligatorio por parte del personal de la CEM y de la AA de la ESPH S.A., en lo que concierne a cada uno de ellos.

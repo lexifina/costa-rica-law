@@ -1,1 +1,0 @@
-Artículo 123. Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten los elementos de convicción suficientes y se sustenten en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario, la denuncia se archivará.

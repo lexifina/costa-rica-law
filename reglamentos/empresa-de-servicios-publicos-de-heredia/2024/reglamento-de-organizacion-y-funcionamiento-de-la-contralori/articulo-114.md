@@ -1,1 +1,0 @@
-Artículo 114. Incumplimiento injustificado. La persona titular subordinada responsable de la acción que incumpla la atención de una acción de forma injustificada quedará sujeta a las sanciones previstas en el capítulo V de la Ley General de Control Interno n.° 8292 (Responsabilidades y Sanciones).

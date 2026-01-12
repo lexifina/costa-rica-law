@@ -1,1 +1,0 @@
-Artículo 77. Valoración preliminar de riesgo y control interno para servicios a posteriori. Las personas encargadas analizarán una valoración preliminar del riesgo pertinente a la actividad bajo revisión y el control interno relativo, la cual se reflejará en los objetivos del trabajo.

@@ -1,1 +1,0 @@
-Artículo 101. Aceptación tácita de informes. Las recomendaciones de la CEM deberán aceptarse e implementarse si la AA no presenta los recursos correspondientes al vencimiento del plazo estipulado. La presentación extemporánea de conflictos, medidas alternativas o aclaraciones por parte de la AA se tendrán por no hechas.

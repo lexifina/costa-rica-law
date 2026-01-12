@@ -1,1 +1,0 @@
-Artículo 93. Comunicación acerca de los resultados de los servicios a priori. La persona CI definirá el contenido de los memorandos u otros medios de comunicación referentes a los resultados a priori, conforme a su naturaleza y criterios relacionados. La comunicación se realizará de forma oportuna, para que la AA tome las acciones que considere pertinentes.

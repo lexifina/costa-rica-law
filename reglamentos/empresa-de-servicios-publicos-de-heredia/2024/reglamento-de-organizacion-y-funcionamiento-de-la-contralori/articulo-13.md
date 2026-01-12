@@ -1,2 +1,0 @@
-Artículo 13. Organización interna. La persona CI es la encargada de proponer y documentar la estructura organizativa y funcional de la CEM, la cual debe ser aprobada por la Junta Directiva, conforme a las disposiciones, normas, políticas y directrices que emita la CGR.
-Será concordante con los objetivos, el crecimiento y los riesgos de la ESPH S.A., a efecto de garantizar una administración eficaz, eficiente y económica de los recursos asignados, y la efectividad en el cumplimiento de las obligaciones legales y técnicas, entre otros.

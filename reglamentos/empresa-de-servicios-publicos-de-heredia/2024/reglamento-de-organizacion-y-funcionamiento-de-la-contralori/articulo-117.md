@@ -1,2 +1,0 @@
-CAPÍTULO VI. TRÁMITE DE DENUNCIAS
-Artículo 117. Ámbito de competencia en denuncias. La CEM dará trámite a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten a la ESPH S.A., además de lo conceptuado en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública n.° 8422 y que cumplan con lo establecido en este Reglamento.

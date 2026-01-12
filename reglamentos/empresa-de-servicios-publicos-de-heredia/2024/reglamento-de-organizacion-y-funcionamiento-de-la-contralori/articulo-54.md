@@ -1,1 +1,0 @@
-Artículo 54. Informe acerca de las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deberán constar en un informe. La CEM preparará un plan de mejora si los resultados lo ameritan y será responsable de darle seguimiento. Dicho plan se ajustará a los recursos con los que cuente la CEM y se comunicará hacia la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 17. Nombramiento de la persona Contralora Interna. La Junta Directiva nombrará a la persona CI de conformidad con la Ley General de Control Interno n.° 8292; el artículo 28, inciso m) de la Ley de Transformación de la ESPH S.A. n.° 7789; los lineamientos que la CGR establezca al respecto; y la normativa aplicable.

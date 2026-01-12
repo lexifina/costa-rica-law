@@ -1,1 +1,0 @@
-Artículo 80. Riesgo. La actividad de la CEM coadyuvará, conforme a sus competencias, en la mejora del Sistema Específico de Valoración del Riesgo Institucional (SEVRI) de la ESPH S.A. y de los sistemas de control respectivos. La actividad de la CEM fiscalizará la efectividad del SEVRI.
