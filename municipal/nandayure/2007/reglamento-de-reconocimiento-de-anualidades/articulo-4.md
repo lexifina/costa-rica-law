@@ -1,1 +1,0 @@
-Artículo 4º—Las anualidades de los trabajadores de la Municipalidad serán aumentadas hasta un cuatro por ciento (4 %), sobre el salario base, aumentos que se realizarán previo acuerdo municipal, siempre y cuando las finanzas municipales lo permitan.
