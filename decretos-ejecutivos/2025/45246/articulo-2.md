@@ -1,1 +1,0 @@
-Artículo 2º- Deróguese el Decreto Ejecutivo Nº 45104-H de fecha 7 de julio de 2025, publicado en el Alcance número 91 a La Gaceta número 135, de fecha 22 de julio de 2025, a partir de la vigencia del presente decreto.
