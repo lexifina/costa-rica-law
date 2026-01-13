@@ -1,0 +1,1 @@
+Artículo 15.-El Archivo Central de la Municipalidad, deberá contar con los equipos tecnológicos, con los software y hardware necesarios para la administración, descripción, digitalización, facilitación y administración de la información.

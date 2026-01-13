@@ -1,0 +1,1 @@
+Artículo 9°-Será responsabilidad de los encargados de los Archivos de Gestión y sus jefaturas, preparar la Hoja de Remisión de los documentos que se transferirán del Archivo de Gestión al Archivo Central, ya que sin esta en el debido orden no se recibirá ninguna caja de archivo.

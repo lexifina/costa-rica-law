@@ -1,0 +1,1 @@
+Artículo 7°-Las personas encargadas de los Archivos de Gestión, colaborarán en la elaboración de las Tablas de Plazo de Conservación de Documentos y las Tablas de Valoración Parcial, conforme a la capacitación brindada por el Archivo Central.

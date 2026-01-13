@@ -1,0 +1,1 @@
+Artículo 32.-El incumplimiento a este Reglamento y/o uso indebido a los archivos institucionales podría costar una sanción, como la indicada en los artículos 8, 9 y 36 de la Ley 7202 del Sistema Nacional de Archivos.

@@ -1,0 +1,1 @@
+Artículo 10.-En todos los Archivos de Gestión, así como en el Archivo Central se debe llevar el Cuadro de Clasificación, tanto en físico como en electrónico. Queda sujeto a auditorajes por parte del Archivo Central y de Auditoría Interna.

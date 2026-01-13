@@ -1,0 +1,1 @@
+Artículo 22.-El Sistema Institucional de Archivos estará adscrito en una posición estratégica dentro del Organigrama, para interactuar con todas las unidades de la Municipalidad, así como el Archivo Central como ente rector del Sistema, debe estar adscrito a la más alta jerarquía.

@@ -1,0 +1,1 @@
+Artículo 6°-Las jefaturas nombraran formalmente a las personas encargadas de los Archivos de Gestión, que generalmente son quien funge como secretaria o secretario y a un auxiliar, quienes serán los responsables de mantener organizados sus documentos.

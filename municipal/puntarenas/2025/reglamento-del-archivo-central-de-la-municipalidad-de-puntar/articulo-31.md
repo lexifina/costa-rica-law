@@ -1,0 +1,1 @@
+Artículo 31.-La aplicación de éste Reglamento es obligatoria para todos los funcionarios, usuarios internos y externos de la Municipalidad del Cantón Central de Puntarenas, así como para los Archivos de Gestión y el Archivo Central.
