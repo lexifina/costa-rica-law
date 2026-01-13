@@ -1,0 +1,1 @@
+Transitorio I.-El presente Reglamento no tendrá efectos retroactivos o en perjuicio respecto a licencias de docencia o de investigación profesional docente que hayan sido otorgadas previo a su entrada en vigencia.

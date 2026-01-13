@@ -1,0 +1,1 @@
+Artículo 12.-En atención al fin público institucional las personas servidoras de la Promotora deberán reorganizar su función docente o de investigación docente y atender de manera prioritaria los asuntos relacionados a su trabajo cuando así se requiera expresamente por su jefatura inmediata durante su jornada laboral.

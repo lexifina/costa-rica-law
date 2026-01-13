@@ -1,0 +1,1 @@
+Artículo 13.-Las personas servidoras de la institución no podrán utilizar ninguno de los recursos, tales como equipo, valores, bienes y/o derechos propiedad del Estado, para el ejercicio de la licencia otorgada de acuerdo con este Reglamento.

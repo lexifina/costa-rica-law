@@ -1,0 +1,1 @@
+Artículo 15.-Las disposiciones que no se encuentren reguladas en el presente Reglamento, se resolverán en concordancia con lo establecido en las normas vigentes, pronunciamientos doctrinales y la jurisprudencia que regulen esta materia.

@@ -1,0 +1,1 @@
+Transitorio II.-El presente Reglamento deroga totalmente las regulaciones anteriores. Esto incluye cualquier reglamento, directriz o disposición interna previa relacionada con licencias para docencia e investigación en la Promotora Costarricense de Innovación e Investigación (PCII), quedando sin efecto a partir de la publicación oficial de este nuevo reglamento.

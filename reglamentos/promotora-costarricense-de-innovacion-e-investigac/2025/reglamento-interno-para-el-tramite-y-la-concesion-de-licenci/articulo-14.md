@@ -1,0 +1,1 @@
+Artículo 14.-Las personas servidoras que incumplan los términos del presente Reglamento serán sancionadas de acuerdo con las disposiciones del debido proceso contenidas en la Ley General de la Administración Pública, Nº 6227 y el Reglamento Autónomo de Organización y Servicio de la institución vigente.
