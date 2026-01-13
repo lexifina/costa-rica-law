@@ -1,5 +1,3 @@
-CAPÍTULO IV
-Funcionamiento de la Auditoría Interna
-Apartado A
-Ámbito de acción
-Artículo 24.-Ámbito de acción. La Auditoría Interna ejercerá su competencia en los órganos y dependencias de INS Valores, fiscalizando el uso de los fondos públicos destinados al cumplimiento de las actividades sustantivas, la calidad y la eficacia del control interno de la organización, la gestión del riesgo y los sistemas y procesos de Gobierno Corporativo.
+Artículo 24. Protección al personal de la auditoría.
+Cuando el personal de la auditoría interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, la institución dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.
+Esta protección es extensiva a ex funcionarios de la Auditoría Interna quienes durante su relación laboral y en cumplimiento estricto de sus funciones se vieran involucrados en algún conflicto legal o una demanda, lo anterior, de conformidad con la normativa interna emitida por el Grupo INS al respecto.

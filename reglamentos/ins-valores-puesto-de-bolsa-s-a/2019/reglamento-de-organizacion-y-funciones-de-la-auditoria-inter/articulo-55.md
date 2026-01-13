@@ -1,1 +1,2 @@
-Artículo 55.-Responsabilidades de la administración activa. Es responsabilidad del jerarca o titular subordinado ordenar y asegurar la adopción de las medidas y acciones para la oportuna implementación de las advertencias, recomendaciones o disposiciones. En el caso de verificarse un incumplimiento injustificado deberá ordenar el inicio de las acciones disciplinarias y legales que se podrían atribuir a los responsables de su atención.
+Artículo 55. Solicitudes de información
+La Auditoría Interna solicitará al funcionario responsable de ordenar la implementación de las recomendaciones, o a quien corresponda, referirse a los períodos estimados para su cumplimiento, o bien, al progreso alcanzado en relación con su implementación.

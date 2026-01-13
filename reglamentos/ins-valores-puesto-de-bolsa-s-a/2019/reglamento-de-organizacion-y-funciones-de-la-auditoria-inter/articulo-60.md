@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 60.-Régimen sancionario. Por el incumplimiento de lo establecido en el presente Reglamento se aplicará el régimen sancionatorio que al efecto establece la Ley de Control Interno N° 8292, el Código de Trabajo y la normativa interna que al efecto establezca INS Valores.
+Artículo 60. Comunicación de resultados
+Los resultados de la autoevaluación anual deberán ponerse en conocimiento de los funcionarios de la Auditoría Interna, comunicando al máximo jerarca lo pertinente.

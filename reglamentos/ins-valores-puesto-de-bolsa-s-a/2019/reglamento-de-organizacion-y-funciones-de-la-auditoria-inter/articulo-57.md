@@ -1,3 +1,2 @@
-CAPÍTULO V
-Programa de Aseguramiento de la Calidad
-Artículo 57.-Establecimiento del Programa. La Auditoría Interna mantendrá en operación un programa de aseguramiento de la calidad para la actividad de auditoría interna.
+Artículo 57. Comunicación sobre el incumplimiento injustificado de recomendaciones
+De comprobar la Auditoría Interna un incumplimiento injustificado en la implementación de las advertencias, recomendaciones y disposiciones lo hará del conocimiento de la instancia que corresponda, hasta agotar la vía administrativa.

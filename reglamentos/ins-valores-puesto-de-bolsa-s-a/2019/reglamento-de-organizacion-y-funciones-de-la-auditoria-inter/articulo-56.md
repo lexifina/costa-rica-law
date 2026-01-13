@@ -1,1 +1,2 @@
-Artículo 56.-Comunicación sobre el incumplimiento injustificado de recomendaciones. De comprobar la Auditoría Interna un incumplimiento injustificado en la implementación de las advertencias, recomendaciones y disposiciones lo hará del conocimiento de la instancia que corresponda, hasta agotar la vía administrativa.
+Artículo 56. Responsabilidades de la administración activa
+Es responsabilidad del jerarca o titular subordinado ordenar y asegurar la adopción de las medidas y acciones para la oportuna implementación de las advertencias, recomendaciones o disposiciones. En el caso de verificarse un incumplimiento injustificado deberá ordenar el inicio de las acciones disciplinarias y legales que se podrían atribuir a los responsables de su atención.

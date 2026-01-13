@@ -1,1 +1,4 @@
-Artículo 62.-Aprobación. Este Reglamento fue aprobado por la Junta Directiva de INS Valores en la sesión ordinaria N° 678 del 09 de agosto 2022 y por la Contraloría General de la República mediante oficio 17667 (DFOE-CAP-2825) del 24 de octubre del 2022.
+CAPITULO VII
+Denuncia Penal
+Artículo 62. Denuncia Penal
+Cuando las diligencias de investigación acrediten la existencia de elementos suficientes para considerar al menos en grado de probabilidad la ocurrencia de un delito, la Auditoría Interna deberá elaborar una denuncia penal, la cual será remitida al Ministerio Público; con quien se podrá coordinar en cualquier etapa del proceso para asegurar una adecuada gestión del caso.

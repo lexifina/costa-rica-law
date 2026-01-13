@@ -1,3 +1,2 @@
-Apartado F
-De las denuncias
-Artículo 43.-Ámbito de competencia. La Auditoría Interna dará trámite a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública, así como la referida a incumplimientos funcionales y lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
+Artículo 43. Comunicación
+El informe se dirigirá a la instancia con competencia para conocerlo y se valorará informarlo al superior jerárquico de esa instancia para que ejerza la supervisión que le corresponde y no estarán sujetos a la realización de la conferencia final.

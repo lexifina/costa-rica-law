@@ -1,1 +1,2 @@
-Artículo 26.-Archivo permanente. La Auditoría Interna dispondrá de la información sobre las regulaciones legales y de otro tipo que afecten su ámbito de acción y su actividad como tal, mediante los sistemas de información y archivos impresos, digitales, electrónicos y de cualquier otra naturaleza que sobre el particular mantenga la Institución.
+Artículo 26. Actualización de su ámbito de acción
+La Auditoría Interna definirá y mantendrá actualizado el ámbito de acción denominado Universo Auditable, el cual debe ser revisado y actualizado una vez al año, antes de realizar el proceso de planificación anual. Las unidades auditables pueden incluir las unidades de negocio, áreas operativas, procesos, programas, sistemas, entre otros, según convenga.

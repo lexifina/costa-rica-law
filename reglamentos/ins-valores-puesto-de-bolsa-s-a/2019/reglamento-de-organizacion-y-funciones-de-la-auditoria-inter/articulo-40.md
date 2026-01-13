@@ -1,3 +1,2 @@
-Apartado E
-De los informes de carácter especial sobre eventuales responsabilidades
-Artículo 40.-Informessobreeventualesresponsabilidades. El informe sobre eventuales responsabilidades comunicará, a la instancia competente de la administración activa, los asuntos que puedan llevar a establecer posibles responsabilidades administrativas, civiles o penales, considerando los elementos necesarios para la identificación de presuntos responsables y hechos anómalos o irregulares que se les atribuyan; a efecto que sean utilizados como insumo en las investigaciones preliminares o los procesos administrativos que se generen.
+Artículo 40. Acceso a informes
+Los informes de auditoría sobre materia de control interno una vez comunicados oficialmente a la administración activa son de libre acceso por parte de cualquier persona física o jurídica siempre y cuando exista un interés público demostrable y se solicite, cumpliendo los requisitos que establece la normativa interna o externa aplicable.

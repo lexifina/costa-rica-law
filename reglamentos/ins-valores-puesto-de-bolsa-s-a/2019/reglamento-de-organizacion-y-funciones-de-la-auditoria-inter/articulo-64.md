@@ -1,0 +1,2 @@
+Artículo 64. Modificación
+El presente Reglamento modifica el Reglamento de Organización y Funcionamiento de la Auditoría Interna del INS Valores Puesto de Bolsa S.A, aprobado por la Junta Directiva de INS Valores en la Sesión Ordinaria No. 678 del 09 de agosto del 2022 y por la Contraloría General de la República mediante oficio (17667 (DFOE-CAP-2825) del 24 de octubre del 2022 y publicado en el Diario Oficial la Gaceta No. 221 del 18 de noviembre del 2022.

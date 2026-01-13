@@ -1,3 +1,2 @@
-Apartado G
-Del seguimiento de recomendaciones
-Artículo 53.-Programa de Seguimiento para la Implementación de Recomendaciones. La Auditoría Interna contará con un programa de seguimiento de advertencias, recomendaciones aceptadas por la administración active y las oportunidades de mejora; las remitidas por auditores externos, cuando sean de su conocimiento y las disposiciones e instrucciones giradas por la Contraloría General de la República, para verificar su implementación y sustentar las comunicaciones correspondientes.
+Artículo 53. Resguardo de la identidad del denunciante
+Los papeles de trabajo, razón de archivo o comunicación a terceros, generados por la Auditoría Interna, resultado de la denuncia que se atienda, deben resguardar, en todo momento, la identidad del denunciante.

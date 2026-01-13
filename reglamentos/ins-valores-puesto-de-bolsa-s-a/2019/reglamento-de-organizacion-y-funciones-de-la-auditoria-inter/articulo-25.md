@@ -1,1 +1,6 @@
-Artículo 25.-Actualización de su ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por órganos, procesos, u otros, según convenga.
+CAPITULO IV
+Funcionamiento de la Auditoría Interna
+Apartado A
+Ámbito de acción
+Artículo 25. Ámbito de acción
+La Auditoría Interna ejercerá su competencia en los órganos y dependencias de INS Valores, evaluando el uso de los fondos públicos destinados al cumplimiento de las actividades sustantivas, la calidad y la eficacia del control interno de la organización, la gestión del riesgo y los sistemas y procesos de Gobierno Corporativo.

@@ -15,3 +15,4 @@ Reglamento de organización y funciones de la auditoría interna del INS Valores
 | --- | --- | --- |
 | 1 | 2019-09-27 | la propia norma |
 | 2 | 2022-08-09 | Reglamento 678 (2022-08-09) |
+| 3 | 2026-01-13 | Reglamento 767 (2026-01-13) |

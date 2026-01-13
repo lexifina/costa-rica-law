@@ -1,1 +1,3 @@
-Artículo 45.-Confidencialidad del denunciante. La identidad del denunciante, la información, la documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6° de la Ley General de Control Interno N° 8292 y 8° de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
+Artículo 45. Principios generales
+En la admisión de las denuncias o investigación de presuntos hechos irregulares, la Auditoría Interna deberá cumplir con los principios de legalidad, celeridad, independencia, objetividad y oficiosidad.
+La Auditoría Interna de INS Valores pone a disposición un canal para la recepción de denuncias por medio de enlace ubicado en la página web: www.insvalores.com.

@@ -1,1 +1,2 @@
-Artículo 47.-Solicitud de aclaración o información adicional. Ante requerimiento de la Auditoría Interna, el denunciante deberá prestar colaboración para aclarar o brindar información complementaria que permita sustentar los hechos denunciados.
+Artículo 47. Requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría Interna
+Los hechos denunciados deben ser expuestos en forma clara, precisa y circunstanciada, brindando la evidencia suficiente que permita orientar la investigación para determinar el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó y las posibles pruebas y/o evidencias, o al menos la indicación de su localización, así como la posible situación irregular que se solicita investigar.

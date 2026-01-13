@@ -1,1 +1,5 @@
-Artículo 35.-Informe parcial y final. La Auditoría Interna, de acuerdo con su criterio, podrá emitir informes parciales durante la etapa de examen de sus auditorías. Toda auditoría siempre dará lugar a un informe final.
+Apartado D
+De los informes de auditoría sobre materia de control interno
+Artículo 35. Comunicación de resultados
+La Auditoría Interna comunicará los resultados de sus auditorías, mediante informes escritos, a efecto de que la administración activa implemente las recomendaciones de manera oportuna.
+Corresponde a la Auditoría Interna definir al jerarca o titular subordinado al que dirigirá sus informes con sus respectivas recomendaciones, considerando la competencia y autoridad que tiene para ordenar la implementación de éstas.
