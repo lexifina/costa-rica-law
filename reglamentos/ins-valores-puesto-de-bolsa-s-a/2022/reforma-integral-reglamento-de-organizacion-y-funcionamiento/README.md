@@ -14,3 +14,4 @@ Reforma integral Reglamento de organización y funcionamiento de la auditoría i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-18 | la propia norma |
+| 2 | 2026-01-13 | Reglamento 767 (2026-01-13) |
