@@ -14,3 +14,4 @@ Fortalecer el Sistema de Control Interno mediante actividades de control en las 
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
 | 2 | 2023-03-13 | Circular 61 (2023-03-13) |
+| 3 | 2026-01-14 | Circular 4 (2026-01-14) |
