@@ -14,3 +14,4 @@ Tarifas mínimas período 2025
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-01-16 | la propia norma |
+| 2 | 2026-01-14 | Acuerdo 0 (2026-01-14) |

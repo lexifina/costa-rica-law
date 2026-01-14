@@ -1,4 +1,5 @@
 COLEGIO DE PROFESIONALES EN PSICOLOGÍA DE COSTA RICA
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 8 del 14 de enero de 2026, el Colegio de Profesionales en Psicología de Costa Rica, acordó mantener las tarifas aproabas en esta norma para el periodo 2026)
 Cédula Jurídica 3 007045287
 Tarifas Mínimas Periodo 2025
 La Junta Directiva del Colegio de Profesionales en Psicología de Costa Rica, en Sesión Extraordinaria N°14- 12-2024 celebrada el 11 de diciembre del 2024, ha aprobado según acuerdo en firme JD.CPPCR-874-2024, las tarifas mínimas para el periodo 2025, las cuales se detallan a continuación;
