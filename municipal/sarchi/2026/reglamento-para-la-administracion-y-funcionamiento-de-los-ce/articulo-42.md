@@ -1,0 +1,1 @@
+Artículo 42. Construcciones irregulares. Para efectos futuros todas las construcciones irregulares podrán ser susceptibles de formalización por parte del Departamento de Servicios y la Dirección de Desarrollo y Control Urbano, por lo que cada vez que se solicite o tramite un permiso de construcción se procurará la regularización de acuerdo con la normativa aplicable.

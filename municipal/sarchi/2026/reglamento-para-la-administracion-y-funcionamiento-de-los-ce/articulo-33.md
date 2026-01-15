@@ -1,0 +1,7 @@
+Artículo 33. Obligaciones y condiciones surgidas de la inhumación. Las condiciones para la inhumación son las siguientes:
+1. Los cadáveres que se sepulten en las parcelas de inhumación deberán presentarse en ataúdes cerrados.
+2. Queda prohibida la inhumación de más de un cadáver en el mismo ataúd, salvo si se tratare de madre, recién nacido, o criatura abortiva, muertos durante el parto o con una diferencia de fallecimiento hasta de 24 horas. En cada fosa solo debe sepultarse un cadáver, excepto el caso de madre e hijo señalado anteriormente.
+3. Queda prohibida la inhumación en féretros de metal u otro material de difícil y lenta descomposición.
+4. Los cadáveres serán inmediatamente inhumados por el Panteonero, en presencia de las personas que integren el séquito mortuorio, o al menos ante dos testigos.
+5. Dentro del plazo de cuatro meses calendario contados a partir de la fecha de la inhumación, la persona permisionaria deberá solicitar el permiso al Departamento de Servicios para colocar una placa en aluminio, mármol o similar, que contenga el nombre, fecha de nacimiento y muerte de la persona fallecida. La cual será colocada en la cara frontal del nicho o dónde el Departamento de Servicios autorice. En caso de agregarse información adicional, su contenido no podrá contravenir la moral y/o las buenas costumbres.
+6. El nicho, parcela o fosa deberá de cumplir con las condiciones sanitarias necesarias para la inhumación.

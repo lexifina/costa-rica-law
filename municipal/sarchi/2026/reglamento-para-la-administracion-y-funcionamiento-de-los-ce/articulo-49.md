@@ -1,0 +1,2 @@
+CAPÍTULO VII: OTRAS DISPOSICIONES
+Artículo 49. Remate. Para el otorgamiento de los permisos, por la disponibilidad existente, se otorgará conforme el principio de primero en tiempo primero en derecho, no obstante, el Departamento de Servicios, mediante acto motivado, previa autorización del Concejo Municipal podrá gestionar las asignaciones mediante el procedimiento de remate, en estos casos, se deberá de concertar el trámite mediante acuerdo.

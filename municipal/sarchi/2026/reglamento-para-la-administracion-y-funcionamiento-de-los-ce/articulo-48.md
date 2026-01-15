@@ -1,0 +1,1 @@
+Artículo 48. Falta de capacidad jurídica. De manera excepcional cuando se determine que el titular del permiso tenga incapacidad de actuar (por falta de capacidad jurídica) permanente, debidamente comprobada, se podrá aplicar el proceso de reasignación en los términos de este reglamento.

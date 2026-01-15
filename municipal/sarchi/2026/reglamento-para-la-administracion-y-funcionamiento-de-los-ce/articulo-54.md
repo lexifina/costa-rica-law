@@ -1,0 +1,1 @@
+Artículo 54. Sobre los elementos de valor. Los elementos de valor o de lujo colocados en las parcelas que sean objeto de vandalismo, robo o actos similares, no serán responsabilidad de la Municipalidad, sino de cada permisionario.

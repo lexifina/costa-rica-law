@@ -1,0 +1,1 @@
+Artículo 53. Resoluciones administrativas. De lo no contemplado en este reglamento se resolverá mediante un acto motivado suscrito por el titular de la Alcaldía previo criterio técnico de la jefatura del Departamento de Servicios.

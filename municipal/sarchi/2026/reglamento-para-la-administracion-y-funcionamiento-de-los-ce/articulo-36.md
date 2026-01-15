@@ -1,0 +1,1 @@
+Artículo 36. Horario de exhumaciones. Las exhumaciones ordinarias se realizarán de lunes a viernes entre las 8:00 a.m. y las 2:00 p.m., salvo que autoridad judicial competente ordene una exhumación fuera de ese horario para casos especiales o en días inhábiles.

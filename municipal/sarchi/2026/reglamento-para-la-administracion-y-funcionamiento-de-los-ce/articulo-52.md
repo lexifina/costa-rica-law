@@ -1,0 +1,1 @@
+Artículo 52. Sobre las condiciones para la exhumación. En el entendido que en el osario municipal solo se disponen restos óseos, en los supuestos donde no se presente esta condición no podrá realizarse la exhumación.

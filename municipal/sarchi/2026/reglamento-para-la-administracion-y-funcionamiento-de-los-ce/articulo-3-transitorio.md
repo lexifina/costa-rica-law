@@ -1,0 +1,1 @@
+Transitorio III. En el plazo de doce meses costados a partir de la entrada en vigencia del presente reglamento el Departamento de Servicios confeccionará el diseño de sitio del Cementerio Municipal existente.
