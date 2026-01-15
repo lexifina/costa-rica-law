@@ -1,6 +1,6 @@
 # Crea el INCIENSA - Instituto Costarricense Investigación y Enseñanzaen Salud y Nutrición
 
-Ley N° 4508 del 1969-12-26. SINALEVI, ficha 8198: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8198&param2=8795&param3=1>.
+Ley N° 4508 del 1969-12-26. SINALEVI, ficha 8198: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8198&param2=149228&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1969-12-26 | Ley 4508 | 1969-12-26 |
 | 2 de 4 | 1977-11-16 | SINALEVI (3 normas) | 1969-12-26 |
 | 3 de 4 | 2002-05-17 | Ley 8270 | 2002-05-02 |
+| 4 de 4 | 2026-01-15 | Ley 10805 | 2025-11-13 |
