@@ -1,0 +1,1 @@
+Artículo 2.- Se deroga el Artículo 19 "Otras localidades" y se ajusta la numeración del artículo denominado Monto de la tarifa cuando la permanencia es discontinua, para que se enumere como artículo 19; corriéndose la numeración de los restantes artículos del Reglamento.
