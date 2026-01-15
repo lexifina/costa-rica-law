@@ -1,0 +1,2 @@
+Artículo 17.-Coordinación y seguimiento. La Gerencia de Administración, en coordinación con el Departamento Financiero Contable, deberá mantener registro actualizado de los equipos conformados, sus objetivos y resultados.
+Los equipos técnicos se regirán por los principios de eficiencia, responsabilidad, temporalidad y rendición de cuentas, conforme a la Ley N° 8292 de Control Interno y al presente Reglamento.

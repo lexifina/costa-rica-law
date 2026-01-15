@@ -1,0 +1,1 @@
+Artículo 3º-Naturaleza y carácter. La Comisión NICSP es un órgano técnico de coordinación, asesoramiento y seguimiento, sin potestad decisoria ni carácter de órgano colegiado, de conformidad con los artículos 49 al 58 de la Ley General de la Administración Pública.

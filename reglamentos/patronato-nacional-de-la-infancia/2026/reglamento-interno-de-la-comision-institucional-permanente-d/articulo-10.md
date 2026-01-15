@@ -1,0 +1,3 @@
+Artículo 10.-Minutas y control de acuerdos. De cada sesión se levantará una minuta que contendrá la lista de asistencia, los temas tratados, los acuerdos adoptados y los responsables de ejecución. El control y seguimiento de los acuerdos estará a cargo de la Gerencia de Administración y/o de la persona funcionaria del esta Gerencia a la que se le asigne.
+La Gerencia de Administración será responsable de la custodia y archivo de la documentación generada por la Comisión NICSP, así como de garantizar su integridad y disponibilidad para efectos de control interno y auditoría.
+Las minutas deberán ser aprobadas en la sesión siguiente y remitidas al Departamento Financiero Contable para su inclusión en el Estado de Notas Contables e informes vinculantes a la Comisión NICSP.

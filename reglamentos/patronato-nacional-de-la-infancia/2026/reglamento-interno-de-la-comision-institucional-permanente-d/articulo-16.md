@@ -1,0 +1,2 @@
+Artículo 16.-Informes y rendición de resultados. Cada equipo deberá rendir informes periódicos y un informe final ante la Comisión NICSP, que incluya el análisis técnico efectuado, los resultados obtenidos, las recomendaciones formuladas y los productos entregados.
+Dichos informes formarán parte del expediente institucional la Comisión NICSP y servirán de insumo para los reportes que se remiten a la DGCN.
