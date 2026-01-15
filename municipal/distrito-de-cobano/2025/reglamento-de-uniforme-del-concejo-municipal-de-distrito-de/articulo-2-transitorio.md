@@ -1,0 +1,1 @@
+Transitorio II.-Una vez en vigencia el presente Reglamento, todos aquellos funcionarios municipales a los que se les hubiere entregado uniforme o indumentaria, deberán cumplir con las disposiciones que esta normativa establece.

@@ -1,0 +1,1 @@
+Artículo 15.-Para la aplicación de toda sanción por incumplimiento a las disposiciones de este Reglamento, se deberá seguir el procedimiento especial establecido en el Código Municipal y leyes existentes.

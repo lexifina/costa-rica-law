@@ -1,0 +1,1 @@
+Artículo 6º-Será responsabilidad del departamento de Recursos Humanos solicitar con al menos tres meses de antelación la compra de uniformes de todos los funcionarios municipales y una vez recibidos los mismos los entregará a los trabajadores en coordinación con las jefaturas respectivas.

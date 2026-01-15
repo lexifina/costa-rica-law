@@ -1,0 +1,1 @@
+Artículo 12.-Para el cumplimiento de las disposiciones anteriores, el Concejo Municipal de Distrito Cóbano, asignará la partida presupuestaria correspondiente en el presupuesto ordinario para el ejercicio económico de cada año, mediante la cual se adquiera la indumentaria personal para sus trabajadores y realizará la entrega del mismo, en el mes de febrero de cada año.

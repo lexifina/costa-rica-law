@@ -1,0 +1,1 @@
+Transitorio IV.-La Intendencia Municipal del Concejo Municipal de Distrito Cóbano, asignará anualmente el contenido económico correspondiente para la adquisición de uniformes de los trabajadores municipales.
