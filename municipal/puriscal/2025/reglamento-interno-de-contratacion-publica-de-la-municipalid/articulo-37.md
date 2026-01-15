@@ -1,0 +1,1 @@
+Artículo 37-. Formalización de la Donación: una vez aprobado el acuerdo, la donación se formalizará mediante acta de entrega-recepción, según corresponda, suscrito por el alcalde o su delegado, y el beneficiario.

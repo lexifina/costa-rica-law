@@ -1,0 +1,1 @@
+Artículo 6-. Objetivo General del departamento: facilitar la gestión institucional mediante efectivos procesos de adquisición de obras, bienes y servicios, requeridos por las diferentes unidades administrativas de la Municipalidad.

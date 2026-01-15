@@ -1,0 +1,1 @@
+Artículo 64-. Derogación I: el presente reglamento deroga el Reglamento Interno de Contratación Públicas de la Municipalidad de Puriscal, publicada mediante la gaceta n°229, del lunes 11 de diciembre del 2023 y cualquier otra disposición que se le oponga.

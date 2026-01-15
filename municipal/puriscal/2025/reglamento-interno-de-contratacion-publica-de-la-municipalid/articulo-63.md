@@ -1,0 +1,1 @@
+Artículo 63. Supletoriedad: todo lo no previsto en este reglamento se regirá por la Ley General de Contratación Pública N.º 9986, Reglamento para la Ley General de Contratación Pública, la Ley General de la Administración Pública, Código Municipal, la Ley de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 30-. Principios rectores: las donaciones realizadas por la Municipalidad deberán regirse por los principios de legalidad, transparencia, rendición de cuentas, equidad, eficiencia, control, y responsabilidad fiscal.

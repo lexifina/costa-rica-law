@@ -1,0 +1,1 @@
+Artículo 27-. Caja Chica: Se tramitará de acuerdo con lo establecido en el Reglamento para el Funcionamiento del Fondo Fijo de Caja Chica de la Municipalidad de Puriscal vigente, las compras deberán cumplir con los requisitos establecidos en el artículo 12 del RLGCP.

@@ -1,0 +1,1 @@
+Artículo 43-. Prórrogas al Plazo de Ejecución del Contrato: la unidad solicitante deberá de emitir criterio técnico sobre la aceptación o no de una solicitud de prórroga del plazo de ejecución del contrato vigente por parte del contratista, para lo cual deberá de considerar las afectaciones en la programación de la ejecución.

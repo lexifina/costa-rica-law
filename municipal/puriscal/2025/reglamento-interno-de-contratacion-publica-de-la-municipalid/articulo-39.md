@@ -1,0 +1,1 @@
+Artículo 39-. Fiscalización y uso adecuado: la Municipalidad podrá verificar que las donaciones sean utilizadas para los fines autorizados. En caso de mal uso, podrá solicitar su restitución o aplicar sanciones según el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 40-. Informes periódicos: La Alcaldía presentará al Concejo Municipal un informe semestral con detalle de las donaciones otorgadas, incluyendo evaluación del impacto y cumplimiento de objetivos.

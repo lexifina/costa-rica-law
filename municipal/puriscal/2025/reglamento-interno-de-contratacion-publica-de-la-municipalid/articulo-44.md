@@ -1,0 +1,2 @@
+Artículo 44. Suspensión del Plazo del Contrato: en caso de que la suspensión del plazo sea promovida por la Administración, la unidad solicitante deberá motivar el evento de fuerza mayor o caso fortuito que la originan y que le imposibiliten cumplir sus obligaciones contractuales.
+Ese acto deberá ser notificado al contratista en el tiempo fijado en el pliego de condiciones, o en su defecto dentro de los cinco días hábiles siguientes al conocimiento del evento.

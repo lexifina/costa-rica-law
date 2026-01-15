@@ -1,0 +1,1 @@
+Artículo 65-. Derogación II: el presente reglamento deroga el artículo 39 del Reglamento de parques y zonas verdes de la Municipalidad de Puriscal, en cuanto no se ajusta a derecho con la Ley General de Contratación Pública, en el tema de patrocinios los cuales deben de realizarse conforme indica la ley antes citada.

@@ -1,0 +1,2 @@
+Artículo 57-. Recurso de Apelación: en el caso de recursos de apelación interpuestos contra el acto de adjudicación, dentro del plazo que señale la CGR, la Proveeduría será responsable de atender las solicitudes que plantee la Contraloría General de la República.
+Para efectos de contestación de las audiencias que otorgue la CGR o resolución de los recursos competencia de la Municipalidad, la Proveeduría podrá solicitar a la unidad solicitante, técnica o legal, toda la información que se requiera y dentro del plazo que esta determine.

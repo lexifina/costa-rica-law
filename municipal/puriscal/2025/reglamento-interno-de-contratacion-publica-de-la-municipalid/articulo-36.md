@@ -1,0 +1,1 @@
+Artículo 36-. Aprobación del Concejo Municipal: toda donación deberá ser aprobada mediante acuerdo del Concejo Municipal, en sesión ordinaria o extraordinaria, con el respectivo respaldo documental e informes técnicos.

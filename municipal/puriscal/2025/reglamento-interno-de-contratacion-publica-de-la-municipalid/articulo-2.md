@@ -1,0 +1,1 @@
+Artículo 2-. Objetivo: el presente Reglamento tiene como objetivo fijar las competencias de las distintas dependencias internas de la Municipalidad de Puriscal que, de forma permanente u ocasional, participan en los procesos de adquisición de bienes y servicios, conforme a la Ley General de Contratación Pública y su Reglamento.

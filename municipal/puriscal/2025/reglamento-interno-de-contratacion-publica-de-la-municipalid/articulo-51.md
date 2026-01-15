@@ -1,0 +1,1 @@
+Artículo 51-. Vicios ocultos: el hecho de que la obra sea recibida a satisfacción en el acto de recepción final no exime al contratista de su responsabilidad por vicios ocultos. La Municipalidad tiene un plazo de cinco años para reclamar al contratista la indemnización por daños y perjuicios ocasionados por dichos vicios.
