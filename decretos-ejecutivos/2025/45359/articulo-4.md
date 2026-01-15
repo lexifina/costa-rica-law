@@ -1,0 +1,2 @@
+Artículo 4º- Refórmese el Artículo 6 del Decreto Ejecutivo N° 41593-MAG del 8 de enero de 2019, para que en lo sucesivo se lea así:
+"Artículo 6º-Incumplimiento. El incumplimiento de lo ordenado por el presente Decreto Ejecutivo, será sancionado conforme lo indicado en la Sección I, llamada Infracciones, correspondiente al Capítulo VIII denominado Sanciones Administrativas, de la Ley de Protección Fitosanitaria, Ley Nº 7664."
