@@ -1,0 +1,1 @@
+Artículo 9- De la fragmentación y separación por funcionalidad. La Proveeduría comunicará, a principios de cada año, las fechas límites para la presentación de SMS, con el objetivo de agrupar las compras, evitar la fragmentación, aprovechar las economías de escala y no evadir los procedimientos de contratación que corresponden.

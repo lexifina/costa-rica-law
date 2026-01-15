@@ -1,0 +1,1 @@
+Artículo 36- Visto bueno ejecución contractual: Para que el Departamento de Proveeduría Institucional, inicie los procedimientos que correspondan en atención a lo establecido en los artículos del 30 al 35 de este Reglamento, deberá contar con el visto bueno de quien emitió el acto de adjudicación de la licitación que se pretende modificar.
