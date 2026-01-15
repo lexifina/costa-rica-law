@@ -1,0 +1,1 @@
+Transitorio único. - Las postulaciones presentadas de previo a la entrada en vigor de la presente reforma, continuarán su trámite en la forma definida por el reglamento vigente al momento de su presentación.

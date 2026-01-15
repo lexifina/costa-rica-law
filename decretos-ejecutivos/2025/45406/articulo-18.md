@@ -1,0 +1,1 @@
+Artículo 18.- Comunicación de los resultados. El Colegio de Costa Rica comunicará los resultados de la convocatoria a través de la página web del Ministerio de Cultura y Juventud como plazo final el último día hábil del mes de diciembre, una vez que la Asamblea Legislativa haya ratificado el presupuesto destinado a la convocatoria específica.

@@ -1,0 +1,1 @@
+Artículo 20.- De la resolución administrativa. El Colegio de Costa Rica informará al Despacho Ministerial del Ministerio de Cultura y Juventud sobre los resultados de la convocatoria, con el fin de que se emita la Resolución Administrativa correspondiente.

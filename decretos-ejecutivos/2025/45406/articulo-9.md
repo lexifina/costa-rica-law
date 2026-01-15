@@ -1,0 +1,5 @@
+Artículo 9.- Funciones de la comisión. seleccionadora. La comisión seleccionadora tendrá a su cargo:
+a. Analizar y seleccionar los proyectos que recibirán apoyo del fondo concursable regulado por este reglamento. Para garantizar la transparencia en este proceso, la comisión elaborará un instrumento. de evaluación, alineado con los criterios de valoración establecidos en este reglamento. Además, asignará los montos a cada proyecto seleccionado, respetando los rangos previamente fijados y tomando en cuenta la propuesta presentada y el presupuesto total disponible para la convocatoria.
+b. Atender las sesiones de trabajo necesarias para cumplir con las labores de análisis y selección de los proyectos.
+c. Elaborar un acta en la que se detallen los nombres de las personas y proyectos seleccionados, los montos aprobados para cada uno, y los criterios o justificaciones utilizados en la selección. Esta acta será custodiada por el Colegio de Costa Rica.
+Las decisiones de la comisión seleccionadora en cuanto a la selección de los proyectos serán inapelables.

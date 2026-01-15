@@ -1,0 +1,1 @@
+Artículo 27.- De la divulgación y promoción. El Colegio de Costa Rica estará facultado a destinar un porcentaje de su presupuesto, para la divulgación y promoción de estos fondos concursables y la contratación de profesionales que realizarán las evaluaciones de los proyectos seleccionados en las Convocatorias.

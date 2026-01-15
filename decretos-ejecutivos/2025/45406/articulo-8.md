@@ -1,0 +1,8 @@
+Artículo 8.- Comisión seleccionadora. Se establece una Comisión Seleccionadora encargada de evaluar y escoger las propuestas que serán objeto de financiamiento. La Comisión estará integrada:
+a. La persona encargada del programa Colegio de Costa Rica.
+b. La persona directora general del SINABI o su representante.
+c. Una o dos personas del Ministerio de Cultura y Juventud o instituciones adscritas a este ministerio (seleccionadas por el Despacho Ministerial), con conocimiento técnico en las áreas que regulan este reglamento.
+d. Un representante de organizaciones culturales de Sociedad Civil que laboren en actividades propias del Sector Literario, y que se encuentren debidamente inscritas en el Sistema de Información Cultural, _creado y administrado por el Ministerio de Cultura y Juventud, denominado SlCultura.
+Los representantes de organizaciones culturales serán seleccionados de la siguiente manera:
+La persona encargada de la coordinación del Colegio realizará una publicación invitando a las organizaciones del sector a pa1ticipar en la comisión seleccionadora. Posteriormente, esta instancia administradora de los fondos preseleccionará a aquellas organizaciones que cumplan con una experiencia mínima de cinco años. De las organizaciones que respondan positivamente este llamado, en coordinación con la persona directora general del Sistema Nacional de Bibliotecas, será escogida dicha representación.
+La comisión será designada anualmente por convocatoria de la coordinación del Colegio de Costa Rica, y deberá estar compuesta por personas con experiencia en las áreas relacionadas con las artes literarias. Su nombramiento será ad honorem.

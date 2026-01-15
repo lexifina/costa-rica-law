@@ -1,0 +1,2 @@
+Artículo 19.- Contenido presupuestario. Las convocatorias reguladas por este reglamento recibirán una asignación económica para su desarrollo, que será proporcionada por el Ministerio de Cultura y Juventud.
+Este presupuesto será definido anualmente dentro del Sistema Nacional de Bibliotecas del Ministerio de Cultura y Juventud, para el Colegio de Costa Rica, en función de los recursos disponibles.

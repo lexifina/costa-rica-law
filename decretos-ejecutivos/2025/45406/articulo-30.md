@@ -1,0 +1,1 @@
+Artículo 30.-Propiedad Intelectual. Para la ejecución del proyecto, es obligación del beneficiario obtener las autorizaciones correspondientes para el uso de material protegido por Propiedad Intelectual, así como cubrir su pago, cuando corresponda. El Colegio de Costa Rica solicitará los documentos de autorización o recibos que acrediten el cumplimiento de esta obligación.

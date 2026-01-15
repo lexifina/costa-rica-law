@@ -1,0 +1,1 @@
+Artículo 24.- Retribución. Las personas que reciban este estímulo económico deberán retribuir a la sociedad costarricense por los recursos recibidos. El Colegio de Costa Rica propondrá la forma concreta en que se llevará a cabo esta retribución, de acuerdo con la categoría y el producto específico del proyecto beneficiado.

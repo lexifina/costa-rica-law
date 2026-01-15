@@ -1,0 +1,5 @@
+CAPÍTULO V.
+DISPOSICIONES FINALES
+Artículo 26.- Evaluación del proyecto. La persona responsable del proyecto deberá facilitar las condiciones necesarias para que el Colegio de Costa Rica evalúe el desarrollo del proyecto, ya sea mediante visitas o reuniones que permitan verificar el cumplimiento de las metas y objetivos. Además, deberá presentar dos informes de avance y un informe final, f junto con el producto final del proyecto, durante el período de ejecución.
+La aprobación de estos informes será un requisito indispensable para que el Ministerio de Cultura y Juventud libere los fondos correspondientes. En los casos en que los proyectos involucren la participación de terceras personas, los informes deberán incluir evidencia de dicha participación.
+El Colegio de Costa Rica será la entidad encargada de fiscalizar la correcta ejecución de los proyectos, verificando el cumplimiento, de los objetivos, el uso adecuado del presupuesto y la entrega de los productos finales, de acuerdo con la propuesta aprobada.

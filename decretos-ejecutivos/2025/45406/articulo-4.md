@@ -1,0 +1,2 @@
+Artículo 4.- Alcance. El Fondo está enfocado en brindar financiamiento total o parcial a proyectos de personas escritoras, editoras, creadoras, investigadoras, promotoras, gestoras o cualquier otra trabajadora del área literaria, sean personas físicas o jurídicas, cuyo proyecto esté alineado con los fines que persigue el presente reglamento.
+El Fondo podrá financiar proyectos que tengan contrapartes provenientes del sector privado o del sector público, siempre y cuando se cumplan todos los requisitos establecidos en el presente reglamento.
