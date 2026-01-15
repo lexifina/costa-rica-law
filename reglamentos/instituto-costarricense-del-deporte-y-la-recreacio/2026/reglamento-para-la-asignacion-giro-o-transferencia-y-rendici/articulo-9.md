@@ -1,0 +1,7 @@
+Artículo 9º-Revisión y validación del presupuesto.
+Se procederá de la siguiente manera:
+a. La URE verificará y completará un expediente digital mediante la Plataforma Tecnológica, que contendrá toda la documentación relacionada con el beneficio patrimonial otorgado al sujeto privado. Será la encargada de custodiar los expedientes.
+b. La URE realizará el análisis en concordancia con el catálogo de las finalidades emitido por CGR de la solicitud para la asignación de recursos.
+c. El trámite con los requisitos validados y aprobados deben ser trasladados a la Unidad de Asesoría Jurídica, una vez se cuente con la aprobación del Departamento de Deporte y Recreación para dar inicio con la confección del convenio mediante la Plataforma Tecnológica.
+d. La Unidad de Asesoría jurídica contará con un plazo máximo de cinco (05) días naturales para la confección del convenio de acuerdo con el artículo 11 del presente reglamento y trasladarlo mediante la Plataforma Tecnológica a la Unidad de Finanzas para que continue el proceso.
+e. La Unidad de Finanzas contará con un plazo máximo de cinco (05) días naturales para la verificación del expediente, así como de la disponibilidad presupuestaria. La Unidad de Finanzas solicitará a la Tesorería Institucional la realización de la transferencia de los fondos al sujeto privado, una vez realizada la transferencia, Tesorería cargará el comprobante a la Plataforma Tecnológica y lo comunicará a la entidad y a la URE actualizando el estado en la misma plataforma.

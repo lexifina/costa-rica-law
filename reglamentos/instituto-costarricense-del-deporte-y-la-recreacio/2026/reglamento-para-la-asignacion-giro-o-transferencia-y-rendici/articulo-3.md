@@ -1,0 +1,4 @@
+CAPÍTULO II
+DE LA ASIGNACIÓN Y GIRO DE RECURSOS
+Artículo 3°-Estimación presupuestaria para el siguiente ejercicio económico. La autoridad competente, suministrará a la URE un informe de las transferencias giradas a los sujetos privados de los últimos tres periodos presupuestarios, así como el presupuesto proyectado para el siguiente período presupuestario.
+La URE elaborará una recomendación de los montos de las transferencias para el siguiente periodo para cada uno de los sujetos privados que cumplan con el requisito de idoneidad, se exceptúan aquellos presupuestos asignados por ley, los cuales serán tramitados de conformidad con lo que establece la norma correspondiente. El informe será trasladado a la Jefatura de la Autoridad Competente para su debido análisis, a más tardar el último día hábil de la segunda semana del mes de agosto.

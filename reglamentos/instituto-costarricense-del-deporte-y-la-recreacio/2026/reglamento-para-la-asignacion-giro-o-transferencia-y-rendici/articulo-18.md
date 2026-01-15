@@ -1,0 +1,2 @@
+Artículo 18º-Recursos ejecutados en gastos no presupuestados.
+Cuando la Autoridad Competente determine que el sujeto privado deberá devolver recursos financieros ejecutados en gastos no presupuestados, deberá comunicarlo al beneficiario mediante un dictamen que integrará los aspectos técnicos y administrativos que fundamentan la devolución correspondiente a las arcas del ICODER. Contra este acto se concederá al beneficiario todas las garantías del debido proceso, de conformidad con lo establecido en este reglamento.

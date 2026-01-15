@@ -1,0 +1,15 @@
+Artículo 29º- Debido proceso.
+Se establecen las siguientes regulaciones:
+a. Resolución que declara el incumplimiento.
+La autoridad competente podrá ordenar la suspensión, en todo o en parte, del giro de los fondos en aquellos casos en que verifique la ejecución de gastos no presupuestados o desviación de la finalidad establecida en este reglamento, el Convenio suscrito y/o la transferencia de recursos. Esta resolución deberá ser clara, debidamente fundamentada, con señalamiento del material probatorio, debiendo contener una clara definición y conminación de la sanción aplicable, con un plazo cinco días naturales para cumplir.
+b. Sanciones.
+Se podrá aplicar la sanción prevista en los párrafos primero y segundo del artículo 7 de la Ley Orgánica de la CGR, para lo cual deberá cumplir con el procedimiento que al efecto establece la Ley General de la Administración Pública y cumplir con el Debido Proceso y el Derecho de Defensa todos ellos contemplados en este reglamento.
+Cuando la desviación o incumplimiento se realice en beneficio de intereses privados, del sujeto agente o de terceros, el beneficio deberá ser revocado y el beneficiario quedará obligado a la restitución del valor del beneficio desviado, con los daños y perjuicios respectivos. La recuperación del monto del beneficio desviado podrá lograrse también en la vía ejecutiva.
+c. Comunicación.
+Todo acto administrativo deberá ser comunicado por el órgano que emite la resolución, al sujeto privado en el lugar señalado por éste en el Convenio. En el caso de tratarse de resolución final deberá de comunicarse mediante dos intimaciones para el cumplimiento de la sanción dispuesta, las cuales deberán indicar los recursos procedentes.
+d. Recurso de Revocatoria.
+Contra esta resolución de la autoridad competente cabrá el recurso de Revocatoria, que deberá interponerse dentro del plazo de tres días hábiles contados a partir de la comunicación de la Resolución que determina el Incumplimiento. La resolución podrá ser revocada por la autoridad competente por razones debidamente calificadas de oportunidad o mérito, ajustado a este reglamento, el Convenio, las disposiciones de la Contraloría General de la República y el bloque de legalidad. La autoridad competente dispondrá de un plazo de (8) ocho días naturales para resolver el recurso, y notificará al recurrente al lugar señalado.
+e. Recurso de Apelación.
+El sujeto privado podrá interponer recurso de apelación ante la Dirección Nacional del ICODER para lo cual contará con un plazo de tres días hábiles contados a partir de la segunda intimación de la autoridad competente o contra la resolución del recurso de revocatoria. La Dirección Nacional contará con un plazo de (8) ocho días naturales para resolver el recurso de apelación.
+f. Agotamiento de la vía administrativa.
+Una vez agotados los recursos, el sujeto privado podrá acudir ante el CNDR a solicitar el agotamiento de la vía administrativa, conforme lo establece el artículo 11 inciso s) de la Ley 7800. El Consejo deberá conocer el recurso en la sesión ordinaria inmediata siguiente a la interposición de este y deberá resolverlo a más tardar en la sesión siguiente.
