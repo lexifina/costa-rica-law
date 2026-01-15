@@ -1,0 +1,1 @@
+Artículo 10°: Retiro de licencia de actividad lucrativa: Cuando un sujeto pasivo obtenga una licencia de actividad lucrativa (patente), y el mismo no continúe con la actividad, deberá manifestarlo en forma escrita en forma inmediata al municipio, con el fin de suspender el cobro respectivo de dicha licencia.

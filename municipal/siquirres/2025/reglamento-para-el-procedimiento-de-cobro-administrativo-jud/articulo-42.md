@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Estrategia de Cobro, Incentivos e informes
+Artículo 42°: Estrategia de Cobro: Todos los integrantes del área de administración tributaria en coordinación con el coordinador (a) tributario y el encargado de cobros establecerán anualmente la estrategia de cobro orientada a promover el pronto pago en los contribuyentes.
+La estrategia debe contemplar: 1) Política de incentivos para el pago por adelantado de los servicios y tributos municipales, 2) acciones de información a desarrollar sobre las fechas de cobro, forma y calendario de ejecución de los avisos de cobro administrativo. 3) Metas y acciones cuantificables para incrementar el nivel de la recaudación del tributo al cual se encuentra vinculado cada unidad, así como la reducción de la morosidad pertinente que se genere a través de ese mismo tributo.

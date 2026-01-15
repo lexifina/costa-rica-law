@@ -1,0 +1,1 @@
+Artículo 9°: Cobro retroactivo servicios y licencias: Cuando ante desconocimiento del municipio un sujeto pasivo disfrute de un servicio o una licencia municipal sin haber realizado el pago respectivo del mismo se le realizará el cobro respectivo por todo el tiempo que disfruto del servicio o de la licencia.

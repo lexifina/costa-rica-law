@@ -1,0 +1,1 @@
+Artículo 52°: Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencido, o cuando se haya retrasado cinco días hábiles en el cumplimiento de su obligación.

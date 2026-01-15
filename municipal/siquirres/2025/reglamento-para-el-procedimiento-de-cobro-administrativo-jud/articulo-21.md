@@ -1,0 +1,1 @@
+Artículo 21°: Colaboración al personal y a las unidades vinculadas a la Administración Tributaria Municipal. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios de la Administración Tributaria Municipal y prestarles la mayor colaboración en el desarrollo de su función.

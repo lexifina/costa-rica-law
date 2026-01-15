@@ -1,0 +1,1 @@
+Artículo 31°: Sanciones por Incumplimiento: En caso de incumplimiento por parte del personal y las unidades vinculadas a la administración tributaria en algunas de las acciones contempladas en éste Reglamento se procederá de conformidad con el Reglamento Autónomo de Organización y Servicio.

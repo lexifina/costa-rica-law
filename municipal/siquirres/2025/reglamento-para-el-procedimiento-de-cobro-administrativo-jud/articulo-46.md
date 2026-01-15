@@ -1,0 +1,25 @@
+Artículo 46°: Informe de gestión de cobranza: El departamento de cobros en forma trimestral enviará un informe de la gestión de cobranza a la Alcaldía y al Consejo Municipal, dicho informe como mínimo contendrá:
+- Monto total de solicitudes de prescripción aprobadas.
+- Monto total de notificaciones realizadas.
+- Monto total de acuerdos de pago realizados
+- Monto total de casos remitidos a cobro judicial.
+- Monto total de solicitudes aprobadas de devolución de dinero.
+- Monto total de casos enviados a incobrables.
+- Monto total de descuentos por pronto pago.
+- Monto total de casos enviados a depuración (disminución de base imponible)
+- Monto total de casos enviados a depuración (aumento de base imponible)
+- Monto total recuperado por notificación administrativa.
+- Monto total recuperado por cobro judicial.
+- Monto recuperado por reversión de incobrables.
+- Monto recuperado en estados de cuenta.
+- Monto sujeto a prescripción impuestos municipales (Excepto bienes inmuebles)
+- Monto sujeto a prescripción impuesto de bienes inmuebles.
+- Monto sujeto a prescripción en un plazo igual o menor a tres meses.
+- Monto sujeto a prescripción en un plazo mayor a tres meses, pero menor o igual a seis meses.
+- Monto sujeto a prescripción en un plazo mayor a seis meses.
+- Monto total de morosidad acumulada al inicio del año actual.
+- Monto total morosidad puesta al cobro del año en curso.
+- Monto total de morosidad.
+- Morosidad en arreglo de pago.
+- Monto recaudado de la morosidad en arreglo de pago.
+- Saldo pendiente de morosidad en arreglo de pago.

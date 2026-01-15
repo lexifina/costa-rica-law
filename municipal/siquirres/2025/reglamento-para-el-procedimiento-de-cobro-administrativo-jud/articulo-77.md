@@ -1,0 +1,1 @@
+Artículo 77°: Pago de honorarios de abogado por parte de la Municipalidad. Únicamente procederá el pago de los honorarios de abogado directamente de la Municipalidad cuando de Oficio la Municipalidad decida disolver el trámite legal existente y el abogado demuestre que dicho expediente cuenta con un número en la vía judicial.
