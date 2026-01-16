@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre el reconocimiento del tiempo extraordinario
+Artículo 4º-Naturaleza del tiempo extraordinario. Queda restringido el pago por tiempo extraordinario. Este pago se podrá contemplar exclusivamente en aquellos casos de trabajos eminentemente esporádicos y excepcionales, no de orden permanente, que no puedan ser ejecutados durante la jornada ordinaria por el personal que se disponga para ello.
+No se permiten aquellas situaciones en las que una sola persona funcionaria trabaje en forma permanente la jornada extraordinaria. En el caso de presentarse esta situación, el superior jerárquico inmediato deberá tomar las medidas correspondientes para que esa situación cese y, de no hacerlo, será el responsable directo del monto resultante de las horas extraordinarias que así se pagaren.

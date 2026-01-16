@@ -1,0 +1,2 @@
+Artículo 16.-Plazo para el pago de extras. El pago de horas extra se deberá realizar a más tardar en el mes posterior a aquel en el que se realizó la labor extraordinaria.
+Las horas extra laboradas en el mes de diciembre de cada año que no puedan ser canceladas en ese mismo mes, podrán serlo con cargo al presupuesto ordinario del año siguiente. El Departamento de Talento Humano tendrá como límite el mes de enero del año siguiente para realizar el trámite de dichos pagos.

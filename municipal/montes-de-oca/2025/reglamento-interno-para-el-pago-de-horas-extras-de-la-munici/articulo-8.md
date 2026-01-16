@@ -1,0 +1,4 @@
+Artículo 8º-Del pago de Horas Extra a personas Directoras y Gestoras. Por la naturaleza de sus funciones, las personas que ocupan puestos de dirección o gestión o cargo equivalente no están sometidas a jornada ordinaria, conforme al artículo 143 del Código de Trabajo. En consecuencia, no procede el pago de horas extraordinarias de manera ordinaria. No obstante, cuando dichas personas deban laborar en forma efectiva durante días de descanso, asueto o feriado, por razones excepcionales y debidamente justificadas, se reconocerá el pago de horas extraordinarias, siempre que:
+a) Exista autorización previa y expresa del Alcalde.
+b) Se cuente con registro de asistencia y justificación del servicio prestado.
+c) Se respete el límite máximo de doce horas diarias establecido por la normativa laboral.

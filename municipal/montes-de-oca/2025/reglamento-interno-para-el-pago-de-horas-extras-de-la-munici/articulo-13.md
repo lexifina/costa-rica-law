@@ -1,0 +1,5 @@
+Artículo 13.-De las horas extra y la disponibilidad. La persona funcionaria que se encuentre sujeto al Régimen de "Disponibilidad" y que preste servicios de manera excepcional y fuera de su jornada ordinaria laboral, se le remunerará el tiempo efectivamente laborado a título de horas extra y previa constancia rendida al efecto, de conformidad con lo señalado por la Sala Constitucional y la Procuraduría General de la República al respecto.
+Dicho reconocimiento se regula de la siguiente manera:
+a) Contar con la autorización de la Alcaldía luego de haberse establecido una condición excepcional o de emergencia, cuando la persona funcionaria deba sobrepasar las jornadas límites de horas de trabajo establecidas en la legislación vigente.
+b) El pago de las horas extra laboradas procede a partir del momento en que la persona funcionaria disponible se presente a la institución o al sitio requerido, para la atención de los efectos derivados del evento ocurrido ya sea natural o antrópico.
+c) Todas aquellas otras condiciones requeridas para el debido trámite de las horas extra y que se establecen en este Reglamento.
