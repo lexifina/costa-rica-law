@@ -1,2 +1,0 @@
-ARTICULO 2 DIRECTORIO DE LA COMISION
-Los miembros elegirán en votación un vicepresidente y un secretario, bastando para tal efecto la mayoría simple de los votos presentes. El representante de la Junta Directiva será el presidente, quien tendrá doble voto en caso de empate. En ausencias temporales será sustituido por el vicepresidente, las ausencias del Presidente y Vicepresidente serán sustituidas por el miembro presente de mayor edad.

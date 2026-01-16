@@ -1,2 +1,0 @@
-ARTICULO 23
-La Comisión conocerá únicamente las solicitudes de becas administrativas que estén dentro de las áreas identificadas como prioritarias, por la Administración Superior , conforme al diagnóstico de necesidades de capacitación de la Institución , que realizará la Sección de Capacitación y Adiestramiento y aprobará la Junta Directiva en el término de dos meses a partir de la vigencia de este Reglamento.
