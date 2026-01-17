@@ -1,1 +1,1 @@
-Artículo 25°-Carácter de declaración jurada: La información consignada en la liquidación de gastos de transporte y alimentación tiene el carácter de declaración jurada, o sea que esta es una relación cierta de los gastos incurridos.
+Artículo 25°-Carácter de declaración jurada: (Anulado en sesión N° 75 del 17 de enero de 2026)

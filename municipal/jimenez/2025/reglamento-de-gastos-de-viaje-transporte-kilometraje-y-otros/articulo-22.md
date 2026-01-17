@@ -1,1 +1,1 @@
-Artículo 22°-Liquidación de gastos: La liquidación de gastos de alimentación, hospedaje y transporte, por concepto de ejecución de funciones propias del cargo de regidor o síndico, fuera del cantón de Puerto Jiménez, deberá hacerse con las mismas formalidades requeridas para los funcionarios municipales establecidas en el artículo 10 del presente reglamento, aportando los comprobantes respectivos.
+Artículo 22°-Liquidación de gastos: (Anulado en sesión N° 75 del 17 de enero de 2026)

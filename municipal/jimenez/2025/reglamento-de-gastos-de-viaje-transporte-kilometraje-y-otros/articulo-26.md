@@ -1,1 +1,1 @@
-Artículo 26°- Pago de lo solicitado: El pago solicitado, lo hará la administración dentro de los ocho días siguientes de recibida y aprobada la solicitud de pago de viáticos, por parte del alcalde Municipal.
+Artículo 26°- Pago de lo solicitado: (Anulado en sesión N° 75 del 17 de enero de 2026)

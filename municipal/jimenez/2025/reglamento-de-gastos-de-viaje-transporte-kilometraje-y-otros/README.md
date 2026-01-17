@@ -14,3 +14,4 @@ Reglamento de gastos de viaje, transporte, kilometraje y otros fines aplicables 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-15 | la propia norma |
+| 2 | 2026-01-17 | Reglamento municipal 75 (2026-01-17) |
