@@ -24,3 +24,4 @@ Reglamento Orgánico del Ministerio de Salud
 | 9 | 2025-03-03 | Decreto Ejecutivo 44972 (2025-03-03) |
 | 10 | 2025-05-12 | Decreto Ejecutivo 45051 (2025-05-12) |
 | 11 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
+| 12 | 2026-01-19 | Decreto Ejecutivo 45468 (2026-01-19) |

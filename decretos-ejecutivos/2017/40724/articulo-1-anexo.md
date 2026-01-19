@@ -1,3 +1,3 @@
 ANEXO
 [imagen]
-(Así reformado por el artículo 1° del decreto ejecutivo N° 45051 del 12 de mayo del 2025)
+(Así reformado por el artículo 3° del decreto ejecutivo N° 45468 del 19 de enero del 2026)

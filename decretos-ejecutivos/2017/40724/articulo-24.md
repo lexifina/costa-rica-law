@@ -12,7 +12,7 @@ d) Dirección de Salud Ambiental.
 e) Dirección de Regulación de Productos de Interés Sanitario.
 f) Dirección de Vigilancia de la Salud.
 g) Dirección de Servicios de Salud.
-h) Dirección de Investigación y Tecnologías en Salud.
+h) (Derogado por el artículo 2° del decreto ejecutivo N° 45468 del 19 de enero del 2026)
 i) (Derogado por el artículo 3° del decreto ejecutivo N° 44350 del 5 de diciembre de 2023)
 j) División Administrativa.
 k) (Derogado por el artículo 3° del decreto ejecutivo N° 44350 del 5 de diciembre de 2023)
