@@ -1,1 +1,0 @@
-Artículo 55. Los Comités Comunales representan al Comité Cantonal, estarán integrados por cinco miembros de la comunidad que representan, que tengan motivación, interés y afición por la actividad física, el deporte, la recreación, mayores de edad, dispuestos a desempeñar el cargo y que no tengan impedimentos tipificados en el artículo 167 del Código Municipal.

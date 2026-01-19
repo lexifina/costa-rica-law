@@ -1,2 +1,0 @@
-Artículo 44. Firma de actas y conclusión de libros de actas. Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del Secretario de la Junta Directiva. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad de Valverde Vega, las hojas serán selladas y foliadas por ésta.
-Una vez finalizado cada libro de Actas deberá entregarse al Concejo Municipal una copia certificada y empastada, así como otra copia por medios digitales.

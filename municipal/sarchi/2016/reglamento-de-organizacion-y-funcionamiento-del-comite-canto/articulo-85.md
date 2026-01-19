@@ -1,1 +1,0 @@
-Artículo 85. Este Reglamento deroga todas las reglamentaciones municipales relacionadas al Comité de Deportes y Recreación de Valverde Vega publicadas con anterioridad a la entrada en vigencia de éste Reglamento.

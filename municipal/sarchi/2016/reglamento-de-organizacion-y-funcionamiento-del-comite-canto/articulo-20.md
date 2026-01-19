@@ -1,1 +1,0 @@
-Artículo 20. Estructura. Organización de la Unidad Ejecutora. La Junta Directiva estará conformada por un Presidente, un Vicepresidente, un Secretario, un Tesorero y un Vocal, estos puestos deberán ser asignados en la primera sesión ordinaria del Comité Cantonal de Deportes y Recreación de Valverde Vega entrante, mediante elección interna de los miembros que conforman la Junta.

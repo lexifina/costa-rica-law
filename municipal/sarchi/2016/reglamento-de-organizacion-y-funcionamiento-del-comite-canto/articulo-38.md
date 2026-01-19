@@ -1,1 +1,0 @@
-Artículo 38. De los acuerdos. Las determinaciones o decisiones que tome la Junta Directiva del Comité, por mayoría simple, se denominarán acuerdos y para modificar un acuerdo que haya quedado firme se requiere una votación de mayoría simple. Estos acuerdos serán tramitados y comunicados por la Secretaría del Comité y deberán ser ejecutados por la Administración.

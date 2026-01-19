@@ -1,3 +1,0 @@
-Artículo 30. Sesiones de la Junta Directiva. La Junta Directiva de Comité Cantonal de Deportes y
-Recreación de Valverde Vega sesionará siempre en forma ordinaria, una vez a la semana. Los miembros de la Junta Directiva tendrán derecho a voz y voto. Asistirán a las sesiones los miembros de la Junta Directiva, la Secretaría de la Junta Administrativa tomará el acta. El Gestor Administrativo estará presente en las sesiones para conocer las inquietudes de la Junta Directiva y recibir instrucciones, siempre y cuando la Junta Directiva así lo requiera. Podrán estar presentes otros funcionarios cuando así sean convocados por la Junta Directiva.
-La Junta Directiva podrá convocar a sesiones extraordinarias o públicas cuando así lo requiera.

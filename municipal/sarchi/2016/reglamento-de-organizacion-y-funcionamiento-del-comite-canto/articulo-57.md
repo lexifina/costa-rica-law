@@ -1,1 +1,0 @@
-Artículo 57. El quórum de la Asamblea General debe estar constituido por un número no menor de veinte personas presentes, a la hora de la primera convocatoria. De lo contrario se darán treinta minutos de espera y se procederá con la segunda convocatoria con la asistencia que se cuente y que no podrá ser menor a los puestos de elección.

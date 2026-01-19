@@ -1,1 +1,0 @@
-Artículo 67.Cuenta Bancaria. Toda recaudación deberá estar debidamente registrada, para este efecto el Comité Cantonal de Deportes y Recreación de Valverde Vega deberá de contar con una cuenta en cualquier ente del Sistema Financiero y Bancario Nacional, supervisado por la Superintendencia General de Entidades Financieras.

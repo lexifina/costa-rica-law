@@ -1,1 +1,0 @@
-Artículo 47. Requisitos mínimos para el puesto de Gestor Administrativo. El cargo debe ser ocupado por una persona con el grado académico mínimo de bachiller universitario en administración, contabilidad o carrera afín, preferiblemente con dos años de experiencia comprobada en el campo y ser una persona de reconocida honorabilidad.

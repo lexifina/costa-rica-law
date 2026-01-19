@@ -1,1 +1,0 @@
-Artículo 49. Del régimen municipal. Los funcionarios administrativos del Comité gozarán de los mismos derechos, deberes y beneficios que al efecto establece el Título V del Código Municipal. A esa misma normativa, se ajustarán sus procesos de selección y nombramiento.

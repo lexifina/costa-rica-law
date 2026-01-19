@@ -1,3 +1,0 @@
-Artículo 22. Prohibición. Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Valverde Vega pueden realizar los actos que le permite la Ley dentro de sus competencias, deben en todo momento apegarse a los alcances de la Ley de Control Interno, así como el principio de legalidad y el deber de probidad. Por lo tanto no podrán realizar las siguientes actuaciones:
-a. Celebrar contratos ni convenios con el Comité Cantonal de Deportes y Recreación de Valverde Vega, ni con sus órganos adscritos que reciban fondos públicos.
-b. Intervenir en la discusión y votación de los asuntos en que tengan interés directo a nivel personal, o de su cónyuge o alguno de sus parientes hasta el tercer grado de consanguinidad o de afinidad.

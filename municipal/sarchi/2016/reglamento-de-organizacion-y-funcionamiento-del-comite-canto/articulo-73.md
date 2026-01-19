@@ -1,1 +1,0 @@
-Artículo 73. Presupuestos extraordinarios y modificaciones presupuestarias. Toda la materia relativa a presupuestos extraordinarios y modificaciones presupuestarias se regirá por lo dispuesto en a leyes y reglamentos aplicables.

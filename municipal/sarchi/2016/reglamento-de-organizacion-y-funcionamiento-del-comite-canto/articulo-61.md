@@ -1,1 +1,0 @@
-Artículo 61. Sobre las sesiones ordinarias y extraordinarias, así como la conformación del acta, el Comité Comunal deberá de ajustarse a las mismas disposiciones establecidas para la Junta Directiva del Comité Cantonal de Deportes y Recreación, señaladas en éste Reglamento.

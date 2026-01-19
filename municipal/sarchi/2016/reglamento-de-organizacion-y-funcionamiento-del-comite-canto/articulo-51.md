@@ -1,1 +1,0 @@
-Artículo 51. Del régimen disciplinario. En cuanto al régimen disciplinario, tanto el Gestor Administrativo como los demás funcionarios, estarán sujetos a las sanciones dispuestas por el Código Municipal.

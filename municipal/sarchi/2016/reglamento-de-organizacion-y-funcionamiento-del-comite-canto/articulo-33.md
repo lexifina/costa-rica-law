@@ -1,1 +1,0 @@
-Artículo 33. Hora de inicio. Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de falta de quórum se hará constar la asistencia de los presentes.

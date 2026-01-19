@@ -1,1 +1,0 @@
-Artículo 76. Prohibición. Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas y/o recreativas. En caso de incumplimiento de esta disposición, previo debido proceso el responsable será destituido, sin perjuicio de las responsabilidades administrativas, civiles y penales que correspondan de acuerdo a la naturaleza del ilícito.

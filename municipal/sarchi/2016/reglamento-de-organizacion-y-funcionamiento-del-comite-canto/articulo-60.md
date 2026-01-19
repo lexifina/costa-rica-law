@@ -1,1 +1,0 @@
-Artículo 60. El Comité Comunal, debe reunirse una vez por semana en sesión ordinaria y extraordinaria cuando lo convoque el presidente o tres de sus miembros. La convocatoria debe hacerse por escrito cuarenta y ocho horas antes, con señalamiento del objeto de la sesión. En las sesiones extraordinarias únicamente se conocerá lo incluido en la convocatoria.

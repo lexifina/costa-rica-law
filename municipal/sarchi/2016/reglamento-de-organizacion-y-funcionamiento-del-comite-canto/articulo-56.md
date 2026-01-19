@@ -1,1 +1,0 @@
-Artículo 56. La Asamblea General para nombrar a los miembros de los Comités Comunales será presidida por el Presidente de la Junta Directiva del Comité de Deportes y Recreación del Cantón de Valverde Vega o quien éste asigne formalmente.

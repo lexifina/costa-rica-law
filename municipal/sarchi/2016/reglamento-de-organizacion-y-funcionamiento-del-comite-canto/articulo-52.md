@@ -1,1 +1,0 @@
-Artículo 52. Ausencia del Gestor Administrativo. A falta de un Administrador, dichas funciones las podrá realizar un miembro de la Junta Directiva con las mismas funciones y responsabilidades pero sin recibir salario por sus funciones, en tanto se realicen las gestiones necesarias para contratar un profesional idóneo al puesto.

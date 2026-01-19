@@ -1,1 +1,0 @@
-Artículo 84. Reconocimiento. Para estimular a los deportistas y entrenadores, en el mes de setiembre de cada año el Comité Cantonal de Deportes y Recreación de Valverde Vega enviará una terna al Concejo Municipal con el nombre y reseña o justificación de los deportistas y entrenadores destacados de ese año, entre los cuales se escogerá entre ellos el mejor

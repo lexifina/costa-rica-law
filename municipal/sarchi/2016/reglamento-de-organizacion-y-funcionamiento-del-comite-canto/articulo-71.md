@@ -1,1 +1,0 @@
-Artículo 71. Contenido del presupuesto. El presupuesto debe contener una estimación de ingresos y egresos, incluyendo una descripción clara y precisa de lo que se persigue hacer durante el año presupuestario, de acuerdo con las exigencias legales y reglamentarias establecidas al efecto, conforme al Plan Anual Operativo.
