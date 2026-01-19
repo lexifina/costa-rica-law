@@ -18,3 +18,4 @@ Reglamento Interior de Trabajo de la Municipalidad del Guarco
 | 3 | 2001-07-19 | Reglamento municipal 0 (2001-07-19) |
 | 4 | 2022-03-14 | Reglamento municipal 143 (2022-03-14) |
 | 5 | 2025-11-24 | Reglamento municipal 125 (2025-11-24) |
+| 6 | 2026-01-19 | Reglamento municipal 135 (2026-01-19) |
