@@ -1,1 +1,2 @@
-Artículo 9.- De las convocatorias. El Tribunal lo convocará quien preside cuando lo estime conveniente o cuando lo soliciten -al menos- tres de sus miembros
+Artículo 9.- De las convocatorias. El Tribunal lo convocará quien preside cuando lo estime conveniente o cuando lo soliciten -al menos- tres de sus miembros. Las reuniones podrán ser virtuales o bimodales y se gravarán los resultados dentro del expediente virtual que construirá quien preside y deberá entregar, a la Presidencia de la Corte.
+(Así reformado mediante circular N° 05-2026 del 19 de enero del 2026)

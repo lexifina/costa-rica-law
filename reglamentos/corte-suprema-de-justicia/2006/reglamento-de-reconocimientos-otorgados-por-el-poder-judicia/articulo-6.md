@@ -1,10 +1,11 @@
 Artículo 6: Integración. El Tribunal de Reconocimientos estará integrado por las siguientes personas:
-a. La persona que preside el Consejo de la Judicatura.
-b. La persona que preside el Consejo Directivo de la Escuela Judicial.
-c. La persona que preside el Consejo de Personal.
-d. La persona que preside la Comisión de Ética y Valores del Poder Judicial.
+a. Quien presida el Consejo de la Judicatura.
+b. Quien presida el Consejo Directivo de la Escuela Judicial.
+c. Quien presida el Consejo de Personal.
+d. Quien presida la Comisión de Ética y Valores del Poder Judicial.
 e. Un integrante del Consejo Superior del Poder Judicial.
 f. Un representante de las organizaciones gremiales del Poder Judicial.
-g. La persona que preside de la Comisión de Género del Poder Judicial
-En caso de ausencia de alguno de ellos, lo sustituirá quien corresponda hacerlo en el órgano respectivo. Sin embargo, en el caso de la persona integrante del Consejo Superior, lo suplirá otro de los titulares de ese órgano. Preside el funcionario o funcionaria de mayor antigüedad en la Corte.
-(Así reformado mediante circular N° 211 del 21 de setiembre de 2021)
+g. Quien presida la Comisión de Género del Poder Judicial
+En caso de ausencia o inhibitoria de alguno de ellos, lo sustituirá el respectivo suplente si lo hubiere. Si no existe suplente o el designado no pudiere representarlo por cualquier causa, asumirá la representación la persona integrante que el mismo órgano, organización o comisión designe.
+Preside la persona magistrada de más antiguo nombramiento en la Corte y si en la integración no intervinieren integrantes de la Corte, la presidencia la ejercerá el miembro de la Comisión de mayor antigüedad en el Poder Judicial".
+(Así reformado mediante circular N° 05-2026 del 19 de enero del 2026)

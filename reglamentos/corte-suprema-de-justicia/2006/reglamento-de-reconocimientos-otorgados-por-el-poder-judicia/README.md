@@ -20,3 +20,4 @@ Reglamento de reconocimientos otorgados por el Poder Judicial
 | 6 | 2021-09-21 | Circular 211 (2021-09-21) |
 | 7 | 2023-10-18 | Circular 275 (2023-10-18) |
 | 8 | 2025-08-06 | Circular 1 (2025-08-06) |
+| 9 | 2026-01-19 | Circular 5 (2026-01-19) |
