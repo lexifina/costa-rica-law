@@ -14,3 +14,4 @@ Reglamento interno para la aplicación del teletrabajo en la Municipalidad de El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-27 | la propia norma |
+| 2 | 2026-01-19 | Reglamento municipal 135 (2026-01-19) |

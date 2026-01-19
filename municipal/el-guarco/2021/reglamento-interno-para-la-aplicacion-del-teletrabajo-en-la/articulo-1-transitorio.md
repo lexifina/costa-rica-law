@@ -1,0 +1,2 @@
+Transitorio Único. Las autorizaciones de teletrabajo que eventualmente se encuentren vigentes para los cargos de Gestores Municipales, Departamentos Unipersonales y funcionarios cuya modalidad de trabajo implique atención directa al público quedarán sin efecto a partir de la entrada en vigencia de la presente reforma, debiendo las personas servidoras reintegrarse a la modalidad presencial, sin que ello constituya derecho adquirido ni genere responsabilidad administrativa, laboral o patrimonial para la Municipalidad.
+(Así adicionado en sesión N° 135 del 19 de enero de 2026)
