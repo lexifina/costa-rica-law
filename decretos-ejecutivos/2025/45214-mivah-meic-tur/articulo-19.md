@@ -1,0 +1,3 @@
+Artículo 19. Transformación al régimen de condominio de construcciones existentes
+Aquellos bienes inmuebles en donde existan construcciones, podrán ser objeto de una transformación al régimen de propiedad en condominio, para lo cual deberán contar con elementos comunes indivisibles y que la construcción permita la división material de la edificación en áreas de explotación independientes para conformar fincas filiales, según lo establecido en el artículo 1, incisos a) y d) de la LRPC.
+Para lo anterior es necesario realizar el trámite de transformación ante la municipalidad respectiva y las instituciones competentes, cumpliendo con la normativa referida en el artículo 20 de este reglamento.

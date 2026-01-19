@@ -1,0 +1,2 @@
+Artículo 91. Convocatoria a las Asambleas de Condóminos
+En caso de que el RCA no contemple disposiciones sobre la convocatoria a Asambleas de Condóminos, la convocatoria se hará con una anticipación mínima de quince días naturales antes de la fecha señalada para la reunión. En este plazo no se computará el día de publicación de la convocatoria, ni el de la celebración de la Asamblea. Durante este tiempo los documentos relacionados con la agenda de la asamblea estarán a disposición de los condóminos.

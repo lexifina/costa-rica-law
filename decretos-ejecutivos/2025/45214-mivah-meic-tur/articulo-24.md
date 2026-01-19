@@ -1,0 +1,2 @@
+Artículo 24. Áreas comunes
+Las áreas comunes incluirán las áreas comunes mínimas y los espacios de circulación, aquellas áreas destinadas para la administración, la infraestructura de servicios públicos, almacenamiento, soporte, esparcimiento y cualquier otro uso necesario para su adecuado aprovechamiento. En el caso de Marinas y Atracaderos Turísticos, también se incluirán las áreas comunes de acceso público (ACAP) y áreas comunes de acceso restringido (ACAR), según se definen en el artículo 51 del presente reglamento.

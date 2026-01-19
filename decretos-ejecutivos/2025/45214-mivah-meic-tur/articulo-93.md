@@ -1,0 +1,4 @@
+Artículo 93. Votaciones
+Las votaciones de las Asambleas de Condóminos se regirán por lo dispuesto en el artículo 24 de la LRPC.
+En el caso de los condominios de condominios, las fincas resultantes de la subdivisión de la finca filial matriz ejercerán su voto para la toma de acuerdos en Asambleas de Condóminos de forma conjunta por medio del representante del subcondominio, conforme a su RCA. Su voto representará y comprenderá a la totalidad del valor del subcondominio, sin que sea requerida la conformidad o ratificación de las fincas filiales matrices.
+En el caso de que en la Asamblea de Condóminos en los que haya subcondominios y se requiera acuerdos tomados por una mayoría calificada o unanimidad, de conformidad con la LRPC, dicha mayoría únicamente se requerirá en la Asamblea del condominio respectivo y no en las asambleas de los subcondominios vinculados.

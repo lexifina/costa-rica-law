@@ -1,0 +1,2 @@
+Artículo 66. Variación de áreas comunes
+Salvo excepción expresa de ley o de la escritura constitutiva, los elementos, pertenencias o áreas comunes podrán ser susceptibles de división o transformación con la aprobación de la Asamblea de Condóminos. Igualmente, parte de las áreas comunes podrán convertirse en áreas privativas, siempre y cuando sean áreas comunes en demasía y sea aprobado por la Asamblea de Condóminos, conforme a la LRPC, para lo cual deberán realizar el trámite de modificación en el APC y ante la municipalidad respectiva.

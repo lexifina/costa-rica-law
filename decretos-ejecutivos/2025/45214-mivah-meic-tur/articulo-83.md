@@ -1,0 +1,2 @@
+Artículo 83. Instalaciones de servicios
+Los sistemas de agua potable, aguas residuales, aguas pluviales, instalaciones eléctricas, telecomunicaciones y cualquier otro sistema de servicios deberán conducirse, cuando se trate de edificaciones a nivel de terreno, a través de áreas comunes; cuando se trate de condominios verticales deberán instalarse en ductos o en cualquier otro espacio común que permita su adecuado funcionamiento y que puedan ser registrables desde las áreas comunes, sin que perturben o invadan áreas privativas.

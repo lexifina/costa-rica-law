@@ -1,0 +1,2 @@
+Artículo 17. Inscripción de la escritura
+La escritura constitutiva del régimen de propiedad en condominio se inscribirá en el Registro Inmobiliario, en la Sección de Propiedad en Condominio, de conformidad con el artículo 5 de la LRPC y de acuerdo con lo estipulado en el Decreto Ejecutivo n.° 44647, de 28 de agosto del 2024, Reglamento General del Registro Inmobiliario, y a las disposiciones generales que emita la Dirección de ese Registro y la Dirección Nacional de Notariado.

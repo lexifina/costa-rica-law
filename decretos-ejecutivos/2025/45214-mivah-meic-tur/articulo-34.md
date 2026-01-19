@@ -1,0 +1,2 @@
+Artículo 34. Destino de la finca filial
+De acuerdo con el destino general del condominio y el particular de cada finca filial, las unidades privativas podrán estar o no construidas en todo o en parte, de conformidad con la normativa aplicable, según el artículo 20 de este reglamento. En todo tipo de condominio, las fincas filiales podrán tener simultáneamente área privativa construida y área privativa no construida.

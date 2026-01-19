@@ -1,0 +1,2 @@
+Artículo 57. Terminación de la concesión filial en una Marina o Atracadero Turístico
+En el caso de terminación de una concesión filial, el concesionario original, de la marina o atracadero asumirá en forma plena los derechos y obligaciones que corresponden al respectivo condómino. Si todos los derechos de concesiones filiales fueren cancelados, incluido el derecho del concesionario original, la concesión volverá a la municipalidad o al ICT para el caso del PTGP.

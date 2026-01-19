@@ -1,0 +1,2 @@
+Artículo 60. Regulación urbanística para condohoteles
+En la constitución de condohoteles se aplicará la densidad indicada en el plan regulador, RFU INVU o RC INVU cuando en éstos se establezca. Para los lotes hoteleros se aplicarán a la finca matriz respectiva, en el caso del condominio construido. Para condominio de lotes, a falta de regulación específica, se aplicará a cada finca filial las áreas y dimensiones mínimas para lotes que establezca el plan regulador respectivo, RFU INVU o RC INVU.

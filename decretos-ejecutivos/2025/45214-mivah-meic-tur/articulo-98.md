@@ -1,0 +1,2 @@
+Artículo 98. Inscripción de la desafectación de condominios
+Tanto para la desinscripción de la finca matriz y de las filiales, así como para su desafectación en el Registro Público de la Propiedad, el notario público debe dar fe de que ha tenido a la vista los planos visados, lo que implica que el condominio, o en su caso la desafectación, cumple con todos los requisitos a que se refiere la LRPC y este reglamento.

@@ -1,0 +1,1 @@
+TRANSITORIO II. Las modificaciones requeridas, tanto en los condominios existentes a la fecha, como aquellas que cumplan las condiciones del Transitorio I, se regirán por las disposiciones establecidas en el Decreto Ejecutivo n.°32303-MIVAH-MEIC-TUR del 02 de marzo de 2005.

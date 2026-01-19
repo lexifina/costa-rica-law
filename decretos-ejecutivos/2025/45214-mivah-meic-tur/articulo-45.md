@@ -1,0 +1,3 @@
+Artículo 45. Deberes del concesionario
+Cada concesionario de una concesión filial será individualmente responsable de cumplir con las obligaciones de su contrato de concesión, incluyendo el pago del canon que corresponda sobre el área privativa. El canon correspondiente al área común del condominio será considerado como un canon compartido proporcional al derecho de copropiedad.
+En caso de que el concesionario no cancele alguno de los cánones o pagos establecidos en el párrafo anterior, la autoridad otorgante de la concesión podrá aplicar lo establecido en el artículo 51 de la Ley n.° 7762, Ley General de Concesión de Obras Públicas con Servicios Públicos, de 14 de abril de 1998, sobre régimen sancionatorio.

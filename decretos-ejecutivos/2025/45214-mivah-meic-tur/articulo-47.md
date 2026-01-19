@@ -1,0 +1,3 @@
+Artículo 47. Terminación de la concesión
+En el caso de terminación de una concesión filial, la autoridad que haya otorgado la concesión asumirá en forma plena los derechos y obligaciones que corresponden al respectivo condómino. Si todos los derechos de concesiones filiales revierten en la autoridad que los ha otorgado, dicha autoridad podrá extinguir el régimen de propiedad en condominio, retomando la concesión a su situación original.
+Asimismo, el concesionario deberá garantizar la liberación de todos los compromisos, de acuerdo con las disposiciones establecidas en el contrato de concesión.

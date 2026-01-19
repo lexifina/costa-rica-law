@@ -1,0 +1,3 @@
+Artículo 100. Desafectación de condominios en concesiones
+En el caso de los bienes de dominio público otorgados en concesión y sometidos al régimen de propiedad en condominio, para su desafectación del régimen, deberá contarse, además, con la aprobación expresa del ente, institución y/o autoridad que autorizó la concesión.
+Dicha aprobación debe indicar además a nombre de quién o quiénes se inscribirá la o las concesiones resultantes, así como cualquier modificación al contrato original de otorgamiento. Para su plena validez, dicho acuerdo deberá protocolizarse e inscribirse en la Sección de Concesiones del Registro Nacional.

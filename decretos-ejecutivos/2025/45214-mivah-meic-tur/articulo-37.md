@@ -1,0 +1,3 @@
+Capítulo IV. Condominios en Concesión
+Artículo 37. Normativa aplicable para condominios en concesión
+El titular de un derecho de concesión puede someterlo a un régimen condominal, bajo las disposiciones del artículo 1 inciso e) de la Ley Reguladora de la Propiedad en Condominio, Ley n.° 7933 del 28 de octubre de 1999; la Ley sobre la Zona Marítimo Terrestre, Ley n.° 6043 del 2 de marzo de 1977; la Ley Marco para la Declaratoria de Zona Urbana Litoral y su Régimen de Uso y Aprovechamiento Territorial, Ley n.° 9221 del 27 de marzo del 2014; el Reglamento al otorgamiento de concesiones en franjas fronterizas, Decreto Ejecutivo n.° 39688-MAG del 22 de abril del 2016; y el respectivo plan regulador o instrumento de planificación oficial.

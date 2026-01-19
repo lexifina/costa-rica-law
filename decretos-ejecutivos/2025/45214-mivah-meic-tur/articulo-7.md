@@ -1,0 +1,3 @@
+Capítulo II. Conformación del Condominio
+Artículo 7. Nombre del condominio
+Todo condominio deberá identificarse con un nombre, letra o número. En caso de estar compuesto por varios complejos, edificios, locales o unidades, éstos también deberán identificarse con un nombre, letra o número. Se deberá tomar en consideración la adecuada señalización que requiere el condominio, de conformidad con el Decreto Ejecutivo n.° 32793-MP-MOPT, Reglamento para la Identificación de Direcciones creada por Correos de Costa Rica S.A. y sus reformas, así como la señalización para la identificación de los edificios, veredas, caminos, fincas filiales sin construir o unidades de que se trate. La nomenclatura propuesta debe incorporarse a los planos.

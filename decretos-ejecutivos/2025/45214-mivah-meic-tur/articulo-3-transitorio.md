@@ -1,0 +1,1 @@
+TRANSITORIO III. El ICT-CIMAT deberán emitir el instrumento técnico de calificación de planos de condominio en Marinas y Atracaderos Turísticos, en un plazo de tres meses a partir de la publicación del presente reglamento.
