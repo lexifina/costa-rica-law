@@ -1,0 +1,16 @@
+COMISIÓN PERMANENTE DE COOPERATIVAS DE AUTOGESTIÓN
+FONDO NACIONAL DE AUTOGESTIÓN
+REGLAMENTO PARA EL USO DE LA COMISIÓN
+POR LA GESTIÓN DE CRÉDITO DEL FNA
+Considerandos:
+1º-La Comisión Permanente de Cooperativas de Autogestión, en adelante CPCA, es el ente que representa y promueve el cooperativismo autogestionario en Costa Rica, según lo establece el artículo 140 de la Ley 4179.
+2º-La Comisión Permanente de Cooperativas de Autogestión (CPCA), es una organización que apoya y brinda diferentes servicios a las cooperativas autogestionarias de Costa Rica, además de definir las políticas de administración y funcionamiento (inciso b, artículo 140, Ley 4179) del Fondo Nacional de Autogestión (FNA), con el que se brindan créditos a las cooperativas, con condiciones favorables para su desarrollo.
+3º-El Fondo Nacional de Avales y Garantías de Autogestión, en adelante FONAGA, es un fondo de avales creado para facilitar el acceso al financiamiento y promover la inclusión de las cooperativas de autogestión.
+4º-Mediante el artículo 142 de la Ley N° 4179 y sus reformas, se crea el FNA, para financiar las actividades propias del desarrollo de las cooperativas de autogestión.
+5º-El artículo 15, inciso a), de la Ley N° 8292, Ley General de Control Interno, se dispone, en relación con las actividades de control, que serán deberes del jerarca y de los titulares subordinados, entre otros, las siguientes: documentar, mantener actualizados y divulgar internamente, las políticas, las normas y los procedimientos de control que garanticen el cumplimiento del sistema de control interno institucional y la prevención de todo aspecto que conlleve a desviar los objetivos y las metas trazados por la institución en el desempeño de sus funciones.
+6º-Los reglamentos constituyen un componente del sistema de control que, norman las responsabilidades, actividades y la aplicación de las políticas, para la ejecución ordenada de las distintas operaciones que se realizan en una organización en el desarrollo del proceso presupuestario. Son un factor fundamental para la consecución de los objetivos institucionales, en el tanto se establece un marco normativo y los criterios internos que garanticen el control de la entidad.
+7º-De conformidad con el artículo 1 del Reglamento de Funcionamiento de la Comisión Permanente de Cooperativas de Autogestión, le compete al Plenario aprobar los reglamentos para su funcionamiento.
+8º-El plenario de la Comisión Permanente de Cooperativas de Autogestión, en su condición de Jerarca máximo de la CPCA, emite el presente reglamento que regula y orienta lo relativo al uso de los recursos por la comisión que se cobra por la gestión de créditos en el FNA.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º-Objeto del Reglamento: El presente reglamento se establece con el objetivo de regular y garantizar la aplicación correcta de los recursos provenientes de la colocación de créditos del Fondo Nacional de Autogestión (FNA) de la Comisión Permanente de Cooperativas de Autogestión, según lo estipulado en el artículo 45 del reglamento de crédito del FNA, el cual cobra una comisión sobre el monto del crédito otorgado, recursos que son destinados a la gestión administrativa y operativa de la CPCA.

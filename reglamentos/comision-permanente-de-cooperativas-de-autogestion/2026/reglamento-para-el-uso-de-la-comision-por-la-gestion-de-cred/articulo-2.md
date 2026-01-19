@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: Este reglamento establece las normas aplicables para la administración de los recursos del porcentaje por la comisión por gestión de crédito del FNA que son trasladados a la CPCA.

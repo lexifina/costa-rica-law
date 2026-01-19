@@ -1,0 +1,1 @@
+Artículo 3º-Alcance: Esta normativa será aplicable para todas las dependencias responsables de la ejecución de los recursos provenientes del porcentaje por gestión de crédito del FNA: dirección ejecutiva, administración y finanzas, fomento cooperativo y cualquier otra que asuma ejecución parcial o total de esos recursos.

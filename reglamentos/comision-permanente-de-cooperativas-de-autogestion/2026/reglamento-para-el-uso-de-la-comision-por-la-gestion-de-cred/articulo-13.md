@@ -1,0 +1,1 @@
+Artículo 13.-Las reformas del presente reglamento serán resueltas por el plenario de la CPCA por votación de dos tercios de sus miembros. Este reglamento deja sin efecto cualquier disposición reglamentaria anterior.

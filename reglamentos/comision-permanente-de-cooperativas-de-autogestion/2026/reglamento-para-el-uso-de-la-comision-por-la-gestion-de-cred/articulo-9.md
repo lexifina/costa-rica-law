@@ -1,0 +1,1 @@
+Artículo 9º-De cada cobro de comisión deberá entregarse a la cooperativa un comprobante de pago, en donde se detalle el monto rebajado y el número de operación de crédito a que corresponde el respectivo rebajo.

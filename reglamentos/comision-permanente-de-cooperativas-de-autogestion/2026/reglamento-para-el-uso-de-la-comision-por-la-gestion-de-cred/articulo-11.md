@@ -1,0 +1,1 @@
+Artículo 11.-La Dirección Ejecutiva deberá presentar anualmente al Directorio de la CPCA, un presupuesto detallado a inicio del periodo y liquidación anual del uso de los recursos de la comisión sobre los créditos otorgados en el período.

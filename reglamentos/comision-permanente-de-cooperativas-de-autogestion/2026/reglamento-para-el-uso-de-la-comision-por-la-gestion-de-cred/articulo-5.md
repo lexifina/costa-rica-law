@@ -1,0 +1,1 @@
+Artículo 5º-Responsable: La responsabilidad de la aprobación y distribución de los recursos estará a cargo de la dirección ejecutiva, la cual fiscalizará la correcta utilización de los recursos ajustados a los parámetros de control interno estipulados en el presente reglamento.
