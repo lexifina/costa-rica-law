@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Disposiciones varias
-Artículo 25.-Capacitación de la alta dirección. La capacitación para los Gerentes, Presidente y miembros de la Junta Directiva, se regirá conforme a las disposiciones de alcance general, directrices y reglamentos que emita el Ministerio de Planificación y Política Económica, tal como lo dispone el artículo 24 de la Ley Marco de Empleo Público.

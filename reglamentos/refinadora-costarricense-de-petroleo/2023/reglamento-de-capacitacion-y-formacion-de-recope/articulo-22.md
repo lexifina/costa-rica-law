@@ -1,1 +1,0 @@
-Artículo 22.-Proceso de contratación de las acciones de capacitación y formación: Las acciones de capacitación y formación de RECOPE se realizan de acuerdo con lo que establece la Ley General de Contratación Pública y su Reglamento.

@@ -1,1 +1,0 @@
-Artículo 16.-Renuncia o despido en período de retribución: Si la persona trabajadora renunciara o fuese despedido sin responsabilidad patronal, deberá cancelar el monto proporcional al tiempo no retribuido de la beca otorgada, lo cual podrá realizar voluntariamente o bien mediante el debido proceso de cobro que establezca RECOPE.

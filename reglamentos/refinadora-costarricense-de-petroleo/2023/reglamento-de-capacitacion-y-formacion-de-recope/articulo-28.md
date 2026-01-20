@@ -1,1 +1,0 @@
-Artículo 28.-Derogatorias: El presente reglamento deroga el aprobado por la Junta Directiva según artículo 4 de la Sesión N° 4766-319 del 15 de enero de 2014, así como cualquier otra disposición de igual o menor rango que se le oponga.

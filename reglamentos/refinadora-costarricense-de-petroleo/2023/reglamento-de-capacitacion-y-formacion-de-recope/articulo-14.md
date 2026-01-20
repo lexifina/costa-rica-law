@@ -1,5 +1,0 @@
-Artículo 14.-Contrato de capacitación: Será requisito la suscripción de un contrato para las acciones de capacitación cuando el monto de esta, sea igual o superior al monto indicado en la Tabla de Tiempo de Retribución para acciones de capacitación vigente.
-El contrato de capacitación contendrá los términos pactados entre la persona trabajadora y la Empresa, y será firmado por ésta y el Gerente de Área, Gerente General, o el Presidente según corresponda.
-Cualquier contrato de capacitación en estas circunstancias, aplicable a personas de la Auditoría Interna será firmado por el Presidente en coordinación con el Auditor General.
-En el caso de firmarse un nuevo contrato de capacitación durante el tiempo de retribución de otro contrato previo, debe necesariamente cumplirse con lo establecido en ese primer contrato y retribuirse a la Empresa el tiempo a que se obligó y posteriormente iniciará a la retribución del nuevo contrato, tiempo que sería adicionado al período del contrato previo.
-La persona trabajadora deberá suscribir a favor de RECOPE una garantía que respalde la recuperación, en caso de incumplimiento, de las sumas pagadas por la Empresa.

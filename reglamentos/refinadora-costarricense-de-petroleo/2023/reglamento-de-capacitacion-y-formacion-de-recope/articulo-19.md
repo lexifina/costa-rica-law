@@ -1,1 +1,0 @@
-Artículo 19.-Mecanismo de cobro de la retribución de la capacitación y formación: El Departamento Desarrollo del Capital Humano, previa definición de incumplimiento de las obligaciones derivadas de acciones de capacitación, procederá a realizar el debido proceso a fin de garantizar la sana administración de los fondos públicos.
