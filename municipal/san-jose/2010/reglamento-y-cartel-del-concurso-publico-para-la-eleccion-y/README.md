@@ -14,3 +14,4 @@ Reglamento y cartel del concurso público para la elección y nombramiento del a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-14 | la propia norma |
+| 2 | 2026-01-20 | Reglamento municipal 90 (2026-01-20) |
