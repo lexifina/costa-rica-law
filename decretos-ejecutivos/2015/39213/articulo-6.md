@@ -1,1 +1,0 @@
-Artículo 6°—Declaratoria. Se declara de interés público y nacional el programa Mi Primer Empleo y sus actividades, tendientes a reducir el desempleo en las poblaciones beneficiadas por lo que se autoriza al Ministerio de Trabajo y Seguridad Social por medio del programa, a recibir contribuciones económicas de parte de instituciones del sector público y privado.

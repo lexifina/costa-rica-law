@@ -1,2 +1,0 @@
-Artículo 4°.- De la inscripción. EL Ministerio de Trabajo y Seguridad Social habilitará las opciones físicas y digitales necesarias para la inscripción en el Programa, de las personas empleadoras y las personas en situación de desempleo. Esas alternativas deben propiciar que las personas que residen fuera del Gran Área Metropolitana también tengan acceso a Mi Primer Empleo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39805 del 15 de julio del 2016)
