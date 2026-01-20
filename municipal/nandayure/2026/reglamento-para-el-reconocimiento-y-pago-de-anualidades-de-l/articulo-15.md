@@ -1,0 +1,1 @@
+Artículo 15.-Derogatoria. Se deroga en todos sus extremos el Reglamento Municipal N° 49 del 4 de abril de 2007, denominado "Reglamento de Reconocimiento de Anualidades, el cual fue publicado en el Diario Oficial La Gaceta N° 132 del 10 de julio de 2007 y cuya vigencia inició en esa misma fecha.

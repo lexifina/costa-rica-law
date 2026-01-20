@@ -1,0 +1,1 @@
+Artículo 7º-Pérdida del incentivo. El servidor que no obtenga la calificación mínima exigida ("muy bueno" o equivalente) en su evaluación de desempeño anual no tendrá derecho al reconocimiento de la anualidad correspondiente a ese período.

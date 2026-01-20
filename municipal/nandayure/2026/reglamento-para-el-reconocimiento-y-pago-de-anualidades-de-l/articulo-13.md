@@ -1,0 +1,1 @@
+Artículo 13.-Aplicación. Este reglamento se aplicará para el reconocimiento y pago de anualidades devengadas con posterioridad al 4 de diciembre de 2018. No se reconocerán derechos retroactivos ni ajustes en perjuicio del funcionario. Se reconocerá hasta un máximo de 25 anualidades.

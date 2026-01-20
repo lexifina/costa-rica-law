@@ -1,0 +1,1 @@
+Artículo 10.-Permisos sin goce de salario. Los períodos en los que el servidor haya estado bajo permiso sin goce de salario no serán computados como tiempo efectivo de servicio para el reconocimiento de anualidades. El cómputo se suspenderá y se reanudará al momento del retorno efectivo a sus labores.

@@ -1,0 +1,1 @@
+Artículo 11.-Verificación presupuestaria. La Alcaldía Municipal y la Unidad de Recursos Humanos deberán verificar, antes del reconocimiento de una anualidad, que exista el contenido presupuestario necesario. En caso de no existir disponibilidad financiera, se dejará constancia de ello y se efectuará el pago en cuanto se apruebe el presupuesto correspondiente.

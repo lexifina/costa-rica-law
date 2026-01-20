@@ -1,0 +1,1 @@
+Artículo 9º-Reconocimiento de servicios anteriores. Cuando un servidor ingrese a laborar a la Municipalidad y haya laborado previamente en otras instituciones del sector público, deberá aportar certificación de tiempo servido emitida por la entidad respectiva o constancia de cuotas obrero-patronales emitida por la Caja Costarricense de Seguro Social.
