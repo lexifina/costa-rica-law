@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-28 | la propia norma |
+| 2 | 2026-01-20 | Reglamento municipal 90 (2026-01-20) |

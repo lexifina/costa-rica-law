@@ -10,7 +10,7 @@ e) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas
 f) Preparar los planes de trabajo, por lo menos de conformidad con los lineamientos que establece la Contraloría General de la República.
 g) Elaborar un informe de la ejecución del plan de trabajo y del estado de las recomendaciones de la auditoría interna, de la Contraloría General de la República y de los despachos de contadores públicos; en los últimos dos casos cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
 h) Mantener debidamente actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna.
-i) Analizar y dictaminar el Manual de procedimientos financiero-contables de la Municipalidad de Siquirres.
+i) (Derogado mediante sesión N° 90 del 20 de enero del 2026).
 j) Mantener debidamente actualizado el Manual de Procedimientos de los Servicios que brinda la Auditoría Interna de conformidad a las Normas para el Ejercicio de la Auditoría Interna en el Sector Público y las Normas General de Auditoría para el Sector Público.
 k) Instaurar y velar por la aplicación de los procesos necesarios para el aseguramiento de la calidad en el ejercicio de la auditoría interna, mediante evaluaciones internas.
 l) Elaborar y aprobar el Plan de Capacitación Anual de la Auditoría Interna.
