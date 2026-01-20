@@ -1,2 +1,0 @@
-Artículo 8º- Departamento de Planificación Empresarial. Corresponde al Departamento de Planificación Empresarial, coordinar, dar seguimiento y evaluar la planificación operativa y estratégica que dan origen a los objetivos y metas institucionales.
-Asimismo, debe velar por la alineación entre las metas establecidas en los instrumentos de planificación estratégica y operativa de RECOPE, con los objetivos y metas de las dependencias, según los niveles de planificación definidos en el Capítulo IV de este documento.

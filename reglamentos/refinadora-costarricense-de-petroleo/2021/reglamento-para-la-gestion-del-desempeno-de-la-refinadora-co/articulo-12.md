@@ -1,1 +1,0 @@
-Artículo 12.-Contraloría de Servicios. La Contraloría de Servicios debe recomendar a la Presidencia los rubros a evaluar en relación con las funciones que les asigna el artículo 14 de la Ley Reguladora del Sistema Nacional de Contralorías de Servicios, Ley Nº 9158.
