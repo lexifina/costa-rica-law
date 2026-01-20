@@ -14,3 +14,4 @@ Norma técnica nacional: Lineamientos para la elaboración de actas de órganos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-27 | la propia norma |
+| 2 | 2026-01-20 | Reglamento 2 (2026-01-20) |
