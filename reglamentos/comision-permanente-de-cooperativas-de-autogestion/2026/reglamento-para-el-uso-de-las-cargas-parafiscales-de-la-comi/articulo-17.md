@@ -1,0 +1,1 @@
+Artículo 17.-Los recursos provenientes del 5% se destinarán a costos asociados al Fomento del Fondo Nacional de Autogestión, entre estos el contenido económico de salario, cargas sociales e incentivos salariales del puesto de director del FNA, ejecutivos relacionados con los procesos de análisis de crédito, asistencia técnica y avales.

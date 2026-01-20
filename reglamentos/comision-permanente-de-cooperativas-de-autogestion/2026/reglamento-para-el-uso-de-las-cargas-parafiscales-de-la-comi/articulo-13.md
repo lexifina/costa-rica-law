@@ -1,0 +1,1 @@
+Artículo 13.-Las cooperativas que así lo requieran podrán solicitar a la CPCA capacitaciones direccionadas a una necesidad o labor especifica de acuerdo con el giro de la actividad comercial de la cooperativa y que no esté prevista en el plan anual de capacitaciones, esta solicitud se ajustara a lo establecido al artículo 7 y 9 del presente reglamento.

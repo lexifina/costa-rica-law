@@ -1,0 +1,1 @@
+Artículo 15.-Los requisitos para la formación de una cooperativa de autogestión según Decreto N° 34734- MTSS, Reglamenta los trámites que deben cumplir las asociaciones cooperativas en formación para su inscripción y la autorización de su personería jurídica ante el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.

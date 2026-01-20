@@ -1,0 +1,2 @@
+Artículo 6.-Formularios:
+Para el control y seguimiento de tramites por parte de las cooperativas, se establecerá un formulario que deben presentar ante la dirección ejecutiva, y posteriormente se someterán a análisis para definir si se aprueban o rechazan dichas solicitudes, de acuerdo con los criterios de disponibilidad presupuestaria, plazo para la ejecución u otro motivo que la dirección determine.

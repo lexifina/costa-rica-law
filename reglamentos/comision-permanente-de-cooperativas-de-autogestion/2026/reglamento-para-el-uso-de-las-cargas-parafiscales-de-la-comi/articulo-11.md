@@ -1,0 +1,1 @@
+Artículo 11.-Serán cubiertos con recursos provenientes de la contribución parafiscal los costos asociados al programa de promoción y capacitación, los rubros correspondientes al salario, cargas sociales e incentivos salariales de los ejecutivos a cargo del proceso y manejo del programa.

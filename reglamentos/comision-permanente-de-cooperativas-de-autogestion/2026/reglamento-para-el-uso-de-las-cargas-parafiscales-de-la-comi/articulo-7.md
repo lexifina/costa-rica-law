@@ -1,0 +1,2 @@
+Artículo 7º-Límites:
+Para las solicitudes de cooperativas que requieran capacitaciones o asistencias técnicas especificas o direccionadas a un giro de negocio especifico y que su costo sea superior a ?2.500.000, se elevará para conocimiento y aprobación del directorio, para aquellas capacitaciones y asistencias con un costo igual o inferior a ?2.500.000 será aprobadas por la dirección ejecutiva con el visto bueno del contenido presupuestario.

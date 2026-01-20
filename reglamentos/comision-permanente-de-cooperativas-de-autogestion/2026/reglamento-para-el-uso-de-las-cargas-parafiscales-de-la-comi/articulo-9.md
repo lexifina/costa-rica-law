@@ -1,0 +1,2 @@
+Artículo 9.-Ejecución:
+El periodo de ejecución de los recursos relacionados con apoyo a entes cooperativos será por año calendario según las labores establecidas con oportunidad, aquellas solicitudes que se entregue posterior al 15 de noviembre, pasará por un proceso de evaluación por parte de la dirección ejecutiva sobre la oportunidad y viabilidad de la gestión, aprobación o rechazo de la solicitud y el periodo a ejecutarse.

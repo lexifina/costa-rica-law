@@ -1,0 +1,2 @@
+Artículo 5º-Responsables:
+La responsabilidad de aprobación y distribución de los recursos producto de las cargas parafiscales, estará a cargo del Directorio de la CPCA, considerando los proyectos definidos y aprobados en el plan anual operativo de la CPCA, a su vez la Dirección Ejecutiva fiscalizará la correcta utilización de los recursos ajustados a los parámetros de control interno estipulados en el presente reglamento.
