@@ -1,0 +1,1 @@
+Artículo 50- PRINCIPIOS. En concordancia con el marco jurídico aplicable, para la realización de investigaciones de presuntos hechos irregulares, la Auditoría Interna deberá cumplir con los siguientes principios: Principio de legalidad, celeridad, independencia, objetividad y oficiosidad.

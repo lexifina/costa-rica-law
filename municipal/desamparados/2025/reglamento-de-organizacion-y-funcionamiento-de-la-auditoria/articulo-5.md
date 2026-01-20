@@ -1,0 +1,1 @@
+Artículo 5-AMBITO DE ACCIÓN. La Auditoría Interna cumplirá por la correcta fiscalización de la Hacienda Pública, sujetos al ámbito de competencia de la Municipalidad de Desamparados y por los entes u órganos públicos y privados sujetos a la competencia institucional de la Auditoría Interna.

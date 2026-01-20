@@ -1,0 +1,3 @@
+Artículo 4- DE LA ESTRUCTURA DE LA AUDITORÍA INTERNA. La estructura de la Auditoría Interna está conformada por el Auditor Interno y por personal profesional y técnico, para el debido cumplimiento de sus competencias, procesos y actividades.
+Además, la Auditoría Interna, podrá contar con el apoyo de otros profesionales requeridos para la ejecución de estudios técnicos, de conformidad con la normativa técnica y jurídica vigente.
+La Auditoría Interna se organizará en los siguientes procesos: Administración y gestión de la calidad, servicios preventivos, servicios auditables y servicios de seguimiento.

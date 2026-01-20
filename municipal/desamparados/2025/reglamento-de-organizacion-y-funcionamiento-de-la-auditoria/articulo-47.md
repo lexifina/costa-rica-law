@@ -1,0 +1,1 @@
+Artículo 47- SEGUIMIENTO DE LOS LIBROS. La Auditoría Interna hará un seguimiento del control de los libros autorizados en la medida de lo posible una vez al año, mediante los procedimientos establecidos para tal fin.

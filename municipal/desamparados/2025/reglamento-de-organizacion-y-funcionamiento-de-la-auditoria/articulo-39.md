@@ -1,0 +1,3 @@
+SECCIÓN CUARTA
+De la ejecución de las auditorías
+Artículo 39- EJECUCIÓN DE LOS ESTUDIOS DE AUDITORÍA. El desarrollo de las diferentes actividades del proceso de auditoría que conlleva la ejecución de los estudios, se regirá por lo establecido en el Manual de Procedimientos de los Servicios de Fiscalización y el Manual de Políticas, ambos de la Auditoría Interna de la Municipalidad de Desamparados. Además, la Auditoría Interna ejecutará su trabajo de acuerdo con lo que establece el presente Reglamento, así como las normas, directrices, lineamientos u otras disposiciones que al efecto emita la Contraloría General de la República.

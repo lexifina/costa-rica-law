@@ -1,0 +1,1 @@
+Artículo 51- CONFIDENCIALIDAD. La identidad de la persona denunciante será confidencial en apego al artículo 6 de la Ley General de Control Interno y en el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. La información, la documentación y otras evidencias serán confidenciales durante el desarrollo del proceso.

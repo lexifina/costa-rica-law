@@ -1,0 +1,1 @@
+Artículo 59- RESGUARDO DE LA IDENTIDAD DE LA PERSONA DENUNCIANTE. Toda documentación de trabajo, razón de archivo o comunicación a terceros generado por la Auditoría Interna, resultado de la denuncia que se atienda, se debe omitir la identidad del denunciante u otra información que permita determinar su identidad.

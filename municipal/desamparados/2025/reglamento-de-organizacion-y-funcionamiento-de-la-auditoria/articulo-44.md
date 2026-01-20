@@ -1,0 +1,3 @@
+Artículo 44- SEGUIMIENTO A LOS INFORMES DE CONTROL INTERNO. Los informes de control interno como parte del programa de seguimiento de recomendaciones, verificará lo siguiente:
+a) Que el jerarca o el titular subordinado, implemente las recomendaciones de la Auditoría Interna, gire por escrito la implantación al o los responsables designados, manteniendo en todo momento copiado a la Auditoría Interna, disponiendo fechas de inicio y de finalización.
+b) Las recomendaciones dirigidas a la Alcaldía y a los titulares subordinados se implementarán de conformidad con el artículo 36 y las dirigidas al Concejo Municipal de conformidad con el artículo 37, según lo establece la Ley General de Control Interno.

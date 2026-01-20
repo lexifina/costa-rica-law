@@ -1,0 +1,1 @@
+Artículo 55- ADMISIÓN DE DENUNCIAS ANÓNIMAS. Cuando se haya hecho llegar a la Auditoría Interna una denuncia anónima, la misma deberá traer consigo elementos de prueba que den mérito a una investigación para ser admitida. De lo contrario será declarada inadmisible y procederá su archivo.

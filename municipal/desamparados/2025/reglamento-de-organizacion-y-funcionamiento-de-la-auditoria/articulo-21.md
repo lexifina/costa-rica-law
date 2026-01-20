@@ -1,0 +1,3 @@
+SECCIÓN SEXTA
+De la asignación de recursos de la Auditoría Interna
+Artículo 21- FORMULACIÓN PRESUPUESTARIA. Es competencia de la Auditoría Interna, formular un informe técnico y comunicarlo al Concejo Municipal, del requerimiento de los recursos que sean necesarios, para asegurar razonablemente el cumplimiento de las competencias de la actividad de auditoría interna, con el deber de dar seguimiento al trámite y los resultados de la solicitud. La Auditoría Interna preparará el plan de trabajo y el presupuesto anual, de conformidad con los lineamientos y directrices aplicables, establecidas por la Contraloría General de la República.

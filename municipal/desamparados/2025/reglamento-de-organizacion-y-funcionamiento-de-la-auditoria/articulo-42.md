@@ -1,0 +1,1 @@
+Artículo 42- COMUNICACIÓN DE RESULTADOS DE LOS SERVICIOS PREVENTIVOS. El auditor interno comunicará lo derivado de los servicios preventivos mediante oficios u otros medios que considere pertinentes, conforme a las disposiciones emitidas por la Contraloría General de la República.

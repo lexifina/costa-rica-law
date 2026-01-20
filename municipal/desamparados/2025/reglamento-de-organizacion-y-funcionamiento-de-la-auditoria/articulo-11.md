@@ -1,0 +1,1 @@
+Artículo 11- RESPONSABILIDAD. Deberá el auditor interno velar por el logro final de los planes, objetivos, metas y competencias propios de la auditoría interna, de igual manera deberá cumplir con las políticas y directrices emanadas por el órgano contralor.

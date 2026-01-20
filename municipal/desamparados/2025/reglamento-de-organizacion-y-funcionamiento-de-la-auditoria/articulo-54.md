@@ -1,0 +1,1 @@
+Artículo 54-ANÁLISIS INICIAL DE LAS DENUNCIAS. Las denuncias recibidas serán analizadas de acuerdo con los recursos humanos disponibles, el orden en que se presentan, los estudios que se estén ejecutando, el análisis de los riesgos que puedan materializarse y otras variables que puedan estar incluidas en el procedimiento de atención de denuncias.
