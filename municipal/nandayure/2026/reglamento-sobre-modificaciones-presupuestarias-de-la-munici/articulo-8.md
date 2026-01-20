@@ -1,0 +1,13 @@
+Artículo 8º-Composición mínima del expediente administrativo de la modificación presupuestaria.
+Toda modificación al contenido presupuestario deberá tramitarse mediante un expediente administrativo debidamente conformado, el cual deberá contener, como mínimo, la siguiente documentación:
+a) Solicitud formal de modificación presupuestaria, presentada por la o las dependencias municipales interesadas, debidamente firmada por la jefatura responsable del presupuesto correspondiente y el resumen consolidado.
+b) Detalle aritmético de la modificación, en el que se consignen, como mínimo, el programa, la actividad, la denominación de la cuenta presupuestaria, el saldo disponible previo a la modificación, el monto total de las disminuciones, el monto total de los aumentos y el nuevo saldo resultante, debidamente firmado por la persona titular de la Alcaldía Municipal, por la persona titular de la Tesorería Municipal y por la persona encargada del Presupuesto Municipal.
+c) Justificación técnica y administrativa, clara y suficiente, que explique la necesidad de la modificación presupuestaria.
+d) Análisis del impacto sobre el Plan Anual Operativo, en el que se especifiquen las variaciones producidas o, en su caso, la inexistencia de afectación sobre las metas y objetivos institucionales.
+e) Actas y acuerdos de la Junta Vial Cantonal, cuando la modificación presupuestaria involucre recursos destinados a la gestión vial cantonal, conforme a la normativa especial aplicable.
+f) Constancia de encontrarse al día con las obligaciones ante la Caja Costarricense de Seguro Social, cuando resulte exigible de acuerdo con la naturaleza del gasto y el marco jurídico aplicable.
+g) Dictamen de la Comisión Permanente de Hacienda y Presupuesto, cuando la modificación presupuestaria haya sido remitida a dicha comisión para su análisis.
+h) Acuerdo de aprobación del Concejo Municipal, mediante el cual se autoriza la modificación presupuestaria.
+i) Oficio de remisión de la Alcaldía Municipal a la Contraloría General de la República, cuando corresponda de conformidad con la normativa vigente y la naturaleza de la modificación aprobada.
+La documentación indicada deberá incorporarse de manera ordenada y completa al expediente respectivo, con el fin de garantizar la trazabilidad del trámite, el control interno y la fiscalización posterior.
+La persona encargada del Presupuesto Municipal será responsable de la conformación, custodia, conservación y actualización del expediente administrativo de cada modificación presupuestaria, debiendo asegurar su adecuada organización, integridad y trazabilidad, así como su digitalización y resguardo en los sistemas institucionales que se dispongan para tales efectos.

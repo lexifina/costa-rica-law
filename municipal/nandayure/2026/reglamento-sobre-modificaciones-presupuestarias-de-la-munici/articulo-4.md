@@ -1,0 +1,2 @@
+Artículo 4º-Cantidad anual de modificaciones ordinarias y supuestos extraordinarios.
+Bajo la observancia del límite previsto en el artículo anterior, se tramitará un máximo de doce modificaciones ordinarias anuales. Esta cantidad máxima podrá verse afectada cuando se requieran modificaciones extraordinarias que respondan a necesidades derivadas de caso fortuito, fuerza mayor o declaratoria de emergencia cantonal, sin que ello constituya incumplimiento del presente reglamento.
