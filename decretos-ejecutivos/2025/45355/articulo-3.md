@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Deróguense los transitorios I, II y III del Decreto Ejecutivo N°43527-MGPS- MAG-MRREE-MTSS, del 5 de mayo de 2022, denominado "Categoría especial para la regularización migratoria de personas extranjeras para laborar de forma temporal en el sector agropecuario".
