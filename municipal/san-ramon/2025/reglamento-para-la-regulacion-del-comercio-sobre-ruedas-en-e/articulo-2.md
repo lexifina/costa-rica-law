@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación.
+La aplicación de este Reglamento corresponde a la Administración Municipal, por medio del Departamento de Licencia Comerciales y el Departamento de Planificación Urbana. Las disposiciones serán de acatamiento obligatorio para todos los licenciatarios, sean personas físicas o jurídicas, que cuenten con un Permiso Temporal de Uso del Espacio Físico Habilitado y/o una Licencia Comercial Temporal Especial y que pretenda ejercer de forma temporal la actividad de Comercio sobre Ruedas en el cantón de San Ramón.

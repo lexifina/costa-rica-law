@@ -1,0 +1,2 @@
+Artículo 8.- De la prórroga del Permiso Temporal y la Licencia Comercial
+El permiso Temporal y la Licencia Comercial podrán ser prorrogados por una única vez y por un período igual al autorizado inicialmente. Vencido el período máximo de renovación, los interesados podrán iniciar una nueva gestión, si así lo consideran, en ese caso el Departamento de Licencia Comerciales deberá respetar el orden de ingreso de las solicitudes con el fin de garantizar la rotación necesaria para mantener el orden y la equidad entre los comerciantes.
