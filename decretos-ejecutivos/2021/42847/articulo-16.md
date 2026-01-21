@@ -95,11 +95,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Cirugía Gastroenterológica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
-16.5.4. Coloproctología.
-Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía de Colon y Recto.
+(*)16.5.4. Coloproctología.
+Se reconoce como sinónimo de esta especialidad, el siguiente término: Cirugía de Colon y Recto y Cirugía Colorectal.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2026-01- 21 del 21 de enero de 2026)
 (*)16.5.5 Cirugía del Trasplante Renal.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
