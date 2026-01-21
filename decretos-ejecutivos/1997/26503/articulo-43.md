@@ -1,1 +1,2 @@
-Artículo 43.—Derógese el decreto ejecutivo N° 12060-A del 14 de noviembre de 1980, así como su modificación establecida en el decreto ejecutivo N° 17801-MAG del 15 de octubre de 1987.
+Artículo 43°- Toda infracción a las disposiciones del presente reglamento que afecten el uso y manejo de sustancias químicas, biológicas o afines y equipos para aplicarlas en la agricultura dará lugar a la aplicación de las sanciones establecidas en este reglamento, así como las medidas especiales señaladas en los artículos 67, 78, 79, 80 y 83 de la Ley Nº 7664 del 08 de abril de 1997 "Ley de Protección Fitosanitaria "y sus reformas.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 45488 del 21 de enero de 2026)
