@@ -1,6 +1,0 @@
-Artículo 64.—En todos los casos que se requiera control de calidad de medicamentos, el proveedor entregará dentro del plazo definido por la administración, so pena de imponer la multa que al efecto establezca el cartel y las condiciones generales aprobadas por Junta Directiva, de acuerdo con la necesidad del abastecimiento y la criticidad del medicamento:
-- Certificado de la fórmula cuali-cuantitativa con que fue registrado el producto farmacéutico en el país, extendido por el Ministerio de Salud.
-- Método de análisis de calidad validado del laboratorio fabricante y el respectivo documento de validación, en caso de productos farmacéuticos que no aparecen registrados en farmacopeas oficiales.
-- Muestra de la sustancia patrón de los principales activos acompañada de su respectivo certificado de análisis que indique la trazabilidad al patrón primario, con una vigencia mínima de 1 año y muestra de las sustancias relacionadas. Las cantidades de dichas muestras serán las que defina la solicitud de inscripción al Registro de Oferentes.
-- Entregar al Laboratorio de Normas y Control de Calidad un certificado de análisis por cada lote entregado.
-(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

@@ -1,3 +1,0 @@
-Artículo 68.—El contratista, por sí o por medio de su representante, deberá atender las solicitudes que la administración formule durante el proceso de ejecución y aquellas ulteriores referidas al régimen de responsabilidad civil y administrativa del contratista mientras no haya prescrito la acción de la administración.
-Corresponde al contratista asegurar que el representante tendrá poderes suficientes para atender gestiones referidas a desalmacenaje, pagos y acciones de reintegro, retiro de mercaderías, reclamos por faltantes o defectos y procedimientos de responsabilidad civil y administrativa, entre otros.
-(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

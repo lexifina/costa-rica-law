@@ -1,2 +1,0 @@
-Artículo 63.—Por razones de urgencia debidamente acreditadas, la administración se reserva la potestad de permitir cotizaciones parciales de acuerdo con el comportamiento del mercado, siempre que con ello se garantice un inmediato abastecimiento cuya criticidad y desabasto ponga en riesgo la vida de los usuarios y las características del objeto contratado lo permitan.
-(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

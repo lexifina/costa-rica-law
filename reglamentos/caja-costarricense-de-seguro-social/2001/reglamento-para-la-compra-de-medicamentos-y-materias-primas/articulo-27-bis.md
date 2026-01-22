@@ -1,2 +1,0 @@
-Artículo 27 bis.—(Derogado por el transitorio 1 de las Condiciones Generales para la Contratación Administrativa Institucional de Bienes y Servicios Desarrollada por todas las Unidades Desconcentradas y no Desconcentradas de la Caja Costarricense de Seguro Social, aprobado en sesión N° 8335 de 26 de marzo de 2009).
-(Así adicionado por la Sesión N° 7797, celebrada el 09 de octubre de 2003, publicada en La Gaceta N° 202 de 21 de octubre de 2003.)

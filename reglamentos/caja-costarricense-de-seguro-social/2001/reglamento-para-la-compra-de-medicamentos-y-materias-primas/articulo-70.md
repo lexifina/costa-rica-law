@@ -1,3 +1,0 @@
-Artículo 70.—Cuando la compra requiera de la aprobación interna de acuerdo con lo dispuesto por el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública , la unidad de compras deberá remitirlo a la unidad legal debidamente autorizada al efecto dentro de los tres días hábiles siguientes a la firmeza del acto de adjudicación, la cual dispondrá de 5 (cinco) días hábiles para emitir la correspondiente aprobación interna o el rechazo con la clara indicación de los vicios que lo sustente.
-En casos de procedimientos tramitados bajo el supuesto de urgencia, no requerirá la aprobación interna quedando sujeto a su fiscalización posterior.
-(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

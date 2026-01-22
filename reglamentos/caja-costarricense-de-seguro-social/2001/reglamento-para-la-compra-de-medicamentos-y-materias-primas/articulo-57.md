@@ -1,1 +1,0 @@
-Artículo 57.—De conformidad con lo establecido por las leyes 5292 del 9 de agosto de 1973 y 4124 del 16 de setiembre de 1974, el Sistema Internacional de Unidades de Medida es de uso obligatorio en las solicitudes de cotización como en las propias ofertas.

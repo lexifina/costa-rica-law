@@ -1,3 +1,0 @@
-Artículo 67.—La adjudicación, declaratoria de desierto, la revocación o readjudicación deberá ser dictada por el mismo funcionario u órgano que tiene la competencia para adjudicar, según la distribución institucional de competencias y los presupuestos que sobre cada figura citada regula la Ley de Contratación Administrativa y su Reglamento.
-La declaratoria de infructuoso e insubsistencia corresponderá dictarla a la jefatura formal de la unidad programática que promocionó el proceso de compra.
-(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)
