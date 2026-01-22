@@ -1,1 +1,0 @@
-Artículo 50°. Requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría Interna: (Derogado por el artículo 2° de los Lineamientos para el análisis de presuntos hechos irregulares presentados en la auditoría interna de la Municipalidad de Buenos Aires, y publicados en La Gaceta N° 27 del 9 de febrero del 2021)

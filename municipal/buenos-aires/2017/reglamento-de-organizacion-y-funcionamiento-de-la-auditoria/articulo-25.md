@@ -1,5 +1,0 @@
-Artículo 25°. Potestades del Auditor, en relación con el personal de la Auditoría Interna. En relación al personal de la Auditoría, el Auditor Interno tendrá las siguientes potestades:
-a) Autorizar movimientos de personal (nombramiento, traslado, suspensión, remoción, concesión de licencias y otros) en la Auditoría Interna, de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno y demás normas aplicables.
-b) Gestionar oportunamente lo relativo a las plazas vacantes de la unidad a su cargo.
-c) Vigilar y tomar las decisiones que correspondan, para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la Auditoría Interna) que les sean aplicables.
-d) Autorizar la asistencia a las capacitaciones de conformidad con lo establecido en el Plan de Capacitaciones.

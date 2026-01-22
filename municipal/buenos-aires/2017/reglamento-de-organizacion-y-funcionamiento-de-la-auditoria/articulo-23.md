@@ -1,8 +1,0 @@
-Artículo 23°. De la participación del Auditor Interno, o a quien delegue, en las sesiones del órgano colegiado. El Auditor Interno no debe participar en forma permanente, en las sesiones o reuniones del Concejo Municipal. Cuando el Concejo Municipal solicite su participación en alguna sesión o reunión, la actuación del Auditor debe ser conforme con su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General de la República al respecto, con la finalidad de mantener su objetividad e independencia de criterio.
-La participación del Auditor Interno o a quien se delegue, se dará bajo las siguientes condiciones:
-a) Asistencia con voz pero sin voto.
-b) Asistir cuando lo estime conveniente para el cabal cumplimiento de sus deberes, o cuando sea convocado por el Órgano Colegiado.
-c) Brindar asesoría únicamente en asuntos de su competencia, sin que menoscabe o comprometa su independencia y objetividad, en el desarrollo posterior de sus demás competencias.
-d) Pedir y vigilar que su opinión conste en las actas respectivas.
-e) Posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
-f) Ni la presencia, ni el silencio del Auditor Interno en las sesiones, releva al jerarca de la responsabilidad de respetar el ordenamiento jurídico técnico en lo que acuerde. Además, el silencio del Auditor, no impide que emita su opinión posteriormente, de manera oportuna, sea de forma verbal en otra sesión, o por escrito.

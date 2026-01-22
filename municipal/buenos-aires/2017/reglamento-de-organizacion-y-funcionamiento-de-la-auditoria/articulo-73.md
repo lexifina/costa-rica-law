@@ -1,1 +1,0 @@
-Artículo 73°. Libros con razón de cierre no retirados. Los libros que se cierren y no se retiren, dentro del plazo de ocho días naturales, contados a partir de la fecha que consigna la razón de cierre, se devolverán a la persona a cargo del mismo.

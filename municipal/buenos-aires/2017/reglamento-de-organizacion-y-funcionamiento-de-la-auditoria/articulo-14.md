@@ -1,1 +1,0 @@
-Artículo 14°. Jornada laboral del Auditor y Subauditor Internos. La jornada laboral del Auditor y Subauditor Internos de la Municipalidad será de tiempo completo, debiendo regirse por lo que al respecto indique la Contraloría General de la República, en relación con las regulaciones administrativas aplicables a los funcionarios de las auditorías internas del Sector Público.

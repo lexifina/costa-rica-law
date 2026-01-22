@@ -1,1 +1,0 @@
-Artículo 22°. De la asistencia a capacitaciones. El Auditor Interno informará previamente al Concejo Municipal, la asistencia a las capacitaciones que se encuentren establecidas en el Plan de Capacitaciones y todas aquellas necesarias para el desarrollo de la Unidad, de acuerdo al contenido presupuestario asignado a la Auditoría.

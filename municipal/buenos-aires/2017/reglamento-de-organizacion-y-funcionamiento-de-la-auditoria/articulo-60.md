@@ -1,1 +1,0 @@
-Artículo 60°. Alcance. Las presentes regulaciones resultan aplicables a la autorización de apertura y cierre de los libros contables, de actas u otros, que legal o reglamentariamente deben llevar las diferentes dependencias municipales y que de acuerdo con el artículo 22 inciso e, de la Ley General de Control Interno, es una potestad asignada a la Auditoría Interna.

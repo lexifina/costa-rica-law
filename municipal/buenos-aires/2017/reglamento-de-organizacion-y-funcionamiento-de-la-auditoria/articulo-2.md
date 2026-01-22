@@ -1,1 +1,0 @@
-Artículo 2°. Actualización. Corresponde al Auditor Interno, con el apoyo de la Administración, mantener actualizado este instrumento jurídico, para lo cual comunicará lo pertinente al Concejo Municipal, para su aprobación y cumplirá el trámite de remisión ante la Contraloría General de la República, para lo que corresponda.

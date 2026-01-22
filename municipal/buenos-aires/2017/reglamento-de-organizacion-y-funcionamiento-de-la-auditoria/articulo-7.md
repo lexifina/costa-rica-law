@@ -1,1 +1,0 @@
-Artículo 7°. Misión, visión y principales políticas. La Auditoría Interna deberá establecer y actualizar periódicamente su misión, visión y principales políticas que regirán su accionar, a fin de coadyuvar en el logro de los objetivos institucionales.

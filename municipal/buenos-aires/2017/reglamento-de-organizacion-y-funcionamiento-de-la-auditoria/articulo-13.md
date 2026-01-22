@@ -1,1 +1,0 @@
-Artículo 13°. Responsable de la Auditoría Interna. La Auditoría Interna estará bajo la responsabilidad de un Auditor, quien deberá conocer las disposiciones legales que rigen en general a la Administración Pública y específicamente al Régimen Municipal.

@@ -1,1 +1,0 @@
-Artículo 39°. Trámite de informes de servicios de auditoría. Los informes producto de los servicios de auditoría, se tramitarán de conformidad con lo dispuesto en los artículos 35, 36, 37 y 38 de la Ley General de Control Interno, con observancia del Manual para el Ejercicio de la Auditoría Interna emitido por la Contraloría General de la República.

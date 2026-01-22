@@ -1,1 +1,0 @@
-Artículo 76°. Plazo para resolver. Una vez verificado el cumplimiento de los requisitos para la reposición del libro, la Auditoría Interna contará con un plazo de diez días hábiles para tramitar la solicitud. Plazo que comenzará a regir a partir de la fecha de presentación de la documentación por parte del interesado.

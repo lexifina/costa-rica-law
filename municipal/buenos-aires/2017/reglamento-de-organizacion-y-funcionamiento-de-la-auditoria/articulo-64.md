@@ -1,5 +1,0 @@
-Artículo 64°. Requisitos de los libros que se presenten para la apertura. Para este trámite, será necesario considerar lo siguiente:
-a) Los libros deben encontrarse con su totalidad de folios y en buen estado, no pudiéndose haber iniciado ninguno de ellos, excepto cuando se trate de cambio de tipo de libro, siempre y cuando la información que contiene corresponda plenamente al tipo de libro para el que se solicita el cambio.
-b) Los folios deberán estar numerados de forma consecutiva. Tratándose de libros compuestos por hojas de fórmula continua u hojas sueltas, deberán igualmente estar numeradas y contener impreso el sello y nombre de la Unidad
-Administrativa.
-c) Ante el evento de que el trámite consista en una renovación o cambio de tipo de libro, deberá aportarse el libro anterior, para su cierre o verificar su razón de cierre. Si el libro anterior ha sido cerrado, no debe presentar anotaciones después del sello de cierre, ya que cualquier anotación subsecuente después de dicho sello carece de validez.
