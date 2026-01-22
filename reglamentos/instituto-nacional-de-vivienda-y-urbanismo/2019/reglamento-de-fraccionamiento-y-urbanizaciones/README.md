@@ -18,3 +18,4 @@ Reglamento de Fraccionamiento y Urbanizaciones
 | 3 | 2020-09-13 | Reglamento 6448 (2020-06-04) |
 | 4 | 2020-09-13 | Reglamento 6462 (2020-08-27) |
 | 5 | 2022-09-22 | Reglamento 6548 (2022-09-22) |
+| 6 | 2026-01-22 | Reglamento 3 (2026-01-22) |

@@ -1,4 +1,4 @@
 SECCIÓN QUINTA: FRACCIONAMIENTO DE PARCELAS CON FINES
 AGRÍCOLAS, PECUARIOS, FORESTALES O MIXTO
-ARTÍCULO 29. Fraccionamiento con fines agrícolas, pecuarios, forestales o mixtos
-Los fraccionamientos de parcelas con fines agrícolas, pecuarios, forestales o mixtos que se encuentra normados en el presente Reglamento, son aquellos que tienen acceso a través de una servidumbre agrícola, pecuaria o forestal. Para autorizar el visado de los planos de parcelas, el interesado debe contar con un estudio de suelos y de capacidad de uso de las tierras elaborado por un Certificador de Uso Conforme del suelo autorizado según las disposiciones establecidas en el Reglamento a la Ley de Uso, Manejo y Conservación de Suelos, Decreto Ejecutivo N°29375-MAG-MINAE-S-HACIENDA-MOPT y el Decreto Ejecutivo N°30636-MAG, denominado Crea el Registro Oficial de Certificadores de Uso Conforme del Suelo y sus reformas o la normativa que les sustituya.
+Artículo 29.-Fraccionamiento con fines agrícolas, pecuarios, forestales o mixtos. Los fraccionamientos de parcelas con fines agrícolas, pecuarios, forestales o mixtos que se encuentra normados en el presente Reglamento, son aquellos que tienen acceso a través de una servidumbre agrícola, pecuaria o forestal.
+(Así reformado en session N° 003 del 22 de enero de 2026)
