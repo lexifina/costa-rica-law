@@ -1,0 +1,1 @@
+Artículo 12.-Actualizaciones del fondo. Las actualizaciones de los fondos de Caja Chica y del monto de los anticipos se efectuarán con criterio previo del Departamento de Tesorería y de los estudios técnico-financieros de la Dirección Administrativa y Financiera, que se remitirán al Concejo Municipal para su respectiva aprobación.

@@ -1,0 +1,1 @@
+Artículo 5°-Medio para realizar las compras. El fondo de Caja Chica funcionará para la adquisición de bienes o servicios, de manera que las compras se efectuarán con dinero en efectivo en el comercio local.

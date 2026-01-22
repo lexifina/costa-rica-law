@@ -1,0 +1,1 @@
+Artículo 9°-El Departamento de Proveeduría Institucional, contará con un plazo prorrogable de 3 días hábiles para emitir el criterio que le permita definir si se autoriza el trámite de Caja Chica que le fue presentado al tesorero o el mismo se rechaza por ser contrario a la legalidad.

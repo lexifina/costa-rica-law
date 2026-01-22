@@ -1,0 +1,1 @@
+Artículo 6°-Solicitud de compra. La dependencia solicitante deberá gestionar el procedimiento establecido por la Municipalidad y la solicitud de anticipo y deberá cumplir con todos los requerimientos establecidos en dicha solicitud.

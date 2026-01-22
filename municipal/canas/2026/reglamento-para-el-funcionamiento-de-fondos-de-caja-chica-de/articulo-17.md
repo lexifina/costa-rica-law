@@ -1,0 +1,1 @@
+Artículo 17.-Requisitos para adquisición de bienes o servicios a proveedores adscritos al régimen simplificado. Las dependencias usuarias del fondo de caja chica deberán verificar previo a la adquisición de bienes o servicios, que los proveedores se encuentren adscritos a este régimen tributario.
