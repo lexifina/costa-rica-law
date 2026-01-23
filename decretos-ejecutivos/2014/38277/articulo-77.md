@@ -1,12 +1,20 @@
-Artículo 77.- Competencias. La competencia en las actuaciones administrativas será determinada por el domicilio fiscal que tenga registrado el obligado tributario, en el momento de iniciarse la actuación de la Administración Tributaria, con aplicación de los siguientes supuestos:
-a) En cuanto a la facultad de practicar una liquidación previa o definitiva, ésta se extiende a hechos imponibles y períodos anteriores, siempre que no hayan prescrito, aun cuando el obligado tributario no hubiera tenido el mismo domicilio al momento del inicio de la actuación.
+Artículo 77.- Competencias. La competencia en las actuaciones administrativas será a nivel nacional, con aplicación de los siguientes supuestos:
+(Así reformado el párrafo anterior por el artículo 15 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+a) En cuanto a la facultad de practicar una liquidación previa o definitiva, ésta se extiende a hechos imponibles y períodos anteriores, siempre que no hayan prescrito.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
 b) La Dirección de Grandes Contribuyentes Nacionales tiene competencia en todo el territorio nacional sobre todos los obligados tributarios que estén calificados como Grandes Contribuyentes Nacionales al iniciarse las actuaciones.
 c) La facultad de fiscalizar o en general, de practicar una liquidación previa o definitiva, por parte de la Dirección de Grandes Contribuyentes Nacionales se extiende a hechos imponibles y períodos anteriores, aun cuando para estos el sujeto no hubiera tenido la condición de Gran Contribuyente Nacional.
-d) El cambio de domicilio fiscal durante la tramitación de alguna solicitud del obligado tributario o alguna actuación tributaria no modifica la competencia de la Administración Tributaria Territorial, por lo que el procedimiento debe ser concluido por la Administración Tributaria Territorial que le dio inicio.
-e) En materia de valoración de bienes inmuebles la ubicación del inmueble será la que determine la competencia de la respectiva Administración Tributaria Territorial.
-f) Las Direcciones Técnico Normativas están facultadas para requerir información previsiblemente pertinente para el cumplimiento de las funciones propias de su competencia.
-g) Las Direcciones Técnico Normativas tendrán competencia para imponer las sanciones que se generen, por el incumplimiento total o parcial de los requerimientos individualizados de información que estas solicitan.
-h) La Dirección de Fiscalización por medio de la Subdirección de Investigación del Fraude Tributario, tiene competencia para realizar procesos intensivos de comprobación para la debida liquidación definitiva de la obligación tributaria, en todo el territorio nacional.
-i) La Dirección de Fiscalización por medio de la Subdirección de Investigación del Fraude Tributario, tiene competencia y potestad de instar los procesos correspondientes ante la detección de un ilícito tributario, ya sea por infracción administrativa o delito tributario, pudiendo generar e imponer las sanciones administrativas tuteladas legalmente, así como interponer, por los procedimientos instruidos, las denuncias penales correspondientes. Para ello aplicará los procedimientos establecidos en los artículos 90 y 150 del Código.
-En casos excepcionales, atendiendo incluso a razones de oportunidad, la Dirección General de Tributación podrá reasignar mediante resolución notificada a los interesados, la competencia de un caso específico. Terminada la actuación, la competencia volverá a la Administración Tributaria de origen.
+d) El cambio de domicilio fiscal durante la tramitación de alguna solicitud del obligado tributario o alguna actuación tributaria no modifica la competencia de la Administración Tributaria.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+e) En materia de valoración de bienes inmuebles la Administración Tributaria tendrá competencia a nivel nacional.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+f) Las Direcciones Funcionales están facultadas para requerir información previsiblemente pertinente para el cumplimiento de las funciones propias de su competencia.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+g) Las Direcciones Funcionales tendrán competencia para imponer las sanciones que se generen, por el incumplimiento total o parcial de los requerimientos individualizados de información que estas solicitan.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+h) La Dirección de Control Tributario Material por medio del Departamento de Fraude Fiscal, tiene competencia para realizar procesos intensivos de comprobación para la debida liquidación definitiva de la obligación tributaria, en todo el territorio nacional.
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+i) La La Dirección de Control Tributario Material por medio del Departamento de Fraude Fiscal tiene competencia y potestad de instar los procesos correspondientes ante la detección de un ilícito tributario, ya sea por infracción administrativa o delito tributario, pudiendo generar e imponer las sanciones administrativas tuteladas legalmente, así como interponer, por los procedimientos instruidos, las denuncias penales correspondientes. Para ello aplicará los procedimientos establecidos en los artículos 90 y 150 del Código."
+(Así reformado el inciso anterior por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+(Derogado el párrafo final por el artículo 14 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

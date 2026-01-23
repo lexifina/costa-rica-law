@@ -1,5 +1,5 @@
-Artículo 130.- Órganos encargados del control tributario intensivo y su competencia.
-Las funciones y atribuciones propias de la función de control tributario intensivo, en el ámbito de la competencia de la Dirección General de Tributación, serán ejercidas por los siguientes órganos:
-a) Por la Dirección de Fiscalización que en el cumplimiento de sus tareas normativa, operativa, de planeación y control de gestión, tendrá competencia en todo el territorio nacional.
-b) Por los órganos de fiscalización de las administraciones tributarias territoriales y de la Dirección de Grandes Contribuyentes Nacionales, que son las unidades encargadas de ejecutar, en el ámbito de su competencia, los planes y programas que para el cumplimiento de sus funciones trace la Dirección de Fiscalización.
-c) Por las Direcciones en que, mediante resolución general, se determine la necesidad de que desarrollen funciones de control tributario intensivo, en razón de su especialidad técnica.
+Artículo 130.- Órganos encargados del control tributario intensivo y su competencia. Las funciones y atribuciones propias del control tributario intensivo, en el ámbito de la competencia de la Dirección General de Tributación, serán ejercidas por los siguientes órganos:
+a) La Dirección de Control Tributario Material, que tendrá a su cargo el cumplimiento de las tareas normativas, operativas, de planeación y control de gestión, las cuales tendrán competencia en todo el territorio nacional.
+b) Por la Subdirección Gerencia de Fiscalización y sus dependencias de la Dirección de Control Tributario Material, y por la Dirección de Grandes Contribuyentes Nacionales, las cuales tendrán competencia en todo el territorio nacional para ejecutar en el ámbito de su competencia, los planes y programas que para el cumplimiento de sus funciones trace la Dirección de Control Tributario Material.
+También serán ejercidas por las Direcciones en que, mediante resolución general, se determine la necesidad de que desarrollen funciones de control tributario intensivo, en razón de su especialidad técnica.
+(Así reformado por el artículo 24 del decreto ejecutivo 45500 del 23 de enero del 2026)

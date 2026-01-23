@@ -1,7 +1,9 @@
 Artículo 179.- Emisión del certificado de adeudo.
 1) Una vez vencido el plazo de quince días hábiles establecido en el artículo 192 del Código, dentro de los nueve meses siguientes a la expiración del plazo legal de pago, la Administración Tributaria certificará las deudas impagas por concepto de tributos y sanciones administrativas y remitirá el certificado de inmediato al fiscal de cobro para los efectos de ejercer la respectiva acción judicial o extrajudicial de cobro.
 2) No deben certificarse los créditos fiscales originados en tributos regulados por el Código, sus intereses y recargos que hayan sido objeto de impugnación por el interesado en el trámite administrativo, hasta tanto el Tribunal Fiscal Administrativo no haya dictado resolución y, tratándose de multas, no exista sentencia ejecutoria.
-La Administración Tributaria certificará las deudas impagas una vez que las mismas se encuentren firmes en sede administrativa.
-3) Las certificaciones de adeudo expedidas por las oficinas señaladas en este artículo, deberán ser firmadas por los gerentes de las Administraciones Tributarias Territoriales o el Director de Grandes Contribuyentes Nacionales. Tendrán el carácter de título ejecutivo suficiente para iniciar el cobro judicial.
+El titular de la Subdirección Gerencia de Cobranza Administrativa de la Dirección de Cobranza certificará las deudas impagas una vez que las mismas se encuentren firmes en sede administrativa.
+(Así reformado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
+3) Las certificaciones de adeudo deberán ser firmadas por el Subdirector Gerente de Cobranza Administrativa o el Director de Grandes Contribuyentes Nacionales. Tendrán el carácter de título ejecutivo suficiente para iniciar el cobro judicial.
+(Así reformado el inciso anterior por el artículo 32 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
 4) Para efectos de la responsabilidad solidaria, la Administración Tributaria emitirá un único certificado de adeudo que incluya a todos o algunos de los deudores solidarios, cuando se les haya instado previamente al pago, conforme al artículo 192 del Código.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

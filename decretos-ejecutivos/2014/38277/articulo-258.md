@@ -1,2 +1,2 @@
-Artículo 258.- Órgano competente.
-El Gerente, como titular del órgano de la Administración Tributaria Territorial y el Director de Grandes Contribuyentes Nacionales, son los órganos competentes para imponer la sanción administrativa de cierre de negocios a los obligados tributarios bajo su jurisdicción, así como para conocer del recurso de revocatoria que se presente.
+Artículo 258.- Órgano competente. El Subdirector Gerente, como titular del órgano de la Administración Tributaria y el Director de Grandes Contribuyentes Nacionales, son los órganos competentes para imponer la sanción administrativa de cierre de negocios a los obligados tributarios bajo su jurisdicción, así como para conocer del recurso de revocatoria que se presente.
+(Así reformado por el artículo 44 del decreto ejecutivo N° 45500 del 23 de enero del 2026)
