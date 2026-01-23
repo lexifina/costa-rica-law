@@ -1,0 +1,8 @@
+Artículo 2. De los objetivos del Festival y Concurso de Coros.
+El Festival y Concurso de Coros "Costa Rica Canta" persigue los siguientes objetivos:
+a) Impulsar el crecimiento artístico de los coros costarricenses mediante espacios anuales, ya sea en formato festival o concurso, que fortalezcan la técnica vocal, la musicalidad y la experiencia escénica.
+b) Consolidar un proyecto coral nacional que, mediante la realización anual del Festival "Costa Rica Canta" y la organización de un concurso coral en años alternos, que promueva el desarrollo artístico, formativo y cultural de las agrupaciones corales del país y proyecte su talento a nivel nacional e internacional.
+c) Crear oportunidades de encuentro, convivencia y formación con especialistas nacionales e internacionales, facilitando talleres, clases maestras, retroalimentación profesional y actividades de enriquecimiento musical.
+d) Ofrecer cada dos años un espacio competitivo riguroso que motive a las agrupaciones a prepararse con altos niveles de calidad interpretativa, promoviendo la disciplina, el trabajo detallado y la búsqueda de excelencia artística.
+e) Posicionar al país como una sede relevante en el circuito coral regional al atraer coros extranjeros, establecer vínculos con organizaciones internacionales y promover el intercambio cultural a través de la música y experiencias compartidas.
+f) Mostrar la riqueza del movimiento coral costarricense en edades, estilos, formatos y niveles, promoviendo la participación de agrupaciones escolares, comunitarias, independientes y profesionales en un espacio inclusivo que valore la expresión artística de todos los coros.

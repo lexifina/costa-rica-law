@@ -1,0 +1,7 @@
+Artículo 3. De los ejes estratégicos del Festival y Concurso de Coros.
+El Festival y Concurso de Coros "Costa Rica Canta", tienen como marco orientador los siguientes ejes estratégicos:
+a) La formación: por medio de talleres, clases maestras, conversatorios y espacios pedagógicos que fortalezcan las competencias de directores, cantantes y coristas de todos los niveles, promoviendo el perfeccionamiento técnico y el crecimiento académico del movimiento coral de los participantes en estas actividades.
+b) La interpretación musical: por medio de conciertos, muestras escénicas y encuentros corales -tanto en formato festival como competitivo- que permitan compartir diferentes estéticas, repertorios y estilos, enriqueciendo la experiencia del público y de las agrupaciones participantes.
+c) La proyección artística: al propiciar alianzas estratégicas, intercambios culturales, colaboraciones con instituciones nacionales e internacionales y la visibilización del talento coral costarricense en plataformas de alto nivel.
+d) La participación y la inclusión: mediante espacios accesibles que integren coros infantiles, juveniles, comunitarios, universitarios, independientes y profesionales, garantizando la diversidad de voces, procedencias y propuestas artísticas del país.
+e) La vinculación cultural y comunitaria: por medio de actividades que acerquen el canto coral a nuevas audiencias, impulsen la apreciación musical en diferentes comunidades y fortalezcan el impacto social del arte como herramienta de encuentro, identidad y transformación.
