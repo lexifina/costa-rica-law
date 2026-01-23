@@ -1,0 +1,1 @@
+Artículo 59º- Planteamiento de conflictos ante la CGR. Firme la resolución del Ministro del MGP, que ordene soluciones distintas de las recomendadas por la Auditoría Interna, ésta podrá acogerse a lo dispuesto en el artículo 38 de LGCI, Ley N°8292.

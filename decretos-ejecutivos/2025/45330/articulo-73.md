@@ -1,0 +1,1 @@
+Artículo 73º- Control de ejecución del Plan Anual de Trabajo. El Auditor, Subauditor Interno y el personal designado, deben ejercer un control continuo de la ejecución del de trabajo anual, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.

@@ -1,0 +1,2 @@
+Artículo 69º- Planificación estratégica. El Auditor Interno definirá, pondrá en práctica y liderará el proceso de planificación estratégica de la Auditoría Interna, el cual culminará en la formulación de un documento formal que deberá ser del conocimiento del Ministro del MGP, ello de conformidad con la normativa legal y técnica.
+El Auditor Interno debe establecer esa planificación estratégica congruente con su universo de auditoría actualizado, la valoración del riesgo y que sea acorde con la misión, visión y objetivos de la Institución.

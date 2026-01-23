@@ -1,0 +1,1 @@
+Artículo 17º- Modificaciones a la estructura orgánica de la Auditoría Interna. Las modificaciones a la estructura orgánica interna de la Auditoría requerirán de la aprobación expresa del Auditor Interno y se comunicará al Ministro de Gobernación y Policía, para que éste instruya a la Administración para la ejecución correspondiente.

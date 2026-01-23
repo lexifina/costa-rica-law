@@ -1,0 +1,3 @@
+SECCIÓN II
+Organización del trabajo de Auditoría
+Artículo 68º- Proceso de planificación sistemático. El Auditor, Subauditor Interno y los funcionarios en quienes éstos deleguen o confíen parte de la ejecución de los procesos de planificación propios de la actividad de auditoría, deben ejecutar un proceso sistemático para la planificación, el cual debe documentarse apropiadamente. Dicho proceso, debe cubrir los ámbitos estratégico y operativo, considerando la determinación del universo de auditoría, los riesgos institucionales, los factores críticos de éxito y otros criterios relevantes (solicitud del jerarca, prioridad, antigüedad).

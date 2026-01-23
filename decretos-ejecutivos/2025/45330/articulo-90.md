@@ -1,0 +1,1 @@
+Artículo 90º- Derogatoria del reglamento anterior. El presente Reglamento, aprobado por el Ministro del MGP deroga el Reglamento de Organización y Funcionamiento de la Auditoría, emitido según Decreto 34090-MG, publicado en La Gaceta Nº 216, del 07 de noviembre de 2007 y las disposiciones legales anteriores que se opongan a las estipuladas en este reglamento.

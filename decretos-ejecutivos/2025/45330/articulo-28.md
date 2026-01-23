@@ -1,0 +1,1 @@
+Artículo 28º- Obligación de presentar declaración jurada de bienes. El Auditor y Subauditor Internos deberán cumplir con el requisito establecido en el artículo 21 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422, de presentar declaración jurada de bienes en forma anual.

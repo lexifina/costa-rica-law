@@ -1,0 +1,1 @@
+Artículo 51º- Autorización de libros. La Auditoría Interna revisará periódicamente la efectividad del manejo, autorización y control de libros o registros relevantes y necesarios para el fortalecimiento del sistema de control interno. En caso de la migración de información a formatos digitales se tendrán mecanismos alternos de control.

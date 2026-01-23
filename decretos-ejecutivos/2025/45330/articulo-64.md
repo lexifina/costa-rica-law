@@ -1,0 +1,5 @@
+CAPÍTULO IX
+SECCIÓN I
+Recomendaciones y disposiciones
+Artículo 64º- Definición del proceso de seguimiento. El Auditor Interno debe diseñar y poner en ejecución el seguimiento que contenga los mecanismos necesarios para monitorear el avance y verificar oportunamente el cumplimiento efectivo de las recomendaciones contenidas en los informes emitidos, así como de las disposiciones emanadas de la CGR, de conformidad con los lineamientos establecidos para tal efecto por el órgano contralor. No obstante, la Administración es responsable tanto de la acción correctiva como de implementar dar seguimiento a las disposiciones y recomendaciones de manera oportuna y efectiva estableciendo políticas, procedimientos y sistemas para comprobar las acciones llevadas a cabo para asegurar el correcto y oportuno cumplimiento.
+La Auditoría Interna conforme el marco legal que la regula establecerá las acciones que procedan en caso de que las disposiciones o recomendaciones emitidas sean incumplidas injustificadamente por el auditado.

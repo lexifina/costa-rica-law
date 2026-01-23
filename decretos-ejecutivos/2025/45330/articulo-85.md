@@ -1,0 +1,1 @@
+Artículo 85º- Otras regulaciones administrativas. En cuanto a las regulaciones administrativas aplicables al personal de la Auditoría Interna deberá atenderse lo dispuesto en los artículos 24 y 28 de la LGCI, Ley N°8292, con las justificaciones pertinentes.

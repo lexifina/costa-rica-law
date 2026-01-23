@@ -1,0 +1,1 @@
+Artículo 9º- Impedimentos asociados a los deberes y prohibiciones. Los funcionarios de la Auditoría Interna, de conformidad con la naturaleza de su función deben tener presente los impedimentos asociados a los deberes y prohibiciones contemplados en el artículo 34 de la LGCI, Ley N°8292.

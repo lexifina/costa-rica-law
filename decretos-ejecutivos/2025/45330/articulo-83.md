@@ -1,0 +1,1 @@
+Artículo 83º- Plazas vacantes. Las vacantes que, por cualquier razón, tengan lugar en los puestos de la Auditoría Interna, deberán ser objeto de una gestión en un plazo de tres meses, de acuerdo con lo dispuesto por el artículo 28 de la LGCI, Ley N°8292.

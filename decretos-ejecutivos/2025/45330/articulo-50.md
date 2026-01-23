@@ -1,0 +1,1 @@
+Artículo 50º- Advertencia. La Auditoría Interna debe advertir a los órganos pasivos, incluyendo al jerarca, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.

@@ -1,0 +1,2 @@
+Artículo 37º- Gestión de archivos, documentos y sistemas de información que soportan el trabajo de la Auditoría Interna del MGP. Corresponderá al Auditor Interno dictar las políticas para la adecuada conservación y disposición de la información (establecidas en el Plan Estratégico de la Auditoría Interna).
+Se definirán por escrito las instrucciones relacionadas con el manejo de los archivos y de los flujos de documentos hacia lo interno y externo de la Auditoría, así como la custodia de la información y documentación.
