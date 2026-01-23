@@ -1,0 +1,3 @@
+Artículo 13. Estimación del presupuesto anual por concepto de los servicios prestados a los ODM y el Fondo Garantía de Depósitos
+El Departamento de Finanzas y Contabilidad del BCCR en coordinación con los ODM, el FGD y las divisiones del BCCR que presten servicios a estos órganos, elaborará un cronograma de trabajo, con las fechas para el proceso de formulación del presupuesto anual, en el mes abril de cada año.
+La estimación anual del presupuesto de los servicios de soporte, requeridos para el siguiente año será elaborada por las dependencias proveedoras de los servicios, de acuerdo con los requerimientos coordinados con cada Superintendencia o el FGD, según sea el caso, de conformidad con la metodología de costeo y la normativa presupuestaria.

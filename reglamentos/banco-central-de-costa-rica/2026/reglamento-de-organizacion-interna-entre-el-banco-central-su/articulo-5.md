@@ -1,0 +1,11 @@
+Artículo 5. Responsabilidades de los Órganos de Desconcentración Máxima y el Fondo Garantía de Depósitos
+Los receptores de los servicios brindados por el Banco Central de Costa Rica tendrán las siguientes obligaciones:
+a) Utilizar los mecanismos establecidos por el BCCR para la solicitud de los servicios o gestión de inconformidades: Plataforma Atención Integral al Cliente o en su defecto, en el mecanismo que se disponga en los ANS.
+b) Cumplir con los requisitos y parámetros definidos en los ANS del servicio solicitado.
+c) Dar seguimiento al informe de cumplimiento de los ANS presentado por el BCCR.
+d) Nombrar las personas representantes que participan en el equipo institucional de trabajo encargado de la coordinación de los servicios a nivel operativo.
+e) Validar y aprobar el oficio de cobro y documentos anexos, con el fin de asegurarse de que lo cobrado corresponda con los servicios utilizados.
+f) Cuando se elaboren proyectos de emisión, modificación (reforma) o derogatoria (fenecimiento) de cualquier reglamento interno o externo que incida en la prestación, costo o gobernanza de los servicios definidos en el ROI o en el 'Reglamento para regular la participación de supervisados y emisores en el financiamiento del presupuesto de las superintendencias, Decreto Ejecutivo N° 44705 -H' (incluso si la reforma no alude expresamente al cobro) deben considerar al BCCR como una parte interesada y como tal, presentarle la propuesta de reforma de manera previa a la consulta pública, en atención a las disposiciones de la Ley General de la Administración Pública No. 6227 sobre la audiencia previa de los proyectos de disposiciones de carácter general (Artículo 361).
+Se establece un plazo máximo de diez días hábiles contados a partir de recibida la propuesta para que las partes consultadas emitan observaciones y las remitan mediante un canal oficial (correo institucional o gestor documental). Este plazo es ordenatorio.
+Las partes consultadas podrán solicitar una ampliación al plazo de atención, cuando la complejidad o naturaleza del asunto así lo justifique siempre que dicha gestión se realice en tiempo y forma, conforme a lo dispuesto en la normativa aplicable.
+El transcurso del plazo otorgado sin que se reciba pronunciamiento alguno se tendrá como manifestación de no oposición al proyecto.

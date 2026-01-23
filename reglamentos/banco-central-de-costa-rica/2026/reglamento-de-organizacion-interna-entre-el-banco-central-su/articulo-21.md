@@ -1,0 +1,7 @@
+Artículo 21. Gestión de cobro a los sujetos fiscalizados
+La gestión del cobro a los sujetos fiscalizados será responsabilidad de cada Superintendencia, la cual deberá ejecutar las actuaciones administrativas y operativas necesarias para su adecuada recaudación. Para tales efectos, corresponderá a cada Superintendencia:
+1. Coordinación con las entidades fiscalizadas: Gestionar con cada sujeto fiscalizado la autorización para efectuar el débito directo en sus cuentas clientes, asociadas a la cuenta SINPE que mantienen en el Banco Central de Costa Rica.
+2. Determinación y comunicación de los montos: Realizar el cálculo -y recálculo cuando corresponda- del monto sujeto a cobro, así como comunicarlo en las distintas fases del proceso.
+3. Ejecución operativa del cobro: Preparar y controlar el archivo requerido para la gestión mediante el servicio de débitos directos y créditos directos, y remitirlo por medio del sistema SAP.
+4. Seguimiento y control: Efectuar el seguimiento oportuno de la gestión de cobro, conciliación de los montos percibidos, control de la morosidad y verificación de saldos pendientes.
+Durante la fase de formulación presupuestaria, las Superintendencias deberán comunicar a los sujetos fiscalizados el monto estimado de cobro correspondiente y verificar, en el caso de entidades del sector público, que dicho monto haya sido incorporado en sus respectivos presupuestos institucionales.
