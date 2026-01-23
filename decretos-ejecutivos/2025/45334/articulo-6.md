@@ -1,0 +1,3 @@
+Artículo 6. Del financiamiento.
+Conforme a lo establecido en el artículo 9) y 12) de la Ley 8347, Ley de Creación del Centro Nacional de la Música, este órgano deberá realizar la reserva en el presupuesto ordinario para la realización de esta actividad. El Centro Nacional de la Música se encuentra autorizado en su Ley de creación para captar recursos financieros y materiales, mediante donaciones de otras instituciones públicas, de personas físicas o jurídicas nacionales y extranjeras.
+Esta actividad se llevará a cabo, siempre que se cuente con los recursos materiales y económicos necesarios que permitan su realización.
