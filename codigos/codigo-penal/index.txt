@@ -117,6 +117,7 @@ articulo-109.md
 articulo-110.md
 articulo-111.md
 articulo-112.md
+articulo-112-bis.md
 articulo-113.md
 articulo-114.md
 articulo-115.md
@@ -328,9 +329,10 @@ articulo-279-quater.md
 articulo-279-quinquies.md
 articulo-279-sexies.md
 articulo-280.md
+articulo-280-bis.md
 articulo-281.md
-articulo-281-bis.md
 articulo-281-ter.md
+articulo-281-bis.md
 articulo-282.md
 articulo-283.md
 articulo-284.md
