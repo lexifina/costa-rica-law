@@ -14,3 +14,4 @@ Publica la Resolución Nº 478-2023 (COMIECO-CIV) de fecha 28 de junio de 2023: 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-25 | la propia norma |
+| 2 | 2026-01-23 | Decreto Ejecutivo 45766 (2026-01-23) |
