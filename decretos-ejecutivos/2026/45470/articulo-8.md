@@ -1,0 +1,1 @@
+Artículo 8.- Régimen Recursivo. Contra el acto que deniegue la emisión del aval procederá el recurso de reconsideración ante el Ministro de Comercio Exterior, el cual deberá interponerse dentro del plazo de tres (3) días hábiles siguientes a la notificación del acto respectivo.
