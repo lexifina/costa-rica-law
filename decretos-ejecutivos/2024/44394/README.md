@@ -14,3 +14,4 @@ Implementación del personal inspector oficial u oficializado por el SENASA en e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-01 | la propia norma |
+| 2 | 2026-01-26 | Decreto Ejecutivo 45484 (2026-01-26) |
