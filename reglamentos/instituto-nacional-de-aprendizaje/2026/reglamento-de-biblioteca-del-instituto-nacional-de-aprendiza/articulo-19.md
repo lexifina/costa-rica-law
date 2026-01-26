@@ -1,0 +1,2 @@
+Artículo 19. Medidas de control del acervo documental. La custodia, conservación y protección del acervo bibliográfico y el soporte documental institucional, se regirá por las responsabilidades y obligaciones dispuestas para el recurso bibliográfico en el Reglamento de Bienes e Inventarios del INA.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 94 del 25 de mayo de 2026, página N° 2)

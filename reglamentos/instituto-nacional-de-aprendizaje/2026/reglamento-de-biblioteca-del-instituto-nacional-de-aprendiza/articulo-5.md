@@ -1,0 +1,2 @@
+Artículo 5. Ubicación administrativa
+La Biblioteca pertenece al Proceso de Información y Biblioteca de la USU. Constituye un laboratorio de ayuda permanente para las necesidades de información tanto para las personas usuarias internas y externas proporcionando los servicios necesarios para el desarrollo de los programas de estudio del INA y del público en general en concordancia con la ley que regula el acceso a la información pública.

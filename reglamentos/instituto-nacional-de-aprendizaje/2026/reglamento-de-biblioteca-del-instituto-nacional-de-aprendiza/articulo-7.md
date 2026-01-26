@@ -1,0 +1,3 @@
+CAPÍTULO II OBJETIVOS DE LA BIBLIOTECA
+Artículo 7. Objetivo General
+El servicio de Biblioteca tiene como objetivo gestionar información técnica oportuna, pertinente y relevante para satisfacer las necesidades informacionales de personas usuarias internas y externas, mediante el uso de los diferentes servicios innovadores bibliotecarios que contribuyan al desarrollo del talento humano en apego al cumplimiento del principio del derecho y acceso a la información, apoyando a los SCFP, programas educativos y de habilitación, certificación por competencias asistencia técnicas para empresas y acompañamiento empresarial y a todas las dependencias institucionales a lo largo del país.

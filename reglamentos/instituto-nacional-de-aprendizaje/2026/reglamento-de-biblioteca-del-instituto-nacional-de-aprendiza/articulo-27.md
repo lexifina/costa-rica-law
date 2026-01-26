@@ -1,0 +1,6 @@
+Artículo 27. Adquisición de recursos de información
+a. Solo el PIB está autorizado para solicitar la compra de materiales bibliográficos impresos o digitales para la Biblioteca, los cuales se tramitan por medio de la USU.
+b. Es responsabilidad de la Jefatura del PIB en apoyo con la Unidad de Compras y el Proceso de Adquisiciones, en conjunto con el personal de la biblioteca realizar proceso de adquisición de recursos bibliográficos en formato impreso o digital.
+c. Verificar y coordinar con la Unidad de Compras que los códigos incluidos en el SIREMA sean homologados en el Sistema Unificado de Compras y que correspondan a los requerimientos solicitados por los Núcleos Tecnológicos, otra dependencia institucional o propiamente por el personal de la Biblioteca.
+d. De forma excepcional, otras dependencias del INA pueden adquirir recursos bibliográficos (impresos o digitales) conforme a las temáticas de estudio del INA, con su presupuesto, solicitando la aprobación a la persona Encargada del PIB. El personal profesional de la Biblioteca deberá realizar el criterio técnico. Si se concreta la adquisición la dependencia donará un ejemplar a la Biblioteca o acceso en caso de ser necesario.
+e. La adquisición de los materiales es responsabilidad del proceso de la Unidad de Compras y el Proceso de Adquisiciones del INA.

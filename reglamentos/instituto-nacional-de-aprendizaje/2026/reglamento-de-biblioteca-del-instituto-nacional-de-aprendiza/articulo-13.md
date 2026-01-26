@@ -1,0 +1,7 @@
+Artículo 13. Trámite de las solicitudes de préstamo.
+La persona usuaria que solicite el préstamo de recursos de información en la Biblioteca deberá seguir el siguiente trámite:
+a. El préstamo se realiza personalmente.
+b. La persona usuaria interna debe presentar su carne institucional de funcionario o estudiante y la persona usuaria externa debe presentar la cédula o documento de identidad avalado por la Dirección de Migración y Extranjería vigente
+c. Retira los recursos bibliográficos solicitados y firma la boleta "Control de Préstamo" que emite el Sistema de Circulación del Sistema de Gestión Integrado de la Biblioteca. En esta boleta se consignan todos los datos necesarios para la correcta identificación, tanto de la persona, como del soporte documental que se le presta, y se lleva registro de los préstamos en el módulo de Circulación del sistema integrado de Biblioteca.
+d. Como medida de contingencia la Biblioteca posee la Boleta de Control de Préstamo en formato impreso donde se consignan todos los datos necesarios para la correcta identificación, tanto de la persona, como del soporte documental que se le presta, y se lleva registro de los préstamos en el módulo de Circulación del sistema integrado de Biblioteca.
+e. El personal de la Biblioteca lleva un control riguroso de los prestamos tanto en forma física como en el módulo de circulación del Sistema Integrado de Biblioteca.
