@@ -14,3 +14,4 @@ Reglamento sobre protección y seguridad radiológica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-26 | la propia norma |
+| 2 | 2026-01-26 | Decreto Ejecutivo 45477 (2026-01-26) |

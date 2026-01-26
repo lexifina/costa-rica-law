@@ -185,6 +185,7 @@ articulo-184.md
 articulo-185.md
 articulo-186.md
 articulo-1-transitorio.md
+articulo-2-transitorio.md
 articulo-187.md
 articulo-188.md
 articulo-1-anexo.md
