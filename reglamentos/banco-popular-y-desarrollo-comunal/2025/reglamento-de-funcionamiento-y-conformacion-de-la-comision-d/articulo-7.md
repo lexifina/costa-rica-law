@@ -1,0 +1,1 @@
+Artículo 7°-La persona empleadora deberá de informar quiénes son los integrantes de la Comisión de Salud Ocupacional a los trabajadores de la Operadora dentro de un plazo no mayor de 10 días naturales.

@@ -1,0 +1,1 @@
+Artículo 4°-El Encargado de la Oficina de Salud Ocupacional tiene prohibido ser miembro de la Comisión de Salud Ocupacional, ya sea por la parte patronal o trabajadora, por lo cual, únicamente ejercerá un papel de asesor cuando así se requiera.

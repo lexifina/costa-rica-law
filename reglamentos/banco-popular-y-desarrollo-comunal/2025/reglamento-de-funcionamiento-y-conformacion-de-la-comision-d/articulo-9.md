@@ -1,0 +1,1 @@
+Artículo 9°-El informe indicado en el inciso f del Art 10 del Reglamento de Comisiones y Oficinas de Salud Ocupacional, deberá ser preparado por la Comisión en el mes de enero y entregado al Consejo de Salud Ocupacional, mediante su plataforma, antes de la finalización del mes de febrero.

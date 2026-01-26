@@ -1,0 +1,1 @@
+Artículo 18.-La Comisión deberá de notificar al Consejo de Salud Ocupacional toda modificación en su integración, dentro de un plazo de 10 días hábiles a partir del día en que se realizó su modificación en el Portal de Centros de Trabajo.

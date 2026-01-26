@@ -1,0 +1,1 @@
+Artículo 21.-La agenda de la Comisión será basada en el plan de trabajo y la revisión de acuerdos del acta anterior. Los cambios en el cronograma se harán de común acuerdo entre los miembros de la Comisión. El miembro que no pueda asistir a una reunión de la Comisión deberá comunicarlo oportunamente.

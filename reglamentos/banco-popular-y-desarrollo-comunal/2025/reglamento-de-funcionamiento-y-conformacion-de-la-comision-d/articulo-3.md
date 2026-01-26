@@ -1,0 +1,1 @@
+Artículo 3°-Dentro del plazo establecido en el Art.17 del Reglamento comisiones y departamentos de salud ocupacional Nº 45166-MTSS, el patrono deberá de asignar a sus representantes y comunicará su nueva conformación.

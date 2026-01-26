@@ -1,0 +1,1 @@
+Artículo 15.-La Comisión deberá de sesionar al menos una vez en el mes, estableciendo una fecha en acuerdo común por los miembros. Se podrá sesionar extraordinariamente las veces que sean necesarias, cuando así lo convoque la persona coordinadora.
