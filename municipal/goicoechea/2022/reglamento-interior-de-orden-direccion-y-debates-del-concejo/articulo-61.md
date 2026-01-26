@@ -7,7 +7,8 @@ Las comisiones permanentes son las siguientes:
 3. Asuntos Sociales.
 4. Gobierno y Administración.
 5. Asuntos Jurídicos.
-6. Asuntos Ambientales.
+6. Asuntos Ambientales y Cambio Climático.
+(Así reformado el inciso anterior en sesión N° 004 del 26 de enero de 2026)
 7. Asuntos Culturales.
 8. Condición de la Mujer
 9. Seguridad Ciudadana

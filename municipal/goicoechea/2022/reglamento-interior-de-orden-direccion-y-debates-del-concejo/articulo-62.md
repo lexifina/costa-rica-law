@@ -41,13 +41,16 @@ Artículo 62. Las comisiones analizarán, dictaminarán y recomendarán, sobre l
 5.4 Las apelaciones por decisiones tomadas por la alcaldía siempre y cuando sean competencia del concejo.
 5.5 Los recursos de revocatoria y de revisión interpuestos por administrados contra acuerdos de distinto tipo emanados del Concejo Municipal.
 5.6 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
-6. Comisión de Asuntos Ambientales
-6.1 Los asuntos relacionados con la conservación y preservación del medio ambiente, la conservación y el rescate de las cuencas hidrográficas, y la conservación y mantenimiento de los recursos naturales en general.
+6. Comisión de Asuntos Ambientales y Cambio Climático
+6 Los asuntos relacionados con la conservación y preservación del medio ambiente, la mitigación y adaptación al cambio climático, la conservación y el rescate de las cuencas hidrográficas, y la conservación y mantenimiento de los recursos naturales en general.
 6.2 El tratamiento de los desechos sólidos.
-6.3 La prevención de desastres naturales y los sistemas preventivos de ayuda y mitigación en el caso de la ocurrencia de estos.
-6.4 Los estudios de impacto ambiental, en que tenga interés la Municipalidad.
-6.5 Los asuntos relacionados con la Comisión Nacional de Emergencia.
+6.3 La prevención de desastres naturales y los sistemas preventivos de ayuda y mitigación en el caso de la ocurrencia de estos, con enfoque climático.
+6.4 Los estudios de impacto ambiental y climático en que tenga interés la Municipalidad.
+6.5 Los asuntos relacionados con la Comisión Nacional de Emergencia, particularmente en lo referente a riesgos climáticos.
 6.6 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
+6.7 Velar por la incorporación efectiva del enfoque de cambio climático, protección ambiental y conservación de la biodiversidad en todos los planes, programas, proyectos y presupuestos sometidos a consideración del Concejo Municipal, conforme a lo dispuesto en la Ley N° 10804 y demás normativa aplicable.
+(Así adicionado el inciso 6.7) anterior en sesión N° 004 del 26 de enero de 2026)
+(Así reformado el inciso 6) anterior en sesión N° 004 del 26 de enero de 2026)
 7. Comisión de Asuntos Culturales
 7.1 La promoción y desarrollo de las bellas artes.
 7.2 La promoción y desarrollo de los deportes.
