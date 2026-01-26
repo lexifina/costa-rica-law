@@ -14,3 +14,4 @@ Modifica entrada en vigencia de lo acordado en artículo 9 acta sesión 1838-202
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-25 | la propia norma |
+| 2 | 2026-01-26 | Reglamento 1995 (2026-01-26) |
