@@ -14,3 +14,4 @@ Reforma Procedimiento: ECA-MC-C21 Criterios para evaluación y acreditación de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-24 | la propia norma |
+| 2 | 2026-01-27 | Acuerdo 2 (2026-01-27) |
