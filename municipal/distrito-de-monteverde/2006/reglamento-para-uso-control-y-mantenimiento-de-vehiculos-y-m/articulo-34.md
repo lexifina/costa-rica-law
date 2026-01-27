@@ -1,1 +1,0 @@
-Artículo 34.—Esta actividad no tiene fines de lucro y se prestará siempre y cuando no haya menoscabo o interferencia con la labor municipal, debiendo contemplarse en los contratos que la Institución se reserva el derecho de suspender los servicios arrendados cuando requiera atender asuntos municipales urgentes.

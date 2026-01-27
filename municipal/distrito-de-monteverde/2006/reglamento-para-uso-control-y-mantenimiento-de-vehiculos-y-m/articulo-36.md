@@ -1,1 +1,0 @@
-Artículo 36.—Tratándose de organizaciones comunales y proyectos de reparación de vías públicas, el precio consistirá en el aporte del combustible, el equivalente a las horas extras necesarias y el importe de un 20% en efectivo sobre las tarifas vigentes, este último que utilizará la Institución para sufragar gastos de repuestos y mano de obra para la reparación de la maquinaria.

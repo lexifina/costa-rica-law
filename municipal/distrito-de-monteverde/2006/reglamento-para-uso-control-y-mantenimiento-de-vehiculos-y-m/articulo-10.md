@@ -1,2 +1,0 @@
-Artículo 10.—De la custodia de los vehículos. Todos los vehículos de uso administrativo, deben ser guardados al final de la jornada en el garaje o aparcamiento que la Institución haya asignado previamente. Aquellos que se encuentren de gira o en misión especial deberán ser guardados en el Concejo Municipal el día en que se indica que finaliza la gira o misión especial.
-La Intendencia, tratándose de fuerza mayor, caso fortuito o interés institucional o municipal, podrá disponer lo contrario.
