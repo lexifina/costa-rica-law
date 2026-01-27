@@ -1,1 +1,2 @@
-Artículo 12.- La oferta de servicios que se entregue por parte del oferente o aspirante pasa a ser propiedad de la Asamblea Legislativa y tendrá en el registro de postulantes una vigencia de 6 años. Una vez caducado dicho registro se deberá proceder a la destrucción respectiva.
+Artículo 12.- La oferta de servicios que se entregue por parte del oferente o aspirante pasa a ser propiedad de la Asamblea Legislativa y tendrá en el registro de postulantes una vigencia de 6 años. Una vez caducado dicho registro, el Directorio podrá disponer las prórrogas que considere necesarias por el mismo plazo u ordenar su destrucción y aperturar un nuevo reclutamiento.
+(Así reformado mediante sesión N° 166-2025 del 27 de enero del 2026)
