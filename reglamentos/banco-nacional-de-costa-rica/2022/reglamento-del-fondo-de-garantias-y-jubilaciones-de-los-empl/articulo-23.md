@@ -1,2 +1,0 @@
-Artículo N° 23. Forma de pago de la pensión. Las pensiones otorgadas, se pagarán en cuotas quincenales naturales vencidas, realizando el depósito correspondiente el día 15 y 30 de cada mes o en su defecto, el último día hábil de cada quincena, excepto en el mes de diciembre que el día 15 (o el último día hábil de la quincena) se depositará lo correspondiente al mes completo.
-Además, durante la primera semana del mes de diciembre de cada año, se pagará una remuneración adicional por concepto de aguinaldo.
