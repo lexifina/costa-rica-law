@@ -1,0 +1,1 @@
+Artículo 18. Ámbito de acción. El ámbito de acción de la auditoría interna está conformado por los entes y órganos públicos y privados sujetos a la competencia institucional de la misma, con fundamento en lo estipulado en el artículo 22 de la ley 8292.

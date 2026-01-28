@@ -1,0 +1,2 @@
+Artículo 34.-Vigencia Este Reglamento fue aprobado por la Junta Directiva en sesión No. JD-022-2025 del día 18 de diciembre del 2025. Y aprobado por la Contraloría General de la República con oficio DFOE-GOB-0566 del 22 diciembre 2025. Rige a partir de su publicación en el Diario Oficial la Gaceta.
+El documento se encuentra a disposición de los interesados en la página electrónica http://www.eca.or.cr/. única vez ¬ C.40,Mántica San José 10102, San José, Costa Rica, 20.01.2026 Responsable:

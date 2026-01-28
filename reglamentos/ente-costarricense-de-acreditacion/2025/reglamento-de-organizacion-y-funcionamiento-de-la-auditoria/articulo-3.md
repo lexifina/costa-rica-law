@@ -1,0 +1,1 @@
+Artículo 3. Ámbito de aplicación Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para los funcionarios de la Administración Activa del ECA, en la materia que les resulte aplicable.

@@ -1,0 +1,1 @@
+Artículo 15. Suspensión o destitución del auditor. Su suspensión o destitución va de acuerdo con lo establecido en el artículo 15 de la Ley Orgánica de la Contraloría General de la Republica y los Lineamientos sobre las gestiones que involucran a la Auditoria Interna presentadas ante la CGR (R-DC-83-2018) y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 22. Potestades. Serán potestades del Auditor Interno y demás personal de la Auditoría Interna, todas aquellas contenidas en el artículo 33 de la Ley General de Control Interno Nº 8292, sus reformas y modificaciones.
