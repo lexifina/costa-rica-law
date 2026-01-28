@@ -1,0 +1,1 @@
+Artículo 2º- De conformidad con la condonación de conceptos emitida por el Ministerio de Trabajo y Seguridad Social mediante Resolución N° RM-MTSS-DMT-307-2025 del dieciocho de junio del dos mil veinticinco, el Ministro de Trabajo autoriza la condonación únicamente para multas, recargos e intereses al Fodesaf.

@@ -1,0 +1,1 @@
+Artículo 12°-De los recursos. Si como consecuencia de la solicitud de condonación de multas, recargos, intereses, el solicitante no está de acuerdo con lo resuelto por la Administración podrá presentar los recursos ordinarios de revocatoria y apelación dentro del plazo establecido en la Ley General de Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 7º- De los rubros sujetos a condonación
+La condonación se aplicará a las multas, recargos e intereses, que superen un año de antigüedad contados a partir del momento de la entrada en vigencia de la reforma al reglamento emitido por la C.C.S.S. que regula la aplicación de la Ley N° 10.232 denominada "Ley Autorización de condonación para la formalización y recaudación de las cargas sociales".
