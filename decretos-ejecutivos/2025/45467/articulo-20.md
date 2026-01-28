@@ -1,0 +1,10 @@
+Artículo 20.- Unidad de Notificaciones. Le corresponde realizar el proceso de notificado como apoyo a las oficinas de la institución que así lo requieran, por lo que tiene las siguientes funciones:
+a. Brindar el servicio de notificado a los diferentes Departamentos y Direcciones de las instituciones que así lo requieran.
+b. Velar por el cumplimiento de los plazos establecidos legalmente con el proceso de notificado de las diferentes resoluciones que se desprenden de cada expediente de los Procedimientos Administrativos (Ordinarios, Conciliatorios y Sumarios), que tramitan las Direcciones, Unidades y Departamentos ministeriales, dentro del territorio Nacional.
+c. Notificar resoluciones, demandas, comisiones, citaciones de testigos, citatorios a las audiencias o conciliaciones, según corresponda a las partes interesadas, de manera personal desplazándose a diferentes zonas del país, vía fax, por correo certificado o correo electrónico cuando así se requiera, confirmando el envío o entrega, mediante la confección de actas de inspección o actas de notificación.
+d. Programar las rutas de entrega de documentación a notificar procurando un uso eficiente y eficaz de los recursos existentes.
+e. Coordinar con la unidad de transporte las giras correspondientes.
+f. Resguardar en óptimas condiciones los documentos que se deben notificar, así como las actas e informes generados en el proceso la cual debe ser archivada en los respectivos expedientes administrativos.
+g. Atender consultas personalmente o vía telefónica tanto de los denunciantes como los denunciados de las notificaciones de los procedimientos administrativos.
+h. Preparar informes, cuadros, oficios y otros documentos sobre el proceso de notificado, reportando irregularidades observadas en el desarrollo de las labores a las Direcciones, Departamentos o Unidades ministeriales.
+i. Cualquier otra función relacionada con su competencia o con los intereses y necesidades institucionales cuando así lo requieran, labores que tengan el fin de coadyuvar a resolver integralmente el cumplimiento de las funciones del departamento y nuevas competencias que se le asignen.
