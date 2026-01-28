@@ -1,0 +1,2 @@
+SECCIÓN III. Otros temas relativos al funcionamiento de la Auditoría
+Artículo 42. -Sobre la información. De conformidad con lo establecido en el Capítulo II, numeral 207 de la Resolución R-DC-064-2014, del 11 de agosto de 2014. Normas Generales de Auditoría para el Sector Público, Los funcionarios de la Auditoría Interna deben identificar información suficiente, confiable, relevante y útil de tal manera que les permita alcanzar los objetivos del trabajo.

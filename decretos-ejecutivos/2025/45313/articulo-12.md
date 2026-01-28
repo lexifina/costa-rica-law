@@ -1,0 +1,1 @@
+Artículo 12. -Independencia y objetividad individual. El personal que ejecuta el proceso de auditoría en el Ministerio de Relaciones Exteriores y Culto debe mantener y mostrar una actitud de criterio independiente en el desarrollo de su trabajo, y actuar de manera objetiva, profesional e imparcial y evitar conflictos de intereses, en los hechos y en la apariencia.

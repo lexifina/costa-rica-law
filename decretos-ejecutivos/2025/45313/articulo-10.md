@@ -1,0 +1,2 @@
+SECCIÓN II. Ética, Independencia y Objetividad
+Artículo 10. -Valores Éticos. Los participantes en el proceso de auditoría en el Ministerio de Relaciones Exteriores y Culto deben observar lo establecido en el Código de Ética Institucional, así como con lo dispuesto en el Código de Ética del Instituto de Auditores Internos de Costa Rica, aprobado en la sesión ordinaria 10-2019 del 18 de noviembre de 2019. Lo anterior sin perjuicio de las normas de ética emitidas por los colegios profesionales a los cuales pertenecen los funcionarios de la Auditoría Interna según su formación.

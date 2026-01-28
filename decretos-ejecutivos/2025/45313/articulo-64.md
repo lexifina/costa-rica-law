@@ -1,0 +1,1 @@
+Artículo 64. -Admisión de denuncias anónimas. Cuando la denuncia anónima traiga consigo elementos de prueba que den mérito a una investigación, esta será admitida, cuando falten tales elementos la Auditoría debe hacer indagaciones.

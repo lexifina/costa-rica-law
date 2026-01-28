@@ -1,0 +1,2 @@
+Artículo 44. -Sobre la evidencia suficiente. De conformidad con lo establecido en el Capítulo II, numeral 204 de la Resolución R-DC-064-2014, del 11 de agosto de 2014.
+Normas Generales de Auditoría para el Sector Público, Los funcionarios de la Auditoría Interna deben registrar información suficiente que les permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.

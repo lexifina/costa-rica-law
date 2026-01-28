@@ -1,0 +1,2 @@
+SECCIÓN IV. De la persona Auditora Interna
+Artículo 16. -De la persona Auditora Interna. La persona Auditora Interna ejerce el máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna del Ministerio de Relaciones Exteriores y Culto. La persona Auditora Interna responderá por su gestión ante el Despacho del Ministro y en lo conducente ante la Contraloría General de la República.

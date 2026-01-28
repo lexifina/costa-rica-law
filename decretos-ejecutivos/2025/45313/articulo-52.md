@@ -1,0 +1,1 @@
+Artículo 52. -Comunicación sobre el incumplimiento injustificado de recomendaciones aceptadas por la Administración. De comprobar la Auditoría Interna un incumplimiento injustificado en la implementación de las recomendaciones aceptadas, lo hará del conocimiento del jerarca para lo que proceda de conformidad con el Artículo 42 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 55. -Autoevaluación de la calidad. La Auditoría Interna debe realizar procesos anuales de revisión interna de la calidad de la auditoría con el fin de verificar si las políticas y metodologías están diseñadas de conformidad con la normativa técnica y jurídica relacionada y determinar si efectivamente se están aplicando.

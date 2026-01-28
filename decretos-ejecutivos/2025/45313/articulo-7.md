@@ -1,0 +1,1 @@
+Artículo 7. -Ámbito de acción. La Auditoría ejercerá sus competencias en todas las Embajadas, Consulados y Misiones de Costa Rica en el exterior, dependencias, órganos, procesos, actividades y otros que conforman el Ministerio de Relaciones Exteriores y Culto y sobre los recursos públicos sujetos a su competencia institucional.

@@ -1,0 +1,1 @@
+Artículo 66. -Fundamentación del acto de desestimación, archivo o traslado de las denuncias. Deberá existir un acto debidamente motivado en donde se acrediten los argumentos valorados para desestimar, archivar o trasladar una denuncia. Cuando se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada.

@@ -1,0 +1,1 @@
+Artículo 6. -Organización, funcionamiento y Planeación Estratégica. La Auditoría Interna contará con un proceso de planificación estratégica, el cual deberá revisar y actualizar (visión, misión y principales políticas que regirán su accionar, riesgos) en concordancia con lo incluido en el Plan Estratégico Institucional vigente y disponible en la página web del Ministerio.
