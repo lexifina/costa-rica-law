@@ -1,0 +1,2 @@
+Artículo 2°-Ámbito de Aplicación. Este reglamento se aplica a toda persona física o jurídica que solicite permisos de uso en la ZMT dentro del cantón de Talamanca, incluyendo tanto zonas urbanas como rurales, y respetando los derechos colectivos de los pueblos indígenas establecidos por la normativa nacional e internacional.
+Esto bajo la regulación que establece la normativa de la Ley General de la Administración Pública, Código Municipal estos en condición supletoria a la Ley 6043 y su reglamento.

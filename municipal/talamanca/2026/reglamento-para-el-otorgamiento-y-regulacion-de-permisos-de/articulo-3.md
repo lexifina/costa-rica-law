@@ -1,0 +1,1 @@
+Artículo 3°-Principios Rectores. Son principios rectores de este reglamento: la sostenibilidad ambiental, seguridad jurídica, transparencia administrativa, equidad social, autonomía municipal, respeto a los derechos de los pueblos indígenas y participación ciudadana.

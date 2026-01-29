@@ -1,0 +1,1 @@
+Artículo 12.-Exoneraciones. Se podrá exonerar del pago del canon a: a) Familias en condición de vulnerabilidad económica. b) Ocupaciones destinadas exclusivamente a vivienda propia. c) Asociaciones de desarrollo indígena con proyectos comunitarios sostenibles. Todo lo anterior previa revisión por parte del concejo municipal.

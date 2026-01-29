@@ -1,0 +1,1 @@
+Artículo 9°-Naturaleza Transitoria. Los permisos de uso tienen carácter temporal y precario. Una vez aprobado el Plan Regulador Costero, se procederá a la tramitación de concesiones formales conforme a la Ley 6043 y/o sus modificaciones.

@@ -1,0 +1,1 @@
+Artículo 14.-Consulta Previa. Cualquier acto administrativo que afecte directa o indirectamente a territorios indígenas debe ser objeto de consulta previa, libre e informada con las respectivas asociaciones de desarrollo.

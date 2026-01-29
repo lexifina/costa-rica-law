@@ -1,0 +1,1 @@
+Artículo 5. Competencia Municipal. La Municipalidad de Talamanca es competente para administrar, vigilar, otorgar permisos y cobrar los respectivos derechos de ocupación dentro de la ZMT, conforme a la ley, bajo un enfoque de desarrollo sostenible y de respeto a los derechos de las comunidades locales.

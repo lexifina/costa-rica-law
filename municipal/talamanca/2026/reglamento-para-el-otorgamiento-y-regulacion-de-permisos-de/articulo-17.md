@@ -1,0 +1,3 @@
+Artículo 17.-Revisión Periódica. El Concejo Municipal realizará una revisión técnica y jurídica de este reglamento cada cinco años o cuando se produzcan reformas legales relevantes, como lo es la entrada o aplicación del plan regulador costero.
+Todo permisionario que luego de notificado sobre su deuda o incumplimiento de requisitos de uso de suelo en precario tendrá un plazo perentorio de 30 días para cancelar su morosidad; el incumplimiento de este plazo facultará al concejo municipal para proceder a la revocatoria del permiso de uso de suelo en precario.
+Ciudad de Bribrí, Talamanca, a los veintidós días del mes de enero de 2026.-
