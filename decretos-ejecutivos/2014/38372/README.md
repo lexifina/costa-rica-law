@@ -15,3 +15,4 @@ Crea Comisión de Gestión Institucional de Nefropatía Mesoamericana y de la Co
 | --- | --- | --- |
 | 1 | 2014-05-19 | la propia norma |
 | 2 | 2025-08-26 | Decreto Ejecutivo 45204 (2025-08-26) |
+| 3 | 2026-01-29 | Decreto Ejecutivo 45482 (2026-01-29) |
