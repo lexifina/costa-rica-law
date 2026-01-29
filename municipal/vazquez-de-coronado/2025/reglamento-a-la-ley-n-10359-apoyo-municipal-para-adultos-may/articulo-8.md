@@ -1,0 +1,1 @@
+Artículo 8º-Pérdida del beneficio.- En caso de que la Municipalidad, a través de sus órganos, verifique la falsedad de la información deberá dar inicio a las acciones legales correspondientes, para lo cual la administración tributaria municipal dictará.

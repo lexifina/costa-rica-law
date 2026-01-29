@@ -1,0 +1,2 @@
+Artículo 2º-Habilitación.- Se habilita a la Municipalidad de Coronado para que a través de las áreas competentes, con fundamento en un estudio técnico en materia financiera y de procedimientos previo, se pueda brindar exención y condonación.
+Para ello, se autoriza a la administración a realizar los estudios correspondientes y al órgano deliberante a realizar los convenios respectivos para la condonar a los sujetos pasivos contemplados en la Ley N° 10.359.
