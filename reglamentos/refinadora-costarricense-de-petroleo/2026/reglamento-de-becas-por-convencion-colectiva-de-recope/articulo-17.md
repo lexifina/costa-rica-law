@@ -1,0 +1,3 @@
+Artículo 17.-Otros requisitos Además de los requisitos anteriores, para continuar dentro del programa la persona debe haber ganado los créditos matriculados en el período anterior.
+Una persona becada que apruebe menos de los créditos matriculados en un ciclo lectivo (en un año) se le suspenderá la beca por un año.
+La persona que no presente la certificación de notas aprobadas previo al segundo desembolso perderá la beca, excepto en casos muy calificados, demostrados ante el Departamento Desarrollo de Capital Humano; avalados por la Comisión y aprobados por la Gerencia de Administración y Finanzas.

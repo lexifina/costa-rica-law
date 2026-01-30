@@ -1,0 +1,4 @@
+Artículo 18.-Otras Regulaciones
+a) Toda concesión de tiempo que se le otorgue a cualquier persona de la Empresa para efecto de estudio deberá de cumplir con los procedimientos y disposiciones que se emitan a partir de este Reglamento.
+En consecuencia, queda prohibido a las distintas jefaturas de la Empresa, de cualquier nivel jerárquico, otorgar tiempo al margen de esta reglamentación, incluyendo el pago de viáticos o jornada extraordinaria originados de esta actividad.
+b) Cuando una persona trabajadora deja de laborar para RECOPE, por despido con responsabilidad patronal o por acogerse a la pensión; se le exime de toda responsabilidad adquirida con RECOPE, por el otorgamiento de cualquier tipo de la Beca de Convención que se le haya aprobado anteriormente y se le exime de la obligación de servir a la empresa como retribución por dicha beca.

@@ -1,0 +1,1 @@
+Artículo 19.-Derogatoria. El presente Reglamento deroga el Reglamento de Becas por Convención Colectiva aprobado por la Junta de Relaciones Laborales, en Sesión Ordinaria N° 804, celebrada el 27 de febrero de 2003.

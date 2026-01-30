@@ -1,0 +1,1 @@
+Artículo 3º-Del Régimen Jurídico. Las becas por Convención Colectiva se encuentran reguladas por el presente Reglamento, las disposiciones legales correspondientes contenidas en la Convención Colectiva de Trabajo de RECOPE vigente y demás disposiciones normativas que se emitan sobre la materia.

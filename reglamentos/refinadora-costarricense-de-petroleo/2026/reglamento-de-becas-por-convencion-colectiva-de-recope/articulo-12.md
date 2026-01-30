@@ -1,0 +1,6 @@
+Artículo 12.-De las Becas Económicas. Se otorgan de la siguiente forma:
+a) Los desembolsos se depositan a nombre de la persona trabajadora y en el período que se fija en el inciso c) de este artículo.
+b) Estos desembolsos se efectuarán con base en la resolución administrativa que emita la Gerencia de Administración y Finanzas.
+c) Los montos aprobados se entregan en dos tractos: un primer desembolso a más tardar a finales de abril de cada año y un segundo desembolso a partir de julio y hasta el 30 de setiembre de cada año, este último, previa presentación ante el Departamento Desarrollo de Capital Humano, del resultado de las materias matriculadas durante el período lectivo sea bimestral, trimestral, cuatrimestral, semestral, con el objetivo de comprobar la aprobación de las mismas, así como el documento comprobatorio del compromiso económico adquirido por el becario ante el centro de enseñanza.
+d) Las solicitudes de becas económicas se realizan por medio de un formulario suministrado por el Departamento de Desarrollo del Capital Humano, el cual deberá de ser presentado a este mismo Departamento, en el plazo correspondiente.
+e) Las becas económicas tendrán una duración máxima de un año (de enero a diciembre de cada año) y serán coordinadas y supervisadas por el Departamento Desarrollo de Capital Humano.

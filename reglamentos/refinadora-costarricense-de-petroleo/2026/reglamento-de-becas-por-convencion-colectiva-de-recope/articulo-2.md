@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. El presente Reglamento es de aplicación para todas las personas trabajadoras de RECOPE nombradas en propiedad o bien interinos con más de seis meses de nombramiento ininterrumpido.
