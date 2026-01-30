@@ -1,0 +1,1 @@
+Artículo 3°-Las instituciones públicas responsables de implementar el Plan Nacional de Baremación deberán realizar las gestiones internas y externas, presupuestarias y administrativas necesarias, para asegurar su implementación.
