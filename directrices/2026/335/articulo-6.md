@@ -1,0 +1,1 @@
+Artículo 6. La industria tabacalera tendrá un plazo de doce meses contado del 1 de febrero del 2026 al 31 de enero del 2027, para la implementación de los nuevos mensajes sanitarios, conforme a lo dispuesto en el artículo 9 inciso b) de la Ley N° 9028.
