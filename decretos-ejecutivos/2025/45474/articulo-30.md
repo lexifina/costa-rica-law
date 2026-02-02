@@ -1,0 +1,1 @@
+Artículo 30°.- De las medidas correctivas ordenadas por la ANVM a los OIM. Cuando las ANVM detecten desviaciones respecto a los procedimientos establecidos durante las inspecciones de mercado, los OIM deberán implementar las medidas correctivas que le sean ordenadas por la ANVM.

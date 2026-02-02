@@ -1,0 +1,1 @@
+Artículo 29º.- Responsabilidad de Comunicación de Resultados. Los OIM deberán enviar a la ANVM, en un plazo no mayor a un día hábil, los resultados de las inspecciones de mercado de manera clara, precisa y oportuna conforme a las indicaciones emitidas, mediante un informe detallado que respalde sus conclusiones.

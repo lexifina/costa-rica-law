@@ -1,0 +1,4 @@
+Artículo 39º. - Del procedimiento para la aplicación de medidas correctivas. El DVM debe elaborar el Acta de levantamiento de hechos del producto sometido a vigilancia en el mercado, y deberá entregar una copia de esta en el comercio respectivo.
+Cuando corresponda requerir al agente económico la adopción de medidas correctivas, el DVM remitirá una prevención para que, dentro del plazo máximo de 22 días hábiles, informe del cumplimiento de la acción correctiva, aportando para esto la documentación que haga constar tal circunstancia.
+El agente económico podrá solicitar una prórroga del plazo, de conformidad con lo establecido en el artículo 258 de la Ley Nº6227.
+Transcurrido el plazo otorgado, sin que el agente económico atienda la prevención efectuada, o demuestre el cumplimiento de la acción correctiva se procederá a interponer la denuncia respectiva ante la CNC.

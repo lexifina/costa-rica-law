@@ -1,0 +1,2 @@
+Artículo 14°.- De la delegación de vigilancia de bienes y servicios. La institución rectora competente a través de su ANVM podrá delegar las actividades de vigilancia de bienes y servicios u otras funciones de control a OEC, públicos o privados, siempre que estos demuestren capacidad técnica y cuenten con actividades debidamente acreditadas ante el ECA o estén reconocidas por el ECA.
+Cada ANVM deberá establecer un procedimiento para la delegación y supervisión de la vigilancia de mercado a OEC acreditados dentro de los seis meses posteriores a la vigencia de este reglamento.

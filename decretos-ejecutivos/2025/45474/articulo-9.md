@@ -1,0 +1,2 @@
+Artículo 9°.- De la priorización de la vigilancia. Los productos y servicios con mayor riesgo recibirán una atención más frecuente y exhaustiva. Asimismo, los recursos disponibles, de personal, material y presupuestarios para la vigilancia de mercado deberán priorizarse en función del nivel de riesgo identificado.
+Cada ANVM deberá emitir y publicar el lineamiento donde se definan los criterios utilizados para la valoración del riesgo, dentro de los tres meses posteriores a la vigencia de este reglamento.

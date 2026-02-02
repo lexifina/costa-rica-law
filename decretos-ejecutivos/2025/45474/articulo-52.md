@@ -1,0 +1,1 @@
+Artículo 52°.- Cadena de custodia. Para cada muestra tomada se deberá llevar un registro detallado de la cadena de custodia, considerando que todas las partes involucradas debidamente acreditadas tengan acceso a la información relevante sobre el estado y manejo de las muestras.

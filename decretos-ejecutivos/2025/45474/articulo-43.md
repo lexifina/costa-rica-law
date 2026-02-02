@@ -1,0 +1,1 @@
+Artículo 43°.- Del acta del muestreo. Deberá levantarse un acta de toma de muestra que deberá contener, además de lo indicado en los incisos a), b), c), d), g) y h) del artículo 24 de este reglamento, descripción de la muestra y cantidad de ítems, y el tipo de muestreo realizado. Esta acta y la descrita en el artículo 24 podrán consolidarse en un único documento.

@@ -1,0 +1,1 @@
+Artículo 45°.- Del principio de transparencia y trazabilidad. En todo el proceso de muestreo se deberá garantizar la transparencia, y todas las muestras deberán ser identificadas y registradas para garantizar su trazabilidad desde el momento de su recolección hasta el análisis final.

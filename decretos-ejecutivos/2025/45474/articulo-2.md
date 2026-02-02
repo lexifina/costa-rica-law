@@ -1,0 +1,1 @@
+Artículo 2 º.- Ámbito de aplicación. Este reglamento aplicará a todas las autoridades nacionales de vigilancia de mercado en el ámbito de sus competencias legales, y a los agentes económicos que introduzcan productos y servicios en el mercado nacional.

@@ -1,0 +1,2 @@
+Artículo 25°.- Determinación de incumplimiento. Cuando en la labor de inspección o verificación, se determinen incumplimientos a los reglamentos técnicos, la ANVM podrá requerir al agente económico realizar los ajustes necesarios para atender el incumplimiento.
+En caso de que el agente económico no 􀀂e corrija el incumplimiento, la ANVM deberá remitir el caso a la unidad administrativa con potestad para imponer sanciones en el ámbito del reglamento técnico infringido.
