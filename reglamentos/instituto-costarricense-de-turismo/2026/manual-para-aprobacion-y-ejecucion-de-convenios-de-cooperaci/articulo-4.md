@@ -1,0 +1,3 @@
+Capítulo Segundo
+Conformación del expediente administrativo
+Artículo 4.- La Unidad Coordinadora que promueve la suscripción de un convenio o adenda y que es designada por los jerarcas del ICT (Presidencia Ejecutiva o Gerencia General), para la tramitación correspondiente, deberá conformar un expediente administrativo que cumpla con lo dispuesto en los "Lineamientos para la conformación de expedientes administrativos", (Norma Técnica Nacional-001) el cual es de su entera responsabilidad, incorporando en éste la documentación necesaria para sustentar el análisis, razonabilidad, sujeción a los fines y objetivos de la Ley Orgánica del Instituto Costarricense de Turismo, recomendación y una eventual aprobación.

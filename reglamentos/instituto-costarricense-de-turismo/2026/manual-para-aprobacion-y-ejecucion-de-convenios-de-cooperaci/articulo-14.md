@@ -1,0 +1,1 @@
+Artículo 14.- Cuando los convenios involucren al ICT a girar recursos financieros, estos deberán realizarse en tractos, cuando el objeto así lo permita, previo a inspecciones por la Unidad Coordinadora y de acuerdo al avance de la obra o actividad, hasta completar el monto de la transferencia aprobada.

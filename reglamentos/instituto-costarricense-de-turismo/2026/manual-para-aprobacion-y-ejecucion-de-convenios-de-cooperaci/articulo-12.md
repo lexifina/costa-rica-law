@@ -1,0 +1,1 @@
+Artículo 12.- La Unidad Coordinadora durante la etapa de ejecución debe establecer, de conformidad con los términos y condiciones del convenio los entregables, resultados que se consideren parte del cumplimiento de éste por lo que deberá realizar todas las verificaciones que considere pertinentes.

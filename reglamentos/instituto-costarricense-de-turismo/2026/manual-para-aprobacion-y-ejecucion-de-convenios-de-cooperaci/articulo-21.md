@@ -1,0 +1,1 @@
+Artículo 21.- La Auditoría, en el ejercicio propio de sus competencias y cuando lo estime conveniente, podrá efectuar las verificaciones necesarias a fin de cumplir con las responsabilidades que le asigna la Ley.

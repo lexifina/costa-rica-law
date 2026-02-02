@@ -1,0 +1,1 @@
+Artículo 11.- La Unidad Coordinadora posterior a la suscripción del convenio o adenda, procederá en un plazo no mayor a ocho (8) días naturales a coordinar el inicio de la ejecución de éste, lo cual deberá constar en el expediente administrativo.

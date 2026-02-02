@@ -1,0 +1,2 @@
+Artículo 22.-Todo acuerdo tomado en materia de convenios por la Junta Directiva del ICT, así como cualquier disposición o directriz emitida por la Gerencia General del ICT, tendrá que ser considerada dentro del clausulado de los convenios o en el expediente administrativo, según corresponda.
+Aprobado por Junta Directiva del ICT, en Sesión Ordinaria Presencial N° 6352 realizada por la Junta Directiva del Instituto Costarricense de Turismo, en el APARTADO 5, según comunicado de acuerdo SJD-277-2025.

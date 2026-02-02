@@ -1,0 +1,1 @@
+Artículo 20.- En caso que la ejecución de un convenio, por así haberse dispuesto, se prolongue por más de un período presupuestario, la Unidad Coordinadora deberá enviar a la Gerencia General del ICT un informe parcial de avance de los objetivos del convenio cada seis meses en concordancia con lo solicitado en el artículo 19.

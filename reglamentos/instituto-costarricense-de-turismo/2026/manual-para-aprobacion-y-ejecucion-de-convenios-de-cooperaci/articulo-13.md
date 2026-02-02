@@ -1,0 +1,1 @@
+Artículo 13.- El interesado como parte de sus obligaciones contractuales deberá proporcionar la información que le sea requerida dentro del plazo otorgado al efecto por parte de la Unidad Coordinadora.

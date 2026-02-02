@@ -1,0 +1,1 @@
+Artículo 17.- En caso de que el interesado no invierta todo el dinero que el ICT le transfirió para el objetivo estipulado en el convenio, el remanente debe ser reintegrado al ICT en el momento que finalicen las obras del proyecto, evento realizado o etapa concluida.
