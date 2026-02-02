@@ -1,0 +1,2 @@
+Artículo 31.- Servicios sanitarios para inquilinos: Los lavatorios dispuestos en los servicios sanitarios no podrán ser utilizados para lavar enseres de cocina en forma alguna.
+Deberán permanecer impecablemente limpios y disponer de agua, jabón para el lavado de manos y papel toalla para secar las mismas. Su limpieza deberá ser constante a los fines de garantizar la salud pública. Estos no serán concesionados en forma alguna.

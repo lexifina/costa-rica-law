@@ -1,0 +1,1 @@
+Artículo 34.- Transporte de alimentos y bebidas: Los inquilinos y personal que transporten alimentos y bebidas dentro del centro de servicios múltiples y mercado Municipal deberán respetar la normativa de salud atinente en la materia.

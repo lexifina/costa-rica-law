@@ -1,0 +1,2 @@
+Artículo 20. Seguridad de las mercancías: La Municipalidad no tiene responsabilidad alguna sobre la seguridad de las mercancías; siendo ésta exclusivamente del concesionario del local.
+Los diferendos que surjan entre las partes serán atendidos conforme a las reglas del derecho civil; siendo un problema entre partes ajenas al municipio. Ninguna de las partes podrá achacar responsabilidad alguno de la Municipalidad.

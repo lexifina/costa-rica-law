@@ -1,0 +1,2 @@
+Artículo 56. Pago por mes adelantado: El pago del arriendo de la concesión del local comercial en el centro de servicios múltiples y mercado deberá realizarse indefectiblemente por mes adelantado; en los primeros tres días del mes que corresponda.
+El atraso en el pago de la mensualidad dará derecho a la Municipalidad para dar por terminado el contrato y recurrir a la vía judicial para hacer valer sus derechos.

@@ -1,0 +1,3 @@
+CAPITULO IX DE LOS LOCALES EN LAS ZONAS DE ALIMENTOS Y BEBIDAS
+Artículo 67. Locales en las zonas de alimentos y bebidas: El centro de servicios múltiples y mercado Municipal ha dispuesto una zona de expendio de alimentos y bebidas el cual colinda con los alrededores de la terminal de Bus.
+Estas áreas tienen por objetivo atender a los usuarios del centro de servicios múltiples y Mercado y brindar opciones de carácter turístico para la atención de los visitantes, turistas y usuarios fronterizos; ofreciendo comidas típicas de la zona y otras alternativas; para promover el turismo local, nacional e internacional.

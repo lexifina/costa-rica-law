@@ -1,0 +1,1 @@
+Artículo 21. División material de locales: Los inquilinos no podrán en forma alguna dividir materialmente los locales comerciales para dedicarlos a actividades distintas de las autorizadas en forma expresa.

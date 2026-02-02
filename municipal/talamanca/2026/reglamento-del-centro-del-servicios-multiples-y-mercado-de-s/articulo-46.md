@@ -1,0 +1,1 @@
+Artículo 46. Acto final. Una vez aprobada la adjudicación por el Concejo Municipal, el arrendatario deberá tramitar la correspondiente patente de actividades lucrativas; satisfaciendo los requisitos que establece a ese efecto el Departamento de Rentas y Cobranzas; a saber:

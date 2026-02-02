@@ -1,0 +1,10 @@
+Artículo 51.- Regularización de inquilinos antiguos: Los inquilinos antiguos deberán regularizar su situación jurídica con el municipio en forma previa a su traslado al nuevo centro de servicios múltiples y mercado Municipal.
+Para efectos de regularizar dicha situación y siendo que por motivo de una orden sanitaria debieron suspender sus actividades en el viejo Mercado deberán cumplir con los siguientes requisitos:
+a) Ser persona física o jurídica mayor de edad;
+b) No haber sido condenado por algún delito en los últimos tres años;
+c) Contar con una patente para el ejercicio de la actividad lucrativa que se pretende realizar, en forma previa; para cuyo efecto deberá aportar la respectiva patente a nombre del arrendatario del local. En caso de que la patente se encuentre a nombre de un tercero deberá regularizar dicha situación; solicitando al Departamento Tributario el correspondiente cambio.
+d) Presentar el Permiso Sanitario de Funcionamiento extendido por el Ministerio de Salud al día; a nombre del concesionario o inquilino del local:
+e) Encontrarse al día en el pago de todo tipo de impuestos, tributos; arriendos y servicios públicos municipales para cuyo efecto deberá aportarse la constancia respectiva o bien la Administración del centro de servicios múltiples y mercado, corroborar dicho requisito en el sistema municipal e imprimir y aportar la documentación respectiva, en el expediente correspondiente. En caso de que sea una persona jurídica deberá aportarse el capital accionario y a quien pertenece éste al día.
+f) Encontrarse al día en el pago del arriendo del local comercial.
+g) Cumplir con los requisitos del artículo 8 del Código de Comercio; en el sentido de no haber sido declarado en quiebra o insolvencia.
+h) Ejercer la actividad lucrativa para la cual se le autorizó. En caso de que esta situación no sea así deberá realizar la gestión para el correspondiente cambio de actividad y requerirá de la aprobación del Alcalde, poseer un local comercial en el Mercado Municipal de Talamanca;

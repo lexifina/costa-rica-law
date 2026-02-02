@@ -1,0 +1,2 @@
+Artículo 40.- Emergencias: La Administración Municipal podrá cerrar temporalmente el centro de servicios múltiples y mercado Municipal por razones de caso fortuito y/o emergencia.
+En estos casos, la Administración del centro de servicios múltiples y mercado contará con un plazo máximo de 24 horas para remitir informe detallando las causas del cierre; a la Alcaldía Municipal, con copia de dicha información a la Oficina de Contabilidad y al Concejo Municipal para que se realice el ajuste respectivo en el recibo de cobro del mes siguiente.

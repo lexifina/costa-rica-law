@@ -1,0 +1,1 @@
+Artículo 37.- Horario de carga y descarga: El horario para la carga y descarga de productos será de las 5:30 am a las 10:00 am y de las 5;00 pm a las 7:00 pm, únicamente. Para estos efectos los proveedores deberán ingresar y aparcar solamente en el área marcada como zonas de carga y descarga. Se exceptúa la descarga de encomiendas por parte de la empresa de transporte público.

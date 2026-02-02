@@ -1,0 +1,1 @@
+Transitorio II. El horario para el anfiteatro será de hasta la media noche y en lo que respecta al uso de propaganda y rótulos; deberán atenerse a las disposiciones que al respecto regula el Ministerio de Salud y pagar los cánones municipales respectivos.

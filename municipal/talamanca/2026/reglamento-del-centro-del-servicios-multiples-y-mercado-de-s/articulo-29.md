@@ -1,0 +1,1 @@
+Artículo 29. Limpieza de los locales: Los locales comerciales deberán ser limpiados o aseados, por lo menos una vez al día, colocando los desechos generados, en basureros con bolsa, debidamente tapados y colocados en sitios seguros

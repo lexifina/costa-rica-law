@@ -1,0 +1,1 @@
+Artículo 14.- Prohibiciones: Ningún inquilino del centro de servicios múltiples y mercado municipal podrá vender mercancías diferentes a las expresamente autorizadas y descritas en el contrato de arriendo entre la Alcaldia Municipal y el inquilino.

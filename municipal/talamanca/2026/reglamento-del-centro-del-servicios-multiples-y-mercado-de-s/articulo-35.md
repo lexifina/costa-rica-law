@@ -1,0 +1,1 @@
+Artículo 35. Modificación del destino del local a venta de licor: En ningún momento se autorizarán modificaciones del destino del local comercial para venta de licor dentro de las instalaciones del centro de servicios múltiples y mercado Municipal.

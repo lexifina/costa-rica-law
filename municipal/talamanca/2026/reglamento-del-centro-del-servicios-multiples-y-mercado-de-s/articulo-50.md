@@ -1,0 +1,1 @@
+Artículo 50. Arrendatarios antiguos: Son arrendatarios antiguos los inquilinos que hayan obtenido un local comercial, en el antiguo Mercado Municipal, con anterioridad a la construcción del actual centro de servicios múltiples y mercado Municipal.

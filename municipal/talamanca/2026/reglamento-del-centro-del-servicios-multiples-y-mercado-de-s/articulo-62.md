@@ -1,0 +1,1 @@
+Artículo 62. Sustancias indeseables: No se permitirá en los sitios públicos sustancias indeseables, líquidos fermentables, basura o desechos, despojos, aguas sucias o la manipulación de dinero con mercaderías, como carnes, quesos, embutidos y otros.

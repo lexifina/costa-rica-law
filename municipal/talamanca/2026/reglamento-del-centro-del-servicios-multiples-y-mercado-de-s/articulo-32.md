@@ -1,0 +1,1 @@
+Artículo 32.- Permanencia en el mercado: Ningún arrendatario podrá permanecer en las instalaciones del Mercado después de la hora de cierre; con excepción de los funcionarios municipales; salvo los inquilinos que arrienden locales en el área de comidas y bebidas.

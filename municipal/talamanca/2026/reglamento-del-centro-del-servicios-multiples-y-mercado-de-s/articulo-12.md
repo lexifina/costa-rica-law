@@ -1,0 +1,1 @@
+Artículo 12. Obligaciones del personal a cargo: Los empleados del centro de servicios múltiples y mercado municipal se encuentran sometidos a las leyes y reglamentos del demás personal de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 65.- Suscripción del contrato: El cesionario deberán comparecer al Departamento de Asesoría Jurídica a suscribir el correspondiente contrato de arriendo; cuyo plazo lo será para el resto del quinquenio que le queda al contrato.

@@ -1,0 +1,3 @@
+Artículo 68.- Horarios de funcionamiento: Los locales comerciales destinados a la venta de alimentos y bebidas que se ubique en estas áreas con acceso a la calle pública por medio de gradas y rampas tendrán una jornada ordinaria de funcionamiento hasta las 24:00 horas.
+Los arrendatarios de estos locales podrán concesionar áreas adicionales, por las cuales pagarán el canon respectivo y de conformidad con este Reglamento.
+Estas concesiones en espacios públicos podrán ser revocadas en cualquier momento y tendrán el carácter de permisos de funcionamiento de uso de dominio público; los cuales serán otorgados por el Concejo Municipal únicamente.

@@ -1,0 +1,1 @@
+Artículo 15. Vendedores ambulantes: En las instalaciones del centro de servicios múltiples y mercado municipal no se permitirán vendedores ambulantes; para cuyo efecto la Administración del Mercado dispondrá lo necesario; incluso recurrir a las autoridades policiales que operen en el centro de servicios múltiples y mercado municipal.

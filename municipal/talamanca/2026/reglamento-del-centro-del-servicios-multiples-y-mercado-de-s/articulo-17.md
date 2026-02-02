@@ -1,0 +1,7 @@
+Artículo 17. Modificaciones del destino del local: La Alcaldia Municipal podrá autorizar modificaciones o cambio del destino del local para favorecer a la población del cantón y el desarrollo económico de sus habitantes. Para esos efectos, el interesado previamente deberá cumplir con los siguientes requisitos:
+a) Solicitar el cambio de línea ante la Administración del Mercado.
+b) Solicitud que debe hacerse en papel común agregando el timbre municipal de 1000 colones.
+c) Autorización que certifique que cuenta con el Visto Bueno de la Oficina de Ingeniería y Proyectos de la Municipalidad, haciendo constar que no perjudicará la infraestructura del edificio en donde se ubica el local.
+d) Permiso de funcionamiento al día.
+e) Copia de los recibos de alquileres, pago de servicios públicos al día:
+La Administración a su vez, antes de darle su aprobación, lo hará de conocimiento del Comité de Comerciantes del centro de servicios múltiples y mercado municipal, y juntos elaborarán las estimaciones de conveniencia o no para el equilibrio de las actividades en el inmueble municipal; siendo que se podrá aportar un estudio de factibilidad económica que indique que no afecta los intereses de los arrendatarios del entorno. Agotada esta etapa, lo elevará con el correspondiente expediente y certificación de encontrarse al día, en todo pago de impuestos y tributos municipales a la Alcaldía Municipal, quién dispondrá de diez días hábiles para aprobar o improbar la solicitud.
