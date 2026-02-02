@@ -1,0 +1,7 @@
+ANEXO 3.
+CERTIFICADO DE AUTORIZACIÓN DE
+SERVICIOS DE AMBULACIA AÉREA.
+[imagen]
+MINISTERIO DE SALUD. Dirección Regional De Rectoría De La Salud: . Dirección Área Rectora De Salud: . AUTORIZACIÓN DE SERVICIO DE AMBULACIA AÉREA No. . En cumplimiento a lo que establece la Ley General de Salud No.5395 y el Reglamento de Servicios de ambulancias aéreas, se extiende la presente autorización a: [imagen] Nombre del proveedor. Tipo de identificación: . No. de identificación: . Representante legal (en caso de persona jurídica): . Tipo de identificación: . No. de identificación: . Tipo de vehículo: Fija ( ) Rotatoria ( ) No. CERTIFICADO DE OPERACIÓN (DGAC): . Identificación: , , , . Matrícula Marca Modelo Año TIPO DE TRANSPORTE AUTORIZADO: Primario ( ) Secundario ( ) Terciario ( ) La presente autorización es válida exclusivamente para la actividad y vehículo arriba indicados, por el período correspondiente, salvo que las condiciones de este, de su funcionamiento, o las infracciones que cometan a la legislación, ameriten la suspensión o cancelación anticipada del mismo para garantizar la salud de los trabajadores, de la población y del ambiente. Los alcances y condiciones bajo las cuales se otorga este permiso se establecen en la Resolución No. . Dado en la ciudad de a los días de de . Tiene validez de: año(s), debe ser renovado el de del . [imagen] [imagen] Nombre Firma Director(a) del Área Rectora de Salud, o funcionario designado.
+ORIGINAL: Interesado. CC: Expediente del ARS
+COLÓQUESE EN UN LUGAR VISIBLE

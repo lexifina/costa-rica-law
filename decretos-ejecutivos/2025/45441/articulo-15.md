@@ -1,0 +1,2 @@
+Artículo 15.- Reformas. Elimínese del Anexo 1 del Decreto Ejecutivo Nº 43432-S del 09 de marzo del 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas otorgados por el Ministerio de Salud", publicado en el Alcance N°60 a La Gaceta N°56 del 23 de marzo del 2022, la siguiente línea:
+8690.9.05 | Ambulancias aéreas. (?) | A

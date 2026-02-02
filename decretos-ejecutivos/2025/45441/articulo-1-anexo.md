@@ -1,0 +1,28 @@
+ANEXO 1.
+FORMULARIO DE SOLICITUD.
+| [imagen] [imagen] | FORMULARIO DE SOLICITUD DE AUTORIZACIÓN DE SERVICIO DE AMBULANCIA AÉREA. (No dejar espacios en blanco, escribir claro en letra imprenta o de molde, sin tachaduras) |
+[imagen] A. INFORMACIÓN DEL SOLICITANTE. |
+1 | TIPO DE SOLICITUD: Primera vez ( ) Renovación ( ) |
+2 | NOMBRE DEL SOLICITANTE (Persona física o jurídica): | 3 | No. DE IDENTIFICACIÓN: |
+4 | NOMBRE DEL REPRESENTANTE LEGAL (Solo en caso de persona jurídica): | 5 | No. DE IDENTIFICACIÓN: |
+6 | PROVINCIA: | 7 | CANTÓN: | 8 | DISTRITO: |
+9 | SEÑAS ESPECIFICAS: |
+10 | CORREO ELECTRÓNICO: | 11 | TELÉFONO(S): |
+12 | APARTADO POSTAL: | 13 | FAX: | 10 | MEDIO DE NOTIFICACIÓN: |
+B. INFORMACIÓN DE LA AERONAVE. |
+11 | TIPO DE ALA: Fija ( ) Rotatoria ( ) | 12 | No. CERTIFICADO DE OPERACIÓN (DGAC): |
+13 | MATRÍCULA: | 14 | MARCA: | 15 | MODELO: | 16 | AÑO:
+17 | TIPO DE TRANSPORTE QUE PRETENDE BRINDAR: Primario ( ) Secundario ( ) Terciario ( ) |
+C. INFORMACIÓN DEL RESPONSBLE TÉCNICO. |
+18 | NOMBRE DEL PROFESIONAL EN MEDICINA RESPONSABLE: |
+19 | No. DE IDENTIFICACIÓN: | 20 | CÓDIGO PROFESIONAL: |
+21 | CORREO ELECTRÓNICO: | 22 | APARTADO POSTAL: |
+23 | TELÉFONO: | 24 | FAX: | 25 | MEDIO DE NOTIFICACIÓN: |
+E. FIRMA DEL SOLICITANTE. |
+26 | FIRMA DEL SOLICITANTE O DE SU PRESENTANTE LEGAL: | 27 | AUTENTICACIÓN: |
+E. PARA USO EXCLUSIVO DEL MINISTERIO DE SALUD. |
+28 | REQUISITOS DE LA SOLICITUD: La solicitud cumple con todos los requisitos dispuestos en el reglamento vigente para la autorización solicitada: SÍ ( ) NO ( ) |
+29 | Nº DE SOLICITUD: | 30 | SELLO: | |
+31 | FUNCIONARIO QUE RECIBE LA SOLICITUD: | |
+32 | FECHA Y HORA DE RECIBIDO DE SOLICITUD: |
+| | | | | | | | | | | | | | | | | | | | | | | |
