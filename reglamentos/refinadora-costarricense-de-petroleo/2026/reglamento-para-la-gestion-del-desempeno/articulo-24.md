@@ -1,0 +1,1 @@
+Artículo 24°- Derogatorias: El presente reglamento deroga el Reglamento para la Gestión del Desempeño, aprobado por la Junta Directiva, en la sesión ordinaria 5232-204, celebrada el 28 de abril de 2021.

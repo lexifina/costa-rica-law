@@ -1,0 +1,10 @@
+Artículo 16º- Valores para la Calificación. La calificación de la evaluación del desempeño se regirá mediante los siguientes valores y conceptos:
+Cuadro N°4
+Valoración por porcentaje obtenido de la Evaluación Total
+Valor (en puntos) | Calificación | Descripción del valor y la calificación
+1 a 69.99 | Deficiente | El rendimiento de la persona evaluada no cumplió con los compromisos pactados en el acuerdo de compromiso y debe trabajar en el desarrollo de sus competencias. Se requiere una mejora oportuna y significativa en el desempeño de la persona evaluada. Se requiere un plan de acción para mejorar el rendimiento de la persona evaluada.
+70 a 89.99 | Bueno | El rendimiento de la persona evaluada es aceptable y cumple con la mayoría de los compromisos pactados, en cuanto a sus competencias debe mantenerse constante en su desarrollo. Se podría requerir de un plan de acción para mejorar continuamente el desempeño de la persona evaluada .
+90 a 95.99 | Muy Bueno | El rendimiento de la persona evaluada cumple con los compromisos pactados generando resultados, contribuyendo con el cumplimiento de las metas y objetivos, además en cuanto a las competencias se muestra un amplio desarrollo.
+96 a 100 | Excelente | La persona evaluada cumple a cabalidad con los compromisos pactados y hace una contribución o apoyo excepcional para el cumplimiento de metas, objetivos estratégicos de la institución, dirección, área, departamento o unidad. En cuanto a las competencias, la persona evaluada es un modelo y un referente para otras.
+La calificación obtenida será considerada para los movimientos de personal, Plan de Sucesión, la concesión de becas de capacitación y actividades de formación, además, para el reconocimiento del aumento por concepto de anualidad el esquema de salario compuesto y que sea sujeto de percibir aumentos al salario, siempre que la calificación obtenida sea igual o superior a "muy bueno".
+Las notas asignadas a los criterios de evaluación respectivos deberán expresarse con dos decimales.
