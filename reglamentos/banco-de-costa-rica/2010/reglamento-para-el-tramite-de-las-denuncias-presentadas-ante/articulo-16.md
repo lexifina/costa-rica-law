@@ -1,7 +1,9 @@
 CAPÍTULO IV
-De la fase de investigación
-y la comunicación de resultados
-Artículo 16.—Objetivo de las investigaciones. Una vez declarada la admisibilidad de la denuncia, se debe abrir la correspondiente investigación preliminar, a efecto de determinar si existe suficiente mérito para solicitar la apertura de un procedimiento administrativo para establecer eventuales responsabilidades disciplinarias o civiles, e incluso la interposición de una denuncia penal.
-Para la elaboración de los informes, según se trate de una relación de hechos o de una denuncia penal, se debe proceder de conformidad con lo establecido al respecto por la Contraloría General de la República.
-Las investigaciones preliminares no pueden ser efectuadas por servicios tercerizados, sin embargo, durante su ejecución –de requerirse- se pueden contratar los servicios de peritajes y asesorías técnicas.
-Además, si producto de la investigación preliminar la Auditoría General Corporativa identifica debilidades en el sistema de control interno que pongan en riesgo fondos púbicos, debe emitir una comunicación solicitando a la Administración Activa la corrección inmediata de la situación.
+De la fase de investigación y la comunicación
+de resultados
+Artículo 16.-Objetivo de las investigaciones
+Una vez declarada la admisibilidad de la denuncia, se debe abrir la correspondiente investigación preliminar, con el fin de determinar si existe suficiente mérito para solicitar la apertura de un procedimiento administrativo orientado a establecer eventuales responsabilidades disciplinarias o civiles, o bien para la interposición de una denuncia penal. La investigación se debe realizar atendiendo los principios de celeridad, legalidad, independencia, objetividad y oficiosidad.
+Para la elaboración de los informes, ya sea que se trate de una relación de hechos o de una denuncia penal, se debe proceder de conformidad con lo establecido en los Lineamientos generales para el análisis de presuntos Hechos Irregulares emitidos por la Contraloría General de la República.
+Las investigaciones preliminares no pueden ser ejecutadas por servicios tercerizados. Sin embargo, durante su desarrollo y en caso de requerirse, se pueden contratar servicios de peritajes y asesorías técnicas.
+Además, si como resultado de la investigación preliminar la Auditoría General Corporativa identifica debilidades en el sistema de control interno que representen un riesgo para los fondos púbicos, debe emitir una comunicación a la Administración Activa para solicitar la corrección inmediata de la situación.
+El personal de la Auditoría General Corporativa, cuando se le asigne el desarrollo de una investigación, debe comunicar al auditor general corporativo cualquier impedimento que pudiera afectar su independencia y objetividad, a fin de que se adopten las medidas correspondientes. El auditor general corporativo debe conocer y resolver la abstención, así como una eventual recusación, en caso de que se presente.

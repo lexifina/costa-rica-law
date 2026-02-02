@@ -15,3 +15,4 @@ Reglamento para el trámite de las denuncias presentadas ante la Auditoría Inte
 | --- | --- | --- |
 | 1 | 2010-10-12 | la propia norma |
 | 2 | 2020-07-21 | Reglamento 28 (2020-07-21) |
+| 3 | 2026-02-02 | Reglamento 6 (2026-02-02) |

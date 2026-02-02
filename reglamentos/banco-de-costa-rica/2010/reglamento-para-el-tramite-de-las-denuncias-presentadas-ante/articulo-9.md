@@ -1,3 +1,4 @@
 CAPÍTULO III
 De la fase de admisibilidad
-Artículo 9º—Del estudio de admisibilidad de la denuncia. Se debe realizar un estudio de admisibilidad de la denuncia y resolver en un plazo de diez días hábiles. Con base en el estudio realizado se debe definir si se da trámite a la denuncia o se desestima y archiva.
+Artículo 9º-Del estudio de admisibilidad de la denuncia
+El estudio de admisibilidad de la denuncia se debe realizar y resolver en un plazo máximo de diez días hábiles, si la denuncia es admitida para investigación de la Auditoría, si se traslada a la Administración Activa o se desestima y archiva.

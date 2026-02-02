@@ -1,2 +1,3 @@
-Artículo 14.—Recurso de revocatoria y apelación. Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabe, por parte de la persona denunciante, los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.
-En caso de revocatoria con apelación en subsidio, la revocatoria será resuelta por el Auditor General Corporativo y la apelación por la Junta Directiva General de Banco.
+Artículo 14.-Recurso de revocatoria y apelación
+Contra la resolución que disponga el rechazo, archivo o desestimación de una denuncia, la persona denunciante puede interponer los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley general de la administración pública.
+En caso de que la persona denunciante interponga recurso de revocatoria con apelación en subsidio, la revocatoria debe ser resuelta por el auditor general corporativo y la apelación por la Junta Directiva General de Banco.

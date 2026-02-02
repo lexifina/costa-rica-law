@@ -1,1 +1,3 @@
-Artículo 17.—De los resultados de la investigación producto de las denuncias. La Auditoría General Corporativa debe comunicar los informes de relación de hechos producto de las investigaciones preliminares en que se recomiende la apertura de procedimientos administrativos, a la Gerencia General, a la Junta Directiva o al Consejo de Gobierno, según corresponda, y su trámite se debe realizar según en lo dispuesto en este reglamento y en los artículos 36, 37 y 38 de la Ley General de Control Interno.
+Artículo 17.-Del expediente de las denuncias, relaciones de hechos y denuncias penales
+Una vez que la Auditoría General Corporativa tenga conocimiento de hechos presuntamente irregulares, debe documentar en un expediente individual las acciones realizadas para la atención de cada caso.
+Los expedientes de las investigaciones deben estar debidamente identificados y contener evidencia suficiente y competente que respalde los resultados obtenidos.
