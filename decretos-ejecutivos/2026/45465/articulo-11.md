@@ -1,0 +1,1 @@
+Artículo 11.-Evaluación técnica periódica. La persona analista designada por el DGTH, efectuará las comprobaciones técnicas periódicas, conforme a los lineamientos del Consejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social, con el fin de confirmar o recalificar los niveles de riesgo inherentes a cada puesto de trabajo.

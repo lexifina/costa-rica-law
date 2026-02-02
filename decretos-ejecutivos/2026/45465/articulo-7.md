@@ -1,0 +1,1 @@
+Artículo 7º-No acumulabilidad ni compensación. Por su naturaleza profiláctica los días de vacaciones establecidos en el presente reglamento que no sean disfrutados no podrán acumularse de semestre a semestre y no generan el pago de una indemnización o compensación económica al finalizar la relación laboral.

@@ -1,0 +1,1 @@
+Artículo 8º-Obligaciones de las jefaturas. Corresponde a la jefatura operativa de la UEI planificar y garantizar el disfrute efectivo de este beneficio, sin afectar la operatividad institucional ni los derechos laborales, bajo responsabilidad administrativa.
