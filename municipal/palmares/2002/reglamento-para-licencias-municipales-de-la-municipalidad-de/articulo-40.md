@@ -1,1 +1,0 @@
-Artículo 40.—La Unidad suministrará a los patentados los formularios y la información necesaria para que puedan presentar la declaración jurada que se refiere el artículo anterior, en forma adecuada a los fines de la Ley de Patentes y este Reglamento. Los patentados podrán retirar los formularios respectivos en la Unidad, a partir del primero de octubre de cada año.

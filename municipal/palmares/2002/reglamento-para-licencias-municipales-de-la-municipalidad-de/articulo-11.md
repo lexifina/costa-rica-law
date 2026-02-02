@@ -1,3 +1,0 @@
-SECCIÓN III
-Procedimiento para el otorgamiento de las licencias
-Artículo 11.—Las solicitudes de licencias serán tramitadas ante la Unidad en la cual se constatará la explotación de la actividad económica solicitada es procedente, así mismo deberá contar con todos los requisitos legales y reglamentarios necesarios para su explotación, prevendrá mediante resolución, el cumplimiento de los requisitos omisos, la prevención deberá ser realizada una sola vez por parte de la Unidad, y contemplará todas las faltas que deban subsanarse por parte del solicitante. Corresponde a la Unidad otorgar la licencia que se solicita.

@@ -1,1 +1,0 @@
-Artículo 16.—Conjuntamente con los requisitos para la obtención de Licencia en el cantón de Palmares, las solicitudes de Licencias Temporales contempladas en el artículo 9º están sujetas al Reglamento para la Autorización de Ferias, Miniferias, Corridas de Toros, Carreras de Cintas, Topes, Motocross y Actividades Bailables en el Cantón de Palmares.

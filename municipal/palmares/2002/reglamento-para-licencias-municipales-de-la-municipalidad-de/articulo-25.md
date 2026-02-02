@@ -1,1 +1,0 @@
-Artículo 25.—Compete a la Unidad la tramitación y resolución de todo lo relacionado con la Ley de Tarifas de Impuestos Municipales del Cantón de Palmares, el Reglamento y leyes conexas, así como velar por el fiel cumplimiento de dichas normativa vigente.

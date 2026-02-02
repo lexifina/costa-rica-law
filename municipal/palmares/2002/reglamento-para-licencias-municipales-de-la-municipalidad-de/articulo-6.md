@@ -1,1 +1,0 @@
-Artículo 6º—No se podrá conceder licencia para la explotación de actividades económicas en casas de habitación, salvo que para efectuar la actividad comercial se separen totalmente el local comercial de la casa de habitación.
