@@ -1,0 +1,1 @@
+Artículo 25.-De la Obligación de informar al Oficial de Simplificación de Trámites. En el cumplimiento de este procedimiento, la unidad administrativa o el funcionario responsable del trámite deberá coordinar a lo interno para informar al Oficial de Simplificación de Trámites, conforme al artículo 11, de la Ley N.º 8220, casos en que el administrado solicitó el silencio positivo.

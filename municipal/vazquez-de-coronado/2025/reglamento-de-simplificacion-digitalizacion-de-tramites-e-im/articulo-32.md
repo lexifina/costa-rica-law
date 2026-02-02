@@ -1,0 +1,1 @@
+Artículo 32.- Se deroga el Reglamento sobre la Simplificación de Trámites para las Ciudadanas y los Ciudadanos que realicen trámites en la Municipalidad de Vázquez de Coronado, según las Leyes N.º 8220 y N.º 8990, del 5 de noviembre de 2012.

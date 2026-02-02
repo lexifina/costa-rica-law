@@ -1,0 +1,1 @@
+Artículo 14.- Según el artículo 41 Constitucional y 261 de la Ley General de la Administración Pública, las solicitudes de carácter complejo como reclamos, quejas, recursos o denuncias se atenderán en el plazo máximo de dos meses, salvo norma especial.

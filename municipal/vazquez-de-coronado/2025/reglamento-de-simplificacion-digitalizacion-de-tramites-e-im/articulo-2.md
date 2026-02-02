@@ -1,0 +1,1 @@
+Artículo 2º-El presente Reglamento regula de forma exclusiva de todos los trámites municipales de plataforma de servicios o mediante correo electrónico, siempre y cuando el usuario cuente con firma digital.

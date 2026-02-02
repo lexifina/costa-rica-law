@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Lo dispuesto en el presente reglamento empezará a regir seis meses después de su publicación. La municipalidad tendrá este periodo para socializar y dar a conocer sus disposiciones y alcances del presente reglamento. Así como para realizar las adquisiciones y contrataciones de los sistemas y equipos electrónicos necesarios para el cumplimiento de este.

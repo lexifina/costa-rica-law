@@ -1,0 +1,1 @@
+Artículo 3.- Este Reglamento rige para los usuarios de los servicios municipales, constituye los parámetros técnicos y legales necesarios para formalizar los trámites del artículo segundo anterior, mediante plataforma de servicios o el correo electrónico oficial para trámites digitales de la Municipalidad de Vázquez de Coronado.

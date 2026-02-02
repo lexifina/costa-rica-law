@@ -1,0 +1,1 @@
+Artículo 33.- Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, según el artículo 43 del Código Municipal y sujeto a modificaciones normativas según los fines de la Ley 8220.

@@ -1,0 +1,1 @@
+Artículo 12.-Es responsabilidad de esta Municipalidad, de la unidad de Informática, garantizar la conservación de los documentos o expedientes administrativos digitalizados y electrónicos, por el transcurso del tiempo que lo establezca las tablas de plazos de conservación de documentos y las normas de archivo vigentes aplicables.

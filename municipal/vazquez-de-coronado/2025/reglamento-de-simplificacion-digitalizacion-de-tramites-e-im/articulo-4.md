@@ -1,0 +1,1 @@
+Artículo 4.- La administración activa mediante la Unidad de Informática suplirá de las herramientas tecnológicas idóneas que permitan lo establecido en el artículo anterior y resguardar digitalmente la información de los trámites realizados, para ello se deberá establecer las condiciones para conformar los expedientes digitales correspondientes a cada serie documental.
