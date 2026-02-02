@@ -1,0 +1,1 @@
+Artículo 3°-La Secretaría técnica del SINCA definirá en conjunto con las instituciones públicas comprometidas en el plan de acción y responsables de implementar el Mecanismo de monitoreo y seguimiento, los mecanismos más convenientes para gestionar la información de avance así como la comunicación de sus resultados y acceso público.
