@@ -1,0 +1,1 @@
+Artículo 12. Colaborar con las acciones que el ICODER impulse en materia de deporte convencional y adaptado, orientadas al desarrollo sostenible, alos estilos de vida saludables y al bienestar general de la población de El Guarco.

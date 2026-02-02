@@ -1,0 +1,1 @@
+Artículo 92.El quórum mínimo para sesionar es de cuatro integrantes. Las decisiones se adoptarán por mayoría simple de los presentes. En caso de empate, el voto del presidente será calificado (doble voto).

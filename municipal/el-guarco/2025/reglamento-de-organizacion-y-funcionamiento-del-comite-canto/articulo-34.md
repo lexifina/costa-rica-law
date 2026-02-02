@@ -1,0 +1,1 @@
+Artículo 34. Las sesiones extraordinarias podrán convocarse por iniciativa del presidente o por solicitud de al menos cuatro miembros. La convocatoria deberá emitirse por escrito con un mínimo de 48 horas de antelación, indicando expresamente los asuntos a tratar. Solo se podrán conocer los temas señalados en la convocatoria.

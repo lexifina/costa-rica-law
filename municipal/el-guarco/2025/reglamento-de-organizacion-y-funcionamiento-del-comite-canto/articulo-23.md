@@ -1,0 +1,1 @@
+Artículo 23. Los miembros de la Junta Directiva no podrán establecer contratos o convenios de servicios profesionales con el Comité, los Comités Comunales, asociaciones deportivas, la Municipalidad de El Guarco ni ninguna entidad relacionada de la cual formen parte.

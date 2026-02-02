@@ -1,0 +1,1 @@
+Artículo 89.Ante la falta de nombramiento o situaciones que afecten la legalidad o legitimidad del Comité Cantonal de Deportes y Recreación de El Guarco, el Concejo Municipal queda facultado para asumir temporalmente las funciones administrativas necesarias, siempre en concordancia con este reglamento y la normativa nacional vigente.

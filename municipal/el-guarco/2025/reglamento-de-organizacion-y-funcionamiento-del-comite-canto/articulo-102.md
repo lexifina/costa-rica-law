@@ -1,0 +1,1 @@
+Artículo 102.El Comité Cantonal de Deportes y Recreación de El Guarco tiene personería jurídica instrumental para los fines previstos por ley y este reglamento. Los Comités Comunales actúan bajo esta personería.

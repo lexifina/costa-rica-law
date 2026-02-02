@@ -1,0 +1,1 @@
+Artículo 91.Para que las sesiones sean válidas, deberán iniciarse dentro de los 15 minutos posteriores a la hora indicada. Si no hay quórum, se dejará constancia de los asistentes y se computará la ausencia de los demás miembros.

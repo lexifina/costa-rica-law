@@ -1,0 +1,1 @@
+Artículo 56. Se podrán establecer Comisiones Específicas conforme a las necesidades del Comité, siempre que sus fines estén directamente relacionados con el deporte, la recreación o los estilos de vida saludables.

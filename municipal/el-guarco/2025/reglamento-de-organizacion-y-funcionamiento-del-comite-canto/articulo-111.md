@@ -1,0 +1,1 @@
+Artículo 111.Será obligatorio el establecimiento y cumplimiento de los reglamentos específicos para cada instalación, como el Salón de Disciplinas, la pista Los Zorzales, La Cancha Multiuso de San Isidro y todas aquellas construidas con recursos municipales o con recursos asignados al CCDRG.

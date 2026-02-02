@@ -1,0 +1,1 @@
+Artículo 68.Toda instalación deportiva o recreativa de carácter público financiada por el Estado deberá contar con una Junta Administradora conformada por: a) Un representante del ICODER. b) Dos del Concejo Municipal de El Guarco. c) Dos del Comité Cantonal de Deportes y Recreación.

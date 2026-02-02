@@ -1,0 +1,1 @@
+Artículo 60. Dentro de las instalaciones deportivas no se permitirá: a) La venta o consumo de bebidas alcohólicas, conforme a la Ley N°5817. b) El uso de calzado inadecuado que pueda dañar las instalaciones.

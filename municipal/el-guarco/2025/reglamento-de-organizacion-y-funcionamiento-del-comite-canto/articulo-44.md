@@ -1,0 +1,1 @@
+Artículo 44.Para que un acuerdo o fallo sea firme, se requiere votación afirmativa de al menos dos terceras partes de los miembros o mayoría simple al aprobarse el acta. Para modificar o revocar, se necesita el mismo número de votos con que se aprobó originalmente.

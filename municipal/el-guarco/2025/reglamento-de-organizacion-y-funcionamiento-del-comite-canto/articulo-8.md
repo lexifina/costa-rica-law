@@ -1,0 +1,1 @@
+Artículo 8. Fomentar el desarrollo de las disciplinas deportivas competitivas que aspiren a representaciones distritales, cantonales y nacionales, involucrando en lo posible, a las asociaciones con trayectoria comprobable (mínimo tres años).

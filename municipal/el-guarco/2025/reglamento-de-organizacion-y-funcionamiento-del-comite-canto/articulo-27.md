@@ -1,0 +1,1 @@
+Artículo 27.Funciones del vicepresidente: a) Sustituir al presidente en caso de ausencia. b) Encargarse de las relaciones públicas del Comité. c) Impulsar la conformación de comités comunales y comisiones. d) Firmar junto al presidente las órdenes de pedido.

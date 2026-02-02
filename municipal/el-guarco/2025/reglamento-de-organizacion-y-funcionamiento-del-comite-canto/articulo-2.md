@@ -1,0 +1,1 @@
+Artículo 2. El CCDR de El Guarco, goza de personería jurídica instrumental y competencias definidas para fomentar el deporte, la recreación y estilos de vida saludables. Tiene potestad para administrar y conservar infraestructuras deportivas propias o bajo convenio. La Municipalidad es responsable de extender la certificación de su personería.

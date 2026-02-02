@@ -1,0 +1,1 @@
+Artículo 106.Toda situación no prevista en este reglamento será resuelta por el Comité Cantonal según su sano criterio, y dicha resolución deberá ser aprobada por el Concejo Municipal de El Guarco para su incorporación formal al reglamento.

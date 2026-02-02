@@ -1,0 +1,1 @@
+Artículo 20. Corresponde a la Junta Directiva la aprobación, modificación, derogación e interpretación de los reglamentos internos necesarios para el funcionamiento del Comité y sus órganos subordinados, los cuales deberán ser avalados y registrados previamente por el Concejo Municipal de El Guarco.

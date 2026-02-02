@@ -1,0 +1,1 @@
+Artículo 13. Garantizar la fiscalización y uso eficiente de los recursos públicos destinados al deporte y la recreación, mediante mecanismos de control interno con la implementación de la ley 9986 y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 99.La unidad administrativa podrá organizarse según las necesidades del Comité. El encargado administrativo o quien tenga mayor rango podrá coordinar logística, transporte, dotación de materiales y otros aspectos operativos, siempre verificando la legalidad y disponibilidad presupuestaria, y acatando los acuerdos de la Junta Directiva.

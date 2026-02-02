@@ -1,0 +1,1 @@
+Artículo 32. En la primera sesión oficial se realizará la elección de los cargos internos de la Junta Directiva: presidencia, vicepresidencia, secretaría, tesorería y tres vocalías. Cada puesto será ejercido durante cuatro años en condición ad honorem, pudiendo ser reelegidos por hasta dos periodos consecutivos.

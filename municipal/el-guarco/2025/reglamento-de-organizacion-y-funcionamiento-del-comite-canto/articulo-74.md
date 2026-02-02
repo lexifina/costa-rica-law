@@ -1,0 +1,1 @@
+Artículo 74.El Comité podrá invertir fondos en instalaciones deportivas o recreativas dentro del cantón. Según el artículo 170 del Código Municipal, se destinará al menos un 3% del presupuesto municipal a estos fines, de los cuales un máximo del 20% podrá emplearse en gastos administrativos.

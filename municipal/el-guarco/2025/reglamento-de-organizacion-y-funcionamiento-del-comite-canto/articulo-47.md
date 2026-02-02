@@ -1,0 +1,1 @@
+Artículo 47.Los acuerdos tomados por la Junta Directiva estarán sujetos a: a) Recurso de revocatoria por parte de los ciudadanos particulares. b) Recurso de revisión, exclusivamente por los miembros de la Junta.

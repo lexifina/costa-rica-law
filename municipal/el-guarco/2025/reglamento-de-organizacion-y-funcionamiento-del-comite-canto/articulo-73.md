@@ -1,0 +1,1 @@
+Artículo 73.El presupuesto será sometido a conocimiento del Concejo Municipal de El Guarco, conforme a lo indicado por la Contraloría General de la República y de acuerdo con el plan de trabajo anual.

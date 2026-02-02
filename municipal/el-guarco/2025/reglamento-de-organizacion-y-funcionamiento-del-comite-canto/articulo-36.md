@@ -1,0 +1,1 @@
+Artículo 36. El quórum mínimo para sesionar es de cuatro personas. Los acuerdos se tomarán por mayoría simple, salvo disposición expresa en contrario. En caso de empate, el voto del presidente será decisivo.

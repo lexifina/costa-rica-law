@@ -1,0 +1,1 @@
+Artículo 66.Los miembros del Comité Cantonal de Deportes y Recreación y del Concejo Municipal de El Guarco estarán exentos del pago de tarifas de ingreso a las actividades organizadas por entidades afiliadas, dado que asisten en calidad de fiscalizadores y colaboradores.

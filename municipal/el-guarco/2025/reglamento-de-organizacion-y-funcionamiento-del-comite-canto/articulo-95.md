@@ -1,0 +1,1 @@
+Artículo 95.Todo miembro deberá justificar por escrito su inasistencia a las sesiones, a más tardar en la siguiente reunión. La falta de justificación implicará que la ausencia sea considerada injustificada y podrá ser sancionada.

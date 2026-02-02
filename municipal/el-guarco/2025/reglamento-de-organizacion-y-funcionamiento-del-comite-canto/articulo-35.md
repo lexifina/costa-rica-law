@@ -1,0 +1,1 @@
+Artículo 35. Para que una sesión sea válida, deberá iniciarse a más tardar 15 minutos después de la hora establecida. Si se cuenta con quórum, se registrará la asistencia y se computará la inasistencia de los demás miembros.

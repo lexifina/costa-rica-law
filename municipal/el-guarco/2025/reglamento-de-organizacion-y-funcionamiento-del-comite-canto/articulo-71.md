@@ -1,0 +1,1 @@
+Artículo 71.El presupuesto del Comité Cantonal y sus órganos jerárquicos debe elaborarse de forma objetiva, reflejando los programas y actividades previstas. En ningún caso los gastos podrán exceder los ingresos estimados.

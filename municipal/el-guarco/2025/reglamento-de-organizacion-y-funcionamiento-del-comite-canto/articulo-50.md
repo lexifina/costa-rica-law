@@ -1,0 +1,1 @@
+Artículo 50. El Comité Cantonal de Deportes y Recreación de El Guarco entregará los libros de actas y tesorería al departamento de Auditoría Interna de la Municipalidad de El Guarco para la legalización de estos, mismos que estarán debidamente sellados y foliados antes de ser utilizados por cada organismo.

@@ -1,0 +1,1 @@
+Artículo 65.Las tarifas de alquiler de instalaciones serán fijadas por el Comité Cantonal de Deportes y Recreación de El Guarco y requerirán autorización del Concejo Municipal. Todos los ingresos deberán ser destinados exclusivamente al mantenimiento y administración de las instalaciones.

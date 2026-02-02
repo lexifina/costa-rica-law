@@ -1,0 +1,1 @@
+Artículo 53. Cada Comisión deberá elaborar un plan de trabajo que será sometido a aprobación del Comité Cantonal. Una vez aprobado, este podrá brindar el soporte necesario para su ejecución según sus posibilidades financieras y administrativas.

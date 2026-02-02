@@ -1,0 +1,1 @@
+Artículo 51. El Comité Cantonal podrá requerir en cualquier momento estos libros a las entidades afiliadas, con el fin de verificar su estado y contenido. Toda observación deberá documentarse mediante un informe escrito.

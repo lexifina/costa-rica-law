@@ -1,0 +1,1 @@
+Artículo 19. La Junta Directiva deberá ejecutar y poner en práctica las políticas relacionadas con el deporte, la recreación, la actividad física y la salud que emanen del Concejo Municipal de El Guarco, el Ministerio de Salud y el Instituto Costarricense del Deporte y la Recreación (ICODER).

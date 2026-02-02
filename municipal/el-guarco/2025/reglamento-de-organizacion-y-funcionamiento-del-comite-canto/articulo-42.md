@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO
+Sobre acuerdos y resoluciones
+Artículo 42. a) Las resoluciones que resuelvan conflictos se considerarán fallos. b) Las demás decisiones serán acuerdos. c) Los acuerdos pueden ser objeto de revisión o revocatoria. La revisión solo puede solicitarla un miembro antes de la aprobación del acta. d) Los fallos admiten revisión y apelación. La apelación debe plantearse por escrito en un plazo de ocho días naturales, con las pruebas respectivas, ante el órgano jerárquico superior. e) La revocatoria solo puede solicitarse una vez, hasta ocho días después de la aprobación del acta correspondiente. Ningún acuerdo o fallo será ejecutable mientras exista un recurso pendiente de resolución.

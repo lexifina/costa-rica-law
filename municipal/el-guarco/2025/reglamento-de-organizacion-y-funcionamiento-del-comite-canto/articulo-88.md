@@ -1,0 +1,3 @@
+CAPÍTULO NOVENO
+De los Comités Comunales de Deporte y de Recreación de El Guarco.
+Artículo 88. Ninguna Asamblea Pública de vecinos podrá dar inicio sin la presencia del delegado debidamente designado por el Comité Cantonal de Deportes y Recreación de El Guarco. En caso de ausencia injustificada del delegado, los vecinos levantarán un acta con lo sucedido y notificarán al Comité Cantonal con copia al Concejo Municipal de El Guarco. El Comité dispondrá de un plazo de ocho días naturales para realizar una nueva convocatoria. El delegado deberá justificar por escrito su inasistencia y, de comprobarse negligencia, se iniciará un proceso administrativo que podría conllevar la pérdida de su credencial.

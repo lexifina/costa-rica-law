@@ -1,0 +1,1 @@
+Artículo 78. Está terminantemente prohibido el préstamo personal de fondos provenientes de actividades deportivas o recreativas. Su incumplimiento implicará pérdida de credencial y reintegro obligatorio del dinero.

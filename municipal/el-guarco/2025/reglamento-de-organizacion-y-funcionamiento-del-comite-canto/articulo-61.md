@@ -1,0 +1,1 @@
+Artículo 61. Toda actividad no deportiva o recreativa, como ferias, bingos, fiestas u otros eventos, deberá contar con la autorización expresa del Comité Cantonal de Deportes y Recreación de El Guarco. Será obligatorio garantizar que la instalación se restituya en óptimas condiciones. El Concejo Municipal de El Guarco no otorgará aval sin esta autorización previa.

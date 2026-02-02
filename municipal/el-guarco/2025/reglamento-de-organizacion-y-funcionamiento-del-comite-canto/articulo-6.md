@@ -1,0 +1,1 @@
+Artículo 6. Diseñar e implementar el plan estratégico y anual cantonal del deporte y la recreación, promoviendo el desarrollo integral de los participantes mediante programas y proyectos que favorezcan la actividad física y la competitividad de los mismos.

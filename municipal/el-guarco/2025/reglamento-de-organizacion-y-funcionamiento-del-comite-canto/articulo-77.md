@@ -1,0 +1,1 @@
+Artículo 77.Los tesoreros de Comités Comunales deberán presentar sus libros y documentos cuando el Comité Cantonal lo solicite. La negativa será motivo de apertura de un proceso administrativo y posible pérdida de credencial.

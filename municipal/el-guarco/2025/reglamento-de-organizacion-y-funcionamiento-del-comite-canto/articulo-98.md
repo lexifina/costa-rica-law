@@ -1,0 +1,1 @@
+Artículo 98.El Comité contará con una oficina sede que servirá de centro administrativo y técnico, así como de lugar de reuniones para comisiones y órganos internos. En caso de no disponer de local propio, la Municipalidad de El Guarco facilitará uno temporalmente.

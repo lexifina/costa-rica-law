@@ -1,0 +1,1 @@
+Artículo 58. El Comité Cantonal clasificará las instalaciones según su infraestructura y definirá tarifas por tipo de uso. Para entrenamientos, se aplicará una tarifa equivalente al 50% de la establecida. Los equipos de liga menor podrán negociar el pago en especie o en dinero. Todos los entrenamientos deben contar con un promotor, monitor o entrenador responsable.

@@ -1,0 +1,1 @@
+Artículo 90. El Comité Comunal deberá reunirse al menos una vez al mes en sesión ordinaria, y en sesión extraordinaria cuando así lo convoque el presidente o cuatro de sus miembros. La convocatoria a sesiones extraordinarias deberá realizarse por escrito con al menos 24 horas de antelación e incluir el orden del día. Solo se tratarán los asuntos convocados.

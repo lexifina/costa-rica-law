@@ -1,0 +1,1 @@
+Artículo 64.Para proceder al cierre de una instalación deportiva o recreativa se deberá contar con el visto bueno del Comité Cantonal de Deportes y Recreación de El Guarco. Quien actúe sin esta aprobación será destituido del cargo correspondiente.

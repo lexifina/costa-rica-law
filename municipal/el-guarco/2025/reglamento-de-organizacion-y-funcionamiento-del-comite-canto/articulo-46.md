@@ -1,0 +1,1 @@
+Artículo 46.El presidente otorgará el uso de la palabra por orden de solicitud, salvo en mociones de orden, donde podrá hablar el proponente, dos a favor y dos en contra. Las intervenciones deberán ser breves y pertinentes al tema tratado.

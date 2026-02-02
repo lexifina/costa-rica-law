@@ -1,0 +1,1 @@
+Artículo 75.Toda persona responsable de manejar fondos o bienes del Comité responderá por su uso indebido, daño o pérdida. En caso de irregularidades, procederá su destitución y, si corresponde, la sanción judicial.

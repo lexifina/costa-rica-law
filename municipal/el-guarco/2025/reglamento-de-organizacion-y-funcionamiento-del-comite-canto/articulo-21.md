@@ -1,0 +1,1 @@
+Artículo 21. La Junta Directiva tendrá la atribución de aprobar o rechazar los planes, presupuestos y programas propuestos por las organizaciones afiliadas al Comité, conforme con las directrices y lineamientos establecidos.

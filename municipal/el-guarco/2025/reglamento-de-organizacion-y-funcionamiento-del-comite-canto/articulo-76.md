@@ -1,0 +1,1 @@
+Artículo 76.Todos los órganos operativos deberán llevar un libro de tesorería proporcionado por el Comité. Los talonarios de recibo también serán suministrados y su uso será obligatorio para toda gestión financiera.

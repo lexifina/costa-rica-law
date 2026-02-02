@@ -1,0 +1,1 @@
+Artículo 41.Si no se cumplen las normas establecidas en este reglamento, el Concejo Municipal tomará medidas disciplinarias, que pueden ir desde una advertencia escrita hasta la destitución e inhabilitación, previo análisis de la Auditoría Interna y del departamento legal.
