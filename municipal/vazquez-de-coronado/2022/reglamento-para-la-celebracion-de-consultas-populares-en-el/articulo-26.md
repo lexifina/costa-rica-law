@@ -1,0 +1,1 @@
+Artículo 26.-De la reposición del Alcalde o de la Alcaldesa propietario. Si el resultado de la consulta fuere la destitución del funcionario/a, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Alcalde o a la Alcaldesa por el resto del periodo, según artículo 19 del Código Municipal.
