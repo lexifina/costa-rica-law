@@ -1,0 +1,2 @@
+Artículo 31. Protección al personal de la Contraloría Universitaria
+Cuando el personal de la Contraloría Universitaria, con ocasión del cumplimiento de sus funciones y responsabilidades, se involucre en un conflicto legal o una demanda, la Universidad, de conformidad con lo establecido en la Ley n.° 8292, Ley General de Control Interno, dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

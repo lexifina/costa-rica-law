@@ -1,0 +1,4 @@
+CAPÍTULO II
+SERVICIOS Y FACILIDADES
+Artículo 29. Servicios de la Contraloría Universitaria
+La Contraloría Universitaria, dentro de sus actividades, brinda servicios de auditoría y servicios preventivos, los servicios de auditoría comprenden los distintos tipos de auditoría enumerados con anterioridad en este reglamento y los servicios preventivos se refieren a la asesoría que presta al Consejo Universitario en materia bajo su competencia, sin perjuicio de las asesorías que en esa materia, a criterio de la Dirección Superior, corresponda brindar otros niveles de la Universidad o de los entes que interactúan con esta y sobre los cuales tiene potestad de auditar, así como los servicios de advertencia, los cuales son por escrito a la administración universitaria que audita, y el servicio de autorización de libros.

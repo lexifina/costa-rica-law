@@ -1,0 +1,3 @@
+ARTÍCULO 28. Causales de responsabilidad
+Incurrirá en responsabilidad administrativa el personal de la Contraloría Universitaria cuando, por dolo o culpa grave, incumpla sus deberes y funciones, infrinja la normativa técnica aplicable o el régimen de prohibiciones vigente; todo sin perjuicio de las responsabilidades que se le puedan imputar civil y penalmente.
+Las faltas serán las determinadas y calificadas siguiendo las normas y procedimientos establecidos por la Universidad para su personal, salvo en lo que se refiere a la suspensión o remoción de las personas que fungen en los cargos de contraloría o subcontraloría, cuyo trámite se establece en este reglamento y en las directrices o lineamientos que al efecto disponga de la Contraloría General de la República.

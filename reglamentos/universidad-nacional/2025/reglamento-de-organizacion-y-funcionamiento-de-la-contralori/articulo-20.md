@@ -1,0 +1,10 @@
+Artículo 20. Funciones de quien ejerce la subcontraloría
+Las anteriores funciones se podrán delegar por parte de quien ejerza la contraloría, cuando así lo estime conveniente u oportuno, a quien ejerza la subcontraloría. Además, sin perjuicio de otras funciones establecidas en la normativa nacional o institucional, son funciones de quien ejerza la subcontraloría:
+a) Participar en la planificación, organización, dirección, coordinación, comunicación y control de las actividades que realiza la Contraloría Universitaria.
+b) Asesorar, advertir y auditar por designación y bajo la orientación de quien ejerza la contraloría en materia de su competencia.
+c) Mantener, en conjunto con la persona superior jerárquica de la Contraloría Universitaria, debidamente actualizado el Reglamento de Organización y Funcionamiento de la Contraloría de la Universidad Nacional, la planificación estratégica, las principales políticas y procedimientos técnicos necesarios para cumplir sus competencias y asegurar la calidad de los servicios.
+d) Colaborar en la gestión de las plazas vacantes y en la autorización de los movimientos de personal de la Contraloría Universitaria.
+e) Participar en la elaboración y presentación del plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República.
+f) Autorizar, por encargo de la persona superior jerárquica de la Contraloría Universitaria, la apertura o cierre de los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio de la Contraloría Universitaria, sean necesarios para el fortalecimiento del sistema de control interno.
+g) Colaborar en la cautela para que el personal de la Contraloría Universitaria, en el ejercicio de sus competencias, cumpla con la normativa jurídica y técnica pertinente, así como con las políticas, los procedimientos, las prácticas y demás disposiciones administrativas que le sean aplicables.
+h) Sustituir a quien ejerza la contraloría en sus ausencias conforme lo regulado al efecto en este reglamento.

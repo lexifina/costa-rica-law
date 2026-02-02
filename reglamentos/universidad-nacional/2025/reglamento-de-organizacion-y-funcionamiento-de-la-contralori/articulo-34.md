@@ -1,0 +1,2 @@
+Artículo 34. Comunicación de resultados con eventuales responsabilidades
+Las relaciones de hechos, que se deriven de evaluaciones o análisis donde se determinen eventuales responsabilidades de tipo administrativo, civil o penal, se remitirán de manera confidencial y aparte de los informes de control interno u otros hallazgos de auditoría y, cuando corresponda, estarán acompañadas del expediente respectivo a la administración activa, para que esta proceda conforme a las competencias y responsabilidades conferidas en la normativa vigente.

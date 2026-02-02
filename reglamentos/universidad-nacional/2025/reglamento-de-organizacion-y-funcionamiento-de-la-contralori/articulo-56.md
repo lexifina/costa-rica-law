@@ -1,0 +1,2 @@
+Artículo 56. Otras regulaciones internas
+Quien ejerce la contraloría podrá emitir disposiciones a través de circulares, lineamientos, instrucciones, instructivos o procedimientos internos, con el propósito de definir, especificar, detallar y adicionar lo dispuesto en este Reglamento, siempre y cuando no se contravenga lo establecido en las leyes y demás normativa aplicable a las auditorías internas y lo dispuesto sobre la emisión de disposiciones normativas en la Universidad Nacional.

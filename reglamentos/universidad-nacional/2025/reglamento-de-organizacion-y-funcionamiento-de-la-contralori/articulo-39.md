@@ -1,0 +1,2 @@
+Artículo 39. Comunicación de implementación de disposiciones derivadas de recomendaciones de auditoría
+Para facilitar el seguimiento de las disposiciones administrativas derivadas de recomendaciones de auditoría, la instancia y el miembro del funcionariado correspondiente deberá referirse formalmente sobre su efectiva puesta en ejecución, para lo cual se debe atender lo normado en el Reglamento para el Trámite de Informes de Auditoría y Seguimiento de Disposiciones Administrativas.

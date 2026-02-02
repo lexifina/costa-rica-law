@@ -1,0 +1,2 @@
+Artículo 9. Estructura organizativa
+La estructura organizativa de la Contraloría Universitaria es dispuesta por la persona que posee el cargo de contralor y debe ser concordante con su razón de ser y con la normativa que regula la Universidad Nacional, a efecto de garantizar, entre otros, una administración eficaz, eficiente y económica de los recursos que le son asignados para el desarrollo de sus funciones y servicio público, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.

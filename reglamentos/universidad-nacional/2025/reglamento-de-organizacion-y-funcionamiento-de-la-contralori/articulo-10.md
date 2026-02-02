@@ -1,0 +1,2 @@
+Artículo 10. Asignación de recursos
+La Universidad dotará a la Contraloría Universitaria de los recursos humanos, materiales, tecnológicos, de transporte, asesoría técnica o legal, formación y capacitación profesional y otros necesarios y suficientes, conforme lo establece la Ley n.° 8292, Ley General de Control Interno, y la disponibilidad presupuestaria institucional, para dichos efectos se le dará a la Contraloría Universitaria una categoría programática para la asignación y disposición de sus recursos.

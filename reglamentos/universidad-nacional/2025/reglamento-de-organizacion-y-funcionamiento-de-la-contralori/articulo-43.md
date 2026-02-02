@@ -1,0 +1,2 @@
+Artículo 43. Valoración de admisibilidad
+La admisibilidad de las comunicaciones sobre presuntos hechos irregulares presentadas ante la Contraloría Universitaria, o de las que cualquier otro medio ponga en conocimiento de esta instancia, se valorará conforme lo establecido en este Reglamento, los lineamientos que al respecto dicte la Contraloría General de la República y atendiendo los principios de legalidad, objetividad, independencia, celeridad, oficiosidad y eficacia.

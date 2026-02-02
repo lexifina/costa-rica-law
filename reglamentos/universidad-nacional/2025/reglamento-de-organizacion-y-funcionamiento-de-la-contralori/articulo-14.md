@@ -1,0 +1,2 @@
+Artículo 14. Control y administración de impedimentos del personal
+Quien ejerza la contraloría debe establecer medidas para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o situaciones que pongan en duda o peligro (de hecho, o de apariencia) la objetividad, imparcialidad e independencia de la Contraloría Universitaria. Competerá a cada superior jerárquico inmediato de la Contraloría Universitaria controlar las situaciones de impedimento del personal a su cargo.

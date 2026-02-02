@@ -1,0 +1,14 @@
+UNIVERSIDAD NACIONAL
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA
+CONTRALORÍA UNIVERSITARIA DE LA UNIVERSIDAD NACIONAL
+PRESENTACIÓN
+Este reglamento tiene como propósito dotar a la Contraloría Universitaria de una base normativa actualizada que le facilite el ejercicio independiente, sistemático y posterior de las funciones de auditoría y preventivas que contribuyan al fortalecimiento de los mecanismos de mejoramiento continuo y de evaluación necesarios que garanticen razonablemente el uso adecuado de los recursos manejados por la institución con la finalidad de respaldar y fortalecer los intereses institucionales y la autonomía que la Universidad Nacional tiene por mandato constitucional. La Contraloría Universitaria, así denominada por el Estatuto Orgánico de la Universidad Nacional, para todos los efectos tiene las mismas funciones, atribuciones, competencias y responsabilidades que una Auditoría Interna, según la Ley n.º 8292, Ley General de Control Interno.
+Este cuerpo normativo define la naturaleza técnica especializada de la Contraloría Universitaria y su competencia; garantiza y regula su acción en las áreas medulares del quehacer institucional mediante las auditorías operativa, financiera y de carácter especial, y viabiliza con ello la evaluación posterior, independiente y objetiva de los procesos, actividades, procedimientos, controles y lineamientos que le compete a la administración universitaria diseñar, implementar, actualizar, ejecutar, mejorar, dar seguimiento y rendir cuentas de su eficiencia y eficacia.
+A su vez, este instrumento reglamentario tiene cómo propósitos garantizar el máximo aprovechamiento de las funciones de la Contraloría Universitaria; actualizar su organización funcional, normar sus competencias, deberes, potestades y facilidades; estipular requisitos para la realización de la comunicación de resultados; incluir mecanismos, complementarios a la reglamentación vigente, para procurar la oportuna implementación de las disposiciones administrativas derivadas de recomendaciones de auditoría como medio de mejoramiento de los procesos universitarios; y enfatizar en el control como proceso continuo, de competencia y responsabilidad de la administración universitaria, para garantizar que las operaciones se ejecuten conforme lo planeado y acatando la normativa nacional e institucional vigente y aplicable.
+TÍTULO I
+SOBRE LA ORGANIZACIÓN DE LA CONTRALORÍA UNIVERSITARIA
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1. Ámbito de aplicación
+Este reglamento es de carácter obligatorio para todo el funcionariado de la Contraloría Universitaria y, en lo que resulte aplicable, para otros miembros del funcionariado que conforman la administración activa de la Universidad Nacional, así como aquellas personas o entes que con ocasión de la legislación nacional estén facultados para custodiar o administrar fondos públicos de la Universidad Nacional.
+Modificado con oficio UNA-SCU-ACUE-431-2025

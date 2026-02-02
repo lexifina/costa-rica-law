@@ -1,0 +1,2 @@
+Artículo 50. Seguimiento
+La Contraloría Universitaria, de acuerdo con sus procedimientos, a juicio, criterio e importancia relativa, determinará los casos en que dará seguimiento a los presuntos hechos irregulares que remita o traslade a instancias de la administración activa internas o a instancias externas, como parte del ejercicio de su potestad de monitorear el estado y resultado de las acciones adoptadas por la instancia correspondiente.
