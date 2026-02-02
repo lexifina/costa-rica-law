@@ -1,19 +1,27 @@
-Artículo 10: Traslado de Residuos sólidos ordinarios, distancias y casos excepcionales.
-El traslado de residuos sólidos ordinarios debe cumplir simultáneamente con dos condiciones fundamentales:
-1. La gestión de los residuos sólidos ordinarios debe realizarse dentro de la región correspondiente, conforme a las delimitaciones establecidas por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), según lo dispuesto en el artículo 4 del presente reglamento, exceptuando aquellos casos que se acojan a lo establecido en el artículo 8 del presente reglamento.
-2. Cuando sea necesario trasladar residuos sólidos ordinarios fuera del territorio municipal donde se generan para tratamiento o disposición final, la distancia hacia los Parques Ambientales no debe exceder los 80 kilómetros desde el punto de generación más lejano. En los casos en que esta distancia sea excedida, será obligatorio el uso de Estaciones de Transferencia para optimizar el transporte, garantizando una operación eficiente dentro de la misma región.
-Las Estaciones de Transferencia: deben ubicarse estratégicamente dentro del territorio de la municipalidad generadora o, en su defecto, dentro de los territorios de las municipalidades que formen parte de un convenio intermunicipal, respetando un radio de influencia de hasta 45 kilómetros. Estas instalaciones deben contar con la infraestructura necesaria para garantizar una operación logística eficiente, asegurando la protección del ambiente y la salud pública, conforme a lo dispuesto en el capítulo XI "De las estaciones de transferencia" del Decreto Ejecutivo N° 36093-S, Reglamento sobre el Manejo de Residuos Sólidos Ordinarios, publicado el 16 de agosto de 2010. Asimismo, deben implementarse estrategias para prevenir la congestión vial y optimizar el flujo de transporte.
-Situaciones de excepción: En caso de requerir trasladarse a otra región debido a que las infraestructuras se encuentren en desarrollo, mantenimiento o cuando otra región cuente con tecnologías más avanzadas o eficientes aprobadas, se debe presentar ante la Dirección Regional de Rectoría de la Salud donde se ubique el cantón para su respectiva revisión la siguiente información:
-a. Presentar un informe técnico detallado que explique las razones de la excepción, especificando si es por:
-. Desarrollo de infraestructura en la región original.
-. Labores de mantenimiento que obliguen a detener las operaciones en los sitios de tratamiento o disposición final,
-. Situación excepcional (por ejemplo, desastres naturales, emergencias sanitarias, mantenimientos).
-. Disponibilidad de tecnologías avanzadas en otra región.
-b. Incluir un análisis comparativo de las capacidades tecnológicas entre las regiones involucradas, cuando existan tecnologías más avanzadas o eficientes.
-c. Destino propuesto para tratamiento, aprovechamiento o disposición final.
-d. Evidencia de que el sitio receptor cumple las regulaciones nacionales.
-e. Diseñar un plan que incluya:
-. Estrategias para la gestión de los residuos sólidos ordinarios durante el periodo de excepción.
-. Cronograma detallado de las actividades de traslado.
-. Mecanismos para minimizar impactos ambientales y de salud pública.
-Estas excepciones tendrán un plazo máximo de 1 año, a partir de la entrada en vigencia del presente reglamento, plazo durante el cual, cada región debe trabajar en el desarrollo de su infraestructura.
+Artículo 10º- Excepciones especiales por Condiciones Geográficas, Topográficas y de Infraestructura Vial. En los casos en que se determine que, por razones de condiciones geográficas adversas, topografía irregular e infraestructura vial insuficiente o inexistente y que el traslado dentro de su propia región implique distancias significativamente mayores y, por ende, un mayor impacto en el transporte de los residuos, se podrán autorizar excepciones debidamente justificadas.
+1) Criterios de excepción:
+Se considera procedente la excepción cuando ocurran una o más de las siguientes condiciones:
+a) Condiciones geográficas adversas, tales como presencia de ríos, mar, zonas de difícil acceso o áreas protegidas que impidan el tránsito eficiente de vehículos recolectores o de transporte de residuos.
+b) Infraestructura vial insuficiente o inexistente, que obligue a utilizar rutas alternas que excedan los 80 kilómetros desde el punto de generación más lejano hasta el Parque Ambiental con disposición final más cercano, o que impidan la utilización de estaciones de transferencia dentro del radio de 45 kilómetros. Según lo establecido en el artículo 9 del presente Reglamento.
+Las municipalidades que estén afectadas por alguna de las condiciones descritas en los incisos a) y b) deberán cumplir con los siguientes requisitos:
+2) Procedimiento para la solicitud de excepción especial.
+La municipalidad interesada debe presentar ante la Dirección Regional de Rectoría de la Salud correspondiente, una solicitud formal acompañada de los requisitos documentales del presente artículo.
+3) Requisitos documentales.
+3.1 Informe técnico emitido por profesional competente (ingeniero civil, topógrafo o geógrafo), acompañado de planos y evidencia cartográfica, que demuestre las limitaciones geográficas, de infraestructura o logísticas, incluyendo el análisis de ubicación geográfica del cantón o región, identificando factores que condicionen el transporte de residuos, que justifique la imposibilidad de cumplir con los radios establecidos en el artículo 9 del presente reglamento.
+3.2 Plan Municipal de Gestión Integral de Residuos Sólidos (PMGIRS) vigente, que incluya su respectivo estudio de caracterización de residuos, identificando tipos, volúmenes y frecuencia de generación, como base para definir rutas óptimas y necesidades logísticas, que incluya una propuesta técnica de rutas de acceso y distancias reales, acompañado de un plan logístico y de transporte que detalle rutas, frecuencias y mecanismos de monitoreo para asegurar la trazabilidad y minimizar el impacto ambiental del traslado.
+3.3 El PMGIRS debe contemplar metas de recolección separada de residuos valorizables que vayan en aumento de un 5% anual. Incluir también las metas de recolección selectiva y valorización de residuos orgánicos, según el ANEXO 1 RECOLECCIÓN Y TRATAMIENTO DE RESIDUOS ORGÁNICOS del Decreto Ejecutivo Nº 36093-S, Reglamento Sobre el Manejo de Residuos Sólidos Ordinarios, del 15 de julio del 2010.
+3.4 Propuesta y análisis de alternativas que podrá incluir convenios intermunicipales, uso de tecnologías disponibles en otras regiones o estrategias logísticas, demostrando que la opción propuesta es la más viable en términos de costos y eficiencia operativa. Este análisis deberá incluir:
+i. Proyección de volúmenes de residuos a trasladar, considerando la generación actual y futura en la región de origen.
+ii. Acciones de reducción y valorización implementadas antes de la disposición final, detallando su impacto en la minimización de residuos transportados.
+iii. Identificación de impactos potenciales y medidas de mitigación tanto en la zona de origen como en la de destino.
+3.5 Informe técnico que analice los efectos del transporte prolongado de residuos sobre el entorno, incluyendo emisiones de CO2, riesgos de derrames, congestión vial y afectación a comunidades vulnerables.
+4) Revisión y aprobación:
+La Dirección Regional de Rectoría de la Salud debe emitir resolución fundamentada en un plazo de diez días naturales. En caso de aprobación, se establecerán condiciones específicas de fiscalización y seguimiento técnico por parte del Área Rectora de Salud correspondiente.
+5) Vigencia y control:
+Las excepciones que se otorguen tendrán una vigencia de cinco años, prorrogables por periodos iguales. Para solicitar la prórroga correspondiente, la municipalidad deberá presentar los requisitos establecidos en el inciso 3 del presente artículo. El Ministerio de Salud realizará la evaluación técnica respectiva y resolverá sobre la procedencia de la prórroga en un plazo máximo de diez días naturales.
+La municipalidad respectiva deberá remitir al Ministerio de Salud informes anuales que den cuenta del cumplimiento de las condiciones bajo las cuales se concedió la excepción. El Ministerio de Salud verificará que dichas condiciones se mantengan; en caso contrario, procederá a revocar la resolución correspondiente o, en su defecto, no otorgará una nueva prórroga.
+6) Medidas administrativas:
+El incumplimiento, por parte de la municipalidad beneficiaria, de cualquiera de las condiciones establecidas en la autorización de excepción, incluyendo la no presentación de los informes anuales o la falta de avances comprobables en la implementación de los compromisos adquiridos y Planes Municipales de Gestión de Residuos vigentes, dará lugar a la revocatoria inmediata de la excepción otorgada.
+Adicionalmente, la municipalidad quedará sujeta a las sanciones administrativas según los artículos 378 y 378 bis de la Ley General de Salud, sin perjuicio de las responsabilidades civiles o penales que correspondan.
+La Dirección Regional de Rectoría de la Salud deberá dar aviso formal en un plazo de 10 días naturales a la Contraloría General de la República, sobre la revocatoria de la excepción y los motivos.
+(Así reformado por el artículo 1° de decreto ejecutivo N° 45507 del 2° de febrero de 2026)

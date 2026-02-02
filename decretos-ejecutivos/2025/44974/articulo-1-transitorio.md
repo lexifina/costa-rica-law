@@ -1,0 +1,2 @@
+Transitorio 1: Declaración de Infraestructura para Tratamiento de Residuos Orgánicos. Los entes generadores (agroindustriales, pecuarios, agrícolas comercios y condominios que procesen sus residuos in situ) que dispongan de infraestructura para tratamiento de residuos orgánicos deben presentar en un plazo de 3 meses, a partir de la presente reforma, la declaración de infraestructura utilizada según Anexo 1 del presente reglamento.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 45507 del 2° de febrero de 2026)

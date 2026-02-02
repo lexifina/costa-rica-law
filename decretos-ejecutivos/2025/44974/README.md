@@ -14,3 +14,4 @@ Reglamento para la gestión regionalizada de residuos sólidos, ordinarios y org
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-28 | la propia norma |
+| 2 | 2026-02-02 | Decreto Ejecutivo 45507 (2026-02-02) |
