@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento contiene disposiciones relacionadas con la metrología, la acreditación y la normalización, regulados por la Ley N° 10473, Ley del Sistema Nacional para la Calidad.

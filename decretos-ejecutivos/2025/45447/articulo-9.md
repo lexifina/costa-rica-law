@@ -1,0 +1,2 @@
+Artículo 9º-De la responsabilidad de los instrumentos de medida reconocidos como Patrón Nacional de Medida. La custodia y mantenimiento de los patrones nacionales de medida estarán bajo la responsabilidad del Lacomet y de los Laboratorios Designados.
+Todo patrón nacional debe contar con trazabilidad metrológica directa o indirectamente a patrones primarios que reproduzcan aquella unidad de medida reconocida y aceptada por la Conferencia General de Pesas y Medidas (CGPM).

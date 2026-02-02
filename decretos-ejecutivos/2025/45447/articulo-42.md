@@ -1,0 +1,1 @@
+Artículo 42º-Comisión de Acreditación. La Comisión de Acreditación está conformada por tres miembros nombrados por la Junta Directiva, de conformidad con el artículo 29 de la Ley. Sus funciones se realizarán de acuerdo con lo establecido en el artículo 30 de dicha Ley.

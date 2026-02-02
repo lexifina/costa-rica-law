@@ -1,0 +1,2 @@
+Artículo 26º-Del quórum. El quórum para que la Comisión de Metrología pueda sesionar válidamente será el de la mayoría absoluta de sus miembros propietarios o suplentes en representación del propietario.
+De no haber quórum, la Comisión de Metrología podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos urgentes en los cuales se podrá sesionar transcurridos treinta minutos de su señalamiento, y para ello será suficiente asistencia de la tercera parte de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 39º-Del nombramiento de la Secretaria o Secretario de la Junta Directiva. Conforme a lo establecido en el artículo 50 de la Ley N°6227, la Junta Directiva procederá a nombrar un secretario o secretaria entre sus miembros. En caso de ausencia de éste, se deberá nombrar un secretario ad hoc.

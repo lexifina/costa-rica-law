@@ -1,0 +1,1 @@
+Artículo 72º-Auditorías internacionales. De conformidad con la Ley, el ENN, el ECA y el Lacomet deberán someterse a evaluaciones o auditorías internacionales al menos cada tres años, ante los entes internacionales competentes, para asegurar que los servicios que brinden se ajusten a los estándares internacionales.

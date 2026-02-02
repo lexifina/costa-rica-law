@@ -1,0 +1,1 @@
+Artículo 12º-De la asignación de recursos para Lacomet. El Lacomet, de conformidad con el artículo 22 de la Ley, podrá recibir donaciones de materiales y equipamiento, así como préstamos de personal para el logro de objetivos de interés público y el fortalecimiento de la Estructura Metrológica Nacional, dentro del marco del bloque de legalidad.

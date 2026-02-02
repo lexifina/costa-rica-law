@@ -1,0 +1,1 @@
+Artículo 33º-Del procedimiento de acreditación. La acreditación se debe realizar según los procedimientos diseñados por el ECA con base en los requisitos establecidos por las normas nacionales e internacionales aplicables y vigentes.

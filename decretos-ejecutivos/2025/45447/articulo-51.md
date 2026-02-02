@@ -1,0 +1,1 @@
+Artículo 51º-Conformación. Cada Secretaría de Acreditación es coordinada por el secretario (a) de acreditación, y estará conformada por el personal que sea necesario para la gestión de las funciones y responsabilidades correspondientes.

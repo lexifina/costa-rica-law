@@ -1,0 +1,2 @@
+Artículo 19°-De la Comisión de Metrología. La Comisión de Metrología es el máximo Órgano Técnico del Lacomet. Su conformación y funciones están establecidas en los artículos 16 y 17 de la Ley. Sus miembros deben demostrar experiencia y formación universitaria en las áreas de metrología, ingeniería o ciencias exactas y naturales.
+Para cada miembro titular se designará un suplente. Los suplentes solo asistirán en caso de ausencia de su respectivo titular. Para estos casos, el miembro suplente tendrá voz y voto.

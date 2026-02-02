@@ -1,0 +1,2 @@
+Artículo 13º-De la colaboración con el Conart. El Lacomet debe colaborar con la Secretaría Técnica de Conart, en la definición de los asuntos metrológicos y las especificaciones técnicas que se establezcan dentro de los reglamentos técnicos en lo pertinente a las mediciones.
+Para lo anterior, el Conart a través de su secretaria técnica debe presentar por escrito su consulta, para que el Lacomet emita el criterio técnico sobre el particular en el plazo establecido en el inciso c) del artículo 262 de la Ley General de Administración Pública.

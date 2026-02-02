@@ -1,0 +1,2 @@
+Artículo 15º-Del reconocimiento de unidades de verificación metrológica. Las instituciones públicas o privadas, físicas o jurídicas, que sean reconocidas como unidades de verificación metrológica por el Lacomet, conforme lo dispuesto en el inciso l) del artículo 14 de la Ley, deben cumplir con los requisitos establecidos en el respectivo reglamento técnico.
+Las unidades de verificación metrológica reconocidas deben informar mensualmente al Lacomet las verificaciones realizadas y las conclusiones de los resultados obtenidos.

@@ -1,0 +1,1 @@
+Artículo 32º-De las funciones. El ECA ejercerá las funciones establecidas en el artículo 25 de la Ley, para lo que debe establecer, revisar y modificar cuando sea requerido, y aplicar los procedimientos de acreditación correspondientes.

@@ -1,0 +1,4 @@
+Artículo 14°.-De la evaluación de tipo. El Lacomet debe realizar la evaluación de tipo de aquellos instrumentos de medida que estén sujetos al control metrológico legal. La evaluación de instrumentos de medida se realizará mediante una de las siguientes formas:
+a) Realización de ensayos y pruebas objetivas basado en las recomendaciones internacionales y los criterios técnicos correspondientes, establecidos en los reglamentos técnicos vigentes.
+b) Homologación de certificados de evaluación de tipo emitidos por organismos de evaluación de la conformidad con actividades acreditadas.
+Los procedimientos de evaluación de la conformidad, los registros de marcado de la conformidad, las pruebas documentales, y demás requisitos serán definidos en los reglamentos técnicos correspondientes a cada instrumento.

@@ -1,0 +1,4 @@
+Artículo 28º-De las actas. De cada sesión se levantará un acta sucinta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
+Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por la totalidad presentes de los miembros.
+Las actas serán firmadas por el presidente de la Comisión de Metrología, el secretario y por aquellos miembros que hubieren hecho constar su voto disidente.
+Con el fin de garantizar la transparencia y el acceso a la información pública, las actas de las sesiones de la Comisión de Metrología, una vez aprobadas y firmadas, estarán disponibles para consulta pública a través del sitio web oficial del Lacomet.

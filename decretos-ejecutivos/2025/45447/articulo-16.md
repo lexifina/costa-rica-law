@@ -1,0 +1,1 @@
+Artículo 16º-De los laboratorios designados. Los laboratorios designados podrán colaborar con el Estado en el cumplimiento de los objetivos del SNC y coadyuvar con lo dispuesto en los artículos 32 inciso c), 33 inciso a) y 34 incisos b), m) y n) de la Ley N°7472 y lo establecido en los reglamentos técnicos vigentes; para lo cual podrán suscribir convenios de cooperación.

@@ -1,0 +1,3 @@
+Artículo 8º-De los patrones nacionales de medida. El MEIC, para garantizar la trazabilidad metrológica y la uniformidad de las mediciones en el país, podrá declarar mediante decreto ejecutivo el Patrón Nacional de Medida, los patrones de medida custodiados o realizados por el Lacomet y los Laboratorios Designados.
+Los patrones declarados como Patrón Nacional de Medida cuentan con superioridad jerárquica metrológica sobre cualquier otro patrón o instrumento de medida en el país para la magnitud correspondiente.
+El Lacomet debe poner a disposición de los administrados en su sitio web oficial una lista de los patrones nacionales de medida reconocidos y actualizarla regularmente.

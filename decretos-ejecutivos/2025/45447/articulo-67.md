@@ -1,0 +1,1 @@
+Artículo 67º-Elaboración de normas técnicas nacionales. El ENN deberá tener procedimientos documentados sobre el desarrollo de normas técnicas, para asegurarse el cumplimiento de las Buenas Prácticas de Normalización, establecidas en el AOTC.

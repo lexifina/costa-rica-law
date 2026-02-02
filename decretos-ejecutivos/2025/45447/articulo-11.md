@@ -1,0 +1,2 @@
+Artículo 11º-De la venta de servicios metrológicos. Los servicios metrológicos del Lacomet corresponden, entre otros relacionados, con las funciones descritas en el artículo 14 de la Ley, incluyendo los servicios de calibración, ensayo, inspección, verificación, medición, producción de materiales de referencia y ensayos de aptitud.
+Los recursos generados producto de la venta de servicios metrológicos deben ser utilizados conforme con lo indicado en los artículos 20 y 21 de la Ley.
