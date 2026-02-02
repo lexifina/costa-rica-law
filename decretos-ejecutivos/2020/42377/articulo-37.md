@@ -1,1 +1,0 @@
-Artículo 37.- Cada institución parauniversitaria establecerá las normas de clasificación y selección del personal, garantizando la observancia de lo dispuesto en el artículo 36 del presente reglamento.

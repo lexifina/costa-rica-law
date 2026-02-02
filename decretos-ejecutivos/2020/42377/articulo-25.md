@@ -1,1 +1,0 @@
-Artículo 25.- El Presidente del Consejo Directivo será nombrado en el seno del mismo consejo por el término de un año y tomará posesión de su cargo el primer día del mes siguiente a su elección. El Presidente podrá ser reelecto.
