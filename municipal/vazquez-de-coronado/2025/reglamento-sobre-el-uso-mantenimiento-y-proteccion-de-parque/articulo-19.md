@@ -1,0 +1,1 @@
+Artículo 19.- Sobre la interpretación auténtica. Cualquier disputa relativa a las disposiciones del presente Reglamento, podrá aclararse por el Concejo Municipal, órgano competente para interpretar la norma.

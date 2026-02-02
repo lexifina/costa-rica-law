@@ -1,0 +1,1 @@
+Artículo 8.-Acciones de la autoridad: El personal designado por la Municipalidad, incluyendo vigilantes o guardaparques, podrá elaborar informes sobre infracciones, que serán remitidos a la Policía Municipal. Esta última tendrá la competencia exclusiva para ejecutar sanciones o desalojos.

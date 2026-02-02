@@ -1,0 +1,1 @@
+Artículo 7.-Autoridad responsable: La fiscalización corresponde a la policía municipal, quiénes realizarán los informes respectivos ante los incumplimientos detectados a las disposiciones del presente Reglamento, mediante un informe el cual será remitido a la Alcaldía Municipal para el trámite respectivo.
