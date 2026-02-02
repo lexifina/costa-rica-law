@@ -1,0 +1,1 @@
+Artículo 16. Renuncia o despido en período de retribución: Si la persona trabajadora renunciara, fuese despedida sin responsabilidad patronal, o suspendida, deberá cancelar el monto proporcional al tiempo no retribuido otorgado, lo cual podrá realizar voluntariamente o bien mediante el debido proceso de cobro que establezca RECOPE.

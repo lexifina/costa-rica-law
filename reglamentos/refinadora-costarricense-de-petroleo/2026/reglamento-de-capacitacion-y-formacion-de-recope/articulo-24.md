@@ -1,0 +1,3 @@
+Artículo 24. Aprobación de la contratación de actividades de capacitación:
+Corresponde a la Jefatura del Departamento Desarrollo de Capital Humano, dictar el acto final que adjudique, declare infructuoso o desierto el procedimiento de contratación de las actividades de capacitación, por la cuantía correspondiente a un 20% del límite económico superior de la licitación reducida, definido en el régimen diferenciado.
+Las contrataciones que superen el límite establecido para la jefatura del Departamento Desarrollo de Capital Humano deberán ser aprobadas por quien ostente el puesto de Gerente (a) de Administración y Finanzas.

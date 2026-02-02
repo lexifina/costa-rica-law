@@ -1,0 +1,3 @@
+Artículo 12. Acciones de capacitación al exterior: La solicitud de una capacitación al exterior, debe realizarse formalmente, mediante oficio desde la dependencia beneficiaria con visto bueno de la gerencia de área.
+La persona participante de la actividad de capacitación en el exterior debe de rendir el informe correspondiente al Departamento Desarrollo de Capital Humano, incluyendo copia del material que le haya sido entregado y que se considere de interés para ella, con la aprobación de la jefatura inmediata.
+En caso de las personas que ostentan el cargo de Presidente (a), integrante de Junta Directiva, Auditor(a) General y Subauditor(a), este informe deberá ser presentado ante la Junta Directiva.

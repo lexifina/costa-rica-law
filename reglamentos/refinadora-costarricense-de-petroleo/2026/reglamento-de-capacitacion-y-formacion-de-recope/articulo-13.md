@@ -1,0 +1,3 @@
+Artículo 13. Horario de las acciones: En atención a su naturaleza, a las necesidades de la Empresa y a la oferta del mercado, las acciones de capacitación y formación podrán ser organizadas dentro o fuera de la jornada laboral, tratando preferiblemente de organizarlas dentro de la misma.
+El tiempo dedicado a acciones de capacitación o formación fuera de la jornada laboral, no dará derecho al pago de horas extras, ni al pago de doble jornada laboral en forma total o parcial.
+En caso de que la actividad de capacitación o formación sea impartida por la persona o empresa proveedora fuera de horas laborales, la persona trabajadora deberá de firmar un consentimiento informado de aceptación del horario en que se estará impartiendo la actividad de capacitación.

@@ -1,0 +1,8 @@
+Artículo 17. Justificación para reprobación de acciones de capacitación y formación: Las justificaciones que se aceptan para eximir de manera directa la reprobación de una acción de capacitación son las siguientes:
+A. Incapacidad por enfermedad extendida por médico de la Empresa o de la CCSS.
+B. Fallecimiento de un familiar en primer grado de consanguinidad o afinidad.
+C. Solicitud de la jefatura para atender asuntos laborales impredecibles y de fuerza mayor que impida la asistencia total o parcial en el curso o la aprobación de éste.
+D. Situación impredecible de caso fortuito o fuerza mayor que le impida la asistencia a la actividad de capacitación, la cual deberá acreditarse dentro de los cinco días hábiles siguientes al hecho o cese de sus efectos, ante la jefatura directa y el Departamento Desarrollo de Capital Humano.
+Una vez que el Departamento Desarrollo de Capital Humano cuente con el documento comprobatorio correspondiente y la solicitud de justificación por parte de la persona trabajadora, se procederá a realizar un análisis de toda la documentación presentada y la validez de ésta.
+Dicho análisis debe de considerar las fechas que comprende la justificación presentada y su relación con las fechas en la que se imparte la capacitación, con el objetivo de determinar el impacto que puede generar la ausencia, así como los parámetros de asistencia permitidos por la persona o empresa proveedora y las posibilidades de reprogramación brindadas para la obtención del conocimiento pendiente.
+Por lo que una vez terminado el análisis se dará inicio al debido proceso de cobro en caso de que corresponda.

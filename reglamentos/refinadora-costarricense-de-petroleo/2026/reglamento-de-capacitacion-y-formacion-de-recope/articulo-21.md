@@ -1,0 +1,2 @@
+Artículo 21. Elaboración y aprobación del Plan de Capacitación por Puesto: El Plan de Capacitación por Puesto será coordinado por el Departamento Desarrollo de Capital Humano, según los requerimientos que determinen las jefaturas de la Empresa para el personal a su cargo. Dichos requerimientos deberán estar en concordancia con el Plan Estratégico Empresarial y el Manual Descriptivo de Puestos.
+El Plan de Capacitación por Puesto es aprobado por la persona que ostente el puesto de Gerente (a) General, previa revisión de acuerdo con la necesidad empresarial.
