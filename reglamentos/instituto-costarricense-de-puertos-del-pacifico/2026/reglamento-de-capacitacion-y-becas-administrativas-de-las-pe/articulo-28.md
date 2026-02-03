@@ -1,0 +1,1 @@
+Artículo 28.-De la reincorporación por estudios en el exterior. Tratándose de estudios en el exterior, la reincorporación a las labores institucionales se hará después del término que el servidor público requiera para regresar al país, debidamente comprobado o justificados, el cual no podrá exceder de un término máximo de dos semanas.

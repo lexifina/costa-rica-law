@@ -1,0 +1,1 @@
+Artículo 20.- Beca de organismos internacionales. Cuando la beca provenga de un organismo internacional, el Incop podrá reconocer el gasto de transporte, póliza de viaje, viáticos u otros cuando este no sea reconocido por el organismo y otorgar permiso con goce de salario, pagando el salario a tiempo completo.

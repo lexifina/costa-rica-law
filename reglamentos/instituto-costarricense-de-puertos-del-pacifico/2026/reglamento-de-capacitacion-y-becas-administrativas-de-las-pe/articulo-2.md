@@ -1,0 +1,3 @@
+Artículo 2º-Naturaleza de la actividad de capacitación y formación académica.
+a) Actividad de capacitación: Los contenidos del Programa Anual de Capacitación deberán estar estrechamente relacionados con las necesidades institucionales y podrán darse a toda persona servidora de Incop que ocupen un puesto en propiedad o de manera interina como personas servidora de Incop.
+b) Actividad de formación académica: Podrá otorgarse beca administrativa para formación académica que esté relacionada con la actividad institucional en sus diferentes áreas a las personas servidoras de Incop que cuenten con nombramiento en propiedad en Incop.

@@ -1,0 +1,1 @@
+Artículo 33.-Del incumplimiento. El incumplimiento total o parcial de lo indicado en el artículo 32, obligará al beneficiario a devolver los salarios y otras sumas giradas por el Incop, durante el disfrute de la beca en forma total, para ello, el reintegro se calculará con el monto total recibido y el tiempo que faltó al servicio obligatorio.

@@ -1,0 +1,1 @@
+Artículo 24.- De las erogaciones por concepto de beca. Las erogaciones se harán de conformidad con el contrato de beca firmado por las partes, el documento formal extendido por el centro educativo que detalla el monto a pagar contra la presentación de factura.

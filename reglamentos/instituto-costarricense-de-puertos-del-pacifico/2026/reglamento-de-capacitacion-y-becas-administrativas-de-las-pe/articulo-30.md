@@ -1,0 +1,1 @@
+Artículo 30.-Del contenido del contrato. Todo contrato, deberá especificar claramente las partes, su objetivo, condiciones, duración de acuerdo al plan de estudios, estimación del monto, de acuerdo al documento emitido por el centro educativo y demás circunstancias especiales, especificando lo más detalladamente posible las obligaciones a que se comprometen las partes.

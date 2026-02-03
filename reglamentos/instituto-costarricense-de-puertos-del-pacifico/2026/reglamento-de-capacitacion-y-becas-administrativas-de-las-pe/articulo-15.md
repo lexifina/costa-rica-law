@@ -1,0 +1,3 @@
+Artículo 15.- De la solicitud de capacitación que no forme parte del Plan de Capacitación aprobado:
+En caso de que surja la necesidad de una capacitación no contemplada en el Plan de capacitaciones, la jefatura de la unidad deberá enviar la solicitud debiendo indicar la justificación a la Dirección inmediata para la revisión respectiva, ésta, valorará y de avalarla la remitirá a la Gerencia General, o la Presidencia Ejecutiva, según la línea de supervisión para que valoren la aprobación.
+En el caso de las capacitaciones que son de aprobación de la Junta Directiva, la jefatura deberá enviarlo a la Gerencia General o Presidencia Ejecutiva según la línea de supervisión inmediata, para que lo eleve a conocimiento y autorización de la Junta Directiva.

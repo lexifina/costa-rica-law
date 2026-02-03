@@ -1,0 +1,1 @@
+Artículo 37.-De las limitaciones. Ningún servidor podrá disfrutar de los beneficios que otorga este Reglamento mientras esté pendiente de cumplimiento algún contrato anterior, salvo casos muy calificados, siendo requisito indispensable el criterio de la Unidad de Capital Humano y la aprobación de la Gerencia General o la Junta Directiva según corresponda.

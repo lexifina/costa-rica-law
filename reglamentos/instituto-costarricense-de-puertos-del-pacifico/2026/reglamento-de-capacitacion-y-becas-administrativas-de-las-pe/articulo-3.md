@@ -1,0 +1,1 @@
+Artículo 3º- De la partida presupuestaria de capacitación y becas administrativas. La jefatura de la Unidad de Capital Humano, será la responsable de estimar el monto a presupuestar para cada año y velar por la ejecución de los recursos en las actividades indicadas.

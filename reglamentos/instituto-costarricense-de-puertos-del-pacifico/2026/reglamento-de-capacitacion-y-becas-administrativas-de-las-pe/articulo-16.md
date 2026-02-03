@@ -1,0 +1,1 @@
+Artículo 16.- Del financiamiento de la actividad de capacitación o becas. Las actividades de capacitación o de becas a ser cubiertos por la institución quedan sujetas a que exista contenido presupuestario.
