@@ -1,0 +1,2 @@
+Artículo 4º-En aplicación del artículo 2 del Reglamento para la Formulación de la División Administrativa Electoral, Decreto del Tribunal Supremo de Elecciones número 06- 2014, el presente decreto ejecutivo rige a partir del día hábil siguiente a la elección del presidente, vicepresidentes y diputados, según las elecciones nacionales programadas para el año 2026.
+Dado en la Presidencia de la República, a los diecinueve días del mes de noviembre de dos mil veinticinco. Publíquese.
