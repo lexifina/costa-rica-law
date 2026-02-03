@@ -14,3 +14,4 @@ Uso obligatorio de la plataforma web LegalSoft desarrollada por el Registro de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-27 | la propia norma |
+| 2 | 2026-02-03 | Directriz 2 (2026-02-03) |
