@@ -1,0 +1,1 @@
+Artículo 2º-Los sobresueldos contenidos en la presente resolución son temporales y por ende no constituyen derecho alguno al servidor y una vez finalizadas las causas que le dieron origen, no dará lugar a reclamos ni indemnizaciones en contra de las Instituciones o del Estado.

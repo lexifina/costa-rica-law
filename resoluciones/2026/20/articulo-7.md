@@ -1,0 +1,3 @@
+Artículo 7º-Los sobresueldos citados en el artículo primero de esta resolución, tienen vigencia durante el curso lectivo de cada año y el pago de éstos corresponde hasta un máximo del 50% (cincuenta por ciento) del salario base al mes de julio del año 2018, de la clase de puesto respectivo.
+Exceptúese de la vigencia consignada en el párrafo anterior, los sobresueldos de las clases de Oficial de Seguridad de Servicio Civil 1 y Auxiliar de Vigilancia de Centro Educativo, cuya vigencia se autoriza desde el 1 de enero hasta el 31 de diciembre de cada año.
+Para el sobresueldo debe considerarse únicamente personas funcionarias a los que se les pague mediante mecanismo de salario compuesto.
