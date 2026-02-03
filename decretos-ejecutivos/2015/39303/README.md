@@ -15,3 +15,4 @@ Reglamento de Seguro Obligatorio para Vehículos Automotores
 | --- | --- | --- |
 | 1 | 2016-01-01 | la propia norma |
 | 2 | 2016-01-01 | Decreto Ejecutivo 39323 (2015-11-18) |
+| 3 | 2026-02-03 | Decreto Ejecutivo 45679 (2026-02-03) |

@@ -1,4 +1,5 @@
-Artículo 34. Diseño del marchamo
-Las entidades aseguradoras deberán acatar el diseño de la calcomanía o del dispositivo el marchamo, las formalidades y características que defina el Ministerio de Obras Públicas y Transportes, mediante el Consejo de Seguridad Vial, de conformidad con la normativa que emita al respecto.
-El Consejo de Seguridad Vial entregará a las aseguradoras el diseño, a más tardar el primer día hábil del mes de marzo del año previo al cobro de los derechos de circulación. La producción correrá a cargo de cada aseguradora.
+Artículo 34. Diseño del marchamo. Las entidades aseguradoras deberán acatar el diseño de la calcomanía o del dispositivo digital o electrónico del marchamo, las formalidades y características que defina el Ministerio de Obras Públicas y Transportes, mediante el Consejo de Seguridad Vial, de conformidad con la normativa que emita al respecto.
+En el caso de la calcomanía, el Consejo de Seguridad Vial entregará a las aseguradoras el diseño, a más tardar el primer día hábil del mes de marzo del año previo al cobro de los derechos de circulación.
+En el caso del dispositivo digital o electrónico, el Consejo de Seguridad Vial aprobará el diseño, el cual se mantendrá vigente durante la vida útil de cada dispositivo, según las indicaciones del fabricante.
 Todos los costos y riesgos relacionados con la confección, producción, medidas de seguridad y entrega del marchamo quedan a cargo de las entidades aseguradoras.
+(Así reformado por el artículo 3° del Reglamento de los incisos b) y c) del artículo 4 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078 del 4 de octubre de 2012, aporbado mediante decreto ejecutivo N° 45679 del 3 de febrero del 2026
