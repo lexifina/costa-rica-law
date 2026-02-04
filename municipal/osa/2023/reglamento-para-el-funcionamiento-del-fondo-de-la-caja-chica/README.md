@@ -14,3 +14,4 @@ Reglamento para el funcionamiento del fondo de la caja chica de la Municipalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-14 | la propia norma |
+| 2 | 2026-02-04 | Reglamento municipal 89 (2026-02-04) |
