@@ -1,3 +1,2 @@
-Artículo 19.-Vigencia
-Rige a partir de su publicación.
-(Así reformado en sesión ordinaria N° 0101-2023 del 13 de setiembre de 2023)
+Artículo 19.-Vigencia. Rige a partir de su publicación.
+(Así reformado mediante sesión ordinaria N° 0014-2026 del 4° de febrero de 2026)
