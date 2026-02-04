@@ -488,6 +488,10 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría Geriátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.8. Psiquiatría de Enlace
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría de Enlace, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así adicionado el inciso 16.21.8) anterior mediante sesión N° 2026-02-04 del 4° de febrero de 2026)
 16.22. Subespecialidades Médicas de Radiología e Imágenes Médicas
 16.22.1. Imágenes de Mamas.
 Requisitos específicos:
