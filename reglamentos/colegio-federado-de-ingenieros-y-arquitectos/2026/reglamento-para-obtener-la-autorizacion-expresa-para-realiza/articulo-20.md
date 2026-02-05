@@ -1,0 +1,1 @@
+Artículo 20.-El CFIA emitirá un certificado con número consecutivo único de Autorización Expresa a los profesionales que la hayan obtenido por aprobación de la Junta Directiva General. Dicho certificado comprobará que el beneficiario ostenta la Autorización Expresa e indicará su periodo de vigencia.

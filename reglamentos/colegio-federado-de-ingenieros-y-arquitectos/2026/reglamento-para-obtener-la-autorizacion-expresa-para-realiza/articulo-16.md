@@ -1,0 +1,7 @@
+Artículo 16.-Además de contar con el perfil profesional establecido en el artículo 3°, para obtener la Autorización Expresa, el profesional solicitante deberá:
+a) Contar con 3 o más años de incorporación al CFIA.
+b) Estar habilitado para el ejercicio profesional de acuerdo con su área de especialidad.
+c) Estar al día con sus obligaciones ante el CFIA.
+d) Aprobar la totalidad de los cursos que integran el Programa de Capacitación.
+Toda la información requerida por la Comisión deberá ser veraz y fidedigna. La inserción de información falsa hará que los profesionales incurran en las faltas establecidas en los artículos 9° y 31º del Código de Ética Profesional, sin perjuicio de las sanciones penales que correspondan. Toda la información y los requisitos deberán presentarse en forma completa; no se admitirán aquellas solicitudes que incumplan con esta disposición. Toda la documentación aportada debe presentarse en idioma español, de lo contrario se deberá presentar traducción oficial. La presentación de la solicitud y los atestados correspondientes no garantiza que el solicitante obtendrá la Autorización Expresa.
+Luego de presentada la gestión, en caso de que la información presentada sea omisa o de alguna forma, no cumpla con lo establecido en este reglamento, se le concederá al interesado, un plazo improrrogable de diez (10) días hábiles para que subsane adicione o aclare lo apercibido. En caso de que no se cumpla con el apercibimiento dentro del plazo, o no se cumpla en forma satisfactoria, la gestión se declarará inadmisible y se ordenará su archivo.

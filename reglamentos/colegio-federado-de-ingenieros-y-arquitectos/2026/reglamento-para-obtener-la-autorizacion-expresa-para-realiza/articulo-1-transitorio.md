@@ -1,0 +1,1 @@
+Transitorio único.-El Colegio de Ingenieros Tecnólogos y el Colegio de Ingenieros Electricistas, Mecánicos e Industriales dispondrán de un plazo de tres meses calendario, contados a partir de la entrada en vigencia de la presente norma, para iniciar la oferta de los cursos comprendidos en el programa de capacitación.

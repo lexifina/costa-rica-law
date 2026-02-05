@@ -1,0 +1,1 @@
+Artículo 21.-La Autorización Expresa tendrá una vigencia de cinco años, contados a partir de la fecha del acuerdo de Junta Directiva General de aprobación de la solicitud presentada por el interesado.

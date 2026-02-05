@@ -1,0 +1,1 @@
+Artículo 4º-Los profesionales y las empresas que cuenten con la Autorización Expresa serán publicados en el sitio web oficial del CFIA, sin perjuicio de que la Junta Directiva General disponga su divulgación por otros medios de comunicación oficiales que estime pertinentes.

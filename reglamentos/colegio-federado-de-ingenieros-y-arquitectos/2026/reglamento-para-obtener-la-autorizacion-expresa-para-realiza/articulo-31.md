@@ -1,0 +1,1 @@
+Artículo 31.-Contra la resolución de la Junta Directiva General que revoque la Autorización Expresa cabrá el recurso de reconsideración, el cual deberá interponerse dentro del plazo de diez días hábiles, contados a partir del día hábil siguiente a su comunicación.

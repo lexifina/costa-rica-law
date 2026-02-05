@@ -1,0 +1,1 @@
+Artículo 5º-Los profesionales y empresas deberán registrar su responsabilidad profesional por los servicios prestados, de conformidad con lo dispuesto en el artículo 53 de la Ley Orgánica del CFIA, Ley N° 3663.

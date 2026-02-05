@@ -1,0 +1,1 @@
+Artículo 28.-Contra la resolución del Departamento de Registro y Documentación que rechace la solicitud de Autorización Expresa cabrá el recurso de apelación ante la Junta Directiva General, el cual deberá interponerse dentro del plazo de tres días hábiles, contados a partir del día hábil siguiente a su comunicación.

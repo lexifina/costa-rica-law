@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la autorización expresa para empresas
+Artículo 25.-Las empresas inscritas en el CFIA que deseen ofrecer sus servicios en las actividades especificadas en el Decreto Ejecutivo N° 44753-MINAE-S deberán presentar su solicitud de Autorización Expresa ante el CFIA, utilizando el formulario que este disponga y adjuntando una personería jurídica con una vigencia no mayor a un mes. Es indispensable que dichas empresas se encuentren debidamente inscritas y habilitadas en el CFIA.
+Las actividades que realicen las empresas que cuenten con la Autorización Expresa solo podrán ejecutarse a través de un profesional que también posea la Autorización Expresa del CFIA y que esté habilitado para el ejercicio profesional. Para efectos de lo anterior, cada empresa deberá rendir declaración jurada ante el CFIA, en la que manifieste expresamente conocer y acatar esta disposición.

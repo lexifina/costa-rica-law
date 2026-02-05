@@ -1,0 +1,1 @@
+Artículo 17.-La documentación presentada por el solicitante para optar por la Autorización Expresa será revisada y analizada por la Comisión, para posteriormente elevar su recomendación sobre los resultados de las solicitudes a la Junta Directiva General.

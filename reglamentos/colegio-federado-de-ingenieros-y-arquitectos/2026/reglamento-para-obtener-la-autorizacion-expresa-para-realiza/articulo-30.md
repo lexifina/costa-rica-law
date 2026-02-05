@@ -1,0 +1,2 @@
+Artículo 30.-Antes de dictar resolución sobre la solicitud de revocatoria de la Autorización Expresa, la Junta Directiva General concederá audiencia escrita a la empresa, otorgando un plazo de diez días hábiles, contados a partir del día hábil siguiente a su comunicación, para presentar alegatos y aportar pruebas.
+Vencido el plazo y recibidos los descargos, la Junta Directiva General procederá al dictado de la resolución que corresponda.

@@ -1,0 +1,5 @@
+Artículo 2º-En el presente reglamento se utilizarán las siguientes abreviaturas, denominaciones y definiciones:
+Autorización Expresa: Acto administrativo emitido por el CFIA, mediante el cual se acredita que un profesional incorporado o una empresa inscrita en dicho Colegio ha cumplido los requisitos establecidos por el CFIA y queda autorizado para la realización y suscripción de las pruebas técnicas, informes de inspección y labores de reparación de las unidades de transporte de combustibles previstas en el Decreto Ejecutivo N° 44753-MINAE-S, mientras la autorización se mantenga vigente.
+CFIA: Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
+Comisión: Comisión Bipartita Permanente sobre Capacitación Profesional en labores de pruebas, inspecciones, reparaciones y evaluaciones de las unidades de transporte de combustible.
+Programa de capacitación: Programa de Capacitación para realizar labores de pruebas, inspecciones, reparaciones y evaluaciones de las unidades de transporte de combustible.

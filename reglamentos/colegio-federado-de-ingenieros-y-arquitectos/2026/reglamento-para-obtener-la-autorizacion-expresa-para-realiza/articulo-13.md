@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre la autorización expresa para profesionales
+Artículo 13.-Para optar por primera vez a la Autorización Expresa, los profesionales interesados deberán aprobar en su totalidad los cursos del Programa de Capacitación, que para tal efecto disponga la Junta Directiva General, conforme a las recomendaciones emitidas por la Comisión. Los cursos que integran dicho Programa serán publicados en el sitio web oficial del CFIA o mediante los medios de difusión que determine la Junta Directiva General.
+El Programa de Capacitación tendrá como finalidad verificar que el profesional incorporado al CFIA ha seguido un proceso válido que compruebe la adquisición de competencias actualizadas para el ejercicio profesional que le permita realizar labores de pruebas, inspecciones, reparaciones y evaluaciones de las unidades de transporte de combustible.

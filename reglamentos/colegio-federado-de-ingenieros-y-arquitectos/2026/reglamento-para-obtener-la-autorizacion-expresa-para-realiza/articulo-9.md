@@ -1,0 +1,2 @@
+Artículo 9º-La Comisión estará integrada en forma bipartita por dos miembros del Colegio de Ingenieros Electricistas, Mecánicos e Industriales (CIEMI) y dos miembros del Colegio de Ingenieros Tecnólogos (CITEC) quienes serán recomendados por sus respectivos Colegios.
+El funcionamiento y nombramiento de la Comisión se regirá por lo dispuesto en el Reglamento Especial para Regular las Comisiones del CFIA.

@@ -1,0 +1,1 @@
+Artículo 18.-La Junta Directiva General emitirá un acuerdo donde le comunicará al profesional, si se aprueba o rechaza la solicitud de la Autorización Expresa. El comunicado de dicho acuerdo le será notificado al profesional a los medios electrónicos que tenga registrados ante el Departamento de Registro y Documentación del CFIA.

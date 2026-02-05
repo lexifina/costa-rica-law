@@ -1,0 +1,1 @@
+Artículo 11.-El Departamento de Registro y Documentación del CFIA será responsable de conocer y conceder la Autorización Expresa a las empresas que realicen las actividades previstas en el Decreto Ejecutivo N° 44753-MINAE-S.
