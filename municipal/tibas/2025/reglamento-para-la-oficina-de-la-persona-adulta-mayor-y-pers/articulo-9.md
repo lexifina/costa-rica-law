@@ -1,0 +1,1 @@
+Artículo 9º-Proceso de selección y reclutamiento. La persona profesional que conforma la OPAMDIS será nombrada según lo establecido en el proceso de selección y reclutamiento del Capítulo V sobre Carrera Administrativa Municipal del Código Municipal, Ley Nº 7794.

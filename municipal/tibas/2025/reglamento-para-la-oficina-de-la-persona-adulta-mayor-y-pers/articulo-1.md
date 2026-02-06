@@ -1,0 +1,27 @@
+MUNICIPALIDAD DE TIBÁS
+El Concejo Municipal de Tibás, en su acuerdo III-3, en su sesión ordinaria Nº 082, celebrada el 25 de noviembre 2025, dispuso lo siguiente:
+Al no recibirse observaciones ni comentarios a la primera publicación del Proyecto de Reglamento para la Oficina de la Persona Adulta Mayor y Persona con Discapacidad (OPAMDIS), dentro del plazo de diez días hábiles otorgado para tales efectos, se somete a votación el siguiente acuerdo:
+Se conoce y se acuerda instruir a la secretaria de Concejo Municipal, proceder con la publicación por segunda vez, de:
+REGLAMENTO PARA REGULAR EL FUNCIONAMIENTO
+Y OPERACIÓN DE LA OFICINA MUNICIPAL
+DE LA PERSONA ADULTA MAYOR
+Y DE LA PERSONA CON DISCAPACIDAD
+DE LA MUNICIPALIDAD DE TIBÁS
+SEGÚN LA LEY Nº 10046
+Considerando:
+1º-Que la Municipalidad de Tibás es el gobierno local y como tal, debe impulsar un desarrollo local integral, que asegure el acceso a los beneficios del mismo, en igualdad de condiciones a toda la población.
+2º-Que la sociedad costarricense ha logrado demostrar un alto nivel de desarrollo que se demuestra en la capacidad que ha tenido de ofrecer a los adultos mayores, una mejora en la calidad de vida al promulgar una serie de norma que buscan brindarles condiciones de igualdad real en vivienda, pensiones, alimentación, transporte, cuido y protección, entre otras.
+3º-Que Costa Rica se considera un país con una pirámide poblacional inversa al tener un 12,8% de habitantes de 60 años y más. Para el año 2050 el porcentaje de envejecimiento aumentara a un 34, 4% de habitantes de 60 años y más (Datos Help Age International, 2015), de modo que, el aumento de la población adulta mayor hace necesario que los gobiernos locales estudien y planifiquen esta situación en cada uno de sus cantones.
+4º-Que la Ley Integral de la Persona Adulta Mayor y su reglamento, Ley Nº 7935 (1999), establece en su artículo 3 inciso b) que: "Toda persona adulta mayor tendrá derecho a una mejor calidad de vida, mediante la creación y ejecución de programas que promuevan: (.) b) la participación en actividades recreativas, culturales y deportivas promovidas por las organizaciones, las asociaciones, las municipalidades y el Estado", entre otras acciones.
+5º-Que la Política Nacional de Envejecimiento y Vejez (2011-2021), en su línea estratégica III de participación social, insta a los gobiernos locales a generar acciones en envejecimiento activo y derechos de las personas adultas mayores.
+6º-Que la importancia de mejorar las condiciones de vida de las personas con discapacidad, el Gobierno Local debe procurar, desde sus políticas territoriales, implementar en el cantón los principios que rigen a esta población, partiendo de la misma Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley Nº 7600 que ha venido a surtir efectos jurídicos positivos en la igualdad real de estas personas.
+7º-Que Costa Rica ratificó y firmó la Convención Interamericana para la Eliminación de todas las Formas de Discriminación contra las Personas con Discapacidad, Ley Nº 7848 ( OEA, 1999), la Convención Internacional sobre los Derechos de las Personas con Discapacidad mediante la Ley Nº 8661 (ONU, 2006) y la Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores (OEA, 2015), la cual es Ley de la República Nº 9394.
+8º-Que las personas con discapacidad, en general, requieren para alcanzar una vida digna, contar con la solución de al menos cinco necesidades: vivienda, acceso a la atención de la salud, contar con empleo digno, posibilidades para educarse, accesibilidad en el entorno físico, servicios de transporte accesibles, así como acceso a la información y comunicación.
+9º-Que la mayoría de las personas con discapacidad viven en condiciones de pobreza, de ahí, la urgente necesidad que tiene nuestra sociedad de mitigar los efectos desastrosos de la pobreza en personas con discapacidad. En el entendido que el gobierno local conoce las necesidades de sus vecinos y vecinas, se convierten en los indicados para visibilizar esta situación y promover soluciones a estas problemáticas.
+10.-Que la Agenda 2030 y los Objetivos de Desarrollo Sostenible (ODS) instan a "No dejar a nadie atrás", principalmente las poblaciones más vulnerabilizadas, entre estas, población adulta mayor y personas con discapacidad.
+11.-Que en el alcance Nº 17 del 28 de enero de 2022 en el Diario Oficial La Gaceta se publicó la Ley de Creación de la Oficina de la Persona Adulta Mayor y de Personas en Situación de Discapacidad en las Municipalidades Ley Nº 10046.
+12.-Con base a la Ley Nº 10046, para efectos de este reglamento se aplicará el concepto "personas en situación de discapacidad".
+13.-Que de conformidad con lo establecido en los artículos 13 inciso c) y d) y 43 del Código Municipal, y 103 de la Ley General de la Administración Pública, corresponde al Concejo Municipal dictar los reglamentos y organizar mediante éstos, la prestación de los servicios públicos.
+CAPÍTULO I
+Objeto y alcance
+Artículo 1º-Objeto. Este reglamento tiene como objeto la creación de la Oficina Municipal de la Persona Adulta Mayor y de la Persona con Discapacidad de la Municipalidad de Tibás, mediante la Ley de Creación de la Oficina de la Persona Adulta Mayor y de Personas en Situación de Discapacidad en las Municipalidades, Ley Nº 10046 publicada en el Alcance Nº 17 del 28 de enero de 2022 del Diario Oficial La Gaceta.
