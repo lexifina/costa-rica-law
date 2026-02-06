@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE CORREDORES
+El Concejo Municipal de Corredores en uso de las facultades, conferidas por los artículos 169 y 170 de la Constitución Política, 4 inciso a), 13 inciso c) y 43 del Código Municipal, "N° 7794", aprobó el acuerdo Nº11 en la Sesión Ordinaria N° 79, celebrada el día 24 de noviembre del año 2025, la reforma parcial de los artículos 11 inciso h) y 24 del Reglamento para prevenir y sancionar el acoso laboral en la Municipalidad de Corredores, que entrará en vigencia a partir de su publicación.
+REFORMA PARCIAL DE LOS ARTÍCULOS 11 INCISO H)
+Y 24 DEL AL REGLAMENTO PARA PREVENIR
+Y SANCIONAR EL ACOSO LABORAL
+EN LA MUNICIPALIDAD
+DE CORREDORES.
+Artículo 1º-Refórmense los artículos 11 inciso h) y 24 del Reglamento para prevenir y sancionar el acoso laboral en la Municipalidad de Corredores, para que digan así:
+Artículo 11.-Atribuciones y potestades de la Comisión Instructora. Serán atribuciones y potestades de la Comisión Instructora:
+h. Emitir un informe con recomendaciones y remitir el expediente, debidamente foliado y en estricto orden cronológico, al Órgano Decisor competente, quien será el encargado de dictar el acto final del procedimiento, conforme a sus atribuciones y a lo dispuesto en este Reglamento. El informe deberá ser remitido dentro de los diez (10) días naturales siguientes a la realización de la comparecencia oral y privada; o, en su defecto, posterior al análisis de la denuncia, cuando se determine que los hechos denunciados no constituyen acciones u omisiones de acoso laboral, conforme a lo dispuesto en el artículo 7 de este Reglamento.
+Artículo 24.-Informe con recomendaciones de la Comisión Instructora. Concluida la instrucción del procedimiento administrativo, la Comisión Instructora deberá emitir un informe con recomendaciones, el cual servirá de base para el dictado del acto final por parte de la Alcaldía o del Concejo Municipal, según corresponda.
+Dicho informe deberá contener, de manera clara, precisa y circunstanciada, la relación de la prueba recabada, las medidas cautelares adoptadas, los fundamentos fácticos y jurídicos que sustentan la recomendación formulada en cada caso, así como la eventual sanción sugerida. El informe deberá remitirse a la Alcaldía o al Concejo Municipal, según corresponda, dentro del plazo establecido en el inciso h) del artículo 11 de este Reglamento, para que proceda a dictar el acto final. El acto final deberá notificarse dentro de los cinco (5) días naturales siguientes a la recepción del informe de la Comisión Instructora.
