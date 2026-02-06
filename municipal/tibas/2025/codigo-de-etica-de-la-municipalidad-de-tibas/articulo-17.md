@@ -1,0 +1,1 @@
+Artículo 17: Deber de respetabilidad: Los colaboradores de la Municipalidad de Tibás tienen el derecho a la dignidad, a la honra, al buen nombre, a la buena reputación y a la intimidad personal y familiar. Así como el deber de respetar esos derechos en los demás, escuchándolos y no haciendo intromisiones indebidas o pretendiendo amoldarlo a su conveniencia.

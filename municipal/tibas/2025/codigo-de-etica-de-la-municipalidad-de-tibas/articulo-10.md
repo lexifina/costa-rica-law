@@ -1,0 +1,1 @@
+Artículo 10: Deber de responsabilidad: Los servidores de la Municipalidad de Tibás deben ser responsables de las acciones u omisiones relativas al ejercicio de su función, actuar con un claro concepto del deber, para el cumplimiento del fin encomendado en la unidad organizativa a la que sirve y responder sobre la forma en que cumplen sus obligaciones.

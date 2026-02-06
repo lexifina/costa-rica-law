@@ -1,0 +1,1 @@
+Artículo 7: Deber de Lealtad: Los colaboradores de la Municipalidad de Tibás deben ser fieles a los principios éticos y valores institucionales, buscando su aplicación cotidiana con plena conciencia del interés público y el servicio a la colectividad.

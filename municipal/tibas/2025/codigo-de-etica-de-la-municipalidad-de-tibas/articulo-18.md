@@ -1,0 +1,1 @@
+Artículo 18: Deber de armonía laboral: Los funcionarios de la Municipalidad de Tibás deben participar activamente para el logro de un clima de armonía laboral, proyectar siempre una imagen positiva de las personas compañeras de la institución y contribuir al desarrollo de la cultura y clima organizacional.

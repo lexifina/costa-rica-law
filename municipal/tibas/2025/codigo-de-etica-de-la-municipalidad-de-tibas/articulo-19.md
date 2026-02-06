@@ -1,0 +1,1 @@
+Artículo 19: Deber de superación: Los servidores de la Municipalidad de Tibás deben promover la autoestima, reconociendo su valor como ser humano y como persona funcionaria institucional procurando el mejoramiento personal y profesional que le permita incrementar sus conocimientos, experiencia y solidez moral.

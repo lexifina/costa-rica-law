@@ -1,0 +1,4 @@
+Artículo 28: Las Direcciones, los Coordinadores, las Jefaturas de Área y otros jerarcas institucionales, debido a sus cargos poseen responsabilidades mayores, por lo que además de los compromisos éticos generales establecidos para las personas funcionarias, asumen el compromiso de abstenerse de:
+a) Discriminar en la formulación de políticas o en la prestación de servicios y en la selección de personal a persona alguna, por razón de su filiación política, credo religioso, sexo, raza o condición social.
+b) Nombrar, recomendar, o proponer en cualquier puesto en la Municipalidad de Tibás a familiares incluidos el cónyuge, hermanos, ascendientes y descendientes hasta el tercer grado inclusive de consanguinidad o afinidad.
+c) Hacer proselitismo durante sus jornadas y horarios laborales, o bien, utilizar sus cargos para beneficiar en forma alguna a un partido político.

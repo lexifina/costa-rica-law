@@ -1,0 +1,1 @@
+Artículo 21: Deber de actuar con transparencia: Los funcionarios de la Municipalidad de Tibás deben mantener información clara, oportuna, verificable y accesible sobre los planes, proyectos, actividades, ejecución de labores, recursos empleados, normas y procedimientos utilizados y los resultados obtenidos, de manera que puedan ser objeto de supervisión.
