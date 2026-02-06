@@ -1,0 +1,1 @@
+Artículo 15. Derogatoria. Deróguese el Decreto Ejecutivo N°35876-S del 11 de noviembre del 2009, titulado "Lineamiento para el Sector Social y Lucha Contra la Pobreza: Implementación de los Subsistemas Locales de Protección a la Niñez y la Adolescencia en las Once Comunidades Prioritarias".

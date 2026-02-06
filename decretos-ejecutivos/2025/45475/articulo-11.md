@@ -1,0 +1,5 @@
+Capítulo IV.
+Seguimiento
+Artículo 11. Seguimiento. Los Subsistemas Locales de Protección a la Niñez y la Adolescencia contarán con seguimiento de sus acciones a través de informes que remitirán cada seis meses a las Direcciones Regionales del Patronato Nacional de la Infancia.
+Cada Dirección Regional del Patronato Nacional de la Infancia deberá analizar los informes de participación de sus representantes y de las principales acciones referidos por los Subsistemas Locales de Protección a la Niñez y la Adolescencia de su región y elaborar cada seis meses un informe que deberá ser remitido a la Gerencia Técnica del Patronato Nacional de la Infancia la primera semana del mes de julio y la primera semana del mes de enero del siguiente año.
+La Gerencia Técnica del Patronato Nacional de la Infancia, deberá analizar los informes de seguimiento referidos por las Direcciones Regionales del Patronato Nacional de la Infancia y elaborar un informe que deberá ser remitido a la Comisión Nacional de Subsistemas Locales de Protección a la Niñez y la Adolescencia a más tardar tres meses después de recibido el informe elaborado por las Direcciones Regionales.

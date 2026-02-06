@@ -1,0 +1,1 @@
+Artículo 2. Objeto. Normar el funcionamiento orgánico de los Subsistemas Locales de Protección a la Niñez y la Adolescencia a nivel nacional y establecer la creación y funcionamiento de la Comisión Nacional de Subsistemas Locales de Protección a la Niñez y la Adolescencia.

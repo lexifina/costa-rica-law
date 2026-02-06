@@ -1,0 +1,1 @@
+Artículo 6. Reuniones. Los Subsistemas Locales de Protección a la Niñez y la Adolescencia se reunirán ordinariamente una vez al mes y extraordinariamente cuando lo consideren pertinente. Las reuniones podrán ser de forma presencial o virtual.
