@@ -1,0 +1,3 @@
+Capítulo Quinto: Obligaciones de la Litografía Acreditada.
+Artículo 23: Padrón fotográfico.
+La litografía se deberá comprometer a suplir y mantener actualizado el padrón fotográfico junto con la respectiva hoja de delincuencia de todos los miembros de su personal relacionados directamente con el traslado de los cheques de serie especial. La entrega de los documentos al Banco se realizará por medio de correo electrónico (cuya dirección la remitirá el Banco a la litografía por medio de correo electrónico). En caso de que el contratista realice algún cambio deberá notificarlo al Banco el mismo día que se realiza la modificación y enviar de manera digital por medio de correo electrónico la nueva información del cambio que se realizó (actualización de datos).

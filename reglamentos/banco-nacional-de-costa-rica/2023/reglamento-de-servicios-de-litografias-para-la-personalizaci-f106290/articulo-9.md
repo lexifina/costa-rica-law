@@ -1,0 +1,2 @@
+Artículo 9: Entrega de los diseños de cheques.
+La oficina de Emisión de Valores del Banco, por medio de correo electrónico les brindará a las empresas que cuenten con la preaprobación, dentro de los cinco (5) días hábiles posteriores de recibir la notificación de la Preaprobación para emitir cheques de Serie Especial del Banco Nacional de Costa Rica, los artes con los diferentes diseños de cheques autorizados en el Banco Nacional, con el fin de que realicen las muestras impresas respectivas.__
