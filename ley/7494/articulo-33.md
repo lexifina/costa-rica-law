@@ -1,3 +1,0 @@
-Artículo 33.—Garantía de participación. La administración estará facultada para solicitar, a los oferentes, una garantía de participación entre un uno por ciento (1%) y un cinco por ciento (5%) del monto de la propuesta, el cual se definirá en el respectivo cartel o pliego de condiciones, de acuerdo con la complejidad del contrato.
-En los casos en que la administración decida no solicitar la garantía de participación y un oferente retire su propuesta, se procederá conforme a lo previsto en los artículos 99 y 100 de esta Ley.
-(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
