@@ -1,0 +1,3 @@
+ARTÍCULO 6. Funciones de los Archivos de Gestión
+a) Les corresponderá organizar la documentación producida y recibida en cada oficina productora, en función de sus actividades. De manera que sirvan para la toma de decisiones, transparencia administrativa, rendición de cuentas, control interno, apoyo legal, administrativo y para la preservación de la memoria institucional.
+b) Le corresponderá a la jefatura inmediata de cada oficina productora, designar a la persona responsable de administrar el archivo de gestión, misma que deberá ser comunicada al Archivo Central dentro de los ocho días hábiles siguientes a dicha designación. En ausencia de esta designación, el responsable será el jefe inmediato de cada oficina productora de documentos.
