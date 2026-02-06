@@ -1,1 +1,5 @@
 ARTICULO 18.- La Comisión vigilará, en el ámbito de su competencia, el debido cumplimiento del presente Reglamento.
+El presente Reglamento rige a partir del día de su publicación en el Diario Oficial La Gaceta.
+• Toda referencia al Banco de Proyectos del Fideicomiso (BPF) se sustituye por Portafolio Subordinado de Inversión Pública (PSIP).
+• El Reglamento se aplicará conforme a lo dispuesto en el Decreto Ejecutivo N.° 43251-PLAN, las Normas Técnicas de Inversión Pública emitidas por MIDEPLAN (2022) y el Lineamiento Metodológico para la Formulación, Ejecución y Seguimiento de Proyectos de Inversión Pública (MIDEPLAN, 2020), en el marco del Plan Nacional de Desarrollo e Inversión Pública (PNDIP) vigente.
+• Aprobación de la actualización del portafolio Subordinado del Fideicomiso INCOP-ICT-BNCR, mediante acuerdo No. 3 de la sesión No. 4500, del 17 de octubre del 2025, dicha metodología alineada al Banco de Proyectos de Inversión Pública (BPIP) y a la metodología oficial establecida por MIDEPLAN.

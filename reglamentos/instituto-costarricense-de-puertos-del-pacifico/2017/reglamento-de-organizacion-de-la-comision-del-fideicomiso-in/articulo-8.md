@@ -1,1 +1,1 @@
-ARTICULO 8.-El Secretario de la CIF será quién el Presidente Ejecutivo del INCOP designe.
+ARTICULO 8.- El Secretario de la CIF será quién el Presidente Ejecutivo del INCOP designe y tendrá, además de las funciones administrativas, la responsabilidad de custodiar la documentación del PSIP, incluyendo agendas, actas, matrices multicriterio, fichas de proyecto y acuerdos de priorización o cualquier insumo que se considere pertinente para la gestión, asegurando su remisión a la Junta Directiva y a MIDEPLAN cuando corresponda.

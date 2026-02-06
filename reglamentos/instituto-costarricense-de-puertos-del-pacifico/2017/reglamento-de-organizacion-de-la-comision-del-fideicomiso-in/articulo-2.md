@@ -1,19 +1,21 @@
 CAPÍTULO II
 Definiciones
-ARTICULO 2.- Se definen los siguientes términos para su adecuada interpretación en este Reglamento:
+ARTÍCULO 2.- Se definen los siguientes términos para su adecuada interpretación en este Reglamento:
 a) INCOP: Instituto Costarricense de Puertos del Pacífico, quien se denomina el Fideicomitente en el contrato de Fideicomiso
 b) ICT: Instituto Costarricense de Turismo, quien se denomina el Fideicomisario Mediato en el contrato de Fideicomiso.
 c) BNCR: Banco Nacional de Costa Rica, quien se denomina el Fiduciario en el contrato de Fideicomiso.
 d) Comisión Interinstitucional INCOP-ICT-BNCR: Es la autoridad superior del Fideicomiso y se integra por representantes del Fideicomitente, del Fideicomisario Mediato y del Fiduciario. Para efectos de este Reglamento se conocerá como la Comisión.
 e) Contrato: Es el documento suscrito por las partes involucradas en el Fideicomiso, y llamado “Contrato de Fideicomiso entre el Instituto Costarricense de Puertos del Pacífico, Instituto Costarricense de Turismo y el Banco Nacional de Costa Rica”.
-f) Fideicomiso: El Fideicomiso denominado “Fideicomiso INCOP-ICT-BNCR”.
-g) Fideicomisario Mediato: El Instituto Costarricense de Turismo, institución que tiene la potestad de recomendar al Fideicomitente la viabilidad turística de los proyecto a desarrollar, sin que la misma resulte vinculante para INCOP.
-h) Fideicomitente: El Instituto Costarricense de Puertos del Pacífico.
-i) Fiduciario: El Banco Nacional de Costa Rica. Institución que tiene la responsabilidad de asesorar al Fideicomiso, en calidad de experto, en temas financieros y bursátiles. Tiene a su cargo la Unidad Gerencial.
-j) Unidad Gerencial: Grupo de profesionales contratados a través del Fiduciario para dar apoyo técnico desde el inicio y hasta la finalización de las obras, conforme lo indicado en la cláusula vigésima segunda del contrato de fideicomiso.
-K) Gerente General: Encargado de coordinar y fiscalizar el correcto desarrollo del convenio marco de cooperación interinstitucional INCOP-ICT, en los términos citados en la cláusula quinta de dicho convenio marco y según lo que disponga la comisión interinstitucional del fideicomiso (CIF) en este particular.
-l) Junta Directiva de INCOP: Órgano colegiado encargado de definir las principales políticas y estrategias de la organización. Una de sus principales funciones es la de aprobar los perfiles de los proyectos elegibles a ejecutar.
-m) Banco de Proyectos del Fideicomiso (BPF): Es la lista de proyectos aprobados para ejecutar por medio del Fideicomiso.
-n) Perfiles de proyecto: Proceso mediante el cual la Unidad Gerencial del Fideicomiso (UGF) documenta técnicamente todos los proyectos del BPE, de acuerdo con los parámetros que se definirán en el documento de Procedimientos de Gestión Administrativa del Fideicomiso.
-o) Priorización: Proceso mediante el cual se define la posición relativa de cada proyecto en la secuencia de ejecución temporal del BPF, de acuerdo con los criterios que al efecto se definirán en el documento de Procedimientos de Gestión Administrativa del Fideicomiso.
-(Así reformado mediante sesion N° 4147 del 6 de febrero del 2018)
+f) Adenda: Documento complementario que se agrega a un contrato o reglamento para modificar, aclarar o ampliar disposiciones sin sustituir el texto original.
+g) Fideicomiso: El Fideicomiso denominado “Fideicomiso INCOP-ICT-BNCR”.
+h) Fideicomisario Mediato: El Instituto Costarricense de Turismo, institución que tiene la potestad de recomendar al Fideicomitente la viabilidad turística de los proyectos a desarrollar, sin que la misma resulte vinculante para INCOP.
+i) Fideicomitente: El Instituto Costarricense de Puertos del Pacífico.
+j) Fiduciario: El Banco Nacional de Costa Rica. Institución que tiene la responsabilidad de asesorar al Fideicomiso, en calidad de experto, en temas financieros y bursátiles. Tiene a su cargo la Unidad Gerencial del Fideicomiso.
+k) Unidad Gerencial del Fideicomiso: Grupo de encargados de programas contratados a través del Fiduciario para dar apoyo técnico desde el inicio y hasta la finalización de las obras, conforme lo indicado en la cláusula vigésima segunda del contrato de fideicomiso.
+l) Gerente General: Gerente General INCOP: Es la persona encargada del portafolio subordinado de inversión pública, responsable de la gestión y la toma de decisiones respecto a los proyectos y programas, que permitan cumplir con los objetivos estratégicos presentes en los respectivos instrumentos de planificación ya aprobados en portafolio por la CIF y la Junta Directiva. Las funciones y los procesos de la gestión del portafolio generalmente abarcan toda la entidad.
+m) Encargado de Programa: Es la persona responsable de asegura que los procesos asociados al programa y la gestión del mismo se alinean con la gestión del portafolio y hace posible que los equipos de proyecto completen con éxito su trabajo. El encargado de programa asegura que los entregables de los proyectos generen los beneficios esperados, se organicen y ejecuten de forma coherente.
+n) Junta Directiva de INCOP: Órgano colegiado encargado de definir las principales políticas y estrategias de la institución. En el marco del Fideicomiso, le corresponde aprobar el Portafolio Subordinado de Inversión Pública (PSIP) en su conjunto, incluyendo la priorización de los proyectos, como requisito previo para su inscripción en el Banco de Proyectos de Inversión Pública (BPIP) de MIDEPLAN, garantizando la coherencia con los objetivos nacionales de inversión pública.
+o) Portafolio Subordinado de Inversión Pública (PSIP): Conjunto de programas y proyectos priorizados del Fideicomiso, alineados a la Agenda 2030, al Plan Nacional de Desarrollo e Inversión Pública y al marco metodológico de MIDEPLAN.
+p) Ficha de Proyecto: Herramienta oficial para la admisibilidad y registro de proyectos ante la CIF y la Junta Directiva de INCOP.
+q) Matriz Multicriterio: Instrumento metodológico que permite priorizar los proyectos del Portafolio Subordinado de Inversión Pública (PSIP) mediante la evaluación de criterios técnicos, económicos, financieros, sociales y ambientales. Asigna ponderaciones y calificaciones objetivas para establecer un orden de ejecución transparente y verificable, conforme a la metodología de MIDEPLAN para la gestión de portafolios de inversión pública.
+r) Banco de Proyectos de Inversión Pública (BPIP): Registro nacional administrado por MIDEPLAN en el que deben inscribirse todos los proyectos del PSIP.

@@ -1,1 +1,2 @@
-ARTICULO 7.-La CIF será presidida por el representante del Instituto Costarricense de Puertos del Pacífico.
+ARTÍCULO 7.- La CIF será presidida por el representante del Instituto Costarricense de Puertos del Pacífico, ocupando el puesto de Presidente de la Comisión Interinstitucional INCOP-ICT-BNCR. Le corresponde velar porque las decisiones de la Comisión se adopten conforme a la normativa del Sistema Nacional de Inversión Pública y a los lineamientos metodológicos de gestión de portafolios definidos por MIDEPLAN.
+El presidente de la Comisión Interinstitucional INCOP-ICT-BNCR, resolverá cualquier asunto en caso de empate, para cuyo caso tendrá voto de calidad.
