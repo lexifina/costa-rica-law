@@ -16,3 +16,4 @@ Crea Comisión Nacional de Estudios Afrocostarricenses
 | 1 | 2005-05-10 | la propia norma |
 | 2 | 2018-10-26 | Decreto Ejecutivo 41460 (2018-10-26) |
 | 3 | 2019-10-18 | Decreto Ejecutivo 42068 (2019-10-18) |
+| 4 | 2026-02-06 | Decreto Ejecutivo 45512 (2026-02-06) |
