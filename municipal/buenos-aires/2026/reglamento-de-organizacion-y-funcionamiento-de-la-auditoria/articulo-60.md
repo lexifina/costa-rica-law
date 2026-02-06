@@ -1,0 +1,1 @@
+Artículo 60.- Comunicación al denunciante. El Auditor Interno deberá comunicar al denunciante sobre el trámite que se le ha dado a su denuncia; siempre que haya especificado en dicho documento su nombre, calidades y lugar de notificaciones.

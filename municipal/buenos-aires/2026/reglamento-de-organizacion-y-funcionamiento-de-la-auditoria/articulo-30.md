@@ -1,0 +1,1 @@
+Artículo 30.- Registro presupuestario. La Auditoría Interna, en colaboración con la unidad responsable del control del presupuesto institucional, mantendrá un registro de la asignación presupuestaria anual de la Auditoría Interna, detallado por objeto del gasto, para el control de su ejecución y las modificaciones de recursos de esta unidad.

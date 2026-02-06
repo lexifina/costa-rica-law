@@ -1,0 +1,3 @@
+SECCIÓN IV DEL TITULAR DE LA AUDITORÍA INTERNA Y DEL PERSONAL A SU
+CARGO
+Artículo 14.- Nombramiento, suspensión y remoción del titular de la Auditoría Interna. El nombramiento del auditor y subauditor internos, lo hará el Concejo Municipal. Su nombramiento, suspensión y remoción se realizará, según proceda, conforme al artículo 31 de la Ley General de Control Interno y n.°8292 y los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR (R-DC-83-2018), emitida por la Contraloría General de la República. Los requisitos de su cargo y sus funciones estarán contenidos en el Manual de Perfiles de Puestos de la Municipalidad de Buenos Aires.

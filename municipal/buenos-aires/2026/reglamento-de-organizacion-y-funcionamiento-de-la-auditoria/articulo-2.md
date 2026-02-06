@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y, en lo que les resulte aplicable, para los demás funcionarios de la Municipalidad de Buenos Aires.

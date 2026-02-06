@@ -1,0 +1,1 @@
+Artículo 31.- Asesoría. Cuando así lo requiera la Auditoría Interna, todos los departamentos de la Municipalidad de Buenos Aires, tienen el deber de brindarle un oportuno y efectivo servicio de asesoría en sus ámbitos de actividad.

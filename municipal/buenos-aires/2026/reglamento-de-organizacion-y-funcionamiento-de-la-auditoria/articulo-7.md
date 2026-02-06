@@ -1,0 +1,3 @@
+SECCIÓN II INDEPENDENCIA Y OBJETIVIDAD
+Artículo 7.- Independencia funcional y de criterio. La actividad de auditoría interna deberá ser ejercida con total independencia funcional y de criterio, respecto del jerarca y de los demás órganos de la administración activa.
+La auditoría interna, en la estructura organizacional, deberá ser un órgano asesor de muy alto nivel que depende orgánicamente del Concejo Municipal. La actividad de Auditoría Interna debe estar libre de injerencias del jerarca y de los demás órganos de la administración activa al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al ejecutar su trabajo y al comunicar sus resultados.

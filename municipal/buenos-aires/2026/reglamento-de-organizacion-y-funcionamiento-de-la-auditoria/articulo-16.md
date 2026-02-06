@@ -1,0 +1,1 @@
+Artículo 16.- Ausencias temporales del titular de la Auditoría Interna. Las ausencias temporales del titular de la Auditoría Interna serán suplidas, según proceda, conforme a lo establecido en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR (R-DC-83-2018), emitida por la Contraloría General de la República.

@@ -1,0 +1,2 @@
+Artículo 13.- Organización interna. La Auditoría Interna se organizará en concordancia con la razón de ser de la unidad, con las necesidades de fiscalización y con la normativa que regula a la municipalidad y a la Auditoría.
+La estructura de la Auditoría está conformada por el Auditor y el personal profesional y administrativo que resulte necesario para el cumplimiento de sus competencias, procesos y actividades.

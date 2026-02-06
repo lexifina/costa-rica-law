@@ -1,0 +1,2 @@
+SECCIÓN VI SEGUIMIENTO DE RECOMENDACIONES
+Artículo 62.- Planificación de los estudios de seguimiento. La Auditoría Interna incluirá en su plan anual, la actividad correspondiente al seguimiento de las recomendaciones emitidas en sus informes de auditoría ya aceptadas por la administración activa, además, de las de otros entes de fiscalización cuando sean de su conocimiento, para asegurarse de su oportuna, adecuada y eficaz implementación.

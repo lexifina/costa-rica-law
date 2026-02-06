@@ -1,0 +1,1 @@
+Artículo 8.- Objetividad individual. Es obligación de los funcionarios de la Auditoría Interna mantener una actitud imparcial y neutral y evitar conflictos de intereses, a cuyo propósito deben atenerse a lo dispuesto sobre el particular en este reglamento y en las demás disposiciones aplicables.
