@@ -1,0 +1,11 @@
+CAPITULO VI
+De las medidas de seguridad, accidentes menores y accidentes de tránsito
+Artículo 21 - Obligaciones del conductor en caso de accidente de tránsito con un vehículo Municipal. En caso de accidente de tránsito con un vehículo Municipal, es obligación del funcionario conductor:
+a) Mantener el vehículo en el lugar del accidente, con el motor apagado y adoptar todas las medidas de seguridad necesarias. No podrá abandonar el vehículo en la vía pública por ningún motivo, salvo que su condición física producto del accidente se lo impida.
+b) Notificar de inmediato a la autoridad de Tránsito más cercana por el medio más rápido posible (911), llamar a la entidad aseguradora correspondiente para reportar el siniestro, solicitar asistencia de un inspector y comunicar a la jefatura inmediata o a la Alcaldía a la mayor brevedad.
+c) En caso de colisión con otro vehículo, anotar el número de placa del mismo y, de ser posible, el nombre, apellidos y número de cédula de identidad del conductor, así como el nombre, apellidos, dirección, teléfono y/o correo electrónico de testigos presenciales, si los hubiera.
+d) Prestar toda la colaboración necesaria a las autoridades que se presenten.
+e) Realizar una declaración por escrito detallando lo sucedido (lugar, hora, fecha y motivo) y adjuntar la documentación original de la entidad aseguradora respectiva, así como la boleta emitida por la autoridad de Tránsito. Estos documentos deberán ser entregados a la Alcaldía o a quien esta designe.
+f) Queda prohibido efectuar arreglos extrajudiciales en caso de accidentes con vehículos municipales; deberá indicar al particular que se comunique o presente ante la Municipalidad para realizar las gestiones correspondientes.
+g) Cumplir con el proceso judicial. Para tal efecto, deberá presentarse dentro de los diez días hábiles siguientes al accidente ante el juzgado correspondiente para rendir declaración. También deberá asistir a la audiencia oral y pública, así como al momento de dictarse la sentencia, sin perjuicio de cualquier otra diligencia que el tribunal requiera siempre y cuando no cuente con una imposibilidad médica.
+Finalizado el proceso, deberá enviar copia del expediente judicial para que la Municipalidad pueda iniciar, si procede, el procedimiento administrativo correspondiente, respetando el principio del debido proceso.

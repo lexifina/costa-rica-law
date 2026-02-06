@@ -1,0 +1,6 @@
+Artículo 19- Responsabilidades de los funcionarios que solicitan transporte para Giras. Son responsabilidades de todos los funcionarios municipales que requieran transporte:
+a) Presentar una solicitud formal a la Alcaldía, justificando por escrito el motivo o razón de la gira. Esta solicitud deberá estar debidamente firmada por la jefatura correspondiente y será valorada por el titular de la Alcaldía o la persona en quien esta delegue, quien determinará la disponibilidad y asignará el vehículo municipal y/o conductor según corresponda.
+b) No utilizar el vehículo para funciones distintas a las descritas en la solicitud remitida a la Alcaldía.
+c) Ninguna persona tiene autoridad para obligar al conductor a violar el presente reglamento o las normas afines vigentes.
+d) Está estrictamente prohibido fumar o vapear dentro del vehículo de acuerdo con la Ley 9028. El usuario debe mantener la limpieza y cuidado del bien, evitando conductas que puedan dañar o perjudicar la imagen de la Municipalidad de Monteverde.
+e) Es responsabilidad del conductor reportar, por el medio más rápido posible, cualquier incidente o siniestro ocurrido durante la gira, ante la Alcaldía y realizar el reporte correspondiente ante la aseguradora y al tránsito.

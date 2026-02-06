@@ -1,0 +1,1 @@
+Artículo 11 - Seguro de vehículo y Maquinaria. La Municipalidad de Monteverde asegurará todos los vehículos automotores con las coberturas que considere más convenientes, mediante pólizas de seguro contratadas con alguna entidad debidamente autorizada por la Superintendencia General de Seguros (SUGESE).

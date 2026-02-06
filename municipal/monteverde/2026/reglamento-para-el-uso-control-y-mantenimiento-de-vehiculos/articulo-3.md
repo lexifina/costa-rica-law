@@ -1,0 +1,1 @@
+Artículo 3° - Alcance. Las disposiciones contenidas en el presente reglamento son de cumplimiento y aplicación obligatoria para todos los funcionarios de la Municipalidad de Monteverde, incluyendo la alcaldía municipal y a los miembros del Concejo Municipal que, por razón y en función de sus cargos, requieran utilizar los recursos de transporte de la Municipalidad.

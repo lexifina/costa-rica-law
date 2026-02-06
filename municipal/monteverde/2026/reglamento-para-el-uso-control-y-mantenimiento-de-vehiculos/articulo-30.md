@@ -1,0 +1,1 @@
+Artículo 30 - Disposiciones Supletorias. En ausencia de disposiciones específicas en el presente reglamento, se aplicarán de forma supletoria las normas contenidas en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y su reglamento, la Ley General de Administración Pública, así como cualquier otra ley, decreto o reglamento conexo vigente en la materia.

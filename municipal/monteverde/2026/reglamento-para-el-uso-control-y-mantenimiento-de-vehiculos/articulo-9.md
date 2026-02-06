@@ -1,0 +1,3 @@
+Artículo 9° - De la revisión y mantenimiento de los vehículos municipales. Es responsabilidad de los funcionarios municipales que utilicen los vehículos institucionales velar por el buen funcionamiento del vehículo asignado. Para ello, deberán realizar una revisión diaria al iniciar y finalizar la jornada laboral, evaluando el estado general del vehículo.
+Antes de salir del plantel o lugar de resguardo, deberán verificar el funcionamiento de las luces direccionales, luces frontales y traseras, niveles de lubricantes, combustible, presión de llantas, nivel de agua, y cualquier otro aspecto incluido en la revisión rutinaria.
+En caso de detectarse alguna anomalía, el funcionario deberá reportarla de inmediato al superior inmediato o a la Alcaldía.
