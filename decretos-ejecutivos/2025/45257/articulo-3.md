@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo Nº 37350-S del 9 de julio del 2012 "Reglamento para el permiso sanitario de funcionamiento de los bancos y centros de recolección de leche humana", publicado en el Alcance Nº 161 a La Gaceta Nº 204 del 23 de octubre del 2012.
