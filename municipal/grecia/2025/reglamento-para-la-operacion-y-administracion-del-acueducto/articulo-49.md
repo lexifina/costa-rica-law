@@ -1,0 +1,2 @@
+Artículo 49°. De la reunión de fincas. El propietario de una finca que tenga servicio de agua potable y adquiera otra propiedad colindante que carezca del servicio, no podrá extender a la segunda el servicio de la primera, sin la aprobación municipal y el pago de los derechos correspondientes mientras esta permanezca
+individualizada. En el caso de que las reúna bajo una sola matrícula de Folio Real podrá hacerlo, previa comunicación a la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 31. De los reclamos administrativos. Las reclamaciones por lecturas o montos derivados de ellas deberán hacerse ante la Dirección del Área de Servicios Públicos, por medio de la Oficina de Servicio al Cliente, durante los treinta días calendario siguientes a la puesta al cobro del recibo, mediante memorial razonado y debidamente firmado por el propietario del bien inmueble en el que se ubica el servicio.
+Lo resuelto tendrá los recursos establecidos en el Artículo 162 del Código Municipal. Pasado dicho término, cualquier reclamación será desestimada por extemporánea.

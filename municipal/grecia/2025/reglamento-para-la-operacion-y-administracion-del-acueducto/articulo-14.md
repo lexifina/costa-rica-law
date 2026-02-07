@@ -1,0 +1,5 @@
+Artículo 14. Cambio de toma. Si por algún motivo el propietario requiere que sus conexiones sean trasladadas a otro sitio dentro de su propiedad, que también tenga acceso al sistema público, podrá así solicitarlo. La Municipalidad estudiará el caso y si el traslado es técnicamente posible y han realizado las obras necesarias dentro de los sistemas internos para la nueva localización, se procederá a hacerla efectivo, para cuyos efectos deberá realizar solicitud por escrito y cumplir con los siguientes requisitos:
+a) El propietario o su apoderado, poseedor o albacea autorizado del inmueble llenará y firmará el formulario de cambio de toma.
+b) Fotocopia de la cédula de identidad del propietario del inmueble. En caso de que el propietario sea una persona jurídica, deberá presentar certificación de personería jurídica vigente y fotocopia de la cédula de identidad del representante legal.
+c) Estar al día en el pago de los deberes formales y materiales con la Municipalidad.
+d) Cancelar el costo del servicio, previo a la realización de este.

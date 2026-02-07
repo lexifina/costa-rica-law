@@ -1,0 +1,1 @@
+Artículo 44°. Inicio de la gestión del cobro judicial. En los casos que procedan, la Municipalidad de Grecia gestionará de inmediato el cobro judicial, para lo cual se aplicará lo dispuesto en el "Reglamento Procedimiento Cobro Administrativo Judicial y Extrajudicial" de esta Municipalidad.

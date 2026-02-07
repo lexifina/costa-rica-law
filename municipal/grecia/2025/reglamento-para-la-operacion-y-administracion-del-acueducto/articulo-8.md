@@ -1,0 +1,2 @@
+Artículo 8. Plazo de entrega y vigencia de la constancia de disponibilidad de agua: Cuando la Municipalidad garantice la disponibilidad de agua para un proyecto de construcción determinado, ésta garantía tendrá una vigencia de 12 meses. Si el interesado no ha iniciado su construcción en ese plazo, se entenderá por finalizado el compromiso adquirido por la Municipalidad para proveer el servicio y el interesado deberá realizar de nuevo la solicitud.
+La emisión de esta constancia es gratuita y la Municipalidad tendrá un plazo de hasta 10 días hábiles para otorgarla.
