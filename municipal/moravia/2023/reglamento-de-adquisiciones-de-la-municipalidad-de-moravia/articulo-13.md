@@ -1,1 +1,2 @@
-Artículo 13.- Aprobaciones de solicitudes. Todas las solicitudes de contratación deben ser aprobadas por la jefatura inmediata del solicitante y la unidad de control de presupuesto.
+Artículo 13-Aprobaciones de solicitudes. Todas las solicitudes de contratación deben ser aprobadas por la jefatura inmediata del solicitante, la unidad de control de presupuesto y jefatura de Proveeduría, a excepción de las solicitudes de las contrataciones modalidad según demanda, las cuales solo deberán llevar la aprobación de la jefatura inmediata y la jefatura de Proveeduría.
+(Así reformado mediante acuerdo N° 1208-2026-091 y publicado en La Gaceta N° 26 del 9 de febrero de 2026)
