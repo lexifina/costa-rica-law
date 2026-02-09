@@ -1,0 +1,1 @@
+Artículo 20.-Faltantes. El descubrimiento de faltantes superiores al 2.5% del fondo por parte de la Tesorería, tendrá que ser notificado a Hacienda Municipal, con copia al Alcalde Municipal, para lo que proceda.

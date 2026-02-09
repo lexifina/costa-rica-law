@@ -1,0 +1,2 @@
+Artículo 5º-Arqueos. A cada gestor se le realizará mínimo un arqueo por mes, más tres adicionales al azar, los cuales serán ejecutados por un funcionario de la Tesorería Municipal y se deberá tener el documento correspondiente el mismo día del arqueo, firmado con fecha y hora de elaboración.
+En caso de atención de una queja presentada por un contribuyente, en cuanto al manejo de los valores, el gestor deberá realizar un auto arqueo en presencia de un funcionario municipal de la Tesorería Municipal o del CIAT, como testigo.

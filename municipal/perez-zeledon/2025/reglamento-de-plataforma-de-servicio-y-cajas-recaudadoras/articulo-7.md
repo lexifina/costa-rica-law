@@ -1,0 +1,1 @@
+Artículo 7º-Póliza de Fidelidad. Todo gestor deberá contar con una Póliza de Fidelidad, otorgada por el Instituto Nacional de Seguros, cuyo monto se fijará de acuerdo con el dinero y los valores que deba custodiar el gestor. La Tesorería Municipal deberá velar por el cumplimiento del presente artículo.

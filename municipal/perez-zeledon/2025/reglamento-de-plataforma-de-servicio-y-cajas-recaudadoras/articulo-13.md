@@ -1,0 +1,1 @@
+Artículo 13.-Valores asignados al gestor. El gestor deberá mantener todos los valores a él asignados (fondo de operación, sellos, ingresos, boletas de estacionamiento u otros autorizados), dentro de su área de trabajo y no podrá sacarlos sin autorización de sus superiores, salvo para trasladarlos a la Tesorería Municipal, para realización de cierres o arqueos.

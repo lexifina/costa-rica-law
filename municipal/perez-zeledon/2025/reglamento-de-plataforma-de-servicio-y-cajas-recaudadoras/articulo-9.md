@@ -1,0 +1,1 @@
+Artículo 9º-Acceso de los gestores al Sistema. Los gestores tendrán acceso al sistema de atención a contribuyentes, mediante claves de acceso, las cuales solicitará por escrito el Coordinador de Atención Tributaria, ante el Coordinador de Servicios Informáticos.

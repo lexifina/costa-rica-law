@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+De los requisitos
+Artículo 8º-Recepción de documentos. Para la recepción de trámites presentados en el CIAT, cada gestor deberá verificar que se cumpla con los requisitos establecidos para cada gestión o proceso solicitado. En caso de insistencia de recepción de documentos por parte del contribuyente, cuando estos no están completos, el gestor le indicará al solicitante que se ingresa incompleta la solicitud y se trasladará a la oficina correspondiente para su análisis y/o resolución. El comprobante de ingreso de la solicitud, indicará el o los requisitos faltantes y que el trámite se encuentra registrado.

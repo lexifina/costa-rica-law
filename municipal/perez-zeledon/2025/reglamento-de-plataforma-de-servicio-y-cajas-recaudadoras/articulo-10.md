@@ -1,0 +1,1 @@
+Artículo 10.-Emisión de comprobantes. El gestor consultará las cuentas y emitirá los comprobantes de pago correspondientes, en dos tantos. El original lo entregará al contribuyente debidamente firmado y sellado, una vez que haya verificado la información del mismo y recibido el dinero, la copia la conservará para efectos de realizar el cierre de la caja.

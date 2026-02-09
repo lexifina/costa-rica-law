@@ -1,0 +1,4 @@
+CAPÍTULO SÉTIMO
+Del ingreso de dinero a las cajas recaudadoras
+Artículo 25.-Ingreso de valores a las cajas recaudadoras. Ingresará únicamente dinero en efectivo en moneda de curso legal, pagos con tarjetas, depósitos bancarios, cheques certificados o cheques por el monto exacto de los comprobantes de ingresos y a nombre de la Municipalidad de Pérez Zeledón.
+En caso de cancelaciones mediante cheque, el gestor deberá anotar al reverso del cheque la información relativa a la persona que realiza el pago: número de recibo, número telefónico, correo y fecha. Además, se indicará que la cancelación queda sujeta a la tenencia de fondos del documento de pago por medio de un sello. El gestor deberá revisar minuciosamente los cheques, y si fueran devueltos por el banco debido a la mala confección, falta de datos o insolvencia de la cuenta, el gestor deberá coadyuvar con la oficina de Tesorería en la solución del caso.

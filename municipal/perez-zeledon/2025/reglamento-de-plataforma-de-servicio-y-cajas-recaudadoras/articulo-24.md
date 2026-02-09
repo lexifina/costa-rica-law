@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De la ubicación de las cajas recaudadoras
+Artículo 24.-Ubicación de las Cajas. Las Cajas Recaudadoras estarán ubicadas en el Centro Integrado de Atención Tributaria, pudiendo instalarse cajas auxiliares fuera del Palacio Municipal, para efectos de campañas de cobro especiales o extraordinarias en cualquier lugar del cantón que se requiera o bien de forma permanente en caso de contar con oficinas fuera del Palacio Municipal. El acceso a esta área será restringido y solamente personal autorizado podrá accesar a ella. Bajo ninguna circunstancia se permitirá el ingreso de personal no autorizado ni de personas ajenas a la institución, tales como vendedores, agentes, notificadores, familiares y otros.

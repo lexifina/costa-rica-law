@@ -1,0 +1,1 @@
+Artículo 6º-Servicio al Contribuyente. El gestor deberá atender al contribuyente dentro de los parámetros de respeto, dedicación y diligencia requeridos, a efecto de lograr como producto final de su participación, la percepción del ingreso y el mayor grado de satisfacción del contribuyente por la atención recibida.

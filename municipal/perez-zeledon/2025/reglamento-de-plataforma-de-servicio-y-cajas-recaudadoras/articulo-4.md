@@ -1,0 +1,2 @@
+Artículo 4º-Coordinación. En el desempeño de sus funciones, los gestores deberán coordinar con la Tesorería Municipal, tanto para los efectos relacionados con manejo de los valores, medidas de seguridad, entrega de cierres diarios, verificación de arqueos, dotación de menudo para operar, y otros similares.
+En cuanto a la dotación de menudo, como excepción, cuando la Tesorería esté imposibilitada de suministrarlo, quedará autorizada la oficina de Atención Tributaria de adquirirlo.
