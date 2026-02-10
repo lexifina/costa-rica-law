@@ -1,1 +1,0 @@
-Artículo 10.—Asesoría de la Dirección Jurídica del Banco. El Centro de Administración de Crédito, cuando la naturaleza de la operación crediticia lo requiera, podrá solicitar a la Dirección Jurídica del Banco el asesoramiento para el notario externo, aunque la responsabilidad final del trabajo notarial será siempre de éste último profesional.

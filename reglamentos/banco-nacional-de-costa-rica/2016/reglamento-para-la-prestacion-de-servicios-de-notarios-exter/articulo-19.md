@@ -1,4 +1,0 @@
-Artículo 19.—Asignación de trabajo sin pago de honorarios.
-El Gerente General o los Subgerentes Generales, mediante resolución razonada y bajo criterios de absoluta imparcialidad, igualdad y objetividad, autorizará la utilización de la figura del Notario Institucional para aquellos programas, esquemas o estrategias de crédito previamente establecidos que así lo requieran, en forma general e igualitaria. La respectiva resolución establecerá los programas, esquemas o estrategias de crédito; los términos y demás condiciones para acceder a este servicio. Dicha resolución deberá ser debidamente comunicada a todas las dependencias del Banco relacionadas sin excepción y será publicada en el sitio web institucional, para que esté disponible para efectos de información y consulta del público en general.
-El resto de los artículos del citado Reglamento permanecen invariables.
-(Así reformado mediante sesión N° 12213 del 18 de diciembre del 2017)

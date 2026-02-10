@@ -1,6 +1,0 @@
-Artículo 22. —Plazo para otorgar las escrituras. Luego de que el Centro de Administración de Crédito asigna un expediente de crédito o una labor notarial, el notario externo contará un plazo de dos días hábiles en créditos de vivienda y consumo y tres días hábiles en el resto de créditos, para:
-a) Revisar la información electrónica que se le remita o retirar el expediente cuando corresponda.
-b) Brindar asesoría, realizar los estudios previos y revisar la viabilidad de los actos instruidos.
-c) Confeccionar el borrador de la escritura, e
-d) Informar por la vía correspondiente el detalle de gastos y honorarios. Al momento de firmar la escritura deberá el notario externo aportar la factura original y el original debidamente firmado del detalle de gastos y honorarios.
-Los plazos antes indicados serán contados a partir del día hábil siguiente a la comunicación respectiva. El incumplimiento de lo anterior facultará al Banco para reasignar -al día hábil siguiente de vencido el plazo- el caso al notario externo que le corresponda en el rol, perdiendo el notario externo original el turno respectivo. Asimismo, reiterado el incumplimiento, el Banco podrá aplicar el régimen sancionatorio correspondiente o la resolución contractual.

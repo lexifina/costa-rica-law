@@ -1,3 +1,0 @@
-Transitorio II—Se exceptúa de la aplicación del artículo 3 los notarios que mantienen a su favor una medida cautelar que los mantiene en el ejercicio de sus funciones hasta que se resuelvan definitivamente los procesos judiciales correspondientes y aquellos cuyo contrato ha sido prorrogado mediante una contratación directa debidamente aprobada por la Contraloría General de la República mientras tales contrataciones estén vigentes.
-2) Dejar sin efecto el Reglamento para la prestación de servicios de Notarios Externos del Banco Nacional de Costa Rica (aprobado en el artículo 11.°, sesión 11.467 del 29 de enero del 2008), así como sus respectivas modificaciones.
-La Uruca 22 de julio del 2016
