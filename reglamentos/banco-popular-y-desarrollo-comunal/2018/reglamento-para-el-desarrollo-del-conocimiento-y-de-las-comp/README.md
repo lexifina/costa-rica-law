@@ -19,3 +19,4 @@ Reglamento para el desarrollo del conocimiento y de las competencias del persona
 | 4 | 2020-12-14 | Reglamento 5791 (2020-12-14) |
 | 5 | 2023-03-15 | Reglamento 5986 (2023-03-15) |
 | 6 | 2023-11-21 | Reglamento 6060 (2023-11-21) |
+| 7 | 2026-02-10 | Reglamento 6282 (2026-02-10) |

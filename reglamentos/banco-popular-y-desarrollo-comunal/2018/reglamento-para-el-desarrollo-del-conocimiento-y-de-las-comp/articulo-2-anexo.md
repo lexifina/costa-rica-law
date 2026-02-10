@@ -15,7 +15,7 @@ CARRERAS DE LAS CIENCIAS ECONÓMICAS
 12. Administración Bursátil o Mercados de Valores.
 13. Estadística.
 14. Responsabilidad Social o cualquiera de sus especialidades.
-CARRERAS DE INGENIERÍAS Y MATEMÁTICAS
+CARRERAS DE INGENIERIAS Y MATEMÁTICAS
 15. Ingeniería de Sistemas o Ingeniería en Informática y Telemática.
 16. Ingeniería Electrónica.
 17. Ingeniería Industrial.
@@ -25,5 +25,4 @@ CARRERAS DE LAS CIENCIAS SOCIALES
 20. Derecho.
 21. Psicología.
 22. Trabajo Social.
-El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento de Aprendizaje Y Crecimiento del Conglomerado Financiero Banco Popular, aprobado por la Junta Directiva Nacional actuando como tal y en el ejercicio de las funciones propias de Asamblea de Accionistas de la Operadora de Planes de Pensiones Complementadas del Banco Popular y de Desarrollo Comunal S. A.", "Popular Valores Puesto de Bolsa S. A." y de "Popular Fondos de Inversión S. A.", en sesión ordinaria 4600, celebrada el 18 de agosto del 2008, y publicado en el Diario Oficial La Gaceta N° 181 del 19-09-200"
-(Así reformado mediante sesión N° 5986 del 15 de marzo del 2023)
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
