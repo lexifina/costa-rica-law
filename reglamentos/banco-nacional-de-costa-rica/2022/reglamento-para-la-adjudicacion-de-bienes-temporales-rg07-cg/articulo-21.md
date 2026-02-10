@@ -1,3 +1,0 @@
-Artículo 21.-Informe de rendición de cuentas. Conforme lo que se establece en el artículo 24 del Reglamento de Gobierno Corporativo SUGEF 1294-2016 y 1295-2016, cada Comité o Comisión de apoyo, debe presentar ante la Gerencia General un informe de rendición de cuentas conforme las funciones establecidas para cada Comité, en el que se incluirán los principales temas tratados y el seguimiento de los acuerdos tomados. Estos informes de rendición de cuentas se presentarán anualmente. Deben incluirse en este informe la evaluación de los siguientes indicadores:
-. Porcentaje de sesiones del CABT con toda la agenda cubierta con respecto al total de sesiones.
-. Porcentaje de cumplimiento de los acuerdos tomados o recomendaciones emitidas.
