@@ -15,3 +15,4 @@ Reglamento de contratación administrativa
 | --- | --- | --- |
 | 1 | 2023-11-07 | la propia norma |
 | 2 | 2025-02-28 | Reglamento 24 (2025-02-28) |
+| 3 | 2026-02-10 | Reglamento 17 (2026-02-10) |
