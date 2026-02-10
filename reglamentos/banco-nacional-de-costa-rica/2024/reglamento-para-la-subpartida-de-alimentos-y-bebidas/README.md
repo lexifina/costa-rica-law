@@ -14,3 +14,4 @@ Reglamento para la subpartida de alimentos y bebidas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-12 | la propia norma |
+| 2 | 2026-02-10 | Reglamento 12795 (2026-02-10) |
