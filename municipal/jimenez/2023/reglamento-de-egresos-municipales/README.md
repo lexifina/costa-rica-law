@@ -14,3 +14,4 @@ Reglamento de egresos municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-14 | la propia norma |
+| 2 | 2026-02-11 | Reglamento municipal 93 (2026-02-11) |
