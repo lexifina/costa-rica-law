@@ -1,0 +1,1 @@
+ARTÍCULO 18- Revisión de la metodología. La Comisión Nacional de Precios de los Medicamentos deberá revisar al menos, anualmente, la metodología con base en los resultados de su aplicación, con el fin de determinar mejoras.
