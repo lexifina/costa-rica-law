@@ -1,0 +1,2 @@
+Artículo 8°.- Del quórum del Consejo Consultivo de Educación Financiera (COCEF). El COCEF sesionará de forma presencial, virtual o de forma híbrida, siempre y cuando, se encuentren presentes al menos 7 de sus miembros.
+Las personas miembros del COCEF tienen la obligación de asistir puntualmente a las sesiones y en caso de no poder hacerlo, deberán presentar la justificación correspondiente por escrito con tres días de antelación ante la Secretaría Técnica del COCEF.

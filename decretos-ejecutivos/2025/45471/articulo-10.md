@@ -1,0 +1,1 @@
+Artículo 10°.- De la votación en el COCEF. Los acuerdos del COCEF se adoptarán por mayoría absoluta (la mitad más uno del total de miembros que integran el COCEF). En caso de empate, el presidente tendrá doble voto.

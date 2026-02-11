@@ -1,0 +1,1 @@
+Artículo 20°. Transversalización del Enfoque de Género. Las acciones derivadas de la Política de Educación Financiera deberán integrar de forma transversal el enfoque de género, reconociendo las barreras estructurales que enfrentan mujeres y hombres en el acceso, uso y control de los servicios financieros.
