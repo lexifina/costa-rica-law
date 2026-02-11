@@ -1,0 +1,2 @@
+Artículo 21- Vigencia.
+El presente reglamento empezará a regir a partir de su publicación en el Diario Oficial La Gaceta.
