@@ -14,3 +14,4 @@ Reglamento para el otorgamiento del carné digital de manipuladores de alimentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-02 | la propia norma |
+| 2 | 2026-02-12 | Decreto Ejecutivo 45526 (2026-02-12) |

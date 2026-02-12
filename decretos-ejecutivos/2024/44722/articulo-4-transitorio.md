@@ -1,1 +1,2 @@
-Transitorio IV.- A partir de la entrada en vigencia de este Decreto Ejecutivo, se otorgará un periodo de seis meses en el que no se realizará el cobro del Carné de Manipulador de Alimentos establecido en el presente Decreto.
+Transitorio IV.- A partir de la entrada en vigencia del presente Decreto Ejecutivo, se otorgará un plazo de doce meses, dentro del cual no se realizará el cobro del Carné Digital de Manipulador de Alimentos establecido en este Decreto Ejecutivo. Concluido dicho plazo, se procederá al cobro correspondiente, conforme a lo dispuesto en el artículo 9 del presente reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45526 del 12 de febrero del 2026)
