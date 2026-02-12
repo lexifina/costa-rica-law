@@ -1,1 +1,0 @@
-Artículo 113.- En caso de presentarse alguna anomalía en la asistencia incumplimiento de la jornada de trabajo por parte de algún funcionario del INCOP, el jefe inmediato deberá comunicar oportunamente de tal hecho al Área de Administración del Capital Humano con el fin de que se tome las acciones pertinentes, sean estas de tipo salarial y/o de sanción.

@@ -1,1 +1,0 @@
-Artículo 60.- Para los efectos de vacaciones y en especial para el cálculo de su pago, se adquiere derecho a las vacaciones completas al cumplirse cincuenta semanas de trabajo continuo para el primer período, luego de este período, el cómputo de las cincuenta semanas se inicia en la fecha de aniversario de ingreso al trabajo.

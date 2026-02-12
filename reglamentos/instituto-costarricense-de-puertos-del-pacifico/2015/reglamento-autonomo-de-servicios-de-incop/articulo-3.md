@@ -1,1 +1,0 @@
-Artículo 3.- Para los efectos de este Reglamento, se considera patrono al Instituto Costarricense de Puertos del Pacífico y trabajador a toda persona física que en virtud de su contrato de trabajo preste sus servicios manuales, intelectuales o de ambos géneros al INCOP.

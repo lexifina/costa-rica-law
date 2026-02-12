@@ -1,1 +1,0 @@
-Artículo 23.- Un puesto puede ser examinado y revisado las veces que resulte necesario, pero no podrá ser reasignado a una clase de mayor categoría más de una vez en un período de doce meses, según lo establecido por los entes externos.

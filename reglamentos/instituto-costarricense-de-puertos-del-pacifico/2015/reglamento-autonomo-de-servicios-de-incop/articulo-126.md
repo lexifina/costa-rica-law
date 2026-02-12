@@ -1,2 +1,0 @@
-Artículo 126.- El Área de Administración del Capital Humano establecerá las sanciones que deban aplicar a un funcionario, y se recomendará su aplicación a la Gerencia General, la que resolverá sobre el despido. Al Encargado del Área de Administración del Capital Humano le corresponderá resolver también sobre las sanciones derivadas del control de asistencia.
-Todas las resoluciones administrativas disciplinarias, deberán ser tramitadas a través del Gerente General; de éste modo, el afectado podría presentar recurso ante Junta Directiva.

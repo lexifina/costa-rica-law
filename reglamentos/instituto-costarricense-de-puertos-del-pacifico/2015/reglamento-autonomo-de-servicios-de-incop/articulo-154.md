@@ -1,1 +1,0 @@
-Artículo 154.- Al acogerse la denuncia, el caso será instruido e investigado por el Encargado de Administración del Capital Humano, en un plazo máximo de 30 días hábiles, brindando su recomendación a la Gerencia General como corresponde.

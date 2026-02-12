@@ -1,1 +1,0 @@
-Artículo 80.- Es obligación del trabajador guardar la más absoluta reserva sobre los asuntos del INCOP, cuya divulgación pueda causar algún perjuicio económico o moral al INCOP o a terceros. El trabajador que incumpla esta obligación será suspendido de sus labores por ocho días naturales o despedido, según la gravedad de la falta.

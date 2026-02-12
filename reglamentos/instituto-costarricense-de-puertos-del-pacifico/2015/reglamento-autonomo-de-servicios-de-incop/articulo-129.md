@@ -1,1 +1,0 @@
-Artículo 129.- Separadamente de las sanciones disciplinarias correspondientes a llegadas tardías, ausencias y abandono de trabajo, acarreará la pérdida del salario correspondiente al tiempo no laborado.

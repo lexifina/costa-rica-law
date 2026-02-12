@@ -1,1 +1,0 @@
-Artículo 33.- En caso de declararse desierto algún concurso interno, se sacará la plaza a concurso externo, en el que podrá participar cualquier persona que cumpla con los requisitos exigidos por la Institución.

@@ -1,1 +1,0 @@
-Artículo 117.- Las ausencias por enfermedad o accidente se justificarán con el dictamen médico extendido por la C.C.S.S., el I.N.S. o el médico del INCOP si lo hubiere, el cual debe ser presentado al Jefe Inmediato del trabajador, a más tardar el día siguiente de la fecha en que el médico lo otorgue, para que lo remita al Área de Administración del Capital Humano.

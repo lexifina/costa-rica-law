@@ -1,1 +1,0 @@
-Artículo 108.- La llegada tardía que exceda de veinte minutos contados a partir de la hora de ingreso estipulada y que carezca de justificación, indicará que el funcionario no se ha presentado a sus labores y se computará como media ausencia injustificada para efectos salariales y de sanción.

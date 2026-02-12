@@ -1,1 +1,0 @@
-Artículo 155.- En la realización del proceso de investigación, por parte del Encargado de la Administración del Capital Humano, se realizarán actuaciones previas con el objeto de determinar con carácter preliminar si concurren circunstancias que justifiquen la iniciación del procedimiento.

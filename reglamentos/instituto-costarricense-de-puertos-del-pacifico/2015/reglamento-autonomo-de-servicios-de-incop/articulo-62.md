@@ -1,1 +1,0 @@
-Artículo 62.- El cómputo de los meses completos para el pago de vacaciones parciales, en los casos de terminación del contrato de trabajo antes de completarse el período de cincuenta semanas, se inicia en la fecha de ingreso para el primer año y en la fecha de aniversario de ingreso para los años sucesivos.

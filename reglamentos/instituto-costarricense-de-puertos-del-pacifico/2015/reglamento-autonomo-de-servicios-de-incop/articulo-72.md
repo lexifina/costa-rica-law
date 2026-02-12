@@ -1,1 +1,0 @@
-Artículo 72.- Se otorgará permiso con goce de salario por tres meses a la funcionaria que adopte a un menor de edad, para lo cual la servidora deberá presentar al Instituto, certificación del Patronato Nacional de la Infancia o del Juzgado de Familia correspondiente.

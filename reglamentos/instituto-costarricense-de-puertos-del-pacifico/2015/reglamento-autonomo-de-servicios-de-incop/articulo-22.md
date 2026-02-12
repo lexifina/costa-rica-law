@@ -1,1 +1,0 @@
-Artículo 22.- Para las reasignaciones de puestos, los funcionarios deberán cumplir con los requisitos establecidos en el Manual de Clases anchas del Servicios Civil, de conformidad con lo dispuesto en las Directrices y Procedimientos de Política Salarial y Clasificación de Puestos vigentes.

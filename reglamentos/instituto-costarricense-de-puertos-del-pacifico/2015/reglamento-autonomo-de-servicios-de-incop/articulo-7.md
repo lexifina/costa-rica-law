@@ -1,1 +1,0 @@
-Artículo 7.- El Jefe que autorice un acto o movimiento de personal que no haya sido autorizado de previo, conforme a la reglamentación vigente, será sancionado y responderá de los perjuicios que de él se deriven para el INCOP.

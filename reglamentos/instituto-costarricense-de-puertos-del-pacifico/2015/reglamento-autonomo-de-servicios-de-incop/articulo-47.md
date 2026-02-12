@@ -1,1 +1,0 @@
-Artículo 47.- Si el servidor está inconforme con la calificación, podrá impugnarla por escrito ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiendo ser también notificada la resolución de dicha impugnación.

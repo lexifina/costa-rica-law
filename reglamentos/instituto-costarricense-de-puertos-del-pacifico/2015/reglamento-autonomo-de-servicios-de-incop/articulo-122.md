@@ -1,1 +1,0 @@
-Artículo 122.- Es reincidente el servidor que incurra de nuevo en una falta dentro de los tres meses siguientes a la comisión de otra por la que fue sancionado de conformidad con lo dispuesto en este reglamento.

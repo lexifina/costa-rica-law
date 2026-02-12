@@ -1,1 +1,0 @@
-Artículo 104.- No procederá o se suspenderá el pago de subsidio cuando para obtener la incapacidad el trabajador incurra en fraude, adultere documentos o haya inducido a engaño para obtenerlo y será suspendido hasta por ocho días naturales o destituido de acuerdo a la gravedad de la falta.

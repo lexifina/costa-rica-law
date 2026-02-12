@@ -1,2 +1,0 @@
-Artículo 54.- Los trabajadores que presten servicios en jornadas continuas, tendrán derecho a tiempos de descanso a saber 15 minutos en la mañana y 15 minutos en la tarde, así como 45 minutos de almuerzo, las que serán concedidas de acuerdo a las modalidades y necesidades propias del trabajo.
-La jornada continua se establece únicamente en las necesidades propias del INCOP, por lo que se podrá fraccionar cualquier horario cuando se considere que han dejado de existir las causas que la motivaron.
