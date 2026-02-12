@@ -1,0 +1,13 @@
+CIRCULAR N°25-2026
+Asunto: "Protocolo para el Manejo Adecuado de los Conflictos de Interés y el Régimen de Prohibiciones para las Personas Funcionarias Públicas que Intervienen en el Proceso de Contratación Pública en el Poder Judicial".
+A TODOS LOS DESPACHOS Y OFICINAS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N°10-2026 celebrada el 05 de febrero de 2026, artículo XI, aprobó el "Protocolo para el Manejo Adecuado de los Conflictos de Interés y el Régimen de Prohibiciones para las Personas Funcionarias Públicas que Intervienen en el Proceso de Contratación Pública en el Poder Judicial", con el objetivo de fortalecer el sistema de control interno, promover la transparencia, ética e integridad en los procesos de contratación pública y garantizar la coherencia normativa con la legislación vigente.
+Este Protocolo fue elaborado por la Dirección Ejecutiva, en coordinación con la Oficina de Cumplimiento, la Dirección Jurídica y el Departamento de Proveeduría, incorporando todas las observaciones técnicas y legales pertinentes. La aprobación del documento constituye la primera fase del proyecto, orientada a la consolidación de procedimientos claros para la identificación, gestión y resolución de conflictos de interés, incompatibilidades y prohibiciones en los procesos de contratación pública.
+Se resalta que la implementación del Protocolo se acompañará de una segunda fase, que incluye su incorporación como apartado especializado dentro del instrumento institucional "ABC para la Gestión de Conflictos de Interés en el Poder Judicial", así como la divulgación y acciones formativas, coordinadas por la Dirección de Gestión Humana, con el apoyo del Departamento de Prensa y Comunicación, con el fin de asegurar la correcta aplicación del Protocolo en todas las instancias judiciales.
+Las oficinas y personas involucradas en la elaboración y validación del Protocolo, así como la dinámica de trabajo desarrollada, reflejan el compromiso institucional del Poder Judicial con la ética, la transparencia y la integridad pública.
+El Protocolo aprobado para su conocimiento y aplicación, se encuentra en el siguiente enlace:
+https://secretariacorte.poder-judicial.go.cr/index.php/informacion-general/documentos-interes?download=53727:protocolo-para-el-manejo-adecuado-de-los-conflictos-de-interes
+(Nota de Sinalevi: El Protocolo para el Manejo Adecuado de los Conflictos de Interés y el Régimen de Prohibiciones para las Personas Funcionarias Públicas que Intervienen en el Proceso de Contratación Pública en el Poder Judicial, puede ser consultado en el siguiente Enlace)
+Publíquese una vez en el Boletín Judicial."
+San José,12 de febrero de 2026.
