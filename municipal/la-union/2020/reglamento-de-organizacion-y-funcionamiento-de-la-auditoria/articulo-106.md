@@ -1,1 +1,0 @@
-Artículo 106.— Fiscalización de resultados. El personal de la Auditoría Interna podrá fiscalizar las operaciones y programas para verificar que los resultados sean consistentes con los objetivos y metas establecidos, y de que las operaciones, programas y presupuestos estén siendo implantados o desempeñados tal como fueron planeados.

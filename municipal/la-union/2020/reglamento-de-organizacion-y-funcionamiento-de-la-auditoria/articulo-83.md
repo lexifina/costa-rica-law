@@ -1,1 +1,0 @@
-Artículo 83.— Probabilidad de errores e irregularidades. El personal de la Auditoría deberá considerar la posibilidad de errores, irregularidades, incumplimientos y otras exposiciones al desarrollar los objetivos del estudio.

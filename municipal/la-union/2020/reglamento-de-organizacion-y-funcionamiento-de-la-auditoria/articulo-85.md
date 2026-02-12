@@ -1,1 +1,0 @@
-Artículo 85.— Asuntos a tener en cuenta en el alcance del trabajo. El alcance debe tener en cuenta la evaluación del Control Interno, los sistemas de información, registros, equipo, materiales, el personal y la ubicación física y otros relevantes, incluso los que se encuentren bajo control de terceros.

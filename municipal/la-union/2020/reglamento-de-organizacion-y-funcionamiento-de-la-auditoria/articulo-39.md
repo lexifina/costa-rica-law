@@ -1,1 +1,0 @@
-Artículo 39.— Dependencia del Auditor o Auditora Interna. El auditor o auditora interna dependerá orgánicamente del Concejo Municipal considerando siempre su independencia funcional. Dicha relación de puestos deberá contemplarse en el manual institucional de cargos y clases.

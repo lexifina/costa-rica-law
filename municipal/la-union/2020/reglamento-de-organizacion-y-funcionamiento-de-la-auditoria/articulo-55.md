@@ -1,1 +1,0 @@
-Artículo 55.—Prohibiciones. Son Prohibiciones del Auditor o Auditora Interna y demás personal de la Auditoría Interna, las establecidas en el artículo 34 de la LGCI Ley N° 8292, así como aquellas que sean establecidas en otros cuerpos normativos relacionados con la función de fiscalización de la Auditoría Interna.
