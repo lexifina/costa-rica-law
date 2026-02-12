@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para todas las personas que laboran en la Municipalidad de Puntarenas y la Proveeduría en conjunto con la Alcaldía velará por su cumplimiento.
