@@ -1,1 +1,0 @@
-Artículo 21.—Indicación de las vías o modalidades de venta del servicio. Como parte de la información de trascendencia tributaria que deberá ser suministrada, los agentes de percepción del tributo, deberán indicar al I.C.T. cuando éste así lo requiera, los medios físicos o electrónicos mediante los cuales han realizado la venta de los servicios gravados por el impuesto.
