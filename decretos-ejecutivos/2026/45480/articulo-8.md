@@ -1,0 +1,3 @@
+CAPÍTULO II
+REQUISITOS PARA OPTAR POR EL CERTIFICADO DE ESS
+Artículo 8°- Sobre el formulario para la obtención del certificado: La Organización interesada en obtener el certificado de ESS, podrá hacer la solicitud para el envío del formulario a la DESS, esta atenderá la solicitud en un plazo de 10 días naturales. Dicha solicitud se podrá realizar por las siguientes vías oficiales, a saber: correo electrónico direccion.economiasocial@mtss.go.cr o documento digital dirigido a la DESS en donde se manifieste la voluntad de la Organización de obtener el certificado. El formulario también se encontrará disponible en la página web del Ministerio de Trabajo y Seguridad Social: www.mtss.go.cr.

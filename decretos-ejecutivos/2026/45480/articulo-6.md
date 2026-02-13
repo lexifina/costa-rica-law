@@ -1,0 +1,1 @@
+Artículo 6°- Otorgamiento del certificado: Le corresponde únicamente al Ministerio de Trabajo y Seguridad Social mediante la DESS, el otorgamiento del certificado de ESS, a partir de la verificación propia de los requisitos establecidos para dicho fin.

@@ -1,0 +1,1 @@
+Artículo 5°- Ámbito de aplicación: Los presentes lineamientos se aplican a las Organizaciones nacionales o transnacionales de ESS que estén domiciliadas en el territorio nacional y cumplan con la definición establecida en el presente Reglamento.
