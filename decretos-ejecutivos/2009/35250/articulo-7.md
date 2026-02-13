@@ -1,1 +1,0 @@
-Artículo 7º—Sujeto Activo del Tributo. El I.C.T. es el sujeto activo del impuesto establecido en la Ley y le compete llevar a cabo todas las actuaciones necesarias para garantizar su percepción, control, administración y fiscalización.
