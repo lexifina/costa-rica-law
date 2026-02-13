@@ -1,0 +1,1 @@
+Artículo 5º-Plazos. Se emitirán los títulos valores en unidades de desarrollo en los plazos de emisión, según la estrategia y plan de emisión que defina el Ministerio de Hacienda a través de la Dirección General de Gestión de Deuda Pública.

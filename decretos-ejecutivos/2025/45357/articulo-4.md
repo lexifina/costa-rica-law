@@ -1,0 +1,1 @@
+Artículo 4º-Monedas de Denominación y Cancelación. Los títulos valores serán denominados en unidades de desarrollo y cancelados en colones, conforme a la estrategia de financiamiento del Gobierno Central, estos pueden negociarse con premio o descuento dependiendo de las condiciones de mercado.
