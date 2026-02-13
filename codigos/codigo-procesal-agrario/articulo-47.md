@@ -1,6 +1,3 @@
-ARTÍCULO 47- Patrocinio letrado a cargo de la Defensa Pública
-Las defensoras y los defensores públicos agrarios tendrán las facultades de directores del proceso, en los procesos en que intervengan, salvo que la parte amplíe sus atribuciones a las de un apoderado especial judicial, lo cual deberá indicar expresamente. Tendrán esas mismas facultades de abogados o abogadas directoras para los procedimientos administrativos que puedan incidir en la sede judicial.
-Si actúan con facultades de mandatario o mandataria, estarán sometidos a las mismas prohibiciones del párrafo final del artículo 46 de esta ley. No tendrá valor ni efecto alguno lo que se haga en oposición a esas prohibiciones.
-Los dineros por costas personales que se generen a favor de la parte patrocinada por la defensa pública agraria se distribuirán de la siguiente manera:
-a) Un cincuenta por ciento (50%) del total recaudado será asignado al Fondo de Apoyo a la Defensa Pública Agraria, para optimizar el servicio y la cobertura en el territorio nacional.
-b) Un cincuenta por ciento (50%) restante será depositado en el Fondo de Apoyo a la Administración de Justicia Agraria para garantizar la eficacia y la eficiencia del servicio público agrario. La administración de esos recursos se regirá conforme a la normativa, ambos fondos serán administrados por el Poder Judicial.
+Artículo 47- Patrocinio letrado a cargo de la Defensa Pública. Las personas defensoras públicas agrarias tendrán las facultades de directores del proceso, en los procesos en que intervengan.
+Los dineros por costas personales que se generen a favor de la parte patrocinada por la defensa pública agraria serán asignados al Fondo de Apoyo a la Defensa Pública Agraria, para optimizar el servicio y la cobertura en el territorio nacional.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

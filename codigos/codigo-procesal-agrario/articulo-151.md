@@ -1,8 +1,8 @@
-ARTÍCULO 151- Exhibición de documentos
-Se ordenará a las partes la exhibición de documentos, informes, libros o cualquier otro elemento probatorio de esa naturaleza si están en su dominio o disposición, se refieran al objeto del proceso, sean prueba común o puedan derivarse datos probatorios para quien lo solicite.
-Se aplicarán las siguientes reglas:
-1) Con la petición de exhibición, quien lo solicite podrá aportar una copia o reproducción del documento. Si no lo tiene en su poder, indicará en términos concretos su contenido. Cuando se ordene la exhibición, se advertirá a la parte requerida, que ante su negativa injustificada, se podrá tener como exacto lo presentado o afirmado por la contraria. Lo anterior se dispone siempre que por medio de otras pruebas resulten manifiestamente verosímiles la existencia y el contenido del documento no exhibido.
-2) Si el documento se encuentra en poder de una tercera persona, se le prevendrá lo exhiba, siempre que sea trascendente para el proceso y no le produzca perjuicio.
-3) En ambos supuestos se podrá presentar copia certificada o testimonio del documento prevenido, salvo si el tribunal o las partes exijan el original por razones fundadas.
-4) Las personas funcionarias públicas no podrán negarse a expedir certificaciones o testimonios, ni oponerse a exhibir los documentos de sus dependencias y archivos, de acuerdo con el ordenamiento vigente.
-5) Al ordenarse la exhibición se advertirá que ante la negativa injustificada de cumplimiento podrá seguirse causa por el delito de desobediencia a la autoridad, sin perjuicio de que en sede penal la conducta se recalifique.
+Artículo 151- Exhibición de documentos. Se ordenará a las partes la exhibición de documentos, informes, libros o cualquier otra fuente probatoria, si están bajo su dominio o disposición, se refieren al objeto del proceso, sea común o puedan derivarse conclusiones probatorias para quien lo solicita.
+El tribunal podrá ordenar esa exhibición ante el perito, cuando así lo pidan las partes o lo solicite el experto para los fines de la pericia.
+Con la petición de exhibición, la parte solicitante podrá aportar una copia o reproducción del documento; pero, si no lo tuviera en su poder, indicará en términos concretos su contenido.
+La exhibición será obligatoria y en la resolución que la ordena se advertirá al requerido que su negativa permitirá atribuirle valor a la copia simple, a la reproducción o a la versión del contenido del documento, y se podrá tener como confirmación de la exactitud de las afirmaciones de la parte contraria, respecto del contenido del documento o del hecho que se quiere probar.
+Si el documento que se pide exhibir se encontrara en poder de un tercero, se le prevendrá que lo presente, siempre que resulte trascendente para los fines del proceso y no le depare perjuicio al requerido.
+La persona obligada a la exhibición podrá presentar copia certificada o testimonio del documento prevenido, bajo su responsabilidad, salvo si el tribunal dudara de su autenticidad o la contraria exija el original por razones fundadas.
+Los funcionarios del Estado y de las instituciones públicas no podrán negarse a expedir certificaciones ni testimonios, ni oponerse a exhibir los documentos de sus dependencias y archivos.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

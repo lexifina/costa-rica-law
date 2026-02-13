@@ -1,4 +1,4 @@
-ARTÍCULO 177- Impedimento e inasistencia de personas abogadas
-Las personas abogadas, con o sin mandato judicial, de tener impedimento para asistir a alguna audiencia, tomarán las previsiones para que otra profesional les sustituya.
-Las audiencias no se pospondrán ni suspenderán por su ausencia. Sin embargo, será admisible como justificación para variar el señalamiento, la programación anterior de otra audiencia en horas y fechas coincidentes. Para hacer valer tal justificación deberán comunicarlo al tribunal a la mayor brevedad.
-Su inasistencia injustificada a la audiencia preparatoria o a la de juicio, se comunicará al Colegio de Abogados y Abogadas para lo de su cargo. La parte correspondiente podrá nombrar a otra profesional en derecho, para que la siga asesorando.
+Artículo 177- Impedimento e inasistencia de personas abogadas. Los profesionales en derecho, con o sin mandato judicial, de tener impedimento para asistir a alguna audiencia, tomarán las previsiones para que otra profesional les sustituya.
+Sin embargo, será admisible como justificación para variar el señalamiento, la programación anterior de otra audiencia en horas y fechas coincidentes. Para hacer valer tal justificación deberán comunicarlo dentro de los tres días siguientes de la notificación del señalamiento.
+Su inasistencia injustificada a la audiencia se comunicará al Colegio de Abogados y Abogadas de Costa Rica, para lo de su cargo. La parte correspondiente podránombrar a otra profesional en derecho, para que la siga asesorando.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

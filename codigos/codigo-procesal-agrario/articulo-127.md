@@ -1,2 +1,2 @@
-ARTÍCULO 127- Prueba trasladada
-Podrán admitirse las pruebas practicadas en otro proceso y en procedimientos administrativos, cuando se trate de las mismas partes. Si quien no ha sido parte en aquel proceso o procedimiento se opone, no podrán ser trasladas, y se podrá admitir como prueba documental.
+Artículo 127- Prueba trasladada. Podrán admitirse las pruebas practicadas válidamente en otro o en el mismo proceso y en procedimientos administrativos, conservando su naturaleza, cuando no sea posible o se considere innecesario repetirlas, siempre que se haya garantizado o garantice la participación a las partes. En la audiencia se dejará constancia de la incorporación y es potestativa su lectura o reproducción.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

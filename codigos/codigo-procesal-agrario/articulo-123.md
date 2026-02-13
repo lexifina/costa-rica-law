@@ -1,3 +1,2 @@
-ARTÍCULO 123- Práctica de la prueba en el lugar de los hechos y en sitios distantes
-La prueba se recibirá en el lugar de los hechos, sin sujeción a las limitaciones de competencia territorial, salvo que sea innecesaria la itinerancia del tribunal, lo cual deberá justificarse.
-Se podrá recibir la prueba a través de medios tecnológicos, siempre que se garanticen la inmediación y el contradictorio, cuando deba practicarse en lugares distantes de la sede del tribunal, resulte imposible, muy oneroso o innecesario su desplazamiento, así como por motivos de seguridad. El tribunal deberá justificar las razones de tal decisión.
+Artículo 123- Práctica de la prueba en el lugar de los hechos y en sitios distantes. La prueba se podrá recibir en el lugar de los hechos, salvo que sea innecesaria la itinerancia del tribunal. Siempre que se garanticen la inmediación y el contradictorio, también, se podrá recibir la prueba a través de medios tecnológicos.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

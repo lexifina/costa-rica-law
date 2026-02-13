@@ -1,2 +1,2 @@
-ARTÍCULO 329- Reconocimiento judicial
-Se realizará un reconocimiento judicial del inmueble a titular, independientemente del área, en todos los procesos de información posesoria y de rectificación de medida. No será procedente sustituir esta prueba por la testimonial.
+Artículo 329- Reconocimiento judicial. Se realizará un reconocimiento judicial del inmueble a titular, en aquellos terrenos cuya área supere las treinta hectáreas, con excepción de los inmuebles a los que hace referencia el artículo 7 de la Ley 139, Ley de Informaciones Posesorias, del 14 de julio de 1941, en los cuales se realizará en todos los procesos de información posesoria y de rectificación de medida, aunque tengan una cabida menor.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

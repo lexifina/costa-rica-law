@@ -1,5 +1,5 @@
-ARTÍCULO 115- Admisibilidad de la prueba
-Serán admisibles las pruebas que tengan relación directa con los hechos debatidos, siempre que sean controvertidos.
-Se aceptará la prueba útil y pertinente, y se rechazará la referida a hechos admitidos de forma expresa o que legalmente deban tenerse como tales, salvo que el tribunal considere se esté ante un fraude procesal. También se denegará la prueba concerniente a hechos evidentes o notorios y la prueba abundante, la inconducente y la ilegal.
-Cuando sea necesario para la celeridad del proceso, el tribunal podrá admitir prueba, previo a la audiencia preparatoria, cuando sea necesario, en tal caso tomará las medidas pertinentes para que pueda ser recibida en la de juicio.
+Artículo 115- Admisibilidad de la prueba. Serán admisibles las pruebas que tengan relación directa con los hechos debatidos, siempre que sean controvertidos.
+Se aceptará la prueba útil y pertinente, y se rechazará la referida a hechos admitidos de forma expresa o que legalmente deban tenerse como tales, salvo que el tribunal considere se esté ante un fraude procesal. También, se denegará la prueba concerniente a hechos evidentes o notorios y la prueba abundante, la inconducente y la ilegal.
+Cuando sea necesario para la celeridad del proceso, el tribunal podrá admitir prueba, previo a la audiencia preparatoria o única, según proceda, cuando sea necesario. En tal caso, tomará las medidas pertinentes para que pueda ser recibida en la de juicio.
 Las pruebas podrán ser consignadas y aportadas al proceso mediante cualquier tipo de soporte documental, electrónico, informático, magnético, óptico, telemático o producido por nuevas tecnologías, siempre que sean compatibles con los dispositivos que utilice el Poder Judicial.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

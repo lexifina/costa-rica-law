@@ -1,3 +1,3 @@
-ARTÍCULO 106- Resolución de excepciones
-Todas las excepciones procesales se resolverán en la audiencia preparatoria, salvo la de incompetencia.
-La de prescripción, así como transacción, conciliación, cosa juzgada, acuerdo arbitral y caducidad, como causales de demanda improponible, se acogerán en la audiencia preparatoria cuando sean evidentes o manifiestas. De lo contrario, se resolverán en la sentencia. Lo resuelto en cuanto al rechazo de estas en esa audiencia no enervará que puedan ser analizadas nuevamente al resolverse sobre el fondo.
+Artículo 106- Resolución de excepciones. Todas las excepciones procesales se resolverán antes de la audiencia única o preparatoria, según proceda. Se escuchará a la parte actora o reconventora, por un plazo de tres días previo a su resolución.
+Las de litisconsorcio pasivo necesario, indebida acumulación de pretensiones y prescripción, así como transacción, conciliación, cosa juzgada, acuerdo arbitral y caducidad, como causales de demanda improponible, se resolverán en cualquier momento, cuando sean evidentes o manifiestas. De lo contrario, se resolverán en la sentencia. Lo resuelto en cuanto al rechazo de estas, en esa audiencia no enervará que puedan ser analizadas nuevamente al resolverse sobre el fondo.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)
