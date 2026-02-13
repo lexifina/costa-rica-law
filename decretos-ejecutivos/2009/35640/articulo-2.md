@@ -1,8 +1,0 @@
-Artículo 2º—Definiciones. Para efectos del presente reglamento, cuando se utilicen los siguientes términos, debe dársele las aceptaciones que a continuación se indican:
-a) Arrendamiento de Viaje: Modalidad mediante la cual un tercero arrienda un vehículo de cualquier naturaleza para realizar un viaje internacional, quedando por cuenta del arrendante la venta de los pasajes y las demás responsabilidades de este tipo de viaje, el cual es también conocido como tipo “charter”.
-b) Código: Código de Normas y Procedimientos Tributarios, Ley Nº 4755 del 3 de mayo de 1971 y sus reformas.
-c) Empresa de Transporte: Toda persona física o jurídica que en forma directa o a través de representantes, realice servicios remunerados de transporte internacional de pasajeros, mediante el certificado o permiso de explotación para servicios de transporte aéreo, marítimo o terrestre
-d) I.C.T.: Instituto Costarricense de Turismo.
-e) Información de Trascendencia Tributaria: Todo documento, medio o fuente de información que resulte de interés para el Instituto Costarricense de Turismo por conducir directa o indirectamente a la aplicación de los tributos, aportada por los contribuyentes, responsables o terceros en cumplimiento de un deber de colaboración, sea de forma espontánea o solicitada expresamente por el Instituto Costarricense de Turismo.
-f) Ley: Ley Orgánica del Instituto Costarricense de Turismo, No. 1917 del 30 de julio de 1955 reformada por la Ley para el Fortalecimiento de la Industria Turística Nacional, Nº 8694 del 11 de diciembre del 2008, publicada el Diario Oficial La Gaceta Nº 60 del 27 de marzo del 2009.
-g) Viaje Internacional: Viaje efectuado entre Costa Rica y otro país o entre dos países distintos, vía aérea, marítima o terrestre.

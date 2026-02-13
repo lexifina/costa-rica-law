@@ -1,1 +1,0 @@
-Artículo 7º—Sujeto activo del tributo. El I.C.T. es el sujeto acreedor del impuesto del 5% sobre valor de los pasajes cuyo origen de ruta sea Costa Rica, para cualquier clase de viajes internacionales, sobre los cuales no se haya cobrado el impuesto que establece el artículo 46, inciso a) de la Ley .

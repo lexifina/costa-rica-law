@@ -1,1 +1,0 @@
-Artículo 11.—Pago efectuado fuera del plazo. El pago del impuesto efectuado fuera de plazo producirá la obligación por parte del contribuyente de pagar junto con el tributo adeudado, los intereses establecidos en el artículo 57 del Código.

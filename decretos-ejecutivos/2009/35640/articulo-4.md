@@ -1,1 +1,0 @@
-Artículo 4º—Hecho generador. El hecho generador del impuesto del 5% sobre el valor de los pasajes cuyo origen de ruta sea Costa Rica, para cualquier clase de viajes internacionales, lo constituye la venta del boleto o pasaje internacional, independientemente de la forma de pago que se utilice o del intermediario por medio del cual se realice su adquisición.

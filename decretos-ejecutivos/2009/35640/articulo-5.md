@@ -1,1 +1,0 @@
-Artículo 5º—Base imponible. La base de imposición para el cálculo del impuesto del 5% sobre pasajes cuyo origen de ruta sea Costa Rica, para cualquier clase de viajes internacionales de conformidad con la Ley, estará conformada por el valor que se cobra por la venta del tiquete o pasaje internacional.
