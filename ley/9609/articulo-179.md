@@ -1,2 +1,1 @@
-ARTÍCULO 179- Registro de control de audiencias
-Cada tribunal tendrá un registro de control de audiencias. Consignará el lugar, la hora y la fecha de inicio, el tipo de proceso y la audiencia, la identificación de las partes y de quienes participaron, el lugar, la hora y la fecha de conclusión, así como la firma de las personas juzgadoras que comparecieron.
+ARTÍCULO 179- Registro de control de audiencias. (Derogado por el artículo 2° de la ley N° 10779 del 29 de octubre de 2025)

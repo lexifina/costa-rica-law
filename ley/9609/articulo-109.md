@@ -1,3 +1,3 @@
-ARTÍCULO 109- Reconvención y réplica
-En procesos ordinarios, la parte demandada podrá reconvenir a la actora y a otras personas que no lo sean. Deberá hacerlo al contestar la demanda y cumplir los mismos requisitos exigidos para esta. La demanda y la reconvención han de ser conexas.
-Si se admite la contrademanda, se concederá a la reconvenida un plazo de quince días para contestar. La réplica tendrá iguales requisitos que la contestación.
+Artículo 109- Reconvención y réplica. En procesos ordinarios, la parte demandada podrá reconvenir a la actora y a otras personas que no lo sean. Deberá hacerlo al contestar la demanda y cumplir los mismos requisitos exigidos para esta. La demanda y la reconvención han de ser conexas. A la reconvención defectuosa le será aplicable lo dispuesto en el artículo 100 de este Código.
+Si se admite la contrademanda, se concederá a la reconvenida un plazo de quince días para contestar. La réplica tendrá iguales requisitos que la contestación. En caso de réplica defectuosa, se le otorgarán cinco días para que corrija los defectos, bajo apercibimiento de que, de no cumplir en dicho plazo, se podrán tener por aceptadoslos hechos de la reconvención sobre los que no haya contestado en forma expresa.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)

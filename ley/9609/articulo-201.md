@@ -1,3 +1,2 @@
-ARTÍCULO 201- Revocatoria y apelación conjuntas
-Cuando sean procedentes tanto el recurso de revocatoria como el de apelación, las partes los formularán simultáneamente. El recurso de apelación será rechazado de plano, si no se ha pedido revocatoria.
-En una misma resolución, se emitirá un pronunciamiento sobre la revocatoria y la admisibilidad de la apelación, según corresponda.
+Artículo 201- Revocatoria y apelación conjuntas. En los casos en que además del recurso de revocatoria sea procedente el de apelación, la interposición de este implicará siempre la interposición del de revocatoria de forma concomitante, aunque no se pida expresamente. En el mismo pronunciamiento se resolverá sobre la revocatoria y la admisión de la apelación.
+(Así reformado por el artículo 1° de la ley N° 10779 del 29 de octubre de 2025)
