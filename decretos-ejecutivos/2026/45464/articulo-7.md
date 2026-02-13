@@ -1,0 +1,23 @@
+Artículo 7º. Unidad de Atención de la Deuda Pública. La Unidad de Atención de la Deuda Pública tiene como objetivo desarrollar y ejecutar los procesos para la colocación, renegociación, intercambio y estandarización de la deuda del Gobierno Central, que permitan cumplir con los objetivos de optimización de los costos financieros y administración de los niveles de riesgo.
+Las funciones de la Unidad son:
+a. Elaborar el programa de colocaciones y reinversiones de instituciones públicas, así como elaborar el calendario de subastas.
+b. Operar y promover mejoras en los procesos y sistemas de colocación de deuda, canjes, subastas inversas y otras operaciones de gestión de pasivos.
+c. Diseñar las emisiones de deuda del Gobierno Central para que se realicen en atención a las disposiciones legales y regulaciones establecidas, procurando la sostenibilidad y una adecuada gestión de riesgo del portafolio de pasivos gubernamentales.
+d. Elaborar el Plan de Financiamiento del Gobierno Central, con el apoyo de la Tesorería Nacional en lo que respecta a las necesidades de financiamiento y la Unidad de Políticas y Estrategia de Deuda Pública.
+e. Apoyar y asesorar a la Dirección en el proceso de asignación de las emisiones de deuda que se coloquen en el mercado financiero, mediante los diferentes mecanismos de colocación y con instituciones públicas y operaciones especiales.
+f. Coordinar con los inversionistas públicos y privados la realización de operaciones de colocación de deuda y gestión de pasivos del Gobierno Central.
+g. Desarrollar los modelos financieros que apoyen la toma de decisiones y la determinación de la tasa de interés de referencia para la asignación de instrumentos de deuda en mecanismos competitivos y no competitivos.
+h. Ejecutar la emisión de Bonos o de Títulos Valores del Gobierno Central, según sea requerido por las instancias competentes.
+i. Preparar la información y formularios para registrar ante la Superintendencia General de Valores, las series de valores que se utilizarán en las operaciones de colocación de deuda, mediante el mecanismo de oferta pública.
+j. Investigar y brindar seguimiento al comportamiento del mercado financiero, liquidez, bursátil nacional e internacional, a través de las diferentes fuentes de información de mercados financieros, para efectos de presentar un informe y analizar las variables endógenas o exógenas, que puedan incidir en el mercado de deuda.
+k. Elaborar informes periódicos sobre el desempeño y participación de los instrumentos del Gobierno Central en el mercado secundario de valores, mediante la construcción de informes y su análisis, donde se indiquen la tendencia de las tasas de interés vigentes en el mercado.
+l. Atender requerimientos de información y consultas sobre tipos de instrumentos, operaciones, y en general sobre la gestión de pasivos del Gobierno Central.
+m. Colaborar con la Unidad de Registro de Deuda Pública en lo que se refiere a la información sobre las colocaciones de deuda pública del Gobierno.
+n. Tramitar las coberturas de riesgo para las operaciones bajo su competencia, utilizando la evaluación de la aplicabilidad y alcance definidos por la Unidad de Gestión de Riesgos y Monitoreo de Deuda Pública.
+o. Preparar documentación y prospectos que correspondan para las emisiones de deuda, así como el seguimiento y preparación de informes correspondientes.
+p. Monitorear la recepción y liquidación de fondos de las emisiones en coordinación con la Unidad de Seguimiento Presupuestario y Servicio de Deuda Pública.
+q. Analizar y actualizar las tasas de interés que se ofrecerán a los inversionistas públicos o privados que realicen inversiones OTC, mediante Tesoro Directo.
+r. Desarrollar y ejecutar los procesos para la colocación, renegociación, intercambio y estandarización de la deuda bonificada del Gobierno Central.
+s. Suscribir y comunicar hechos relevantes, a través del medio o herramienta que la Superintendencia General de Valores disponga, cuando corresponda.
+t. Promover la gestión de calidad en los productos, servicios y acciones que realiza, la valoración de los logros alcanzados, las causas de las desviaciones y sus posibles medidas correctivas, así como proponer e implementar las medidas tendientes a mejorar el ambiente de control y apoyar y asesorar a la Dirección General de Gestión de Deuda Pública en la toma de decisiones.
+u. Realizar aquellas funciones que correspondan de conformidad con las disposiciones normativas y aquellas otras que le sean asignadas para el cumplimiento de los objetivos de la Dirección General de Gestión de Deuda Pública en aras del buen funcionamiento del Subsistema de Crédito Público.

@@ -1,0 +1,15 @@
+Artículo 4º. Asesoría Legal. La Asesoría Legal tiene como objetivo asesorar y dar apoyo eficaz y oportuno a la Dirección General de Gestión de la Deuda Pública y a los departamentos y unidades, en los temas jurídicos conexos a las actividades y procesos desarrollados y sus implicaciones legales en la toma de decisiones.
+Las funciones de la Asesoría Legal son:
+a. Colaborar en la definición del Plan Anual Operativo, acorde con la misión y visión de la Dirección.
+b. Dar asesoría legal en los procesos de negociación y contratación de operaciones de crédito público del Gobierno de la República.
+c. Emitir informes y opiniones jurídicas, cuando así lo requiera la Dirección, sobre el contenido de documentos tales como acuerdos internacionales, cooperaciones no reembolsables, convenios de préstamos por suscribir o suscritos por el Gobierno de la República y cualquier otro convenio en donde se negocien recursos financieros para el Sector Público.
+d. Redactar proyectos de ley, cuando así lo requiera la Dirección, asociados al endeudamiento público del Gobierno Central.
+e. Redactar propuestas de normativa relativa a las funciones y procedimientos de la Dirección General de Gestión de Deuda Pública, cuando así lo requiera la Dirección.
+f. Recomendar a la Dirección la correcta aplicación de normas técnicas y legales, así como la correcta ejecución de actos administrativos, asociados al endeudamiento público del Gobierno Central.
+g. Asesorar a la Dirección General de Gestión de Deuda Pública en la respuesta de recursos de amparo y otros procesos tramitados en la vía administrativa, que sean competencia exclusiva de la Dirección, proponiendo y fundamentando el accionar a seguir.
+h. Recopilar la normativa vigente relacionada con las funciones de la Dirección General de Gestión de la Deuda Pública y sus procesos.
+i. Elaborar informes y opiniones jurídicas relacionadas con las competencias de la Dirección General de Gestión de la Deuda Pública solicitadas por ésta, para apoyar en la toma de decisiones.
+j. Preparar informes o propuesta de respuestas, cuando así lo requiera la Dirección, para la atención de consultas de la Procuraduría General de la República, la Contraloría General de la República, dependencias del Ministerio de Hacienda u otras instituciones y usuarios.
+k. Elaborar para la Dirección, informes solicitados por la Dirección Jurídica del Ministerio y el Despacho del Ministro de Hacienda en asuntos relacionados con la materia que es competencia de la Dirección General de Gestión de la Deuda Pública.
+l. Promover la gestión de calidad en los productos, servicios y acciones que realiza, la valoración de los logros alcanzados, las causas de las desviaciones y sus posibles medidas correctivas, así como proponer e implementar las medidas tendientes a mejorar el ambiente de control.
+m. Realizar aquellas funciones que correspondan, de conformidad con las disposiciones normativas y aquellas otras que le sean asignadas para el cumplimiento de los objetivos de la Dirección General de Gestión de Deuda Pública en aras del buen funcionamiento del Subsistema de Crédito Público.
