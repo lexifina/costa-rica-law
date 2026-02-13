@@ -14,3 +14,4 @@ Código de Gobierno Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-09 | la propia norma |
+| 2 | 2026-02-13 | Reglamento 12 (2026-02-13) |
