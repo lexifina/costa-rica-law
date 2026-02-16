@@ -1,0 +1,1 @@
+Artículo 55.-Las Asociaciones Deportivas Recreativas aprobadas por el Instituto Costarricense del Deporte y la Recreación, que se encuentren debidamente inscritas en el Registro de Asociaciones adscritas al CCDR podrán recibir donaciones por parte del CCDR, como implementos, materiales, maquinaria y equipo, para proyectos, planes y programas que representen formalmente al Cantón.
