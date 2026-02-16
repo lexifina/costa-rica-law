@@ -1,0 +1,20 @@
+Artículo 5º-Mecánica del Sorteo. Después de la realización de cada sorteo ordinario y extraordinario de Lotería Nacional y Lotería Popular, cada sorteo de Lotería Nacional Extraordinario en su modalidad de Alfanumérico y cada sorteo de Lotería Popular Extraordinario en su modalidad Zodiaco se procederá a extraer una bolita de la tómbola principal.
+1. Sorteo del Acumulado:
+Si se extrae la bolita con la palabra "Acumulado", se sorteará una combinación ganadora, de conformidad con lo estipulado en el artículo 2° de este procedimiento.
+En caso de que no salga la palabra "Acumulado" de la tómbola principal, el premio acumulado sumará ¢25.000.000,00 (veinticinco millones de colones) para el siguiente sorteo. Cuando el monto del Acumulado sea igual o superior a ¢500.000.000,00 (quinientos millones de colones) y menor a los ¢1.000.000.000,00 (mil millones de colones), se utilizará una tómbola adicional para definir si el premio será repartido en partes iguales entre una, dos o tres combinaciones ganadoras, de conformidad con lo estipulado en el artículo 2° de este procedimiento. Esta tómbola estará compuesta por tres bolitas con los números 1, 2 y 3.
+Si el monto acumulado alcanza o supera ¢1.000.000.000,00 (mil millones de colones), se incorporará, en la tómbola adicional, una cuarta bolita con el número 5, permitiendo que el premio pueda ser repartido en partes iguales entre 1, 2, 3 o 5 combinaciones ganadoras, de conformidad con lo estipulado en el artículo 2° de este procedimiento, según el número extraído aleatoriamente.
+2. Sorteo de premios adicionales:
+Si se extrae una bolita en blanco, se activará la Tómbola Caliente. Esta tómbola en cada sorteo contendrá 20 bolitas numeradas de la siguiente manera: 10 bolitas con el número 1, 4 bolitas con el número 2, 3 bolitas con el número 3, 2 bolitas con el número 5 y 1 bolita con el número 10.
+La bolita extraída aleatoriamente de la Tómbola Caliente determina dos aspectos:
+a) La cantidad de premios adicionales de ¢2.000.000,00 (dos millones de colones) que se sortearán en ese mismo sorteo. Por cada premio se sorteará una combinación ganadora, de conformidad con lo estipulado en el artículo 2° de este procedimiento.
+b) La cantidad de bolitas en blanco que deberán retirarse de la tómbola principal una vez finalizado el sorteo.
+3. Reducción progresiva de bolitas en blanco:
+La cantidad de bolitas en blanco en la tómbola principal se irá reduciendo progresivamente conforme avancen los sorteos, según la bolita sorteada en la tómbola caliente, de acuerdo con los siguientes criterios:
+. Cuando la tómbola principal cuente con más de 20 bolitas en blanco, la tómbola caliente operará con la totalidad de sus veinte 20 bolitas.
+. Cuando la tómbola principal contenga 20 bolitas en blanco, se eliminará la bolita número 10 de la tómbola caliente.
+. Cuando la tómbola principal contenga 10 bolitas en blanco, se eliminarán las bolitas con el número 5.
+. Cuando la tómbola principal contenga 5 bolitas en blanco, dejará de utilizarse la tómbola caliente y se retirará una bolita blanca por sorteo de forma directa.
+4. Fracciones devueltas:
+En el caso que alguna fracción que posea la combinación ganadora del Premio Acumulado, haya regresado a la Junta durante el proceso de compra de excedentes, debido a que el público no la adquirió o quedó dentro de la lotería que se destruye debido a que no fue retirada de la Institución por los vendedores, el premio equivalente a la fracción devuelta o destruida se sumará al monto inicial del nuevo Premio Acumulado.
+En caso de que el monto del premio acumulado para el próximo sorteo no corresponda a una cifra cerrada, este será redondeado a la centena más próxima de forma tal que el monto del acumulado se exprese siempre esté con cifras cerradas.
+Las combinaciones ganadoras se publicarán en alguno de los siguientes medios la página electrónica de la Junta de Protección Social (www.jps.go.cr), en el sitio de la red social Facebook "Junta de Protección Social (Oficial)" o en las listas oficiales de la Lotería Nacional y Lotería Popular.

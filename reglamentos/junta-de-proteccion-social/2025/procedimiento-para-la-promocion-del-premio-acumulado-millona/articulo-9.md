@@ -1,0 +1,1 @@
+Artículo 9º-Vigencia. Esta promoción rige a partir de la publicación de este procedimiento en el Diario Oficial La Gaceta, y siempre que se acierte el Premio Acumulado 1 actual, cuyo procedimiento fue publicado en el Alcance Nº 123 a La Gaceta N° 117 del jueves 29 de junio del 2023.
