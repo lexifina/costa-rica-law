@@ -15,3 +15,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Corredor
 | --- | --- | --- |
 | 1 | 2021-04-29 | la propia norma |
 | 2 | 2024-10-28 | Reglamento municipal 26 (2024-10-28) |
+| 3 | 2026-02-16 | Reglamento municipal 89 (2026-02-16) |
