@@ -1,1 +1,0 @@
-Artículo 05: Agrupación de Bienes y Servicios a Contratar. La proveeduría municipal, en el proceso de programación anual de las compras, agrupará los bienes y servicios requeridos por los centros de costos, de acuerdo a la disponibilidad de los fondos y principios de celeridad, eficacia, eficiencia y del mejor uso de los fondos públicos.

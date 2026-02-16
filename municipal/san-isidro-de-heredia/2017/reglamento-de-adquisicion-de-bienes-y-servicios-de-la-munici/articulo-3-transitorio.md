@@ -1,2 +1,0 @@
-Transitorio III.-Se otorga a la Administración Municipal un plazo de cuatro meses para presentar ante el Concejo Municipal un proyecto de normativa o una reforma reglamentaria parcial o integral que permita ajustar la normativa interna de la Municipalidad de San Isidro a las regulaciones de la Ley General de Contratación Pública, N° 9986 y al Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo N° 43808-H.
-(Así adicionado en sesión N° 02 del 9 de enero de 2023)

@@ -1,1 +1,0 @@
-Artículo 23: Finiquito de los contratos administrativos de obra pública: Toda contratación de obra pública que se haya formalizado mediante contrato administrativo, deberá concluir el expediente administrativo con un finiquito contractual; suscrito por el encargado del centro de costo, el Alcalde o Alcaldesa Municipal y la contratista o su representante.

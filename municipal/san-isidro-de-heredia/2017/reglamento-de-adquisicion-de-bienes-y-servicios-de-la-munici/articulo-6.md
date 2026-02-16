@@ -1,3 +1,0 @@
-Artículo 06: Programa de Adquisiciones. En la última quincena del mes de enero, la Alcaldía Municipal, presentará a conocimiento del Concejo Municipal, el Programa de Adquisiciones para el año presupuestario; conforme el Plan Operativo aprobado y el correspondiente Presupuesto.
-Cualquier modificación al programa de adquisiciones, deberá remitirse al Departamento de Proveeduría, mediante solicitud formal autorizada por el funcionario encargado de cada área, en la que consten las razones que motivan la modificación. Ello, una vez que se hayan realizado los trámites correspondientes para efectos de llevar a cabo la respectiva modificación presupuestaria.
-La Proveeduría, no tramitará las necesidades no incluidas en el programa de adquisiciones y sus modificaciones.

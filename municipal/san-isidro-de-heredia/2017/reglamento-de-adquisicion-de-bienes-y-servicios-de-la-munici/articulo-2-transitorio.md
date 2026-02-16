@@ -1,2 +1,0 @@
-Transitorio II.-Cualquier regulación dentro del presente reglamento que se oponga a lo dispuesto en la Ley General de Contratación Pública, N° 9986 y el Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo N° 43808-H, se entenderá por inaplicable a partir del 01 de diciembre de 2022, siendo responsabilidad del personal municipal aplicar la normativa vigente de rango legal, el reglamento ejecutivo correspondiente y el transitorio I del presente reglamento.
-(Así adicionado en sesión N° 02 del 9 de enero de 2023)

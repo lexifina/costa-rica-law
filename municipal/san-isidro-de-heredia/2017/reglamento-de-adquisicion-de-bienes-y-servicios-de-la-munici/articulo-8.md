@@ -1,1 +1,0 @@
-Artículo 08. Formulario de Decisión Administrativa de Inicio de Procedimiento. Para la decisión administrativa de inicio del procedimiento de contratación, se utilizará el Formulario Decisión Administrativa de Inicio de Procedimiento, incluido en el anexo del presente Reglamento.
