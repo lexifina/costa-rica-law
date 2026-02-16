@@ -1,1 +1,0 @@
-Artículo 5º—Recibo de denuncia. Las denuncias serán presentadas a la Auditoría Interna de BCR Corredora de Seguros S. A., en forma verbal, escrita, electrónica, o por cualquier otro medio que permita establecer la fecha de recepción.

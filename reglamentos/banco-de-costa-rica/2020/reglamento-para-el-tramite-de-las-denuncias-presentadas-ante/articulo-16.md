@@ -1,4 +1,0 @@
-Capítulo IV
-De la fase de investigación y la comunicación de resultados
-Artículo 16.—Objetivo de las investigaciones. Una vez declarada la admisibilidad de la denuncia, se abrirá la correspondiente investigación, a efecto de determinar si existe suficiente mérito para solicitar la realización de un procedimiento administrativo o de otro tipo.
-Como resultado de la investigación, podrá sugerirse a la Administración el análisis del caso a fin de que establezca si procede sentar responsabilidades administrativas, el trámite de una denuncia penal o ambas acciones. Para la elaboración de los informes, según se trate de una relación de hechos o de una denuncia penal, se procederá de conformidad con lo establecido al respecto por la Contraloría General de la República en los Lineamientos generales para el análisis de presuntos hechos Irregulares.
