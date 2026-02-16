@@ -1,0 +1,2 @@
+Artículo 2.- Adiciónese un artículo 3 al Decreto Ejecutivo Nº 26503-MAG, denominado Reglamento de Regencias Agropecuarias del Colegio de Ingenieros Agrónomos de Costa Rica, publicado en la Gaceta 242 del 16 de diciembre de 1997, para que se lea de la siguiente manera:
+"Artículo 3 °-En todas las categorías regencia/es el regente deberá acatar las disposiciones específicas emitidas por el Servicio Fitosanitario del Estado, sobre la restricción de venta y uso de agroquímicos en todo el país. ".
