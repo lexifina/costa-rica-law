@@ -14,3 +14,4 @@ Reglamento del servicio de identificación digital para personas ciudadanas cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-05 | la propia norma |
+| 2 | 2026-02-16 | Decreto TSE 1 (2026-02-16) |
