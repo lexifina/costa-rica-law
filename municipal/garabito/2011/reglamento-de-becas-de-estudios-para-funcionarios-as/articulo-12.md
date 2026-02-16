@@ -1,1 +1,0 @@
-Artículo 12.—La concesión de becas, para estudios formales, solo se realizará cuando los estudios profesionales de formación técnica o administrativa, se realicen en Centros Educacionales que sean reconocidos por el Ministerio de Educación y el CONESUP.

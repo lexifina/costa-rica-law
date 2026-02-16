@@ -1,1 +1,0 @@
-Artículo 4º—Se entiende por beca, el sistema mediante el cual la Municipalidad de Garabito, brinda facilidades para que sus funcionarios cursen estudios, siempre que estos se puedan identificar por su duración, especialidad, plan de estudio y por la existencia de una entidad responsable de impartirla y que por su contenido va a llenar una necesidad de la Institución.

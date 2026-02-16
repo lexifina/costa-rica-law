@@ -1,1 +1,0 @@
-Artículo 10.—El otorgamiento de una beca, no será obstáculo, para que la Corporación apruebe los aumentos salariales de ley, a que tiene derecho tal trabajador o cualquier otro incentivo económico que se concedan a nivel general.

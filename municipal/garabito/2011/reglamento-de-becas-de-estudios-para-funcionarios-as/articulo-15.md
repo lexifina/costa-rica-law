@@ -1,1 +1,0 @@
-Artículo 15.—En caso de incumplimiento de las obligaciones contraídas en este reglamento una vez finalizados los estudios, el exbecario deberá pagar a la Corporación, el monto total del costo de la beca.

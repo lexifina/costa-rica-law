@@ -1,1 +1,0 @@
-Artículo 7º— El Alcalde Municipal deberá remitir a la Junta de Relaciones Laborales, dentro del término de 24 horas después de recibidos, todas aquellas invitaciones o convocatorias a capacitaciones, seminarios, talleres, etc., que se reciban en esta Municipalidad a efecto de dar fiel cumplimiento a lo dispuesto en el artículo anterior.
