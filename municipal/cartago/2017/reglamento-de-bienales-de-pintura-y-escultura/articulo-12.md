@@ -1,2 +1,0 @@
-Artículo 12.—Premiación: Se otorgará un único premio de tres mil dólares americanos, el día de la inauguración de la muestra.
-El artista que resulte premiado, aceptará con la sola participación en la Bienal, que su obra pasará a ser parte de la colección privada del Museo Municipal de Cartago, sin reclamo alguno por parte del autor incluso posterior, incluidos los derechos de reproducción y el derecho de utilizar las obras adquiridas. El derecho a la paternidad de la obra lo conservará el artista.

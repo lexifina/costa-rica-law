@@ -1,2 +1,0 @@
-Artículo 10.—Jurado Calificador: El Jurado estará compuesto por tres miembros que serán como mínimo representantes de asociaciones reconocidas en el campo de las artes, realizarán la elección de la obra ganadora y además seleccionarán una muestra máxima de veinticinco (25) de las obras participantes que serán exhibidas junto con la obra premiada.
-Las decisiones que tome el jurado, en cuanto a la premiación y selección de la muestra, serán finales e inapelables.
