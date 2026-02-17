@@ -1,1 +1,3 @@
-Artículo 34.- (Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)
+CAPÍTULO V
+Capítulo Único
+Artículo 34.-Responsabilidad y Sanciones. De conformidad con lo dispuesto en materia de responsabilidad disciplinaria, administrativa y civil. Título X de la Ley de la Administración Financiera de la República y Presupuesto Públicos, Ley General de la Administración Pública, Ley de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Código de Trabajo, Reglamento Autónomo de Organización y Servicio de la Municipalidad de Tibás, Código Municipal, Código de Trabajo y otra normativa que resulte aplicable por la pérdida, daño y uso de los bienes a cargo o por

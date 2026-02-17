@@ -14,3 +14,4 @@ Reglamento para la administración de propiedad, planta y equipo de la Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-28 | la propia norma |
+| 2 | 2026-02-17 | Reglamento municipal 94 (2026-02-17) |
