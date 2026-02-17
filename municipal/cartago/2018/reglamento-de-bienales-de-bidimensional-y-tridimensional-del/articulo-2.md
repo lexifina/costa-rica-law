@@ -1,1 +1,0 @@
-Artículo 2°—De las bienales: Las bienales a que se refiere este reglamento, se realizarán de manera separada y alterna en el mes de noviembre de cada arlo, iniciando a partir de la vigencia de este Reglamento con la Bienal Tridimensional.

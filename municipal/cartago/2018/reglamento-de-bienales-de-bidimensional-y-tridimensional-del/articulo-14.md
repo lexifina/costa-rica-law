@@ -1,4 +1,0 @@
-Artículo 14.—De la aceptación de los términos de la Bienal:
-a) La participación en cualquier bienal implica la aceptación de todas las normas del presente reglamento.
-b) La persona que resulte ganador(a) de una bienal, no podrá ser considerado(a) por el jurado nuevamente, como ganador de otra bienal del mismo tipo, y en el evento de que una persona ganare los dos tipos de bienales, no podrá ser considerado otra vez como ganador para futuras bienales, lo que no excluye en ninguno de los dos supuestos anteriores, que pueda participar y ser considerado dentro de las obras seleccionadas o ser objeto de menciones honoríficas.
-c) No se admitirán obras realizadas total o parcialmente, con materiales perecederos y en general aquellas obras que por su factura impidan su conservación o haga su restauración muy onerosa o impráctica.

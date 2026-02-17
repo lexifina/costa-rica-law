@@ -1,5 +1,0 @@
-Artículo 11.—De la Selección segunda instancia:
-a) Las obras que hayan sido seleccionadas en primera instancia, deberán entregarse en forma física en el Museo Municipal de Cartago, debidamente embalada y protegida con material resistente, el segundo lunes del mes de octubre de cada año.
-b) El jurado realizará una segunda selección de entre todas aquellas obras que hayan sido seleccionadas en la primera instancia.
-c) El Museo notificará a todos los participantes que hayan sido seleccionados en esta segunda instancia, por medio del correo electrónico señalado como medio para recibir notificaciones en el formulario respectivo, el resultado de esta segunda selección, en los siguientes quince días calendario posteriores a la recepción de las obras físicas.
-d) Las obras no seleccionadas en esta segunda instancia, para participar en la bienal serán devueltas a sus autores, para lo cual tendrán hasta tres días naturales con posterioridad a la notificación de la resolución del jurado para retirarlas. En caso de no hacerlo se entenderán como abandonadas. La devolución se realizará en el Museo Municipal de Cartago, mismo lugar de la entrega.
