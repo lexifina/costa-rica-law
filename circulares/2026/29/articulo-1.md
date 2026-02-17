@@ -1,0 +1,10 @@
+CIRCULAR N° 29-2026
+Asunto: Cambio de horario laboral para todas las oficinas que conforman el Circuito Judicial de Puntarenas.
+A LOS DESPACHOS JUDICIALES DEL PAÍS, SERVIDORAS Y SERVIDORES JUDICIALES Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 04-2026 celebrada el 2 de febrero de 2026, artículo XXVII, conoció el oficio N° 1199-PLA-OI-2025 de la Dirección de Planificación, relacionado con el estudio para determinar la viabilidad del cambio de horario laboral para todas las oficinas que conforman el Circuito Judicial de Puntarenas, y tomó el acuerdo cuya parte dispositiva dice:
+"(.)
+Sin objeción de los señores magistrados y las señoras magistradas presentes, se acordó: 1) Tener por conocido y acoger el informe remitido por la Dirección de Planificación N° 1199-PLA-OI2025, relacionado con el estudio para determinar la viabilidad del cambio de horario laboral para todas las oficinas que conforman el Circuito Judicial de Puntarenas, en consecuencia: a) Adoptar una jornada laboral de 7:30 a.m. a 12:00 m.d. y de 1:00 p.m. a 4:30 p.m., en las oficinas y despachos ubicados dentro del Circuito Judicial de Puntarenas. b) Establecer un período de transición de seis meses, que permita a las oficinas y despachos judiciales realizar los ajustes necesarios, en particular la reprogramación de audiencias previamente fijadas entre las 7:00 a.m. y las 7:25 a.m., evitando así posibles conflictos con el nuevo horario. Por lo anterior la entrada en vigencia del nuevo horario regirá a partir del 1 de setiembre de 2026. 2) En razón de lo dispuesto en el inciso a) de este acuerdo, se deja sin efecto lo acordado en sesión N° 45-1991 celebrada el 29 de julio de 1991, XXXV, únicamente en lo que se refiere a la provincia de Puntarenas. 3) La Secretaría General de la Corte tomará nota para la publicación correspondiente en el Boletín Judicial. 4) Hacer este acuerdo de conocimiento del Colegio de Abogados y Abogadas de Costa Rica. Se declara acuerdo firme.
+Publíquese una vez.
+San José, 17 de febrero de 2026.
+<span style='font-family:"Arial",sans-serif; </body>
