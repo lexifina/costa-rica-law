@@ -14,3 +14,4 @@ Reforma Reglamento Comisión Interna de Continuidad del Negocio y Reglamento del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-15 | la propia norma |
+| 2 | 2026-02-18 | Reglamento 0 (2026-02-18) |
