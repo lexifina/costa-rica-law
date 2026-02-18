@@ -24,3 +24,4 @@ Procedimiento ECA-MC-P13 Ejecución de la evaluación Versión 05
 | 9 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
 | 10 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
 | 11 | 2021-09-09 | Acuerdo 10 (2021-09-09) |
+| 12 | 2026-02-18 | Acuerdo 3 (2026-02-18) |
