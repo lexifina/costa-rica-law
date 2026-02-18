@@ -1,0 +1,1 @@
+Artículo 3º-El Área de Gestión de Recursos Humanos de esta Dirección General podrá verificar el cumplimiento de la normativa y los procedimientos técnicos del Sistema de la Gestión de Recursos Humanos; además, proveerá asesoría y ayuda técnica a las OGEREH, para efectos de implementar la presente resolución.
