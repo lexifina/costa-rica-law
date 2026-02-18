@@ -1,9 +1,14 @@
 Artículo 15.-Comprobación de idoneidad específica (Fase II). Sin excepción, la OGEREH deberá efectuar la comprobación de idoneidad específica de las personas oferentes.
 Para la comprobación de idoneidad en esta fase, deberá considerarse y ponderarse como alternativa de escogencia, uno de los elementos de evaluación que se disponen a continuación:
-N° Alternativa | Elementos por evaluar | Ponderación de las pruebas según elemento de evaluación
-1 | Competencias específicas | 100%
-2 | Competencias específicas y conocimientos específicos | La ponderación de los conocimientos específicos no podrá ser superior a la de las competencias específicas.
-3 | Competencias específicas, conocimientos específicos y valoración de méritos | La ponderación de los conocimientos específicos no podrá ser superior a la de las competencias específicas. La valoración de méritos no debe superar el 20% del total (100%) de ponderación.
-4 | Competencias específicas y valoración de méritos | Al menos el 80% de ponderación para las competencias específicas. El restante 20% podrá ser ponderado para valoración de méritos o distribuido entre competencias específicas y valoración de méritos, según la evaluación que realice la respectiva institución.
+N° Alternativa | Elementos por evaluar | Ponderación de las pruebas según elemento de evaluación |
+1 | Competencias específicas | 100% |
+2 | Competencias y conocimientos específicos | La ponderación de los conocimientos específicos no podrá ser superior a la de las competencias específicas. |
+3 | Competencias específicas, conocimientos específicos y valoración de méritos | La ponderación de los conocimientos específicos no podrá ser superior a la de las competencias específicas. La valoración de méritos no debe superar el 20% del total (100%) de ponderación. |
+4 | Competencias específicas y valoración de méritos | Al menos el 80% de ponderación para las competencias específicas. El restante 20% podrá ser ponderado para |
+| | valoración de méritos o distribuido entre competencias específicas y valoración de méritos, según la evaluación que realice la respectiva institución.
+5* De aplicación exclusiva a puestos contempla dos en el penúltimo párrafo del artículo 15 del RESC. | Competencias específicas y valoración de méritos | 50% de ponderación para las competencias específicas y 50% de ponderación para valoración de méritos.
+| | | | |
+*Esta opción aplica de forma exclusiva para los puestos contemplados en el penúltimo párrafo del artículo 15 del RESC, pero la administración activa puede aplicar cualquier otra alternativa de escogencia para estos.
+(Así reformado el cuadro anterior por el artículo 1° de la resolución DGSC-DG-0055-2026 del 18 de febrero de 2026)
 De conformidad con el Reglamento a la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público, Ley N° 8862, Decreto Ejecutivo N° 36462-MP-MTSS del 2 de febrero de 2011, la Comisión Especializada de Empleo y Discapacidad y la OGEREH deberán garantizar que las pruebas utilizadas en el procedimiento de comprobación de idoneidad se ajusten a la situación de la persona con discapacidad.
 Deberá garantizarse la implementación de acciones y procedimientos necesarios para el control en el diseño, desarrollo, resguardo y aplicación de las pruebas de comprobación de idoneidad, para garantizar su confidencialidad e integridad, evitando fuga de datos y protegiendo la información, incluyendo los resultados de su aplicación.

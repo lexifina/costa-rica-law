@@ -20,3 +20,5 @@ Artículo 30.-A las OGEREH, en materia de concursos internos, les corresponde:
 30.19. Implementar las medidas de seguridad para garantizar la confidencialidad e integridad de las pruebas de comprobación de idoneidad específica y de los resultados de su aplicación.
 30.20. Realizar la planificación anual de los puestos vacantes e indicar cuáles serán resueltos por la vía de concurso interno, la misma deberá remitirse a más tardar el día treinta y uno (31) de enero de cada año a las Áreas de Gestión de Recursos Humanos y de Reclutamiento y Selección de Personal de la DGSC.
 30.21. Una vez finalizado el proceso del concurso interno, debe rendir un informe al Área de Gestión de Recursos Humanos de la DGSC, con los resultados de los puestos resueltos y no resueltos.
+30.22 Llevar los controles y dar seguimiento para cumplir con los plazos dispuestos para concretar los Concursos Internos.
+(Así adicionado el inciso anterior por el artículo 2° de la resolución DGSC-DG-0055-2026 del 18 de febrero de 2026)
