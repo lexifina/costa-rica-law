@@ -1,1 +1,0 @@
-Artículo 6º-Dependencia: La Comisión Interna Inmobiliaria es una Comisión integrada por personal de Popular SAFI, es de carácter interno y de apoyo para la Administración y para el Comité de Inversiones de Popular SAFI.
