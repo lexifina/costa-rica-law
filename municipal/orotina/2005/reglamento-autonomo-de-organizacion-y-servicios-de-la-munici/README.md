@@ -21,3 +21,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Orotina
 | 6 | 2016-07-18 | Reglamento municipal 17 (2016-07-18) |
 | 7 | 2017-01-16 | Reglamento municipal 59 (2017-01-16) |
 | 8 | 2018-04-16 | Reglamento municipal 161 (2018-04-16) |
+| 9 | 2026-02-19 | Reglamento municipal 121 (2026-02-19) |
