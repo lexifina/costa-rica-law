@@ -1,1 +1,0 @@
-Artículo 9°-De la compra de materiales, bienes. La proveeduría municipal realizará el proceso de compra de todos los bienes a donar en los plazos establecidos por la Ley de Contratación Administrativa y su reglamento.

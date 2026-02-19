@@ -1,4 +1,0 @@
-Artículo 8.-Prohibiciones.
-a- Todas las ayudas o donaciones cubiertas bajo este reglamento, serán siempre en especie o mediante la contratación de servicios, nunca se realizarán donaciones de dinero en efectivo.
-b- Ninguna ayuda o donación brindada por la MSC podrá utilizarse para obsequio o premiación dirigida hacia una persona, salvo cuando corresponda a un patrocinio por compra de reconocimientos. Podrá utilizarse la donación como premiación cuando la persona representa alguna de las organizaciones descritas en el artículo 3 del presente reglamento y por lo tanto será para beneficio de la comunidad.
-c- Según la normativa vigente, para realizar donaciones a la Iglesia Católica se deberá promover ante la Asamblea Legislativa el dictado de la correspondiente norma legal para proceder conforme se pretende, de lo contrario quedan prohibidas las donaciones a esta entidad.
