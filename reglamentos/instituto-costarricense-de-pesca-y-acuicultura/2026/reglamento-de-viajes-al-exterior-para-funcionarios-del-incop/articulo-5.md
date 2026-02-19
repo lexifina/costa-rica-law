@@ -1,0 +1,4 @@
+Artículo 5º-Tipos de viaje. Los viajes que realicen los funcionarios del INCOPESCA al exterior del país, deberán clasificarse de la siguiente manera:
+a) Viajes amparados en un convenio interinstitucional: Los generados por la suscripción de un convenio de cooperación interinstitucional, que contenga dentro de los requisitos a cumplir por parte del oferente, el proveer entrenamiento a los funcionarios ligados directamente con el bien o servicio objeto del convenio.
+b) Viajes en representación del país, del INCOPESCA: Son aquellos que se realizan para participar en reuniones, seminarios, congresos, invitaciones de organizaciones públicas y en donde el funcionario representa a la Institución y/o al país.
+c) Viajes para capacitación en general: Son aquellos que se realizan en atención de una beca, cursos, talleres, especialización o pasantías, debidamente aprobadas según la normativa vigente. Atinentes, o acorde a su puesto.

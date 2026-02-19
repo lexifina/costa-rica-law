@@ -1,0 +1,8 @@
+Artículo 19.-Ética y comportamiento. En relación con tema de ética y comportamiento se procederá de acuerdo con los siguientes lineamientos:
+a) Respeto Cultural: Todos los funcionarios deberán demostrar un respeto profundo hacia las costumbres, tradiciones y normas sociales del país anfitrión. Se fomenta la investigación previa sobre la cultura local para evitar conductas inapropiadas.
+b) Conducta Personal: Se espera que todos los funcionarios mantengan una conducta digna y adecuada durante su viaje. Esto incluye, pero no se limita a, un comportamiento cortés, el uso moderado de lenguaje y la abstención de comportamientos que puedan considerarse ofensivos o disruptivos.
+c) Interacción con Locales: Las interacciones con residentes locales del país anfitrión deben ser respetuosas y amigables. En caso de desacuerdos, se recomienda manejar la situación con diplomacia y considerar la perspectiva local.
+d) Consumo Responsable: Se prohíbe el consumo excesivo de alcohol o cualquier sustancia ilegal que pueda comprometer la seguridad y el bienestar de los funcionarios y la reputación del INCOPESCA.
+e) Protección del Entorno: Se debe actuar de manera responsable con el medio ambiente, evitando la contaminación y el daño a los sitios naturales y culturales.
+f) Reportes de Conducta Inapropiada: Cualquier conducta que contravenga este reglamento el cual sea de conocimiento institucional deberá ser reportada al superior inmediato. Recursos Humanos tomará las acciones necesarias para abordar la situación.
+También incluirá conceptos relacionados de acuerdo con el Reglamento de probidad, Ética y Conflictos de Interés de INCOPESCA aprobado mediante AJDIP/259-2025

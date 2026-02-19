@@ -1,0 +1,1 @@
+Artículo 10.-Exoneración del trámite previo. Todos los funcionarios del INCOPESCA deberán realizar el procedimiento establecido en el presente reglamento para la autorización de viajes al exterior. Se exceptúa únicamente de este requisito, al Presidente Ejecutivo, que se tramitarán únicamente con una nota suscrita a la Unidad de Cooperación Internacional.
