@@ -1,0 +1,10 @@
+Artículo 13
+Traslado Temporal de Personas Detenidas
+1. Cuando, a tenor del Artículo 15 párrafos 3 y 4 no se efectúe la videoconferencia, el Estado Requerido, bajo petición del Estado Requirente, tendrá la facultad de trasladar temporalmente al Estado Requirente a una persona detenida en su propio territorio a f in de permitir su comparecencia ante una Autoridad competente del Estado Requirente para que preste interrogatorio, testimonio y otro tipo de declaraciones, o bien participe en otras actuaciones procesales, siempre y cuando la persona interesada consienta en ello y se haya previamente alcanzado un acuerdo escrito entre los Estados con respecto al traslado y a sus condiciones.
+2. El traslado temporal de la persona podrá ser ejecutado a condición de que:
+a) No interfiera con investigaciones o procedimientos penales, en curso en el Estado Requerido, en los que debe intervenir dicha persona;
+b) La persona trasladada sea mantenida por el Estado Requirente en situación de privación de libertad.
+3. El período transcurrido en situación de privación de libertad en el Estado Requirente será computado para los efectos de la ejecución de la pena impuesta en el Estado Requerido.
+4. Cuando para la ejecución del traslado temporal sea previsto el tránsito de la persona detenida a través del territorio de un tercer Estado, el Estado Requirente se encargará de presentar, de ser necesaria, la pertinente petición de tránsito a las Autoridades competentes del tercer Estado y de informar en tiempo útil al Estado Requerido del resultado de la misma, trasmitiendo la relativa documentación.
+5. El Estado Requirente devolverá inmediatamente al Estado Requerido a la persona traslada una vez se hayan terminado las actividades a las que se refiere el párrafo 1 del presente Artículo o bien al vencer otro plazo específicamente convenido entre las autoridades competentes de los dos Estados.
+6. El traslado temporal podrá ser denegado por el Estado Requerido en presencia de motivos fundados.
