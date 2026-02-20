@@ -1,1 +1,0 @@
-Artículo 5°.- Vencido el plazo previsto en la presente Directriz, pero persistiendo las consideraciones fácticas y jurídicas que la fundan, podrá prorrogarse, según corresponda. Lo anterior, sin perjuicio de la aplicación de la Directriz 002-MTSSMIDEPLAN de 14 de junio de 2022, que autoriza el teletrabajo como modalidad ordinaria, conforme con la normativa vigente.
