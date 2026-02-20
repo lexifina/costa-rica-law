@@ -1,0 +1,9 @@
+ARTÍCULO IX
+DERECHOS DE LA PERSONA CONDENADA
+l. La persona condenada que fuere trasladada conforme a lo previsto en el presente Tratado no podrá ser detenida, enjuiciada o condenada nuevamente en el Estado receptor por el mismo delito que motivó la sentencia impuesta por el Estado trasladante.
+2. Ninguna sentencia será ejecutada por el Estado receptor de tal modo que prolongue la duración de la condena más allá de la fecha establecida según los términos de la sentencia del Tribunal del Estado sentenciador.
+3. La persona condenada deberá ser informada de la posibilidad de traslado y de sus consecuencias jurídicas.
+4. Tratándose de personas condenadas que poseen algún tipo de discapacidad para expresar su voluntad, o bien, de menores de edad que se encuentran sujetos a una sanción de pena de prisión o sanción alternativa a la prisión, por haber cometido un delito regulado por la ley penal juvenil, deberá en ambos casos, consentir para su traslado, quien ostente la representación legal de éste, según el ordenamiento interno del Estado en donde cumple la pena o sanción.
+5. El traslado de la persona condenada debe efectuarse dentro del marco de la consideración a su dignidad y a los derechos humanos que le asisten.
+6. Si la persona condenada posee una enfermedad crónica o degenerativa, las Partes tramitarán de carácter urgente la solicitud, tomando para ella las medidas adecuadas para garantizar su protección y asistencia durante su trámite, en los procedimientos de ejecución del traslado, así como en la designación del lugar donde cumplirá el seguimiento de la condena.
+7. Si la persona condenada, presenta algún tipo de discapacidad física, intelectual, mental, visual y sensorial, deberán tomarse las medidas adecuadas para garantizar su protección y asistencia, tanto en el procedimiento de ejecución del traslado, como en la designación del lugar donde cumplirá el seguimiento de la condena.
