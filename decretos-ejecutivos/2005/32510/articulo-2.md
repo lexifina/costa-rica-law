@@ -1,1 +1,0 @@
-Artículo 2º—El Museo Nacional de Costa Rica, brindará y colaborará en la medida de sus posibilidades, asistencia en el buen desarrollo de las actividades mediante asesoría técnica en materia museológica, legal, financiera, promocional y educativa.
