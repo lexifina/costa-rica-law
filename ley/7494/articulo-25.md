@@ -1,2 +1,0 @@
-Artículo 25.—Efectos del incumplimiento. La violación del régimen de prohibiciones establecido en este capítulo, originará la nulidad absoluta del acto de adjudicación o del contrato recaídos en favor del inhibido, y podrá acarrear a la parte infractora las sanciones previstas en esta Ley.
-(Así reformado por el artículo 65 (actual 74) de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
