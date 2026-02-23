@@ -1,10 +1,11 @@
 BANCO DE COSTA RICA
 (Nota de Sinalevi: Sobre este tema el Banco de Costa Rica había aprobado Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica y publicado en La Gaceta N° 103 del 30 de mayo de 2006)
 La Junta Directiva General del Banco en sesión 47-12, artículo VI, del 12 de noviembre de 2012 aprobó la modificación del Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica:
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 11-24 del 4 de marzo del 2024 , publicada en el Alcance Digital N° 67 a La Gaceta N° 60 del 5 de abril del 2024, y se transcribe a continuación:)
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 11 del 23 de febrero del 2026, publicada en el Alcance Digital N° 24 a La Gaceta N° 45 del 6 de marzo del 2026, y se transcribe a continuación:)
+Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 1. Productos de colocación
 1.1 Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
-Colones y dólares: de 0,00% a un máximo del 5,00%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas.
+Colones y dólares: de 0,00% a un máximo del 5,00%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de Crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas.
 Aplica para todas las modalidades de créditos directos y créditos abiertos.
 Crédito BCR Vivienda Accesible 0,75%
 Notas:
@@ -13,13 +14,11 @@ Notas:
 3. No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
 4. Para créditos damnificados por desastres naturales se cobrará un 0,50%, para créditos de vivienda para pensionados y ayuda social un 1,00%, para el crédito BCR Vivienda Accesible se cobrará un 0,75%
 5. Se aplicará un 30,00% de descuento de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales y crédito BCR Vivienda Accesible.
-(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 6. En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
-(*)1.2 Comisión de manejo de líneas de crédito revolutivas
+1.2 Comisión de manejo de líneas de crédito revolutivas
 Esta comisión aplica para las líneas de crédito revolutivas y se cobra al formalizar cada giro.
 Colones (CRC): 2,00%
 Dólares (USD): 2,00%
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 1.3 Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares
 3,00% para todos excepto:
 1. Líneas de crédito revolutivas a corto plazo (12 meses)
@@ -40,10 +39,10 @@ Segunda prórroga de 3 meses 1,50%
 Tercera prórroga de 3 meses 1,50%
 Crédito en cuenta corriente de 6 meses
 Primer crédito de 6 meses y prorrogas sucesivas 2,50%
-.5 Comisión por no cancelación de sobregiros conforme a la forma de pago pactada
+1.5 Comisión por no cancelación de sobregiros conforme a la forma de pago pactada
 Sobregiros formales e informales documentados
 Se cobrará, además de los intereses correspondientes, una comisión del 2,00% sobre el saldo no cubierto del sobregiro.
-Mínima USD 20,00
+Mínima USD 20,00.
 1.6 Estudios en el Registro de la Propiedad y estudios personas jurídicas
 USD 5,00 por cada estudio de índice de bienes inscritos.
 USD 5,00 por cada estudio de propiedad mueble o inmueble.
@@ -62,8 +61,8 @@ Se cobrará un 1,00% anual pagadero mensualmente sobre los proyectos empresarial
 La comisión se define de forma contractual a conveniencia de las partes de acuerdo con las cláusulas del contrato suscrito entre el Banco y el cliente.
 1.10 Traspaso de operaciones de cobro administrativo a cobro judicial
 2,00% s/ el total adeudado de cada operación
-Mínima US $20,00
-Máxima US $120,00
+Mínima USD $20,00
+Máxima USD $120,00
 1.11 Reposición de comprobantes de operaciones canceladas
 USD 10,00 cada uno.
 1.12 Certificación o constancia del estado de operaciones de crédito
@@ -102,7 +101,6 @@ c. Cuando el cliente realice compras y ventas de dólares (USD).
 d. El cliente tiene derecho a realizar sin costo un traslado de dinero a la cuenta de un tercero por un monto igual, mayor o menor al solicitado, a partir de la segunda solicitud, aplica el cobro de USD 5,00 por cada traslado (depósito) adicional.
 e. Cuando el cliente no pueda realizar el traspaso de fondos en los medios electrónicos existentes debido a limitantes en los montos máximos o porque estén fuera de servicio.
 2.7 Cuentas corrientes y de ahorro inactivas (180 días de inactividad)
-(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 2.7.1 Saldos inferiores a USD 50,00 (cuentas en colones)
 USD 10,00 cada mes hasta su liquidación.
 2.7.2 Saldos inferiores a USD 50,00 (cuentas en dólares)
@@ -123,7 +121,6 @@ b. Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorería
 c. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
 Nota:
 Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la Gerencia de Administración de Efectivo.
-(Así reformado el numeral 2.9.3) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 2.10 Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros)
 0,10% sobre los fondos utilizados en moneda nacional y moneda extranjera.
 2.11 Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
@@ -147,128 +144,91 @@ Notas:
 2.16 Recolección depósitos especiales con el servicio de transportadora de valores
 2.16.1 Servicio de recolección de depósitos especiales
 a. Para clientes cuyos depósitos son recolectados con remeseras propias BCR y contabilizados en los centros de procesamiento ubicados en el casco metropolitano:
-· El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+. El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
 b. Para clientes cuyos depósitos son recolectados con remeseras propias BCR y contabilizados en los centros de procesamiento ubicados en las tesorerías regionales:
-· . El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
-c. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+. El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+c. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
 2.16.2 Servicio de recolección a entidades financieras
 Este servicio debe estar respaldados por un contrato, por lo cual la comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente al momento de la negociación.
 Nota:
 Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la Gerencia de Administración de Efectivo.
-(Así reformado el numeral 2.16) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
-(*) 2.17 Comisión para la entrega de efectivo para instituciones del sector financiero
+2.17 Comisión para la entrega de efectivo para instituciones del sector financiero
 La comisión se debe consultar con la Gerencia de Administración del Efectivo en razón que los precios se establecen por la oferta y la demanda del mercado en el momento de la negociación.
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
-Nota:
-La tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-Colones | Comisión por millón
-Denominación | Oficina Central, GAM | Oficinas regionales, ZN y ZS
-Billetes CRC | Comisión | Comisión
-1.000,00 | USD 4,50 | USD 5,00
-2.000,00 | USD 2,25 | USD 2,50
-5.000,00 | USD 0,60 | USD 0,70
-10.000,00 | USD 0,30 | USD 0,35
-20.000,00 | USD 0,15 | USD 0,18
-50.000,00 | USD 0,06 | USD 0,07
-Monedas CRC | Comisión por bolsa/saco | Comisión por caja
-5,00 | USD 2,00 | USD 20,00
-10,00 | USD 2,00 | USD 20,00
-25,00 | USD 5,00 | USD 25,00
-50,00 | USD 7,00 | USD 28,00
-100,00 | USD 12,00 | USD 36,00
-500,00 | USD 12,00 | USD 36,00
-Dólares | Comisión por cada dólar
-> USD 0,00 < USD 1,0 millón | CRC 1,25
-> USD 1,00 millón < USD 3,2 millones De USD 3,2 millones en adelante | CRC 0,75 CRC 0,66
 2.18 Traslado automático de expedientes judiciales a cuenta corriente o ahorros para cobros masivos
-USD 1,00 por traspaso.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.19 al punto 2.18, toda vez que se derogó el punto 2.18 original)
+a. USD 2,00 para expedientes en el rango entre CRC 0,00 a CRC 5.000,00 por traspaso.
+b. USD 3,50 para expedientes en el rango de CRC 5.001,00 en adelante por traspaso.
 2.19 Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
 USD 4,00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.20 al punto 2.19, toda vez que se derogó el punto 2.18 original)
 2.20 Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.21 al punto 2.20, toda vez que se derogó el punto 2.18 original)
 2.20.1 USD 6,00 las primeras 6 páginas de microfilm y USD 1,20 por cada página adicional.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.21.1 al punto 2.20.1, toda vez que se derogó el punto 2.18 original)
 2.20.2 Comprobantes de caja, imágenes digitalizadas y otros USD 2,00 máximo tres copias, USD 0,50 por cada copia adicional.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.21.2 al punto 2.20.2, toda vez que se derogó el punto 2.18 original)
 2.21 Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
 Se cobrará USD 2,00 por cada retiro en ventanilla.
 Nota:
 Se considera un retiro masivo a partir de 10 retiros.
+2.16.2 Servicio de recolección a entidades financieras
 Excepciones de cobro:
 a. Los casos que provienen de pensiones alimenticias y alquileres.
 b. Personas físicas.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.22 al punto 2.21, toda vez que se derogó el punto 2.18 original)
 2.22 Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
 Costo de la comisión por cada nota de débito USD 5,00.
-Nota:
-Se exceptúa del pago de esta comisión:
-. Aquellas cuentas cuyo saldo promedio semestral sea mayor a USD 2.000,00 o su equivalente en colones.
-. Cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM'S.
+Notas:
+Se exceptúa del pago de esta comisión :
+. Cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 . Avances de efectivo cuya cuenta y moneda sea euros.
-(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.23 al punto 2.22, toda vez que se derogó el punto 2.18 original)
 2.23 Comisión por cancelación anticipada de un plan de ahorro automático
 Aplica la comisión del 3,00% sobre la totalidad del saldo ahorrado (principal más intereses), a planes de ahorro automático que se cancelen de forma anticipada antes de 180 días de permanencia.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.24 al punto 2.23, toda vez que se derogó el punto 2.18 original)
-2.24 Aplicación de planillas judiciales con fondos trasladados por medio de cuentas BCR o plataforma Sinpe
+2.24 Aplicación manual de depósito con fondos trasladados vía cuentas BCR o Sinpe
 USD 0,50 por cada registro.
 Nota:
 Se exceptúa la comisión al utilizar la plataforma de BCR Comercial.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.25 al punto 2.24, toda vez que se derogó el punto 2.18 original)
 2.25 Pago de cheque viajero
 1,00%, mínima USD 2,00. Esta comisión se cobra sobre el monto del cheque.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.26 al punto 2.25, toda vez que se derogó el punto 2.18 original)
 2.26 Pago de servicios públicos y privados en ventanilla
-.El costo por cada servicio a cancelar será de trescientos cincuenta colones exactos.
+. El costo por cada servicio a cancelar será de trescientos cincuenta colones exactos.
 . Los pagos por servicios que se realicen por medio de las plataformas electrónicas BCR o Tucán no se le cobrará ninguna comisión.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.27 al punto 2.26, toda vez que se derogó el punto 2.18 original)
 2.27 Venta de monedas en máquinas
 4,00% sobre la venta, sin importar el monto.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.28 al punto 2.27, toda vez que se derogó el punto 2.18 original)
-2.28 Cobro de comisión por cheques tramitados a través de la Cámara de Compensación
+2.28 Cobro de comisión por cheques tramitados a través de la Cámara de
+Compensación
 USD 3,00 por cada cheque BCR tramitado a través de Cámara de Compensación y que utilice la plataforma del BCCR.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.29 al punto 2.28, toda vez que se derogó el punto 2.18 original)
-2.30 Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
+2.29 Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
 USD 2,00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán. El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1).
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.30 al punto 2.29, toda vez que se derogó el punto 2.18 original)
 2.30 Informes confidenciales, constancias y certificaciones
 a. Por medio de canales digitales: USD 5,00 cada una.
 b. Por medio de canales presenciales USD 10,00 cada una.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.31 al punto 2.30, toda vez que se derogó el punto 2.18 original)
 2.31 Apartado bancario
 USD 35,00 anual membresía.
 Nota:
 El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.32 al punto 2.31, toda vez que se derogó el punto 2.18 original)
 2.32 Servicio por examinar videos BCR
 USD 40,00 por examinar cada video de seguridad.
 Nota:
 Se cobra esta comisión por cada video revisado en cassette o digital.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.33 al punto 2.22, toda vez que se derogó el punto 2.18 original)
-2.33 Servicio de venta de efectivo a instituciones que no participan del MEN
+2.33 Servicio de venta de efectivo a instituciones que no participan del Mercado Numerario (MEN)
 Por cada 1.000 formulas se cobrará un monto de USD 25,00 o su equivalente en colones al tipo de cambio de venta del día.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.34 al punto 2.33, toda vez que se derogó el punto 2.18 original)
 2.34 Comisión por libros de depósito
 USD 2,00 por cada libro de depósito + IVA.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.35 al punto 2.34, toda vez que se derogó el punto 2.18 original)
 2.35 Comisión por depósitos en efectivo en dólares americanos
 0,65% sobre todos los depósitos recibidos en efectivo en ventanilla de oficinas comerciales en dólares americanos.
 Nota:
 Aplica para depósitos por un monto mayor o igual a USD 2.000,00.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 2.36 al punto 2.35, toda vez que se derogó el punto 2.18 original)
+2.36 Comisión saldo mínimo en cuentas corrientes y de ahorros
+USD 1,00 mensual.
+Notas:
+. Se considera incumplimiento de saldo mínimo a toda aquella cuenta que mantenga un saldo promedio mensual menor o igual a USD 50,00 o su equivalente colones. El cálculo considera también el saldo de los sobres electrónicos.
+. Se exceptúa del cobro de la comisión a los siguientes tipos de cuentas: Cuenta Conmigo, Cuenta Propia, Pensionados, Cuenta Nomina.
+. Se utiliza el tipo de cambio de venta BCR.
 3. Tarjetas de crédito y débito
 3.1 Comisión por reemplazo normal y reposición
 La comisión oscila entre los rangos de USD 10,00 a USD 20,00.
-(*)Excepciones al pago de esta comisión:
+Excepciones al pago de esta comisión:
 a. Reposición de los medios de pago (tarjetas, pulseras y sticker) por deterioro y el mismo no es atribuido al tarjetahabiente.
 b. Reemplazo de la tarjeta por fraude (transacciones no reconocidas por el tarjetahabiente).
 c. Reemplazo de la tarjeta cuando está retenida en un cajero que no se encuentra en las oficinas comerciales del BCR.
 d. Reposición de la tarjeta de Firma Digital con Medio de Pago por deterioro del certificado digital que no sea atribuible al tarjetahabiente. La garantía de la firma digital debe cubrir su deterioro.
-(*) (Así reformado el párrafo anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales./.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales./.
 3.2 Comisión por adelanto de efectivo
 Tarjetas de crédito
 La comisión oscila entre los rangos de 3% a 5% sobre el monto por avance de efectivo más USD 1,00 a USD 2,00, utilizando cualquier medio disponible.
@@ -276,13 +236,12 @@ Tarjetas de BCR Compras
 La comisión oscila entre los rangos de USD 0,50 a USD 2,00 por avance de efectivo
 Tarjetas de débito
 . La comisión oscila entre los rangos de USD 0,25 a USD 2,00 por avance efectivo en ATM´S del BCR después del quinto retiro en el mes.
-(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 . La comisión oscila entre los rangos de USD 1,00 a USD 3,00 por avances efectivo en ATM´S en emisores locales.
 . La comisión oscila entre los rangos de 0,50% a 1,00% sobre el monto por retiro de efectivo en ATM`s o en ventanilla en otros emisores internacionales, más USD 4,00 a USD 6,00.
 . La comisión oscila entre los rangos de USD 1,50 a USD 3,00 por cada transacción de avance o retiro de efectivo en ventanilla del BCR, excepto cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 . La comisión oscila entre los rangos de USD 1,00 a USD 3,00 por Prepago.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.3 Reposición de PIN para tarjeta de crédito y débito
 La comisión oscila entre los rangos de USD 5,00 a USD 10,00.
 Se cobra esta tarifa cuando el cliente se presente a una sucursal bancaria a realizar la solicitud por olvidar el PIN.
@@ -293,58 +252,58 @@ b. Cuando el cliente realice la autogestión por medio de canales digitales que 
 c. Únicamente el primer PIN de tarjetas nuevas o reemplazos que no estén habilitados para ser autogestionados por medio de canales digitales.
 Notas:
 . La comisión por el cambio del PIN de la Firma Digital está detallada en el punto Servicios Bancarios electrónicos/Certificados Digital ítem Costo tarjeta firma digital con medio de pago.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.4 Comisión por servicios administrativos en tarjetas de débito
 La comisión oscila entre los rangos de USD 1,00 a USD 14,00.
 Notas:
 . El Banco define la periodicidad de cobro ya sea mensual, trimestral, semestral o anual, por cada tarjeta.
 . Se exceptúa del cobro de la comisión las siguientes tarjetas: Cuenta Conmigo (HIT o Supercard), Cuenta Propia (Morpho o LIT), Pensionados, Adulto Mayor, Nómina Corporativa (por negociación o por justificación de rentabilidad de la empresa), pulseras y stickers débito.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.5 Comisión por gestión de reclamo de transacciones con tarjetas
 Se cobra por cada gestión entre los rangos de USD 40,00 a USD 60,00.
 Notas:
 . Debe aplicarse cuando la documentación que se recibe por parte del banco adquirente (banco encargado de procesar las transacciones cobradas por el comercio) vincula al cliente.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.6 Comisión por pagos a tarjetas reversados por cheques devueltos
 La comisión oscila entre los rangos de USD 10,00 a USD 15,00 si el cheque es devuelto por temas de forma y USD 20,00 a USD 30,00 si es por fondos insuficientes.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.7 Cobro por reposición de clave de acceso a la página www.bcrcompras.com
 La comisión oscila entre los rangos de USD 5,00 a USD 10,00.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
-3.8 Comisión por costo de pulsera y sticker débito
-Sticker y pulsera (minitarjeta de silicón) entre los rangos de USD 8,00 a USD 12,00.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
+3.8 Comisión por costo de pulsera y sticker débito Sticker y pulsera (minitarjeta de silicón) entre los rangos de USD 8,00 a USD 12,00.
 Sustitución y/o solicitud de pulsera adicional (sólo silicón) entre USD 3,00 a USD 5,00.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.9 Emisión de tarjetas
 La comisión oscila entre los rangos de USD 5,00 a USD 20,00.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.10 Carga de tarjetas
-La comisión para las tarjetas Prepago y BCR Compras oscilan entre los rangos de USD 1,00 a USD 10,00
+La comisión para las tarjetas Prepago y BCR Compras oscilan entre los rangos de USD 1,00 a USD 10,00.
 Notas:
 . El cobro se debe realizar por evento de carga.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.11 Inactividad de tarjeta Prepago
 Tarjeta Prepago inactividad oscila entre los rangos de USD 3,00 a USD 6,00.
 Saldo al vencimiento oscila entre los rangos de USD 5,00 a USD 10,00.
 Notas:
 . El cobro se debe realizar hasta que se consuma el saldo precargado.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace:https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.12 Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%
 Las comisiones oscilan entre los rangos de 2,00% a 9,00% según el plazo del Plan BCR 0%.
 Notas:
 . Los plazos disponibles se establecen entre 3 y 12 meses.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 3.13 Compra de saldos con tarjetas de crédito
 Se aplica los porcentajes entre 1,50% a 2,00% sobre montos mayores o igual a cien mil colones.
 Mínimo CRC 15.000,00.
 Nota:
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 4. Servicios bancarios electrónicos
-4.1 Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva
+4.1 Sinpe Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR
+Transferencias entre cuentas de reserva
 Transferencia de fondos a terceros:
 a. Por medio de canales digitales: USD 3,00 por transferencia
 b. Por medio de canales presenciales USD 10,00 por transferencia
@@ -358,8 +317,7 @@ Las comisiones oscilan en un rango de 1,00% a un 12,00%.
 El porcentaje a negociar debe ser en función a la categorización de clientes definida por el Banco tomando en consideración las variables de cada negocio.
 Se exceptúan los siguientes casos:
 a. Interés social o actividad relacionada, aplica un porcentaje a partir de 0,50%.
-b. Clientes no interesados en la comisión porcentual se deben establecer en términos
-absolutos en un rango de CRC 500,00 a CRC 1.500,00 por transacción.
+b. Clientes no interesados en la comisión porcentual se deben establecer en términos absolutos en un rango de CRC 500,00 a CRC 1.500,00 por transacción.
 Nota:
 Cualquier categoría o caso de excepción que no sea la establecida por el Banco, debe ser consultada con la Oficina de Canales Presenciales.
 4.4 Créditos directos salientes Sinpe cuentas clientes
@@ -396,11 +354,9 @@ Sustitución defecto de fábrica (garantía 4 años) | USD 0,00
 Remplazo por pérdida o daño | USD 35,00 + IVA
 4.8 Cambio de cheques BNCR
 USD 2,00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
-(Así reformado el párrafo anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 Si el cambio del cheque BNCR se aplica para un depósito con el Banco Nacional se debe cobrar adicionalmente la comisión Depósitos BNCR. Si el cambio se destina para el pago de servicios públicos se debe cobrar también la comisión Pago de servicios públicos y privados en ventanilla.
-(Así reformado el párrafo anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 Se exceptúa de este cobro cuando:
-.El cheque del BNCR se deposite en una cuenta del BCR.
+. El cheque del BNCR se deposite en una cuenta del BCR.
 . Se deposita en cuentas judiciales (depósitos automatizados o expedientes judiciales).
 . Se cambie para pagar una tarjeta u operación con el BCR.
 4.9 Depósitos BNCR
@@ -440,7 +396,8 @@ Notas:
 2. Este costo se traslada al exportador y se descuenta del monto a remesar y se aplica por cada negociación.
 3. La fracción se cobra por los días de exceso completos. En caso de excepción se aplican las atribuciones.
 4. Las cartas de crédito confirmadas por un banco corresponsal y el plazo no deben ser mayor a 1 año.
-5. Por cada presentación de documentos se le cobra al presentador (beneficiario en Costa Rica), siempre y cuando en la solicitud de apertura de la carta de crédito no se indique que estos gastos son por cuenta del ordenante.
+5. Por cada presentación de documentos se le cobra al presentador (beneficiario en Costa Rica), siempre y cuando en la solicitud de apertura de la carta de crédito no se indique que estos gastos son por cuenta del
+ordenante.
 5.2 Cobranzas
 | Importación documentaria | Simple (cheques BCR) | Exportación documentaria | Simple (cheques del exterior)
 Apertura | 0,30% sobre el monto. | 0,30% sobre el monto. | 0,30% sobre el monto. | 0,30% sobre el monto.
@@ -473,13 +430,9 @@ Apertura | 0,35% sobre el monto
 Mínima USD 15,00
 Máxima USD 85,00
 Mensaje Swift | USD 8,00
-Transferencias al exterior con modalidad Pago Garantizado U.S.
-Bank of América, Miami | USD 30,00
-Bank of New York Mellon, New York | USD 25,00
-JP Morgan Chase Bank, N.A | USD 20,00
-Citibank N.A | USD 18,00
+Transferencias al exterior con modalidad Pago Garantizado U.S. | USD 30,00
 Nota:
-En las transferencias con modalidad pago garantizado, además de la comisión de apertura y mensaje Swift, se debe cobrar una comisión adicional definida para el banco corresponsal asignado.
+En las transferencias con modalidad pago garantizado, además de la comisión de apertura y Swift, se debe cobrar la comisión adicional correspondiente al pago garantizado.
 5.4.2 Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (Forex)
 Comisión | Mínimo
 Hasta 1,00 % del tipo de cambio de negociación | USD 10,00
@@ -496,11 +449,8 @@ Nota:
 Cuando se devuelvan órdenes de pago por un valor inferior a USD 50,00 no se cobra comisión. Para estos casos se cobra el valor del mensaje Swift.
 5.5 U.S. Direct Deposit - Acreditación pensiones Gobierno de los E.E.U.U.
 Detalle | Comisión
-Acreditación por transacción | USD 6,00
-Nota:
-De esta tarifa que cobra el BCR, se comparte el 50,00% con el Bank of New York.
+Acreditación por transacción | USD 20,00
 5.6 Envío estado de cuenta corriente por Swift - MT940, CAMT052, CAMT053
-(Así reformado el punto 5.6) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Detalle | Comisión
 Por cada estado de cuenta enviado | USD 3,00
 5.7 Remesas familiares por MoneyGram®
@@ -537,7 +487,6 @@ USD 500,01 | USD 2.000,00 | USD 10,00
 5.9 Devolución de Remesas Familiares
 Detalle | Comisión
 Por transacción | USD 1,50
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 5.10 al punto 5.9, toda vez que se derogó el punto 5.9 original)
 6. Comisiones de confianza
 Dentro de las comisiones de confianza están los mandatos, los fideicomisos y otras comisiones de confianza.
 6.1 Custodias físicas y electrónicas
@@ -556,9 +505,10 @@ Cobrados mensualmente por adelantado.
 Por sobres cerrados y sellados, USD 100,00 anuales + IVA.
 6.1.3 Custodia de bienes en sobres cerrados o paquetes cerrados y sellados provenientes de Cajitas de Seguridad del BCR
 Corresponde a los paquetes o sobres cerrados de bienes extraídos de Cajitas de Seguridad; por concepto de una apertura de oficio realizada a la cajita, para su respectiva custodia.
-Por sobres o paquetes cerrados y sellados de cajitas de seguridad del BCR USD 100,00 +IVA por el plazo de permanencia en la custodia.
+Por sobres o paquetes cerrados y sellados de cajitas de seguridad del BCR USD 100,00 + IVA por el plazo de permanencia en la custodia.
 6.1.4 Recepción y custodia de garantías de pago
 Corresponde a la recepción y custodia de documentos de garantía de pago sobre licitaciones de participación y cumplimiento de instituciones públicas.
+5.9 Devolución de Remesas Familiares
 0,50% sobre el monto de la garantía de pago, con un mínimo de USD 15,00 y un máximo de USD 150,00 + IVA durante el vencimiento del documento.
 6.1.5 Administración, control, seguimiento y custodia de las garantías cedidas sobre créditos otorgados
 Servicio que se brinda en la administración y custodia física de documentos dados en garantía al Banco en operaciones de crédito respaldadas con garantías cedidas; que incluye, el proceso de control y seguimiento, según los términos aprobados.
@@ -607,12 +557,12 @@ Para el cobro de esta comisión se debe aplicar + el IVA.
 La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
 6.2.2 Tipos de Fideicomisos
 La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
+Nota:
 6.3 Otras comisiones de confianza
 6.3.1 Mandatos de administración e inversión (figura con servicios semejantes fideicomiso)
 La comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
 6.3.2 Depósito inicial de garantía
 50,00% del costo anual de la cajita + IVA.
-Movimiento Comisión
 6.4 Cajitas de seguridad
 6.4.1 Reposición de llave en caso de extravío
 USD 25,00 costo de administración, más costo de cerrajería + IVA.
@@ -630,9 +580,8 @@ Esta tarifa se cobrará a aquellos clientes que no han pagado la cajita de segur
 La comisión se define de forma contractual a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente.
 6.6 Bloqueo de sala Ceval (arqueo de títulos)
 - Costo por hora: USD 100,00 + IVA.
-(Así modificada su numeración mediante sesión N° 40-24 del 19 de agosto de 2024, que lo traspasó del antiguo punto 6.7 al punto 6.6, toda vez que se derogó el punto 6.6 original)
 7. Garantías de participación y cumplimiento
-7.1 Certificado de participación
+.1 Certificado de participación
 7.1.1 Emisión y extensión de plazo
 En colones: 0,75% por trimestre o fracción mínimo USD 20,00 por trimestre.
 En dólares: 0,60% por trimestre o fracción mínimo USD 20,00 por trimestre.
@@ -650,8 +599,6 @@ Del monto existente entre la fecha de la modificación y el vencimiento de la ga
 8. Evaluación de garantías reales
 No aplican reintegros después de 90 días naturales posteriores al registro de cobro al cliente de las comisiones indicadas en este apartado.
 8.1 Cobro de comisiones para cubrir gastos por la realización de avalúos
-Consideraciones para todos los avalúos:
-(Así adicionado el párrafo anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Cuando los avalúos sean realizados por profesionales adscritos al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (CFIA), la comisión a cobrar será el monto que resulte de aplicar la siguiente fórmula:
 [imagen]
 El exponente n se detalla en el Decreto Ejecutivo Nº 35298-MOPT denominado Aranceles por servicios de peritaje y avalúos del Colegio Federado de Ingenieros y Arquitectos (CFIA) de Costa Rica y se debe emplear el que esté vigente a diciembre del año anterior.
@@ -681,28 +628,28 @@ e) Para efectos del cálculo de la comisión por avalúo en casos de venta de bi
 f) En caso de liberación parcial de una garantía, el monto de la comisión a cobrar al cliente por valorar los bienes que se mantienen en garantía se calcula considerando el saldo de la operación vigente al momento de solicitar el avalúo.
 g) En casos de sustitución de garantías, la comisión a cobrar al cliente se calcula sobre el monto por el cual responde la garantía a sustituir. Cuando una operación está respaldada con varias garantías, se calcula el monto por el que responden las garantías a sustituir (considerando la proporción en que disminuyó la responsabilidad original de acuerdo con el saldo de la operación).
 h) En el caso que el avalúo no se realice debido a razones no imputables al Banco o como resultado del análisis realizado no se recomiende aceptar el bien en garantía, siempre y cuando el valuador haya hecho la inspección de campo, para el cálculo de la comisión aplica la tarifa para inspecciones establecida en el apartado 8.3. Si la comisión ya pagada por el cliente es mayor a la tarifa para una inspección para verificar el cumplimiento de alguna condición de la garantía, apartado 8.3, se le devolverá al cliente la diferencia.
-i) Si una vez realizado un avalúo para crédito, el trámite no continúa se debe devolver al cliente la diferencia, resultante del cálculo con base a la tarifa mínima establecida para avalúos incluyendo el costo de administración del servicio y el IVA, versus la comisión cobrada inicialmente correspondiente a ese servicio técnico.
-(Así reformado inciso anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
+i) Adicional a la comisión que se cobra por avalúo, para bienes a valorar en zonas donde no se dispone de profesional, se cobrará el costo del desplazamiento, ida y regreso, tomando como referencia la oficina BCR más cercana al bien dentro de la zona donde tiene contrato el profesional hasta la ubicación del inmueble, reconociendo para esto solamente el exceso sobre los 10 km en ambas direcciones conforme a lo dispuesto en los aranceles de los colegios profesionales.
 j) Si una vez realizado un avalúo para crédito, el trámite no continúa, se debe devolver al cliente la diferencia, resultante del cálculo con base a la tarifa mínima establecida para avalúos incluyendo el costo de administración del servicio y el IVA, versus la comisión cobrada inicialmente correspondiente a ese servicio técnico.
-(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
-k) Cuando se soliciten varios avalúos de una misma operación, el cobro de la comisión debe considerar el monto base del crédito y por cada avalúo adicional se cobra preliminarmente una comisión del mínimo establecida para avalúos. Una vez que se reciban todos los informes si la suma de los pagos por avalúos es menor que el monto de la comisión según el crédito solicitado se paga, utilizando el formulario V9 Auxiliar para el cálculo de honorarios en portafolio, usando como base el resultado de cada avalúo en forma proporcional. Si el monto a pagar por los avalúos es mayor o igual que la comisión calculada con base al monto del crédito, la distribución de los pagos por estos trabajos se realiza en forma proporcional en relación con el total valorado, aplicado a la comisión según monto de crédito. Posteriormente, debe verificarse en todos los casos donde exista un informe de avalúo, que cumpla al menos con el pago mínimo establecido, devolviendo al cliente el sobrante.
-(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
+k) Cuando se soliciten varios avalúos de una misma operación, el cobro de la comisión debe considerar el monto base del crédito y por cada avalúo adicional se cobra preliminarmente una comisión del mínimo establecida para avalúos.
+Una vez que se reciban todos los informes si la suma de los pagos por avalúos es menor que el monto de la comisión según el crédito solicitado se paga, utilizando el formulario V9 Auxiliar para el cálculo de honorarios en portafolio, usando como base el resultado de cada avalúo en forma proporcional. Si el monto a pagar por los avalúos es mayor o igual que la comisión calculada con base al monto del crédito, la distribución de los pagos por estos trabajos se realiza en forma proporcional en relación con el total valorado, aplicado a la comisión según monto de crédito. Posteriormente, debe verificarse en todos los casos donde exista un informe de avalúo, que cumpla al menos con el pago mínimo establecido, devolviendo al cliente el sobrante.
 l) En daciones y arreglos de pago, la comisión a cobrar al cliente se calcula sobre el saldo de la operación.
-(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 8.2 Cobro de comisiones para cubrir gastos por evaluaciones de parámetros técnicos
-Las que son requeridas en el estudio y análisis de una solicitud de crédito y son efectuadas por profesionales designados por el Banco. Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de CRC 13.000,00 + IVA.
+Las que son requeridas en el estudio y análisis de una solicitud de crédito y son efectuadas por profesionales designados por el Banco.
+Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de CRC 13.000,00 + IVA.
 8.2.1 Evaluación de parámetros técnicos de actividades agropecuarias
-Cuando el mismo profesional al que le corresponde valorar la finca donde se llevará a cabo el plan de inversión, debe realizar también una evaluación de parámetros técnicos de tipo agropecuario, el cálculo de la comisión por la inspección previa es sobre el monto del crédito y corresponde al 50,00% de la tarifa por concepto de avalúos + IVA. Lo anterior es adicional a las comisiones que corresponda pagar por concepto de avalúo y administración. Si al mismo profesional no le corresponde realizar el avalúo de la finca, entonces la comisión que corresponde es el 100,00% de la tarifa por concepto de avalúos.
-El cobro mínimo para una evaluación de parámetros técnicos es igual al mínimo establecido para avalúo.
+Cuando el mismo profesional al que le corresponde valorar la finca donde se llevará a cabo el plan de inversión, debe realizar también una evaluación de parámetros técnicos de tipo agropecuario, el cálculo de la comisión por la inspección previa es sobre el monto del crédito y corresponde al 50,00% de la tarifa por concepto de avalúos + IVA.
+Lo anterior es adicional a las comisiones que corresponda pagar por concepto de avalúo y administración. Si al mismo profesional no le corresponde realizar el avalúo de la finca, entonces la comisión que corresponde es el 100,00% de la tarifa por concepto de avalúos. El cobro mínimo para una evaluación de parámetros técnicos es igual al mínimo establecido para avalúo.
 8.2.2 Evaluación de parámetros técnicos de otras actividades no agropecuarias
 El cálculo de la comisión por evaluaciones de parámetros técnicos de otras actividades no agropecuarias es sobre el monto del crédito y corresponde al 25,00% de la tarifa por concepto de avalúos + IVA. El cobro mínimo para una evaluación de parámetros técnicos es igual al mínimo establecido para avalúo.
 8.2.3 Inspección de seguimiento de parámetros técnicos de actividades agropecuarias
 Se cobra 15,00 % sobre la tarifa correspondiente a la comisión por avalúos de bienes de naturaleza agropecuaria.
-El mínimo de comisión que debe de cobrarse se establece en la tarifa Cobro de comisiones para cubrir gastos por la realización de avalúos, que aplica a los avalúos realizados por profesionales adscritos al Colegio de Ingenieros Agrónomos. Adicionalmente, se debe cobrar CRC 7.000,00 por cada inspección de seguimiento.
+El mínimo de comisión que debe de cobrarse se establece en la tarifa Cobro de comisiones para cubrir gastos por la realización de avalúos, que aplica a los avalúos realizados por profesionales adscritos al Colegio de Ingenieros Agrónomos.
+Adicionalmente, se debe cobrar CRC 7.000,00 por cada inspección de seguimiento.
 Para el cobro de esta comisión se debe aplicar + IVA.
 8.3 Cobro de comisiones para cubrir gastos por la realización de inspecciones para verificar el cumplimiento de alguna condición de la garantía
 Para la administración de este servicio por cada inspección, se cobra adicionalmente, una comisión de CRC 7.000,00 + IVA.
-El cobro de comisiones para cubrir gastos por la realización de inspecciones es la que se ejecuta antes de la formalización de una operación con el propósito de confirmar el cumplimiento de modificaciones indicadas en el avalúo y que son requeridas para recibir la garantía a satisfacción. Entran en esta categoría las inspecciones de instalaciones eléctricas, de amojonamientos, deslindes, remoción de obstáculos o de otra índole. No se deben confundir estas inspecciones con los avalúos, que se deben ejecutar posteriormente, por inconsistencias con los planos catastrados, falta de servicios públicos y accesos inconvenientes.
+El cobro de comisiones para cubrir gastos por la realización de inspecciones es la que se ejecuta antes de la formalización de una operación con el propósito de confirmar el cumplimiento de modificaciones indicadas en el avalúo y que son requeridas para recibir la garantía a satisfacción. Entran en esta categoría las inspecciones de instalaciones eléctricas, de amojonamientos, deslindes, remoción de obstáculos o de otra índole.
+No se deben confundir estas inspecciones con los avalúos, que se deben ejecutar posteriormente, por inconsistencias con los planos catastrados, falta de servicios públicos y accesos inconvenientes.
 El cálculo de la comisión por cada inspección es de CRC 20.880,00 + IVA.
 8.4 Cobro de comisiones para cubrir gastos por inspecciones para verificar el cumplimiento del plan de inversión
 Para la administración de este servicio por cada inspección, se cobra adicionalmente, una comisión de CRC 7.000,00 + IVA.
@@ -714,7 +661,8 @@ Este tipo de comisiones se refiere a las inspecciones para el control y seguimie
 La comisión por inspección para control y seguimiento de garantías se cobra al cliente, únicamente si está incluida en el contrato de crédito, o bien, si el propósito de la inspección es para mantener la vigencia de un avalúo que se utiliza en una nueva operación de crédito.
 8.5.1 Bienes inmuebles separados
 CRC 20.880,00 por cada bien inmueble + IVA.
-8.5.2 Bienes inmuebles que conforman una reunión de propiedades y una sola explotación CRC 20.880,00 por unidad funcional + IVA.
+8.5.2 Bienes inmuebles que conforman una reunión de propiedades y una sola explotación
+CRC 20.880,00 por unidad funcional + IVA.
 8.5.3 Bienes muebles: vehículo individual o máquina industrial individual
 CRC 20.880,00 por bien mueble + IVA.
 8.5.4 Grupos de bienes muebles localizados en un solo lugar: flotillas de vehículos o grupos de máquinas
@@ -727,9 +675,8 @@ Se cobra al cliente un 0,50% sobre el presupuesto revisado y aprobado por el fis
 8.6.2 Inspecciones para el avance de obra
 Para la administración de este servicio, adicional al conjunto de visitas, se cobra una comisión de CRC 26.000,00 + IVA. Esta suma se debe cobrar al cliente por separado al monto de la retención que realiza el formalizador.
 Se cobra al cliente mediante la retención al formalizar la operación de un crédito un 1,00% sobre la proporción del crédito destinado para la construcción que es fiscalizada más el IVA.
-(*) 8.7 Certificación de servicios profesionales en avalúos, fiscalizaciones e inspecciones solicitada por peritos externos
-USD 18,00 por cada certificación.
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
+8.7 Certificación de servicios profesionales en avalúos, fiscalizaciones e inspecciones solicitada por peritos externos
+USD 18,00, por cada certificación.
 9. Servicios de adquirencia
 9.1 Tarifa por reposición o daño parcial de datáfono (POS) extraviados, por mal uso o con daño irreparable por el comercio afiliado
 En caso de reposición el costo del equipo dependerá del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
@@ -746,13 +693,13 @@ Para las demás actividades comerciales regirá también la comisión pactada po
 9.4 Cobro por sistemas propietarios de facturación de un comercio afiliado
 USD 5,00 mensuales por dispositivo implementado.
 9.5 Cobro por el servicio Plan 0% para los comercios afiliados
-Las comisiones oscilan entre 4,75% a 23,00% según el plazo del Plan BCR 0%
+Las comisiones oscilan entre 4,75% a 23,00% según el plazo del Plan BCR 0%.
 Notas:
 . Los plazos disponibles se establecen entre 3 y 36 meses.
-. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+. Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 9.6 Tarifa por reposición de dispositivo lector para MPOS extraviados o con daño irreparable por el comercio afiliado
 El costo del equipo depende del valor de mercado en el momento de la reposición. En el caso de daños parciales dependerá del costo de los repuestos y de la atención de la avería según el valor de mercado.
-(*)9.7 Tarifas soluciones digitales de recaudo (SDR)
+9.7 Tarifas soluciones digitales de recaudo (SDR)
 Tarifa Individual ¹ |
 Webcheck Out | Implementación4 | Mensualidad | Costo por transacción
 USD 150,00 | USD 30,00 | USD 0,15
@@ -766,22 +713,19 @@ Total comisión | USD 25,75 | USD 65,75 | USD 125,75 | USD 180,00
 Monto máximo por paquete | CRC 400.000,00 | CRC 1.200.000,00 | CRC 2.400.000,00 | CRC 3.600.000,00
 Notas:
 1. Tarifa cobrada únicamente sobre el mecanismo SDR + comisión de adquirencia.
-2. Servicio incluye un mecanismo digital SDR a escoger entre QR, Link de Pagos o Micro sitio. Comisión cubre la cantidad de transacciones según el paquete elegido, costo transacción adicional USD 0,45 IVAI.
+2. Servicio incluye un mecanismo digital SDR a escoger entre QR, Link de Pagos o Micrositio. Comisión cubre la cantidad de transacciones según el paquete elegido, costo transacción adicional USD 0,45 IVAI.
 El paquete no implica cobro de comisión adquirente adicional al costo del paquete, hasta por el monto máximo contratado, volumen superior (exceso) a este monto aplica comisión indicada en el Reglamento del Sistema de Tarjetas de Pago, publicado por el BCCR.
 3. Tarifa cobrada por mes anticipado.
 4. Se cobra implementación una única vez.
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 9.8 Tarifas por servicio de conversión dinámica de monedas (DCC)
 Aplica entre los rangos de 4,00% y 7,00% sobre el monto de cada transacción, a emisores internacionales que acepten el cargo al momento de realizar su transacción de compra.
 Nota:
-Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales/.
+Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-del bcr/transparencia/reglamentos_institucionales/.
 10. Otras tarifas
-(*) 10.1 Comisión bancaria por el trámite de pasaporte:
-USD 12,00 por cada pasaporte
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
-(*) 10.2 Comisión bancaria por el trámite de documento de identidad migratorio para extranjeros (Dimex)
+10.1 Comisión bancaria por el trámite de pasaporte:
+USD 15,00 por cada pasaporte.
+10.2 Comisión bancaria por el trámite de documento de identidad migratorio para extranjeros (Dimex)
 USD 15,00 cédula de residencia.
-(*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
 10.3 Comisión bancaria trámite de impresión de licencias de conducir
 -Nueva emisión
 -Renovación
@@ -794,22 +738,24 @@ La comisión establecida es adicional a la tarifa fijada por el MOPT vía decret
 USD 10,00 por trámite de certificación.
 10.5 Comisión por venta de certificaciones RNP Digital
 USD 6,00 por cada certificación.
-(Así adicionado el punto 10.5) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Aspectos generales
 1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
 2. Todas las comisiones y tarifas podrán ser pagadas en dólares (USD moneda de curso legal de los Estados Unidos de América) o su equivalente en colones (CRC), al tipo de cambio BCR de venta vigente a la fecha de cancelación.
 3. En este documento se utiliza la coma "," como separador de decimales y el punto "." como separador de miles.
 4. Es obligación de todo servidor del Banco, de informar al cliente el costo del producto o servicio solicitado previo a la contratación del producto o servicio.
 5. Todas las personas trabajadoras del Conglomerado Financiero BCR deben pagar las comisiones asociadas a cualquier servicio, las cuales se pueden negociar; si así se requiere, de conformidad con las atribuciones de los servidores indicados en este reglamento.
-6. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen dferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, en caso de los rangos de negociación de los gerentes regionales se requiere aprobarse de forma mancomunada con su nivel superior siendo las siguientes personas trabajadoras las únicas en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
-Porcentaje a negociar
-Gerente general 100%
-Subgerentes 100%
-Gerente de negocios banca corporativa y de personas 75%
-Gerente regional de banca pyme y desarrollo 75%
-Gerente regional banca corporativa y de personas 75%
-Gerente local banca pyme y desarrollo 50%
-Gerente local banca corporativa y de personas 50%
+6. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas, cuando así se requiera, las siguientes personas trabajadoras son las únicas con atribuciones para negociar las tarifas y los porcentajes señalados según el siguiente cuadro:
+Porcentaje para negociar
+Gerente general | Hasta un 100 %
+Subgerentes | Hasta un 100%
+Gerente corporativo | Hasta un 100%
+Gerente de negocios | Hasta un 75%
+Gerente regional | Hasta un monto máximo CRC 500.000,00
+Gerente local banca pymes y desarrollo | Hasta un monto máximo CRC 250.000,00
+Gerente local banca corporativa y de personas | Hasta un monto máximo CRC 250.000,00
+Gerente de oficina | Hasta un monto máximo CRC 100.000,00
+Ejecutivos corporativos, institucionales, pymes, ejecutivos y promotores de negocios banca de personas | Monto máximo de CRC 50.000,00
+Nota:
+La aprobación es de forma individual para todos los rangos de negociación.
 7. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen personas trabajadoras u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
-8. Para los efectos que se deriven de la aplicación de este documento, el concepto de "casco metropolitano" tiene el siguiente significado: cantones que pertenecen a la provincia de San José, con excepción de Acosta, Turrubares, Dota, León Cortés Castro, Puriscal, Tarrazú y Perez Zeledón.
-(Así adicionado el punto anterior mediante sesión N° 27-25 del 2 de junio de 2025)
+8. Para los efectos que se deriven de la aplicación de este documento, el concepto de "casco metropolitano" tiene el siguiente significado: cantones que pertenecen a la provincia de San José, con excepción de Acosta, Turrubares, Dota, León Cortés
