@@ -14,3 +14,4 @@ Reglamento para el nombramiento de representantes de la Municipalidad de Desampa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-18 | la propia norma |
+| 2 | 2026-02-23 | Reglamento municipal 11 (2026-02-23) |
