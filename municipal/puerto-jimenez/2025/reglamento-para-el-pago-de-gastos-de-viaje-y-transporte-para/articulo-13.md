@@ -1,0 +1,1 @@
+Artículo 13.-Asignación presupuestaria. Una vez verificado el cumplimiento de los requisitos que establece este reglamento, la Alcaldía Municipal con base al presupuesto efectuará la asignación presupuestaria para cubrir estos gastos.

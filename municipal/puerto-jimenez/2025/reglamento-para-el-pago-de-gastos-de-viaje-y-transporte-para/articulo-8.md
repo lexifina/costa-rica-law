@@ -1,0 +1,1 @@
+Artículo 8º-Limitación territorial del gasto de transporte. El gasto de transporte se reconocerá del lugar de residencia del regidor y/o síndico, propietarios y/o suplentes al lugar sede del Concejo Municipal y viceversa. En caso de sesiones extraordinarias en otros lugares, se deberá indicar el lugar donde esa sesión se lleve a cabo.

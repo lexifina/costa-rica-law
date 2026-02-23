@@ -1,0 +1,1 @@
+Artículo 7º-Tarifas. Las tarifas que reconocerá la Municipalidad de Puerto Jiménez por concepto de gastos de alimentación, hospedaje y transporte, serán aquellas autorizadas por la Contrataría General de la República, según en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos.
