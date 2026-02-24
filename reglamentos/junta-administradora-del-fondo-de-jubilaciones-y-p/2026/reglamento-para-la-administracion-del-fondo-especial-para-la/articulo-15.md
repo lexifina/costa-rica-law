@@ -1,0 +1,2 @@
+ARTÍCULO 15°. Arqueo e informe.
+El área encargada del manejo del fondo, deberá rendir mensualmente un arqueo e informe del Fondo Especial a la Dirección de la JUNAFO con copia a la Auditoría Interna y al Macroproceso Financiero Contable, a más tardar el tercer día hábil del mes siguiente. Este arqueo corresponde enviarlo independientemente si hubo erogación o movimiento alguno durante ese mes.

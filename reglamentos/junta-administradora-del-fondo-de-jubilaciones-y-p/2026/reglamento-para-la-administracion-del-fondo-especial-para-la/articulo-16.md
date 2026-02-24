@@ -1,0 +1,2 @@
+ARTÍCULO 16°. Autorización de desembolsos.
+Las órdenes de pago, mediante transferencias electrónicas de fondos, serán autorizadas en forma mancomunada, por dos de las personas autorizadas por la Junta Administradora en la cuenta que para el efecto se utilizará. Se deberá llevar un libro de bancos electrónico y de efectivo en el que se registrarán las operaciones que se realicen con cargo al Fondo Especial.

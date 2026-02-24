@@ -1,0 +1,3 @@
+ARTÍCULO 21°. Cambio de persona encargada.
+Toda persona que asuma la responsabilidad de operar el Fondo Especial al que hace referencia este Reglamento, ya sea en forma permanente o transitoria, deberá recibirla previo arqueo, con la presencia y firma de quien entrega y quien recibe los fondos.
+En los casos fortuitos o de fuerza mayor, la persona anteriormente encargada del manejo de este Fondo Especial no pudiese realizar su entrega, estará facultada la persona que ejerza el cargo de Subdirector (a) de la Dirección de la JUNAFO, junto con dos testigos, procederá a realizar el arqueo inmediato de dicho Fondo Especial, reportando los resultados del mismo a la persona que ejerza el cargo de Director (a) de la Dirección de la JUNAFO.

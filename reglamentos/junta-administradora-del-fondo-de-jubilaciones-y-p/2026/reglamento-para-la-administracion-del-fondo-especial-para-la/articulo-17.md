@@ -1,0 +1,2 @@
+ARTÍCULO 17°. Trámite de reintegro.
+El reintegro de las sumas canceladas por el Fondo Especial, se tramitará mediante la presentación al Macroproceso Financiero Contable, de un detalle de la información de los documentos a reintegrar debidamente clasificados por subpartida presupuestaria. Los documentos originales o electrónicos se mantendrán en la Dirección de la JUNAFO, que será la responsable de la autenticidad, razonabilidad y exactitud aritmética del reembolso.
