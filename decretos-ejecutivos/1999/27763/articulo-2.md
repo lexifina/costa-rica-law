@@ -1,4 +1,5 @@
 Artículo 2º-Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Servicio Fitosanitario del Estado.
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución No DSFE-003-2026 del 24 de febrero del 2026, se ordenó que a partir del 01 de abril de 2026, la aplicación del Índice de Precios al Consumidor (IPC) correspondiente al período acumulado a diciembre de 2025, equivalente a una variación interanual negativa del -1,23 %, a las tarifas de cobro de los servicios del Servicio Fitosanitario del Estado, establecidas en el Decreto Ejecutivo Nº 27763-MAG del 10 de marzo de 1999 y sus reformas, lo cual conlleva una disminución tarifaria. Lo anterior con excepción de aquellas que estén establecidas en dólares americanos)
 Código | Descripción | Monto
 1 | Certificados del Servicio Fitosanitario del Estado:
 1.a | De Exportación o Reexportación de productos y subproductos vegetales | ¢ 2 990,00
