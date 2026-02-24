@@ -1,2 +1,4 @@
-ARTICULO 49.- Los colegios podrán establecer el calendario de asambleas generales ordinarias en la forma que lo consideren conveniente, pero deberán celebrar una asamblea durante los meses de setiembre u octubre para el nombramiento de los nuevos directores y delegados a la Asamblea de Representantes.
-(Así reformado por Acuerdo de Sesión Nº 4 de 5 de agosto de 1987)
+Artículo 49.-Las Juntas Directivas de los Colegios Miembros establecerán el calendario de sus Asambleas Generales ordinarias, las cuales deberán celebrarse en los meses de setiembre y octubre de cada año, conforme a lo dispuesto en los artículos 36, 37 y 37 bis de la Ley Orgánica del Colegio Federado.
+Las Asambleas Generales ordinarias o extraordinarias de los Colegios Miembros relacionadas con procesos electorales se regirán exclusivamente por el Reglamento de Elecciones que se dicte al efecto.
+Las demás Asambleas Generales ordinarias o extraordinarias de los Colegios Miembros, no vinculadas a procesos electorales, podrán celebrarse de forma presencial, virtual o mixta, según lo acuerde la respectiva Junta Directiva del Colegio Miembro, de conformidad con este Reglamento Interior General.
+(Así reformado en sesión N° 02 del 24 de febrero de 2026)

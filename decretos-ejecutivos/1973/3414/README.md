@@ -44,3 +44,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | 29 | 2018-07-17 | Reglamento 2 (2018-07-17) |
 | 30 | 2018-09-25 | Reglamento 3 (2018-09-25) |
 | 31 | 2022-05-31 | Reglamento 2 (2022-05-31) |
+| 32 | 2026-02-24 | Reglamento 2 (2026-02-24) |
