@@ -1,0 +1,2 @@
+Artículo 34 bis.- Se impondrá sanción de amonestación confidencial o de suspensión de hasta veinticuatro meses a las personas miembros del Colegio que, en el marco de procesos electorales o en el ejercicio de cargos en órganos electorales del Colegio, incumplan los deberes, prohibiciones u obligaciones establecidos en el artículo 15 bis del presente Código, o contravengan la normativa legal o reglamentaria aplicable, según la gravedad de la falta.
+(Así adicionado en sesión N° 02 del 24 de febrero de 2026)
