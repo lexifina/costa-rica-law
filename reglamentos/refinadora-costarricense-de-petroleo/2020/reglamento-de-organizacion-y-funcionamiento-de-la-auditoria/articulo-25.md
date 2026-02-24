@@ -1,1 +1,0 @@
-Artículo 25.—Requisitos para los cargos de Auditor General y Subauditor General. Los requisitos para los cargos de Auditor General y Subauditor General deberán obedecer a lo dispuesto en el lineamiento de acatamiento obligatorio, que para el efecto emitió la CGR en los “Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR”.

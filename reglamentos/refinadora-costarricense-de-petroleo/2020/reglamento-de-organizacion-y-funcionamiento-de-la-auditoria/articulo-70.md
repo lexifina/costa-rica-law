@@ -1,1 +1,0 @@
-Artículo 70.—Modificaciones al Reglamento. El Auditor General deberá mantener actualizado el presente Reglamento conforme al Artículo N° 22, inciso h), de la Ley Nº 8292 y de más directrices o lineamientos, que al efecto emita la CGR, por lo que le corresponderá proponer al Jerarca las modificaciones que considere oportunas y necesarias.

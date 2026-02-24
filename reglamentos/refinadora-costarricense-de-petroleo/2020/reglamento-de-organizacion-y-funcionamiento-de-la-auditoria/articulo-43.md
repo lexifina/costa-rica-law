@@ -1,1 +1,0 @@
-Artículo 43.—Apoyo de la Asesoría Jurídica. La Asesoría Jurídica empresarial deberá brindar el oportuno y efectivo servicio a la Auditoría Interna, para los estudios jurídicos que ésta requiera, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, con base en lo dispuesto en el Artículo N° 33, inciso c), de la Ley Nº 8292.

@@ -1,1 +1,0 @@
-Artículo 51.—Acceso y custodia de la información de los servicios de Auditoría Interna. El Auditor General definirá formalmente lineamientos para custodiar la documentación de los productos de los Servicios de Auditoría Interna y los niveles de acceso a la misma, considerando lo que al respecto dispone la Ley Nº 8292 y la Ley Nº 8422.

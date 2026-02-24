@@ -1,1 +1,0 @@
-Artículo 69.—Trámite de aprobación. Este Reglamento, una vez aprobado por la Junta Directiva de RECOPE, deberá ser remitido por el Auditor General a la CGR para su trámite final. La publicación de este Reglamento en el periódico oficial “La Gaceta”, deberá ser coordinada con la Administración Activa.

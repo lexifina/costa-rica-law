@@ -1,2 +1,0 @@
-Artículo 42.—Coordinación sobre asuntos presupuestarios. El Auditor General gestionará ante el Jerarca, de conformidad con el Artículo N° 27 de la Ley Nº 8292, y lo dispuesto en los “Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR”, la asignación y disposición de los recursos que requiere para llevar a cabo sus funciones.
-Toda modificación del presupuesto de la Auditoría interna que se pretenda efectuar deberá contar de previo, con el criterio del Auditor General para su ejecución.

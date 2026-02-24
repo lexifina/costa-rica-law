@@ -1,1 +1,0 @@
-Artículo 4°—Obligación de contar con Auditoría Interna. La Empresa deberá contar con una dependencia de Auditoría Interna, según se establece en el Artículo N° 20 de la Ley N° 8292.

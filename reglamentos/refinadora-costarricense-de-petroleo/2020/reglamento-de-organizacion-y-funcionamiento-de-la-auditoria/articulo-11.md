@@ -1,1 +1,0 @@
-Artículo 11.—Agenda sesiones de los Órganos Colegiados. La Secretaría de Actas de la Junta Directiva y del Comité de Auditoría, deberán enviar la Agenda correspondiente que se conocerá en las sesiones de estos Órganos Colegiados al Auditor General, preferiblemente 2 días hábiles antes de cada sesión.

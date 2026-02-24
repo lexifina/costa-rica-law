@@ -1,1 +1,0 @@
-Artículo 24.—Definición de las funciones del Auditor General y Subauditor General. Las funciones de los cargos de Auditor General y Subauditor General deberán estar definidas en un instrumento similar al Manual Descriptivo de Puestos, donde se incluye al personal que efectúa Gestión Pública de la Empresa, de conformidad con lo dispuesto por la CGR en la normativa correspondiente.

@@ -1,1 +1,0 @@
-Artículo 63.—Confidencialidad. El nombre del denunciante y la tramitación de la denuncia deben ser resguardadas bajo el principio de confidencialidad de acuerdo con el Artículo N° 8 de la Ley N° 8422, y el Artículo N° 6 de la Ley N° 8292.
