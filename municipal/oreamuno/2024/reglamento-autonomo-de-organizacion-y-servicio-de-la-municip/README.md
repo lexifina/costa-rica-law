@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Oreamuno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-11 | la propia norma |
+| 2 | 2026-02-24 | Reglamento municipal 148 (2026-02-24) |
