@@ -1,0 +1,7 @@
+Artículo 24. Modificación del "Artículo 130.- Órganos encargados del control tributario intensivo y su competencia".
+Modifíquense el "Artículo 130.- Órganos encargados del control tributario intensivo y su competencia", para que se lea de la siguiente forma:
+"Artículo 130.- Órganos encargados del control tributario intensivo y su competencia
+Las funciones y atribuciones propias del control tributario intensivo, en el ámbito de la competencia de la Dirección General de Tributación, serán ejercidas por los siguientes órganos:
+a) La Dirección de Control Tributario Material, que tendrá a su cargo el cumplimiento de las tareas normativas, operativas, de planeación y control de gestión, las cuales tendrán competencia en todo el territorio nacional.
+b) Por la Subdirección Gerencia de Fiscalización y sus dependencias de la Dirección de Control Tributario Material, y por la Dirección de Grandes Contribuyentes Nacionales, las cuales tendrán competencia en todo el territorio nacional para ejecutar en el ámbito de su competencia, los planes y programas que para el cumplimiento de sus funciones trace la Dirección de Control Tributario Material.
+También serán ejercidas por las Direcciones en que, mediante resolución general, se determine la necesidad de que desarrollen funciones de control tributario intensivo, en razón de su especialidad técnica."

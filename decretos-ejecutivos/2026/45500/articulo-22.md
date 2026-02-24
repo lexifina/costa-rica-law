@@ -1,0 +1,5 @@
+Artículo 22. Modificación del "Artículo 118".
+Modifíquese el "Artículo 118" para que se lea de la siguiente forma:
+"Artículo 118.- Plan Anual de Control Tributario Formal.
+La Dirección de Deberes Formales y Trámites Especiales elaborará el Plan Anual de Control Tributario Formal, previa consulta a las Direcciones competentes, a la Dirección de Grandes Contribuyentes Nacionales, y las Subdirecciones Gerencias adscritas a la Dirección de Deberes Formales y Trámites Especiales conforme a las estrategias institucionales de la Dirección General de Tributación.
+Corresponderá a la Dirección de Deberes Formales y Trámites Especiales ejercer el control del cumplimiento del referido Plan, actuando ante las Direcciones competentes, la Dirección de Grandes Contribuyentes Nacionales y las Subdirecciones Gerencias adscritas a la Dirección de Deberes Formales y Trámites Especiales, para garantizar su cumplimiento. Para tal efecto, éstas deberán suministrar toda la información que resulte pertinente."

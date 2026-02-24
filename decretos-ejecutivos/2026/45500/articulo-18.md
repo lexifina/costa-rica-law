@@ -1,0 +1,4 @@
+Artículo 18. Modificación del "Artículo 107.- Solicitud de información por requerimiento de jurisdicción extranjera en aplicación de un convenio tributario internacional".
+Modifíquese el "Artículo 107.- Solicitud de información por requerimiento de jurisdicción extranjera en aplicación de un convenio tributario internacional", para que se lea de la siguiente forma:
+"Artículo 107.- Solicitud de información por requerimiento de jurisdicción extranjera en aplicación de un convenio tributario internacional.
+La autoridad competente para recibir toda solicitud de intercambio de información por parte de una jurisdicción extranjera es el Director de la Dirección General de Tributación, quien la remitirá a la Dirección Normativa y Tributación Internacional, a fin de que esta proceda con los trámites respectivos para la debida respuesta."
