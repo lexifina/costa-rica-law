@@ -1,0 +1,3 @@
+Artículo N° 35. Contabilidad.
+La contabilidad del Fondo deberá llevarse conforme a las disposiciones legales vigentes y la Normativa emitida por el Ente Supervisor, en la forma que determina la técnica y siempre de acuerdo con las disposiciones que sobre el particular dicte la Superintendencia de Pensiones.
+Estará compuesta por tantos registros principales, auxiliares y archivos, como sea necesario para determinar exactamente y en cualquier momento la situación financiera del Fondo.

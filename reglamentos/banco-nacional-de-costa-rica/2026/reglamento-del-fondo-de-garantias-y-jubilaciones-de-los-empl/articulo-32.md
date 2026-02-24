@@ -1,0 +1,4 @@
+Artículo N° 32. Funciones y atribuciones del Órgano de Dirección.
+El Órgano de Dirección es el responsable de la estrategia, de la gestión de riesgos, de la solidez financiera o solvencia, de la organización interna y estructura de Gobierno Corporativo de la entidad regulada.
+Delega la administración de las tareas operativas, pero no la responsabilidad y debe rendir cuentas por la gestión de los recursos y por el seguimiento de las acciones de sus delegados y de los comités. Así mismo, al Órgano de Dirección le compete la aplicación e interpretación del presente Reglamento.
+Sin perjuicio de otras responsabilidades establecidas en el marco legal y reglamentario vigente, las funciones del Órgano de Dirección serán las establecidas en los siguientes reglamentos: Reglamento de Gobierno Corporativo, Reglamento de Riesgos, Reglamento de Idoneidad, Gobierno y Gestión de TI y cualquier otro reglamento que en el futuro establezca obligaciones para este órgano colegiado.

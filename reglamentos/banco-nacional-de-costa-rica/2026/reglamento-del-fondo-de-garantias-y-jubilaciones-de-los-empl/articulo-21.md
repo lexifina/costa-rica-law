@@ -1,0 +1,2 @@
+Artículo N° 21. Revalorización
+La revaloración de los montos de las pensiones en curso de pago, serán revisados mediante informe técnico actuarial semestralmente en los meses de enero y julio, tomando en consideración el índice de inflación del semestre anterior y la situación financiera del Fondo, de acuerdo con el porcentaje que apruebe el Órgano de Dirección y ajustándose a la política de revalorización vigente.

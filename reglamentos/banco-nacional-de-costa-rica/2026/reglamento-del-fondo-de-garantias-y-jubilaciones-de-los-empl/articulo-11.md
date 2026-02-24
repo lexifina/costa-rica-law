@@ -1,0 +1,4 @@
+Artículo N° 11. Solicitud del beneficio
+Todo cotizante del Esquema contributivo que cumpla con los requisitos establecidos en el presente reglamento y desee recibir el beneficio, deberá solicitarlo a la Gerencia del Fondo.
+La Gerencia definirá mediante procedimiento y registro del Sistema de Gestión de Calidad del FGJ-BN, los documentos necesarios para acreditar el derecho del solicitante, así como el procedimiento a seguir en caso de que un cotizante o beneficiario no pueda firmar por incapacidad física, cuya cédula de identidad debe indicar que no firma, conforme a las disposiciones contenidas en el procedimiento aprobado por el Órgano de Dirección.
+En el caso de que un cotizante o beneficiario posea discapacidad intelectual, mental o psicosocial, el trámite se debe realizar por el Garante para la igualdad jurídica de la persona con discapacidad. Según la Ley 9379 "Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad".

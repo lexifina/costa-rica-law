@@ -1,0 +1,2 @@
+Artículo N° 5. Representación.
+La representación legal del Fondo le compete al Banco Nacional de Costa Rica en la figura del Gerente General o el Subgerente que se designe, con los poderes y facultades otorgados en la Ley Orgánica del Sistema Bancario Nacional, por lo tanto, no tiene autonomía externa. Su autonomía, está basada los lineamientos que establece este Reglamento, así como en sus políticas internas aprobadas por el Órgano de Dirección y además la normativa que establezca el Ente Regulador.
