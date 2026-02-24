@@ -14,3 +14,4 @@ Reglamento Interno para la operación de la caja chica de la Municipalidad de Gu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-07 | la propia norma |
+| 2 | 2026-02-24 | Reglamento municipal 13 (2026-02-24) |
