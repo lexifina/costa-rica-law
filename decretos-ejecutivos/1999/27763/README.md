@@ -71,3 +71,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 56 | 2025-01-30 | Decreto Ejecutivo 44902 (2025-01-30) |
 | 57 | 2025-06-26 | Decreto Ejecutivo 45118 (2025-06-26) |
 | 58 | 2026-02-24 | Resolución 3 (2026-02-24) |
+| 59 | 2026-02-25 | Resolución 5 (2026-02-25) |
