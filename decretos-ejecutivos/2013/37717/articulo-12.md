@@ -45,3 +45,4 @@ DOCTORADOS ACADÉMICOS (Ph. D)
 Ciencias Médicas.
 Medicina.
 Proyectos (Así adicionado el doctorado anterior sesión ordinaria 2025-06-25, celebrada el 25 de junio de 2025)
+Doctorado en Ciencias y Humanidades para el Desarrollo Interdisciplinario (Así adicionado el doctorado anterior mediante sesión ordinaria 2026-02-25, celebrada el 25 de febrero de 2026)
