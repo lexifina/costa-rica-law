@@ -1,8 +1,10 @@
-Artículo 33.—Funciones Corporativas en materia de riesgos:
-1. Valorar y asesorar al Consejo Directivo sobre la idoneidad de la normativa corporativa referente a la gestión integral del riesgo y su plan de actualización anual.
-2. Analizar y emitir criterio de los informes periódicos emitidos sobre el perfil de riesgo actual del ICE y sus empresas, de los límites y métricas establecidas, las desviaciones y los planes de mitigación.
-3. Proporcionar al Consejo Directivo una opinión independiente y profesional, sobre la gestión integral de riesgos corporativos.
-4. Supervisar y asegurar que la Estrategia Corporativa y la gestión integral de riesgo son coherentes con el apetito de riesgo corporativo declarado.
-5. Solicitar e intercambiar información periódica relevante con otros comités o instancias de control, para la supervisión de la cobertura efectiva de todos los riesgos corporativos y ajustes necesarios en el Gobierno Corporativo de conformidad con la Estrategia Corporativa.
-6. Velar porque la preparación, presentación y acceso a la información de riesgos del ICE y de las empresas de su propiedad, se realice conforme a la normativa de gestión integral de riesgos y sus mejores prácticas y las disposiciones normativas y legales aplicables reguladas por la Ley General de Control Interno, sus reglamentos o cualquier directriz emanada por la Contraloría General de la República, así como por entidades que giren recomendaciones sobre Gobierno Corporativo.
-7. Cualquier otra función que le asigne el Consejo Directivo.
+Artículo 33º.-De las funciones corporativas en materia de riesgos.
+1. Asesorar al Consejo Directivo sobre la idoneidad de la normativa corporativa referente a la gestión integral del riesgo y su actualización.
+2. Analizar y valorar la administración integral de riesgos a nivel corporativo, a partir de los informes presentados por el área competente.
+3. Valorar y recomendar al Consejo Directivo, acerca de la Declaración del apetito de riesgo y los límites a nivel corporativo que se está dispuesto a asumir, por lo menos una vez al año.
+4. Supervisar que la Estrategia Corporativa y la administración integral de riesgos sean coherentes con la declaración y el apetito de riesgo declarado.
+5. Supervisar la ejecución de la declaración del apetito de riesgo corporativo, dar seguimiento, mediante la recepción de informes elaborados por el área competente, sobre el estado de la cultura del riesgo, así como la interacción con el titular correspondiente.
+6. Valorar las iniciativas de mejora que se sometan a conocimiento del Comité sobre los sistemas internos de control y gestión de los riesgos a nivel del Grupo ICE.
+7. Velar porque la gestión integral de riesgos del ICE y sus empresas, se realice conforme a las disposiciones legales y normativa de gestión integral de riesgos y sus mejores prácticas.
+8. Cualquier otra función que le asigne el Consejo Directivo.
+(Así reformado en sesión N° 6723 del 25 de febrero de 2026)
