@@ -1,0 +1,1 @@
+Artículo 11.-Aplicación supletoria de normas. En todo lo no previsto en el presente reglamento se observará lo dispuesto en el "Reglamento de licencias para actividades lucrativas y el cobro del impuesto de espectáculos públicos de la municipalidad del cantón de Santa Ana", así como el Código Municipal, la Ley de Patentes del cantón de Santa Ana y demás normativa aplicable.
