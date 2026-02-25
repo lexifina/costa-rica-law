@@ -14,3 +14,4 @@ Guía general para la valoración de los impactos ambientales generados por la a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-22 | la propia norma |
+| 2 | 2026-02-25 | Decreto Ejecutivo 45743 (2026-02-25) |
