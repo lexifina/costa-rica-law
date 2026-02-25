@@ -1,3 +1,0 @@
-Artículo 82 °.-Elaboración de las Pruebas Nacionales. Las pruebas nacionales señaladas en el artículo 79 de este reglamento, son elaboradas o adquiridas por la Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública.
-Esta Dirección se encuentra habilitada para requerir el apoyo técnico de los asesores nacionales y regionales de cada asignatura o especialidad objeto de evaluación, del personal docente que labore en centros educativos y coordinar la participación de otras entidades y profesionales especializados en los campos de la medición y de la evaluación educativas.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)

@@ -1,4 +1,0 @@
-Artículo 19°.-Deberes del coordinador y de la coordinadora de departamento o nivel en relación con la evaluación de los aprendizajes. Los coordinadores y las coordinadoras de departamento o de nivel tienen, en relación con la evaluación de los aprendizajes, los siguientes deberes:
-a) Analizar con la persona docente de cada asignatura, los procesos de evaluación de los aprendizajes implementados y definir acciones orientadas al mejoramiento del desempeño de la persona estudiante.
-b) Dar seguimiento a las acciones desarrolladas en el departamento o nivel, con el propósito de mejorar el desempeño de la persona estudiante.
-c) Asesorar al director o la directora del centro educativo, para la correcta resolución de los recursos administrativos que formule el estudiantado o la persona encargada legal de estos, en materia de evaluación del aprendizaje.

@@ -1,3 +1,0 @@
-Artículo 116 °-Envío de información. Será obligación del director o la directora de cada centro educativo, en las fechas, la forma y mediante el procedimiento que disponga la Dirección de Gestión y Evaluación de la Calidad, remitir toda la información requerida para la adecuada administración del proceso.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 41686 del 28 de febrero del 2019)
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 118 al artículo 116, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

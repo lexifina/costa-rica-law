@@ -1,2 +1,0 @@
-Artículo 130.-Nota de conducta mínima para promoción. La nota de conducta mínima para la promoción del estudiante será de 65 en I, II y III Ciclos de la Educación General Básica y de 70 en la Educación Diversificada.
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo 132 al artículo 130, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

@@ -1,4 +1,0 @@
-Artículo 147.-Acciones correctivas por comisión de faltas leves. Las personas estudiantes que asumieren conductas valoradas como faltas leves, serán objeto de cualesquiera de las siguientes acciones correctivas, además de lo estipulado en el artículo 137 de este reglamento:
-a) Amonestación verbal o escrita por parte del docente concernido, con copia al encargado legal, al expediente personal del alumno y al orientador respectivo, si lo hubiere.
-b) Amonestación escrita en los términos anteriores y, además, obligación de reparar en forma efectiva y verificable, el daño moral, material o personal causado.
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 149 al artículo 147, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

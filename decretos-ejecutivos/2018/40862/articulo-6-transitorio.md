@@ -1,4 +1,0 @@
-Transitorio 6.-Las asignaturas de Español, Matemática, Ciencias (Biología, Química y Física), Educación Cívica, Estudios Sociales, Idioma (y en el caso de los años 2021 y 2022 haber realizado la prueba de dominio lingüístico), que la persona estudiante cursó en la educación formal, en los cursos lectivos 2020, 2021 y 2022, le serán reconocidas en la educación abierta, con la presentación de una certificación de que cursó y aprobó la o las asignaturas respectivas emitida por el correspondiente centro educativo.
-El estudiante debe cumplir con la aprobación de las asignaturas pendientes mediante la modalidad de Bachillerato por Madurez Suficiente.
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 42365 del 28 de julio del 2020)
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 44103 del 24 de mayo del 2023. Anteriormente este numeral había sido derogado por el por el artículo 3° del decreto ejecutivo N° 43770 del 20 de octubre de 2022)

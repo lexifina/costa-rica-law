@@ -1,4 +1,0 @@
-Artículo 98.- Obligatoriedad del uso de resultados de la Prueba Nacional Estandarizada
-El personal técnico, administrativo y propiamente docente de las direcciones regionales de educación, supervisiones y centros educativos tienen la obligatoriedad de utilizar los resultados e informes de la Prueba Nacional Estandarizada para la mejora del proceso de enseñanza y aprendizaje del sistema educativo costarricense, según los lineamientos emitidos por la DGEC.
-(Así reformado por el artículo 20 del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 100 al artículo 98, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

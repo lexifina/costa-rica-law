@@ -1,5 +1,0 @@
-Artículo 150.-Acciones correctivas por la comisión de faltas gravísimas. Las personas estudiantes que asumieren actitudes o conductas valoradas como faltas gravísimas, serán objeto de alguna de las siguientes acciones correctivas, según la magnitud de la falta, además de lo que estipula el artículo 137 de este reglamento:
-a) Obligación de reparar, de manera verificable, el daño material, moral o personal causado a personas, grupos o a la institución.
-b) Realización de acciones con carácter educativo y de interés institucional o comunal, que sean verificables y que guarden la proporcionalidad y pertinencia en relación con la falta cometida.
-c) Inasistencia al centro educativo hasta por un período comprendido entre veinte y treinta días naturales.
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 152 al artículo 150, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

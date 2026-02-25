@@ -1,2 +1,0 @@
-Artículo 94°.- Inscripción facultativa para la convocatoria de pruebas nacionales FARO. (Derogado por el artículo 40 del decreto ejecutivo N° 43492 del 2 de febrero del 2023)
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023, que lo traspasó del antiguo artículo 96 al artículo 94, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

@@ -1,1 +1,0 @@
-Artículo 12°.-Nombramientos por inopia en el Comité de Evaluación de los Aprendizajes. El director o la directora del centro educativo, en caso de ausencia de candidatos que cumplan con los requisitos previstos en el artículo 11 de este reglamento, deberá designar a quienes considere pertinente para el correcto funcionamiento del Comité de Evaluación de los Aprendizajes.

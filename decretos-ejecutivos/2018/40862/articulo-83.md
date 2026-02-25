@@ -1,4 +1,0 @@
-Artículo 83°. - Delimitación del ámbito para la elaboración de la Prueba Nacional Estandarizada
-La Prueba Nacional Estandarizada, evaluará conocimientos, habilidades y otras destrezas propias de las asignaturas según los enfoques y fundamentación teórica de los Programas de Estudio de las asignaturas de Español, Matemáticas, Ciencias (Biología, Física y Química), Estudios Sociales y Educación Cívica (secundaria).
-La Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública, remitirá a los centros educativos la información de carácter administrativo y técnico que resulte necesaria para garantizar la administración eficiente y eficaz de las Pruebas Nacionales Estandarizadas.
-(Así reformado por el artículo 8° del decreto ejecutivo N° 44226 del 25 de setiembre del 2023)

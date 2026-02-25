@@ -1,4 +1,0 @@
-Artículo 93.- Inscripción obligatoria en la convocatoria de la Prueba Nacional Estandarizada
-Corresponde al director o directora del centro educativo o coordinador de sede, realizar la inscripción obligatoria dela población estudiantil en la Prueba Nacional Estandarizada, diagnóstica y sumativa, de acuerdo con lo establecido en el artículo 85 de este reglamento y conforme a las disposiciones emanadas por la Dirección de Gestión y Evaluación de la Calidad.
-(Así reformado por el artículo 16 del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
-(Así modificada su numeración por el artículo 41 del decreto ejecutivo N° 43942 del 2 de febrero del 2023 que lo traspasó del antiguo artículo 95 al artículo 93, ya que se indicó derogar los artículos 93, 94 y 96 y correr la numeración de los restantes artículos)

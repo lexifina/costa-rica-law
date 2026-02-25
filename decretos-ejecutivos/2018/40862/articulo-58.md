@@ -1,9 +1,0 @@
-SECCIÓN V
-Reprobación y adelantamiento
-Artículo 58.-Condiciones que implican la reprobación de la persona estudiante. El estudiantado de I y II Ciclos de la Educación General Básica que, una vez realizadas las pruebas de ampliación, repruebe alguna asignatura, reprobará ese nivel y deberá repetir integralmente el año escolar.
-El estudiantado del Plan de Estudios de Educación de Adultos del I Nivel, así como, la persona estudiante de Escuela Nocturna que, una vez realizadas las pruebas de ampliación, repruebe alguna asignatura, periodo o módulo deberá repetir esa asignatura, periodo o módulo, según corresponda.
-La persona estudiante del sexto año del II Ciclo de la Educación General Básica, deberá repetir integralmente el año escolar, el estudiantado del 4° nivel de Escuelas Nocturnas y del VI Periodo del I Nivel del Plan de Estudios de Educación de Adultos deberá repetir las asignaturas, módulos o figuras afines reprobadas o las asignaturas o figuras afines objeto de medición en la Prueba Nacional Estandarizada, cuando:
-1. Una vez realizadas las pruebas de ampliación, reprueba alguna asignatura, módulo o figura afín.
-2. No obtiene el puntaje mínimo de 65, correspondiente a la sumatoria del porcentaje obtenido en la nota de presentación y el porcentaje alcanzado en la Prueba Nacional Estandarizada, según las disposiciones presentes en el artículo 101 inciso c) de este reglamento.
-El estudiantado de III Ciclo de la Educación General Básica o Educación Diversificada, que, una vez realizada la Actividad de Recuperación, las pruebas de ampliación y la Estrategia de Promoción reprueben alguna asignatura, módulo, periodo o subárea, se considerarán reprobados, debiendo repetir durante el curso lectivo siguiente, todas las asignaturas, módulos, periodos o subáreas reprobadas, cuya aprobación es condición indispensable para aprobar definitivamente ese nivel.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 44655 del 29 de julio de 2024)

@@ -1,5 +1,0 @@
-Artículo 4°. -Funciones de la evaluación de los aprendizajes. Las funciones de la evaluación de los aprendizajes en el proceso educativo son:
-a) Diagnóstica: Permite conocer el estado inicial del estudiante en las áreas del desarrollo: cognoscitiva, socio afectiva y psicomotriz; con base en la información obtenida, permite la aplicación de estrategias para la recuperación de aprendizajes.
-b) Formativa: Brinda información necesaria y oportuna durante los procesos de enseñanza y aprendizaje, con la finalidad de reorientar o realimentar las áreas que así lo requieran, mediante la aplicación de instrumentos de evaluación, como metodologías basadas en rúbricas, lista de cotejo, escalas de desempeño, pruebas comprensivas u otros, para ser aplicadas en distintos momentos del proceso de enseñanza y aprendizaje según se requiera.
-c) Sumativa: Constata los logros alcanzados, tomando en consideración los insumos aportados de la evaluación diagnóstica y formativa, al término de un proceso de aprendizaje y fundamenta la calificación, la promoción y la certificación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43942 del 2 de febrero del 2023)
