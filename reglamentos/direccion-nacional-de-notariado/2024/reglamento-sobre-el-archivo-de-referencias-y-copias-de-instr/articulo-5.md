@@ -1,7 +1,8 @@
 CAPÍTULO II
 Archivo de referencias y copias
 Artículo 5º-Documentos de conservación obligatoria. En acatamiento de las disposiciones normativas, quedarán en custodia del notario, a partir de los actos o contratos protocolares que autorice, los siguientes documentos:
-a) Copia del documento de identificación, cuando el notario lo considere pertinente; o cuando la normativa expresamente así lo requiera.
+a) Copia del documento de identificación.
+(Así reformado el inciso anterior en sesión N° 4 del 25 de febrero de 2026)
 b) Documentos escritos en idioma extranjero que le hayan sido presentados al otorgar un instrumento público, o su copia auténtica emitida por el notario.
 c) Documentos donde consten personerías de las entidades jurídicas.
 d) Documentos donde se compruebe la representación de personas físicas.

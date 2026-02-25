@@ -14,3 +14,4 @@ Reglamento sobre el archivo de referencias y copias de instrumentos públicos en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-08 | la propia norma |
+| 2 | 2026-02-25 | Reglamento 4 (2026-02-25) |
