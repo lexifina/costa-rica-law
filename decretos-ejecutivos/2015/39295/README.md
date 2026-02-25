@@ -34,3 +34,4 @@ Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley
 | 19 | 2024-05-30 | Resolución 8 (2024-05-30) |
 | 20 | 2024-06-28 | Decreto Ejecutivo 44542 (2024-06-28) |
 | 21 | 2025-06-18 | Resolución 3 (2025-06-18) |
+| 22 | 2026-02-25 | Resolución 4 (2026-02-25) |
