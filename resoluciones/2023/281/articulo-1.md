@@ -1,4 +1,6 @@
+(Derogado)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue derogada por el Procedimiento y requisitos técnicos para la emisión de dictámenes técnicos en Sutel sobre solicitudes de permisos y concesiones directas, aprobado mediante resolución N° RCS-043-2026 del 26 de febrero del 2026)
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227 y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado, me permito comunicar que en sesión ordinaria 069-2023, celebrada el 16 de noviembre del 2023, mediante acuerdo 021-069-2023, de las 14:10 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-281-2023
 PROCEDIMIENTO PARA LA REMISION AL PODER EJECUTIVO DE
