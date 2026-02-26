@@ -1,1 +1,0 @@
-Artículo 26º—Nombramiento. Los nombramientos de los puestos de Auditor (a) y Subauditor (a) Internos (as) serán por tiempo indefinido, y los hará la Junta Directiva del INA. Tales nombramientos se realizarán por concurso público promovido por el INA.

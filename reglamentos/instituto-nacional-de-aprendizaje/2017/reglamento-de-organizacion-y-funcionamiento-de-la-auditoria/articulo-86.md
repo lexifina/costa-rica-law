@@ -1,1 +1,0 @@
-Artículo 86º—Funciones que competen a la persona Subauditora interna. A la persona Subauditora interna le corresponderá apoyar al Auditor (a) Interno (a) en el descargo de sus funciones y lo sustituirá en sus ausencias temporales, y deberá responder ante él por su gestión. Asimismo, ejecutará las funciones que la persona Auditora Interna le asigne.
