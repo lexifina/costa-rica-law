@@ -1,0 +1,6 @@
+Artículo 45- Plan Anual de Trabajo
+La persona Auditora General y el personal competente de la Auditoría Interna, según proceda, deben formular un plan anual de trabajo basado en la planificación estratégica, que comprenda todas las actividades por realizar durante el período, se mantenga actualizado y se exprese en el presupuesto respectivo.
+El plan debe considerar la dotación de recursos de la Auditoría Interna y ser proporcionado y equilibrado frente a las condiciones imperantes en la institución y conforme a las regulaciones establecidas por los órganos competentes.
+Respecto a los servicios de auditoría, el plan debe detallar al menos, el tipo de auditoría, la prioridad, los objetivos, la vinculación a los riesgos institucionales, el periodo de ejecución previsto y los recursos estimados.
+El plan también contendrá los servicios preventivos, las labores de administración de la Auditoría Interna, seguimiento, aseguramiento de la calidad y otras labores propias de la este órgano de control.
+Se ejercerá un control continuo de la ejecución del plan anual de trabajo, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.

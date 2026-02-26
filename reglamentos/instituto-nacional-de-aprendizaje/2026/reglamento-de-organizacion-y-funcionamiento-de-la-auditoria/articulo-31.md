@@ -1,0 +1,6 @@
+SECCIÓN II
+Regulaciones administrativas y del personal de la Auditoría Interna
+Artículo 31- Regulaciones administrativas
+Son regulaciones administrativas aquellas que norman de manera general la naturaleza de la relación entre las personas funcionarias y su superior desde una perspectiva administrativa, no técnica, particularmente las que se refieren, entre otros, a temas tales como control de tiempo, evaluación, permisos y vacaciones.
+Estas regulaciones, cuando se refieran a la persona Auditora General y Subauditora Interna, y demás personal de la Auditoría Interna, no deberán afectar el ejercicio de las funciones legalmente asignadas a la actividad de auditoría interna.
+Se excluyen las regulaciones que se refieren al desempeño de las actividades sustantivas de la Auditoría Interna y de aquellas que, sin formar parte de la gestión sustantiva, contribuyen a esta conforme a la normativa específica sobre auditoría en general y sobre el ejercicio de la actividad de auditoría interna, como son la planificación, el seguimiento y la evaluación de la calidad de la Auditoría Interna, que en procura de la independencia funcional y de criterio, competen exclusivamente a la persona titular de esta unidad.

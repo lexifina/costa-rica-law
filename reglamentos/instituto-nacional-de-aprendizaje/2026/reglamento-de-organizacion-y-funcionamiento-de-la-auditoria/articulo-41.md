@@ -1,0 +1,2 @@
+Artículo 41- Relaciones y coordinaciones a lo externo
+La persona Auditora General estará facultada para solicitar, suministrar e intercambiar información y coordinar actividades con la Contraloría General de la República, las auditorías externas que se contraten en la institución, la Procuraduría General de la República, comisiones legislativas, órganos judiciales, con particulares y otros entes u órganos públicos o privados, cuando así se requiera para el ejercicio de sus competencias y conforme con la normativa aplicable.

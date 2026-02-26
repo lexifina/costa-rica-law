@@ -1,0 +1,10 @@
+Artículo 67- Denuncias
+La denuncia es una noticia de un hecho presuntamente irregular, dado a conocer a la Auditoría Interna por cualquier persona física o jurídica, pública o privada.
+Pueden ser presentadas por cualquier medio escrito o, excepcionalmente, verbal. La Auditoría Interna podrá implementar alternativas tecnológicas, como uno de los medios para la presentación de las denuncias.
+Se procurará que las denuncias contengan al menos los siguientes aspectos deseables:
+a) Descripción clara, precisa y circunstanciada de los hechos, con el detalle necesario que permita activar una investigación.
+b) Identificación de posibles responsables, o que al menos se aporten elementos que permitan individualizarlos.
+c) Señalamiento de los elementos probatorios en los que se sustenta la denuncia. Ello incluye la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas y la estimación del perjuicio económico producido, en caso de conocerlo.
+d) Lugar o medio para recibir notificaciones.
+La denuncia puede ser presentada de forma anónima, ya sea por una persona sin identificarse o mediante el uso de un seudónimo o un nombre falso. Ello no obsta para que la Auditoría Interna valore iniciar la investigación preliminar o proceder con su desestimación y archivo, en caso de que se den las circunstancias descritas en el artículo 72- Desestimación y archivo de investigaciones.
+En atención a los deberes de confidencialidad, cuando las investigaciones concluyan mediante un informe de relación de hechos o una denuncia penal, a la persona denunciante o solicitante únicamente se le informará de la respectiva remisión, sin hacer referencia a ningún elemento específico o valoración efectuada, ni se le aportará copia de esos documentos. En caso de que la persona denunciante estime que se trata de un denunciante calificado, deberá presentar sus gestiones directamente ante el órgano o entidad receptora del producto de la Auditoría Interna.

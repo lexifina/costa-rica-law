@@ -1,0 +1,3 @@
+Artículo 36- Perfiles del personal de la Auditoría Interna
+La Auditoría Interna contará con personal de nivel profesional y asistente necesario. La persona Auditora General seleccionará al personal de acuerdo con los requerimientos definidos para los distintos niveles de competencia.
+La definición de los requerimientos para el personal de Auditoría Interna será responsabilidad de la persona Auditora General, quien deberá contemplar los niveles de conocimiento, experiencia y competencias exigibles a las disciplinas y especialidades atinentes a la labor de auditoría, tomando en consideración las disposiciones legales aplicables y la normativa que al efecto emita la Contraloría General de la República.

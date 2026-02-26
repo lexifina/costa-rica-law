@@ -1,0 +1,5 @@
+Artículo 19- Suspensión o destitución de la persona Auditora General o Subauditora Interna
+Las personas Auditora General y Subauditora Interna sólo podrán ser suspendidas o destituidas de su cargo por justa causa y por decisión emanada de la Junta Directiva del INA, en condición de órgano decisor, con observancia de los procedimientos que garanticen el debido proceso, y previa obtención del dictamen favorable de la Contraloría General de la República.
+Para tales efectos, debe tramitarse el procedimiento administrativo ordinario y conformarse el expediente respectivo, otorgando oportunidad suficiente de defensa y audiencia, observando la normativa, los principios aplicables y los lineamientos dictados por la Contraloría General de la República sobre el particular.
+Con el fin de tramitar el procedimiento, la Junta Directiva podrá fungir como órgano director del procedimiento o podrá delegar la instrucción del mismo en un órgano director externo nombrado para tales efectos
+De previo a resolver la Secretaría de la Junta Directiva del INA remitirá el expediente administrativo a la Contraloría General de la República para su dictamen.

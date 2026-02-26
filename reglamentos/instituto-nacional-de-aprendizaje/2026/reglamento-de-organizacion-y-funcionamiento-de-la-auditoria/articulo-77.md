@@ -1,0 +1,2 @@
+Artículo 77- Estudios de seguimiento de recomendaciones
+La Auditoría Interna, cuando lo estime conveniente, podrá solicitar a la persona titular subordinada responsable de las recomendaciones, referirse por escrito a los períodos estimados para su cumplimiento; o bien, al progreso alcanzado en relación con su implementación. Lo anterior, sin perjuicio de los análisis y verificaciones que sobre la información suministrada y cualesquiera otra relacionada ejecutará la Auditoría Interna.

@@ -1,0 +1,2 @@
+Artículo 15- Nombramiento a plazo indefinido
+Los nombramientos de los cargos de las personas Auditora General y Subauditora Interna serán por tiempo indefinido, los hará la Junta Directiva del INA y dependerán orgánicamente de esta. Los nombramientos a plazo indefinido se realizarán por concurso público, conforme lo dispuesto en este reglamento y en los lineamientos emitidos por la Contraloría General de la República.

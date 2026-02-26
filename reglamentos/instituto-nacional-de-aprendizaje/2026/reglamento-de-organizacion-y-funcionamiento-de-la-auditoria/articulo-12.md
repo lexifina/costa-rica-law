@@ -1,0 +1,2 @@
+Artículo 12- Modificaciones a la estructura orgánica de la Auditoría Interna
+Las modificaciones a la estructura orgánica de la Auditoría Interna requerirán de la aprobación expresa de la persona Auditora General y se comunicará a la Junta Directiva del INA, para que esta instruya a la Administración para la ejecución correspondiente, según lo indicado en el artículo 23 de la Ley General de Control Interno.

@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Del régimen de responsabilidad y sanciones
+Artículo 78- Causales de responsabilidad administrativa
+Incurrirán en responsabilidad administrativa las personas Auditora General, Subauditora Interna y el resto del personal de la Auditoría Interna cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa técnica aplicable emitida por la Contraloría General de la República o el régimen de prohibiciones referido en la Ley General de Control Interno. Todo sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente, por las demás causales previstas en el ordenamiento jurídico aplicable a las personas funcionarias del INA.
+El incumplimiento de lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa de las personas Auditora General, Subauditora Interna, funcionarias de la Auditoría Interna, de la Junta Directiva, titulares subordinadas y demás personas funcionarias de la Administración Activa, según les corresponda.

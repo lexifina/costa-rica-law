@@ -1,0 +1,4 @@
+Artículo 70- Expediente de investigación
+En el expediente de investigación se documentarán las acciones realizadas para la atención de cada caso, velando por la integridad e integralidad de la documentación que lo conforme, y deberá ser foliado y ordenado de manera cronológica. Se podrá conformar por cualquier tipo de soporte permitido por el ordenamiento jurídico, ya sea documental, electrónico, informático, telemático o producido por nuevas tecnologías.
+Será debidamente resguardado por la Auditoría Interna, su acceso será controlado y la confidencialidad de la persona denunciante y de cualquier otro documento que la requiera deberá ser garantizada en todo momento, aún después de concluida la investigación.
+En el expediente se agregará un ejemplar original del producto final de la investigación y, cuando corresponda, copia del legajo de pruebas.

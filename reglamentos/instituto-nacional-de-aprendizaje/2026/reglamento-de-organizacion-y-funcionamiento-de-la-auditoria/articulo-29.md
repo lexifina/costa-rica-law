@@ -1,0 +1,4 @@
+Artículo 29- Asignación de recurso humano a la Auditoría Interna
+La Auditoría Interna contará con un número suficiente de personas funcionarias que le permita ejercer su actividad con la debida oportunidad, cobertura y disponibilidad. La Junta Directiva y las personas funcionarias a las que se les asigna la labor de proveer tales recursos, deben tomar las previsiones pertinentes para garantizar a la Auditoría Interna, dentro de las posibilidades institucionales, los recursos humanos suficientes y necesarios.
+Cuando se pretenda disminuir plazas de la Auditoría Interna se debe contar con la autorización previa y expresa de la persona Auditora General.
+Las vacantes que surjan deben suplirse atendiendo a las normas que rigen en el INA, de conformidad con el criterio de la persona titular de la Auditoría Interna y dentro de los plazos que establece el artículo 28 de la Ley General de Control Interno.

@@ -1,0 +1,3 @@
+Artículo 76- Seguimiento a cargo de la Administración Activa
+La Administración Activa es responsable tanto de la acción correctiva como de implementar y dar seguimiento a las disposiciones y recomendaciones de manera oportuna y efectiva, estableciendo políticas, procedimientos y sistemas para comprobar las acciones llevadas a cabo para asegurar su correcto y oportuno cumplimiento. La persona titular subordinada responsable deberá ejercer el control para asegurar la adopción de todas las medidas y acciones para su oportuna, eficiente y eficaz implementación, en los plazos que se hayan definido para ello.
+Será responsabilidad de la Administración Activa mantener un sistema de información, donde se documente la gestión realizada por cada recomendación o disposición.

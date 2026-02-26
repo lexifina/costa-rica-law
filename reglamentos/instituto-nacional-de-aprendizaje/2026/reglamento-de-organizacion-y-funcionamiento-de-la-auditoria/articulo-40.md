@@ -1,0 +1,2 @@
+Artículo 40- Relaciones y coordinaciones
+Las relaciones de la Auditoría Interna con la Junta Directiva, las personas titulares subordinadas y otras instancias internas del INA, para efectos de los servicios de auditoría y su funcionamiento, serán definidas por la persona Auditora General, acorde con la normativa que las rige. Esa definición se realizará atendiendo principios de lógica, razonabilidad y oportunidad y en el más absoluto respeto de los valores éticos, humanos y del ordenamiento jurídico y técnico aplicable.

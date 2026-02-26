@@ -1,0 +1,2 @@
+Artículo 57- Plazo para la aceptación de recomendaciones contenidas en informes dirigidos a las personas titulares subordinados
+La persona titular subordinado, en un plazo improrrogable de diez días hábiles contados a partir de la fecha de recibido del informe, ordenará la implantación de las recomendaciones y notificará a la Auditoría Interna. Si discrepa de ella, deberá aplicarse lo dispuesto en el artículo 36 de la Ley General de Control Interno.

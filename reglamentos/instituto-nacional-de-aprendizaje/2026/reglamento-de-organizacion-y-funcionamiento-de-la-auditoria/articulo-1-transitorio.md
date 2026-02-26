@@ -1,0 +1,2 @@
+Transitorio I
+Los servicios de la Auditoría Interna iniciados con anterioridad a la entrada en vigor del presente Reglamento se regirán por el Reglamento de organización y funcionamiento de la Auditoría Interna del INA, aprobado por la Junta Directiva del INA mediante acuerdo 176- 2017-JD, sesión 4792 del 15 de mayo del 2017, publicado en el Diario Oficial La Gaceta 153 del 14 de agosto del 2017, hasta su comunicación a las personas jerarcas y titulares subordinadas.

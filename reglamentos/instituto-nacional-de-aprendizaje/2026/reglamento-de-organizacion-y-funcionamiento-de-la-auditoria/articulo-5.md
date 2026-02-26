@@ -1,0 +1,4 @@
+Artículo 5- Ámbito de acción y competencia
+La Auditoría Interna tendrá su competencia en todos los procesos, unidades y órganos sujetos de control que integran la institución.
+El ámbito de competencia de la Auditoría Interna abarca los procesos de control interno, valoración de riesgos y dirección, incluyendo, pero no limitándose a los temas tales como: aspectos operativos y administrativos, aspectos contables y presupuestarios, contratación administrativa pública, aspectos sustantivos y estratégicos del INA, tecnologías de información y gobierno corporativo.
+Es obligación de la persona Auditora General definir y mantener actualizado, en el instrumento que corresponde, los procesos, unidades y órganos sujetos al ámbito de acción de la Auditoría Interna, con la colaboración de la Administración Activa en lo que corresponda.
