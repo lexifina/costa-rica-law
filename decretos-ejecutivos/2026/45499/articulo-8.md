@@ -1,0 +1,1 @@
+Artículo 8. Coordinación Técnica: La coordinación técnica de la Política COSTA RICA IMPULSA, estará a cargo del Instituto Mixto de Ayuda Social, a través de la dependencia técnica que su jerarca establezca.

@@ -1,0 +1,1 @@
+Artículo 2. Pilares de desarrollo. La política tendrá como pilares de desarrollo la promoción y la protección social de población en estado de pobreza y pobreza extrema a travéz de la mejora en los años de escolaridad, la formación técnica o en oficios y el fomento de emprendimientos productivos; contribuyendo a la generación de empleo o autoempleo de la población objetivo.

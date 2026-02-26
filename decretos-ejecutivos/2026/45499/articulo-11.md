@@ -1,0 +1,1 @@
+Artículo 11. Derogatoria: Deróguese el Decreto Ejecutivo N° 43222- MTSS- MIDEPLAN-MEIC-MEP-MIVAH-MCJMJP-MDHIS-MSP-MAG, Estrategia puente al desarrollo, articulación interinstitucional para el bienestar y el cumplimiento de los derechos humanos, del 3 de setiembre de 2021.
