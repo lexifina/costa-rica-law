@@ -1,0 +1,4 @@
+BANCO NACIONAL DE COSTA RICA
+ACUERDO DE JUNTA DIRECTIVA
+La Junta Directiva General del Banco Nacional de Costa Rica en el artículo 8° de la sesión 12.795 celebrada el 10 de febrero del 2026, acordó modificar el artículo 4.3, del RG03-CGFI01 Reglamento para la subpartida de Alimentos y Bebidas, para que de ahora en adelante se lea de la siguiente manera:
+"4.3 Los montos máximos por persona participante en capacitaciones de personal, reuniones presenciales de trabajo, sesiones presenciales de órganos colegiados de la Administración y equipos de trabajo, atención de clientes y actividades protocolarias se sujetarán a los topes de contratación, los cuales deberán establecerse anualmente basados en un estudio de mercado que valore los precios vigentes del mercado nacional para desayuno, almuerzo, refrigerios y cenas. La fijación y actualización de estos topes deberá observar los principios de razonabilidad, eficiencia, legalidad y uso adecuado de los fondos públicos".
