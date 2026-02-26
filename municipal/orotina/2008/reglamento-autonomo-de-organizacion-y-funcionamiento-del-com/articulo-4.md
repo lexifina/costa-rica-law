@@ -1,1 +1,0 @@
-Artículo 4°-El Comité Cantonal en ejercicio de sus funciones, actuará de conformidad con las facultades que la ley y este reglamento le señalen. Cada miembro desempeñará sus funciones y será responsable de cualquier actuación contraria.

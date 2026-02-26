@@ -1,2 +1,0 @@
-Transitorio.—Con el propósito de adecuar las fechas de vigencia de los nombramientos de la Junta Directiva del Comité Cantonal de Deportes y Recreación al párrafo último del reformado artículo 8° del reglamento en análisis, se extiende el plazo de nombramiento de la actual Junta Directiva del Comité Cantonal de Deportes y Recreación de Orotina al 31 de diciembre del 2014.
-(Así adicionado mediante sesión ordianria N° 344 del 17 de junio del 2014)

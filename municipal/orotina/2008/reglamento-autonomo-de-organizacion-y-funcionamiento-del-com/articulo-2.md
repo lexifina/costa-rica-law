@@ -1,3 +1,0 @@
-Constitución y naturaleza jurídica
-Artículo 2°-El Comité Cantonal es un órgano adscrito a la Municipalidad, el cual goza de personalidad jurídica instrumental para construir, administrar y mantener las instalaciones deportivas de su propiedad u otorgadas en administración. Personería de la cual dará fe la secretaria municipal mediante la certificación respectiva.
-La personería dicha, cubre la totalidad de programas deportivos y recreativos desarrollados por el comité Cantonal según el plan de desarrollo, en ese sentido, se constituye como él órgano superior encargado en el cantón de Orotina, de la atención y Vigilancia de la actividad deportiva en todos los aspectos, como también la promoción recreativa integral.

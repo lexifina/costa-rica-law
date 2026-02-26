@@ -1,1 +1,0 @@
-Artículo 19.-Superior jerárquico. Corresponde al Concejo Municipal ocupar la jerarquía superior del Comité Cantonal De Deportes y Recreación de Orotina, excepto en las materias para las cuales el Comité Cantonal goza de personería jurídica instrumental, donde la jerarquía impropia recaerá en el órgano o ente que disponga la ley.

@@ -1,1 +1,0 @@
-Artículo 3°-El domicilio legal del Comité Cantonal será el Cantón de Orotina, pudiendo variarse en casos excepcionales la sede, siempre que sea temporal y que exista un acuerdo previo tomado por las dos tercera partes de los miembros de la Junta Directiva.

@@ -1,6 +1,0 @@
-Artículo 40.-Son funciones de la Comisión de Finanzas:
-a) Elaborar el borrador de Presupuesto anual del Comité Cantonal de: Deportes, para enviarlo al Concejo Municipal.
-b) Propiciar y organizar otras fuentes de financiamiento para el comité, distintas del presupuesto municipal y las que genere la administración de las instalaciones deportivas y recreativas.
-c) Revisar, modificar y aprobar el informe de egresos e ingresos que cada comisión realice.
-d) Dar asesoramiento a los comités distritales de deportes y recreación, en el manejo presupuestario y revisar sus informes periódicos que dirijan al Comité Cantonal.
-e) Cualquier otra actividad que por su naturaleza o por asignación de la Junta del Comité Cantonal deban desarrollar.
