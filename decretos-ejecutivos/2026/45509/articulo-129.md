@@ -1,0 +1,1 @@
+Artículo 129° Obligatoriedad de la participación en los estudios internacionales de evaluación educativa: La participación de centros educativos, tanto públicos como privados, así como, de las direcciones regionales de educación en general y supervisiones educativas en particular, será de carácter obligatorio.

@@ -1,0 +1,3 @@
+Sección VIII: Regulación específica en la Educación de Personas Jóvenes y Adultas
+Regulación específica de los colegios académicos nocturnos, colegios técnicos profesionales en su oferta nocturna y secciones técnicas nocturnas, escuelas nocturnas, Institutos Profesionales de Educación Comunitaria (IPEC), Centros Integrados de Educación de Jóvenes y Adultos (CINDEA) y Colegio Nacional de Educación a Distancia (CONED)
+Artículo 67° Disposiciones especiales: Sin perjuicio de todo lo establecido en los títulos I y II de este reglamento, en las modalidades de la Educación de Personas Jóvenes y Adultas, excepto la Educación Abierta, la evaluación de los aprendizajes estará sujeta, adicionalmente, a las normas especiales dispuestas en este capítulo.

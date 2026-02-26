@@ -1,0 +1,1 @@
+Artículo 142° Consideración de la comisión de faltas en la calificación de la conducta: En la calificación de la conducta se debe considerar, necesariamente, la comisión de faltas por parte de la persona estudiante según lo que se señala en el artículo 143° y siguientes de este reglamento.

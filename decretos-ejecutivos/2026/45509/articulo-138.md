@@ -1,0 +1,1 @@
+Artículo 138° Normas de Conducta: Se entiende por normas de conducta, los límites que regulan las relaciones interpersonales y el ejercicio responsable de los derechos y obligaciones inherentes a la condición de la persona estudiante, en todos los contextos y ámbitos en que se desenvuelve.

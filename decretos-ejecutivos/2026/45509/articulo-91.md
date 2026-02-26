@@ -1,0 +1,1 @@
+Artículo 91° Estructura, evidencias de validez y confiabilidad de los resultados de las pruebas nacionales: La estructura, validez y confiabilidad de las pruebas nacionales corresponde a los criterios técnicos definidos por la Dirección de Gestión y Evaluación de la Calidad, cuya validez y confiabilidad se determina a través de los procesos técnicos pertinentes.

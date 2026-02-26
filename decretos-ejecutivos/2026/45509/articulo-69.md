@@ -1,0 +1,3 @@
+Artículo 69° Opciones adicionales para la aprobación de asignaturas, subáreas y figuras afines: Adicionalmente a lo dispuesto en los artículos 28° a 37° y 40° a 46° de este reglamento, la población estudiantil de la Educación de Personas Jóvenes y Adultas pueden aprobar las asignaturas, figuras afines, periodos o módulos, mediante pruebas de suficiencia, reconocimiento o convalidación de estudios, Educación Abierta o tutorías.
+El estudiantado de los colegios técnicos profesionales en la oferta nocturna, sección nocturna, en las modalidades de la Educación de Personas Jóvenes y Adultas que impartan la modalidad de
+educación técnica, pueden aprobar las subáreas, mediante pruebas de suficiencia, reconocimiento de estudios o tutorías.

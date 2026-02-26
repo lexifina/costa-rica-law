@@ -1,0 +1,1 @@
+Artículo 164° Envío de los informes e instrumentos de evaluación de los aprendizajes: Los informes e instrumentos de evaluación de los aprendizajes debidamente calificados deben ser entregados al estudiantado mayor de edad o ser remitidos al padre, madre o a la persona encargada legal del estudiantado menor de edad, para su conocimiento y firma.

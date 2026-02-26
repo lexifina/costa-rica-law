@@ -1,0 +1,19 @@
+Artículo 92° Ámbito de aplicación de las pruebas nacionales: El ámbito de aplicación de las pruebas nacionales contenidas en el artículo 84° de este reglamento, contempla lo siguiente:
+a) Las Pruebas Nacionales Estandarizadas por asignatura o figura afín en I y II Ciclos de la Educación General Básica comprende a la población estudiantil que:
+a.1.) Cursa el sexto año del II Ciclo de la Educación General Básica.
+a.2.) Cursa el equivalente al sexto año en Aula Edad, de acuerdo con los lineamientos establecidos por el Ministerio de Educación Pública, para optar por el Certificado de Conclusión de Estudios de Primero y Segundo Ciclos de la Educación General Básica.
+a.3.) Cursa el último periodo del I Nivel de la Educación para Personas Jóvenes y Adultas.
+a.4.) Cursa el 4° nivel de Escuelas Nocturnas, el cual, es equivalente al sexto año de la Educación General Básica.
+b) Las Pruebas Nacionales Estandarizadas por asignatura o figura afín en Educación Diversificada comprende a la población estudiantil que:
+b.1) Cursa el undécimo año o el duodécimo año de la Educación Diversificada, según corresponda a la oferta educativa (académica o técnica).
+b.2.) Cursa el equivalente al undécimo año de la oferta educativa correspondiente al Colegio Nacional de Educación a Distancia.
+b.3.) Cursa el III Nivel del Plan de Estudio de Personas Jóvenes y Adultas y que hayan aprobado los periodos y módulos anteriores.
+c) En la Prueba Nacional Estandarizada de Lenguas Extranjeras comprende la población estudiantil que:
+c.1.) Cursa el undécimo año o el duodécimo año de la Educación Diversificada, según corresponda a la oferta educativa (académica o técnica).
+c.2.) Cursa el último periodo del III nivel de la Educación de Personas Jóvenes y Adultas y que haya aprobado los periodos y módulos anteriores.
+c.3.) Cursa el último año escolar del programa del Diploma de Bachillerato Internacional.
+d) En la Prueba Nacional de Estudios Sociales y Educación Cívica en el programa de Bachillerato Internacional comprende la población estudiantil perteneciente al Programa del Diploma de Bachillerato Internacional que cursa el último año escolar del programa del Diploma de Bachillerato Internacional y que debe aprobar la prueba nacional en las asignaturas de Estudios Sociales y Educación Cívica, con la finalidad de garantizar la equiparación del Diploma de Bachillerato Internacional otorgado por Organización de Bachillerato Internacional al Bachillerato de Educación Media.
+e) En la Prueba Nacional Escrita Comprensiva Estandarizada de Especialidades en Educación Técnica comprende la población estudiantil que cursa el duodécimo año de la Educación Diversificada Técnica, la Educación de Personas Jóvenes y Adultas que contemple la obtención del Título del Técnico en el Nivel Medio de Especialidades Técnicas y los del último nivel de la Educación Técnica Profesional en secciones técnicas nocturnas, Colegios Técnicos Nocturnos y el Programa de Educación Técnica a dos años.
+f) En la Prueba Nacional de Admisión a Liceos Bilingües y secciones académicas bilingües comprende la población estudiantil que cursa el sexto año del Segundo Ciclo de la Educación General Básica y que, de conformidad con los lineamientos dispuestos por el Ministerio de Educación Pública, se someten al proceso de admisión a sétimo año en los liceos bilingües y secciones académicas bilingües.
+g) En la Prueba Nacional de Naturalización comprende la población solicitante de la ciudadanía costarricense por Naturalización.
+h) En las Pruebas Nacionales de los Programas de la Educación Abierta comprende la población postulante a las Pruebas Nacionales de Segundo Ciclo de la Educación General Básica, Tercer Ciclo de la Educación General Básica, Bachillerato por Madurez Suficiente y Bachillerato de Educación Diversificada a Distancia, de conformidad con los lineamientos establecidos por el Ministerio de Educación Pública.

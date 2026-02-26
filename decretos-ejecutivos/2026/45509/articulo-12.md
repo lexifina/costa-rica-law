@@ -1,0 +1,5 @@
+Artículo 12° Deberes de la persona coordinadora de departamento en relación con la evaluación de los aprendizajes: En aquellas instituciones educativas que corresponda, las personas coordinadoras de departamento tienen, en relación con la evaluación de los aprendizajes, los siguientes deberes:
+a) Analizar con la persona docente de la asignatura o figura afín, los procesos de evaluación de los aprendizajes implementados, con el propósito de definir acciones orientadas al mejoramiento del desempeño de la persona estudiante.
+b) Dar seguimiento a las acciones desarrolladas por las personas docentes, en materia de evaluación de los aprendizajes, orientadas a mejorar las prácticas evaluativas y, por ende, el desempeño de la persona estudiante.
+c) Dar acompañamiento a la persona directora del centro educativo para la correcta resolución de los recursos de apelación que formule el estudiantado, padre, madre o la persona encargada legal de este, en lo que corresponde a la fundamentación, enfoque y naturaleza de la asignatura, subárea o figura afín, según el programa de estudio respectivo.
+e) Otras inherentes a su cargo.

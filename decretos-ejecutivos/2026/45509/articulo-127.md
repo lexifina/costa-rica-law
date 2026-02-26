@@ -1,0 +1,2 @@
+Capítulo IX: Estudios internacionales de evaluación educativa
+Artículo 127° Participación de Costa Rica en Estudios Internacionales de Evaluación Educativa: La participación de Costa Rica en estudios internacionales de evaluación educativa que se indican en el artículo ° 83 de este reglamento, será determinada por el Consejo Superior de Educación y, de acuerdo con sus competencias, gestionada por la Dirección de Gestión y Evaluación de la Calidad del Ministerio de Educación Pública.

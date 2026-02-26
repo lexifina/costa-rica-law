@@ -1,0 +1,1 @@
+Artículo 4° Concepto de evaluación: La evaluación es un proceso continuo de recopilación de información que permite fundamentar las valoraciones orientadas a la mejora progresiva de la formación integral de la persona estudiante, así como de la calidad del proceso educativo.

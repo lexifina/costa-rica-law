@@ -1,0 +1,1 @@
+Artículo 6° Escala de calificación: La valoración de los aprendizajes se expresará en una escala numérica que va del uno (1) al cien (100), la cual permitirá reflejar el nivel de desempeño y el grado de logro alcanzado por el estudiantado.

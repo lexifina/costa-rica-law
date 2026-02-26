@@ -1,0 +1,3 @@
+Artículo 35° Instrumento de evaluación sumativa: Consiste en la organización de técnicas y sus respectivas actividades variadas que propone la persona docente, para recopilar información acerca del logro alcanzado por la persona estudiante en los aprendizajes seleccionados para la medición.
+Uno de sus propósitos es asignar una calificación con base en criterios previamente establecidos y comunicados, garantizando así objetividad y equidad en la valoración de los aprendizajes.
+En este instrumento se debe presentar la rúbrica analítica o escala de desempeño que se utilizará para su calificación.

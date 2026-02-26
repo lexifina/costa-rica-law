@@ -1,0 +1,1 @@
+Artículo 170° Facultad y el deber de rectificar errores: El personal docente tiene el deber de rectificar en los tres días hábiles y de oficio, los errores de hecho y de derecho en que incurrieren dentro del proceso de evaluación, tanto cuando se percatan de su existencia o bien por la oportuna y respetuosa observación de la persona estudiante o la persona encargada legal.

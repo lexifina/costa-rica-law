@@ -1,0 +1,1 @@
+Artículo 145° Condición de aplazado en conducta: La persona estudiante que en el promedio anual ponderado obtuviere una nota de conducta inferior al mínimo establecido en el artículo anterior de este reglamento, tendrá la condición de aplazada en conducta.

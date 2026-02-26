@@ -1,0 +1,2 @@
+Artículo 75° Reconocimiento de áreas, subáreas, cursos, asignaturas, periodos, módulos o figuras afín: El reconocimiento consiste en la aceptación y el registro por parte del centro educativo de una área, subáreas, cursos, asignaturas, periodos, módulos o figuras afín que fueron aprobados en otra institución de educación pública o privada reconocida en Costa Rica.
+El reconocimiento procederá sólo cuando se evidencie una correspondencia de al menos el 80% de los aprendizajes, según corresponda.

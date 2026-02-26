@@ -1,0 +1,1 @@
+Artículo 130° Responsabilidad de las direcciones regionales de educación: Las direcciones regionales de educación realizarán la planificación estratégica para la aplicación de las pruebas, de acuerdo con las disposiciones emanadas por la Dirección de Gestión y Evaluación de la Calidad.

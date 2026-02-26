@@ -1,0 +1,5 @@
+Capitulo XI
+Comunicación sobre los resultados de las Pruebas Nacionales
+Artículo 135° Remisión de informes al Consejo Superior de Educación: El Ministerio de Educación Pública, por medio de sus dependencias competentes, deberá remitir al Consejo Superior de Educación dos informes anuales sobre los resultados de las pruebas nacionales señaladas en el artículo 83 del presente Reglamento.
+El primer informe deberá presentarse durante el primer semestre del curso lectivo inmediato siguiente a la aplicación de cada una de las pruebas, y contendrá la información detallada de los resultados obtenidos, así como las estrategias adoptadas o las propuestas planteadas que coadyuven al mejoramiento cualitativo del proceso de enseñanza-aprendizaje en las áreas donde el sistema educativo lo requiera, conforme se deduzca de dichos resultados.
+El segundo informe deberá presentarse durante el segundo semestre del mismo curso lectivo, e incluirá un seguimiento a las acciones implementadas, los avances logrados, las dificultades identificadas y, en su caso, las recomendaciones de ajuste o fortalecimiento de las estrategias adoptadas.

@@ -1,0 +1,3 @@
+Artículo 116° Calificación final para la obtención del Certificado de Conclusión de Estudios de Primero y Segundo Ciclos de la Educación General Básica y el Título de Bachiller en Educación Media: La calificación final para la obtención del Certificado de Conclusión de Estudios de Primero y Segundo Ciclos de la Educación General Básica y el Título de Bachiller en Educación Media se determinará por lo siguiente:
+a) La calificación final mínima para la obtención del Certificado de Conclusión de Estudios del Primero y Segundo Ciclos de la Educación General Básica por asignatura o figura afín, corresponde a un sesenta y cinco.
+b) La calificación final mínima para la obtención del Título de Bachiller en Educación Media por asignatura o figura afín corresponde a un setenta.

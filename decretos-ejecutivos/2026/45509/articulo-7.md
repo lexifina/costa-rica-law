@@ -1,0 +1,1 @@
+Artículo 7° Responsabilidad directa del proceso de evaluación de los aprendizajes y de la conducta: El desarrollo del proceso de evaluación de los aprendizajes y de la conducta, en los espacios de aprendizaje, durante el proceso de construcción del conocimiento, es responsabilidad profesional y esencial de la persona docente que está directamente vinculada con el estudiantado.

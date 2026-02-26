@@ -1,0 +1,3 @@
+Artículo 79° Resolución de las solicitudes de reconocimiento de asignaturas, subáreas, cursos, periodos, módulos o figuras afines: Corresponde a la persona directora del centro educativo o coordinadora de sede responder a la solicitud de reconocimiento de asignaturas,
+subáreas, figuras afines o cursos, con base en el informe de análisis técnico emitido por la persona coordinadora del departamento respectivo o, en su defecto, del docente que lo imparte. La persona directora no podrá apartarse del análisis técnico.
+Dicha resolución deberá ser comunicada a la persona interesada en un plazo máximo de quince días naturales posteriores a su recibo.

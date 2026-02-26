@@ -1,0 +1,4 @@
+Artículo 32° Pruebas: Son un instrumento de medición cuyo propósito es que el estudiantado demuestre la comprensión de aprendizajes cognitivos, psicomotores o lingüísticos. Por la naturaleza de la asignatura, figura afín o subárea pueden ser escritas, de ejecución u orales.
+Para su elaboración se seleccionan los aprendizajes e indicadores de evaluación, de acuerdo con el planeamiento didáctico, y el programa de estudio vigente del nivel educativo correspondiente. En lo referente al estudiantado que cuente con el apoyo curricular significativo, la prueba se elabora con base en la Programación Educativa Individual operacionalizada en el planeamiento didáctico.
+La prueba escrita debe aplicarse ante la presencia de una persona docente o, en su defecto, ante la persona funcionaria designada por la administración del centro educativo.
+La prueba oral y la de ejecución debe aplicarse ante la persona docente a cargo de la asignatura, figura afín o subárea.

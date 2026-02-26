@@ -1,0 +1,1 @@
+Artículo 74° Aprobación de las pruebas por suficiencia: Para aprobar una asignatura, subárea o figura afín por suficiencia, el estudiantado debe obtener al menos la nota mínima de aprobación establecida en el artículo 47° de este reglamento y se le consignará en el acta la nota obtenida en la prueba.

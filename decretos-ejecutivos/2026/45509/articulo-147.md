@@ -1,0 +1,4 @@
+Sección III: Generalidades en materia de acciones correctivas
+Artículo 147° Naturaleza y fines de las acciones correctivas: Para la aplicación del presente reglamento, en todos los ciclos, niveles, ofertas y modalidades del sistema educativo las acciones correctivas serán de carácter obligatorio y formativo.
+Para tales efectos se entenderá como acciones correctivas toda actividad socioeducativa, cuyo fin sea fomentar las habilidades o conocimientos en la persona estudiante para procurar un cambio positivo en su comportamiento social y prevenir la realización de conductas contrarias a la norma.
+La aplicación de acciones correctivas se acompañará de un trabajo articulado e implementado por el centro educativo, en garantía de la protección y respuesta que permita abordar las consecuencias negativas y las diferentes situaciones que se presentan. Para lo cual es fundamental la coordinación intra e interinstitucional.

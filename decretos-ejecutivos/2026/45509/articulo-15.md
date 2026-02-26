@@ -1,0 +1,3 @@
+Capítulo II: De la Evaluación del Aprendizaje
+Sección I: Conceptualización y funciones
+Artículo 15° Concepto de evaluación de los aprendizajes: La evaluación de los aprendizajes es un proceso integral, continuo y dinámico que comprende la recopilación y el análisis de información acerca de los desempeños y los logros demostrados por las personas estudiantes durante el proceso de construcción del conocimiento. Esta tiene como objetivo principal fundamentar la toma de decisiones orientadas a la realimentación, el acompañamiento y la mejora de los aprendizajes en estudio. Además, implica el desarrollo de la autoevaluación y coevaluación del estudiantado, lo cual permite reflexionar sobre el progreso, enfrentar desafíos y reconocer sus logros.

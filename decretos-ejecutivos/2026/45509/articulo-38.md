@@ -1,0 +1,3 @@
+Artículo 38° Condiciones de aplicación de las pruebas: En ninguna circunstancia se podrá aplicar a una persona estudiante más de dos pruebas en un mismo día. El tiempo máximo de aplicación será de dos lecciones para las pruebas ordinarias y de tres lecciones para las pruebas por suficiencia y ampliación.
+Se exceptúan de lo anterior las pruebas que se apliquen al estudiantado que cuenta con apoyos educativos, cuyo plazo podrá ampliarse hasta una lección, cuando así se requiera.
+Las pruebas de ejecución en aquellas asignaturas, subáreas o figuras afines tendrán un tiempo máximo de cuatro lecciones, sin embargo, en situaciones debidamente justificados, este plazo puede ampliarse una lección más, previa autorización del Comité de Evaluación de los Aprendizajes.

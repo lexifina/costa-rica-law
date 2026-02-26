@@ -1,0 +1,1 @@
+Artículo 113° Ponderación: Para efectos de este reglamento se entenderá por ponderación al peso porcentual (importancia relativa) asociado a la nota de presentación y a la nota obtenida en cada una de las Pruebas Nacionales Estandarizadas por asignatura o figura afín con propósito sumativo.

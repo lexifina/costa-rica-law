@@ -1,0 +1,1 @@
+Artículo 3° División del curso lectivo: El curso lectivo estará dividido en dos periodos escolares, aplicables a todos los niveles del sistema educativo costarricense: Educación Preescolar, Educación General Básica y Educación Diversificada; en todas sus modalidades.

@@ -1,0 +1,5 @@
+Sección II: Comité de Evaluación de los Aprendizajes
+Artículo 17° Integración del Comité de Evaluación de los Aprendizajes en los centros educativos de I y II Ciclos de la Educación General Básica: La conformación del Comité de Evaluación de los Aprendizajes, en los centros educativos de I y II Ciclos, se realizará de acuerdo con el tipo de dirección que corresponda de la siguiente manera:
+a) En los centros educativos con direcciones 4 y 5, el Comité de Evaluación de los Aprendizajes estará integrado por cuatro docentes de forma que haya en él, representación de docentes que imparten asignaturas o figuras afines académicas y complementarias.
+b) En los centros educativos con direcciones 2 y 3, el Comité de Evaluación de los Aprendizajes estará integrado por tres docentes de forma que haya en él, representación de docentes que imparten asignaturas o figuras afines académicas y complementarias.
+c) En los centros educativos unidocentes y con direcciones 1, el Comité de Evaluación de los Aprendizajes lo designará la persona supervisora del circuito escolar y se conformará por tres docentes por núcleo escolar, respetando para ello su afinidad geográfica.

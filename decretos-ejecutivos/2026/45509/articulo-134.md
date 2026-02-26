@@ -1,0 +1,1 @@
+Artículo 134° Del reconocimiento de estudios en la Educación Formal o en la Educación Abierta: A la persona estudiante o postulante que se le reconozcan estudios para continuar en la Educación Formal o la Educación Abierta, deberá asumir la oferta o modalidad educativa en los términos técnicos y administrativos dispuestos por el Consejo Superior de Educación.

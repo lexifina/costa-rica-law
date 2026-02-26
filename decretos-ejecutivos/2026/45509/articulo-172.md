@@ -1,0 +1,4 @@
+Título IV: Disposiciones Finales
+Capítulo I: Normativas internas
+Artículo 172° Normativa interna del centro educativo: La persona directora, en reunión con el personal docente y profesional de orientación si lo hubiese, establecerá y aprobará la normativa interna del respectivo centro educativo y en acatamiento a las directrices generales que emita el Ministerio de Educación Pública. Dicha normativa debe hacerse del conocimiento de la persona estudiante y la persona encargada legal, antes de ser aplicada y al inicio de cada curso lectivo.
+La normativa interna de cada centro educativo debe actualizarse en cumplimiento de las directrices que para este fin disponga el Ministerio de Educación Pública, los cuales son de acatamiento obligatorio. Una vez publicado este decreto ejecutivo, los centros educativos deberán adaptar la normativa interna de su centro educativo a las particularidades de esta nueva norma en un plazo de 3 meses.

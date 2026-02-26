@@ -1,0 +1,1 @@
+Artículo 114° Peso porcentual: Para efectos de este reglamento la nota de presentación tendrá un valor del 60% y la nota de la Prueba Nacional Estandarizada por asignatura figura afín con propósito sumativo tendrá un valor del 40%. El peso porcentual aplica tanto para I y II Ciclos de la Educación General Básica como para la Educación Diversificada.

@@ -1,0 +1,1 @@
+Artículo 144° Nota de conducta mínima para promoción: La nota de conducta mínima para la promoción de la persona estudiante será de sesenta y cinco en I, II y III Ciclos de la Educación General Básica y de setenta en la Educación Diversificada. Lo anterior procede en las modalidades de Personas Jóvenes y Adultas.

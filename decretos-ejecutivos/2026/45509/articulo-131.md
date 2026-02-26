@@ -1,0 +1,1 @@
+Artículo 131° Ausencia de recursos ordinarios a los resultados de los estudios internacionales de evaluación educativa: Los instrumentos estandarizados que forman parte de los estudios internacionales de evaluación educativa, por su naturaleza y propósitos, no serán sujetos de recursos ordinarios por parte de la comunidad educativa.

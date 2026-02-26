@@ -1,0 +1,7 @@
+Artículo 60° Estrategia de promoción y requisitos: La estrategia de promoción, determinada por el Comité de Evaluación de los Aprendizajes Ampliado, tiene el propósito de definir la condición final de la persona estudiante reprobada, en una única asignatura, subárea, figura afín, módulo o periodo, a partir de los resultados obtenidos con su ejecución.
+Dicha estrategia puede consistir en estudio de casos, ejercicios o resolución de problemas, así como exposiciones o prácticas experimentales, acordes con la naturaleza de la asignatura, subárea o figura afín.
+Tendrán derecho a realizar la estrategia de promoción, las personas estudiantes del Tercer Ciclo de la Educación General Básica y la Educación Diversificada en todas sus modalidades, que reprobaron una única asignatura, figura afín, subárea, módulo o periodo en las pruebas de ampliación y, además, cumplan con los siguientes requisitos:
+a) Haber cumplido con la realización de todas las pruebas y la presentación de todas las tareas, durante el curso lectivo.
+b) Haber asistido durante el curso lectivo al 80% de las lecciones de la respectiva asignatura, subárea o figura afín en el curso lectivo, salvo circunstancias debidamente justificadas, según corresponda.
+c) Haber cumplido durante el curso lectivo con la presentación de todos los proyectos o la demostración de lo aprendido, cuando corresponda a uno de los componentes de la calificación.
+d) Haber presentado las pruebas de ampliación en ambas convocatorias.
