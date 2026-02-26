@@ -1,1 +1,0 @@
-Artículo 2º-El monto del impuesto específico, de ¢0.28389 (cero coma dos ocho tres ocho nueve colones) indicado en el artículo anterior, se aplicará sobre cada mililitro de alcohol absoluto contenido en las cervezas nacionales e importadas a partir del 01 de enero de 2026.
