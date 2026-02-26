@@ -13,3 +13,4 @@ Lineamientos sobre resoluciones que llevan número de voto en materia civil y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-23 | la propia norma |
+| 2 | 2026-02-26 | Circular 33 (2026-02-26) |
