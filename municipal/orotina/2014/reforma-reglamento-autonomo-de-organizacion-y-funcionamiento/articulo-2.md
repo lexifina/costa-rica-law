@@ -1,2 +1,0 @@
-2º—Adicionar al Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Orotina un artículo transitorio, que dirá lo siguiente:
-Transitorio.—Con el propósito de adecuar las fechas de vigencia de los nombramientos de la Junta Directiva del Comité Cantonal de Deportes y Recreación al párrafo último del reformado artículo 8° del reglamento en análisis, se extiende el plazo de nombramiento de la actual Junta Directiva del Comité Cantonal de Deportes y Recreación de Orotina al 31 de diciembre del 2014.
