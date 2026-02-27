@@ -1,0 +1,1 @@
+Artículo 22.-Retención sobre el impuesto sobre la renta: La Unidad Financiera efectuará la retención del Impuesto sobre la Renta sobre aquellas transacciones realizadas por Caja Chica que así lo requieran, de acuerdo con la normativa que al respecto emita la Dirección General de Tributación, del Ministerio de Hacienda.

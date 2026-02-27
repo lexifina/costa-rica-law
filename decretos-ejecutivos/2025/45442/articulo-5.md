@@ -1,0 +1,1 @@
+Artículo 5.-Monto del Fondo. El monto del Fondo de Caja Chica, así como sus variaciones, serán estimados por la persona que ejerza el cargo de jefatura de la Unidad Financiera, quien los someterá para aprobación al Comité Especial del Fideicomiso.

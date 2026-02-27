@@ -1,0 +1,1 @@
+Artículo 7.-Monto del Fondo para las Cajas Chicas. El fondo inicial de las Cajas Chicas, así como las variaciones que se requieran, serán estimados por la persona que ejerza el cargo de jefatura de la Unidad Financiera, quien los someterá para aprobación al Comité Especial del Fideicomiso o por quien este designe para tal fin.

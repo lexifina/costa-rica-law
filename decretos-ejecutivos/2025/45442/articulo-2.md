@@ -1,0 +1,1 @@
+Artículo 2.-Naturaleza. La ejecución del gasto por medio del Fondo de Caja Chica es un procedimiento de excepción a los procedimientos ordinarios de contratación, limitado a la compra de bienes y servicios que sean para gastos menores, indispensables e impostergables.

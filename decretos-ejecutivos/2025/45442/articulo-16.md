@@ -1,0 +1,1 @@
+Artículo 16.-Prohibición de Fraccionar Compras. De acuerdo con lo que establece el artículo 33 de la Ley General de Contratación Pública y el artículo 12 del Reglamento, queda prohibido fraccionar una compra con el propósito de evadir el procedimiento de contratación administrativa que corresponda.
