@@ -1,0 +1,2 @@
+Artículo 37º - Motocicletas. Las motocicletas deberán de estacionarse en los espacios de estacionamiento autorizado exclusivo y definido para motocicletas o en espacios autorizados para vehículos siempre y cuando cumpla con las disposiciones del presente reglamento. Quedarán sujetas al pago del impuesto correspondiente como lo indica el artículo 16° y las sanciones que prevé este Reglamento.
+(Así modificada su numeración en sesión N° 133 del 27 de febrero de 2026, que lo traspaso del antiguo artículo 36 al artículo 37)

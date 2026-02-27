@@ -14,3 +14,4 @@ Reglamento de estacionamiento de vehículos en las vías públicas del cantón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-07 | la propia norma |
+| 2 | 2026-02-27 | Reglamento municipal 133 (2026-02-27) |

@@ -1,6 +1,7 @@
 Artículo 19° - Pago de tiempo: El pago del tiempo para estacionarse lo deberá efectuar el usuario de forma adelantada, por el valor del tiempo que va a hacer uso del espacio de estacionamiento de acuerdo al siguiente procedimiento:
 a) La Municipalidad implementará un sistema para emitir un comprobante por unidades de tiempo el cual puede ser físico o digital que servirá al usuario para utilizar los espacios ubicados en las zonas de estacionamiento.
-b) Las unidades de tiempo serán de media hora o una hora o como la unidad ejecutora vea conveniente, mismo que puede ajustarse a la necesidad.
+b) Las unidades de tiempo serán de un cuarto de hora, media hora o una hora o como la unidad ejecutora vea conveniente, mismo que puede ajustarse a la necesidad.
+(Así reformado el inciso anterior en sesión N° 133 del 27 de febrero de 2026)
 c) Una unidad de tiempo autorizará el uso de un solo espacio de estacionamiento y para un solo vehículo, en la unidad de tiempo que ésta especifique. En caso de vehículos que requieran más de un espacio de estacionamiento, deberán cancelar simultáneamente el número de espacios que ocupen.
 d) El sistema utilizado por la Municipalidad para estacionamiento de vehículos en las vías públicas especificará el espacio del vehículo, el mes, día, hora y minutos en que se inició el uso del espacio de estacionamiento.
 e) Una vez vencido el tiempo definido por el usuario en el estacionamiento, deberá en caso de permanecer más tiempo volver a pagar para reemplazar el tiempo definido nuevamente.

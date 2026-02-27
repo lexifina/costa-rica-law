@@ -1,1 +1,4 @@
-Artículo 34º - Pago especial (Zonas verdes). Será bajo estudio financiero para la definición de la tarifa que corresponderá la aprobación al Concejo Municipal para los periodos mensuales. Este beneficio no garantiza ni la disponibilidad ni el derecho de uso exclusivo de determinado espacio de estacionamiento, las zonas estarán debidamente demarcadas.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 34° - Informes. Se hará entrega de un informe mensual a la Alcaldía Municipal del alcance del proyecto, con indicadores económicos que muestren la realidad de la situación financiera del departamento de Parquímetros.
+(Así modificada su numeración en sesión N° 133 del 27 de febrero de 2026, que lo traspaso del antiguo artículo 33 al artículo 34)
