@@ -30,3 +30,4 @@ Procedimiento ECA-MC-P21 Reclutamiento, Selección, Incorporación, Evaluación 
 | 15 | 2021-11-17 | Acuerdo 12 (2021-11-17) |
 | 16 | 2024-08-07 | Acuerdo 8 (2024-08-07) |
 | 17 | 2024-10-31 | Acuerdo 0 (2024-10-31) |
+| 18 | 2026-02-27 | Acuerdo 4 (2026-02-27) |
