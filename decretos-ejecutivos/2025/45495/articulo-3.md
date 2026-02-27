@@ -1,0 +1,2 @@
+Artículo 3.- Refórmese el título de la subclase CR 4721.9 de la clase 4721 del grupo 472 de la división 47 de la Tabla 1 del Anexo I del Decreto Ejecutivo N° 43432-S del 9 de marzo del 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud", para que en lo sucesivo se lea como sigue:
+"Venta al por menor de otros alimentos (condimentos, confiterías, helados, huevos, panaderías)"
