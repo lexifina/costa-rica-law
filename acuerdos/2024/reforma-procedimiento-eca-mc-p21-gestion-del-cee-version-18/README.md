@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P21 Gestión del CEE (Versión 18)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-01-13 | la propia norma |
+| 2 | 2026-02-27 | Acuerdo 4 (2026-02-27) |
