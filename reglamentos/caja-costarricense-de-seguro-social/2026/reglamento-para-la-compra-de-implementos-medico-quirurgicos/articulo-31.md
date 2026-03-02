@@ -1,0 +1,1 @@
+Artículo 31. Debe indicarse la estabilidad de los productos a partir a su ingreso al Área de Almacenamiento y Distribución de la Caja, según lo indique el pliego de condiciones respectivo y la ficha técnica vigente oficial de la Institución.

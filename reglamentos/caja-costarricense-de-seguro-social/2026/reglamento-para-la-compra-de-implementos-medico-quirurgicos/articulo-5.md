@@ -1,0 +1,1 @@
+Artículo 5. La Gerencia de Logística por medio del área o dependencia técnica asignada, recibirá solicitudes para precalificación, por los medios definidos y comunicados formalmente. Asimismo, gestionará la remisión de respuesta de aceptación o no, al registro precalificado de oferentes y productos.

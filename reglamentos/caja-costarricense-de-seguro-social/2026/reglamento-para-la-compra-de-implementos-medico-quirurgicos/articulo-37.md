@@ -1,0 +1,2 @@
+Artículo 37. La adjudicación, declaratoria de desierto, la revocación o readjudicación deberá ser dictada por el mismo funcionario u órgano que tiene la competencia para adjudicar, según el Reglamento de Distribución de Competencias en los Procedimientos de Adquisición en la CCSS vigente.
+La declaratoria de infructuoso e insubsistencia corresponderá dictarla a la jefatura formal de la unidad programática que promocionó el proceso de compra.

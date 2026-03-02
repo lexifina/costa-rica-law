@@ -1,0 +1,2 @@
+Artículo 38. Dictado el acto final del concurso, éste puede ser revocado por la administración interesada por razones de oportunidad o legalidad, mediante resolución debidamente razonada, dentro de los siguientes cinco días hábiles a la notificación del acto, aun cuando no haya sido impugnado.
+Revocado el acto no firme, la Administración cuenta con un plazo máximo de 10 días hábiles para dictar el nuevo acto.

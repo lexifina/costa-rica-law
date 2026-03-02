@@ -1,0 +1,1 @@
+Artículo 14. Por el simple hecho de presentar su solicitud para conformar el registro precalificado de oferentes, el interesado se entiende sometido a las disposiciones del presente Reglamento y toda aquella normativa vigente y aplicable según el objeto de compra.

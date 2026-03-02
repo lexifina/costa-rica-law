@@ -1,0 +1,4 @@
+CAPITULO VII - De Ejecución
+Artículo 42. El incumplimiento a cualquiera de los términos del contrato: características y especificaciones del producto, calidad, forma de empaque, marcas, rotulación entre otros, dará lugar a la ejecución de la garantía, previo procedimiento administrativo. Ello independientemente de aclaraciones o documentos que se estime necesario solicitar, a fin de respaldar en mejor forma el estudio; o bien que el vendedor por su cuenta haga llegar oportunamente al Área de Adquisiciones.
+Cuando la Garantía de cumplimiento fuere ejecutada antes del vencimiento del contrato por incumplimiento del contratista: excepto en caso de resolución, éste quedara obligado a rendir una nueva garantía de manera que el contrato quede debidamente garantizado hasta la ejecución total.
+La devolución de la garantía se efectuará dentro de los 60 días naturales, siguientes a la fecha en que la Caja tenga por cumplido el contrato a su entera satisfacción.

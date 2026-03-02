@@ -1,0 +1,1 @@
+Artículo 50. Derogatoria Acuerdo de la Junta Directiva de la Caja, en el artículo 2° de la sesión número 7586, celebrada el 4 de octubre del año 2001 que aprobó el Reglamento para compra de medicamentos, materias primas, envases y reactivos, publicado en La Gaceta N° 243 del 18 de diciembre del año 2001.

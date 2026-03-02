@@ -1,0 +1,1 @@
+Artículo 46. Las sanciones y exclusiones a que se refieren los artículos anteriores serán notificadas al interesado posterior a haber conferido la respectiva audiencia. Si se confirmare la procedencia de dicha sanción, esta resolución se comunicará al interesado por los medios oficiales.

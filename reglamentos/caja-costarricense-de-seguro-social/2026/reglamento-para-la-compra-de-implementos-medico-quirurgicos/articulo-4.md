@@ -1,0 +1,1 @@
+Artículo 4. La Caja se reserva el derecho de solicitar cualquier aclaración o adición que juzgue conveniente. El proveedor queda comprometido a atender dentro del plazo que se señale, todo requerimiento de información, documentos u otros que respecto de su oferta o la ejecución del contrato le sean formulados.

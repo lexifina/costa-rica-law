@@ -1,0 +1,6 @@
+CAPITULO V - De la Recomendación y Adjudicación
+Artículo 34. Una vez realizados los estudios administrativos y financieros, se deberá dictar el acto final del procedimiento de acuerdo con la competencia establecida en el Reglamento de Distribución de Competencias en los Procedimientos de Adquisición en la CCSS vigente. Si la oferta ganadora del concurso presenta un precio menor al monto presupuestado, la Administración podrá adjudicar una mayor cantidad de bienes o servicios si la necesidad así lo justifica. Las disconformidades contra los requisitos para precalificarse deberán formularse en dicho momento.
+Las modificaciones a la ficha técnica, para que aplique a cada compra, deberán realizarse previo a la apertura del concurso y con la debida justificación técnica documentada.
+Sólo procederá recurso contra el acto de adjudicación y contra la declaratoria de infructuoso o desierto del concurso, según competencia ante la Administración o la Contraloría General de la República según corresponda.
+En procedimientos de contratación por urgencia no procederá ningún recurso.
+Para la presentación, análisis de admisibilidad, computo de plazos y resolución, se estará a lo dispuesto por la Ley General de Contratación Pública vigente y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 36. Por razones de urgencia debidamente acreditadas, la Administración se reserva la potestad de permitir ofertas parciales de acuerdo con el comportamiento del mercado, siempre que con ello se garantice un inmediato abastecimiento cuya criticidad y desabasto ponga en riesgo la vida de los usuarios y las características del objeto contratado lo permitan.
