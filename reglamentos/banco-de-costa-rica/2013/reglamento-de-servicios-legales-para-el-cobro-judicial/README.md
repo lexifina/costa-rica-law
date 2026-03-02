@@ -17,3 +17,4 @@ Reglamento de servicios legales para el cobro judicial
 | 2 | 2013-11-11 | Reglamento 44 (2013-11-11) |
 | 3 | 2019-07-16 | Reglamento 31 (2019-07-16) |
 | 4 | 2019-11-26 | Reglamento 54 (2019-11-26) |
+| 5 | 2026-03-02 | Reglamento 12 (2026-03-02) |

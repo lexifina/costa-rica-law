@@ -26,6 +26,7 @@ Abogado externo: profesional en Derecho contratado por el Banco para la prestaci
 Abogado de cobro institucional: servidor del Banco nombrado en propiedad, al cual por su perfil profesional en Derecho, se le encarga la dirección de la ejecución de garantías en sede judicial como parte de sus obligaciones laborales, sin cobro de honorario alguno
 CSO: Centro de Soporte Operativo.
 Ejecución de garantías: sinónimo de proceso cobratorio en sede judicial.
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión N° 12 del 2 de marzo de 2026, y publicado en La por lo que se reproduce a continuación.)
 CAPÍTULO I
 Contratación de Abogados
-Artículo 1º-Contratación. La contratación de abogados externos se regirá por los procedimientos ordinarios establecidos en la Ley de Contratación Administrativa y su Reglamento, así como por los principios constitucionales en materia de contratación administrativa y la jurisprudencia relacionada.
+-Artículo 1-Contratación. La contratación de abogados externos se rige por los procedimientos ordinarios establecidos en la Ley N° 9986 Ley General de Contratación Pública y su Reglamento, así como por los principios constitucionales en materia de contratación pública y la jurisprudencia relacionada.

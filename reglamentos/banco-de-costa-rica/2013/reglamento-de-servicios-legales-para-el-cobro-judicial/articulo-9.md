@@ -1,7 +1,6 @@
-CAPÍTULO IV
-Evaluación de los servicios profesionales
-Artículo 9º-Evaluación. La gestión de los abogados será evaluada cada año, en los casos en que el contrato sea anual, previo a su vencimiento, tomando en cuenta el plazo estipulado en el artículo 2 de este Reglamento, por el gerente del CSO al cual brinda servicio, para determinar la celeridad en el trámite del proceso y los resultados de sus servicios, siendo estos valores los indicadores de gestión, los cuales se detallan en la Disposición administrativa para la ejecución de garantías.
-Esta evaluación podrá ser tomada en cuenta por la administración para efectos de decidir si prórroga o no el contrato de servicios profesionales, de conformidad con lo indicado en el artículo 2 de este Reglamento.
-Si como resultado del proceso de evaluación, el abogado es calificado en su gestión como deficiente, será suspendido del rol de asignación de casos por un plazo de 3 meses. Si esa calificación se da en dos evaluaciones consecutivas, se considerará causal de incumplimiento del contrato de servicios profesionales lo cual dará motivo a que se promueva un procedimiento administrativo para su resolución.
-Si el abogado es calificado en su gestión como regular, se le solicitará corregir su actuación. De persistir en su gestión con calificación regular en dos evaluaciones consecutivas será suspendido del rol de asignación de casos por un plazo de 3 meses. Si se llegan a dar dos suspensiones del rol de asignación de casos, por calificaciones consecutivas regular, se considerará causal de incumplimiento del contrato de servicios profesionales lo cual dará motivo a que se promueva un procedimiento administrativo para su resolución.
-(Así reformado en sesión N° 44 del 11 de noviembre de 2013)
+Capítulo IV
+Calidad en los servicios profesionales
+Artículo 9 - Evaluación y suspensión en la asignación de nuevos casos al abogado. La gestión de los abogados se evalúa de conformidad con lo establecido en la normativa interna.
+Según el resultado obtenido de la evaluación se puede suspender la asignación de nuevos casos para la dirección del proceso de cobro judicial cuando se determine que el abogado incumple con las obligaciones, establecidas en este mismo reglamento y lo determinado en su contratación.
+La suspensión en el rol debe ser ejecutado por la persona trabajadora encargada del rol de abogados de la oficina de Cobro Judicial, previa comunicación vía correo electrónico, al abogado director, quien dispone de cinco días hábiles para presentar los descargos correspondientes.
+Para el abogado que durante un año presente suspensiones iguales o superiores a nueve meses, se debe proceder de conformidad con lo establecido en la Ley N°9986 Ley de Contratación Pública.
