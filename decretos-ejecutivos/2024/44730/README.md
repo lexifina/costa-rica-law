@@ -14,3 +14,4 @@ Norma para la habilitación de hogares de larga estancia para la atención integ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-22 | la propia norma |
+| 2 | 2026-03-02 | Decreto Ejecutivo 45737 (2026-03-02) |

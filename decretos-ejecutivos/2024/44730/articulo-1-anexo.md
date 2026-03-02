@@ -8,33 +8,34 @@ II.-Justificación.
 El Estado tiene la función indelegable de velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos. La Ley N° 5395 - Ley General de Salud dispone que las personas físicas o jurídicas públicas o privadas, que requieran brindar atención mediante la operación de hogares de larga estancias, deben obtener el permiso o autorización del Ministerio de Salud, previo a su instalación y operación; para lo cual deben garantizar que reúnen, o cumplen los requisitos legales generales y particulares establecidos.
 La Ley General de Salud también dispone la necesidad de crear reglamentación específica, para definir los estándares particulares, que se deben solicitar a cada tipo de servicio de salud según la actividad a desarrollar.
 Por su parte el Reglamento General de Permisos del Ministerio de Salud establece la necesidad de crear normativa específica para definir los estándares que se deben solicitar a cada tipo de servicio de salud según la actividad a desarrollar en complemento a los requisitos generales establecidos en dicho Reglamento; para así obtener el Certificado de Habilitación por parte del Ministerio de Salud.
-III.-Actualización.
-La presente normativa deberá ser revisada al menos cada 5 años y en caso de ser necesario se deberán realizar los ajustes pertinentes, sin perjuicio de que se tengan que realizar actualizaciones en un tiempo menor.
-IV.-Definiciones.
-Para efectos de interpretación de la presente norma, se establecen las siguientes definiciones:
+III.-Actualización. La presente normativa deberá ser revisada al menos cada 5 años y en caso de ser necesario se deberán realizar los ajustes pertinentes, sin perjuicio de que se tengan que realizar actualizaciones en un tiempo menor.
+IV.-Definiciones. Para efectos de interpretación de la presente norma, se establecen las siguientes definiciones:
 a. Acceso al personal: Hace referencia a la condición en la cual existe un contrato de servicios para que los profesionales den atención de forma regular o incidental a las PAM residentes en el establecimiento.
 b. Accesibilidad: Ausencia de restricciones para que todas las personas puedan acceder libremente el entorno, la infraestructura, los edificios y los espacios construidos, así como los accesorios y equipos misceláneos para los usuarios, utilizar todos los servicios requeridos y disponer de todos los recursos que garanticen su seguridad, su movilidad y su comunicación.
 c. Atención integral: actividad que tiene como fin la satisfacción de las necesidades físicas, materiales, biológicas, emocionales, sociales, laborales, productivas y espirituales, de las personas adultas mayores, considerando sus hábitos, capacidades funcionales y preferencias para una vejez plena y sana.
 d. Barreras constructivas o físicas: Todo aquel limitante al acceso físico que obstaculicen el desplazamiento o el perímetro del establecimiento.
 e. Biombo: Mampara compuesta de varios bastidores unidos por medio de goznes, que se cierra, abre y despliega.
-f. Formación en gerontología: Programa de postgrado universitario en el área de gerontología dado por un centro de educación superior debidamente autorizado. Las personas formadas en el extranjero deben tener homologar su título ante las autorizades nacionales competentes.
-g. Geriatría: Rama de la medicina que se ocupa de la atención integral del adulto mayor en la salud y enfermedad considerando aspectos clínicos terapéuticos, preventivos y rehabilitación precoz.
-h. Gerontología: Disciplina científica que estudia el proceso de envejecimiento en todas sus dimensiones: biológicas, psíquicas, sociales, espirituales, económicas, legales.
-i. Hogar de larga estancia (HLE): Establecimientos en donde viven personas adultas mayores de forma permanente, quienes pueden tener distintas capacidades funcionales (independientes, parcialmente independientes y dependientes). En él se cubren las necesidades básicas diarias de la persona en los ámbitos de alojamiento, alimentación, esparcimiento, compañía y espiritualidad, asimismo se puede brindar atención directa por profesionales en salud. Son conocidos también como hogares de ancianos y pueden ser de carácter público o privado, con o sin fines de lucro.
-j. Persona adulta mayor (PAM): toda persona de sesenta y cinco años o más y toda persona con síndrome de Down mayor de cuarenta años.
-k. Personal para la atención directa de las PAM: Personas empleadas por el HLE con capacitación formal en el cuido de la persona adulta mayor.
-l. Personal de apoyo: personas empleadas en tiempo parcial o total para apoyar en tareas básicas específicas de atención a las PAM.
-m. Personal de cocina: persona responsable de la preparación de los alimentos del centro siguiendo los procedimientos y buenas prácticas de manipulación de alimentos.
-n. Profesional en enfermería: Persona graduada por una facultad o escuela de enfermería universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Enfermeras de Costa Rica para el ejercicio de la profesión.
-o. Profesional en medicina: Persona graduada por una facultad o escuela de enfermería universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Médicos y Cirujanos de Costa Rica para el ejercicio de la profesión.
-p. Profesional en medicina especialista en geriatría: Profesional en medicina graduado de un programa de postgrado universitario en geriatría y con la debida incorporación del Colegio de Médicos y Cirujanos de Costa Rica para el ejercicio de su especialidad.
-q. Profesional en nutrición: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en nutrición y con la debida incorporación del Colegio de Profesionales en Nutrición de Costa Rica para el ejercicio de la profesión.
-r. Profesional en medicina: Persona graduada por una facultad o escuela de odontología universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Cirujanos Dentistas de Costa Rica para el ejercicio de la profesión.
-s. Profesional en psicología: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en psicología y con la debida incorporación del Colegio de Psicólogos de Costa Rica para el ejercicio de la profesión.
-t. Profesional en terapia física: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en terapia física y con la debida incorporación para el ejercicio de la profesión en el Colegio de Terapeutas de Costa Rica o en el Colegio de Médicos y Cirujanos de Costa Rica.
-u. Profesional en terapia ocupacional: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en terapia ocupacional y con la debida incorporación para el ejercicio de la profesión en el Colegio de Terapeutas de Costa Rica o en el Colegio de Médicos y Cirujanos de Costa Rica.
-v. Profesional en trabajo social: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en trabajo social y con la debida incorporación para el ejercicio de la profesión en el Colegio de Trabajadores Sociales de Costa Rica.
-w. Persona voluntaria: Persona, que ofrece ad honorem un servicio, de acuerdo con su conocimiento y capacitación en el campo, manteniendo un compromiso formal con la organización.
+f. Capacitación: Proceso educativo de corto plazo, que se aplica de manera sistemática y organizada, que permite a las personas aprender conocimientos, actitudes y competencias en función de objetivos definidos previamente. Permite desarrollar capacidades en los recursos humanos, preparándolos para que sean más productivos y contribuyan mejor al logro de los objetivos de la organización. (Chiavenato, 2009).
+g. Formación en gerontología: Programa de postgrado universitario en el área de gerontología dado por un centro de educación superior debidamente autorizado. Las personas formadas en el extranjero deben tener homologar su título ante las autorizades nacionales competentes.
+h. Geriatría: Rama de la medicina que se ocupa de la atención integral del adulto mayor en la salud y enfermedad considerando aspectos clínicos terapéuticos, preventivos y rehabilitación precoz.
+i. Gerontología: Disciplina científica que estudia el proceso de envejecimiento en todas sus dimensiones: biológicas, psíquicas, sociales, espirituales, económicas, legales.
+j. Hogar de larga estancia (HLE): Establecimientos en donde viven personas adultas mayores de forma permanente, quienes pueden tener distintas capacidades funcionales (independientes, parcialmente independientes y dependientes). En él se cubren las necesidades básicas diarias de la persona en los ámbitos de alojamiento, alimentación, esparcimiento, compañía y espiritualidad, asimismo se puede brindar atención directa por profesionales en salud. Son conocidos también como hogares de ancianos y pueden ser de carácter público o privado, con o sin fines de lucro.
+k. Persona adulta mayor (P AM): toda persona de sesenta y cinco años o más y toda persona con síndrome de Down mayor de cuarenta años.
+l. Personal para la atención directa de las P AM: Personas empleadas por el HLE con capacitación formal en el cuido de la persona adulta mayor.
+m. Personal de apoyo: personas empleadas en tiempo parcial o total para apoyar en tareas básicas específicas de atención a las P AM.
+n. Personal de cocina: persona responsable de la preparación de los alimentos del centro siguiendo los procedimientos y buenas prácticas de manipulación de alimentos.
+o. Profesional en enfermería: Persona graduada por una facultad o escuela de enfermería universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Enfermeras de Costa Rica para el ejercicio de la profesión.
+p. Profesional en medicina: Persona graduada por una facultad o escuela de enfermería universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Médicos y Cirujanos de Costa Rica para el ejercicio de la profesión.
+q. Profesional en medicina especialista en geriatría: Profesional en medicina graduado de un programa de postgrado universitario en geriatría y con la debida incorporación del Colegio de Médicos y Cirujanos de Costa Rica para el ejercicio de su especialidad.
+r. Profesional en nutrición: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en nutrición y con la debida incorporación del Colegio de Profesionales en Nutrición de Costa Rica para el ejercicio de la profesión.
+s. Profesional en Odontología: Persona graduada por una facultad o escuela de odontología universitaria con grado mínimo de licenciatura y con la debida incorporación del Colegio de Cirujanos Dentistas de Costa Rica para el ejercicio de la profesión.
+t. Profesional en psicología: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en psicología y con la debida incorporación del Colegio de Psicólogos de Costa Rica para el ejercicio de la profesión.
+u. Profesional en terapia física: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en terapia física y con la debida incorporación para el ejercicio de la profesión en el Colegio de Terapeutas de Costa Rica o en el Colegio de Médicos y Cirujanos de Costa Rica.
+v. Profesional en terapia ocupacional: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en terapia ocupacional y con la debida incorporación para el ejercicio de la profesión en el Colegio de Terapeutas de Costa Rica o en el Colegio de Médicos y Cirujanos de Costa Rica.
+w. Profesional en trabajo social: Persona graduada por una facultad o escuela universitaria con grado mínimo de licenciatura en trabajo social y con la debida incorporación para el ejercicio de la profesión en el Colegio de Trabajadores Sociales de Costa Rica.
+x. Persona voluntaria: Persona, que ofrece ad honorem un servicio, de acuerdo con su conocimiento y capacitación en el campo, manteniendo un compromiso formal con la organización.
+y. Responsable técnico: Es la persona profesional debidamente acreditada y con competencia legal, científica y técnica, designada por un establecimiento o servicio de salud, para velar por el cumplimiento de las normas legales, reglamentarias y técnicas aplicables. Su función principal es garantizar que los procesos, productos o servicios se realicen conforme a la normativa vigente, asegurando la calidad, seguridad y legalidad de las operaciones bajo su supervisión. No implica cargo administrativo o jefatura.
+(Así reformado el apartado IV. Definiciones) anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
 V.-Especificaciones.
 Las especificaciones de la norma están clasificadas en las siguientes áreas:
 1. Recursos humanos.
@@ -43,11 +44,14 @@ Las especificaciones de la norma están clasificadas en las siguientes áreas:
 4. Documentación.
 1. Recurso Humano.
 1.1. El Hogar de Larga Estancia debe contar con el siguiente personal:
-1.1.1. Una persona responsable de las labores administrativas que asuma la representación legal. Debe tener formación universitaria en administración y capacitación sobre la atención a las PAM.
-1.1.2. Un profesional en enfermería con formación en gerontología que funja como responsable técnico del hogar de larga estancia, así como la coordinación y supervisión del personal de atención directa.
+1.1.1. Una persona responsable de las labores administrativas. Este profesional debe encontrarse colegiado y al día en el Colegio Profesional respectivo.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
+1.1.2. Un profesional en enfermería con especialidad en gerontología, que funja como responsable técnico del hogar de larga estancia, así como la coordinación del personal de atención directa en aquellos procedimientos específicos de la atención. Esta persona debe permanecer en el establecimiento como mínimo las 8 horas diarias.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
 1.1.3. Una persona para la atención directa por cada 10 PAM, durante todo el horario de funcionamiento.
 1.1.4. Una persona responsable de cocina para la preparación de alimentos por cada 30 PAM, quienes deben tener al día el carné de manipulación de alimentos. En caso de preparar alimentos para más de 60 PAM debe contarse adicionalmente con una persona ayudante.
-1.1.5. Personal de limpieza durante todo el funcionamiento.
+1.1.5. Personal de limpieza.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
 1.1.6. Acceso a personal de mantenimiento.
 1.2. El Hogar de Larga Estancia debe contar con acceso al siguiente personal:
 1.2.1. Un profesional en psicología.
@@ -63,7 +67,8 @@ Las especificaciones de la norma están clasificadas en las siguientes áreas:
 2.1.1. Área para labores administrativas.
 2.1.2. Área para actividades sociales y recreativas.
 2.1.3. Área para la conservación de los expedientes administrativos que garantice su protección, confidencialidad y control. (Aplica solamente cuando se utilicen expedientes en papel).
-2.1.4. Dormitorios con un área mínima de 7,5 metros cuadrados por cada cama. La cantidad máxima de camas por dormitorio es de 2 camas, no se permite el uso de camarotes.
+2.1.4. Área de dormitorios. Pueden ser cuartos o salones, a razón de un área de 3.5 metros cuadrados por cama. No se permite el uso de camarotes.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
 2.1.5. Consultorios para atención en salud, puede ser de uso común para los profesionales asistenciales o pueden ser de uso exclusivo para cada profesional.
 2.1.6. Área de manejo y preparación de medicamentos.
 2.1.7. Área de desinfección de equipos que no son descartables.
@@ -320,29 +325,28 @@ Las especificaciones de la norma están clasificadas en las siguientes áreas:
 3.8.5. Equipo exclusivo y rotulado para transporte de ropa sucia.
 3.8.6. Estantes de ropa rotulados de cada residente
 3.8.7. Recipiente para residuos con tapa.
-3.9. El área para terapias debe contar con el siguiente equipo:
+3.9 El área para terapias debe contar con el siguiente equipo:
 3.9.1. Bicicleta de pedal.
-3.9.2. Bolas de hule de diversos tamaños
+3.9.2. Bolas de hule de diversos tamaños.
 3.9.3. Cama neurológica.
 3.9.4. Crayolas.
-3.9.5. Equipo de electroterapia.
-3.9.6. Equipo de ultrasonido.
-3.9.7. Foam.
-3.9.8. Goma.
-3.9.9. Hojas de colores.
-3.9.10. Juegos para motora fina.
-3.9.11. Kit de valoración de mano (dinamómetro, metro, piezómetro, mono filamentos, weber).
-3.9.12. Lápices de colores.
-3.9.13. Ligas para trabajar fortalecimiento muscular con varios niveles de resistencia.
-3.9.14. Mecanoterapia (para reentrenamiento de habilidades).
-3.9.15. Mesa de trabajo.
-3.9.16. Pesas de brazalete.
-3.9.17. Plastilina terapéutica.
-3.9.18. Ropa para rentrenamiento de actividades básicas de la vida diaria.
-3.9.19. Set de teraban de diversas resistencias
-3.9.20. Tanque de compresas calientes pequeño mínimo de 6 compresas
-3.9.21. Tens portátil.
-3.9.22. Tijeras.
+3.9.5. Foam.
+3.9.6. Goma.
+3.9.7. Hojas de colores.
+3.9.8. Juegos para motora fina.
+3.9.9. Kit de valoración de mano (dinamómetro, metro, piezómetro, mono filamentos, weber).
+3.9.10. Lápices de colores.
+3.9.11. Ligas para trabajar fortalecimiento muscular con vanos niveles de resistencia.
+3. 9 .12. Mecanoterapia (para reentrenarniento de habilidades).
+3.9.13. Mesa de trabajo.
+3.9.14. Pesas de brazalete.
+3.9.15. Plastilina terapéutica.
+3.9.16. Ropa para rentrenamiento de actividades básicas de la vida diaria.
+3.9.17. Set de teraban de diversas resistencias
+3.9.18. Tanque de compresas calientes pequeño mínimo de 6 compresas
+3.9.19. Tens portátil.
+3.9.20. Tijeras.
+(Así reformado el inciso 3.9) anterior por el artículo 1° del decreto ejecutivo N° 45737 del 2 de marzo de 2026)
 3.10. Los servicios sanitarios deben contar con las siguientes piezas sanitarias:
 3.10.1. Una ducha por cada quince residentes, acondicionados con las especificaciones de la Ley N° 7600 y su reglamento.
 3.10.2. Dos inodoros por cada quince residentes, acondicionados con las especificaciones de la Ley N° 7600 y su reglamento.
