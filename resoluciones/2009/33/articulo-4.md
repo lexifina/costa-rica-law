@@ -1,1 +1,0 @@
-Artículo 4°-Informar que la División de Fiscalización Operativa y Evaluativa (DFOE) podrá determinar las regulaciones adicionales que sean necesarias para la implementación de estas directrices.

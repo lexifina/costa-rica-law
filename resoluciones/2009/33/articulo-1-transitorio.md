@@ -1,1 +1,0 @@
-Transitorio I.-A los procesos de contratación de servicios de auditoria externa, cuya decisión inicial haya sido tomada de previo a la fecha de la vigencia de estas directrices, no les es obligatorio lo aquí regulado.
