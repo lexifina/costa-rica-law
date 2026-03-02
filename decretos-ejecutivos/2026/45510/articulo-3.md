@@ -1,0 +1,2 @@
+Artículo 3°- Se derogan los siguientes Decretos Ejecutivos: N° 9501-MP-PLAN del 11 de enero de 1979, N° 10653-MP-PLAN del 5 de octubre de 1979, N° 18423-MP-PLAN del 20 de julio de 1988.
+(Corregido mediante Fe de Erratas y publicada en el Alcance Digital N° 30 a La Gaceta N° 55 del 20 de marzo de 2026, página N° 2. Anteriormente se indicaba: “Artículo 3°- Se derogan los siguientes Decretos Ejecutivos: N° 9501-MP-PLAN del 11 de enero de 1979, N° 10653-MP-PLAN del 5 de octubre de 1979, N° 18423-MP-PLAN del 20 de julio de 1988 Y N° 37735-MP-PLAN del 6 de mayo de 2013.”)

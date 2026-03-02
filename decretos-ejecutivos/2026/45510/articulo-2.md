@@ -1,0 +1,1 @@
+Artículo 2°- En un plazo no mayor de doce meses a partir de la publicación del presente Decreto, los ministerios, las instituciones autónomas y demás entes públicos ajustarán gradualmente sus planes, programas, proyectos y actividades, así como su estructuración administrativa a la presente regionalización.
