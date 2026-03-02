@@ -28,3 +28,4 @@ Reglamento de Fondos Rotativos de Caja Chica del INA
 | 13 | 2022-02-28 | Reglamento 11 (2022-02-28) |
 | 14 | 2024-03-07 | Reglamento 5 (2024-03-07) |
 | 15 | 2025-02-24 | Reglamento 3 (2025-02-24) |
+| 16 | 2026-03-02 | Reglamento 8 (2026-03-02) |
