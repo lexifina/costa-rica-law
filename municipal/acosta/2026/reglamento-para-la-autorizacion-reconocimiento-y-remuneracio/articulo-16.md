@@ -1,0 +1,5 @@
+Artículo 16º. Análisis de la información. Corresponderá a caja jefatura, verificar que la documentación que se remite para el trámite de pago contenga toda la información requerida, debiendo constatar que lo indicado en los formularios aportados coincida con los controles de asistencia y de tiempo laborado que se adjunten.
+Asimismo, deberá verificar que en dichos formularios estén consignadas las firmas de los funcionarios que laboraron en tiempo extraordinario y los funcionarios que autorizaron y supervisaron las labores correspondientes.
+En caso de encontrar inconsistencias, cada jefatura encargada solicitará las correcciones y aclaraciones que estime necesarias.
+Si la Jefatura o Encargado del departamento determinara improcedente el pago, rechazará éste mediante un acto debidamente motivado.
+Si el caso lo amerita, comunicará lo pertinente al Despacho del Alcalde, a fin de que se inicien las investigaciones o procedimientos que al efecto correspondan para sentar las respectivas responsabilidades. Contra el acto que rechaza el pago de horas extra cabrá los recursos ordinarios establecidos en el Código Municipal.

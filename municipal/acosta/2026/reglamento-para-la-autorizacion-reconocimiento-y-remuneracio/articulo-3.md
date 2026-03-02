@@ -1,0 +1,3 @@
+Artículo 3º. Del carácter excepcional de las horas extras. La jornada extraordinaria es de carácter excepcional y temporal, para la atención de tareas especiales, imprevistas e impostergables que se presenten, por lo cual son de naturaleza excepcional y ocasional.
+En concordancia con lo anterior, únicamente se podrá autorizar horas extra en situaciones excepcionales, cuando sea indispensable satisfacer necesidades esenciales del servicio público.
+En ajuste a lo antes dispuesto, no se permitirán situaciones de jornadas extraordinarias permanentes, dado que ello desnaturaliza la figura del tiempo extraordinario y su retribución.

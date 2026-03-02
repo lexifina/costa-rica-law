@@ -1,0 +1,5 @@
+Artículo 17º. Cálculo de monto a pagar. Una vez hecho el análisis pertinente y determinado la procedencia del pago, el Departamento de Talento Humano deberá constatar que el programa presupuestario disponga de los fondos requeridos. Seguidamente efectuará el cálculo del monto a pagar por concepto de hora extra.
+La hora extraordinaria será remunerada con un cincuenta por ciento más del valor de la hora ordinaria; todo en concordancia con lo establecido en el numeral 139 del Código de Trabajo.
+Tratándose de días de descanso, feriados y asuetos, las primeras ocho horas deberán reconocerse conforme lo dispuesto en el artículo 152 del Código de Trabajo; es decir con el doble del valor de la hora ordinaria que se le pague.
+Los días de feriados y descanso se pagará un adicional equivalente al tiempo sencillo. Las horas extraordinarias trabajadas en días feriados y descanso se pagarán a doble tiempo sencillo tomando como
+base la hora ordinaria del salario atinente al cargo que ejerza el funcionario.
