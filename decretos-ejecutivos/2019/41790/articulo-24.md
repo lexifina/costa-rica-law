@@ -1,1 +1,0 @@
-Artículo 24.- Los receptores en espera de un trasplante cardiaco serán referidos por un representante del equipo interdisciplinario establecido en el artículo 11 del presente reglamento, a la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, para ser incorporados al registro nacional de receptores.

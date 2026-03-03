@@ -1,1 +1,0 @@
-Artículo 7.- El médico tratante, deberá informar de manera clara y adaptada a la capacidad de comprensión de cada paciente o su responsable legal, con falla cardiaca en fase terminal no recuperable con terapia médica u otro procedimiento quirúrgico, acerca de la alternativa terapéutica del trasplante cardiaco.

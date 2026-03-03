@@ -1,1 +1,0 @@
-Artículo 42.- En caso de que la no aceptación del órgano sea por un motivo no médico, sino por una causa administrativa, le corresponderá al responsable del establecimiento de salud, enviar una nota a la Secretaria Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, justificando la misma.

@@ -1,1 +1,0 @@
-Artículo 31.- El ordenamiento numérico de las listas se establece en cada operativo de donación y trasplante, una vez conocidas las características clínicas y de compatibilidad entre el donante y receptor.

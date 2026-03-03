@@ -1,1 +1,0 @@
-Artículo 16.- Actualización clínica. Todo paciente ingresado en la lista nacional de receptores en espera de un trasplante cardiaco, deberá tener una actualización clínica efectuada por el médico especialista en cardiología, máximo cada 6 meses o dependiendo de su condición clínica cuando así lo requiera.

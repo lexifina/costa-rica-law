@@ -1,1 +1,0 @@
-Artículo 5.- Para efectos de esta normativa podrán ser inscritos en la lista nacional de receptores, los pacientes con falla cardiaca en fase terminal no recuperable con terapia médica u otro procedimiento quirúrgico.
