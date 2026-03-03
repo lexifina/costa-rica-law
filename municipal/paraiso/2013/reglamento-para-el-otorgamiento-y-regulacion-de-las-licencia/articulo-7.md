@@ -1,1 +1,0 @@
-Artículo 7º—El impuesto de patente, deberá ser cancelado por trimestre adelantado. El atraso en la cancelación obliga al pago de intereses, que se regularán conforme a lo dispuesto para estos efectos por el Código de Normas y Procedimientos Tributarios.

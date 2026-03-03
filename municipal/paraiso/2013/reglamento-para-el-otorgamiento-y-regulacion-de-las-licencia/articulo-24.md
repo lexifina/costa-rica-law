@@ -1,1 +1,0 @@
-Artículo 24.—Las resoluciones administrativas de la Municipalidad que ordenen recalificaciones, deberán ser notificadas al interesado en el local donde se realiza la actividad y las mismas podrán ser impugnadas dentro de los cinco días hábiles siguientes.

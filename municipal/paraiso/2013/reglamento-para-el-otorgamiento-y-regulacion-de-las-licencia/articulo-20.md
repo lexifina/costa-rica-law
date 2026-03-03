@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De la competencia
-Artículo 20.—A partir de la entrada en vigencia de este Reglamento, corresponde al Departamento de Patentes la tramitación y resolución de todo lo relacionado con la Ley de Tarifas de Impuestos y Patentes del cantón de Paraíso y su Reglamento. Para estos efectos, el Departamento de Patentes dictará en los plazos reglamentarios establecidos, resoluciones administrativas debidamente motivadas, resolviendo las solicitudes de licencias, traslados y renuncias, así como las recalificaciones, suspensiones, cancelaciones y exclusiones. La omisión de esta responsabilidad por parte de los funcionarios competentes que impliquen riesgos para los intereses públicos o la Hacienda Pública, será considerada falta grave.

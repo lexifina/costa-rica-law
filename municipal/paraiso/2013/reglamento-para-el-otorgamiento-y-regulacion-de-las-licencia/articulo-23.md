@@ -1,4 +1,0 @@
-Artículo 23.—Cuando la Municipalidad, por medio del Departamento de Patentes, determine que el impuesto que debe pagar el patentado sea diferente al establecido, iniciará los procedimientos administrativos de recalificación del valor del impuesto, los cuales son responsabilidad del Departamento de Patentes. La omisión de estas responsabilidades por parte de los funcionarios competentes, será considerada falta grave por afectar la Hacienda Pública. La recalificación es procedente en los siguientes casos:
-a) Cuando sea ordenado de oficio por la Dirección General de Tributación Directa.
-b) Cuando la Municipalidad verifique que los datos suministrados por el patentado a la Municipalidad son diferentes a los reportados ante la Dirección General de Tributación Directa.
-c) Cuando la Municipalidad determine que han variado las condiciones en las cuales fundamentó el otorgamiento.

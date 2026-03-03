@@ -1,1 +1,0 @@
-Artículo 30.—Denuncias ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes, a los propietarios de negocios que hagan caso omiso de la orden de cierre o clausura que se les gire de acuerdo con este Reglamento o de cualquier otra orden tendiente a la correcta utilización de la licencia otorgada.

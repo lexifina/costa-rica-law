@@ -1,1 +1,0 @@
-Artículo 18.—Basura comercial. Todo patentado cancelará la tasa correspondiente al servicio de recolección y disposición de desechos sólidos, según la tarifa comercial que sea aprobada por la Municipalidad.

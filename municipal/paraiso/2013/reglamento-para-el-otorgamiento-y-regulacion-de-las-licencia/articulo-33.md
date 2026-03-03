@@ -1,1 +1,0 @@
-Artículo 33.—La licencia que otorgue la Municipalidad, quedará condicionada a la vigencia de los requisitos y plazos que establezcan los Permisos Sanitarios de Funcionamiento y demás permisos necesarios para el desarrollo de la actividad autorizada.

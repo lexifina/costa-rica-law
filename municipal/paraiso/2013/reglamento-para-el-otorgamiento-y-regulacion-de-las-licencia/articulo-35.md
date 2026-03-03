@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Recursos
-Artículo 35.—Las resoluciones administrativas del Departamento de Patentes relacionadas con solicitudes de licencias, traslados y renuncias, recalificaciones, suspensiones, cancelaciones y exclusiones, tendrán recurso de revocatoria ante el Departamento de Patentes y el de apelación ante la Alcaldía Municipal.
