@@ -1,1 +1,0 @@
-Transitorio I.—Para los establecimientos que ofrezcan este tipo de actividades y que cuenten o no en la actualidad con el respectivo permiso de funcionamiento por las instituciones competentes, se les concede un plazo de 60 días para que cumplan con lo establecido con las disposiciones expuestas en este Reglamento.

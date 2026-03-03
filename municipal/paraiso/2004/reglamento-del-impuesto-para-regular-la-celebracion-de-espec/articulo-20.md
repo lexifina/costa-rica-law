@@ -1,1 +1,0 @@
-Artículo 20.—En caso de autorizarse eventos para menores de edad, la venta de licor y cigarrillos será prohibida, la responsabilidad de que esto se cumpla recae en el propietario del inmueble. En todo caso, la Guardia Civil deberá colaborar para que esta medida se cumpla. Serán sancionados los locales que irrespeten este artículo según lo establece la ley.

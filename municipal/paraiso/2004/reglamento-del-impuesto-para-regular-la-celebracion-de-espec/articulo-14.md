@@ -1,1 +1,0 @@
-Artículo 14.—Todo evento deberá contar con Seguridad Privada. Quedará a criterio del organizador tanto la contratación de personal de primeros auxilios como el número de efectivos, sin embargo, en todo caso el organizador será el responsable directo.

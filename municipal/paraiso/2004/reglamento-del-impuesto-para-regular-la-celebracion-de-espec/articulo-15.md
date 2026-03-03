@@ -1,1 +1,0 @@
-Artículo 15.—En todo evento donde se presuma una asistencia masiva de personas, el organizador deberá contar con los servicios de una ambulancia y médicos además de lo indicado en el artículo anterior.

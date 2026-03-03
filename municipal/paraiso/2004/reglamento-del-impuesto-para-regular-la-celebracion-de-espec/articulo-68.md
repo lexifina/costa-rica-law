@@ -1,1 +1,0 @@
-Artículo 68.—De ésta determinación será notificado el interesado, de no cumplir con el pago correspondiente, en un término de cinco días hábiles, queda facultado el alcalde municipal para realizar las gestiones pertinentes por la vía judicial, en todo caso no se autorizarán en dicho inmueble más actividades hasta tanto la deuda persista.

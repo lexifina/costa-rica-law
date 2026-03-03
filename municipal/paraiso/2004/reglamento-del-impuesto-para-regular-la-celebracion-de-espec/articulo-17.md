@@ -1,1 +1,0 @@
-Artículo 17.—Será obligación del propietario, respetar la hora de cierre según la categoría asignada por la Municipalidad; lo que significa que a la hora indicada de cierre el propietario procurará que las instalaciones se encuentren desocupadas. Corresponde a las autoridades policiales fiscalizar que se cumpla con lo dispuesto por este artículo.

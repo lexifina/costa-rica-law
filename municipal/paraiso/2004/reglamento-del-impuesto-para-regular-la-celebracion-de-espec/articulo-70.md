@@ -1,1 +1,0 @@
-Artículo 70.—Los informes sobre las personas físicas o jurídicas que se hagan acreedores a las sanciones será presentado por los inspectores de espectáculos públicos a la Policía y se canalizará su denuncia ante los Tribunales de Justicia por medio del Alcalde Municipal en el caso donde hayan sucedido disturbios que atenten contra la seguridad pública.

@@ -1,1 +1,0 @@
-Artículo 74.—Las violaciones al presente Reglamento acarrearán las sanciones establecidas en él Artículo 81 y 81 bis del Código Municipal, Ley y Reglamento de Espectáculos Públicos y Código Penal en lo referente a la realización de actividades comerciales sin permiso municipal

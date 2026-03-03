@@ -1,1 +1,0 @@
-Artículo 29.—El Departamento de Rentas y Cobros llevará un expediente de cada uno de los negocios y lugares autorizados para realizar espectáculos públicos en el cual se registrarán los informes entregados por el inspector o encargado así como la copia de la boleta remitida al departamento de contabilidad para el pago correspondiente del impuesto.

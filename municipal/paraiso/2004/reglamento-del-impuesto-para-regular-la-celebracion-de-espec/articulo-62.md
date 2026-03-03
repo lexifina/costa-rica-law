@@ -1,1 +1,0 @@
-Artículo 62.—Por la celebración de actividades con karaokes, discomóvil, música en vivo o similares, se deberá pagar el impuesto sobre espectáculos públicos cuando aquellos se enmarquen en la definición que del hecho generador de la obligación hace él Artículo 1 del reglamento para la aplicación del impuesto sobre espectáculos públicos, ley N° 6844 del 11 de enero de 1983.

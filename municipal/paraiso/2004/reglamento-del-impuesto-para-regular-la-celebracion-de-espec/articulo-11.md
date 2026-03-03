@@ -1,1 +1,0 @@
-Artículo 11.—A la solicitud de exoneración se deberá adjuntar una declaración jurada indicando que el producto íntegro de la actividad programada se destinará a fines de beneficencia. En caso de Comités, Juntas y otras agrupaciones, éstos deberán ser reconocidos por el Concejo Municipal. Las personas físicas deberán aportar además copia de la cédula de identidad.

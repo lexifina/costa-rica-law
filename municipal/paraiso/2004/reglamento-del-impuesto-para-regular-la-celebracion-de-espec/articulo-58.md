@@ -1,1 +1,0 @@
-Artículo 58.—De las Solicitudes de Permiso para Desarrollar Actividades con Karaoke y Similares. Las solicitudes deberán presentarse con no menos de 15 días hábiles de anticipación a la realización de la actividad, lo cual debe hacerse ante el Departamento de Rentas y Cobros de la Municipalidad.

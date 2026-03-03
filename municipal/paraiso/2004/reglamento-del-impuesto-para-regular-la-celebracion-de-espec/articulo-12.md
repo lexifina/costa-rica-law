@@ -1,1 +1,0 @@
-Artículo 12.—Los propietarios de los locales autorizados para presentar espectáculos públicos quedan obligados a presentar ante el Departamento de Rentas y Cobros la programación de sus eventos con treinta días hábiles de anticipación a la realización del evento.

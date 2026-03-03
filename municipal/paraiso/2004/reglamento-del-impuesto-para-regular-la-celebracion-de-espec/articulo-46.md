@@ -1,1 +1,0 @@
-Artículo 46.—La Municipalidad tendrá la potestad de revocar el permiso otorgado previa inspección, cuando se evidencie que la explotación excede los límites previstos en él, no cuente realmente con las medidas de seguridad mínimas, no garantice la higiene en sus instalaciones o cuando se haya aportado documentación falsa o que haya inducido a error en el otorgamiento del permiso.

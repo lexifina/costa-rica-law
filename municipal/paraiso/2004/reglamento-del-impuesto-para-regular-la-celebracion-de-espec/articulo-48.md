@@ -1,1 +1,0 @@
-Artículo 48.—La solicitud de la actividad en general lo realizará la persona o entidad responsable del evento. El impuesto se desglosará de manera individual para cada local o lugar asignado de acuerdo a la distribución presentada pero la cancelación del total del impuesto lo debe realizar la persona o entidad responsable
