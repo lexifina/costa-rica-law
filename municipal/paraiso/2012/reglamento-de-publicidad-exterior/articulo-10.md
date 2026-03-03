@@ -1,2 +1,0 @@
-Artículo10. Plazo de la licencia.
-La licencia para la colocación de rótulos tendrá vigencia durante un período de dos años a partir del cual deberá solicitarse su renovación. La licencia se podrá renovar, previa inspección municipal para conocer el estado del rótulo. En caso de existir alguna alteración en sus condiciones tales como cambios no autorizados, realizados posteriormente a su colocación, malas condiciones por falta de mantenimiento o, si en algún aspecto viola este reglamento, no se autorizará la renovación de la licencia hasta que se ponga a derecho la situación.

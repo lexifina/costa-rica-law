@@ -1,2 +1,0 @@
-Artículo 12. Responsabilidad.
-El profesional a cargo de la obra (Arquitecto o Ingeniero Civil) que firme la solicitud y/o los planos constructivos para el permiso de construcción del rótulo será responsable de la seguridad de este en cuanto a su estabilidad y riesgo estructural. Los posibles daños a terceros ocasionados por el desprendimiento total o parcial del rótulo serán responsabilidad del propietario, quien deberá contar con póliza de daños a terceros de acuerdo con el inciso g. del artículo 33 de este reglamento.

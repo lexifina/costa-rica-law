@@ -1,7 +1,0 @@
-Artículo 6. Precio de la licencia.
-Para que una licencia surta sus efectos es indispensable que su importe haya sido cancelado. El precio de la licencia por la exhibición de rótulos en el Cantón de La Unión es la siguiente:
-1. Anuncios adosados a las fachadas de los edificios, independientemente de su estructura, material o tamaño (permitidos por este reglamento) excepto los luminosos: cuatro por ciento (4%) del salario mínimo.
-2. Anuncios con soporte independiente, ubicados dentro de propiedad privada, independientemente de su estructura, material, altura o tamaño (permitidos por este reglamento): diez por ciento (10%) del salario mínimo.
-3. Cualquier tipo de rótulo o anuncio permitido por este reglamento que funcione con sistemas de iluminación incorporados a su funcionamiento (rótulos de neón y sistemas similares, y rótulos con iluminación interna): veinte por ciento (20%) del salario mínimo.
-4. Anuncios en predios sin edificaciones, contiguo a vías públicas, independientemente de su estructura, material y tamaño, excepto las vallas publicitarias: cincuenta por ciento (50%) del salario mínimo.
-5. Cualquier tipo de rótulo o anuncio permitido por ley, instalado sobre paredes de edificios o estructuras de cualquier material y tamaño (vallas) o pintados directamente sobre las paredes: cien por ciento (100%) del salario mínimo.
