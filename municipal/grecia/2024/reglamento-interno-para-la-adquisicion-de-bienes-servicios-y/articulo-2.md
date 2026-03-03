@@ -1,7 +1,10 @@
 Artículo 2º-Definiciones: Para los efectos del presente Reglamento se entiende por:
-a. Administrador de Bienes y Servicios: Instancia de la estructura organizativa de la Municipalidad competente para la conducción de los procedimientos de contratación administrativa.
-b. Administrador de contrato: Es la persona responsable de la ejecución contractual respecto a un contrato determinado.
-c. Analista Jurídico: Funcionario municipal, licenciado en Derecho incorporado al Colegio de Abogados con especialidad en contratación pública, que tendrá el deber de emitir criterio legal vinculante para los distintos procedimientos de contratación que lleve a cabo la Municipalidad de Grecia, así como otros trámites que demande de este reglamento y referidos en el manual interno de esta Municipalidad.
+a. Administrador de Bienes y Servicios: Instancia de la estructura organizativa de la Municipalidad competente para la conducción y control de los procedimientos de contratación pública.
+(Así reformado el inciso anterior mediante sesión ordinaria del 03 de marzo del 2026, mediante el acuerdo SEC-1713-2026, Artículo V, inciso 6, Acta 142)
+b- Administrador de contrato: Es la persona responsable asignada desde el pliego de condiciones para ejecutar y fiscalizar un contrato, de conformidad con lo definido en el artículo 106 de la Ley General de Contratación Pública.
+(Así reformado el inciso anterior mediante sesión ordinaria del 03 de marzo del 2026, mediante el acuerdo SEC-1713-2026, Artículo V, inciso 6, Acta 142)
+c- Alcaldía: Se refiere a la participación activa en la figura del señor (a) Alcalde (sa) bajo las competencias atribuidas bajo el Código Municipal (Ley 7794) y como órgano competente.
+(Así reformado el inciso anterior mediante sesión ordinaria del 03 de marzo del 2026, mediante el acuerdo SEC-1713-2026, Artículo V, inciso 6, Acta 142)
 d. Autoridades superiores: Comprende el Concejo Municipal y la Alcaldía.
 e. Bien: Todo objeto mueble o inmueble, material o inmaterial, susceptible de satisfacer las necesidades del interés público.
 f. Centro de costos: Corresponde a los departamentos que conforman la Municipalidad y cuentan con un código presupuestario asignado para tramitar bienes, servicios y obra.

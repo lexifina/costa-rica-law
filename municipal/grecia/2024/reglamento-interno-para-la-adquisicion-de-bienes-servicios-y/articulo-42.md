@@ -1,0 +1,2 @@
+Artículo 42.-Del horario hábil de la Municipalidad de Grecia en los procedimientos de contratación: Se entenderá como horario hábil de lunes a viernes de 7:30 a.m. a 4:00 p.m., para todo aquel interesado externo a la administración en recibir o enviar trámites en el Sistema Digital Unificado para los procesos de contratación para propiciar la seguridad jurídica de los plazos previstos en la Ley General de Contratación Pública y su Reglamento.
+(Así adicionado mediante sesión ordinaria del 03 de marzo del 2026, mediante el acuerdo SEC-1713-2026, Artículo V, inciso 6, Acta 142)

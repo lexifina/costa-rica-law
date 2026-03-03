@@ -14,3 +14,4 @@ Reglamento interno para la adquisición de bienes, servicios y obra en la Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-17 | la propia norma |
+| 2 | 2026-03-03 | Reglamento municipal 0 (2026-03-03) |
