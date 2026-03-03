@@ -1,1 +1,0 @@
-Artículo 77.—En lo relacionado a las funciones indicadas en el artículo anterior, el Supervisor de Centros Educativos se considerará superior jerárquico del Director o Directora de los centros educativos localizados en el correspondiente Circuito Educativo.

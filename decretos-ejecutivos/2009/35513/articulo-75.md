@@ -1,4 +1,0 @@
-Artículo 75.-Para ejercer la supervisión de los centros educativos, para cada Circuito Educativo se establecerá una Oficina de Supervisión, la cual estará bajo la responsabilidad del Supervisor (a) que se designe.
-La Oficina de Supervisión podrá funcionar en la sede de la Dirección Regional de Educación, o en centros educativos que tengan espacio disponible para acondicionar una oficina; así como también en áreas de entes públicos o sujetos privados que faciliten sus instalaciones previo convenio de uso.
-En los casos en que se ubique la oficina de Supervisión en un centro educativo, se debe procurar, que la oficina se sitúe en un espacio independiente, para evitar que interfiera con el funcionamiento normal de la institución educativa.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43661 del 20 de julio del 2022)

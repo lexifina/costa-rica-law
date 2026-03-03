@@ -1,1 +1,0 @@
-Artículo 27.—En cada Provincia, las Direcciones Regionales de Educación podrán establecer acuerdos de cooperación entre ellas con el propósito de impulsar estrategias, planes, programas y proyectos conducentes a promover el desarrollo educativo de la Provincia como un todo, así como enfrentar problemas comunes.

@@ -1,1 +1,0 @@
-Artículo 19.—La conformación geográfica de las Direcciones Regionales de Educación se establece, específicamente, para organizar la prestación de los servicios de educación y facilitar la atención de las comunidades educativas.

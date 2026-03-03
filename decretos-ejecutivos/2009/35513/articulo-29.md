@@ -1,1 +1,0 @@
-Artículo 29.—Las Direcciones Regionales de Educación podrán programar foros, encuentros y actividades interregionales con el propósito de promover el intercambio cultural entre las distintas comunidades educativas, así como socializar prácticas y experiencias exitosas en materia de gestión, tanto en el ámbito académico como administrativo.

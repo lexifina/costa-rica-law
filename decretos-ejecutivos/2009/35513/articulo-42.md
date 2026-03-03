@@ -1,1 +1,0 @@
-Artículo 42.—Los manuales de procedimientos para coordinar aquellos procesos, servicios y trámites que requieran la intervención de los asesores legales destacados en las Direcciones Regionales de Educación, deberán remitirse a las Direcciones Regionales de Educación por las dependencias del nivel central con la respectiva aprobación de la instancia correspondiente.

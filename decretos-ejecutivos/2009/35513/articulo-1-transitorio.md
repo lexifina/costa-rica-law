@@ -1,2 +1,0 @@
-Transitorios
-Transitorio I.—En virtud de lo establecido en el artículo 28 del presente decreto, las comunidades educativas localizadas en el distrito de Peñas Blancas, del Cantón de San Ramón, podrán ser atendidas temporalmente por la Dirección Regional de San Carlos, mientras mejoran las condiciones de comunicación entre estas comunidades y la sede de la Dirección Regional de Occidente, localizada en San Ramón.
