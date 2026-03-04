@@ -114,7 +114,8 @@ El cálculo debe presentarse en metros cúbicos (m3) por mes.
 96. Redes: Sistema de tuberías para la distribución de agua y la recolección de aguas residuales.
 97. Red pública: Sistema de tuberías de agua o recolección de aguas residuales propiedad de AyA.
 98. Reporte Operacional: Documento técnico en el cual se presenta un resumen de las características de las aguas residuales que son descargadas al sistema de alcantarillado sanitario o a un cuerpo receptor, se incluye un análisis de las aguas residuales en el cual se determinan los parámetros fisicoquímicos que se solicitan en el Reglamento de Vertido y Reuso de Aguas Residuales y se establecen medidas correctivas en caso de no cumplir con los límites máximos permitidos para la descarga.
-99. Riego ornamental domiciliar: Riego superficial de zonas verdes y jardines propios del conjunto habitacional. Se excluye el riego agropecuario, pecuario y forestal.
+99. Reserva indígena: (autodenominada como territorio indígena). División administrativa y territorial, determinada por el Gobierno central, perteneciente a una etnia o comunidad indígena. (Tomada del Diccionario Usual del Poder Judicial).
+(Así reformada la definición anterior en sesión N° 006 del 4 de marzo del 2026)
 100. Servicio de abastecimiento: Corresponde al suministro de agua para consumo humano que brinda AyA; también denominado servicio de agua potable.
 101. Servicio equivalente: Consumo de una unidad no domiciliar expresado en el consumo promedio de unidades habitacionales, se calculará de acuerdo con lo establecido en la Norma técnica para "Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial, aprobado mediante el Acuerdo de Junta Directiva No. 2017-281 el 27 de junio del 2017 y sus eventuales reformas.
 102. Servicio de hidrantes: Mantenimiento operación y desarrollos de las redes de hidrantes para la atención de incendios, al servicio del Cuerpo de Bomberos.

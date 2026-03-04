@@ -27,3 +27,4 @@ Reglamento para la prestación de servicios de Acueductos y Alcantarillados
 | 12 | 2024-03-11 | Reglamento 9 (2024-03-11) |
 | 13 | 2024-11-04 | Reglamento 55 (2024-11-04) |
 | 14 | 2025-06-09 | Reglamento 31 (2025-06-09) |
+| 15 | 2026-03-04 | Reglamento 6 (2026-03-04) |
