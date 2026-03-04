@@ -1,2 +1,0 @@
-Transitorio IV. Incorporación de FMBCCR en alcance del Reglamento de variaciones del presupuesto del BCCR.
-El BCCR debe ajustar el alcance del Reglamento para la aprobación de variaciones al Presupuesto del Banco Central de Costa Rica, de los Órganos de Desconcentración Máxima y del Consejo Nacional de Supervisión del Sistema Financiero para que incorpore a la FMBCCR en un plazo no mayor de seis meses contados a partir de la publicación de este reglamento.

@@ -1,2 +1,0 @@
-Artículo 25. Autoevaluación de control interno.
-La Fundación debe remitir anualmente al BCCR los resultados de la autoevaluación de cumplimiento de su Sistema de Control Interno que incluya la evidencia documental correspondiente, así como, el seguimiento de las recomendaciones recibidas como parte de la valoración de informes de cumplimiento de períodos anteriores, con el propósito de que el Banco evalúe la atención de las normas que aplican a la Fundación.

@@ -1,5 +1,0 @@
-Capítulo II. Administración y manejo de las colecciones
-Artículo 7. Adquisición de objetos para la colección de arte y para la colección de numismática.
-La Fundación será la encargada de planificar la adquisición de objetos de las colecciones de arte y numismática y solicitar la aprobación al BCCR, a más tardar en los primeros seis meses de cada año.
-Toda propuesta de adquisición de nuevas piezas para una colección debe incluir los estudios técnicos correspondientes, el costo previsto del seguro requerido (impacto presupuestario), así como documentación establecida por la normativa de contratación pública, dentro del análisis remitido al BCCR.
-El Banco podrá definir el monto del presupuesto destinado para las compras de objetos de colección de acuerdo con los lineamientos de formulación y restricciones del gasto que establezca anualmente la Junta Directiva, revisar los objetos a adquirir a partir del presupuesto aprobado, las prioridades definidas por la Fundación y ejecutar el proceso de contratación pública correspondiente.
