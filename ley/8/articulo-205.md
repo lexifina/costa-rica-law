@@ -1,2 +1,2 @@
-Artículo 205.- Si durante la tramitación de una queja surgieren otros hechos que puedan dar lugar a la aplicación del régimen disciplinario contra el mismo u otro servidor, se procederá a testimoniar piezas e iniciar un nuevo procedimiento.
-Las diligencias podrán acumularse siempre que se trate del mismo funcionario y no implique retardo grave de la instrucción en cuanto a la primera.
+Artículo 205.- El instructor, al inicio de la investigación, pondrá los hechos en conocimiento del denunciado, sobre los cuales le pedirá un informe o le recibirá declaración sin juramento; siempre le concederá un plazo de cinco días para que ofrezca la prueba de descargo.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 200 al artículo 205)

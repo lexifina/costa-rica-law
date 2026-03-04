@@ -1,1 +1,2 @@
-Artículo 178.- Las inspecciones a las oficinas judiciales deberán realizarse por lo menos una vez cada tres meses y de ellas deberán elaborarse los informes correspondientes, para apreciar el funcionamiento de la administración de justicia en la respectiva circunscripción.
+Artículo 178.- A falta de norma expresa en esta Ley sobre jurisdicción y competencia, se aplicará lo dispuesto en los códigos y leyes procesales respectivos.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 173 al artículo 178)

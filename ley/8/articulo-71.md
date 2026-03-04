@@ -1,3 +1,2 @@
-Artículo 71.- Salvo el Presidente, los tres miembros del Consejo, que a su vez son funcionarios judiciales, deberán haber laborado para el Poder Judicial, como mínimo durante cinco años.
-Dos de ellos serán escogidos entre los funcionarios que administren justicia y los demás abogados que trabajan en el Poder Judicial. El otro, entre los restantes servidores judiciales. Para elegir a este último, la Corte solicitará a todas las organizaciones de empleados del Poder Judicial, el envío de una lista de cinco candidatos.
-El abogado externo deberá tener experiencia profesional como litigante, no menor de diez años.
+Artículo 71- Sanciones. El incumplimiento de la obligación de presentar el informe de rendición de cuentas en el plazo establecido será considerado una falta grave y podrá ser sancionado conforme a lo dispuesto en esta ley.
+(Así adicionado por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026)
