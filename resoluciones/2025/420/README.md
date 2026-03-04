@@ -14,3 +14,4 @@ Regula la naturaleza en la figura de ascenso y el carácter ascendente en los ac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-02-18 | la propia norma |
+| 2 | 2026-03-04 | Resolución 68 (2026-03-04) |
