@@ -1,1 +1,2 @@
-Artículo 124.- (Derogado por el artículo 23 de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 124.- (Derogado por el artículo 212 de la Ley N° 8508 de 28 de abril de 2006 y posteriormente vuelto a derogar por el artículo 37 aparte b) de la Ley N° 8624 del 1° de noviembre de 2007)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 119 al artículo 124)

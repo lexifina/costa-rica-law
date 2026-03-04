@@ -1,4 +1,4 @@
-CAPITULO IV
-Tribunales de Trabajo de Menor Cuantía y del Juez de enlace en materia de Niñez y Adolescencia
-(Así modificada la denominación del capítulo anterior por el artículo 2° inciso 1) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019. Anteriormente se indicaba: "De los Tribuales de Trabajo de menor Cuantía")
-Artículo 123.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)
+Artículo 123.- En las circunscripciones en las cuales no exista juzgado penal, el juez contravencional podrá realizar -en casos urgentes- los actos jurisdiccionales del procedimiento preparatorio y, de inmediato y por cualquier medio, lo comunicará al juzgado penal. En esos eventuales supuestos, el juez contravencional actúa por delegación y, el juez penal, deberá tomar las disposiciones necesarias para esa delegación y respecto del control de las actuaciones; también, de ser necesario, podrá dirigirlas personalmente.
+La Corte establecerá cuáles juzgados contravencionales tendrán el recargo de competencia referido en el párrafo anterior.
+(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 118 al artículo 123)

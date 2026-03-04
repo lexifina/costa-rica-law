@@ -1,4 +1,2 @@
-Artículo 145.- Cuando sea indispensable para hacer más eficiente el servicio judicial, en los circuitos habrá una oficina central de tesorería, que tramitará todo lo relacionado con la contabilidad de los depósitos y el procedimiento del giro de dinero.
-Esta oficina estará a cargo de un contador privado, incorporado al Colegio respectivo, quien deberá rendir garantía por un millón de colones.
-Lo anterior sin perjuicio de que el Consejo Superior autorice a los despachos ubicados fuera de la sede central del circuito judicial respectivo, para que utilicen a un auxiliar de contabilidad que colabore en el proceso de emisión de cheques y la contabilidad de los depósitos judiciales.
-(Así reformado por el artículo 5° de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 145.- Los servidores meritorios deben tener las mismas calidades que los propietarios, y tendrán derecho a ser elegidos en propiedad o para reponer a los propietarios durante sus ausencias temporales, una vez calificados por el Departamento de Personal.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 140 al artículo 145)

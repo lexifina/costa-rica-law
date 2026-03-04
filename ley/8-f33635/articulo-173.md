@@ -1,1 +1,2 @@
-Artículo 173.- A falta de norma expresa en esta Ley sobre jurisdicción y competencia, se aplicará lo dispuesto en los códigos y leyes procesales respectivos.
+Artículo 173.- Salvo disposición legal en contrario, todos los actos y procedimientos judiciales de quien no tiene facultad legal para ejecutarlos, serán absolutamente nulos.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 168 al artículo 173)
