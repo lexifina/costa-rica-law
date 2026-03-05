@@ -1,7 +1,0 @@
-Artículo 20.-De la asesoría legal interna. Corresponde al Asesor Legal brindar asesoría en esa materia para la atención de los distintos procedimientos de contratación que lleve a cabo CONAPE, para lo cual tendrá las siguientes funciones y responsabilidades:
-a) Atender las solicitudes de criterio dentro de los plazos, solicitados por el Analista en Contratación Administrativa para el correcto desarrollo de los mismos.
-b) Realizar el control de legalidad respecto a los carteles, previo a su divulgación, si así lo solicita la unidad solicitante como apoyo técnico especializado.
-c) Cuando sea requerido, dictaminar desde el punto de vista legal, sobre la procedencia o improcedencia de la subsanación de ofertas.
-d) Coadyuvar en la atención de los recursos que se presenten en los procedimientos de contratación administrativa en cualquiera de sus etapas y de acuerdo con los plazos que dicte la ley para brindar respuesta.
-e) Brindar criterio técnico en caso de requerirse, para la atención a audiencias o solicitudes de información emitidas por la Contraloría General de la República a solicitud de la unidad solicitante, Administrador del Contrato o Sección Administrativa.
-f) Revisar la legalidad de los contratos formalizados para los procedimientos contractuales correspondientes, según normativa de aprobación interna en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
