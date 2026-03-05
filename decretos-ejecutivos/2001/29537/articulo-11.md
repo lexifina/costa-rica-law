@@ -1,1 +1,0 @@
-Artículo 11.—La actividad de buceo no se podrá realizar en forma individual, siempre deberá hacerse en grupos mayores a dos personas. Los grupos de buceo deberán estar bajo la tutela de un guía de buceo (dive master), debidamente reconocido por el ACMIC.

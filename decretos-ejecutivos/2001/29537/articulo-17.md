@@ -1,1 +1,0 @@
-Artículo 17.—La práctica de snorkel, buceo a pulmón y/o natación, solo se podrá realizar en los sitios someros de isla Manuelita, bahía Chathan y bahía Waffer, cuando las condiciones climáticas los permitan y se efectué acompañado de un bote, lancha o panga, que indique la presencia de personas en el agua.

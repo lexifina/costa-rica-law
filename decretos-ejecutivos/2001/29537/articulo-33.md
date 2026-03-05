@@ -1,1 +1,0 @@
-Artículo 33.—Queda totalmente prohibido para todos los visitantes que ingresen al Parque Nacional Isla del Coco, el marcaje, de árboles, piedras, rocas y cualquier otro elemento, con nombres, iniciales, leyendas, letreros, etc. Así como la extracción de desechos o despojos de animales marinos o terrestres.

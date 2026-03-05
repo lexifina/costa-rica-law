@@ -1,1 +1,0 @@
-Artículo 16.—Los funcionarios del Parque Nacional, que posean la licencia de buzo, podrán sin previo aviso, acompañar a los grupos de buceo cuando lo estimen conveniente, con el fin de fiscalizar, controlar y monitorear las actividades que estos realicen.

@@ -1,1 +1,0 @@
-Artículo 29.—Dentro de la zona marítima del Parque Nacional Isla del Coco, no se permitirán actividades deportivas (excepto, el buceo autorizado), tales como: deslizamiento sobre el agua (jet esquíe), surf, motos acuáticas, alas delta, paracaidismo acuático, vehículos aéreos de cualquier tipo, y el uso de vehículo de competencia o exhibición marina.

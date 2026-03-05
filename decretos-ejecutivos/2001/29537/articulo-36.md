@@ -1,1 +1,0 @@
-Artículo 36.—El canal 16 que opera en la banda marina VHF debe utilizarse apropiadamente y por el tiempo que sea estrictamente necesario, ya que este, debe estar disponible para transmitir y/o atender cualquier mensaje urgente y/o necesario de las embarcaciones presentes en la zona y/o eventuales emergencias en la zona.
