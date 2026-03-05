@@ -1,0 +1,2 @@
+Artículo 12. Procedimiento para la contratación de servicios de alimentación y bebidas.
+La adquisición de servicios de alimentación y bebidas para actividades establecidas en el artículo 2 de este reglamento, se realizará mediante los procedimientos establecidos en la Ley General de Contratación Pública, Ley 9986, así como las normas, decretos, reglamentos y disposiciones en torno a esta materia y las circulares propias de la Institución.

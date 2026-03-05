@@ -1,0 +1,2 @@
+Artículo 7. El no reconocimiento de pago de viáticos.
+Cuando las personas servidoras judiciales deban desplazarse en forma transitoria de su centro de trabajo a alguna actividad establecida en el artículo 2 de este Reglamento y en dicha actividad se incluya el consumo de alimentos (desayuno, almuerzo o cena), no se les reconocerá el pago de viáticos de la tarifa correspondiente por concepto de alimento a efectos de evitar la generación de un doble pago o beneficio por ese motivo.
