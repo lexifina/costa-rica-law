@@ -1,0 +1,1 @@
+Artículo 24. Vigencia y derogatorias. El presente Lineamiento entrará a regir a partir de aprobación en firme de Junta Directiva y publicación en el Diario Oficial La Gaceta y quedarán derogadas todas aquellas disposiciones, acuerdos o lineamientos anteriores, que se opongan total o parcialmente.

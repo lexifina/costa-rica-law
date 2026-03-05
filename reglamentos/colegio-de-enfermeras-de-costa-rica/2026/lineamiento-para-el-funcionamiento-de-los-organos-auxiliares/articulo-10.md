@@ -1,0 +1,13 @@
+Artículo 10. De la formalidad de las sesiones. El Órgano auxiliar podrá sesionar de forma presencial en las instalaciones del Colegio o de forma virtual o híbrida, en ambos casos con participación de la totalidad de sus miembros o del quórum mínimo necesario para la toma de acuerdos. En caso de sesiones virtuales o híbridas se debe cumplir los siguientes requisitos obligatorios:
+a) Cada miembro debe contar con internet, equipo y demás condiciones tecnológicas que le permitan tener acceso a la sesión virtual y cumplir con las funciones y deberes encomendados.
+b) Durante la sesión se mantendrá la simultaneidad en la deliberación y la certeza en la votación. Lo anterior implica, cuando menos, que cada miembro pueda participar a viva voz en la deliberación de los asuntos sometidos a conocimiento, teniendo acceso a los documentos que se analizan en cada caso.
+c) Se garantice y asegure la identidad de los miembros que participan en la sesión virtual, quienes deberán indicar su nombre completo y número de licencia profesional al inicio de cada sesión.
+d) La debida conservación de lo actuado en la sesión, incluyendo la grabación y documentación hasta la aprobación de la respectiva acta.
+e) Que garantice en todo momento la confidencialidad de la sesión virtual.
+Las sesiones del Órgano auxiliar serán privadas, pero podrán asistir miembros de la Junta Directiva, los cuales podrán ejercer derecho a voz, pero sin voto.
+Si algún miembro traslada a terceros cualquier información a la que tenga acceso debido a su cargo en el Órgano auxiliar, se hará acreedor de las responsabilidades disciplinarias y de cualquier otra índole que pudieren derivarse según amerite. La Junta Directiva lo suspenderá como miembro y nombrará al sustituto. Se comunicará a la Fiscalía para lo de sus competencias.
+Las sesiones de los Órganos auxiliares deberán iniciarse dentro de los quince minutos siguientes a la hora señalada en la convocatoria, conforme a la hora local donde se lleve a cabo la sesión.
+Si no hubiere quórum se tomará la lista de los miembros presentes, a fin de acreditarles su asistencia
+y se dejará constancia mediante un acta, los miembros no participantes, se les hará constar la ausencia.
+Tanto el Coordinador del Órgano auxiliar como la Junta Directiva están en la obligación de llamar al orden a aquel miembro del primero que, de manera reiterada, se ausente o llegue tarde a las sesiones sin justificación alguna.
+Tres ausencias consecutivas o seis alternas podrá ser motivo de sustitución, para lo cual deberá el Coordinador informar de manera inmediata a la Junta Directiva para que valore y decida lo pertinente

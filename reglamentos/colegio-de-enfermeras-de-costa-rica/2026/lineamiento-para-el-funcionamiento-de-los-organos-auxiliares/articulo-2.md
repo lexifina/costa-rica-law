@@ -1,0 +1,7 @@
+Artículo 2. Definiciones. Para los efectos del presente lineamiento, se entenderá por:
+1. Colegio: El Colegio de Enfermeras de Costa Rica.
+2. Junta Directiva: Órgano colegiado y representativo que ejerce la autoridad o el gobierno del Colegio de Enfermeras de Cosa Rica.
+3. Órgano Auxiliar: Comisión o comité, permanente o ad hoc, adscrito al Colegio de Enfermeras de Costa Rica, cuya creación, nombramiento de miembros y delegación de funciones específicas corresponde a la Junta Directiva. Estos órganos podrán ser de carácter técnico o consultivo, según lo determine el acuerdo de creación.
+4. Miembro: Profesional en enfermería nombrado como integrante de un órgano auxiliar, quien participará de forma ad honorem, sin perjuicio de que se le reconozcan gastos debidamente autorizados.
+5. Coordinador: Miembro designado por la Junta Directiva, o por delegación al órgano auxiliar, encargado de organizar el trabajo del grupo, coordinar las sesiones, promover la ejecución de acuerdos y rendir informes periódicos a la Junta Directiva o a la Asamblea General, según corresponda.
+6. Asistente administrativa(o): Funcionaria(o) del Colegio de Enfermeras de Costa Rica designada (o) para colaborar con el órgano auxiliar, siendo responsable de levantar las actas de sesión, custodiar la documentación oficial, dar seguimiento a los acuerdos y apoyar la comunicación interna con los diferentes departamentos del Colegio.

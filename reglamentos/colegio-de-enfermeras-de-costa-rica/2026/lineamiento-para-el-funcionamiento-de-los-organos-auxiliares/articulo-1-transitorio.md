@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO. Los Órganos auxiliares que se encuentren nombrados antes de la entrada en vigor del presente Lineamiento, contarán con el plazo de treinta días naturales, contados a partir de la aprobación en la Junta Directiva del Colegio de Enfermeras de Costa Rica.
+Deberán informar dentro del plazo establecido de las respectivas agendas y planes de trabajo, así como de la ejecución presupuestaria que no haya sido debidamente informados a la Junta Directiva.
+Aprobado mediante Acuerdo 37 de la Sesión Ordinaria N.º 2828 del 05 de marzo de 2026, de la Junta Directiva del Colegio de Enfermeras de Costa Rica.

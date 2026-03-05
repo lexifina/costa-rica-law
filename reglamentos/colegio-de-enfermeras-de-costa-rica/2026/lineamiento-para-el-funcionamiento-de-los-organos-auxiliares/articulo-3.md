@@ -1,0 +1,1 @@
+Artículo 3. Objeto. El presente Lineamiento tiene por objeto regular la creación, integración, funcionamiento, responsabilidades y mecanismos de control de los Órganos auxiliares nombrados por la unta Directiva del Colegio, con el propósito de asegurar el cumplimiento de sus funciones conferidas de forma eficiente y de conformidad con el principio de legalidad.

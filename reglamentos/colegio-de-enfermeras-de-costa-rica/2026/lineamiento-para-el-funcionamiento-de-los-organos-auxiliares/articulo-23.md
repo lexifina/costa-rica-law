@@ -1,0 +1,3 @@
+Artículo 23. Liquidación de montos por concepto de transporte. Los montos correspondientes por concepto de transporte para la participación en las sesiones de los Órganos auxiliares se liquidarán únicamente mediante la “Boleta de Taxi” y el “Vale por Kilometraje”.
+Los miembros de comisiones contarán con un plazo perentorio de 5 días hábiles, contados a partir de la celebración de la sesión, para proceder con la liquidación correspondiente; por lo que, una vez vencido dicho plazo, el derecho al reembolso caducará automáticamente.
+La Dirección Administrativa del Colegio, verificará el cumplimiento de los requisitos formales y de respaldo documental antes de autorizar cualquier reembolso.

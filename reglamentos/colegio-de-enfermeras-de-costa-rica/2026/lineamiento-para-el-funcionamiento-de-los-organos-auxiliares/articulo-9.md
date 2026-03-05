@@ -1,0 +1,4 @@
+Artículo 9. De las sesiones ordinarias y extraordinarias. Los miembros del Órgano auxiliar se podrán reunir ordinariamente en la sede principal del Colegio de manera presencial, virtual o híbrida al menos una vez al mes y extraordinariamente las veces que sean necesarias, con el fin de atender los asuntos que les corresponda. Las sesiones serán convocadas por el Coordinador con un mínimo de tres días hábiles de anticipación, vía correo electrónico enviada por la asistente administrativa.
+Cualquier otro medio que elija el Órgano auxiliar no tendrá carácter oficial.
+Las comunicaciones vía redes sociales o canales de comunicación informales no generarán ningún tipo de obligación entre sus miembros, no se podrá en ningún caso, incluir en grupos de comunicación informal al personal o recurso humano del Colegio.
+No será permitido el uso de redes sociales o canales de comunicación informal para contacto con el personal o recurso humano del Colegio.
