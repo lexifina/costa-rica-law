@@ -1,0 +1,2 @@
+Artículo 13. Sanciones ante faltas cometidas por personas estudiantes.
+La inobservancia demostrada por parte de las personas estudiantes respecto de sus deberes y obligaciones, así como la infracción de las prohibiciones establecidas en la normativa vigente, será objeto de sanción conforme a la gravedad del acto realizado y en apego a lo dispuesto por el Reglamento Disciplinario Estudiantil de la UTN, salvo que se establezca otra sanción en este reglamento, en las leyes o en la normativa institucional correspondiente.

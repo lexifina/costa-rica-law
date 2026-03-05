@@ -1,0 +1,2 @@
+Artículo 12. Sanciones ante faltas cometidas por personas funcionarias.
+La inobservancia demostrada de las personas funcionarias de los deberes, obligaciones o la violación de las prohibiciones establecidas en la normativa vigente, se sanciona de acuerdo con la gravedad de la falta cometida o su reincidencia y de conformidad con lo establecido para ello en el Reglamento Autónomo de Gestión y Servicio de la UTN, siempre y cuando no se contemple en este reglamento, leyes o reglamentos institucionales otro tipo de sanción.
