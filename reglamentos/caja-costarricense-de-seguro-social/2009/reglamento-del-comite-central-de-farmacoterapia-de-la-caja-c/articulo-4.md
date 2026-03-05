@@ -1,1 +1,0 @@
-Artículo 4º—La misión del Comité Central de Farmacoterapia es contribuir a garantizar el acceso a medicamentos eficaces, seguros y de calidad y a garantizar la idoneidad del tratamiento farmacológico a todos los pacientes que se atienden en la Caja Costarricense de Seguro Social al amparo del Seguro de Salud.

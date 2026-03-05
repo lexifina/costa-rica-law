@@ -1,3 +1,0 @@
-Artículo 12.—
-a) Los miembros permanentes o suplentes del Comité Central de Farmacoterapia deberán laborar tiempo completo en la Institución y deberán tener calidades científicas, profesionales, éticas y morales reconocidas dentro del ámbito de su ejercicio profesional.
-b) Los miembros permanentes, los miembros suplentes, los asesores permanentes y los asesores temporales del Comité Central de Farmacoterapia deberán presentar al inicio de su función, una declaración de que no existe conflicto de intereses de ninguna naturaleza con las funciones que desarrollará la cual debe ser actualizada de inmediato en caso de modificación de sus anteriores condiciones. Corresponderá a dichos miembros y asesores el gestionar la declaración de estilo.

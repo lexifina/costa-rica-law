@@ -1,1 +1,0 @@
-Artículo 5º—Los principios que rigen al Comité Central de Farmacoterapia son: la eficiencia, la equidad, la accesibilidad, la igualdad, la calidad, el buen desempeño, el trabajo en equipo, la honestidad, la responsabilidad, el respeto y la transparencia de las actuaciones.
