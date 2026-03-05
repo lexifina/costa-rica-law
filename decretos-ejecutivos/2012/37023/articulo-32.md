@@ -1,1 +1,0 @@
-Artículo 32.- Las embarcaciones de cualquier tipo, utilizadas para el transporte de personas a los sitios de buceo y desplazamiento al área administrativa del Parque, no podrán navegar dentro de las Bahías Chatham y Wafer, a una velocidad mayor a los 5 nudos, salvo para usos administrativos de PNIC.

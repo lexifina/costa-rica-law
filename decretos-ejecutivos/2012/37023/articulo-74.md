@@ -1,1 +1,0 @@
-Artículo 74.- La administración del PNIC puede restringir las actividades y sitios de uso público, ello siguiendo los principios de conservación, protección y los objetivos establecidos en el Plan de Manejo del Parque.

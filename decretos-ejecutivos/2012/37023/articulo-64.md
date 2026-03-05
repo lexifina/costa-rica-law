@@ -1,1 +1,0 @@
-Artículo 64.- Para la autorización de caminatas, es requisito que los visitantes y guías cuenten con el equipamiento básico de seguridad, incluyendo radio portátil, zapatos cerrados, ropa de caminata, agua y botiquín de primeros auxilios.

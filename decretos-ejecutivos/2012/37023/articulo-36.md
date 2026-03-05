@@ -1,1 +1,0 @@
-Artículo 36.- Previo a ejecutar cualquier actividad autorizada dentro de los límites del PNIC, deberá la persona física o jurídica solicitante coordinar diariamente con la Administración del PNIC quien, avalará el sitio y hora en que se realizará la misma.

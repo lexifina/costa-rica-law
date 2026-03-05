@@ -1,1 +1,0 @@
-Artículo 45.- La circunnavegación a bordo de embarcaciones, salvo en ocasiones autorizadas por la administración, solo se podrá realizar previa coordinación con el PNIC, entre las 08:00 y las 16:00 horas, siempre y cuando las condiciones climáticas lo permitan y dentro de la zona de uso público extensivo establecido en el Plan de Manejo del PNIC.

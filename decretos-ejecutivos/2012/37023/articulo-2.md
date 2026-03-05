@@ -1,1 +1,0 @@
-Artículo 2.- Las disposiciones del presente Reglamento y las indicaciones que emitan los (as) funcionarios (as) del Parque Nacional Isla del Coco a las personas que ingresen a dicha Área Silvestre Protegida, en apego a dicho instrumento, son de carácter obligatorio.

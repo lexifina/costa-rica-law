@@ -1,1 +1,0 @@
-Artículo 30.- El canal 16 que opera en la banda marina VHF o la frecuencia 8325.0 USB, deben estar disponibles para transmitir o atender cualquier mensaje urgente o necesario de la Administración del PNIC a las embarcaciones presentes en la zona, por tanto deben utilizarse por el tiempo que sea estrictamente necesario.

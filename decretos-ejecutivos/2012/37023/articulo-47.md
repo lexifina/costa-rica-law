@@ -1,1 +1,0 @@
-Artículo 47.- Los sitios de buceo autónomo autorizados en el PNIC para personas acreditadas como buzo de Aguas Abiertas (Open Water) son: Manuelita Somero (Este), Bahía Chatham cerca de fondeos establecidos, Isla Pájara, Barco Hundido en Bahía Wafer, Roca Gissler, Silverado, Roca cónica (Punta Ulloa).

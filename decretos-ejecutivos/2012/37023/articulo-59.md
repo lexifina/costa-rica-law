@@ -1,1 +1,0 @@
-Artículo 59.- El uso de vehículos personales tipo torpedo o moto acuática solamente está autorizado en casos de discapacidad en que se requiera para realizar la actividad de buceo autónomo o como instrumento de investigación. Para el uso de dichos vehículos, se requerirá una autorización expresa de la administración del PNIC.

@@ -1,1 +1,0 @@
-Artículo 3.- Toda persona que ingrese al Parque Nacional Isla del Coco, debe cumplir con las disposiciones indicadas en el presente Reglamento de Uso Público, así como, con las directrices que emita el Ministerio de Ambiente, Energía y Telecomunicaciones a través del Sistema Nacional de Áreas de Conservación y de la Dirección del Área de Conservación Marina Isla del Coco.

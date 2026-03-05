@@ -1,1 +1,0 @@
-Artículo 73.- La administración del PNIC tiene la potestad de autorizar la apertura de nuevos sitios destinados para la realización de las actividades ecoturísticas, así como cerrar aquellos sitios que considere necesarios para fines de manejo o conservación.

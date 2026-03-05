@@ -1,1 +1,0 @@
-Artículo 58.- El permiso para las investigaciones que requieran el uso de submarinos deberá gestionarse según lo establecido en el Decreto Ejecutivo Nº 32553-MINAE, denominado “Manual de Procedimientos para realizar Investigación en Biodiversidad y Recursos Culturales en las Áreas de Conservación”.

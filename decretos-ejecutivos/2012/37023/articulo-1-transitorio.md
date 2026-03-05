@@ -1,1 +1,0 @@
-Transitorio I: Las reservas de derecho de ingreso autorizadas conforme a las disposiciones del Decreto Ejecutivo Nº 29537-MINAE, constituyen actos administrativos firmes y no serán afectadas por la entrada en vigor del presente Reglamento, sin embargo el proceso para obtener el permiso definitivo así como las normas de operación se regirán conforme al presente reglamento.

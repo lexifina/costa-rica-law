@@ -1,1 +1,0 @@
-Artículo 69.- Queda prohibida la introducción en el PNIC de cualquier especie exótica, solamente podrá darse esta situación, con fines de manejo debidamente justificados, avalados por el comité técnico del ACMIC y amparados por el respectivo permiso emitido por la Dirección del ACMIC.

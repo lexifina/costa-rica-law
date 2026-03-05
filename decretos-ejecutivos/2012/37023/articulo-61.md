@@ -1,1 +1,0 @@
-Artículo 61.- Durante las visitas al espacio terrestre del PNIC solamente se autoriza la natación en los siguientes sitios: Playas Wafer y Chatham, la poza del puente y la poza de la catarata, ambas en el Río Genio, y la poza contigua a base Chatham.
