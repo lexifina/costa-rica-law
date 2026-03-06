@@ -1,0 +1,1 @@
+ARTÍCULO 3- El inmueble donado albergará las instalaciones del salón comunal. En caso de que la Asociación donataria llegara a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Junta de Educación de la Escuela Agua Caliente, Cañas.
