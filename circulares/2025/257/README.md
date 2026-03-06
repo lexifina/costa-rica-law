@@ -14,3 +14,4 @@ Lineamientos para la ejecución de notificaciones internacionales de resolucione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-03-06 | la propia norma |
+| 2 | 2026-03-06 | Circular 1 (2026-01-28) |

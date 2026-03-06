@@ -105,48 +105,49 @@ Por otro lado, es importante señalar que el Cónsul no ingresará a lugares cat
 1.1.5 Jurisdicción de Consulados
 A continuación, se presenta un desglose de los Consulados que se utilizan con mayor frecuencia para el trámite de notificación internacional. Se le solicita a la persona usuaria siempre revisar la página oficial del Ministerio de Relaciones Exteriores y Culto: https://www.rree.go.cr/?sec=misiones&cat=deCR&cont=481&letra=&tipo=c.
 Consulado | Jurisdicción | Contactos
-Berlín, Alemania | Todo el país. Exceptuando: · Frankfurt · Hamburgo · Hannover · Lahr · Leipzig | Teléfono: 0049-30-26398990 E-mail: concr-de@rree.go.cr
+Berlín, Alemania | Todo el país.Exceptuando:· Frankfurt· Hamburgo· Hannover· Lahr· Leipzig | Teléfono: 0049-30-26398990E-mail: concr-de@rree.go.cr
 Consulados Honorarios de Alemania
-Frankfurt | Frankfurt | Teléfono: (069) 3904 3656 E-mail: confrancfort@googlemail.com
-Hamburgo | Hamburgo | Teléfono: (040) 80 13 95 E-mail: rica@congenricahh.de
-Hannover | Hannover | Teléfono: 0049 (0)511 281127 E-mail: conhcr-ha@rree.go.cr
-Lahr | Lahr | Teléfono: 0049 (0)7821 9397 21 E-mail: conhcr-la@rree.go.cr
-Leipzig | Leipzig | Teléfono: (0341) 9 09 67 32 E-mail: leipzig@konsulat-costa-rica.de
-Brasilia, Brasil | Todo el país | Teléfono: (0055)6133262186 E-mail: concr-br@rree.go.cr
-Bruselas, Bélgica | Todo el país | Teléfono: (+32) 02 640-5541/ 02 640-5969 E-mail: embcr-be@rree.go.cr
-Ottowa, Canadá | Todo el país | Teléfono: (001) 613-562-2855 E-mail: concr-ca@rree.go.cr
-Santiago, Chile | Todo el país Exceptuando: · Temuco | Teléfono: (562) 2334 1600 E-mail: consulado@costarica.cl
-Bogota, Colombia | Todo el país | Teléfono: 57-601-756-0443 E-mail: concr-co@rree.go.cr
-La Habana, Cuba | Todo el país | Teléfono: (0053) 7204-6937 - (0053) 7204-6938 E-mail: concr-cu@rree.go.cr
-San Salvador, El Salvador | Todo el país | Teléfono: (503) 2264 3864 y (503) 2264 3863 E-mail: concr-sv@rree.go.cr
-Madrid, España | Todo el país Exceptuando: · Barcelona · Málaga | Teléfono: (0034)913459622 ext 1 E-mail: concr-es@rree.go.cr
-Atlanta, Estados Unidos | Alabama, Georgia, Kentucky, North Carolina, South Carolina and Tennessee. | Teléfono: (770) 951-7025 E-mail: concr-us-ga@rree.go.cr
-Houston, Estados Unidos | Arkansas, Colorado, Kansas, Louisiana, Mississippi, Nebraska, New Mexico, Oklahoma, Texas | Teléfono: (713) 266 0484 E-mail: concr-us-tx@rree.go.cr
-Los Ángeles, Estados Unidos | Alaska, Arizona, Hawaii, Idaho, Montana, Nevada, Northern California, Oregon, Southern California, Utah, Washington, Wyoming, Idaho, Montana. | Teléfono: ? (323) 424 7112 ? (323) 424 7161 ? (323) 424 7106 E-mail: · concr-us-ca2@rree.go.cr · consuladolosangeles@rree.go.cr
-Miami, Estados Unidos | Florida | Teléfono: (786) 655-0990 E-mail: consuladomiami@rree.go.cr
-Nueva York, Estados Unidos | Nueva York, Maine, New Hampshire, Vermont, Massachusetts, Rhode Island, Connecticut, Pennsylvania, New Jersey, Ohio, Missouri, Iowa, Dakota del Norte, Dakota del Sur, Michigan, Indiana, Illinois, Wisconsin, Minnesota. | Teléfono: (212) 564-2921 / (646) 933-1035 / (646) 933-1036 · mail: . concr-us-ny@rree.go.cr . consuladony@rree.go.cr
-Washington D.C, Estados Unidos | Distritos de Columbia, Delaware, Maryland, Virginia, Oeste Virginia. | Teléfono: (202) 499-2991 E-mail: concr-us-wa@rree.go.cr
+Frankfurt | Frankfurt | Teléfono: (069) 3904 3656E-mail: confrancfort@googlemail.com
+Hamburgo | Hamburgo | Teléfono: (040) 80 13 95E-mail: rica@congenricahh.de
+Hannover | Hannover | Teléfono: 0049 (0)511 281127E-mail: conhcr-ha@rree.go.cr
+Lahr | Lahr | Teléfono: 0049 (0)7821 9397 21E-mail: conhcr-la@rree.go.cr
+Leipzig | Leipzig | Teléfono: (0341) 9 09 67 32E-mail: leipzig@konsulat-costa-rica.de
+Brasilia, Brasil | Todo el país | Teléfono: (0055)6133262186E-mail: concr-br@rree.go.cr
+Bruselas, Bélgica | Todo el país | Teléfono: (+32) 02 640-5541/ 02 640-5969E-mail: embcr-be@rree.go.cr
+Ottowa, Canadá | Todo el país | Teléfono: (001) 613-562-2855E-mail: concr-ca@rree.go.cr
+Santiago, Chile | Todo el paísExceptuando:· Temuco | Teléfono: (562) 2334 1600E-mail: consulado@costarica.cl
+Bogota, Colombia | Todo el país | Teléfono: 57-601-756-0443E-mail: concr-co@rree.go.cr
+La Habana, Cuba | Todo el país | Teléfono: (0053) 7204-6937 - (0053) 7204-6938E-mail: concr-cu@rree.go.cr
+San Salvador, El Salvador | Todo el país | Teléfono: (503) 2264 3864 y (503) 2264 3863E-mail: concr-sv@rree.go.cr
+Madrid, España | Todo el paísExceptuando:· Barcelona· Málaga | Teléfono: (0034)913459622 ext 1E-mail: concr-es@rree.go.cr
+Atlanta, Estados Unidos | Alabama, Georgia, Kentucky, North Carolina, South Carolina and Tennessee. | Teléfono: (770) 951-7025E-mail: concr-us-ga@rree.go.cr
+Houston, Estados Unidos | Arkansas, Colorado,Kansas, Louisiana, Mississippi, Nebraska, New Mexico, Oklahoma, Texas | Teléfono: (713) 266 0484E-mail: concr-us-tx@rree.go.cr
+Los Ángeles, Estados Unidos | Alaska, Arizona, Hawaii, Idaho, Montana, Nevada, Northern California,Oregon, SouthernCalifornia, Utah, Washington, Wyoming, Idaho, Montana. | Teléfono:? (323) 424 7112? (323) 424 7161? (323) 424 7106E-mail:· concr-us-ca2@rree.go.cr· consuladolosangeles@rree.go.cr
+Miami, Estados Unidos | Florida | Teléfono: (786) 655-0990E-mail: consuladomiami@rree.go.cr
+Nueva York, Estados Unidos | Nueva York, Maine, New Hampshire, Vermont, Massachusetts, Rhode Island, Connecticut, Pennsylvania, New Jersey, Ohio, Missouri, Iowa, Dakota del Norte, Dakota del Sur, Michigan, Indiana, Illinois, Wisconsin, Minnesota. | Teléfono: (212) 564-2921 / (646) 933-1035 /(646) 933-1036· mail:. concr-us-ny@rree.go.cr. consuladony@rree.go.cr
+Washington D.C, Estados Unidos | Distritos de Columbia, Delaware, Maryland, Virginia, Oeste Virginia. | Teléfono: (202) 499-2991E-mail: concr-us-wa@rree.go.cr
 Consulados Honorarios de Estados Unidos
-Saint Paul, Estados Unidos | Minnesota | Teléfono: 612-485 7170 E-mail: crconsuladominnesota@gmail.com
-Tucson, Estados Unidos | Arizona | Teléfono: 001 520-400-1699 E-mail: costaricaarizona@gmail.com
-Ciudad Guatemala, Guatemala | Todo el país | Teléfono: (000502) 2337-4909 E-mail: concr-gt@rree.go.cr
-Tegucigalpa, Honduras | Todo el país | Teléfono: 00 (504)2270-7464 E-mail: concr-hn2@rree.go.cr
-Roma, Italia | Todo el país | Teléfono: (0039) 068082015 E-mail: concr-it@rree.go.cr
+Saint Paul, Estados Unidos | Minnesota | Teléfono: 612-485 7170E-mail: crconsuladominnesota@gmail.com
+Tucson, Estados Unidos | Arizona | Teléfono: 001 520-400-1699E-mail: costaricaarizona@gmail.com
+Ciudad Guatemala, Guatemala | Todo el país | Teléfono: (000502) 2337-4909E-mail: concr-gt@rree.go.cr
+Tegucigalpa, Honduras | Todo el país | Teléfono: 00 (504)2270-7464E-mail: concr-hn2@rree.go.cr
+Roma, Italia | Todo el país | Teléfono: (0039) 068082015E-mail: concr-it@rree.go.cr
 Consulados Honorarios de Italia
-Bari | Bari | Teléfono: +39 080 8807588 (para citas) E-mail: conhcr-br@rree.go.cr
-Florencia | Florencia | Teléfono: (0039) 0578233070 E-mail: conhcr-fl-it@rree.go.cr
+Bari | Bari | Teléfono: +39 080 8807588 (para citas)E-mail: conhcr-br@rree.go.cr
+Florencia | Florencia | Teléfono: (0039) 0578233070E-mail: conhcr-fl-it@rree.go.cr
 Milan | Milan | Teléfono: (0039) 0236509416
 | | E-mail: consmilano.cr@fastwebnet.it
-Turín | Turín | Teléfono: (39)011 2421285 E-mail: conhcr-it@rree.go.cr
-Luxemburgo | Todo el país (Estado independiente) | Teléfono: 00 352 26 3526 80 E-mail: Consultar en la página del Ministerio de Relaciones Exteriores y Culto: https://www.rree.go.cr/?sec=misiones&cat=deC R&cont=481&letra=&tipo=h
-México D.F, México | Todo el país | Teléfono: +(52) 555525-7764 E-mail: concr-mx@rree.go.cr
-Managua, Nicaragua | Todo el país | Teléfono: (505) 2270-7464 - 2270-7437 E-mail: concr-ni-ma@rree.go.cr
-Ciudad de Panamá, Panamá | Todo el país (exceptuando David) | Teléfono: (507)2234059 y (507)2642980 E-mail: concr-pa@rree.go.cr
-David, Panamá | David | Teléfono: (00507) 774-1923 E-mail: concr-pa-da@rree.go.cr
-La Haya, Países Bajos | Todo el país | Teléfono: (0031) 70 354-0780 / 354-4775 E-mail: oncr-nl@rree.go.cr
-Lima, Perú | Todo el país | Teléfono: (0051) 264-2484 E-mail: concr-pe@rree.go.cr
-Moscú, Rusia | Todo el país | Teléfono: +7 495 415 4014 / +7 495 415 4042 E-mail: concr-ru@rree.go.cr
+Turín | Turín | Teléfono: (39)011 2421285E-mail: conhcr-it@rree.go.cr
+Luxemburgo | Todo el país (Estado independiente) | Teléfono: 00 352 26 3526 80E-mail: Consultar en la página del Ministerio de Relaciones Exteriores y Culto: https://www.rree.go.cr/?sec=misiones&cat=deC R&cont=481&letra=&tipo=h
+México D.F, México | Todo el país | Teléfono: +(52) 555525-7764E-mail: concr-mx@rree.go.cr
+Managua, Nicaragua | Todo el país | Teléfono: (505) 2270-7464 - 2270-7437E-mail: concr-ni-ma@rree.go.cr
+Ciudad de Panamá, Panamá | Todo el país (exceptuando David) | Teléfono: (507)2234059 y (507)2642980E-mail: concr-pa@rree.go.cr
+David, Panamá | David | Teléfono: (00507) 774-1923E-mail: concr-pa-da@rree.go.cr
+La Haya, Países Bajos | Todo el país | Teléfono: (0031) 70 354-0780 / 354-4775E-mail: oncr-nl@rree.go.cr
+Lima, Perú | Todo el país | Teléfono: (0051) 264-2484E-mail: concr-pe@rree.go.cr
+Moscú, Rusia | Todo el país | Teléfono: +7 495 415 4014 / +7 495 415 4042E-mail: concr-ru@rree.go.cr
 | |
+(Nota de Sinalevi: Mediante circular N° DJ-001-2026 del 28 de enero de 2026, se acordó aclarar el punto 1.1.5 anterior, relativo a los consulados de Costa Rica en el exterior y su respectiva jurisdicción, mediante los cuales pueden ejecutarse notificaciones internacionales, corresponde a la información disponible al momento de emitirse la supra citada circular. En este sentido, se adiciona la referida circular, con ocasión de instar a las personas usuarias a efecto que, al momento de realizar el trámite de su interés, verifiquen la información actualizada en la página oficial del Ministerio de Relaciones Exteriores y Culto, sea: https://www. rree.go.cr/, pestaña “Embajadas y Consulados”, apartado “Representaciones de Costa Rica en el Extranjero”.)
 SECCION III.
 CONTACTOS FRECUENTES Y RECOMENDACIONES PARA USUARIOS
 1. Requisitos para Consultas
@@ -179,10 +180,10 @@ R/Puede reenviar su correo a la misma dirección y especificar "SEGUIMIENTO URGE
 Si tiene preguntas adicionales, no dude en contactar al Proceso de la Cooperación Jurídica Internacional. Estamos comprometidos a brindarle apoyo eficiente y profesional en el ámbito de nuestra competencia.
 A continuación, se presenta una lista informativa con los contactos de los funcionarios a los cuales se puede dirigir en caso de consultas generales:
 Consultas generales relacionadas con los trámites en la Cooperación Jurídica Internacional del Ministerio de Relaciones Exteriores y Culto
-Natalia Córdoba Ulate Directora Jurídica, Ministerio de Relaciones Exteriores y Culto E-mail: ncordoba@rree.go.cr Shirley Denisse Powell Elizondo Abogada de Cooperación Jurídica Internacional E-mail: spowell@rree.go.cr Cooperación Jurídica Internacional E-mail: cooperacionjudicialinternacional@rree.go.cr
+Natalia Córdoba UlateDirectora Jurídica, Ministerio de Relaciones Exteriores y CultoE-mail: ncordoba@rree.go.crShirley Denisse Powell ElizondoAbogada de Cooperación Jurídica InternacionalE-mail: spowell@rree.go.crCooperación Jurídica InternacionalE-mail: cooperacionjudicialinternacional@rree.go.cr
 Consultas relacionadas con el trámite de paternidad responsable
-Unidad de Paternidad Responsable de la Sección de Inscripciones de la Dirección General del Registro Civil E-mail: paternidad@tse.go.cr
-Departamento Consular Dirección del Servicio Exterior Ministerio de Relaciones Exteriores y Culto E-mail: dpto-consular@rree.go.cr
+Unidad de Paternidad Responsable de la Sección de Inscripciones de la Dirección General del Registro CivilE-mail: paternidad@tse.go.cr
+Departamento Consular Dirección del Servicio ExteriorMinisterio de Relaciones Exteriores y CultoE-mail: dpto-consular@rree.go.cr
 Funcionarios responsables:
 Elaboración:
 - Shirley Denisse Powell Elizondo, Encargada, Proceso de Cooperación Jurídica Internacional.
