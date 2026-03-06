@@ -1,0 +1,1 @@
+ARTÍCULO 3- Los contribuyentes sujetos pasivos en morosidad dispondrán de un plazo máximo de seis meses, después de la entrada en vigencia de dicha declaratoria de condonación para acogerse a ella, en los términos detallados en la presente ley.
