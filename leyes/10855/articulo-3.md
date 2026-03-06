@@ -1,0 +1,1 @@
+ARTÍCULO 3- El bien donado a la Asociación de Desarrollo Específica Cantonal para la Atención del Adulto Mayor de Coto Brus, Puntarenas, se destinará exclusivamente para que construya infraestructura que mejore la atención al servicio de los adultos mayores, para la prestación de servicios públicos y privados. En caso de incumplimiento la propiedad volverá al Estado.
