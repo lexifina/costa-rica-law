@@ -1,0 +1,2 @@
+ARTÍCULO 3- Autorización y destino del bien segregado
+Se autoriza a la Municipalidad de El Guarco para que done y traspase el terreno segregado y desafectado en los artículos 1 y 2 de esta ley, a la Asociación Cruz Roja Costarricense, cédula de persona jurídica número tres-cero cero dos-cero cuatro cinco cuatro tres tres (3-002-045433). El inmueble donado será utilizado, exclusivamente, al establecimiento de las instalaciones administrativas en el cantón de El Guarco.

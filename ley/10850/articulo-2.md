@@ -1,0 +1,2 @@
+ARTÍCULO 2- Desafectación del bien segregado
+Se desafecta del uso público de terreno destinado a la sede de la Cruz Roja Costarricense, cédula de persona jurídica número tres-cero cero dos- cero cuatro cinco cuatro tres tres (n.° 3-002-045433), únicamente la finca a segregar descrita en el artículo 1 de esta ley y que se ajusta al plano catastrado C-dos dos seis cuatro dos siete nueve-dos mil veintiuno (C- 2264279-2021).
