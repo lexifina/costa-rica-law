@@ -1,0 +1,2 @@
+ARTÍCULO 3- Autorización y destino del bien segregado
+Se autoriza a la Municipalidad de El Guarco, cédula de persona jurídica tres-cero uno cuatro-cero cuatro dos cero ocho dos (3-014-042082) para que done y traspase el terreno segregado y desafectado en los artículos 1 y 2 de esta ley, que se destinará, exclusivamente, al establecimiento de las instalaciones administrativas del Patronato Nacional de la Infancia, cédula de persona jurídica número tres-cero cero siete-cero cuatro dos cero tres nueve (n.° 3-007-042039).
