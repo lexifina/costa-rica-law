@@ -1,0 +1,3 @@
+ARTÍCULO 3- Se autoriza a la Notaría del Estado para que proceda a formalizar e inscribir, en el Registro Público, la escritura de cambio de uso descrita en los artículos 1 y 2; además, queda facultada para actualizar y corregir la naturaleza y cualquier error, diferencia u omisión relacionados con los datos del inmueble, así como cualquier otro dato que sea necesario para su debida inscripción. Su inscripción estará exenta del pago de honorarios y de todo tipo de derechos y timbres.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República,San José, a los diecinueve días del mes de febrero del año dos mil veintiséis.
