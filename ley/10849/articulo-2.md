@@ -1,0 +1,1 @@
+ARTÍCULO 2- El Concejo Municipal de Montes de Oro deberá acordar las condiciones en las que implementarán la condonación de intereses por concepto de tributos; para ello, deberá contar con un estudio técnico y un plan de condonación que aporte la administración, de conformidad con los parámetros dispuestos en esta ley.

@@ -1,0 +1,1 @@
+ARTÍCULO 6- La Municipalidad de Montes de Oro deberá desarrollar una amplia y adecuada campaña de divulgación de la presente ley, garantizando transparencia y fomentando la participación ciudadana, de tal forma que los sujetos pasivos se enteren en tiempo y forma de los alcances, los procedimientos y sus beneficios.
