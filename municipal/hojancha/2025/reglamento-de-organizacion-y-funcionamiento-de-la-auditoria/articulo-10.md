@@ -1,0 +1,1 @@
+Artículo 10 — Responsabilidad. La Unidad de Auditoría Interna estará bajo la responsabilidad y dirección de un Auditor Interno, quien ejercerá como superior jerárquico y deberá conocer las disposiciones legales que rigen en general a la Administración Pública y específicamente las del Régimen Municipal.

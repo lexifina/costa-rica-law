@@ -1,0 +1,3 @@
+Artículo 51 - Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+1. Solicitarle a la Secretaria del Concejo Municipal emitir la certificación correspondiente que se debe de enviar a la Contraloría General de la Republica. APROBADO POR UNANIMIDAD. ACUERDO DEFINITIVAMENTE APROBADO (Con cinco votos positivos de los regidores Fairone Pineda Castrillo, Margarita Ramírez Mora, Francisco Loría Rodríguez, Justina Villafuerte Villafuerte y Emel Rodríguez Paniagua).
+Dado en Hojancha Guanacaste, a los treinta días del mes de Enero del dos mil veintiseis. Concejo Municipal de Hojancha, Katherine Campos Porras Secretaria Una vez.

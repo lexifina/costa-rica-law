@@ -1,0 +1,3 @@
+Artículo 32 - Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará por escrito mediante oficios u otros medios de comunicación, conforme a la naturaleza de los asuntos a que se refiera y al criterio profesional del auditor interno.
+La asesoría solo la brinda el titular de la Unidad de Auditoría Interna y puede brindarse en forma oral, pero de preferencia debe ser escrita sobre asuntos estrictamente de competencia de la Auditoría.
+La advertencia será de oficio, cuando los asuntos sean de conocimiento del auditor interno o cualquiera de los funcionarios de la auditoría interna y debe hacerse por escrito.
