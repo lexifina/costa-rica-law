@@ -1,0 +1,1 @@
+Artículo 11.-En los casos en que uno o varios regidores o síndicos sean nombrados para representar o atender asuntos municipales que implique su desplazamiento del cantón y amerite el alojamiento, se cancelará según lo establecido en el artículo 18 del Reglamento de Gastos de Viajes y de Transporte para funcionarios Públicos de la Contraloría General de la República.

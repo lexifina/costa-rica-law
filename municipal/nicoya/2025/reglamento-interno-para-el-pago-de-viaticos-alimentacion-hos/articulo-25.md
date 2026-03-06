@@ -1,0 +1,1 @@
+Artículo 25.-Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Aprobado por el Concejo Municipal, según Acuerdo Municipal N° 016-046- 2025 de la Sesión Ordinaria N° 046 celebrada el martes 18 de marzo del 2025. Es todo

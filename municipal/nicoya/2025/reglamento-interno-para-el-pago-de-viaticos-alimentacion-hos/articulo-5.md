@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del pago de viáticos a regidores y síndicos
+(Propietarios y suplentes) municipales
+Artículo 5º-Los gastos por transporte se le reconocerán a Regidores y Síndicos (Propietarios y Suplentes) Municipales, que por la lejanía entre su lugar de residencia y la sede municipal o donde se celebre la sesión municipal deban desplazarse una vez terminada la sesión una distancia igual o superior a diez kilómetros, siempre que estas finalicen en horas que se encuentren fuera del horario normal del servicio de transporte público de autobuses y que la Municipalidad se encuentre impedida de transportarlos a su lugar de destino o residencia. Únicamente se reconocerán viáticos, a los regidores y síndicos que tengan derecho a ello, cuando asistan puntualmente a las sesiones del Concejo Municipal y tengan derecho al pago de la dieta respectiva, según las disposiciones del artículo 30 del Código Municipal.

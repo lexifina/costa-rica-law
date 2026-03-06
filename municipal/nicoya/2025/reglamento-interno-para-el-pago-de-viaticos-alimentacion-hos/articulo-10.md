@@ -1,0 +1,5 @@
+Artículo 10.-Los Regidores y Síndicos recibirán el derecho a alimentación bajo las siguientes reglas:
+a) Se pagará desayuno, únicamente en aquellos casos en de acuerdo con las disposiciones de este reglamento, el que es beneficiario sea acreedor también al pago de hospedaje o cuando se haya salido del Municipio antes de las 6:00 a. m.
+b) Se pagará almuerzo únicamente, en aquellos casos en que, por acuerdo firme del Concejo Municipal, la respectiva sesión sea convocada para iniciar a las 11:00 horas y se prolongue por tres horas o más.
+c) Se pagará cena únicamente, en aquellos casos en que por acuerdo firme de del Concejo Municipal, la respectiva sesión sea convocada para iniciar a las 17:05 horas y se prolongue por tres horas o más.
+d) En ningún caso se pagarán gastos por este concepto, cuando la sesión está asociada a actividades oficiales o comunales, en las que se provea alimentación a los regidores y síndicos municipales. Tendrán derecho al pago de la alimentación los regidores o síndicos que vivan cerca del lugar de sesiones después de tres horas de sesión.

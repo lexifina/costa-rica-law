@@ -1,0 +1,1 @@
+Artículo 9º-Gastos por concepto de alimentación. La Municipalidad reconocerá gastos por concepto de desayuno, almuerzo o cena a los Regidores y Síndicos, de acuerdo con los montos establecidos en el artículo 18 del Reglamento de Gastos de Viajes y de Transporte para Funcionarios Públicos de la Contraloría General de la República.

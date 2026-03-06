@@ -1,0 +1,1 @@
+Artículo 7°-La Tarifa de taxis deberán ser las autorizadas por la ARESEP, este egreso se cancelará contra la presentación de factura en la que se detallará la ruta, monto y fecha del servicio cancelado.

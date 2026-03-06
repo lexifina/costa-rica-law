@@ -1,0 +1,1 @@
+Artículo 3º-Concepto. Por viático se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que la Municipalidad de Nicoya reconoce a Regidores, Síndicos, propietarios y/o suplentes, y funcionarios de la Municipalidad de Nicoya.

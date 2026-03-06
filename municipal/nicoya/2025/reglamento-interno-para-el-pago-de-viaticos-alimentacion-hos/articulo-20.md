@@ -1,0 +1,1 @@
+Artículo 20.-Para que proceda el reconocimiento de gastos de transporte en taxi, el funcionario deberá gestionarlo de forma previa al viaje, ya sea ante el jefe inmediato o el Alcalde Municipal y adjuntar el comprobante de pago a la liquidación de viáticos.
