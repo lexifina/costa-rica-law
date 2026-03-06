@@ -1,228 +1,208 @@
 Nº 192-2015
 (Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 257 del 24 de noviembre de 2021 y publicada en el Boletín Judicial N° 3 del 7 de enero de 2022)
-ASUNTO: “Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigos en sede penal”.-
+ASUNTO: "Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigos en sede penal".-
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
-El Consejo Superior del Poder Judicial, en sesión Nº 87-15 celebrada el 29 de setiembre de 2015, artículo IV, acordó comunicar a los despachos judiciales del país, el “Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigos en sede penal”, que literalmente indica:
-“Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigos en sede penal
-INTRODUCCIÓN
-La intervención de los y las profesionales del Departamento de Trabajo Social y Psicología (DTSP) en diversos procesos judiciales, ha involucrado en el área penal, la prestación de servicios de abordaje a personas menores de edad durante los diferentes procesos judiciales, en materia de delitos sexuales y otras formas de agresión; bajo la modalidad de atenciones inmediatas.
-Según las estadísticas del DTSP en el año 2012, se recibieron 3907 solicitudes de atenciones inmediatas y en el 2013, 4922; estos números revelan la demanda, para esta intervención técnica y justifican la importancia de este Protocolo.
-Lo anterior, en respuesta a que, en el artículo 123 del Código de Niñez y Adolescencia se especifica que “El Departamento de Trabajo Social y el Departamento de Psicología (sic) del Poder Judicial deberán asistir al menor ofendido y a su familia durante el proceso (…).” Y en concordancia con el derecho de asistencia, retomado en los Principios Fundamentales de Justicia para víctimas de delitos y abuso del poder, aprobados por las Naciones Unidas desde 1985.
-A pesar de que se cuenta con lineamientos departamentales para esta modalidad, el proceso de cambio por el cual se atraviesa, arrojó la necesidad de homogenizar y protocolarizar la forma de trabajo, de manera que cualquier profesional siga las mismas pautas de acción; por lo que se conformó una comisión encargada de la elaboración del presente protocolo.
-El propósito que se pretende cumplir con este, está dirigido a que las y los profesionales en Trabajo Social o en Psicología cuenten con una guía conceptual y práctica que permita una prestación de servicios de calidad y no revictimizantes, hacia el usuario o la usuaria del Poder Judicial; por lo que expone las definiciones que direccionan los objetivos de intervención y las acciones a realizar durante las distintas etapas procesales.
-La atención inmediata a personas menores de edad, responde a solicitud para realizar acompañamientos técnicos; los cuales de preferencia son programados por la autoridad judicial o atendidos de forma emergente, de acuerdo con el recurso disponible.
-Esta intervención debe proporcionar información básica acerca de la diligencia judicial, en la que inicialmente se genera un rapport que permita un acercamiento con la persona menor de edad y si es requerido la contención necesaria, en el marco de derechos y deberes dentro de las políticas para disminuir la revictimización, establecidas por el Poder Judicial (Comisión Nacional para el Mejoramiento de la Administración de Justicia, CONAMAJ).
-Según Lipowsky y Stern (1997; citados por Cantón-Duarte y Arboleda, 2000) los objetivos de esta intervención son la “instrucción de procedimientos (...) y los papeles desempeñados por las distintas personas que intervienen, familiarizarlo con los términos, y conceptos legales, enseñarle técnicas adecuadas de expresión oral, ayudarle a entender la finalidad del sistema judicial penal, conseguir que se sienta cómodo en la sala de audiencias y hacer tomar conciencia de la importancia de decir sólo la verdad”.
-De acuerdo con lo anterior, el objetivo de la intervención es brindar información, orientación y contención; con el propósito de fortalecer a la persona menor de edad atendida durante el proceso judicial.
-Esta modalidad de atención requiere conocer aspectos básicos de la situación que genera la intervención judicial. El o la perito deberá dirigir su accionar técnico a partir del conocimiento de elementos tales como: el vínculo con la persona denunciada, redes de apoyo, habilidades funcionales y desarrollo evolutivo; que permitan ofrecer un criterio profesional a la autoridad judicial, que de manera oral exponga las capacidades personales y condiciones familiares que deben tomarse en consideración en el momento de la diligencia.
-Objetivo
-Determinar la intervención del Departamento de Trabajo Social y Psicología del Poder Judicial, con el fin de unificar la actuación profesional ante las solicitudes de atención inmediata por parte de la autoridad judicial en sede penal; y de esta forma, garantizar un servicio de calidad desde un marco de procedimientos técnicos acordes con las políticas de disminución de la revictimización secundaria.
-Ámbito de aplicación y población meta
-Este documento va dirigido a los y las peritos del DTSP, que deben efectuar este tipo de intervención con la población de personas menores de edad en materia de delitos sexuales y otros tipos de agresión, interpuestos en el ámbito penal.
-Personal que interviene
-Los y las peritos, profesionales en Trabajo Social y en Psicología del DTSP.
-Material requerido
-Boleta única de Referencia al DTPS
-Boleta de Atenciones Inmediata
-Términos y definiciones
-Para este protocolo toma relevancia los siguientes términos y definiciones:
--ATENCIÓN INMEDIATA: Es una intervención que puede ser realizada por el/la Trabajadora Social o la /el Psicólogo (a), en una sesión y de manera inmediata en las siguientes circunstancias: personas en estado de crisis, acompañamiento y orientación durante la diligencia judicial.
--VICTIMOLOGÍA: Para Aguilar (2006) “Es una ciencia que se centra en la parte afectada del delito, así como en la personalidad de la víctima, consecuencia del hecho delictivo y sus posibles soluciones” (p: 98).
--VÍCTIMA: Según lo expuesto por las Naciones Unidas (s.f.), se define como las personas naturales o jurídicas que individual o colectivamente, hayan sufrido daños, inclusive lesiones físicas o mentales, sufrimiento emocional, pérdida financiera o menoscabo sustancial de los derechos fundamentales, como consecuencia de acciones u omisiones que violen la legislación penal nacional o internacional o que de otra manera constituyan una violación grave de los derechos humanos, la conducta de las empresas o abusos ilícitos de poder.
--VICTIMIZACIÓN: Marchiori (2000) plantea que es cuando la persona ve disminuida su seguridad individual o colectiva al haber padecido un daño físico, psíquico, patrimonial o sexual, que además, cuando va acompañado de violencia o experiencia personal con el presunto autor del delito, suele traer efectos que se mantienen en el tiempo y pueden ser físicos, psíquicos, económicos o de rechazo social.
--VICTIMIZACIÓN SECUNDARIA: para Raposo (s.f.) es aquella victimización que se deriva de las relaciones de la víctima con el sistema jurídico. Se acentúa cuando la persona no recibe la información necesaria para enfrentar el proceso judicial en sus diferentes etapas, lo cual también puede afectar la imagen del propio sistema judicial nacional; exacerbando en las personas ofendidas el sufrimiento del daño en sus derechos fundamentales, en su dignidad humana y en la consecución de la justicia.
--RAPPORT: establecimiento de una relación cálida y de confianza, que provoca que la persona menor de edad se sienta cómoda o en familiaridad, respecto a los demás. Se expone que incluye tres componentes conductuales: atención mutua, positividad mutua y coordinación. La confianza puede obtenerse a través de diversas técnicas, como por ejemplo: juegos, programas televisivos, intereses, deportes, aficiones, etc.
-(Cantón y Cortés, 2000)
--APOYO: Favorecer, patrocinar, ayudar.
--HABILIDADES FUNCIONALES: Se refiere a las capacidades cognitivas, conductuales, emocionales, ejecutivas, entre otras. También conocida como competencias que se refiere a la capacidad de las personas para generar y coordinar respuestas, flexibles y adaptativas a corto y largo plazo ante las demandas asociadas a la realización de sus tareas vitales y generar estrategias para aprovechar las oportunidades que le brindan los contextos de desarrollo. (Waters y Sroufe, 1983, citados por Masten y Curtis, 2000; recitados por Rodrigo y Martin, 2009)
-Diferencia entre Atención Inmediata e Intervención en Crisis
-De acuerdo con las técnicas propias del campo de la Psicología, una intervención en crisis se trata de un proceso psicoterapéutico, mediante un modelo de intervención que incluso puede trascender al sujeto individual, esto en aras de identificar las necesidades de un ser humano como inmerso en un sinnúmero de realidades grupales, las cuales se podrían utilizar como recursos para ayudar a que el paciente sobrelleve de manera óptima las situaciones críticas que atraviesa en un momento determinado y restablecer su equilibrio emocional.
-Lo que corresponde a los profesionales en Trabajo Social y Psicología que intervienen en atenciones inmediatas, es identificar si la persona está en crisis, siendo así, ésta no podría participar en los trámites judiciales a los que estaría solicitada, en razón de ser contraproducente y revictimizante; lo que sería diferente a contener y apoyar en estados de ligera ansiedad, angustia y manifestaciones de llanto; por esta razón, frente a una situación de crisis, lo recomendable es hacer referencia inmediata de la persona usuaria a un centro de atención especializada, en donde incluso se le acompañaría hasta el lugar de intervención.
+El Consejo Superior del Poder Judicial, en sesión Nº 87-15 celebrada el 29 de setiembre de 2015, artículo IV, acordó comunicar a los despachos judiciales del país, el "Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigos en sede penal", que literalmente indica:
+(Nota de Sinalevi: Esta norma fue reformada parcialmente mediante circular N°38-2026 del 6 de marzo del 2026, publicada en el Boletín Judicial N° 50 del 13 de marzo del 2026, y se transcribe a continuación:)
+[imagen]
+Tabla de contenido
+PRESENTACIÓN. 4
+INTRODUCCIÓN. 6
+I. Objetivos: 7
+II. Población Meta. 7
+III. Ámbito de Aplicación. 7
+IV. Marco Normativo. 8
+V. Consideraciones generales para la atención de las PME. 8
+SUPUESTOS OPERATIVOS. 11
+1. Involucramiento de otras instancias para su ejecución. 11
+2. Personal que interviene. 11
+3. Material requerido. 11
+GENERALIDADES DE LAS ATENCIONES INMEDIATAS EN SEDE PENAL. 12
+Fases de las atenciones inmediatas: 14
+TIPOS DE ACOMPAÑAMIENTOS. 17
+1. Acompañamiento técnico en la recepción de la denuncia a PME. 17
+2. Acompañamiento técnico en reconocimiento: 20
+3. Acompañamiento técnico en anticipo jurisdiccional de prueba. 21
+ANEXOS. 24
+GLOSARIO.. 28
 PRESENTACIÓN
-Las personas usuarias del Poder Judicial tienen derecho a no ser revictimizadas y maltratadas, por lo que el presente protocolo tiene como objetivo que el servicio que se brinda desde el Departamento de Trabajo Social y Psicología (DTSP) coadyuve en la atención humana y sensible, dirigida a las personas menores de edad (PME).
-Dicha intervención está fundamentada legalmente en el artículo Nº 123 contenido en el Capítulo IV del Código de la Niñez y la Adolescencia, sobre los Derechos de Acceso a la Justicia; el cual señala: “El Departamento de Trabajo Social y de Psicología del Poder Judicial deberán asistir al menor ofendido y a su familia durante el proceso. Finalizado éste, la persona menor de edad deberá ser remitida a la institución correspondiente para el debido tratamiento”.
-La aplicación de este protocolo favorece la denuncia de agresiones sexuales y otros tipos de violencia, desde una óptica del derecho en la que se debe proteger la intimidad, la privacidad y la correcta obtención de la información. Así mismo, el uso del protocolo pretende unificar y controlar las intervenciones profesionales para evitar fallas o errores en detrimento de la persona menor de edad usuaria y del sistema judicial mismo.
-PRÓLOGO
-Desde el año 1996, un equipo de profesionales en Trabajo Social creó e implementó el Programa de Atención Social a la Violencia Sexual Infanto Juvenil, el cual fue una iniciativa previa a la promulgación del Código de la Niñez y la Adolescencia en 1998.
-Este programa inicialmente se dirigió a la atención de personas menores de edad o adultas con discapacidad, que figuraban como personas ofendidas en delitos sexuales. Posteriormente, debido a la promulgación de otras leyes y el incremento de la criminalidad misma, el radio de acción se expandió hacia la atención de otros tipos de violencia.
-Las/os profesionales que atienden este programa intervienen en diferentes etapas del proceso judicial, desde la etapa inicial en la que las personas usuarias tienen el primer contacto con la institución, es decir la interposición de la denuncia, hasta su finalización del proceso, mediante un debate o juicio oral.
-Este protocolo debe complementarse con otras normativas e instrumentos existentes elaboradas en el Poder Judicial tales como: Las Directrices para Reducir la Revictimización de las Personas Menores de Edad en los Procesos Penales emitidos por la CONAMAJ en el año 2002, el Protocolo de Atención Legal a Víctimas de Delitos Sexuales y Violencia Doméstica Cometidos por Personas Menores de Edad, el Protocolo de Atención a Víctimas Mayores y Menores de Edad de Delitos Sexuales y Explotación Sexual Comercial Cometidos por Personas Mayores de Edad y otros similares, emitidos en el 2008.
-Se pretende además con la implementación de este protocolo evitar o minimizar la revictimización secundaria de las personas usuarias, mediante el uso adecuado de la entrevista forense con las personas menores de edad, en los diferentes momentos del proceso judicial en el ámbito penal.
-Por tanto, se espera que este instrumento se constituya en una guía útil para los y las profesionales del DTSP que se desempeñan en esta área de intervención. Se consideran como alcances de este tipo de intervención, los aspectos consignados en la Boleta de Atención Inmediata; a saber:
-ü Brindar atención en Fiscalía, Juicio, Reconocimiento, Anticipo Jurisdiccional de Prueba y otras instancias en sede penal, en las que se requiera atención a usuarias y usuarios personas menores de edad.
-ü Desarrollar un ambiente de confianza.
-ü Orientar e informar acerca de la labor de la Fiscalía y/o de las instancias penales correspondientes.
-ü Orientar e informar acerca de la labor de Trabajo Social y Psicología
-ü Informar acerca de la dinámica del debate y del rol del juez (jueces), fiscal y defensor.
-ü Explicar la importancia de decir la verdad.
-ü Informar acerca de los derechos de las personas menores de edad.
-ü Brindar apoyo y contención (espacios de relajación, manejo de temores, mitos y otros).
-ü Coordinar con la autoridad judicial a cargo para la referencia del caso a otras instituciones, cuando se detectan condiciones de riesgo.
-ü Dar indicaciones breves a los progenitores o encargados de la persona menor de edad acerca del proceso judicial.
-ü Aclarar los aspectos que no involucran la intervención en esta instancia.
-ü No es un servicio psicoterapéutico ni de intervención en crisis.
-ü La atención podría verse limitada en razón del estado emocional de la persona menor de edad.
-ü No se emiten impresiones diagnósticas (la entrevista, la observación conductual y la observación no participante, son técnicas que permiten ofrecer un criterio verbal acerca de posibilidad o no de abordaje; no de valoración para emitir diagnóstico).
-ü En aras del respeto del interés superior de la persona menor de edad, la intervención no consiste en influir en su discurso (denuncia, declaración, retractación o retiro de denuncia), ni en convencerlo (la) de participar en el proceso judicial.
-ü No se trata de un recurso de recreación ni de actividades lúdicas.
-ü No es un servicio de cuido a personas menores de edad.
-FUNDAMENTACIÓN LEGAL
-La intervención con las personas usuarias, debe realizarse a la luz de los siguientes instrumentos jurídicos, los cuales amparan y legitiman el quehacer profesional durante las atenciones inmediatas:
-- Declaración Universal de los Derechos Humanos .
-- Convención de los Derechos de las Personas Menores de Edad.
-- Convención Iberoamericana de los Derechos de los Jóvenes.
-- Estatuto de la Justicia de los Derechos de las Personas Usuarias de los Servicios Judiciales.
-- Código de la Niñez y la Adolescencia.
-- Declaración sobre los Principios Fundamentales de Justicia para Víctimas de Delitos.
-- Código Procesal Penal.
-- Ley de Justicia Penal Juvenil.
-- Ley contra el Castigo Físico y el Trato Humillante
-- Protocolo para prevenir, reprimir y sancionar la trata de personas especialmente mujeres y personas menores de edad de la Convención de las Naciones Unidas contra la Delincuencia Organizada Transnacional.
-- Convención Interamericana sobre el tráfico internacional de menor.
-- Ley de Penalización contra la Ley de la Violencia Doméstica contra las Mujeres.
-- Ley 7600: Igualdad de Oportunidades para las Personas con Discapacidad
-- Reglas de Brasilia sobre Acceso a la Justicia de las Personas en Condición de Vulnerabilidad
-- Las Directrices para Reducir la Revictimización de las Personas Menores de Edad en los Procesos Penales emitidos por la CONAMAJ
-- Convención Interamericana para Prevenir, sancionar y erradicar la violencia contra la mujer (Convención Belem do Pará)
-- Memorando Nº 04-NA-FAAG-2014 “Lineamientos prácticos para la investigación de los asuntos que ingresan como reportes del 911. Función del Departamento de Trabajo Social y Psicología y la Oficina de Atención y Protección a la Víctima del Delito y coordinación con esa oficinas. Abordaje, atención e investigación de denuncias en perjuicio de personas adultas mayores. Remisión al Programa de Atención a la Violencia Infanto Juvenil del Departamento de Trabajo Social y Psicología”.
-- Circular 02-ADM-2009 del Ministerio Público “Directrices generales para la intervención, atención, acompañamiento y seguimiento a todas las víctimas del delito.
-- Circular 15-ADM-2008 del Ministerio Público “Guía práctica para el abordaje e investigación efectiva de los delitos establecidos en la Ley de Penalización de la Violencia contra la Mujer”.
-- Circular 22- ADM- 2007 del Ministerio Público “Guía práctica para la atención de recepción de denuncias de las víctimas de delitos sexuales, explotación sexual comercial y delitos derivados de la violencia intrafamiliar”.
-- Circular 22 -ADM-2008 del Ministerio Público.
-PROCEDIMIENTO
-ATENCIONES INMEDIATAS EN SEDE PENAL
-Durante el proceso penal judicial se identifican las siguientes diligencias en las que se requiere el acompañamiento técnico especializado por parte de los y las profesionales del DTSP:
-1. Recepción de la Denuncia en Fiscalía.
-2. Reconocimientos.
+La creación de este instrumento es significativa para el Departamento de Trabajo Social y Psicología, ya que permite evidenciar una de las labores más relevantes en procura de la protección y el apoyo de las personas menores de 18 años, víctimas o testigos, involucradas en diligencias judiciales penales.
+Este protocolo se complementa con diversas normativas y directrices emitidas por el Poder Judicial, como el artículo 123 del Código de Niñez y Adolescencia y los Principios Fundamentales de Justicia para víctimas de delitos y abuso del poder aprobados por las Naciones Unidas, las Directrices para Reducir la Revictimización de las personas menores de edad en Procesos Penales y otros instrumentos similares, proporcionando un marco sólido para la implementación de prácticas que garanticen los derechos de la población infanto-juvenil y su participación activa en la interacción con el sistema judicial, mediante la debida asistencia técnica desde el ámbito psicosocial.
+La atención inmediata y el acompañamiento son intervenciones técnicas no psicoterapéuticas ni de intervención en crisis con seguimientos a largo plazo, sino de contención y orientación inmediata, que requieren la coordinación con otras instancias judiciales, como el Ministerio Público, Juzgados y Tribunal de Juicio.
+Las intervenciones se desarrollan en varias fases, incluyendo la atención en fiscalía, juicio, reconocimiento, anticipo jurisdiccional de prueba, entre otras. Cada fase tiene procedimientos específicos para asegurar que la persona menor de edad (en adelante PME) reciba el apoyo necesario y que se minimice cualquier forma de revictimización. Además, detalla varios tipos de acompañamientos técnicos, como la recepción de la denuncia, el reconocimiento de personas y lugares, el anticipo jurisdiccional de prueba, los retratos hablados y el juicio oral o debate.
+El "Protocolo de atención inmediata a personas menores de edad, víctimas y testigos en sede penal" es un instrumento crucial para garantizar que las PME reciban la contención y el apoyo requerido durante momentos de alta tensión, confusión y condición de vulnerabilidad, fortaleciendo consecuentemente la confianza en el sistema judicial y promoviendo prácticas que minimicen la revictimización.
+INTRODUCCIÓN
+La atención inmediata a PME consiste en el rol de acompañamiento y asistencia técnica, que se requiere brindar con inmediatez ante la solicitud de la instancia judicial respectiva, en el momento que se va a llevar a cabo una diligencia con la participación de esta población, o bien que esta sea programada con anticipación por la autoridad judicial, de acuerdo con el recurso disponible en cada oficina del Departamento de Trabajo Social y Psicología. Entre las intervenciones que se realizan se encuentran tomas de denuncia en la fiscalía, declaración en juicio, reconocimiento, retrato hablado, anticipo jurisdiccional de prueba, entre otras.
+Esta intervención debe proporcionar información básica acerca de la diligencia judicial, en la que inicialmente se genera un ambiente de confianza y comunicación que permita el acercamiento con la PME y si es requerido la contención necesaria, en el marco de derechos y deberes dentro de las directrices para disminuir la revictimización, establecidas por el Poder Judicial (Comisión Nacional para el Mejoramiento de la Administración de Justicia, CONAMAJ).
+Según Lipowsky y Stern (1997) citados por Cantón-Duarte y Arboleda (2000) los objetivos de esta intervención son la "instrucción de procedimientos (...) y los papeles desempeñados por las distintas personas que intervienen, familiarizarse con los términos, y conceptos legales, enseñarle técnicas adecuadas de expresión oral, ayudarle a entender la finalidad del sistema judicial penal, conseguir que se sienta cómodo en la sala de audiencias y hacer tomar conciencia de la importancia de decir sólo la verdad".
+El objetivo de la intervención es brindar información, orientación y contención, con el propósito de fortalecer a la PME atendida durante el proceso judicial. Lo anterior, en respuesta a lo indicado en el artículo 123 del Código de Niñez y Adolescencia en el que se especifica que "el Departamento de Trabajo Social y el Departamento de Psicología (sic) del Poder Judicial deberán asistir al menor ofendido y a su familia durante el proceso (.)"; y en concordancia con el derecho de asistencia, retomado en los Principios Fundamentales de Justicia para víctimas de delitos y abuso del poder, aprobados por las Naciones Unidas desde 1985.
+Este Protocolo procura ser una guía conceptual y práctica unificada que permita una prestación de servicios de calidad y no revictimizantes hacia la persona usuaria del Poder Judicial, por lo que contiene los procedimientos y acciones generales y específicas de intervención durante las distintas etapas procesales.
+I. Objetivos:
+· Brindar de manera inmediata o programada, asistencia técnica a PME ante la solicitud de la instancia judicial respectiva para aportar información y orientación acerca de su participación en una diligencia judicial.
+· Generar un ambiente de confianza, comunicación y contención para el acercamiento con la PME en el marco de derechos y deberes correspondiente a las directrices para disminuir la revictimización.
+· Evitar el proceso de revictimización de la persona menor de edad durante las diligencias judiciales por parte de los diferentes actores del proceso.
+II. Población Meta
+Todas las personas menores de 18 años involucradas en diligencias judiciales en su condición de víctima o testigo.
+III. Ámbito de Aplicación
+El presente Protocolo únicamente se aplicará en diligencias judiciales del ámbito penal a:
+· Todas las personas menores de 18 años de edad. No corresponde, si los hechos ocurrieron cuando era PME y al momento de la diligencia es mayor de edad. No aplica si es persona mayor de edad.
+IV. Marco Normativo
+Este protocolo se fundamenta en las siguientes normativas e instrumentos.
+· Código de la Niñez y la Adolescencia, Ley N° 7739.
+· Código Procesal Penal de Costa Rica, Ley Nº 7594.
+· Resolución número 182-2023 del Tribunal de Apelación de Sentencia Penal Juvenil, los Votos 2023-218 del Tribunal de Apelación de Sentencia Penal Juvenil y el voto 2023-164 del mismo Tribunal de Apelación.
+· Circular 02-ADM-2023 del Ministerio Público.
+· Directrices para Reducir la Revictimización de las Personas Menores de Edad en los Procesos Penales emitidos por la CONAMAJ.
+· Directrices para Reducir la Revictimización de Niños, Niñas y Adolescentes en condición de Discapacidad en Procesos Judiciales, el Protocolo de Atención Legal a Víctimas de Delitos Sexuales y Violencia Doméstica Cometidos por Personas Menores de Edad.
+· Protocolo de Atención a Víctimas Mayores y Menores de Edad de Delitos Sexuales y Explotación Sexual Comercial Cometidos por Personas Mayores de Edad y otros similares.
+V. Consideraciones generales para la atención de las PME
+Las consideraciones que se presentan deben ser entendidas en un marco de buenas prácticas, con el objetivo de facilitar el proceso de interacción con las PME, en las diferentes diligencias en las que participen en el ámbito judicial, desde un enfoque centrado en estas, en un marco de respeto y protección de los derechos de la población menor de edad que faciliten el acceso a la justicia y disminuya la revictimización mediante un trato digno.
+Las consideraciones se dirigen a tres escenarios:
+a. Personal Judicial.
+b. Personas Menores de Edad (PME).
+c. Contexto.
+a. Personal Judicial
+Se debe conocer y aplicar las reglas de no revictimización publicadas por la CONAMAJ. Cuando se realice la atención a las PME en las diligencias judiciales, al momento de llamarlas a una oficina o despacho, deberá hacerse por su nombre y apellidos, erradicando cualquier práctica que haga referencia al tipo de delito o asunto que motive su intervención.
+Presentarse con la PME, explicar el rol y las diligencias a realizar.
+Cuando se interactúa con la PME mantener una posición horizontal (colocarse a la misma altura que esta, promover el contacto visual), para favorecer la empatía y explorar si se encuentra en condiciones físicas para participar en la diligencia.
+Identificar si hay necesidades inmediatas que solventar, a saber, atención médica, alimentación, entre otros.
+Atender las preguntas que realice la PME y si no conoce la respuesta indicar que no la sabe, si es posible y pertinente se debe buscar la información requerida, recuerde que debe utilizar un vocabulario accesible de fácil comprensión y no cambiar ni interpretar los términos utilizados por las PME.
+No ofrecer a las PME objetos, amistad, golosinas o premios, ni hacer promesas o intentar manipularla para obtener la información o respuesta deseada.
+No exponer a la PME a tiempos de espera prolongados. Mantener una actitud de escucha, comprensiva y tolerante frente a determinadas conductas o reacciones. Utilizar frases afirmativas. Ante situación de riesgo para la PME coordinar con el Patronato Nacional de la Infancia.
+b. Personas menores de edad (PME)
+Con respecto a las PME se debe tomar en cuenta el vocabulario y el contexto de referencia, reconocer las necesidades específicas por su situación psicosocial, discapacidad o deprivación cultural, habilidades del desarrollo según la etapa evolutiva, entre otros.
+Hay que recordar que los tiempos de atención varían de acuerdo con cada persona y el estímulo al que hayan sido expuestas.
+Preferiblemente tener un objeto desestresante para el uso de la PME y respetar sus silencios.
+c. Contexto
+El espacio físico en el que se realiza la intervención debe ser un lugar privado sin interrupciones, alejado de centros de impresión, de atención al público o de centrales telefónicas, entre otros, preferiblemente informar al resto del personal que se está abordando a una PME para que no interfieran en el abordaje.
+Ni el espacio del abordaje ni la persona profesional debe tener distractores que eviten la concentración de la PME.
+Respetar el derecho a la privacidad y procurar la generación de un ambiente de empatía, seguridad y confianza.
+SUPUESTOS OPERATIVOS
+1. Involucramiento de otras instancias para su ejecución
+Con el fin de lograr el alcance necesario de este Protocolo, se requiere que sea de conocimiento e implementación de las demás instancias judiciales que forman parte del desarrollo de diligencias pertinentes en material penal, a saber, Ministerio Público, Tribunal de Juicio, Defensa Pública, Judicatura y Organismo de Investigación Judicial.
+2. Personal que interviene
+Personal profesional en Trabajo Social y en Psicología del Departamento de Trabajo Social y Psicología, tanto personas peritas judiciales 2 como profesionales 2 de Justicia Restaurativa.
+3. Material requerido
+· Boleta única de referencia al Departamento de Trabajo Social y Psicología.
+· Informe de Atenciones Inmediatas: corresponde a la boleta de atención inmediata que se consigna al culminar la diligencia.
+· Orden en que se brinda la atención. Las atenciones inmediatas serán efectuadas según el orden en que ingrese la boleta de referencia al Departamento de Trabajo Social y Psicología por parte del despacho solicitante y se atenderán de conformidad con la capacidad operativa de los recursos existentes en las Oficinas de Trabajo Social y Psicología. Esto debido a que no se cuenta con la posibilidad para brindar abordaje a todas las diligencias judiciales penales donde participe una persona menor de edad en condición de víctima o testigo. Aunado a que la cantidad de personal en las distintas oficinas del departamento no es la misma, incluso hay oficinas donde solo hay una persona profesional para atender todas la materias y procesos de intervención.
+GENERALIDADES DE LAS ATENCIONES INMEDIATAS EN SEDE PENAL
+Con la implementación de este Protocolo se pretende evitar o minimizar la revictimización secundaria de las personas usuarias, mediante el uso adecuado de la entrevista forense con las PME, en el contexto de las atenciones inmediatas en los diferentes momentos del proceso judicial en el ámbito penal.
+Se consideran como alcances de este tipo de intervención los siguientes aspectos:
+· Brindar atención en fiscalía, juicio, reconocimiento, anticipo jurisdiccional de prueba y otras instancias en sede penal, en las que se requiera atención de personas usuarias menores de edad.
+· Desarrollar un ambiente de confianza.
+· Orientar e informar acerca de la labor de la fiscalía y/o de las instancias penales correspondientes.
+· Orientar e informar acerca de la labor de Trabajo Social y Psicología.
+· Informar acerca de la dinámica de la diligencia judicial y del rol de las personas participantes.
+· Explicar la importancia de decir la verdad.
+· Informar acerca de los derechos de las PME (ver anexo #3).
+· Brindar apoyo y contención (espacios de relajación, manejo de temores, mitos y otros).
+· Coordinar con la autoridad judicial a cargo para la referencia de la persona a otras instituciones cuando se detectan condiciones de riesgo.
+· Dar indicaciones específicas a las personas progenitoras o encargadas de la PME acerca del proceso judicial.
+Es oportuno aclarar varios aspectos acerca de la atención inmediata:
+· No es un servicio psicoterapéutico ni de intervención en crisis que involucre un seguimiento posterior.
+· La atención podría verse limitada debido al estado emocional de la PME.
+· Se emite criterio técnico acerca de la posibilidad de la PME de participar en la diligencia judicial.
+· En aras del respeto del interés superior de la PME, la intervención no consiste en influir en su discurso (denuncia, declaración, retractación o retiro de denuncia), ni en convencer a la persona de participar en el proceso judicial.
+· No se trata de un recurso de recreación ni de actividades lúdicas.
+· No es un servicio de cuido a PME, toda vez que la intervención profesional es de carácter técnico, de preparación y contención para que la PME pueda participar en la diligencia, por lo que el resguardo previo de esta, en recesos (entre la misma audiencia o en el corte entre la primera y segunda audiencia) o posterior a su participación en la diligencia judicial, no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología.
+La intervención de las personas profesionales del Departamento de Trabajo Social y Psicología en la atención inmediata, obedece a una solicitud escrita o digital por parte de la autoridad judicial en sede penal, mediante la Boleta Única de Referencia, asegurándose que la persona referida sea una PME.
+En cualquier acompañamiento técnico fuera de las instalaciones judiciales, se deberán garantizar las condiciones de infraestructura mínimas de privacidad y seguridad para la PME (ver anexo # 2). Se deberá tener especial cuidado de cualquier situación o condición que afecte la integridad de la PME que se encuentra en la diligencia en curso (contacto con la persona imputada, exposición en público de la gestión o cualquier otra situación revictimizante).
+Fases de las atenciones inmediatas:
+Las atenciones inmediatas contemplan las siguientes fases a ejecutar por parte de la persona profesional del Departamento de Trabajo Social y Psicología:
+1. Previo a la diligencia judicial: para iniciar dicha intervención, se debe:
+· Revisar el expediente judicial, la denuncia o realizará la coordinación para identificar quién es la persona/institución que da parte a las autoridades judiciales, así como el contexto en el que surge o se da la revelación de los supuestos hechos a denunciar.
+· Conocer información básica acerca del tipo de delito y la participación de la PME ya sea como ofendida o testigo para orientar el abordaje.
+· Tomar acciones en procura de la estabilidad emocional de la PME. Se prestará atención a respuestas emocionales como temor, enojo, tristeza, entre otros.
+· Indagar si la PME conoce el motivo por el cual ha sido llamada y explicar el procedimiento que se va a desarrollar.
+· En caso de identificar alguna condición fisiológica (por ejemplo, requerimientos de alimentación, medicación, cansancio, sueño, entre otros) que limite el desempeño de la PME durante la diligencia, debe ser comunicada previamente al personal fiscal a cargo.
+· Informar a la PME acerca de sus derechos y deberes.
+· Identificar si existe alguna condición externa que pudiera afectar o coaccionar su desempeño (presión, amenaza, manipulación, entre otros).
+· Reconocer habilidades necesarias para la diligencia (escolaridad, capacidad en lecto-escritura, habilidad visual o si presenta limitaciones verbales, visuales, auditivas y otras, por ejemplo: si no sabe leer y escribir, puede reconocer a través de colores u objetos).
+· Explorar la presencia o no de redes de apoyo efectivas en función del proceso judicial y comunicar lo que corresponda.
+· Informar acerca de las personas participantes y su rol según la diligencia que corresponda (fiscalía, defensa, personal del Organismo de Investigación Judicial, Judicatura, profesional del DTSP).
+· Aclarar las dudas que formule la PME y la persona encargada.
+· Dar a conocer a la PME la importancia de decir la verdad y brindar todos los detalles según sus posibilidades.
+· No es un servicio de cuido a PME, toda vez que la intervención profesional es de carácter técnico, de preparación y contención para que la PME pueda participar en la diligencia, por lo que el resguardo previo de esta, en recesos (entre la misma audiencia o en el corte entre la primera y segunda audiencia) o posterior a su participación en la diligencia judicial, no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología.
+2. Durante la diligencia:
+· Acompañar a la PME al lugar requerido, además de brindar el acompañamiento la persona profesional del Departamento de Trabajo Social y Psicología, debe dar apoyo y contención si es necesario, por lo que valorará solicitar una pausa durante la diligencia para brindar dicha contención, o bien para realimentar durante el receso al personal responsable que dirige la diligencia. La persona profesional del Departamento de Trabajo Social y Psicología puede intervenir para señalar cualquier aspecto que esté revictimizando o confundiendo a la PME, así como por la existencia de acciones de las personas intervinientes que no estén acordes con la protección de derechos de las PME. Lo anterior de acuerdo con la resolución número 182-2023 del Tribunal de Apelación de Sentencia Penal Juvenil, aunado a lo expresado en los votos 2023-218 del Tribunal de Apelación de Sentencia Penal Juvenil y el voto 2023-164 del mismo Tribunal de Apelación.
+· No es un servicio de cuido a PME, toda vez que la intervención profesional es de carácter técnico, de preparación y contención para que la PME pueda participar en la diligencia, por lo que el resguardo previo de esta, en recesos (entre la misma audiencia o en el corte entre la primera y segunda audiencia) o posterior a su participación en la diligencia judicial, no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología.
+3. Al finalizar la diligencia:
+· Se debe agradecer a la PME por la información aportada y realizar el cierre correspondiente.
+Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+Diligencias en las que se realizan atenciones inmediatas:
+Durante el proceso penal judicial se identifican las siguientes diligencias en las que se requiere el acompañamiento técnico especializado por parte de las personas profesionales del Departamento de Trabajo Social y Psicología:
+1. Recepción de la denuncia en Fiscalía.
+2. Reconocimiento de personas y lugares.
 3. Anticipos jurisdiccionales de prueba.
-4. Juicio oral o debate.
-5. Entrevista en otros despachos o instancias judiciales en sede penal.
-6. Retratos Hablados.
-7. Acompañamientos para hacer reconocimientos de lugares.
-1- ACOMPAÑAMIENTO TÉCNICO EN RECEPCIÓN DE LA DENUNCIA
-La intervención del o la profesional del DTSP en la recepción de la denuncia, obedece a una solicitud escrita por parte de la autoridad judicial en sede penal; mediante la Boleta Única de Referencia.
-Por su parte, la (el) auxiliar administrativo (a) recabará los datos referentes al proceso judicial en la boleta de atención inmediata; a saber: número de expediente, partes, causa, nombre y edad de la persona referida, relación con la persona denunciada. Posteriormente comunica a la /el profesional responsable para que efectúe la intervención.
-Si el acompañamiento es programado el (la) auxiliar administrativo (a) del DTSP confirma con la autoridad judicial, la asistencia de la persona menor de edad a la diligencia.
-Para realizar estos acompañamientos técnicos la o el profesional interviene en tres etapas:
-1.1 Previo a la entrevista:
-Para dar inicio a dicha intervención, se debe revisar el expediente judicial o la denuncia referencial o realizar la coordinación para identificar quién es la persona/institución que da parte a las autoridades judiciales, así como el contexto en el que surge o se da la revelación de los supuestos hechos a denunciar.
-1.2. Abordaje con la persona menor de edad referida
-En primer orden, la o el profesional se presenta, confirma el nombre con la persona menor de edad referida y la persona que acompaña e informa acerca de la intervención, en un área que cuente con condiciones de privacidad y mobiliario básico, preferentemente acondicionada para este tipo de atención, cumpliendo con lo estipulado por la CONAMAJ.
-1.2.1 Con la persona encargada o quien acompaña explorar:
-Acerca de aspectos relevantes del contexto psicosocial a fin de determinar condiciones que inciden en la recepción de la denuncia, factores de riesgo y factores protectores.
-Posteriormente, se solicita al acompañante o encargada(o) su egreso, para continuar a solas con la persona referida.
-1.2.2 Con la persona menor de edad referida
-Se destaca que el o la profesional deberá constatar los aspectos que se detallan a continuación, de acuerdo con las particularidades del caso:
-- Nombre de la persona referida, edad, sexo.
-- Intereses o aficiones de la persona referida para facilitar el establecimiento del rapport.
-- Establecer la Etapa de Rapport, familiarización con el medio ambiente y las personas participantes en el proceso. Abordar aspectos significativos para la persona menor de edad que la hagan sentir cómoda.
-- Identificar consideraciones relevantes acerca de las habilidades funcionales de la PME, así como idioma, creencias religiosas, deprivación sociocultural.
-- Conocimiento de la persona menor de edad acerca de la
-diligencia judicial.
-- Informar sus derechos y deberes durante el proceso judicial, labores que realiza la institución y la diligencia a realizar.
-- Composición de la familia / acuerdos de custodia.
-- Nombres de los miembros de la familia y de personas cuidadoras, cuando la PME se refiere a otras figuras de importancia para él/ella, prestar atención a los apodos y a los nombres repetidos, para diferenciarlos.
-- Organización de la familia o grupo de convivencia, en cuanto a horarios y condiciones del cuido de la PME.
-- Hábitos de la familia o aspectos relacionados con los temas alegados (por ejemplo, ducharse en familia, progenitores que permiten que los niños(as) entren al baño cuando están desnudos, juego físico o hacer cosquillas).
-- Los nombres que la PME y la familia le da a las partes del cuerpo.
-- Tratamiento médico relevante o enfermedades. Si tiene prescripción farmacológica, el horario de ingesta y si el día de la entrevista lo tomó de acuerdo con lo recetado.
-- Consumo de sustancias tóxicas (tratamiento o rehabilitación).
-- Conocimientos de educación sexual o de programas de
-prevención de la violencia.
-- Se explora la motivación de la denuncia (procesos judiciales paralelos).
-- La relación o vínculo con la persona denunciada.
-- Reacciones del grupo familiar o personas encargadas, al conocer de los aparentes hechos.
-- Aspectos relevantes del contexto psicosocial a fin de determinar condiciones que inciden en la recepción de la denuncia, factores de riesgo y factores protectores tanto en el entorno inmediato como Institucional (tales como antecedentes de abuso sexual, violencia intrafamiliar, revelación de los aparentes hechos, a cuántas y cuáles personas los ha narrado, entre otros).
-- Otros factores de riesgo, que hagan necesaria la intervención del
-Patronato Nacional de la Infancia (reubicación de la PME referida).
-- En caso de que la diligencia vaya a realizarse en cámara de Gessell, explicar las características del recurso.
-- Explicar la participación de las personas intervinientes (El rol que asumirá la o el profesional a cargo (trabajo social / psicología), el rol del o la fiscal, y cuando se está en cámara de Gessell la del o la técnico operador(a) de la cámara).
-- Se le informa de la posibilidad de que se grabe en audio y video, cuando corresponda.
-- Se le explica el uso de la información que pueda brindar.
-- Importancia de decir la verdad y detallar con claridad y en el orden que recuerda lo que vaya a contar.
-- Si son mayores de 12 años, la responsabilidad penal que contempla la Ley de Justicia Penal Juvenil.
-- Informarle sobre sus derechos y deberes (ver anexos)
-1.3. Reporte de los hallazgos al o la fiscal encargado (a).
-- En este momento la o el profesional debe procurar buscar un espacio adecuado y privado para informar verbalmente al o la fiscal acerca de aquellos aspectos relevantes que pueden incidir en la entrevista, por ejemplo: relación con el imputado, capacidad de la persona usuaria para ubicarse en tiempo, espacio, persona, claridad en el lenguaje, redes de apoyo, riesgos, entre otros.
-1.4. Durante la entrevista de los supuestos hechos por denunciar
-- De acuerdo con la Circular 22-ADM-2008 del Ministerio Público es obligación del o la fiscal, la ejecución de la entrevista.
-- El rol del o la profesional del DTSP en esta etapa, es coadyuvar, en caso necesario, en la recepción de la denuncia para evitar elementos revictimizantes y brindar apoyo emocional a la persona menor de edad; amparadas las preguntas según lo establecido por el Código de la Niñez y la Adolescencia y en las directrices de no revictimización.
-- El o la profesional observa y toma notas de aspectos importantes para realimentar, durante el receso, al o la fiscal que dirige la recepción de la denuncia
-- Finalizada la intervención agradecer a la persona menor de edad por la información aportada y realizar el cierre.
-- No es responsabilidad del o la profesional efectuar el cuido antes o después de la diligencia.
-2- ACOMPAÑAMIENTO TÉCNICO EN RECONOCIMIENTO:
-La intervención del o la profesional del DTSP en el proceso de reconocimiento, obedece a una solicitud escrita previa de acompañamiento a la PME, por parte del Ministerio Público, utilizando la Boleta Única de Referencia.
-El o la profesional que asiste o acompaña a la PME debe:
-- Presentarse, confirmar el nombre con la persona referida o la persona que acompaña e informar acerca de la intervención, en un área que cuente con condiciones de privacidad y mobiliario básico, preferentemente acondicionada para este tipo de atención cumpliendo con lo estipulado por la CONAMAJ.
-- Conocer información básica acerca del tipo de delito y de la posición de la persona menor de edad dentro del proceso judicial (ofendida o testigo); para orientar el abordaje.
-Se identifican 4 etapas en esta intervención:
-2.1. Previo al reconocimiento:
-- Identificar si existe alguna condición externa que pudiera afectar o coaccionar su desempeño (presión, amenaza, chantaje, entre otros).
-- Reconocer habilidades necesarias para la diligencia (escolaridad, lateralidad, capacidad en lecto-escritura, habilidad visual o si presenta limitaciones verbales / visuales, ejemplo: si no sabe leer y escribir, puede reconocer a través de colores u objetos).
-- Identificar cualquier condición que limite el desempeño de la persona menor de edad durante la diligencia, debe ser comunicada previamente al o la fiscal a cargo.
-- Tomar acciones en procura de que favorezcan la estabilidad a la PME, en caso de identificar elementos de afectación emocional (técnicas para disminuir la ansiedad, relajación, respiración, otros). (Ver anexo)
-- Indagar si la PME conoce el motivo por el cual ha sido llamada y explicar el procedimiento que se va a desarrollar para el reconocimiento.
-- Dar a conocer los derechos de la persona usuaria referida
-durante la diligencia. (Ver anexo)
-- Explorar acerca del soporte familiar y redes de apoyo.
-- Informar acerca de las personas participantes y su rol (fiscal, defensor, profesional del Departamento).
-- Describir las condiciones físicas del lugar en el que se realizará el reconocimiento.
-2.2. Durante el encuadre previo al reconocimiento.
-- Asistir a la PME durante el encuadre que hace el o la fiscal y la defensa, previo al inicio de la diligencia.
-- El rol del o la profesional del DTSP en esta etapa, es coadyuvar técnicamente, en caso necesario, para evitar elementos revictimizantes y brindar apoyo emocional a la PME.
-2.3. Durante el reconocimiento.
-- Acompañar a la PME al lugar requerido para el reconocimiento.
-- La participación del o la profesional del DTSP se centra en brindar el acompañamiento, y si es necesario dar apoyo y contención.
-2.4 Al finalizar el reconocimiento:
-- Realizar el cierre.
-- No es responsabilidad del o la profesional efectuar el cuido antes o después de la diligencia.
-3. ACOMPAÑAMIENTO TÉCNICO EN ANTICIPO JURISDICCIONAL DE PRUEBA
-Esta intervención surge a partir de la solicitud del Juzgado Penal o Fiscalía cuando se requiera brindar la atención de una persona menor de edad que debe participar en esta diligencia. Dicha solicitud debe ser remitida previamente por medio de la boleta única de referencia una vez que ésta sea señalada por el despacho.
-La o el asistente administrativo de la Oficina asigna al profesional que le corresponde, siguiendo el rol establecido; además, revisa antecedentes de atención en el DTSP con el fin de evitar, en la medida de lo posible que el o la profesional que realizó el peritaje efectúe el acompañamiento.
-Una vez asignado el caso, el o la profesional procede a programar en agenda y de existir antecedentes del DTSP procura revisarlos.
-El o la profesional que brinda el acompañamiento técnico, requiere contar con un espacio privado y con las condiciones adecuadas para abordar a la persona usuaria. (Ver Anexo).
-Además, debe conocer información acerca del tipo de delito (revisión del expediente judicial, coordinación con el o la fiscal a cargo y /o con la o el responsable de la persona menor de edad).
-Se identifican tres etapas en esta intervención:
-3.1. Previo al anticipo:
-- Explorar si conoce para qué ha sido llamada o llamado y explicar sobre el procedimiento que se va desarrollar en el anticipo jurisdiccional. Indicar objetivos y motivos por los que se realiza la diligencia (ejemplo: salida del país de algunas de las partes, edad de la víctima, condición de salud, entre otros).
-- Identificar si existe alguna condición externa que pudiera afectar o coaccionar su desempeño (presión, amenaza, chantaje, entre otros).
-- Reconocer habilidades necesarias para la diligencia (escolaridad, lateralidad, capacidad en lecto-escritura, habilidad visual o si presenta limitaciones verbales / visuales, ejemplo: si no sabe leer y escribir, puede reconocer a través de colores u objetos).
-- Cualquier condición que limite el desempeño de la persona menor de edad durante la diligencia, debe ser comunicada previamente al o la fiscal a cargo.
-- Tomar acciones en procura de que favorezcan la estabilidad a la persona menor de edad, en caso de identificar elementos de afectación emocional (técnicas para disminuir la ansiedad, relajación, respiración, otros). (Ver anexo)
-- Dar a conocer los derechos de la persona usuaria referida durante la diligencia. (Ver anexo)
-- Explorar acerca del soporte familiar y redes de apoyo.
-- Indicar quienes serán las personas participantes y su rol (juez (a), fiscal, defensor(a), imputado(a), auxiliar judicial, profesional que brinda el acompañamiento).
-- Aclarar las dudas que formule la persona menor de edad y la persona encargada (o).
-3.2. Durante la declaración:
-- Asistir técnicamente a la persona menor de edad durante la declaración.
-En ese momento se orienta y brinda contención y apoyo. En caso de ser necesario solicitar al Juez o Jueza una pausa durante la audiencia a fin de brindar dicha contención.
-3.3. Posterior a la declaración:
-- Realizar el cierre.
-- No es responsabilidad del o la profesional efectuar el cuido antes o después de la diligencia.
-4- ACOMPAÑAMIENTO TÉCNICO EN JUICIO ORAL O DEBATE:
-Esta intervención surge a partir de la solicitud del Tribunal de Juicio o Fiscalía cuando se requiera brindar la atención de una persona menor de edad que debe participar en esta diligencia. Dicha solicitud debe ser remitida previamente por medio de la boleta única de referencia una vez que ésta sea señalada por el despacho.
-La o el asistente administrativo de la Oficina asigna al profesional que le corresponde, siguiendo el rol establecido; además, revisa antecedentes de atención en el DTSP con el fin de evitar, en la medida de lo posible que el o la profesional que realizó el peritaje efectúe el acompañamiento; de ser así, proceder conforme a los lineamientos del DTSP.
-Una vez asignado el caso, el o la profesional procede a programar en agenda y en caso de existir antecedentes del DTSP procura revisarlos.
-El o la profesional que brinda el acompañamiento técnico, requiere contar con un espacio privado y con las condiciones adecuadas para abordar a la persona menor de edad. (Ver Anexo).
-El o la profesional que realiza el acompañamiento técnico debe conocer información acerca del tipo de delito (revisión del expediente judicial, coordinación con el o la fiscal a cargo y /o con la o el responsable de la persona menor de edad).
-Se identifican tres etapas en esta intervención:
-4.1. Previo al debate:
-- Explorar si la persona menor de edad conoce la razón por la cual ha sido convocada y explicar el procedimiento que se va desarrollar.
-- Identificar si existe alguna condición externa que pudiera afectar o coaccionar su desempeño (presión, amenaza, chantaje).
-- Reconocer habilidades necesarias para la diligencia (escolaridad, lateralidad, capacidad en lecto-escritura, habilidad visual o si presenta limitaciones verbales / visuales, ejemplo: si no sabe leer y escribir, puede reconocer a través de colores u objetos).
-- Cualquier condición que limite el desempeño de la persona menor de edad durante la diligencia, debe ser comunicada previamente al o la fiscal a cargo.
-- Tomar acciones en procura de que favorezcan la estabilidad de la persona menor de edad, en caso de identificar elementos de afectación emocional (técnicas para disminuir la ansiedad, relajación, respiración, otros). (Ver anexo)
-- Dar a conocer los derechos de la persona usuaria referida
-durante la diligencia. (Ver anexo)
-- Indicar quienes serán las personas participantes y su rol (juez (a), fiscal, defensor(a), imputado(a), auxiliar judicial, profesional que brinda el acompañamiento).
-- Aclarar las dudas que formule la persona menor de edad y su encargada (o).
-- Informar sobre la existencia y uso de recursos tecnológicos durante la declaración (computadoras, micrófonos, cámaras, otras evidencias, etc).
-- Indicar a la persona menor de edad que responda con tono de voz fuerte y clara, directo hacia el micrófono, indicar importancia por qué la prueba oral es grabada.
-- Favorecer la desculpabilización acerca de las derivaciones del proceso y de las decisiones de los jueces o juezas en la aplicación de la ley.
-4.2. Durante la declaración:
-- Asistir técnicamente a la persona menor de edad durante la declaración.
-En ese momento se orienta y brinda contención y apoyo. En caso de ser necesario solicitar al Juez o Jueza una pausa durante la audiencia a fin de brindar dicha contención.
-4.3. Posterior a la declaración:
-- Realizar el cierre.
-- No es responsabilidad del o la profesional efectuar el cuido antes o después de la diligencia.
+4. Entrevista en instancias judiciales en sede penal.
+5. Retratos hablados.
+6. Juicio oral o debate.
+TIPOS DE ACOMPAÑAMIENTOS
+Al inicio de cada acompañamiento se deberá hacer una presentación personal y explicar el rol profesional. Además, se deberá explorar si la PME conoce el motivo de su participación y explicar el procedimiento que se desarrollará (dinámica y propósito).
+A continuación, se especifican el abordaje durante cada diligencia de atención inmediata:
+1. Acompañamiento técnico en la recepción de la denuncia a PME
+Abordaje general con la persona encargada o quien acompaña, explorar:
+· Condiciones que inciden en la recepción de la denuncia, factores de riesgo y factores protectores. Posteriormente, se solicita a la persona acompañante su egreso, para continuar a solas con la persona referida.
+Con la persona referida:
+Se destaca que la persona profesional no abordará los hechos en investigación, deberá constatar los aspectos que se detallan a continuación, de acuerdo con las particularidades del caso:
+· Nombre de la persona referida, edad, sexo.
+· Intereses o aficiones de la persona referida para facilitar el establecimiento del ambiente de confianza.
+· Familiarizar a la PME con el ambiente y las personas participantes en el proceso.
+· Abordar aspectos significativos para la PME que la hagan sentir cómoda, tales como llamarle por el nombre propio, mostrar una escucha activa, ofrecer un espacio físico adecuado, responder sus preguntas, así como promover un espacio seguro y empático.
+· Explorar consideraciones relevantes acerca de las habilidades y destrezas de la PME, así como idioma, creencias religiosas, deprivación sociocultural, otros.
+· Explorar el conocimiento que tiene la PME acerca de la diligencia judicial, del motivo por el que acude al sistema judicial.
+· Informar acerca de sus derechos y deberes durante el proceso judicial, labores que realiza la institución y la diligencia a llevar a cabo.
+· Identificar el vínculo con la persona que le acompaña.
+· Nombres de los miembros de la familia y de personas cuidadoras, cuando la PME se refiere a otras figuras de importancia, prestar atención a los sobrenombres y a los nombres repetidos, para diferenciarlos.
+· Organización de la familia o grupo de convivencia, en cuanto a horarios y condiciones del cuido de la PME.
+· Los nombres que la PME le da a las partes del cuerpo.
+· Tratamiento médico relevante o enfermedades. Si tiene prescripción farmacológica, el horario de ingesta y si el día de la entrevista lo tomó de acuerdo con lo recetado.
+· Consumo de sustancias psicoactivas.
+· Conocimientos de educación sexual o de programas de prevención de la violencia.
+· Se explora la motivación de la denuncia.
+· La relación o vínculo con la persona denunciada.
+· Reacciones del grupo familiar o personas encargadas, al conocer de los aparentes hechos.
+· Aspectos relevantes del contexto psicosocial a fin de determinar condiciones que inciden en la recepción de la denuncia, factores de riesgo y factores protectores tanto en el entorno inmediato como institucional.
+· Factores de riesgo que hagan necesaria la intervención del Patronato Nacional de la Infancia (reubicación de la PME referida).
+· Explicar las características de la cámara de Gesell, en caso de que la diligencia vaya a realizarse en esta.
+· Explicar la participación de las personas intervinientes (el rol que asumirá la persona profesional a cargo (trabajo social / psicología), el rol de la persona fiscal y de la persona técnica operadora cuando se realice la diligencia en cámara de Gesell.
+· Se le informa la posibilidad de que se grabe en audio y video, cuando corresponda. El resguardo de la información y las diligencias asociadas en este procedimiento le corresponde al Ministerio Público.
+· Se le explica el uso de la información que pueda brindar.
+· Dar a conocer a la PME la importancia de decir la verdad y brindar todos los detalles según sus posibilidades.
+· Reporte de los hallazgos encontrados mediante informe de atención inmediata al personal de la fiscalía encargado.
+· En este momento la persona profesional debe procurar la localización de un espacio adecuado y privado para informar verbalmente al personal de la fiscalía acerca de aquellos aspectos relevantes que pueden incidir en la entrevista, por ejemplo: relación con la persona imputada, si la persona usuaria se ubica en tiempo, espacio, persona, claridad en el lenguaje, redes de apoyo, riesgos, entre otros.
+· Si es pertinente la intervención de otra institución, se le informará al Ministerio Público para que proceda según lo considere.
+Durante la entrevista de los supuestos hechos por denunciar
+Según la circular 02-ADM-2023 del Ministerio Público se indica la obligatoriedad de la persona fiscal asignada de tomar la denuncia de la víctima y la entrevista como testigo de una PME. Si bien lo anterior, considerando que en algunos lugares carecen de personal fiscal que pueda llevar a cabo esta diligencia, se deben acatar las disposiciones emitidas por el Ministerio Público en tanto es posible realizar la toma de denuncias de las PME por parte del personal técnico judicial, para lo cual el personal del Departamento de Trabajo Social y Psicología deberá consignar este dato junto con su firma en la denuncia correspondiente, de igual manera deberá anotarlo en el informe de atención inmediata.
+El rol de la persona profesional del Departamento de Trabajo Social y Psicología en esta etapa, es coadyuvar, en caso necesario, en la recepción de la denuncia para evitar elementos revictimizantes y brindar apoyo emocional a la PME.
+No corresponde a la persona profesional del Departamento de Trabajo Social y Psicología la realización de las prevenciones de ley, es decir, aplicar el derecho de abstención en relación con familiares, el derecho de no autoincriminarse, deber de decir la verdad, derecho a delegar la acción civil resarcitoria y derecho de querellar.
+Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+2. Acompañamiento técnico en reconocimiento:
+· En este tipo de intervención se deben explorar aspectos como la escolaridad, capacidad en lecto-escritura, habilidad visual o si presenta algún déficit sensorial.
+· Es relevante describir las condiciones físicas del lugar en el que se realizará el reconocimiento, cuando se trata de reconocimiento de personas, aclarar que esta diligencia la realizará desde un lugar en el que no puede ser observado (a) por las personas que participan en esa actividad, que se le solicitará previamente que describa detalles para la individualización.
+· Igualmente, cuando es un lugar por reconocer, hacer referencia a la importancia de recordar aspectos que lo caractericen como, por ejemplo: rótulos, negocios, aspectos específicos de la zona.
+· Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+3. Acompañamiento técnico en anticipo jurisdiccional de prueba
+· Explorar si la PME conoce las razones de su llamado y explicar el procedimiento correspondiente a la atención inmediata y toma de denuncia que se desarrollará en el anticipo jurisdiccional.
+· Asistir técnicamente a la PME durante la declaración. Además, el personal del Departamento de Trabajo Social y Psicología puede ejercer un rol de interlocutor en el planteamiento de las preguntas, por parte de las personas intervinientes.
+· Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+4. Retratos hablados
+· En este tipo de intervención se debe tener presente que los elementos que la PME va a remitir, permitirá reconstruir una imagen lo más parecida a la persona que se investiga, en razón de que no se tiene la identidad, por lo que su información es una pieza fundamental. Se debe indicar a la PME que procure hacer un recuento de todas las características físicas de la persona, así como que todos los cambios que el dibujo requiera puede realizarlos, puesto que ella es la que sabe cómo es esa persona, forma de los ojos, el rostro, los pómulos, la nariz, tipos de cabello, entre otros. La información que aporte es un insumo para la investigación, en el tanto se le coloca un rostro a esa diligencia judicial, por lo que se refuerza que puede corregir al dibujante las veces que sean necesarias.
+· Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+5. Acompañamiento técnico en juicio oral o debate:
+· La solicitud debe ser remitida previamente por medio de la Boleta única de referencia, una vez que el juicio sea señalado por el despacho.
+· Se debe indicar a la PME que la persona imputada tiene derecho a escuchar la declaración, no obstante, no tendrá contacto directo con ésta, por lo que el Ministerio Público es responsable de las diligencias correspondientes para asegurar las condiciones necesarias de que la PME no esté expuesta a su presunto victimario.
+· Informar acerca de la existencia y uso de recursos tecnológicos durante la declaración (computadoras, pantallas, micrófonos, cámaras).
+· Se debe indicar a la PME que responda con tono de voz fuerte y claro, directo hacia el micrófono, señalar la importancia de las razones por las cuales la diligencia oral es grabada.
+· Es importante tomar en cuenta que la persona profesional del Departamento de Trabajo Social y Psicología, tiene la responsabilidad de intervenir para señalar cualquier aspecto que esté revictimizando o confundiendo a la persona víctima, sea en el interrogatorio, contrainterrogatorio o por acciones de las personas intervinientes. Lo anterior de acuerdo con la resolución número 182-2023 del Tribunal de Apelación de Sentencia Penal Juvenil, aunado a lo expresado en los votos 2023-218 del Tribunal de Apelación de Sentencia Penal Juvenil y el voto 2023-164 del mismo Tribunal de Apelación.
+Para la intervención profesional en la que se requiera hacer valer los derechos de la PME se procederá de la siguiente forma:
+1. Solicitar al Tribunal de juicio o persona juzgadora el permiso para participar.
+2. Realizar la observación con respecto al abordaje de determinada situación sea por parte del personal de la judicatura, de la Defensa Pública o privada, el Ministerio Público y profesional en derecho querellante.
+3. Si es necesario se podrá solicitar un receso en función de satisfacer una necesidad específica de la PME.
+4. Agradece el espacio concedido.
+Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.
+6. Entrevista en otros despachos o instancias judiciales en sede penal:
+Además, de las intervenciones descritas podrían emerger solicitudes de atención inmediata por parte de la Inspección Judicial u Organismo de Investigación Judicial, ya sea PME testigo o persona víctima según corresponda, en estos casos puede ser relevante la exploración del contexto psicosocial para determinar condiciones que inciden en la recepción de la información, factores de riesgo y protectores en el entorno inmediato e institucional.
+Se reitera que no es responsabilidad de la persona profesional del Departamento de Trabajo Social y Psicología efectuar el cuido de la PME en ninguna de las fases de la atención inmediata, toda vez que la intervención técnica es de preparación y contención.

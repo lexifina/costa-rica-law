@@ -13,3 +13,4 @@ Protocolo de Atención Inmediata a personas menores de edad, víctimas y testigo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-02 | la propia norma |
+| 2 | 2026-03-06 | Circular 38 (2026-03-06) |

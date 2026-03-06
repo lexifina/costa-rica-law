@@ -1,17 +1,46 @@
-Anexo 3
-Técnicas de relajación infantil para ser utilizadas
-en Atenciones Inmediatas
-(Información recopilada por MPs. John Walter
-Acosta Peña, Psicólogo Forense)
-Dentro del marco del cumplimiento de lo estipulado en el Código de la Niñez y Adolescencia de Costa Rica, en su artículo 123, es labor de los y las profesionales en trabajo social y psicología del Poder Judicial, brindar el respectivo acompañamiento a las personas menores de edad ante las instancias judiciales en las que se requiriese su participación en procesos en los que figuren como víctimas o testigos en declaración y reconocimiento de hechos delictivos, durante el proceso investigativo del Ministerio Público o en juicio.
-En este ámbito, es de esperarse que las personas menores de edad experimenten tensión y ansiedad, al sentirse sometidos ante situaciones desconocidas en las que, además, podrían ser depositarios de presiones tanto internas como externas.
-Es por esta razón, que es preciso que los y las profesionales acompañantes sean elementos facilitadores en el proceso, sirviendo como figuras de apoyo y de contención en aras de proteger el respeto al interés superior de las personas menores de edad, trascendiendo de esta manera, a una labor meramente informativa o expectadora.
-El conocimiento de técnicas básicas de relajación, se convierte en un valioso instrumento que podría ser utilizado de acuerdo con las particularidades conductuales y emocionales que presentase cada sujeto en atención, con el propósito de que logre calmarse y relajarse de manera tal que se fomente un espacio de tranquilidad y de esta forma, disminuir su eventual estrés muscular y mental proporcionando un estado de bienestar que le ayude a emprender la actividad que se le solicite.
-Es preciso hacer énfasis en que la actitud de la persona acompañante es fundamental, por lo que es necesario que ésta también se encuentre relajada previo a la realización de los ejercicios; asimismo, se debe tomar en consideración que no se debe obligar a la persona menor de edad a realizar ejercicios de relajación, ya que esta es una actividad voluntaria; además, es importante, después de los ejercicios, dejar un tiempo de transición para recuperar el estado normal de activación.
-Siendo así, a continuación se presentan algunas de esas técnicas; a saber:
-Contracción-distensión: Técnica que consiste en contraer un músculo o un grupo de músculos durante unos segundos para luego aflojar la contracción progresivamente.
-Balanceo: Técnica que consiste en imitar el movimiento de un columpio. Se trata de realizar un movimiento de vaivén de delante hacia atrás, o de derecha a izquierda. La parte del cuerpo que se está relajando (por ejemplo, un brazo, una pierna, la cabeza) debe estar distendida y blanda.
-Estiramiento-relajación: Consiste en estirar progresivamente una parte del cuerpo, alargándola lo más posible. Debe mantenerse esa postura durante unos segundos y luego aflojar suavemente esa parte del cuerpo. Es importante aflojarla con suavidad, dejándola caer resbalando, sin que golpee. Después, se balancea ligeramente esa parte del cuerpo.
-Caída: Consiste en dejar que la fuerza de gravedad actué sobre el cuerpo. Luego de haber levantado una parte del cuerpo, la dejamos caer lentamente, resbalando (sin que golpee). Se deja descansar esa parte durante unos segundos y luego se repite el movimiento dos o tres veces.
-De acuerdo a la etapa del desarrollo, se podrían utilizar técnicas de entrenamiento autógeno, en las que se relaja el cuerpo y la mente en forma progresiva mediante ejercicios respiratorios, por ejemplo invitando a la persona a cerrar los ojos, guiándola a respirar en forma diafragmal en conteos de inhalación, expiración del uno al tres y focalizando la relajación de cada una de las partes de su cuerpo (manos y brazos, brazos y hombros, hombros y cuello, mandíbula, cara y nariz, pecho, pulmones y estómago, piernas y pies); se podría incluir el llevarlas” (imaginariamente) a algún lugar que subjetivamente ellas escojan como espacios tranquilizadores, al tiempo que se le transmiten afirmaciones positivas.
-Se debe procurar, para la realización de las técnicas supra descritas, de un espacio adecuado en términos de tranquilidad y de privacidad, de lo contrario, podría constituirse en un elemento más de estrés para la persona menor de edad, al hacerla sentirse incómoda por la eventualidad de ser observada por terceros.
+ANEXO #3
+ENTENDIMIENTOS QUE SE REALIZAN A LA PME
+· Explicarle la importancia de ser veraz.
+· Señalarle que quien conoce detalles es él o ella y la persona que lo atiende no tiene conocimiento al respecto.
+· Indicarle que tiene derecho a que se le respete el vocabulario que está acostumbrado (a) a utilizar.
+· Mencionarle que tiene derecho a utilizar el tiempo que requiera para pensar y expresar sus respuestas.
+· Aclararle que cuando se le reiteran preguntas, es porque quien entrevista no comprendió o necesita más información y no porque no se le crea o esté equivocado (a).
+· Tiene derecho a solicitar que se le reformulen las preguntas que no comprende, con vocabulario acorde con su edad, características personales y contexto.
+· Explicarle que tiene derecho a no recordar algún detalle y a expresarlo en cualquier momento de la conversación, cuando lo recuerde. Que tiene derecho a equivocarse y corregir lo dicho, así como añadir detalles que no le han preguntado.
+· Indicarle a la PME que puede rehusar responder preguntas, porque no conoce el dato.
+· Como ensayo anime a la PME a no estar de acuerdo con usted y corregirle cuando usted mal interprete la información brindada.
+· Indicarle que tiene derecho a un receso para tomar agua, descansar, relajarse, etc.
+GLOSARIO
+Para este Protocolo son relevantes los siguientes términos y definiciones:
+· Atención inmediata: es una intervención técnica que puede ser realizada por la persona profesional en Trabajo Social o Psicología, en una sesión y de manera inmediata para brindar acompañamiento y orientación a las PME durante la diligencia judicial. Esta intervención incluye los primeros auxilios psicológicos (PAP) como estrategia de primera respuesta en los casos requeridos (Ver anexo #1).
+Las personas profesionales en Trabajo Social y Psicología que intervienen en atenciones inmediatas, deben distinguir si la PME está en crisis o si lo que requiere es contención y orientación, dado que ante la primera condición se necesita otro tipo de abordaje especializado que se brinda en el ámbito de salud pública, siendo así, no podría participar en la diligencia judicial en razón de ser contraproducente y revictimizante.
+La diferencia entre intervención en crisis y PAP consiste en que la primera hace referencia a un abordaje de mayor profundidad, mientras que los PAP permiten una atención expedita.
+Considerando lo señalado debe tenerse presente que una atención inmediata no corresponde a un proceso psicoterapéutico.
+· Victimología forense: es el estudio idiográfico y nomotético de las víctimas de delitos violentos con el fin de abordar cuestiones forenses e investigativas. La victimología forense estudia objetivamente a las víctimas, centrándose en describir de manera imparcial y completa todos los aspectos de su vida y estilo de vida para comprender mejor cómo llegaron a ser víctimas, cómo se produjo el delito y su relación con el agresor. El propósito de la victimología forense es describir de manera precisa, crítica y objetiva a la víctima para comprender mejor a las víctimas, el delito, los delincuentes y las cuestiones forenses. La victimología forense es una disciplina aplicada, destinada a emplearse como una práctica científica objetiva (Turvey, 2014).
+· Víctima: se define como las personas naturales o jurídicas que individual o colectivamente, hayan sufrido daños, inclusive lesiones físicas o mentales, sufrimiento emocional, pérdida financiera o menoscabo sustancial de los derechos fundamentales, como consecuencia de acciones u omisiones que violen la legislación penal nacional o internacional o que de otra manera constituyan una violación grave de los derechos humanos, la conducta de las empresas o abusos ilícitos de poder (Naciones Unidas, 1985).
+· Victimización: es cuando la persona ve disminuida su seguridad individual o colectiva al haber padecido un daño físico, psíquico, patrimonial o sexual, que, además, cuando va acompañado de violencia o experiencia personal con el presunto autor del delito, suele traer efectos que se mantienen en el tiempo y pueden ser físicos, psíquicos, económicos o de rechazo social (Marchiori, 2000).
+· Victimización primaria: es cuando el perjuicio es ocasionado por los efectos negativos del delito (Reglas de Brasilia, 2008)
+· Victimización secundaria: se da cuando el daño sufrido por la víctima es "incrementado como consecuencia de su contacto con el sistema de justicia" (Reglas de Brasilia, 2008).
+· Enfoque centrado en las víctimas: se traduce en tratar con ellas desde la escucha, sin revictimización, y sin dejar de lado su seguridad, derechos, bienestar, necesidades y decisiones. Asimismo, busca garantizar que los servicios se presten de manera empática y libre de prejuicios (ACNUR, 2025).
+· Apoyo: es una práctica simbólica-cultural que incluye el conjunto de relaciones interpersonales que integran a una persona con su entorno social y le permite mantener o mejorar su bienestar material, físico y emocional (Organización Mundial de la Salud, 2002 citado por Flores et al., 2019).
+· Exploración de condiciones de la PME para la diligencia: se refiere a la exploración de las habilidades y destrezas que permitan el desempeño de la PME ofendida en la diligencia judicial.
+SIGLAS
+· CONAMAJ: Comisión Nacional para el Mejoramiento de la Administración de Justicia
+· DTSP: Departamento de Trabajo Social y Psicología
+· PAP: Primeros Auxilios Psicológicos
+· PME: persona menor de edad
+V. Referencias Bibliográficas:
+Alto Comisionado de las Naciones Unidas para Refugiados. (2025). Un enfoque centrado en las víctimas. https://www.acnur.org/enfoque-centrado-en-las-victimas
+Asamblea Legislativa. (1998, 06 de enero). Ley N°7739. Código de la Niñez y Adolescencia. 6 de enero de 1998. Costa Rica. https://pgrweb.go.cr/scij/Busqueda/Normativa/Normas/nrm_texto_completo.aspx?param1=NRTC&nValor1=1&nValor2=43077&nValor3=0&strTipM=TC
+Cantón-Duarte y Arboleda (2000). Guía para la evaluación del abuso sexual infantil. MR. Pirámide.
+Corte Suprema de Justicia. Costa Rica. (2021). Boletín judicial N°3. 2022. Circular N° 257-2021. Corte Suprema de Justicia. Costa Rica.
+Delgado, J. (2008). XIV Cumbre Judicial Iberoamericana Brasilia. Las Reglas de Brasilia. https://www.cumbrejudicial.org/sites/default/files/2024-02/Documento%205-Edici%C3%B3n%20Reglas%20de%20Brasilia-Texto%20y%20Comentarios%20de%20Joaqu%C3%ADn%20Delgado%20Mart%C3%ADn.pdf
+Flores, R., Lara, N., Mayen, A. y Soria, R. (2019). Apoyo social en población de adultos mayores. Alternativas Psicología, 41. https://11.-Apoyo-social-en-poblacion-de-adultos-mayores.pdf
+Lin Ching Céspedes, R. (2012). Psicología Forense. Principios Fundamentales. EUNED.
+Marchiori, H. (2000). La criminología del delito. Porrúa.
+Naciones Unidas. (1985). Declaración sobre los principios fundamentales de justicia para las víctimas del delito y el abuso de poder. https:// Declaración sobre los principios fundamentales de justicia para las víctimas de delitos y del abuso de poder | OHCHR.
+Poder Judicial. (2015). Circular 192-2015. Protocolo de atención inmediata a personas menores de edad víctimas y testigos. Poder Judicial. Costa Rica.
+Poder Judicial (2019). Circular 172-2019. Modificación a la Reglas de Brasilia sobre Acceso a la Justicia de las personas en condiciones de vulnerabilidad. Poder Judicial. Costa Rica.
+Poder Judicial. (2023). Circular 02-ADM-2023. Poder Judicial. Costa Rica.
+Turvey, B. (2014). Victimología Forense. Examen de víctimas de delitos violentos en contextos investigativos y legales. Elsevier Science Publishing Co Inc.
+Villalobos, A. (2011). Condiciones y lineamientos mínimos con que se debe contar para la aplicación de pruebas psicológicas. Caja Costarricense de Seguro Social. Dirección de Desarrollo de Servicios de Salud, Área de Regulación y Sistematización de Diagnóstico y Tratamiento. Coordinación Nacional de Psicología.
