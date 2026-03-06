@@ -1,0 +1,1 @@
+ARTÍCULO 4- Las actividades realizadas por parte de las asociaciones cooperativas digitales serán actos cooperativos sujetos al derecho cooperativo. No obstante, supletoriamente, podrá usarse el derecho mercantil, en los casos en que sea compatible con su naturaleza especial.
