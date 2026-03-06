@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Junta de Educación de la Escuela Agua Caliente, Cañas, para que done a la Asociación de Desarrollo Integral Agua Caliente, Cañas, cédula jurídica número tres-cero cero dos- siete cuatro cuatro cuatro dos dos (n.º 3-002-744422), el bien inmueble desafectado, descrito en el artículo anterior.
