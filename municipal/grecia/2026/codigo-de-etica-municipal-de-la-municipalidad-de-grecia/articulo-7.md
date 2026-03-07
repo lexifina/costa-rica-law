@@ -1,0 +1,2 @@
+Artículo 7- Secreto profesional y divulgación de información:
+Se entiende por secreto profesional toda información confidencial que por razón de su profesión haya llegado a conocimiento del funcionario, todo trabajador municipal debe guardar discreción sobre asuntos relacionados con su trabajo o vinculados con otras dependencias municipales, cuya divulgación pueda usarse contra los intereses de la institución.

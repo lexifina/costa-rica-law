@@ -1,0 +1,2 @@
+Artículo 5- Uso de recursos:
+Todo funcionario municipal debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines municipales, o cuando participe en actividades o gestiones de la administración que comprometen esos recursos.
