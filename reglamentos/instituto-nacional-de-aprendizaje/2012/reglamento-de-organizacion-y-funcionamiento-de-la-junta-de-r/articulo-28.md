@@ -1,1 +1,0 @@
-Artículo 28.—Reformas al reglamento. Las reformas al presente reglamento serán acordadas por la Junta Directiva del INA, previo dictamen favorable de la Junta, de acuerdo con los procedimientos establecidos en este reglamento.

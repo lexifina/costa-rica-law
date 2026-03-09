@@ -1,1 +1,0 @@
-Artículo 17.—Uso de la palabra. Por cada asunto que se discuta, los integrantes de la Junta podrán hacer uso de la palabra por un período máximo de cinco minutos. Una vez efectuada la votación, dispondrán adicionalmente de un minutos para justificar su voto.

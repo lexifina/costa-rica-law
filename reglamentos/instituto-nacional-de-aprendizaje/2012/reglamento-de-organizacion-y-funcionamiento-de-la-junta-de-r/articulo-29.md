@@ -1,1 +1,0 @@
-Artículo 29.—Disposiciones supletorias. Las situaciones no previstas expresamente en este reglamento, serán resueltas de acuerdo con las disposiciones de la Convención Colectiva, el Código de Trabajo y las normas de derecho público que regulan el funcionamiento de los órganos colegiados, respetando siempre la naturaleza bipartita y paritaria de la Junta.

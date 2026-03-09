@@ -1,1 +1,0 @@
-Artículo 27.—Colaboración Institucional. Todas las dependencias Institucionales estarán obligadas a suministrar a la Junta, toda la información necesaria para la resolución de los asuntos sometidos a su conocimiento.

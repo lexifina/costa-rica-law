@@ -1,1 +1,0 @@
-Artículo 18.—Intervención a solicitud de parte. La Junta sólo intervendrá en aquellos asuntos señalados en el artículo 8 de este Reglamento, a solicitud de parte y tratándose de procedimientos disciplinarios que motiven el despido o la suspensión sin goce de salario, cuando sea requerida dicha intervención por el funcionario directamente afectado.
