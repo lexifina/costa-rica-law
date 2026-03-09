@@ -15,3 +15,4 @@ Manual para la elaboración de planes reguladores costeros en la Zona Marítimo 
 | --- | --- | --- |
 | 1 | 2021-07-14 | la propia norma |
 | 2 | 2025-02-05 | SINALEVI (sin norma nombrada) |
+| 3 | 2026-03-09 | Reglamento 6364 (2026-03-09) |
