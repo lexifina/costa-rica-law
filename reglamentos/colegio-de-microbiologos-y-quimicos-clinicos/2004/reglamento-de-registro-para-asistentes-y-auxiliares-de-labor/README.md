@@ -14,3 +14,4 @@ Reglamento de registro para asistentes y auxiliares de laboratorio de Microbiolo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-02 | la propia norma |
+| 2 | 2026-03-09 | Reglamento 49 (2026-03-09) |
