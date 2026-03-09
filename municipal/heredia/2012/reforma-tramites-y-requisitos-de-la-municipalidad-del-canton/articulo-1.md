@@ -288,50 +288,19 @@ Prescripciones
 . En estos casos se verificara que no haya gestiones que interrumpan la prescripción.
 CEMENTERIO
 Funerales
-. Copia y Original del recibo de estar al día con el mantenimiento de nichos.
-. Copia del Acta de defunción.
-. Si la bóveda es prestada, deben de traer el permiso por escrito y con copia de la cedula del ARRENDATARIO.
-. En el caso de que el arrendatario este fallecido, el tramite lo puede hacer los hijos y SI NO TUVIERA, un hermano, con algún documento que nos indique que son familiares directos (CÉDULA).
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
 Exhumaciones e inhumaciones
-. Encontrarse al día con el pago de tributos municipales.
-. Solicitar el trámite por escrito, dirigida a la administración del Cementerio la EXHUMACION O INHUMACION.
-. Dicha solicitud debe indicar el numero de Lote y el Bloque donde se encuentra el cuerpo inclusive si esta en Sepultura Municipal.
-. Fotocopia de la Cédula de Identidad del solicitante o bien Fotocopia de la Cédula de Residencia en caso de ser extranjero (Vigentes).
-. Si la Bóveda o Nicho es prestado deben traer el Permiso por Escrito y con copia de la Cedula del Arrendatario (Vigente).
-. En el caso de que el arrendatario este fallecido, el tramite lo puede hacer los hijos o la esposa, y SI NO TUVIERA, un hermano, con algún documento que nos indique que son familiares directos (CÉDULA).
-. Si ambos trámites son externos se debe solicitar el Permiso del Ministerio de Salud.
-. Cuando es de un Cementerio a otro deben de sacar copia del Permiso de Salud y entregarla a la Administración.
-. Ambos trámites deben ser programados de lunes a viernes de 7:a.m. a 1:00 p.m.
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
 Requisitos del permiso de construcción
-. Encontrarse al día con el pago de tributos municipales.
-. Copia y Original del recibo de estar al día con el mantenimiento de nichos.
-. Traer los datos personales del Contratista: (Nº cédula, dirección, Nº de Teléfono).
-. El Arrendatario debe presentarse personalmente con Fotocopia de la Cédula de Identidad, o bien Fotocopia de la Cédula de Residencia en caso de ser extranjero (Vigentes). En caso de que el mismo no pueda apersonarse puede autorizar por escrito a una persona y adjuntar copia de cedula para su debido proceso.
-. En el caso de que el arrendatario este fallecido, el tramite lo puede hacer los hijos o la esposa, y SI NO TUVIERA, un hermano, con algún documento que nos indique que son familiares directos (CÉDULA).
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
 Requisitos para nichos de alquiler y sepulturas municipales
-. Copia del recibo de agua, luz o teléfono.
-. Copia de cedula del encargado de pagar el arrendatamiento.
-. Copia del acta de defunción.
-. Copia del recibo del pago del alquiler.
-. Firmar el contrato de alquiler. (Firmado por el Solicitante y el Alcalde Municipal).
-Requisitos para comprar un derecho en cualquier
-Cementerio Municipal de la provincia de Heredia
-. Encontrarse al día con el pago de tributos municipales.
-. Fotocopia de la cédula de identidad del solicitante o bien Fotocopia de la cédula de residencia en caso de ser extranjero (vigentes) tanto del nuevo ARRENDATARIO y de los BENEFICIARIOS.
-. Copia del recibo del pago del DERECHO.
-Requisitos para realizar el traspaso de un derecho de
-cementerio municipal o la inclusión de beneficiarios
-. Encontrarse al día con el pago de tributos municipales.
-. Formulario de traspaso,
-. Fotocopia de la Cédula de Identidad del solicitante o bien Fotocopia de la Cédula de Residencia en caso de ser extranjero (Vigentes) tanto del ANTERIOR como del NUEVO ARRENDATARIO y de los NUEVOS BENEFICIARIOS.
-. Actualización del derecho (Solicitarlo en la Administración del Cementerio en el momento que entrega dichos requisitos)
-. Copia y Original del recibo de estar al día con el mantenimiento de nichos.
-. Adjuntar al formulario una nota donde hace una reseña histórica de los HEREDEROS esto en el caso de que el derecho este a nombre de FAMILIA o DE FALLECIDOS, junto a ACTAS DE DEFUNCIONES.
-. En caso de que él Concejo Municipal apruebe la solicitud de traspaso, debe realizar la publicación del Edicto (Solo aplica en los casos donde los derechos se encuentran a nombre de Familias o Difuntos)
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
+Requisitos para comprar un derecho en cualquier Cementerio Municipal de la provincia de Heredia
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
+Requisitos para realizar el traspaso de un derecho de cementerio municipal o la inclusión de beneficiarios
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
 Requisitos para la publicación de edictos
-. Presentar ante la Imprenta Nacional el acuerdo del Concejo Municipal en forma digital y escrita para su publicación.
-. 30 días Hábiles, posterior a la publicación, debe aportar copia de la misma ante el departamento legal del municipio.
-. Presentarse ante la Administración del Cementerio 8 días hábiles después a retirar la Constancia del derecho ya traspasado.
+.(Derogado el requisito anterior por el artículo 58 inciso b) del Reglamento de los cementerios de la Municipalidad de Heredia, aprobado mediante sesión N° 156-2026 del 9 de marzo del 2026)
 MERCADO
 Permisos de remodelación y mejora de locales
 . Encontrarse al día con el pago de tributos municipales.
