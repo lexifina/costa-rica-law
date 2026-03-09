@@ -1,1 +1,0 @@
-Artículo 16.—Administración de los recursos: La Sección de Cementerio será el responsable de la administración y cuido de los activos del cementerio a su cargo. Así mismo, administrará los recursos económicos de que disponga, pudiendo para ello realizar cualquier tipo de actos permitidos por la Ley de Contratación Administrativa y su reglamento.

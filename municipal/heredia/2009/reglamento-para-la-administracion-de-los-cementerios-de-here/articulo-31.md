@@ -1,1 +1,0 @@
-Artículo 31.—Abandono de lotes: Los arrendamientos sobre parcelas con o sin construcción, cuyos beneficiarios los tengan en abandono o no aparezcan, sea porque se trate de extranjeros ausentes, o porque hayan muerto sin dejar heredero, pasarán a la Municipalidad luego de publicarse en La Gaceta el aviso correspondiente y podrán ser negociados con otra persona.

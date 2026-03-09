@@ -1,4 +1,0 @@
-Artículo 12.—Impugnación de actos: Contra los actos que adopte la Sección de Cementerio cabrán los siguientes recursos:
-a) Por parte de los interesados cabrán los recursos ordinarios de revocatoria y de apelación dentro de los cinco días hábiles siguientes al de su comunicación. Ambos recursos deberán de presentarse por escrito y ser firmados por la persona legitimada por tener un interés actual o legítimo.
-b) Carecerán de recursos, y no podrán ser impugnados los siguientes actos: los que no hayan y sido aprobados definitivamente; los de mero trámite de ejecución, confirmación o ratificación de otros anteriores y los consentidos expresa o tácitamente.
-c) El recurso de revocatoria será interpuesto ante la sección de Cementerio, dentro del plazo indicado en el inciso a) anterior, en tanto el de apelación se interpondrá ante el Alcalde Municipal ya sea de forma subsidiaria o bien directamente.

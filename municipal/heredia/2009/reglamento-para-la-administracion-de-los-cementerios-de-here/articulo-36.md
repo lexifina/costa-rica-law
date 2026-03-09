@@ -1,1 +1,0 @@
-Artículo 36.—Corrección de errores materiales: Los errores de nombre, apellidos u otros en la inscripción del derecho de arrendamiento, se conocerán a instancia del titular, previa justificación y comprobación ante el Departamento de Cementerio de la información correcta.

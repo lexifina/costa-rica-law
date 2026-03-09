@@ -1,1 +1,0 @@
-Artículo 8º—Perfil de los miembros: El Departamento de Recursos Humanos se encargará de realizar los estudios necesarios a fin de establecer el perfil que deben tener los funcionarios del Departamento de Cementerio creado en el artículo anterior, los cuales remitirá al Alcalde Municipal para su aprobación.
