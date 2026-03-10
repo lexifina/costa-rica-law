@@ -1,0 +1,5 @@
+Artículo 5 bis. El Museo Histórico Cultural Juan Santamaría será el órgano del Ministerio de Cultura y Juventud responsable de la administración sustantiva del Museo Histórico Santa Rosa.
+Le corresponderá gestionar el funcionamiento técnico, la oferta programática anual, la custodia de todos los objetos y documentos relacionados con la gesta heroica de los años 1856 y 1857, así como el mantenimiento de los elementos museográficos instalados en el sitio.
+Deberá mantener un inventario actualizado de los elementos constitutivos y exhibidos en el Museo Histórico Santa Rosa y planificar, junto con los órganos competentes del Ministerio de Cultura y Juventud, las acciones necesarias para su conservación, puesta en valor y resguardo.
+Asímismo, en coordinación con el Ministerio de Ambiente y Energía, se fortalecerán las acciones conjuntas orientadas a garantizar la adecuada protección, manejo y sostenibilidad del museo, promoviendo buenas prácticas ambientales y estrategias integrales que aseguren la conservación del patrimonio cultural y del entorno natural donde se ubica.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45669 del 10 de marzo de 2026)

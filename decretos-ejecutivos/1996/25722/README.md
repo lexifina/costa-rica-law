@@ -14,3 +14,4 @@ Crea Museo Histórico Santa Rosa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-23 | la propia norma |
+| 2 | 2026-03-10 | Decreto Ejecutivo 45669 (2026-03-10) |

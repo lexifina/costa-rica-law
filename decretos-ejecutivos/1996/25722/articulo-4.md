@@ -1,1 +1,2 @@
-Artículo 4°-La Dirección General de Museos del Ministerio de Cultura, Juventud y Deportes, le brindará asesoría profesional especialmente en capacitación, divulgación, conservación e inventario de colecciones.
+Artículo 4.-El Museo Nacional de Costa Rica, del Ministerio de Cultura y Juventud, por medio del Programa de Museos Regionales y Comunitarios, brindará asesoría profesional en capacitación comunitaria, divulgación, técnicas de conservación, investigación e inventario de colecciones. Asimismo, asesorará y apoyará en el diseño de materiales gráficos para promover el acceso, la educación y la actualización de la imagen institucional del Museo Histórico Santa Rosa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45669 del 10 de marzo de 2026)
