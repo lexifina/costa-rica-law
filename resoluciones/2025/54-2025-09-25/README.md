@@ -14,3 +14,4 @@ Procedimiento de gestión de exoneración mediante carné (DIDIS) a favor de Emb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-10-10 | la propia norma |
+| 2 | 2026-03-10 | Resolución 22 (2026-03-10) |
