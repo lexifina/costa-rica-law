@@ -1,0 +1,4 @@
+Artículo 11. Dirección Estratégica
+En esta etapa se elaborará y revisará la misión, visión, valores y objetivos estratégicos, así como las estrategias (líneas de acción) considerando el análisis del entorno y diagnóstico institucional, para determinar la necesidad de ajustes a la realidad futura del CCDRSJ, en función de los fines y principios establecidos por el Código Municipal.
+Las políticas institucionales (generales y específicas), establecerán las directrices generales dentro de las cuales se dará la labor institucional.
+Para la elaboración de la misión, visión, valores y objetivos estratégicos y de las estrategias se tomará como base la metodología del Ministerio de Planificación Nacional y Política Económica y se impulsará también la participación de los actores involucrados en el quehacer institucional del CCDRSJ y de la comunidad del cantón Central de San José.

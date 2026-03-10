@@ -1,0 +1,8 @@
+Capítulo 4 Seguimiento y Evaluación
+Artículo 15 Lineamientos de Seguimiento
+El seguimiento de la planificación del CCDRSJ consistirá en la verificación del cumplimiento de los siguientes aspectos:
+• A más tardar el 10 de abril y con corte al 31 de marzo de cada año, la Junta Directiva deberá validar el avance de las metas del Plan Estratégico del CCDRSJ según el informe presentado por los directores de programa del CCDRSJ dando énfasis a la presentación de cumplimientos bajos y medios.
+• A más tardar el 31 de julio y con corte al 30 de junio de cada año o el día hábil siguiente, los directores de programas deberán presentar a la Junta Directiva para que valide los resultados del avance de las metas del Plan Anual Operativo y su vinculación al PEI 2026-2030
+• A más tardar el 15 de octubre y con corte al 30 de setiembre de cada año, los directores de programa deberán validar el avance de las metas del Plan Estratégico 2026-2030, 6 que presentaron en el corte semestral atraso crítico y con riesgo de incumplimiento.
+• A más tardar el 31 de enero o el día hábil siguiente y con corte al 31 de diciembre de cada año, los directores de programa deberán presentar ante la Junta Directiva, los resultados del avance de las metas del PEI 2026-2030. Este informe será aprobado por la Junta Directiva y será comunicado al Concejo Municipal.
+De considerarlo necesario, según el seguimiento señalado, la Junta Directiva en conjunto con los directores de programa, podrán formular en conjunto las acciones correctivas para alcanzar los objetivos propuestos en el Plan Estratégico Institucional, las cuales serán presentadas ante el Concejo Municipal, el que notificará a la comunidad institucional los ajustes correspondientes a dicho plan.

@@ -1,0 +1,2 @@
+Artículo 18. Lineamientos para el acceso a información integral y transparencia
+Con el fin de integrar en un sitio común los instrumentos de planificación, presupuestación del CCDRSJ y evaluaciones, se establecerá un eje de transparencia en la página web del CCDRJS, donde la información señalada en el artículo anterior estará disponible. Esta labor deberá ser remitida por la Dirección Administrativa y Financiera al profesional responsable de tecnologías de información para que sea debidamente publicada.

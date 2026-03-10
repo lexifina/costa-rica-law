@@ -1,0 +1,5 @@
+Artículo 14. Sistema Específico de Valoración de Riesgos (SEVRI)
+Se deberá contar con un sistema de valoración de riesgos, con el fin de cumplir con lo establecido en la Ley 8292 “Ley General de Control Interno”, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; deben ser realizados por el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.
+El CCDRJS deberá realizar una identificación, valoración y administración de todos aquellos riesgos que pueden afectar el adecuado desarrollo de sus funciones y la prestación de sus bienes y servicios, así como definir el plan de acción para prever y mitigar los riesgos identificados.
+Este sistema estará bajo la responsabilidad de persona responsable del control interno, quién deberá coordinar lo pertinente para identificar los riesgos desde los objetivos estratégicos y los correspondientes a la planificación operativa anual.
+La persona encargada de control interno, llevará la agenda del SEVRI y su seguimiento en la Comisión de Control Interno.

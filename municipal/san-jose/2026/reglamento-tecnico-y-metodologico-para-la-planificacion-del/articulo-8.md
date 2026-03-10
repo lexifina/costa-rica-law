@@ -1,0 +1,2 @@
+Artículo 8 Ente técnico asesor
+La Dirección de Planificación Estratégica Institucional de la Municipalidad de San José será el ente técnico asesor del CCDRSJ en materia de planificación estratégica, táctica y operativa, tanto en el nivel institucional como departamental. Además, coordinará con la Dirección Administrativa y Financiera del CCDRSJ, el orientar, documentar y conducir de manera integral el proceso de Planificación Institucional, en forma conjunta con los actores que intervienen en las diferentes etapas del proceso.

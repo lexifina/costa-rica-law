@@ -1,0 +1,20 @@
+Artículo 4 Definiciones
+Análisis del Entorno y Diagnóstico Institucional: Análisis de la situación actual externa e interna elaborado en conjunto con los distintos actores de la comunidad de los distritos y comunidades del cantón central de San José en el cual se concluya sobre las necesidades en deporte, la recreación y estilos de vida saludables.
+Horizontes de Planificación: Tiempos definidos para la ejecución de un plan según su naturaleza:
+. Largo plazo: periodo de cinco años o más, de naturaleza estratégica.
+. Mediano plazo: periodo de tres a cinco años, según corresponda, de naturaleza táctica.
+. Corto plazo: periodo máximo de un año, de naturaleza operativa.
+Indicador: Es la relación entre variables cuantitativas o cualitativas de los avances o resultados de una actividad. Parámetro cualitativo y cuantitativo que define los aspectos relevantes de los proyectos sobre los cuales se lleva a cabo la evaluación para medir el grado de cumplimiento de los objetivos planteados en términos de eficiencia, eficacia y calidad.
+Instancias de Planificación Institucional: Órganos o dependencias de la Municipalidad de San José y del CCDRSJ que tienen a su cargo la formulación, actualización, seguimiento y evaluación de los planes institucionales.
+Marco Estratégico institucional: Está compuesto por misión, visión, políticas institucionales (generales y específicas), valores, fines y principios institucionales.
+Plan Anual Operativo (PAO): Instrumento formulado en concordancia con los planes de mediano y largo plazo, en el que se definen las actividades que se deberán ejecutar durante el año; se precisan los recursos humanos, materiales y financieros necesarios para obtener los resultados esperados y se identifican las dependencias responsables de los programas de ese plan.
+Plan Estratégico Institucional: Instrumento orientador del desarrollo institucional, que recoge, integra y estructura las decisiones desde una perspectiva estratégica.
+Planificación Institucional: Es el proceso sistemático, continuo y participativo establecido por el CCDRSJ, con fundamento en su naturaleza jurídica y como órgano técnico desconcentrado de la Municipalidad de San José, para desarrollar planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales, así como para construir, administrar, mantener y ceder el uso de sus instalaciones deportivas o recreativas a otras organizaciones
+Proceso de Planificación Institucional: Conjunto de acciones sucesivas producto de un diagnóstico institucional que permita definir la dirección que debe seguir el CCDRSJ y propiciar que éste responda adecuadamente a la solución de diferentes situaciones del entorno que impacten el quehacer institucional.
+Plan: Es un conjunto de programas y proyectos que contienen metas relacionadas.
+Programa: Es un conjunto de subprogramas o proyectos que responden a un objetivo común para la producción de bienes y servicios. Es una intervención limitada en cuanto a recursos y tiempo.
+Puede abarcar diversas instituciones, temas o zonas geográficas, así como recibir el apoyo de varias fuentes de financiación.
+Proyecto: Es el nivel más concreto de programación que consiste en un conjunto articulado de actividades integradas, destinado a lograr objetivos específicos, con un presupuesto dado y un tiempo determinado, orientado a la producción de bienes y servicios. Al proyecto se le vincula a la inversión, con metas del tipo bienes de capital; mientras que al programa se le vincula al gasto con metas de servicio.
+Proyecto Estratégico: Conjunto de actividades que se encuentran interrelacionadas y coordinadas, para alcanzar los objetivos estratégicos institucionales dentro de las prioridades definidas, que imponen un presupuesto, calidades establecidas previamente y un lapso de tiempo establecido.
+SEVRI: Sistema Específico de Valoración de Riesgos Institucionales según Ley General de Control Interno.
+Valor Público: Es aquello que el público valora, por lo que el CCDRSJ debe formar las preferencias de los ciudadanos, pero también aprender de ellos, de sus opiniones, intereses, experiencia y conocimiento colectivo.
