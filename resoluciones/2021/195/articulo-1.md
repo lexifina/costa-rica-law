@@ -350,6 +350,8 @@ Por las razones indicadas en la justificación, se excluyen del pago de tarifas 
 Por lo tanto, la metodología tarifaria contempla la remuneración para los servicios auxiliares de: control de frecuencia e intercambios de energía asociado a la regulación secundaria y regulación terciaria; así como demanda interrumpible, tal y como se detallará.
 Adicionalmente, algunas de las tarifas se basan en la tarifa promedio del sistema de generación de las empresas distribuidoras, considerando que la tarifa del ICEGeneración ya contempla los costos de la compra de generación a las plantas de generación privada. Además de lo indicado, tampoco se considera por separado esas tarifas de generación privada, ya que en la actualidad varios de los modelos tarifarios establecen bandas de tarifas, no tarifas únicas, lo que imposibilita la determinación de un precio en específico.
 Asimismo, en el caso de las liquidaciones, se considera que todos los agentes generadores y distribuidores, que tengan desviaciones en la generación real respecto de los predespachos, de conformidad con lo que establezca el Reglamento y procedimientos que apruebe la Aresep para Servicio Auxiliares, deberán pagar por los servicios auxiliares brindados por los agentes del SEN.
+De acuerdo con lo dispuesto en la Ley No. 10086 y su reglamento el Decreto 43879-MINAE, los DER tales como la generación distribuida para autoconsumo y el almacenamiento de energía podrán ser considerados un prestador de servicios auxiliares remunerables, siempre y cuando cumplan con los requisitos técnicos establecidos por el Operador del Sistema y puedan ser programados y despachables.")
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 Por último, para efectos de esta metodología se considera que el posdespacho, tal y como se define en el Reglamento Técnico de los Servicios Auxiliares en el Sistema Eléctrico Nacional (AR-RT-SASEN), y generación real horaria, son sinónimos.
 2. OBJETIVOS
 El objetivo principal de esta metodología es establecer el procedimiento de cálculo de la tarifa para cada servicio auxiliar remunerado.
@@ -374,6 +376,8 @@ Trs = Tarifa para la regulación secundaria.
 𝑓𝑝 = factor de planta promedio de los últimos cinco años anteriores al año de fijación de la tarifa, para cada planta que presta el servicio de regulación secundaria.
 Tg = Tarifa promedio en MWh ponderada del sistema de generación de las empresas distribuidoras.
 p = El subíndice p representa a los prestadores de los servicios con equipamiento habilitado por el OS/OM para dar el servicio de regulación secundaria.
+La tarifa de regulación secundaria será aplicable para los sistemas de generación distribuida para autoconsumo y sistemas de almacenamiento que cumplan con los requisitos técnicos establecidos por el OS y que tengan la capacidad de brindar regulación secundaria.
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 Tarifa de reserva terciaria:
 Por su parte, la metodología para calcular la remuneración a los servicios de regulación terciaria toma en cuenta un modelo ajustado de tasa de retorno, considerando los costos de operación y mantenimiento, así como una rentabilidad sobre la inversión requerida para darlos.
 El cálculo de la tarifa para regulación terciaria se realizará según la siguiente ecuación:
@@ -385,6 +389,8 @@ ke = Rédito para el desarrollo calculado como el costo del capital propio para 
 AFNOR= Activo fijo neto en operación revaluado que contempla la inversión de los prestadores del servicio auxiliar de regulación terciaria y que es necesaria para prestar esos servicios, a valor razonable de mercado (revaluado).
 Ertp = Reserva anual de energía en MWh para regulación terciaria de cada planta que presta el servicio.
 p = El subíndice p representa a los prestadores de los servicios con equipamiento habilitado por el OS/OM para dar el servicio de regulación terciaria.
+La tarifa de regulación terciaria será aplicable para los sistemas de generación distribuida para autoconsumo y sistemas de almacenamiento requisitos técnicos establecidos por el OS y que tengan la capacidad de brindar regulación terciaria.
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 A continuación, se detalla la forma de cálculo de cada una de las variables indicadas anteriormente en las ecuaciones 1 y 2.
 i. Reserva anual de energía en MWh para regulación secundaria de cada planta que presta el servicio. (𝐸𝑅𝑆)
 Se considerará como reserva de energía la potencia horaria asignada por el OS/OM como reserva para subir y para bajar y que no se generó.
@@ -446,18 +452,27 @@ Donde:
 IR = Ingresos requeridos para remunerar los servicios auxiliares relacionados con regulación secundaria, regulación terciaria y demanda interrumpible.
 Trs = Tarifa para la regulación secundaria.
 Trt = Tarifa para la regulación terciaria.
-Ersm = Reserva de energía en MWh para regulación secundaria, se calcula como la sumatoria de la reserva de energía en MWh de todas las plantas que prestaron el servicio durante el mes a liquidar.
-Ertm = Reserva de energía en MWh para regulación terciaria, se calcula como la sumatoria de la reserva de energía en MWh de todas las plantas que prestaron el servicio durante el mes a liquidar.
+Ersm = Reserva de energía en MWh para regulación secundaria, se calcula como la sumatoria de la reserva de energía en MWh de todas las plantas y recursos energéticos distribuidos que prestaron el servicio durante el mes a liquidar.
+(Así reformado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
+Ertm = Reserva de energía en MWh para regulación terciaria, se calcula como la sumatoria de la reserva de energía en MWh de todas las plantas y recursos energéticos distribuidos que prestaron el servicio durante el mes a liquidar.
+(Así reformado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 Tdi = Tarifa aplicable al servicio auxiliar de demanda interrumpible.
 Edim = Reserva de energía en MWh de demanda interrumpible, predespachada por el OS/OM, durante el mes a liquidar.
+Según lo definido en el Reglamento a la Ley No. 10086 Decreto 43879-MINAE, los recursos energéticos distribuidos son tecnologías de generación y almacenamiento de energía modulares, conectadas principalmente a una red de media y baja tensión, gestionados de forma automática o manual, que pueden proporcionar capacidad eléctrica, energía, flexibilidad o proveer servicios auxiliares a la red local de forma dinámica cuando hace falta. Estos sistemas pueden estar conectados a la red eléctrica local o bien aislada de la red en aplicaciones autónomas. Se consideran recursos energéticos distribuidos: a) Sistema de generación distribuida para autoconsumo, b) Sistema de almacenamiento de energía, c) Vehículos eléctricos, d) Respuesta de la demanda. Incluyendo los sistemas de interconexión o suplementarios necesarios para cumplir con los requerimientos de la red local y su respuesta de la demanda, regulados por el conjunto de los reglamentos técnicos de la ARESEP y la normativa técnica nacional.
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 Le corresponderá pagar los servicios auxiliares del SEN a todos los agentes generadores y distribuidores de electricidad, por lo que los ingresos a recuperar deberán asignarse por medio de las desviaciones horarias en un mes entre los predespachos y la generación real horaria, así como, la demanda individual de cada empresa para los días que componen el mes a liquidar.
 Las desviaciones de las plantas que estén prestando servicios auxiliares tarifables no serán contempladas en el cálculo, siempre que las desviaciones que presenten sean producto del servicio auxiliar que brindan.
+La demanda interrumpible utilizada no debe ser considerada en las desviaciones calculadas para las empresas distribuidoras.
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 Primero se calcula la proporción de esos ingresos requeridos asignables a cada sistema (generación y distribución), de la siguiente manera:
+Las remuneraciones mensuales a los prestadores de los servicios auxiliares relacionados con regulación secundaria, regulación terciaria y demanda interrumpible, se calcularán para cada servicio de forma separada de la siguiente manera:
+(Así adicionado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 [imagen]
 [imagen]
 [imagen]
 Donde:
-IR = Ingresos requeridos para remunerar los servicios auxiliares relacionados con regulación secundaria, regulación terciaria y demanda interrumpible.
+IR = Ingresos requeridos para remunerar los servicios auxiliares relacionados con regulación secundaria o regulación terciaria o demanda interrumpible, para cada servicio de forma separada.
+(Así reformado el párrafo anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 IRd = Ingresos requeridos asignables al sistema de distribución
 IRg = Ingresos requeridos asignables al sistema de generación
 |𝐷𝑒𝑠𝑣𝑑𝑖 | = Valor absoluto de la totalidad de las desviaciones horarias en un mes entre predespados y demanda real horaria de cada agente distribuidor i.
@@ -493,8 +508,8 @@ En caso de que los agentes generadores y distribuidores no remitan el predespach
 . Para la generación se considerará como desviación toda la generación real horaria realizada por la planta que incumpla con la remisión de esa información en forma y tiempo. Se excluye de este cálculo la generación de las plantas que prestan servicios auxiliares tarifables.
 . Para la demanda se considerará como desviación toda la demanda real horaria realizada por empresa distribuidora que incumpla con la remisión de esa información en forma y tiempo.
 5. PERIODICIDAD DE CÁLCULO
-Las tarifas de los servicios auxiliares relacionados con regulación secundaria, regulación terciaria y demanda interrumpible serán calculadas por Aresep de oficio de forma bienal, con base en la información real remitida a esta Autoridad Reguladora por los prestadores de estos servicios y el OS/OM de conformidad con lo establecido en la siguiente sección, con corte anual del año anterior a cada fijación tarifaria.
-(Así reformado el párrafo anterior mediante resolución N° RE-0065-JD-2023 del trece de abril del 2023)
+Las tarifas de los servicios auxiliares relacionados con regulación secundaria, regulación terciaria y demanda interrumpible serán calculadas por Aresep de oficio de forma bienal, con base en la información real remitida a esta Autoridad Reguladora por los prestadores de estos servicios y el OS/OM de conformidad con lo establecido en la siguiente sección, con corte anual del año anterior a cada fijación tarifaria. (*) No obstante, podría valorarse de oficio o a solicitud de parte una fijación anual de las tarifas de servicios auxiliares, de acuerdo con las condiciones del entorno y de acuerdo con la disponibilidad de fuentes de generación y condiciones climatológicas.
+(*)(Así adicionada la frase anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
 6. REQUERIMIENTOS DE INFORMACIÓN Y RELACIÓN CON LOS CÁLCULOS DE LAS TARIFAS ORDINARIAS DE GENERACION Y DISTRIBUCIÓN.
 La Intendencia de Energía o el área interna de Aresep que le corresponda fijar las tarifas con base en esta metodología, deberá elaborar los formularios de presentación de información correspondiente por parte de los prestadores y el OS/OM, estableciendo la forma y la periodicidad con la que se remitirán.
 Además, deberá ajustar los planes de cuenta de generación, transmisión y distribución de energía eléctrica de la Contabilidad Regulatoria correspondiente, para que se desagreguen las cuentas relacionadas con servicios auxiliares, tanto en inversiones, ingresos, costos de operación y mantenimiento asociados.
@@ -505,7 +520,11 @@ Para la implementación y aplicación de la tarifa y liquidación de los servici
 8. VIGENCIA DE LA METODOLOGÍA
 Esta metodología entrará a regir en el momento en que rijan los procedimientos técnicos que se requiere para que el OS/OM realice la planeación, operación, asignación, supervisión, evaluación y administración de los servicios auxiliares en el Sistema Eléctrico Nacional (SEN), es decir en el momento que esta Autoridad Reguladora los apruebe de conformidad con lo establecido en esta metodología tarifaria y en el "Reglamento Técnico de los servicios auxiliares en el Sistema Eléctrico Nacional" (ARRT-SASEN), aprobado mediante resolución RE-0140-JD-2019.
 Para el caso de los generadores privados, la Intendencia de Energía debe verificar que las adendas contractuales (en caso de corresponder) sean eficaces y lo consignará dentro del expediente donde se tramita el refrendo del contrato y sus adendas, a partir de lo cual entrará en vigencia de esta metodología para estos agentes.
-9. GLOSARIO DE ECUACIONES Y VARIABLES
+9.TRANSITORIO
+Una vez entren en vigor los cambios en la "Metodología tarifaria para la remuneración de los servicios auxiliares en el sistema eléctrico nacional (SEN)", dictada mediante la resolución RE-0195-JD-2021 y esta pueda ser aplicada por primera vez, sujeta a la aprobación de los procedimientos técnicos respectivos, la Intendencia de Energía debe iniciar de oficio el proceso para la primera fijación tarifaria o su actualización en un plazo máximo de 60 días naturales. Dentro de ese plazo se deberá solicitar la apertura del expediente tarifario, emitir el informe inicial y solicitar a la DGAU la convocatoria a la respectiva audiencia pública.
+(Así adicionado el punto 9) anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026)
+10.GLOSARIO DE ECUACIONES Y VARIABLES
+(Así modificada la numeración del punto anterior mediante resolución N° RE-0023-JD-2026 del 11 de marzo del 2026, que lo traspasó del antiguo punto 9) al punto 10) actual)
 Glosario de ecuaciones
 [imagen]
 [imagen]
