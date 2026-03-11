@@ -1,0 +1,1 @@
+Artículo 6°-Ingreso gratuito y universal. El ingreso al parque será libre y gratuito. No se podrá establecer cobros por el acceso, salvo en el caso de eventos especiales debidamente autorizados por el Concejo Municipal.

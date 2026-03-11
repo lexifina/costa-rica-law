@@ -1,0 +1,2 @@
+Artículo 14.-De las responsabilidades. Quien cause daño material a bienes del parque deberá asumir el costo de reparación, reposición o restauración, según el valor determinado por la Municipalidad, sin perjuicio de otras responsabilidades civiles o penales.
+La Municipalidad se libera de toda responsabilidad civil, penal, administrativa y de cualquier otra índole, por accidentes o afectaciones que se generen a terceros por el uso del parque durante las actividades a desarrollar.

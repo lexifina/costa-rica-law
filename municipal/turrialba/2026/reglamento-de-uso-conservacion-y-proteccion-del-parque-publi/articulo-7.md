@@ -1,0 +1,1 @@
+Artículo 7°-Finalidad del uso. El uso del parque debe ser compatible con los principios de convivencia ciudadana, actividades cívico-culturales, respeto al medio ambiente, seguridad pública y conservación del bien común. Se prohíbe toda acción que atente contra el orden público, salud o el interés general.

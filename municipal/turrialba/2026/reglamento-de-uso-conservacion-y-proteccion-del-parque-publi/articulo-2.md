@@ -1,0 +1,1 @@
+Artículo 2°-Naturaleza del parque. El Parque Público Municipal Recreativo Jorge Debravo constituye un bien de dominio público municipal, destinado al esparcimiento, la recreación, la actividad física, cívicas, culturales y la convivencia ciudadana. Su uso se encuentra sujeto al interés general y a la protección del ambiente.

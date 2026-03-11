@@ -1,0 +1,1 @@
+Artículo 11.-Actividades comerciales. Toda actividad con fines de lucro dentro del parque deberá contar con permiso municipal conforme a la normativa de patentes y el régimen de bienes públicos. Se prohíbe el comercio informal sin autorización.

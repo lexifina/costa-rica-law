@@ -1,0 +1,1 @@
+Artículo 3°-Ámbito de aplicación. Este reglamento es de aplicación obligatoria para todas las personas que ingresen o hagan uso del parque, ya sean visitantes, residentes, organizaciones, comerciantes u otros actores.
