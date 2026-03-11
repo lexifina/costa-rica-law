@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El Reglamento de Organización y Funcionamiento de la Auditoría Interna es de carácter obligatorio para su personal y el de la Administración Activa en lo que les resulte aplicable.

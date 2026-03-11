@@ -1,1 +1,0 @@
-Artículo 51.—Asignación de recursos. De conformidad con lo establecido en el artículo 27 de la Ley General de Control Interno, el Directorio Legislativo deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes, para que la Auditoría Interna pueda cumplir sus competencias y planes.

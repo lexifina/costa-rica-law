@@ -1,1 +1,0 @@
-Artículo 28.—Pericia y debido cuidado profesional del personal de la Auditoría Interna. El personal de la Auditoría Interna deberá cumplir sus funciones y responsabilidades con pericia y debido cuidado profesional.

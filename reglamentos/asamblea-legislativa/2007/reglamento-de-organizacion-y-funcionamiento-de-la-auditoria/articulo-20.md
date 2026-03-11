@@ -1,1 +1,0 @@
-Artículo 20.—Jornada laboral del Auditor Interno y Subauditor Interno. Conforme lo dispuesto en el artículo 30 de la Ley General de Control Interno, la jornada laboral del Auditor Interno y Subauditor Interno será a tiempo completo.

@@ -1,1 +1,0 @@
-Artículo 103.—Divulgación. El Directorio Legislativo, los titulares subordinados de la Administración Activa y el Auditor Interno deberán poner el presente Reglamento en conocimiento del personal a su cargo. Éste se mantendrá disponible en el sitio web www.asamblea.go.cr y en la carpeta pública de la Auditoría Interna disponible en el Outlook institucional.

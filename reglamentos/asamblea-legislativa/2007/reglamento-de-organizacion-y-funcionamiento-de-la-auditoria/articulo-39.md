@@ -1,1 +1,0 @@
-Artículo 39.—Registro presupuestario. El Departamento Financiero mantendrá un registro del presupuesto anual asignado a la Auditoría Interna, detallado por objeto del gasto, para el control de su ejecución y el suministro de información al Auditor Interno sobre su estado, cada dos meses.

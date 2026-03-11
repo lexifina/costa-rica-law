@@ -1,1 +1,0 @@
-Artículo 57.—Servicios preventivos. Los servicios preventivos incluyen la asesoría, advertencia y autorización de libros. En cuanto a los dos primeros, deberán proporcionarse sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus competencias.

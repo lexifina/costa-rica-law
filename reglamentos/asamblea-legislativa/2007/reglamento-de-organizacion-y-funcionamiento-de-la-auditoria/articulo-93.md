@@ -1,6 +1,0 @@
-Artículo 93.—Mecanismos de seguimiento para determinar el cumplimiento de las observaciones y recomendaciones. El seguimiento de las observaciones, recomendaciones y demás resultantes de la gestión de la Auditoría Interna, recomendaciones de los auditores externos y otras instituciones de control y fiscalización, se efectuará haciendo uso de los siguientes mecanismos:
-a) Acciones de verificación de cumplimiento ejecutadas por la Auditoría Interna.
-b) Acciones de verificación emprendidas por la Administración Activa a solicitud de la Auditoría Interna. La Auditoría Interna podrá solicitar por escrito a la Administración Activa realizar acciones de verificación del cumplimiento de las observaciones, recomendaciones y demás resultantes de su gestión que así determine, en la forma, la oportunidad, las condiciones y el plazo que estime pertinentes.
-c) Acciones de comprobación sobre las verificaciones realizadas por la Administración Activa a solicitud de la Auditoría Interna.
-d) Otras acciones que la Auditoría Interna estime apropiadas, en atención a la naturaleza y las características propias de las observaciones y recomendaciones.
-La Auditoría Interna comunicará lo pertinente a la Administración Activa y a las instancias responsables de la implementación de las observaciones y recomendaciones.

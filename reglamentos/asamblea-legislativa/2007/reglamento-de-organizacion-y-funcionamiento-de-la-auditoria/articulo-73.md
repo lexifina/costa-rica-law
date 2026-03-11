@@ -1,4 +1,0 @@
-SECCIÓN V
-De las relaciones de hechos y documentos de denuncia penal
-Artículo 73.—Comunicación de resultados de las auditorías sobre asuntos de los que puedan derivarse posibles responsabilidades administrativas, civiles y penales. La Auditoría Interna comunicará los resultados de sus auditorías de carácter especial relacionadas con asuntos de los que puedan derivarse posibles responsabilidades administrativas, civiles o ambas, mediante relaciones de hechos, y si se trata de presuntas responsabilidades penales, por medio del documento denominado denuncia penal.
-Las relaciones de hechos y los documentos de denuncia penal deberán contar con las características de fondo, forma y otros requerimientos contenidos en los lineamientos que para tal efecto y otros aspectos relacionados formule el Auditor Interno y la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 38.—Ejecución del presupuesto y los requerimientos. Corresponderá al Auditor Interno o a la persona responsable que designe, autorizar los documentos de ejecución presupuestaria que procedan.

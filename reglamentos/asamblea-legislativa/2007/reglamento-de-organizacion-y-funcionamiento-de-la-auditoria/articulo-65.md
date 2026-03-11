@@ -1,4 +1,0 @@
-SECCIÓN IV
-De los informes de Auditoría denominados de control interno
-y documentos de servicios preventivos
-Artículo 65.—Comunicación de resultados de los servicios de auditoría y autorización de libros. La Auditoría Interna comunicará los resultados de sus auditorías y servicios de autorización de libros, mediante informes escritos denominados de control interno, al jerarca y titulares subordinados de la Administración Activa, que defina este órgano asesor, los cuales deben poseer la competencia y autoridad para ordenar la implantación de las recomendaciones y atender los asuntos comunicados. El presente artículo no aplica para la comunicación de los resultados de las auditorías de carácter especial que traten de asuntos que conlleven al establecimiento de responsabilidades en materia administrativa, civil o penal, que se hará conforme lo regula la sección V del presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 45.—Deberes del personal de la Auditoría Interna. El personal de la Auditoría Interna, para el desempeño de sus funciones, deberá cumplir con los deberes que se establecen en el artículo 32 de la Ley General de Control Interno, así como en otro ordenamiento jurídico y técnico aplicable a su gestión.

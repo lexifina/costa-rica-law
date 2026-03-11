@@ -1,4 +1,0 @@
-SECCIÓN VII
-Del seguimiento de observaciones, sugerencias,
-recomendaciones y disposiciones
-Artículo 89.—Sistema de seguimiento a las observaciones, recomendaciones y disposiciones. La Auditoría Interna deberá mantener en práctica permanente un sistema de seguimiento a las observaciones, recomendaciones y demás resultantes de su gestión, las disposiciones emitidas por la Contraloría General de la República, así como de las recomendaciones de los auditores externos y otras instituciones de control y fiscalización que correspondan, para asegurarse de su oportuna, adecuada y eficaz atención por parte de la Administración Activa. Este sistema estará constituido por el ordenamiento regulado en esta sección y los lineamientos que emita el Auditor Interno, los componentes orgánicos que lo integran según ese marco normativo y las relaciones entre sus integrantes, que facilita dicho ordenamiento.

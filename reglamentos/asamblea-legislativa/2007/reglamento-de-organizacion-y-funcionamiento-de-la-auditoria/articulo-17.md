@@ -1,1 +1,0 @@
-Artículo 17.—Organización por procesos. La Auditoría Interna se organizará bajo el enfoque de administración por procesos, independientemente de la estructura organizacional que esté establecida, de conformidad con los procesos siguientes: Servicios de auditoria, Servicios preventivos, Seguimiento de disposiciones y recomendaciones, Desarrollo y Gestión gerencial.
