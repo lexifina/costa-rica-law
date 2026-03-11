@@ -14,3 +14,4 @@ Intercambio automático de información respecto de los vendedores que realicen 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-06 | la propia norma |
+| 2 | 2026-03-11 | Resolución 4 (2026-03-11) |
