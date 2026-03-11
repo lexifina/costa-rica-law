@@ -1,0 +1,1 @@
+Artículo 5º-Horario. El horario en el que se podrán realizar actividades particulares será de las 10 horas hasta las 20 horas. En caso de que se supere dicho horario, la Municipalidad podrá suspender la actividad. Con casos de excepción, en los cuales se podrá autorizar un horario superior a este.

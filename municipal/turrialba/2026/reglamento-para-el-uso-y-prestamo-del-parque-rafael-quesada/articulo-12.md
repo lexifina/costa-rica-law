@@ -1,0 +1,1 @@
+Artículo 12.-Prioridad. Las actividades oficiales programadas por la Municipalidad de Turrialba tendrán prioridad absoluta sobre las particulares. En caso de sobre posición, el usuario solicitante deberá asignar una nueva fecha para realizar la actividad.

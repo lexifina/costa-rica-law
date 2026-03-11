@@ -1,0 +1,5 @@
+Artículo 8º-El Concejo Municipal deberá revisar el contenido de la misma, para verificar si contiene todos los requisitos que debe llevar la solicitud, también deberá revisar la fecha con la agenda que se lleve para estos efectos, evitando que se sobrepongan horarios y actividades. De existir falta de requisitos o sobre posición de horarios, deberá por medio de la Secretaría Municipal, notificar a los interesados para aportar lo requerido.
+También deberá velar por que el aprovechamiento del parque sea rotativo, de verdadera necesidad y evitar que su préstamo sea frecuentemente a una persona.
+En periodo electoral, el préstamo de las instalaciones no debe violentar lo dispuesto en el Código Electoral.
+Una vez verificado todo lo anterior, debe proceder a trasladar al Concejo Municipal para su respectiva aprobación o denegación.
+De ser autorizado el préstamo se proceda a realizar el traslado a la Alcaldía y a Servicios Generales para que sea del conocimiento de los funcionarios responsables del parque.
