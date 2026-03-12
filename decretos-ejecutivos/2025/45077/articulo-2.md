@@ -1,0 +1,1 @@
+Artículo 2.- La delimitación indicada en el artículo anterior debe ser incorporada y aplicada al Plan General de Manejo e instrumentos de planificación tanto del área silvestre protegida como del ordenamiento territorial.
