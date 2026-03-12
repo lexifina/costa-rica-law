@@ -17,3 +17,4 @@ Define sectores estratégicos conforme al inciso a) del artículo 21 bis de la L
 | 2 | 2022-11-22 | Acuerdo 0 (2022-11-22) |
 | 3 | 2023-04-14 | Acuerdo 0 (2023-04-14) |
 | 4 | 2024-09-09 | Acuerdo 0 (2024-09-09) |
+| 5 | 2026-03-12 | Acuerdo 0 (2026-03-12) |
