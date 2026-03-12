@@ -1,0 +1,4 @@
+Artículo 8. De la publicidad.
+El Festival Nacional de Folclore se celebrará anualmente durante la última semana de agosto, en concordancia con las dinámicas culturales del país y como parte del mes en que la Organización de las Naciones Unidas para la Educación, la Ciencia y la Cultura declara Día Mundial del Folclore en 1960, momento histórico asociado a la tradición identitaria costarricense.
+La sede podrá rotar cada año entre las provincias del país, priorizando aquellas con expresiones tradicionales destacadas.
+Los horarios, fechas, lugares para las actividades que se desarrollarán en el marco del Festival Nacional de Folclore, serán compartidas con el público por medio de las redes sociales, del Ministerio de Cultura y Juventud, de la Dirección de Patrimonio Cultural del Ministerio de Cultura y Juventud, así como por otros medios digitales, en la medida de las capacidades presupuestarias como por ejemplo radio, televisión y prensa escrita.

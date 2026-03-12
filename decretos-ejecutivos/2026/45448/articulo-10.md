@@ -1,0 +1,2 @@
+Artículo 10. Del interés público.
+Declárese el Festival Nacional de Folclore de Costa Rica como actividad de interés cultural público y nacional, en razón de su aporte a la identidad, la diversidad cultural, la cohesión social y la salvaguardia del patrimonio cultural inmaterial, así como todas las acciones administrativas y eventos artísticos, que efectúen las instancias públicas encargadas para su preproducción, producción y post producción.
