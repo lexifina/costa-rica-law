@@ -1,0 +1,2 @@
+Artículo 16°. -Toda alteración al trazo del frente de una construcción, hacia fuera del alineamiento oficial, será considerada como una invasión de la vía pública.
+La municipalidad por medio de la UTGV notificará al dueño de la construcción para que proceda con la demolición de la obra en el área invadida. El plazo para esa demolición será de 30 días naturales después de la notificación. En caso de que el dueño no acate la orden, se ejecutará la demolición y se cargará el costo de los trabajos realizados más un 50 % a costo del propietario.

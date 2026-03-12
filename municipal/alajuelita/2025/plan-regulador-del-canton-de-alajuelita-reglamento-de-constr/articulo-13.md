@@ -1,0 +1,6 @@
+Título.3 Los Alineamientos
+Artículo 13°. - Toda edificación que se construya o reconstruya en lo sucesivo, con frente a la vía pública cantonal, deberá sujetarse al alineamiento y nivel oficial que fijará la Municipalidad de Alajuelita o el Ministerio de Transportes, dependiendo de la naturaleza de vía si es cantonal o nacional.
+Para las vías cantonales, la administración hará la fijación dentro de los 10 días hábiles de presentada la solicitud. Si no resolvieran en el término antes indicado, se establecerá como límite de alineamiento vial mínimo de un derecho de vía de 14 metros.
+Para otorgar el alineamiento frente a calle municipal, la definición del retiro estará a cargo del encargado de la Unidad Técnica de Gestión Vial con base en la Tabla de Parámetros Urbanísticos del plan regulador.
+Este artículo es aplicable a los permisos de construcción de muros y rampas.
+Previo a la construcción de cualquier tipo de edificación sobre predios que se encuentren ubicados frente a carreteras de la Red Vial Nacional, es obligatorio tramitar la solicitud de alineamiento ante el Departamento respectivo del MOPT en materia de Previsión Vial, y cumplir con los requisitos dispuestos en la normativa vigente del Ministerio. Lo anterior conforme a la Ley General de Caminos Públicos, Nº5060 y la Ley de Construcciones, N°833, y sus reformas o la normativa que la sustituya.

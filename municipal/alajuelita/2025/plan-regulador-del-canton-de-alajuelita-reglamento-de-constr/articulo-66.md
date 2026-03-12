@@ -1,0 +1,1 @@
+Artículo 66°. Las Construcciones de Interés Social pagarán el mismo importe municipal establecido en el artículo 65. No se aplicará descuento en las obras de interés social o con declaratoria de interés social.

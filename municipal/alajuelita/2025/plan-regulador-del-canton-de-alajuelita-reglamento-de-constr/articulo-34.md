@@ -1,0 +1,10 @@
+Artículo 34°. - Cuando se trate de permisos de construcción de ampliaciones en planta baja y otros proyectos menores de treinta metros cuadrados a excepción de proyectos habitacionales desligados de construcciones existentes, locales comerciales, construcciones con baño y servicio, siempre y cuando dichas obras no excedan el equivalente a diez salarios base, calculado conforme a lo dispuesto en el artículo 2 de la Ley N° 7337, de 5 de mayo de 1993, deben aportar:
+a. Ostentar un uso de suelo acorde al proyecto a construir o presentar el documento de Uso del suelo (debe solicitarse previamente).
+b. Dibujo constructivo y detallado con especificaciones, correctamente presentado que permita determinar claramente el proyecto en su forma de construcción y el volumen de trabajo a realizar; debidamente acotado, especificación de acabados y materiales, ubicación en el lote indicando los retiros de ley. Todos los dibujos deben de dibujarse a escala apropiada. Las escalas que se aceptarán serán 1:10; 1:20; 1:50; 1:100; 1:200; el departamento que otorga los permisos podrá aceptar otras escalas o rechazar "ad portas" el dibujo si se considera inapropiado o técnicamente ilegible y no se le dará trámite solicitud del permiso o licencia de construcción.
+c. Certificación registral.
+d. Copia del plano catastrado.
+e. Constancia de estar al día en el pago de los tributos municipales.
+f. En caso de sociedades copia de la personería jurídica al día.
+g. Disponibilidad de agua, si ya cuenta con servicio, certificación de cliente activo y si el agua se obtiene de un naciente o pozo la concesión del cuerpo de agua.
+h. El propietario, el constructor y los profesionales responsables deberán de estar al día con la seguridad social.
+Si no se presentan los documentos probatorios de las obligaciones correspondientes, certificaciones, constancias y otros documentos; el departamento encargado de otorgar los permisos de construcción revisará las situaciones particulares y en caso de no corresponder rechazará el trámite solicitado.

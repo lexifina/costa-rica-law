@@ -1,0 +1,1 @@
+Artículo 8º- Toda obra relacionada con la construcción sea de carácter permanente o provisional, deberá sujetarse a la obtención previa de la licencia de la Municipalidad, autorizada a través de un profesional responsable, Ingeniero o Arquitecto incorporado al Colegio respectivo.

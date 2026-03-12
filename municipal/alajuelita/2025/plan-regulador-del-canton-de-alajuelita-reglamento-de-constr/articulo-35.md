@@ -1,0 +1,1 @@
+Artículo 35°. - No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado del funcionario municipal competente, incluyan modificaciones al sistema estructural, eléctrico o mecánico de una obra, que pongan en riesgo la seguridad de sus ocupantes o de sus vecinos inmediatos.

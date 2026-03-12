@@ -1,0 +1,1 @@
+Artículo 51°. - Dimensiones. En los edificios de estacionamiento se seguirán las normas que señala el Reglamento de Construcciones del INVU incluyendo las disposiciones para los estacionamientos con accesorios mecánicos.

@@ -1,0 +1,1 @@
+Artículo 52°. - Las columnas y muros de los estacionamientos para vehículos, deberán tener un bordillo de quince centímetros (0,15 m) de altura y treinta centímetros (0,30 m) de separación, con los ángulos redondeados.

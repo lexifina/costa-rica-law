@@ -1,0 +1,1 @@
+Artículo 53°. - Servicios sanitarios. Los estacionamientos públicos deberán tener servicios sanitarios, precedidos por un vestíbulo, independientes para hombres y mujeres, a razón de: un mingitorio, un inodoro y un lavabo respectivamente. Se contemplarán los alineamientos establecidos en las normas de este plan regulador.

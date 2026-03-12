@@ -1,0 +1,1 @@
+Artículo 76°. - Si la construcción sin permiso municipal se localiza dentro del área de protección de una naciente, se procederá con la gestión ante las instancias judiciales y administrativas correspondientes y se tramitará la sanción de este reglamento.

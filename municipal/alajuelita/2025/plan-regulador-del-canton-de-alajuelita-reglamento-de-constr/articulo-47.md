@@ -1,0 +1,1 @@
+Artículo 47°. - Los estacionamientos deberán tener áreas para la salida y entrada de personas a los vehículos al nivel de las aceras, a cada lado de los carriles, con una longitud mínima de seis metros (6,00 m) y una anchura mínima de un metro ochenta centímetros (1,80 m).

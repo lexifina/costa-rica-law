@@ -1,0 +1,2 @@
+Artículo 71°. - Inicio y entrega de la obra.
+El administrado o bien el profesional responsable deberán informar de la iniciación de la obra y hacer entrega de la misma ante la municipalidad de Alajuelita. Lo anterior se reportará en la plataforma de servicios o correo electrónico institucional. El reporte solicitará la visita municipal, para verificar que la obra está terminada conforme a la legislación vigente y aún no está siendo habitada.

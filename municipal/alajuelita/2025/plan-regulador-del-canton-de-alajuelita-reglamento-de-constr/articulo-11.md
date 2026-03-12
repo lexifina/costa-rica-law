@@ -1,0 +1,1 @@
+Artículo 11°. A ninguna solicitud de permiso de construcción se le dará trámite hasta tanto no cuente con estos requisitos previos. Únicamente se realizará el trámite de permiso por medio de la plataforma de Administración de Proyectos de Construcción (APC) cumpliendo también con los requisitos con que cuenta ese instrumento.

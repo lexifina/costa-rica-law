@@ -1,0 +1,3 @@
+Título.4 Sobre las Obras de Construcción
+Artículo 20°. - Los responsables de las obras serán el propietario y el Ingeniero o Arquitecto a cargo del diseño y dirección de la obra, quienes responderán solidariamente de los datos que se indiquen en el proyecto constructivo. La Municipalidad será responsable de lo referido a la definición del alineamiento y de los niveles, así como de la verificación del cumplimiento de las normas del plan regulador, junto con los responsables de la obra.
+Podrán construirse túneles o puentes que junten obras de una calle a otra o bien de una acera a otra o de un sector a otro. Para estos efectos se necesitará la aprobación conjunta extraordinaria de la Unidad Técnica de Gestión Vial y el Departamento de Planificación Urbana.

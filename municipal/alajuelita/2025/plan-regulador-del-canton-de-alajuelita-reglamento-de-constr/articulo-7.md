@@ -1,0 +1,1 @@
+Artículo 7º-El fraccionamiento de un predio en manzanas y lotes, para ponerlos a la venta con fines constructivos, previo a la aprobación del Concejo Municipal, deberán cumplir con las regulaciones establecidas en el Reglamento de Fraccionamientos y Urbanizaciones de este plan regulador.

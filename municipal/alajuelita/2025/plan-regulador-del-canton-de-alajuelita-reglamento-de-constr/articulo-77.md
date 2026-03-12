@@ -1,0 +1,1 @@
+Artículo 77°. -Si el propietario presenta los documentos para la obra construida a la Municipalidad, ésta deberá comprobar si la obra ha sido ejecutada de acuerdo con los documentos presentados y si estos satisfacen los requisitos exigidos por la Ley y este reglamento.

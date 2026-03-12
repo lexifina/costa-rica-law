@@ -1,0 +1,1 @@
+Artículo 54°. - Los estacionamientos públicos tendrán una caseta de control con área de espera para el público no menor de seis metros cuadrados (6,00 m2). Se contemplará los alineamientos establecidos en las normas de este reglamento

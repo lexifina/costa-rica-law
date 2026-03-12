@@ -1,0 +1,1 @@
+Artículo 81°. Para las normas constructivas y otras disposiciones asociadas que no se encuentran en este Reglamento, la Municipalidad recurrirá supletoriamente al Reglamento de Construcciones del INVU.

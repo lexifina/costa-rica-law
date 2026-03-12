@@ -1,0 +1,1 @@
+Artículo 39°. -En los casos de obras menores en que la Municipalidad lo considere necesario, podrá realizar una recalificación del monto del impuesto de construcción con base en una inspección realizada una vez concluida la obra, si de dicha inspección se desprende un área de construcción mayor a la autorizada.

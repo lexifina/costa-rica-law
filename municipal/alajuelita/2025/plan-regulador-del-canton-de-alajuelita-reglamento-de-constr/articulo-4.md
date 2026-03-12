@@ -1,0 +1,1 @@
+Artículo 4º-Cuando se trate de ejecución de obras que pueden alterar el equilibrio del subsuelo, el Departamento de Construcciones de la Municipalidad de Alajuelita deberá recomendar las medidas técnicas necesarias a fin de evitar daños a terceros y a los mismos solicitantes.

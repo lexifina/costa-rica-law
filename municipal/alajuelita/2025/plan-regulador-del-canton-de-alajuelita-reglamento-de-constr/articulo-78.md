@@ -1,0 +1,1 @@
+Artículo 78°. - Si no se presenta el proyecto o no se hacen las modificaciones ordenadas, se iniciará el procedimiento administrativo respectivo por el incumplimiento. En ningún caso autorizará el uso de la construcción y si está en uso, impondrá multa por esta causa y dispondrá la desocupación y clausura de ella.

@@ -1,0 +1,1 @@
+Artículo 9°_ Los requisitos documentales que sean otorgados por la misma municipalidad, han cumplir con el procedimiento de coordinación institucional, establecido en la Ley de Protección al Ciudadano de exceso de Requisitos y Trámites Administrativos, Ley N. 8220, sus reformas o normativa que la sustituya.

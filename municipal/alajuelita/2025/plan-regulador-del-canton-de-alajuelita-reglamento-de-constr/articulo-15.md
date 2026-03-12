@@ -1,0 +1,1 @@
+Artículo 15°. -No se autorizará la construcción de ningún elemento constructivo en el espacio destinado a antejardín. Sin embargo, por motivos de seguridad ciudadana previamente valorada de manera oficial por las autoridades de la Fuerza Pública, la Dirección de Planificación Urbana podrá autorizar en cerramiento de las tapias frontales y el antejardín.

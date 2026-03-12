@@ -1,0 +1,2 @@
+Artículo 18°. - Distancia o conductores eléctricos.
+Todo elemento de un edificio, estructural o puramente ornamental, así como todo rótulo o anuncio comercial que se fije a aquéllos, en su punto más próximo a líneas de conducción eléctrica, ha de respetar las distancias mínimas que señala la Autoridad Reguladora de los Servicios Públicos ARESEP. En cuanto a las acometidas eléctricas para el propio edificio, las distancias de los elementos de éste están indicadas en la Normativa Técnica Nacional de ARESEP.

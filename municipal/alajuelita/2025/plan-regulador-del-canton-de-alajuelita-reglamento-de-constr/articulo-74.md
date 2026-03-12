@@ -1,0 +1,1 @@
+Artículo 74°. - Si pasado el plazo fijado, el propietario no ha dado cumplimiento a la orden anterior, el Departamento Planificación Urbana emitirá una resolución administrativa y se fijará un último plazo improrrogable de 15 días naturales para su cumplimiento o su ampliación mediante recursos formales avalados por la alcaldía.

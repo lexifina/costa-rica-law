@@ -1,0 +1,1 @@
+Artículo 29°. -Para el estacionamiento de vehículos que carguen o descarguen en la vía pública se debe solicitar permiso a la Dirección General de Tránsito, como se solicita en el Reglamento de Vialidad.
