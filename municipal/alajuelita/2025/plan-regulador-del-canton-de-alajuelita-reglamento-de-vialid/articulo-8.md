@@ -1,0 +1,5 @@
+Artículo 8 Objetivos.
+Este Reglamento busca establecer un adecuado sistema vial para asegurar la funcionalidad de la ciudad, en estrecha coordinación con el MOPT. Se pretende, fundamentalmente, encauzar los flujos motorizados, de acuerdo con las necesidades de viajes, y así reducir las molestias a los residentes de los barrios. Los objetivos específicos de reglamentar la vialidad y el transporte son:
+1. Lograr una relación directa entre el sistema vial y los diferentes usos del suelo, establecidos en el Reglamento de Zonificación del Uso de Suelo del Plan Regulador, para mejorar la movilidad en cada una de las zonas de la ciudad.
+2. Lograr un sistema de desplazamientos integrado, eficiente y acorde con los intereses de todos los usuarios del espacio público: peatones, transporte público, transporte privado, bicicleta y otros.
+3. Jerarquizar las vías, con base en parámetros de ingeniería de tránsito y urbanísticos, para lograr una mayor eficiencia del sistema; respetando los derechos de cada uno de sus usuarios.

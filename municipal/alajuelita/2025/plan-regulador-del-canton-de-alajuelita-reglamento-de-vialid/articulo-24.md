@@ -1,0 +1,2 @@
+Artículo 24 Estacionamientos Públicos y Privados.
+Son los establecimientos en propiedad privada, que ofrece servicio de aparcamiento a todo público, como actividad lucrativa. Los Estacionamientos Privados son aparcamientos o espacios ubicados en propiedad privada, que forman parte del funcionamiento de un establecimiento comercial, de servicios, industrial o institucional, en donde el servicio que prestan es enteramente complementario a la actividad principal y su utilización no genera actividad lucrativa, por lo que no necesita patente municipal.

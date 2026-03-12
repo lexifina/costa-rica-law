@@ -1,0 +1,3 @@
+Artículo 56 Disposiciones finales
+En caso de no estar el administrado de acuerdo con lo señalado en las disposiciones sancionatorias de este reglamento o de los alcances de los anteriores artículos, podrá presentar los recursos de revocatoria ante el órgano que lo dictó y apelación para ante la Alcaldía Municipal.
+Para las normas de diseño, constructivas y otras disposiciones asociadas que no se encuentran en este Reglamento, la Municipalidad recurrirá supletoriamente a las normas que el INVU y el MOPT han establecido al respecto. El presente reglamento deroga las anteriores disposiciones y regulaciones reglamentarias que tuviere la Municipalidad de Alajuelita en materia de vialidad, en todo lo que se le oponga.

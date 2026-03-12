@@ -1,0 +1,6 @@
+Artículo 10 Vías Regionales
+De acuerdo con la Ley de General de Caminos Públicos (Ley No. 5060, del 22-08-1972 y sus reformas) son las vías bajo la administración del MOPT.
+a) Primarias. Son aquellas que interconectan las principales carreteras nacionales dentro del Gran Área Metropolitana y sirven de enlace, principalmente, entre los centros urbanos (cabeceras cantónales principales), aeropuertos, zonas industriales, comerciales y recreativas de importancia nacional. No hay vías primarias en el cantón de Alajuelita.
+b) Secundarias. Son aquellas que sirven de enlace entre los principales centros urbanos del Área Metropolitana, no servidos por las vías primarias. En Alajuelita dentro de la Red Vial Nacional (RVN) se encuentran las vías número 105, 110, 177 y 217.
+c) Terciarias. Son aquellas que sirven de colectoras de tránsito para las vías primarias y secundarias, así como de enlace entre los centros urbanos de segundo orden (cabeceras de cantones pequeños y distritos grandes). No se presentan en Alajuelita.
+d) Rutas de Travesía. Conjunto de carreteras públicas nacionales que atraviesan el cuadrante de un área urbana o de calles que unen dos secciones de carretera nacional en el área referida. En Alajuelita se presenta la vía número 11001, que enlaza La Aurora de San Felipe con Hatillo.

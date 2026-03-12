@@ -1,0 +1,3 @@
+Artículo 39 Permisos en la vía
+Para colocar estructuras de cualquier tipo, depositar los materiales de construcción y escombros o hacer instalaciones de carácter provisional en las vías públicas de administración municipal, es obligatorio obtener la autorización de la Municipalidad. Para autorizaciones en vías nacionales, dicha aprobación debe contar de previo con el visto bueno del MOPT.
+De no cumplirse con estas disposiciones, la Municipalidad procederá a la clausura de la construcción y la eliminación del obstáculo, cargando a la cuenta del propietario los costos generados.

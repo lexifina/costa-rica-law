@@ -1,0 +1,2 @@
+Artículo 35 Rampas para personas con discapacidad.
+Los espacios públicos, aceras, parques, calles, puentes peatonales, plazas y otros, deben disponer de rampas para el acceso de personas con discapacidad. Estas tendrán gradiente máxima de un 10%, ser construidas del mismo material que las aceras y acompañarse con una barandilla a una altura de 90 cm. La acera, así como la rampa para personas con discapacidad deberán tener un ancho mínimo de 2.0 en los centros urbanos y de 1.80m fuera de estos centros.

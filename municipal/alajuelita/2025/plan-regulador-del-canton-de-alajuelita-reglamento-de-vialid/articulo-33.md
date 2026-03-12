@@ -1,0 +1,2 @@
+Artículo 33 Límites del predio
+El propietario debe asegurar el parqueo de los vehículos dentro de los límites de su predio y no obstaculizar el paso de los peatones por la acera. En caso de no poder hacerlo por falta de espacio, el propietario debe abstenerse de modificar el cordón de caño y la acera para rampas de acceso al predio. Caso contrario, se aplicará la multa que establece el artículo 76 del Código Municipal.

@@ -1,0 +1,2 @@
+Artículo 38 Rotura de superficie
+La rotura de superficie de rodamiento en la vía pública local para la ejecución de obras públicas o privadas requiere licencia de la Municipalidad, la cual fijará, en cada caso, las condiciones bajo las cuales la concede. El solicitante de la licencia de rotura en las calles locales estará obligado a ejecutar la reparación correspondiente lo más pronto posible y para garantizarlo deberá depositar, el valor correspondiente a la reparación. Para estas obras, el interesado deberá solicitar permiso a la UTGV.
