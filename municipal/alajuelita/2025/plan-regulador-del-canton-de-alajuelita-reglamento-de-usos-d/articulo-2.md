@@ -1,0 +1,7 @@
+Artículo 2. Tipos de Usos del Suelo:
+a) Suelo Urbanizado: Todo aquel suelo que ya ha sido transformado por contar con la infraestructura construida tales como: vialidad con los acabados predominantes de la localidad, redes de distribución de agua potable, de alcantarillado pluvial y de evacuación de aguas negras (cuando exista el servicio) postes y tendido eléctrico o electrificación subterránea entre otros.
+b) Suelo Urbanizable: Aquel suelo destinado en este Plan Regulador como área a transformar en nuevos desarrollos urbanos. Todo desarrollo de urbanización o fraccionamiento en suelo no urbanizado debe considerar la construcción de la infraestructura urbana necesaria para poder llevarlo a cabo.
+c) Suelo No Urbanizable: El suelo que, por razones ambientales, agrícolas, forestales, hídricas y cualquier otra restricción impuesta en este Plan Regulador o alguna Ley en particular no está destinado al desarrollo urbanístico.
+En el suelo no urbanizable se permitirá aquel tipo de obra, actividad o proyecto cuya finalidad sea la preservación, el mejoramiento paisajístico, la protección agrícola, la conformación de áreas verdes y la mitigación del riesgo por amenaza natural o tecnológica, con excepción de lo señalado en este reglamento.
+Se permitirá la protección de la propiedad privada por medio de tapias o cercas.
+d) Suelo Rural disperso con potencial urbanizable: suelos con factibilidad de urbanizarse en sectores dispersos del cantón.
