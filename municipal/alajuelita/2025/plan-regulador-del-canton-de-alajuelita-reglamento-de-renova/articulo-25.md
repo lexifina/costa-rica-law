@@ -1,0 +1,4 @@
+Artículo 25. Facultad Remodeladora de la Municipalidad.
+De conformidad con el artículo 53 de la Ley de Planificación Urbana, para efectos de Renovación Urbana la Municipalidad tendrá facultades de abrir y cerrar calles, así como rectificar su trazado. Según se defina para cada caso de Renovación Urbana, se contemplará lo que indique el plan regulador.
+La Municipalidad gestionará con los propietarios de los inmuebles sujetos a remodelación, lo correspondiente a redistribución de lotes, para arreglar por convenio el modo de reubicarles dentro de la misma zona, trasladarle a otra y efectuar compensaciones. De no haber acuerdo, podrá procederse a la expropiación según lo establecido en la Ley No. 7495 de Expropiaciones.
+Cualquier gasto referente a otorgamiento e inscripción en el Registro Público, y generado por las operaciones de remodelación, correrá a cargo de la Municipalidad, de tal forma que los propietarios afectados quedarán exentos.

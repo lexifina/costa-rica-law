@@ -1,0 +1,5 @@
+Artículo 8. Normas Programáticas del Proyecto.
+La Municipalidad debe establecer, para cada Área Estratégica de Renovación Urbana, las condiciones generales de desarrollo que deben ser alcanzadas de acuerdo con los intereses estratégicos municipales.
+Estas normas deberán incluir el uso del suelo y los parámetros definidos en el reglamento de zonificación.
+En caso de variaciones, se requerirá cumplir con el proceso de modificación (del plan regulador) que establece la Ley de 4240.
+Se promoverá la participación activa de todas las partes involucradas, sociedad civil, sector privado y gobierno local para la definición de las normas programáticas, a través de mecanismos, procedimientos y estrategias que permitan garantizar el conocimiento oportuno y la cooperación activa de las partes interesadas, para tales fines, se debe incluir en los Proyectos de Renovación Urbana una Propuesta de Comunicación y Participación que incluya aspectos como el manejo de la información, convocatoria, sectores representados, alcances de intervención de cada sector, metodología, cronograma, entre otros, los cuales serán definidos por el Municipio.

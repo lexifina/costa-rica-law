@@ -1,0 +1,2 @@
+Artículo 29. Reajuste de terrenos.
+El objetivo principal de los micros reparcelamientos es lograr la maximización del suelo residencial de las comunidades zonificadas como de renovación urbana, mediante la densificación estratégica de las zonas no vulnerables según los parámetros de alta densidad definidos en la Tabla de Parámetros Urbanos del Plan Regulador de Municipalidad de Alajuelita, aprovechando la estructura predial existente.
