@@ -1,0 +1,2 @@
+Artículo 104.- Certificaciones. Corresponde al Secretario o Secretaria General certificar de manera fehaciente los acuerdos, actas, resoluciones y demás actuaciones de la Junta Directiva, garantizando su existencia, contenido, validez y firmeza.
+Toda certificación emitida por la Secretaría tendrá valor probatorio suficiente para efectos legales y administrativos, y no podrá ser impugnada por actos internos de otros funcionarios que no sean competencia de la Junta Directiva.

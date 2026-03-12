@@ -1,0 +1,1 @@
+Artículo 95.- Registro de asistencia y pago de dietas. La Secretaría llevará registro de asistencia de los miembros de Junta Directiva y servirá de base para el pago de dietas, según lo establecido en este Reglamento. Situaciones especiales serán resueltas por la Presidencia de la Junta.

@@ -1,0 +1,1 @@
+Artículo 113.- Firma de actas. Cada acta deberá ser firmada por el Presidente de la Junta Directiva, y, en caso de existir votos disidentes, por los miembros que hayan registrado su voto en contra. La firma constituye constancia de aprobación y validación del contenido del acta.

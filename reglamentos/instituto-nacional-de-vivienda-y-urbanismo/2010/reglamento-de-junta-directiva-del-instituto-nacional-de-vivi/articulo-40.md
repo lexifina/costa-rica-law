@@ -1,3 +1,3 @@
-CAPÍTULO XI
-De los recursos
-Artículo 40.—En el evento de que alguno de los miembros de la Junta Directiva interponga recurso de revisión contra un acuerdo no firme, el mismo será resuelto al conocerse el acta de esa sesión. El recurso de revisión deberá ser presentado, a más tardar al discutirse el acta y deberá resolverse en la misma sesión.
+Artículo 40.- Convocatoria y alcance de las sesiones extraordinarias. La convocatoria a sesiones extraordinarias deberá realizarse con al menos veinticuatro horas de anticipación, salvo casos de urgencia debidamente motivados, y deberá indicar la modalidad, el lugar o medio tecnológico, la fecha, la hora y el orden del día. No obstante, la Junta Directiva quedará válidamente constituida sin necesidad de convocatoria formal ni orden del día, cuando concurran la totalidad de sus miembros en ejercicio y así lo acuerden de manera unánime, dejándose constancia expresa de ello en el acta correspondiente.
+En las sesiones extraordinarias únicamente podrán conocerse y resolverse los asuntos incluidos en la convocatoria, los cuales deberán ser de naturaleza especial o urgente.
+La Secretaría de la Junta Directiva será responsable de realizar y notificar las convocatorias, por los medios oficiales definidos, dejando constancia de ello en el expediente respectivo.

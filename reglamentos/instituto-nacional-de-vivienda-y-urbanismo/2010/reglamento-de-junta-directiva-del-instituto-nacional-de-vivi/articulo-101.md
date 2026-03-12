@@ -1,0 +1,2 @@
+Artículo 101.- Sistema de control de acuerdos. La Secretaría de la Junta Directiva mantendrá actualizada la base de datos del Sistema de Control de Acuerdos, asegurando su localización ágil, trazabilidad, integridad y disponibilidad.
+Asimismo, la Secretaría custodiará de manera ordenada toda la correspondencia remitida a la Junta Directiva o emanada de esta, asegurando su registro oficial y la posibilidad de verificación fehaciente de cada acto administrativo.

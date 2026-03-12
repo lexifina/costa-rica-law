@@ -1,0 +1,5 @@
+CAPÍTULO XVI
+DEL LIBRO DE ACTAS Y GESTIÓN DOCUMENTAL
+Artículo 110.- Libro de Actas: formato y autorización. El Libro de Actas de la Junta Directiva podrá llevarse en formato físico, digital o mixto, conforme a la normativa vigente aplicable y a los lineamientos institucionales del INVU. Dicho libro deberá estar debidamente foliado y contar con la autorización de la Auditoría Interna del INVU, de conformidad con la Ley General de Control Interno y demás disposiciones legales relacionadas con la gestión documental.
+En la primera página de cada Libro de Actas se registrará una razón de apertura, otorgada por la Auditoría Interna, que incluirá, al menos: fecha de apertura, número del Libro, cantidad de folios, estado físico del tomo y cualquier otra información que la Auditoría considere pertinente.
+En la última página, se anotará una razón de cierre, también autorizada por la Auditoría Interna. Todas las páginas deberán mantenerse libres de borrones, tachaduras o enmendaduras. Cualquier corrección deberá hacerse mediante nota al final del acta correspondiente, consignando fecha, motivo y responsable de la corrección.

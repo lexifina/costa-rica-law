@@ -1,0 +1,1 @@
+Artículo 99.- Revisión y fe de actas. La Secretaría verificará que las actas transcritas sean fieles al texto aprobado, dejando constancia de fe al pie de cada documento antes de su firma por la Presidencia y miembros con voto disidente.

@@ -1,0 +1,1 @@
+Artículo 108.- Continuidad del servicio. La Secretaría deberá adoptar todas las medidas necesarias para garantizar la continuidad operativa de la Oficina, aun en casos de ausencia temporal, vacaciones, incapacidad o fuerza mayor, de modo que ninguna función crítica quede interrumpida.

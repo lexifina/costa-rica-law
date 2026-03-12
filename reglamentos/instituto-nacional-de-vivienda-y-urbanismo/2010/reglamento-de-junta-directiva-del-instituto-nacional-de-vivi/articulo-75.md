@@ -1,0 +1,4 @@
+Artículo 75.- Alcance subjetivo de los impedimentos, abstenciones y recusaciones. Las disposiciones relativas a impedimentos, abstenciones y recusaciones serán aplicables, en lo que corresponda, a todos los funcionarios, asesores, técnicos, auditores, consultores y demás servidores que intervengan en la preparación, análisis, recomendación o asesoramiento de los asuntos sometidos al conocimiento de la Junta Directiva.
+Estas personas estarán obligadas a informar de inmediato cualquier situación que pueda comprometer su imparcialidad, independencia de criterio o el deber de probidad.
+Su incumplimiento dará lugar a las responsabilidades disciplinarias, civiles y penales que correspondan, conforme a la normativa vigente.
+La inobservancia de este deber no afectará la validez del acuerdo, salvo que se demuestre que influyó de forma determinante en su adopción.

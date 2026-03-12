@@ -1,6 +1,4 @@
-Artículo 16.—El orden del día o agenda enumerará los asuntos que se van a conocer en la respectiva sesión y contendrá los siguientes datos:
-0 Número de sesión.
-0 Fecha en que se va a realizar la sesión.
-0 Hora en que empezará la sesión.
-0 Lugar en que se realizará la sesión.
-0 Lista de los asuntos a considerar.
+CAPITULO III
+PRESIDENCIA EJECUTIVA Y VICEPRESIDENCIA
+Artículo 16.- Presidencia Ejecutiva. El Presidente o Presidenta Ejecutiva será nombrado(a) y removido(a) por el Consejo de Gobierno, de conformidad con la Ley N.º 1788, la Ley N.º 4646 y sus reformas. Deberá ser una persona de reconocida idoneidad, experiencia y conocimientos en el campo de las actividades de la institución.
+El Presidente Ejecutivo desempeñará un cargo de tiempo completo y dedicación exclusiva, quedando expresamente prohibido el ejercicio simultáneo de otros cargos públicos o profesiones liberales, salvo autorización legal expresa.

@@ -1,0 +1,2 @@
+Artículo 111.- Custodia y responsabilidad. La Secretaría de la Junta Directiva tendrá a su cargo la custodia del Libro de Actas, garantizando su integridad, seguridad, autenticidad, confidencialidad e inalterabilidad.
+El incumplimiento de esta obligación constituirá responsabilidad administrativa, civil o penal, según corresponda, conforme a la normativa aplicable y a las disposiciones del Código de Gobierno Corporativo del INVU.

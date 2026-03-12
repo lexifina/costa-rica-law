@@ -1,4 +1,2 @@
-CAPÍTULO IX
-De los acuerdos
-Artículo 29.—Los acuerdos serán adoptados por mayoría absoluta de los Directivos presentes.
-Todos los acuerdos que tome la Junta Directiva serán declarados firmes al momento de aprobarse el acta de la sesión correspondiente. Salvo aquellos acuerdos que por interés institucional requieran ser adoptados como firmes en ese acto, en cuyo caso para tal firmeza se requiere de votación calificada de las 2/3 partes de la totalidad de los miembros de la Junta Directiva, y se autorizará su comunicación inmediata.
+Artículo 29.- Responsabilidad administrativa, civil y penal. Los miembros de la Junta Directiva responderán individual y solidariamente por sus actuaciones conforme a la normativa vigente, incluyendo la Ley N.º 1788 y reformas, Ley General de la Administración Pública y Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y cualquier otra disposición legal aplicable.
+El incumplimiento de los deberes establecidos en este Reglamento o la omisión de excusarse por conflicto de interés constituirá causal para la aplicación de sanciones administrativas, civiles o penales, garantizando siempre el derecho al debido proceso y a la defensa del miembro afectado.

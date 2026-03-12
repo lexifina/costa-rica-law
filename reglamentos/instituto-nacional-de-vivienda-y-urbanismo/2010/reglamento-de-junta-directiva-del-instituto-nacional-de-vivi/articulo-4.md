@@ -1,6 +1,2 @@
-Artículo 4º—Para efectos de las disposiciones contenidas en este Reglamento se entenderá por:
-a) Junta: Junta Directiva.
-b) Presidente: Presidente de la Junta Directiva.
-c) Miembros de la Junta Directiva: El Presidente Ejecutivo y los seis Directivos nombrados por el Consejo de Gobierno.
-d) INVU: Instituto Nacional de Vivienda y Urbanismo.
-e) Administración: La Gerencia y Subgerencia del INVU.
+Artículo 4.- Principios rectores. La actuación de la Junta Directiva se regirá por los principios de legalidad, colegialidad, probidad, transparencia, eficiencia, razonabilidad, continuidad del servicio público y rendición de cuentas.
+Estos principios serán de aplicación obligatoria en todas las deliberaciones, acuerdos y decisiones adoptadas por el órgano colegiado.

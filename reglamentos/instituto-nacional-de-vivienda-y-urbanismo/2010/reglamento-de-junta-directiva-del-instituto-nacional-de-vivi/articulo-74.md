@@ -1,0 +1,4 @@
+Artículo 74.- Efectos de la violación del deber de abstención. La participación de un miembro de la Junta Directiva en la deliberación o votación de un asunto respecto del cual exista una causal legal de abstención constituirá una infracción al deber de probidad y al principio de imparcialidad.
+Cuando dicha participación haya sido determinante para la adopción del acuerdo, producirá la nulidad absoluta del mismo, la cual deberá ser declarada por la propia Junta Directiva, de oficio o a petición de parte, previo cumplimiento del debido proceso.
+En caso de que la participación no haya influido en la formación de la voluntad colegiada, se conservará la validez del acuerdo, sin perjuicio de las responsabilidades administrativas, civiles o penales que correspondan al miembro que incumplió su deber de abstención, conforme al ordenamiento jurídico vigente.
+La nulidad y sus efectos deberán quedar expresamente consignados en el acta correspondiente.

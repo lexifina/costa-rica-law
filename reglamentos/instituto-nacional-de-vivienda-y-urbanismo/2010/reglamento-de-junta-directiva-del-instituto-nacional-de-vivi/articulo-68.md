@@ -1,0 +1,1 @@
+Artículo 68.- Rectificación de errores materiales. La Junta Directiva podrá rectificar en cualquier momento los errores materiales, aritméticos o de hecho contenidos en sus acuerdos, siempre que dicha rectificación no altere el fondo de lo resuelto. La rectificación deberá constar en acta.

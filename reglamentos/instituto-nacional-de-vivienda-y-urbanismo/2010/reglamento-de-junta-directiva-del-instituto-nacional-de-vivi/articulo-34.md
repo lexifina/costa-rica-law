@@ -1,5 +1,7 @@
-CAPÍTULO X
-De las actas
-Artículo 34.- De cada sesión se levantará un acta en la cual se consignará el número de sesión correspondiente, con expresa indicación si se trata de una sesión ordinaria o extraordinaria, la hora de inicio y la hora conclusión de la respectiva sesión, lugar en que se ha celebrado, indicación de las personas asistentes, así como las circunstancias de ausencia de aquellos que no concurren, la transcripción literal de todas las intervenciones efectuadas en apego a los principios constitucionales de razonabilidad y proporcionalidad, la forma y resultado de la votación y el contenido de los acuerdos.
-En el acta igualmente se consignará el retiro del recinto de sesiones o la desconexión de la sesión virtual, de cualquiera de los concurrentes a la sesión de Junta Directiva cuando por razones o circunstancias especiales, este hecho ocurra. También se consignará el ingreso y egreso del recinto de sesiones o de la sesión virtual de cualquiera de los invitados especiales llamados al momento de conocer un punto específico de agenda.
-(Así reformado mediante sesión sesión ordinaria N° 6620 del 21 de diciembre de 2023)
+Artículo 34.- Quórum para sesionar válidamente. El quórum necesario será la mayoría absoluta de los miembros en ejercicio, de conformidad con la Ley N.º 1788, Ley General de la Administración Pública y normativa aplicable.
+Si a la hora de la sesión no se conforma el quórum, el Presidente Ejecutivo podrá otorgar plazo prudencial para su integración, considerando interés público y continuidad del servicio.
+Para sesiones virtuales y mixtas, se computarán como presentes aquellos miembros que participen mediante medios tecnológicos que permitan su identificación plena y comunicación bidireccional durante toda la sesión.
+Si no se integra el quórum en primera convocatoria, la segunda convocatoria podrá realizarse al menos 24 horas después, con mayoría absoluta.
+En casos de urgencia debidamente calificados, la segunda convocatoria podrá realizarse 30 minutos después, con asistencia de al menos un tercio de los miembros, conforme a la Ley General de la Administración Pública.
+Si durante la sesión se pierde el quórum, el Presidente Ejecutivo deberá suspenderla, dejando constancia en acta; los acuerdos adoptados después de ese momento serán nulos e inválidos.
+En todo caso, deberá observarse lo dispuesto en los artículos 52 inciso 5) y 53 inciso 3) de la Ley General de la Administración Pública.

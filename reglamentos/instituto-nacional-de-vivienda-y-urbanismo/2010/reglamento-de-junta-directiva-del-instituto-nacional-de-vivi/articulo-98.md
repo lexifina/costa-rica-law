@@ -1,0 +1,1 @@
+Artículo 98.- Expediente de actas. Cada acta de las sesiones celebradas por la Junta Directiva deberá contar con su respectivo expediente, el cual estará conformado por los documentos originales o copias de los asuntos tratados, constituyendo libro auxiliar del Libro de Actas de la Junta.

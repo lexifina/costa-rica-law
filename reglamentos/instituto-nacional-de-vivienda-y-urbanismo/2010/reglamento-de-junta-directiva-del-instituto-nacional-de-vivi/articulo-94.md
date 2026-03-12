@@ -1,0 +1,1 @@
+Artículo 94.- Oficina de Secretaría. La Oficina de Secretaría atenderá el funcionamiento operativo de la Junta Directiva y asistirá a todas las sesiones, salvo aquellas declaradas privadas. Coordinará con la Presidencia Ejecutiva lo relativo a sesiones ordinarias y extraordinarias.

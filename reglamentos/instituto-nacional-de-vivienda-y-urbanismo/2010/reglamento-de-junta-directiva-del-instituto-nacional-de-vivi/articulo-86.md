@@ -1,0 +1,2 @@
+Artículo 86.- Supervisión institucional. La Auditoría Interna mantiene la competencia exclusiva de supervisión y fiscalización superior del Instituto, sin perjuicio de la asesoría y seguimiento que realice el Responsable de Cumplimiento.
+La Junta Directiva podrá realizar evaluaciones periódicas de desempeño de sus miembros y comisiones, garantizando cumplimiento del buen gobierno y del interés público.

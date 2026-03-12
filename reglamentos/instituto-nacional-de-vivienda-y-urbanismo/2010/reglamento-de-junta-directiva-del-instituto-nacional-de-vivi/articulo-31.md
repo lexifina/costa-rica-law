@@ -1,1 +1,2 @@
-Artículo 31.—La transcripción de los acuerdos tomados por la Junta Directiva corresponde hacerla a la Oficina de Secretaría de Junta Directiva, con el cuidado y discreción que tal labor exige. El comunicado de acuerdo será firmado por el Presidente de la Junta Directiva.
+Artículo 31.- Desarrollo de las sesiones. Las deliberaciones se regirán por los principios de orden, respeto, objetividad, transparencia y economía procesal.
+El Presidente de la sesión tendrá la facultad de mantener el orden y limitar intervenciones que afecten la eficacia de la sesión, dejando constancia de cualquier incidencia en el Libro de Actas.

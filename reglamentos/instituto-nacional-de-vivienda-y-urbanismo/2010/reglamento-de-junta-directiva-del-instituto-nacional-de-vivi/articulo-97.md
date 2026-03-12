@@ -1,0 +1,2 @@
+Artículo 97.- Conservación de registros. La Secretaría conservará todos los registros de actas, grabaciones, libros oficiales y expedientes, conforme al Dictamen C-237-2007 de la Procuraduría General de la República y la normativa vigente, garantizando integridad, autenticidad y confidencialidad.
+Asimismo, conservará los libros oficiales de actas, el archivo de antecedentes, las copias de las actas firmes, foliadas y modificadas, así como sus respectivos borradores.

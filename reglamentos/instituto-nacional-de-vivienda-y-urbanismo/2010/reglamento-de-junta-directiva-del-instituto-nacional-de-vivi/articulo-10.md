@@ -1,1 +1,1 @@
-Artículo 10.—Las ausencias a las sesiones de Junta Directiva deben ser justificadas ante el Presidente; con al menos dos horas de antelación.
+Artículo 10.- Actualización y revisión periódica del Reglamento. La Junta Directiva deberá revisar y actualizar el Reglamento Interno al menos cada tres años o cuando se produzcan modificaciones legales, a fin de garantizar la congruencia con la normativa vigente y los principios de buen gobierno corporativo.

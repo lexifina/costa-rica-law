@@ -22,3 +22,4 @@ Reglamento de Junta Directiva del Instituto Nacional de Vivienda y Urbanismo
 | 7 | 2023-05-11 | Reglamento 6579 (2023-05-11) |
 | 8 | 2023-12-21 | Reglamento 6620 (2023-12-21) |
 | 9 | 2025-01-09 | Reglamento 1 (2025-01-09) |
+| 10 | 2026-03-12 | Reglamento 11 (2026-03-12) |

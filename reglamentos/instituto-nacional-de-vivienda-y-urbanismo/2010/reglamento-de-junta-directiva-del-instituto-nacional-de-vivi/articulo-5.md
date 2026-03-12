@@ -1,3 +1,2 @@
-CAPÍTULO II
-Funciones y atribuciones del Presidente Ejecutivo
-Artículo 5º—Corresponderá al Presidente Ejecutivo presidir la Junta Directiva, con todas las facultades, atribuciones y deberes prescritos por la Leyes de la República, reglamentos del INVU y demás normas pertinentes. Podrá suspender la sesión en el momento que lo estime necesario con causa justificada.
+Artículo 5. Carácter colegiado y responsabilidad. Las decisiones de la Junta Directiva son colegiadas y generan responsabilidad individual de cada miembro, conforme al ordenamiento jurídico vigente.
+Los miembros podrán registrar votos disidentes o razonados, los cuales serán consignados en el acta, sin que ello exima de su responsabilidad en la adopción de acuerdos por mayoría.

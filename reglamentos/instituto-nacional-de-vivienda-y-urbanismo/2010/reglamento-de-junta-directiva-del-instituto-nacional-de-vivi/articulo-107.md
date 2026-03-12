@@ -1,0 +1,1 @@
+Artículo 107.- Responsabilidad. El incumplimiento, negligencia, omisión o actuación dolosa por parte del Secretario o Secretaria General o del personal de la Oficina de Secretaría dará lugar a las responsabilidades administrativas, civiles o penales correspondientes, sin perjuicio de las acciones disciplinarias o correctivas que disponga la Junta Directiva.

@@ -1,0 +1,4 @@
+Artículo 76.- Recursos contra las resoluciones sobre abstenciones y recusaciones. Las resoluciones que tengan por acreditada una causal de abstención no admitirán recurso alguno, por tratarse del cumplimiento de una obligación legal de orden público.
+Contra las resoluciones que resuelvan recusaciones procederá únicamente el recurso de revocatoria, el cual deberá interponerse debidamente fundamentado dentro del plazo de veinticuatro horas contado a partir de su notificación o conocimiento. El recurso será resuelto por la Junta Directiva en la sesión inmediata siguiente.
+La resolución que resuelva el recurso de revocatoria agotará la vía administrativa.
+La interposición del recurso no suspenderá el procedimiento, salvo que la Junta Directiva disponga lo contrario mediante resolución motivada.

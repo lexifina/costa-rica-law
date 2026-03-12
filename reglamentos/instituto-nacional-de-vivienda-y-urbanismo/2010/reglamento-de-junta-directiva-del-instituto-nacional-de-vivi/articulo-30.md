@@ -1,1 +1,5 @@
-Artículo 30.—No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes las 2/3 partes del total de los miembros del órgano, y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
+CAPÍTULO VI
+SESIONES DE LA JUNTA DIRECTIVA
+Artículo 30.- Tipos de sesiones y modalidades. La Junta Directiva celebrará sesiones ordinarias y extraordinarias, que podrán realizarse en modalidad presencial, virtual y mixta, conforme a lo dispuesto en el artículo 269 de la Ley General de la Administración Pública.
+La elección de la modalidad deberá garantizar la identificación plena de los participantes, la comunicación simultánea, bidireccional e ininterrumpida, y la integridad y validez de las deliberaciones y acuerdos.
+Se procurará siempre la eficiencia, economía, simplicidad y celeridad, en atención al interés público y la continuidad del servicio.

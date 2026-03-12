@@ -1,3 +1,4 @@
-CAPÍTULO XII
-De los impedimentos, recusaciones y excusa
-Artículo 42.—El miembro de la Junta Directiva que tuviere interés personal en el trámite de un asunto o lo tuviere alguno de sus parientes dentro del cuarto grado por consanguinidad y tercero por afinidad, no podrá estar presente en el momento de la sesión en que se conozca el asunto, por lo cual deberá retirarse del recinto durante su deliberación y resolución, haciéndolo constar en actas.
+Artículo 42.- Participación del Gerente General, Subgerente General y Auditor en las sesiones. El Gerente General, el Subgerente General y la persona titular de la Auditoría Interna asistirán a las sesiones de la Junta Directiva con derecho a voz, pero sin voto, conforme a lo dispuesto en la normativa legal aplicable. Sus intervenciones deberán quedar consignadas, en lo sustancial, en el acta respectiva.
+Su participación tendrá carácter asesor y no formarán parte del quórum ni de la toma de decisiones.
+No obstante, la Junta Directiva podrá disponer, mediante acuerdo debidamente motivado, que dichas personas se abstengan de participar en el conocimiento de determinados asuntos, cuando se trate de temas relacionados con su nombramiento, evaluación, eventual responsabilidad, remoción, o cuando exista conflicto de interés u otra causa legalmente justificada.
+En tales casos, deberá dejarse constancia en el acta respectiva.

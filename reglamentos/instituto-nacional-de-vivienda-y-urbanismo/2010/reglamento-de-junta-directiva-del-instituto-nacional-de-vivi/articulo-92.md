@@ -1,0 +1,1 @@
+Artículo 92.- Suplencia. En caso de ausencia temporal del Secretario o Secretaria General, la Presidencia Ejecutiva presentará una terna para que la Junta designe a la persona suplente, quien ejercerá las mismas atribuciones y responsabilidades, manteniendo la continuidad e integridad del cargo.

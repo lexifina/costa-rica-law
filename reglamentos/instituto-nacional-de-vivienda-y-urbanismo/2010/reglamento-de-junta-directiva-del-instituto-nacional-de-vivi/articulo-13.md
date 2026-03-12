@@ -1,4 +1,4 @@
-CAPÍTULO VI
-Del orden del día
-Artículo 13.— Corresponde a la Presidencia de la Junta Directiva, con la colaboración y asistencia de las instancias que considere necesarias, elaborar el orden del día para las sesiones ordinarias y extraordinarias.
-(Así reformado mediante sesión N° 6046 del 5 de junio de 2014)
+Artículo 13.- Nombramiento y remoción de la Gerencia y Subgerencia General. De conformidad con la Ley N.º 1788, y la Ley N°4646 de 20 de octubre de 1970 y sus reformas, la Junta Directiva deberá nombrar a una persona que ocupe el cargo de la Gerencia General y de la Sub Gerencia General; serán nombrados para períodos de seis años y podrán ser reelectos. Sus nombramientos, así como su reelección, requerirán no menos de cuatro votos favorables de los directores de la Junta, y serán considerados inamovibles salvo que, a juicio de la Junta y previa información, se compruebe que no cumplen debidamente su cometido.
+Si la remoción se fundamenta en hechos disciplinarios, se deberá tramitar el procedimiento administrativo correspondiente, garantizando el debido proceso y el derecho de defensa.
+La Gerencia General tendrá a su cargo la administración del Instituto, conforme a la ley, sus reglamentos y las políticas que fije la Junta Directiva; quien será reemplazada por la Subgerencia en sus ausencias temporales según lo determine la Junta.
+Tanto la Gerencia como la Subgerencia deberán cumplir los mismos requisitos, prohibiciones y disposiciones aplicables a los miembros de la Junta según la Ley N.º 1788; ambos cargos serán de tiempo completo y dedicación exclusiva.

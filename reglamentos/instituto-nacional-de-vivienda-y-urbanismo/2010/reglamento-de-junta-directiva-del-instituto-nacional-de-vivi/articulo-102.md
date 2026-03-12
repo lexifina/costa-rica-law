@@ -1,0 +1,2 @@
+Artículo 102.- Confidencialidad. El Secretario o Secretaria General y el personal de la Oficina de Secretaría deberán guardar estricta confidencialidad respecto de toda información, documentos, grabaciones y asuntos tratados en el ejercicio de sus funciones, aun después de cesar en su cargo.
+Esta obligación incluye la prohibición de divulgación parcial o total, uso indebido o manipulación de la información, sin perjuicio de las obligaciones legales de transparencia, acceso a la información pública y cooperación con autoridades judiciales o administrativas competentes.

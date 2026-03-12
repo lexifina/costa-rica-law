@@ -1,0 +1,1 @@
+Artículo 88.- Deber de ejemplo y liderazgo. Los miembros de la Junta Directiva deberán actuar conforme al Código de Gobierno Corporativo y constituirse en garantes de su cumplimiento mediante el ejemplo, supervisión y adopción de decisiones ajustadas a sus principios.

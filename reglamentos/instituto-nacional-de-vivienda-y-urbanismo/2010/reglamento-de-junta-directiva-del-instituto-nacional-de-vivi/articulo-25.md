@@ -1,1 +1,6 @@
-Artículo 25.—Las sesiones de Junta Directiva serán siempre privadas pero podrá acordar por mayoría absoluta de los miembros presentes la participación de terceras personas; concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto. Esta participación podrá ser por el tiempo que requiera la Junta. Tanto los directivos como los funcionarios que asistan a las sesiones de la Junta Directiva, deberán guardar la más absoluta reserva sobre las deliberaciones y resoluciones del órgano colegiado. La inobservancia a la presente disposición constituye falta grave.
+Artículo 25.- Pérdida de la condición de directivo. Será causal de pérdida de la condición de miembro de la Junta Directiva cualquiera de las establecidas en la Ley N.º 1788, sus reformas y normativa conexa, incluyendo:
+a) Renuncia formal presentada ante la Junta Directiva.
+b) Incapacidad física o legal para el ejercicio del cargo.
+c) Acumulación de inasistencias injustificadas que afecten el quórum y funcionamiento del órgano colegiado.
+d) Violación grave de deberes establecidos en la Ley, Reglamento Interno o normas aplicables.
+La constatación de estas causales deberá ser debidamente documentada y conocida por la Junta Directiva, garantizando el derecho al debido proceso y a la defensa del miembro afectado, antes de declarar la pérdida de su condición.

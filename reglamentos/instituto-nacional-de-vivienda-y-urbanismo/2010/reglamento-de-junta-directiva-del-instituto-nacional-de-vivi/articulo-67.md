@@ -1,2 +1,2 @@
-Artículo 67.—Trimestralmente el tomo correspondiente del Libro de Actas deberá ser debidamente encuadernado, empastado, rotulado y guardado en un lugar apropiado que asegure al máximo su buen estado y conservación, dentro de la Oficina de Secretaría de Junta Directiva.
-Este Reglamento deroga cualquier otro existente. Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo firme.
+Artículo 67.- Deber de abstención y efectos sobre los recursos. El miembro que se encuentre legalmente inhibido, recusado o excusado respecto de un asunto, no podrá participar en la deliberación, votación ni en la resolución de recursos relacionados con dicho asunto.
+La participación en contravención de esta disposición producirá la nulidad del acuerdo respectivo, conforme a lo establecido en la Ley General de la Administración Pública.

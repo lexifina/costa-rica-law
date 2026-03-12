@@ -1,0 +1,2 @@
+Artículo 109.- Sesiones privadas. Cuando la Junta Directiva declare una sesión como privada, la Secretaría garantizará el resguardo reforzado y confidencial de actas, grabaciones, documentos y expedientes asociados, limitando estrictamente el acceso conforme a la ley.
+Cualquier vulneración a estas obligaciones será considerada responsabilidad grave del funcionario que actúe en contravención, sin perjuicio de las acciones legales y administrativas correspondientes.

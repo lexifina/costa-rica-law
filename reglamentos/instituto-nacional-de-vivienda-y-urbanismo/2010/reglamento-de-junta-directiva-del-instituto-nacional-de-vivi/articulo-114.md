@@ -1,0 +1,2 @@
+Artículo 114.- Conservación y acceso. El Libro de Actas deberá conservarse en la Secretaría de la Junta Directiva por el período que establezca la normativa vigente.
+El acceso al libro estará restringido a los miembros de la Junta Directiva, Auditoría Interna y autoridades competentes, garantizando la confidencialidad de los asuntos tratados y el respeto a la normativa de protección de datos y gestión documental.

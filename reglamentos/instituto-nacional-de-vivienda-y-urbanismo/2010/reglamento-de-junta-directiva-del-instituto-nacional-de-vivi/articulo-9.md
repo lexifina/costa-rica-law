@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De las ausencias
-Artículo 9º—En caso de ausencia del Presidente de la Junta Directiva, éste será sustituido por el Vicepresidente, quien en tal evento ejercerá con iguales atribuciones, facultades y deberes que aquel. En caso de ausencia o de impedimento transitorio del Presidente de la Junta Directiva, será reemplazado por el Vicepresidente, quien en tal evento ejercerá con iguales atribuciones, facultades y deberes que aquel.
+Artículo 9.- Competencia de la Junta Directiva. La Junta Directiva tiene competencia exclusiva para la dirección, fiscalización y definición estratégica del INVU.
+La Administración deberá actuar en el marco de las políticas y lineamientos aprobados por la Junta, sin que ello implique la coadministración de funciones ni delegación indebida de responsabilidades.

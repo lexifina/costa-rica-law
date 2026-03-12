@@ -1,12 +1,2 @@
-Artículo 17.-La lista de asuntos a considerar estará distribuida de la siguiente forma:
-I. Aprobación del orden del día.
-II. Aprobación de las actas de sesiones anteriores.
-III. Temas prioritarios.
-IV. Correspondencia.
-V. Asuntos de la presidencia ejecutiva.
-VI. Asuntos de los directivos.
-VII. Asuntos presentados por la administración.
-VIII. Asuntos presentados por la auditoría interna.
-IX. Asuntos de comisiones.
-Los Temas Prioritarios pueden provenir de cualquiera de las siguientes instancias: miembros de la Junta Directiva, Presidencia Ejecutiva, Gerencia General y/o Administración.
-(Así reformado en sesión N° 6579 del 11 de mayo de 2023)
+Artículo 17.- Atribuciones de la presidencia. La presidencia ejecutiva ejercerá todas las facultades, atribuciones y deberes que le confiere la Ley N°1788, Ley Orgánica del INVU; la Ley N°4646 y sus reformas, los reglamentos del INVU y demás normas aplicables.
+Será el funcionario de mayor jerarquía para efectos de gobierno de la institución y le corresponderá, fundamentalmente, velar por que las decisiones tomadas por la Junta se ejecuten, así como coordinar la acción de la entidad cuya junta preside, con la de las demás instituciones del Estado. Asimismo, asumirá las demás funciones que por ley le están reservadas al presidente de la Junta Directiva, así como las otras que le asigne la propia junta.

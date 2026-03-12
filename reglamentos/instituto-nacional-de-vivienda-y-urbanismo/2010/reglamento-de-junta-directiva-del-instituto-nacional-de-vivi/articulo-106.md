@@ -1,0 +1,2 @@
+Artículo 106.- Medios electrónicos. Todas las comunicaciones oficiales de la Junta Directiva deberán realizarse mediante medios electrónicos institucionales seguros, salvo imposibilidad debidamente justificada y registrada.
+El uso de medios electrónicos deberá garantizar autenticidad, confidencialidad, integridad y conservación de la información, de conformidad con la normativa institucional y legal vigente.

@@ -1,0 +1,1 @@
+Artículo 77.- Responsabilidad por incumplimiento del deber de abstención. El incumplimiento del deber de abstención constituirá falta grave y podrá dar lugar a la apertura del procedimiento administrativo disciplinario correspondiente, sin perjuicio de las demás responsabilidades establecidas en el ordenamiento jurídico.
