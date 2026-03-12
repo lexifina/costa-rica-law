@@ -1,0 +1,6 @@
+Artículo 8º-Revelar los intereses privados que los coloquen en conflictos de interés. La persona servidora pública deberá comunicar por escrito a su superior jerárquico sobre los intereses privados que puedan generar conflictos de interés, conforme a lo dispuesto en el artículo anterior. Esta obligación deberá cumplirse en el ejercicio de sus funciones de manera transparente, oportuna y oficiosa.
+Las situaciones sobrevinientes que puedan generar conflictos de interés, tales como parentescos por afinidad hasta el tercer grado, recepción de beneficios de cualquier naturaleza, inicio de nuevas actividades privadas de la persona servidora pública o el establecimiento de relaciones personales afectivas o de negocios, deberán ser informadas de manera inmediata a la instancia superior jerárquica, con el fin de permitir su adecuado manejo.
+El Gerente General, los Gerentes de Área y las jefaturas de las Instancias Asesoras deberán comunicarlo a la Junta Directiva de la JPS.
+Los integrantes de la Junta Directiva deberán comunicarlo a la persona que la preside.
+La persona que preside la Junta Directiva deberá comunicarlo al resto de integrantes del órgano colegiado.
+El órgano o dependencia que reciba la comunicación sobre la existencia de un conflicto de interés deberá tomar las medidas administrativas idóneas y suficientes para su manejo.

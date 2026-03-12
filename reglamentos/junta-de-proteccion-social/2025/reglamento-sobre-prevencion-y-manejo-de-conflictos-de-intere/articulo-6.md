@@ -1,0 +1,6 @@
+Artículo 6º-Principios esenciales para el manejo de los conflictos de interés. Las personas servidoras públicas deben observar los siguientes principios:
+- Servir al interés general: Asegurar que la función pública sea ejercida buscando la satisfacción del interés general, con apego a la legalidad, sin la menor consideración de provecho personal.
+- Transparencia y escrutinio: Revelar de manera apropiada y oportuna los intereses y relaciones privadas que puedan comprometer el ejercicio desinteresado de las funciones públicas, como garantía de transparencia y correcta gestión de las situaciones de conflictos de interés.
+- Promover la responsabilidad individual y ejemplo personal: Comportarse en todo el tiempo con integridad y asumir la responsabilidad de organizar sus asuntos privados para evitar los conflictos de interés.
+- Imparcialidad e independencia: Privilegiar la independencia e imparcialidad en la gestión de las funciones, como medio para asegurar su efectivo cumplimiento y la satisfacción del interés general.
+- Protección de la confianza y credibilidad de la función pública: Proteger la confianza y credibilidad de la función pública, mediante medidas efectivas y oportunas que resuelvan los conflictos de interés y garanticen la imparcialidad e integridad en apego a la ley.

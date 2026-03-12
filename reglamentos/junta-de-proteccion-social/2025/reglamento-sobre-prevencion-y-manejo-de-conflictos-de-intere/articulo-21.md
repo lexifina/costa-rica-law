@@ -1,0 +1,1 @@
+Artículo 21.-Carácter complementario. Esta normativa es complementaria de las leyes que regulan la probidad, la corrupción y enriquecimiento ilícito en la función pública, así como de las leyes conexas, reglamentos internos y demás disposiciones que resulten aplicables en la materia.

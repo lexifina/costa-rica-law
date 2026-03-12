@@ -1,0 +1,1 @@
+Artículo 3º-Definición de conflicto de interés. Se entiende por conflicto de interés aquel que surge entre el deber público y los intereses privados de una persona servidora pública. Se configura cuando dicha persona posee un interés privado con la capacidad de influir de manera indebida en el cumplimiento de sus deberes y responsabilidades oficiales.

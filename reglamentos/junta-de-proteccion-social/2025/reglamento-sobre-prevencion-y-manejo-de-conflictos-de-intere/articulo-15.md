@@ -1,0 +1,2 @@
+Artículo 15.-Publicación oficiosa de información sobre nombramientos en propiedad o suplencias de directores. En un lugar visible del sitio web oficial de la JPS, deberá publicarse el listado de los directores titulares y suplentes, el período de nombramiento, una reseña de su currículo, la actividad profesional externa que realizan (historial laboral) y cualquier otra información que se considere pertinente.
+Asimismo, el Departamento de Desarrollo del Talento Humano deberá mantener un registro actualizado con la información indicada en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 10.-Deber de denunciar. Toda persona servidora pública deberá estar atenta y denunciar, ante el nivel superior jerárquico o ante la autoridad competente, las situaciones de conflicto de intereses que afecten a otras personas funcionarias, en el sentido regulado en este reglamento.
