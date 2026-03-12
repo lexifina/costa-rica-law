@@ -1,0 +1,4 @@
+Artículo 3. Cesión de terrenos
+Se incorporarán al mapa oficial, los terrenos que obligatoriamente deben ceder los fraccionadores y urbanizadores, que serán formalmente entregados al uso público y que se integrarán a los bienes de dominio público.
+Las áreas verdes destinadas al uso público, en virtud de su uso y naturaleza, son parte del patrimonio de la comunidad y quedan bajo la jurisdicción de los entes municipales para que los administre como bienes de dominio público, con lo cual participan del régimen jurídico de estos bienes, que los hace inalienables, imprescriptibles e inembargables, es decir, no pueden ser objeto de propiedad privada del urbanizador o fraccionador, tal y como lo dispone el artículo 40 de la Ley de Planificación Urbana.
+Los parques, jardines y paseos públicos son de libre acceso a todos los habitantes del país, los que al usarlos tienen la obligación de conservarlos en el mejor estado posible.

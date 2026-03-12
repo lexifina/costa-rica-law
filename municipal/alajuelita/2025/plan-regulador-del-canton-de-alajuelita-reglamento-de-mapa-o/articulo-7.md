@@ -1,0 +1,3 @@
+Artículo 7. Compromiso municipal para la recuperación e inscripción de los predios municipales.
+Durante los primeros dos años de vigencia del presente plan regulador, La Municipalidad y el Concejo Municipal asumen el compromiso de levantar un inventario detallado de los predios municipales y proceder con la normalización correspondiente.
+Para ello brindaran los recursos necesarios, financieros y de personal necesario para el traspaso de las propiedades municipales. Garantizando el contenido presupuestario para poder ejecutar los procedimientos necesarios. La contratación de los servicios de información geografía, topografía y legales necesarios.

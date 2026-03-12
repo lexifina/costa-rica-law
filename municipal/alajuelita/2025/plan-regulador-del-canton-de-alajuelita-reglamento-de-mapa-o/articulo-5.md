@@ -1,0 +1,7 @@
+Artículo 5. Disposiciones generales.
+a) El mapa oficial será la representación cartográfica del conjunto de planos que en forma clara indica los trazados de vías públicas y áreas de reserva para usos y servicios comunales, los cuales constituyen bienes demaniales.
+b) De conformidad con el artículo 44 de la Ley de Planificación Urbana, estos bienes públicos no necesitan ser inscritos en el Registro Público de la Propiedad de Bienes Inmuebles, para consolidar su condición de tales, sino que basta solamente con que consten en el Mapa Oficial.
+c) Los planos en conjunto del proyecto se convierten en Mapa Oficial en el momento en que la municipalidad o en su defecto, la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo, visen o aprueben, por primera vez, dichos planos.
+d) Dado el especial régimen de protección que el ordenamiento jurídico otorga a los bienes de dominio público -dentro de los cuales están las áreas cedidas por los urbanizadores y fraccionadores -, para poder disponer de ellos, desafectarlos o cambiarles su destino, el Estado y los demás entes públicos requieren de una norma legal expresa que los autorice en ese sentido, desafectándolos así del fin público al que han sido destinados.
+e) El Mapa Oficial puede ser actualizado por la Municipalidad según se vayan incorporando nuevos planos de los terrenos correspondientes.
+f) La actualización del mapa oficial incluirá aquellas vías que la Municipalidad vaya recuperando o estableciendo.
