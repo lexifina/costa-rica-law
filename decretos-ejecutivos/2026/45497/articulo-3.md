@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones operativas
+ARTÍCULO 3. En ámbito nacional. En el ámbito nacional, le corresponderá al Viceministerio Académico del Ministerio de Educación Pública, con la asesoría de la Dirección de Desarrollo Curricular y de la Unidad de Alta Dotación, Talentos y Creatividad, definir directrices y establecer estrategias para la identificación, la atención y el seguimiento de las personas estudiantes de los diferentes niveles, ciclos y modalidades del sistema educativo. Lo anterior para concretar la atención de la población estudiantil con alto potencial: alta dotación y talentos, de conformidad con lo estipulado en este reglamento.
