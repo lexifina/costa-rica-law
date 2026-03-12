@@ -1,0 +1,2 @@
+Artículo 17 Convenios para el cuido, mantenimiento y atención de áreas públicas
+La Municipalidad podrán suscribir convenios con asociaciones de vecinos o personas jurídicas que por interés directo como beneficiarios, vecinos o usuarios directos tengan la voluntad de hacerse cargo de la limpieza, mantenimiento, vigilancia y atención de las áreas de cesión pública. Todo dentro del marco de las disposiciones del reglamento de área pública.

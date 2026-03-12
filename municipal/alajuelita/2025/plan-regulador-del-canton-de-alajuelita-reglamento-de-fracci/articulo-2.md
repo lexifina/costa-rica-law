@@ -1,0 +1,13 @@
+Artículo 2 Generalidades.
+El desarrollo de terrenos mediante su fraccionamiento o urbanización será permitido siempre que reúna las siguientes condiciones:
+a) Que los usos proyectados estén conformes con las normas del reglamento de Usos de Suelo y el mapa de Zonificación del Plan Regulador.
+b) Que las características naturales del terreno o la alteración que a éstas puedan ocasionar las obras a realizar, ofrezcan una garantía previsible contra riesgos de inundación, derrumbes o deslizamientos, tomando en cuenta las características ecológicas del sitio y lo que indique el Mapa de Restricciones asociado a este plan regulador y las disposiciones que al respecto haya dictado la SETENA en la viabilidad ambiental al plan regulador.
+c) Que el diseño geométrico del desarrollo sea lo más acorde posible con las condiciones naturales del área (incluyendo la vegetación y el paisaje), tomando en cuenta no sólo las del terreno a desarrollar sino también las de sus inmediaciones.
+d) Que los lotes que se originen sean del tamaño mínimo solicitado en cada una de las zonificaciones establecidas en este plan regulador en sus Tablas de Uso y de Parámetros Urbanísticos, con acceso adecuado a la vía pública y de forma regular en lo posible.
+e) Que los lotes en fraccionamiento simple requieren de la disponibilidad de servicios públicos indispensables. Cuando el fraccionamiento sea para desarrollar urbanizaciones o condominios deben incluir el tratamiento de aguas residuales, la recolección de desechos sólidos y la disponibilidad de electricidad.
+f) Que los terrenos a fraccionar estén libres de afectaciones o limitaciones que muestra el mapa de restricciones; de lo contrario, que éstas puedan conciliarse con el desarrollo propuesto.
+g) Cuando se da la vecindad a otras urbanizaciones es obligatorio que el proyecto contemple la continuidad de la infraestructura mediante una adecuada integración física y funcional.
+h) En una misma finca podrán darse proyectos combinados, tanto fraccionamientos como proyectos de urbanización, condominios u otros, aplicando para cada caso lo pertinente y siempre que los usos sean compatibles.
+i) Que cada lote que se origine en una urbanización cuente con las proporciones necesarias para garantizar a la vivienda una distribución eficiente del espacio, de modo que todos sus espacios habitables cuenten con ventilación e iluminación natural.
+j) Las zonas de carácter comunal deben ser urbanizables y accesibles a toda la población y contribuir con el mejoramiento de la imagen urbana y la calidad de vida de la comunidad.
+k) Atender las disposiciones de los reglamentos del plan regulador.

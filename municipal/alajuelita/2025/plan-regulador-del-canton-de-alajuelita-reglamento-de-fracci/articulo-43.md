@@ -1,0 +1,2 @@
+Artículo 43 Limitaciones para urbanizaciones y condominios.
+Los criterios para delimitar los lugares donde van a asentarse condominios y urbanizaciones se ajustarán a las normas de zonificación, usos y parámetros urbanísticos del plan regulador, junto con las normas de la SETENA dictadas en su viabilidad ambiental. En el mapa de restricciones se pueden observar aquellas limitaciones aplicables al desarrollo de estos proyectos.

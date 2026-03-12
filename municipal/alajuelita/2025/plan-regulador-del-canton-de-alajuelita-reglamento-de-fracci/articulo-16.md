@@ -1,0 +1,6 @@
+Artículo 16 Dimensiones de predios en fraccionamientos con fines urbanísticos
+En predios donde se pretenda realizar un fraccionamiento simple, el fondo del predio a fraccionar y el fondo de los lotes resultantes no debe ser mayor de 7 veces el frente. En caso de quedar restos de fincas producto de este tipo de fraccionamiento, también se debe cumplir con dicha relación.
+El frente mínimo de los lotes resultantes del fraccionamiento se ajustará a los requisitos de zonificación del área y a los parámetros del sector al que pertenezcan, según las Tablas de Usos y de parámetros urbanísticos del plan regulador.
+El área mínima de los lotes resultantes del fraccionamiento se ajustará a los requisitos de zonificación del área y a los parámetros del sector al que pertenezcan.
+Todo lote resultante debe cumplir con el área mínima; en caso de existir afectaciones de índole medio ambiental, o producto de alineamientos, se ajustará a los requisitos de zonificación del área y a los parámetros del sector al que pertenezcan. Dicha área no será computable para el cálculo del área mínima.
+Cuando el fraccionamiento simple se realice en una urbanización aprobada y recibida por la municipalidad, los lotes resultantes deben cumplir con el área de lote mínimo establecida en los planos aprobados del proyecto de urbanización.

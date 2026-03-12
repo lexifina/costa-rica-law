@@ -1,0 +1,2 @@
+Artículo 25 Dimensiones mínimas de parcelas en fraccionamientos con fines agrícolas, pecuarios forestales o mixto
+Según las clases de capacidad de uso establecidas en los resultados de Edafoaptitud aprobados por la SETENA, las parcelas agrícolas, pecuarias, forestales o mixtas cuya clasificación sea I, II, III, IV, V y VI deben tener un área mínima de 7 000,00 m². Todo lo anterior sin perjuicio de los entes competentes en materia ambiental.

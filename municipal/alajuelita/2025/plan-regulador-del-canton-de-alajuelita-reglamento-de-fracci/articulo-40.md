@@ -1,0 +1,9 @@
+Artículo 40 Lotificación
+Para realizar la lotificación del predio de la urbanización, se deben cumplir las siguientes disposiciones para los lotes resultantes:
+a) El área, el frente y la forma de los lotes se ajustarán a los requisitos de zonificación y los parámetros urbanísticos del plan regulador.
+Para establecer dichos parámetros se han considerado las restricciones ambientales (IFAs, efectos acumulativos y capacidad de carga), así como los lineamientos establecidos y aprobados por la Secretaría Técnica Nacional Ambiental (SETENA) para el presente Plan Regulador (zonas con prioridad de densificación según cobertura de alcantarillado sanitario y acceso a transporte público, estructura de jerarquización de centros urbanos, etc.).
+b) En cuanto a la superficie mínima de lote, ésta se establece por norma general en función de la zona en la que se ubica el sector, en el catastro existente, y en el análisis posterior al trabajo de campo (Ver Anexo de Tabla de Usos y Parámetros).
+c) El fondo de los lotes resultantes no debe ser mayor de 7 veces el frente. Los lotes esquineros con frente menor de 6 m. tendrán un frente mayor a los demás en un tanto igual al del antejardín mínimo exigido en la zona.
+d) Los linderos laterales de los lotes deben tener preferiblemente un ángulo de 90° en relación con la línea de cordón y caño. Cuando las características físicas del predio no permitan esta condición, la relación puede variar, siempre que garantice la regularidad del lote.
+e) Los lotes resultantes deben quedar completamente libres de cualquier tipo de afectación.
+f) Cuando en la lotificación se proyecte una distancia entre 2 vías vehiculares mayor de 240,00 m debe subdividirse el bloque mediante un espacio abierto para producir un paso peatonal intermedio que conecte las dos vías, con un ancho mínimo de 6,00 m.

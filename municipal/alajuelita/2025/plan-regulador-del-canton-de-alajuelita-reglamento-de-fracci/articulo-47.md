@@ -1,0 +1,5 @@
+Artículo 47 Localización de redes de servicios
+En lo relacionado a localización de redes servicios de electricidad, acueductos, alcantarillados, telecomunicaciones u otros sistemas, estas deben estar ubicadas en los derechos de vía, sobre o a través de áreas de uso público, o de forma independiente, con la indicación del uso del servicio.
+Cuando el predio a urbanizar se encuentre ya afectado por servidumbres que den paso a los servicios indicados, estas deben quedar en el área pública destinada a vías, siempre que el ente encargado de brindar el servicio lo autorice.
+Únicamente la servidumbre de uso pluvial puede localizarse en áreas de parque y juegos infantiles.
+Cuando las redes sean de servicios del AYA, se deben cumplir las disposiciones en cuanto a ubicación física de la conexión y de tuberías, del Reglamento para la Prestación de los Servicios de AYA y la Norma Técnica para Diseño y Construcción de sistemas de abastecimiento de agua potable, saneamiento y pluvial emitida por AYA y sus reformas o normativa que les sustituya.

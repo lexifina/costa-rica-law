@@ -1,0 +1,7 @@
+Artículo 39 Movimiento de Tierras
+Cuando se deba efectuar movimiento de tierras en urbanizaciones que se realicen sobre terrenos con pendientes mayores al 15% se deben cumplir con las siguientes disposiciones:
+a) Las hileras de los lotes y las vías deben colocarse preferiblemente paralelas a las curvas de nivel.
+b) La capa vegetal que se remueva debe colocarse provisionalmente en lugares apropiados a fin de utilizarla después en el tratamiento final de las áreas.
+Cuando en una urbanización las áreas destinadas a la construcción de viviendas requieran estar ubicadas en zonas de relleno, el urbanizador debe presentar estudios que especifiquen el grado de compactación de los rellenos. Además, los sitios de relleno pueden ser utilizados para parques, en cuyo caso debe especificarse en los planos constructivos los muros de retención, taludes y elementos protectores contra accidentes.
+Para los casos anteriores, el profesional responsable debe verificar que se cumplan todas las recomendaciones indicadas en los estudios y especificar en los planos constructivos los elementos de estabilización de suelos a implementar, así como en la memoria de cálculo y los estudios de compactación de rellenos.
+No debe dejarse escombros en el área destinada a futuras construcciones ni en las zonas públicas; estos deben de disponerse conforme a la Ley para la Gestión Integral de Residuos, Ley N°8839, sus reformas o la normativa que la sustituya.

@@ -1,0 +1,24 @@
+Artículo 66 Normas para vialidad en urbanizaciones
+a) Pendiente máxima:
+Para calles principales y especiales: 12 % en tramos menores a 50 metros se podrán tener pendientes hasta de un 15 %. En calles secundarias, terciarias y de uso restringido: 15 % y en tramos no mayores a 50 metros se podrán tener pendientes hasta de un 20 %
+b) Intersecciones:
+En toda intersección de vías, una de ellas se considerará como principal y las que empaten con estas deberán tener como máximo una pendiente del 5% en una distancia mínima de quince metros fuera del derecho de vía, antes del empate. Los niveles de calles y alcantarillado al desembocar en calles existentes deberán ser definidos por la Municipalidad en congruencia con lo existente, si el empate es con carretera de ruta nacional existente o proyectada, el urbanizador deberá presentar al MOPT, el perfil longitudinal para su estudio. En el caso de calles con jardinería central, ésta deberá interrumpirse en las zonas de paso para peatones, con una franja libre, a nivel de la calzada, de un ancho mínimo de 120 cm.
+c) Aceras:
+La construcción de aceras se exigirá como parte de las obras de urbanización cuando se vayan a construir viviendas simultáneamente; cuando no se contempla esto, se exigirá en los desarrollos frente a las calles primarias. En los otros casos la construcción de aceras podrá diferirse hasta la realización de obras, sobre cada lote en particular, a criterio municipal. No obstante, la previsión de éstas mantendrá una debida relación con las cunetas de drenaje pluvial y las rasantes del pavimento.
+Para usos comerciales se podrá exigir un ancho de acera mayor al fijado en este reglamento, a criterio de la Municipalidad. El acabado de las aceras será antideslizante y llevará loseta táctil.
+La pendiente en el sentido transversal tendrá como máximo el 3% y como mínimo el 2%. En el caso de acceso vehicular a los predios, el desnivel debe salvarse con rampas construidas en la franja verde.
+Cuando no exista, la rampa se deberá resolver en una longitud máxima de cincuenta centímetros. Los desniveles que se generan en los costados también deberán resolverse con rampas de pendiente no mayor de un 30% de la que tiene la acera.
+d) Ochavos:
+En todo cruce de calles se recortarán las esquinas en el límite de propiedad, mediante un ochavo de dos metros cincuenta centímetros por cada lado en el caso de preferirse una curva, esta deberá estar inscrita dentro de la línea de propiedad y el ochavo.
+e) Rampa en esquinas:
+En todas las esquinas se construirán rampas de longitud igual al ancho del área verde para salvar el desnivel existente entre la calle y la acera. Estas rampas deberán tener un ancho mínimo de 1,20 m., ser de material antideslizante, tener una estría de 1 cm., de profundidad mínima cada 10 centímetros y estar ubicadas fuera de la sección curva de intersección.
+f) Cordón y caño:
+El cordón y caño en las esquinas de calles se proyectarán en forma circular con radio mínimo de seis metros. En el caso de zonas industriales o comerciales o cuando existan ángulos de intersección vial de tipo agudo (nunca menor de sesenta grados) en las esquinas, el radio se incrementará a diez metros como mínimo.
+g) Colocación de objetos en áreas públicas:
+Cualquier señal u objeto saliente colocado en calles, acera, o espacios públicos, deberá estar a una altura mínima de 2,40 m., salvo en el caso de los postes, teléfonos públicos y armarios de distribución de teléfonos los cuales deberán ubicarse en las franjas verdes, de tal forma que no obstruyan el paso de personas y vehículos sin que traspasen dicha franja, salvo que exista un reglamento específico que establezca otros criterios.
+No se permite la colocación de áreas temporales de desechos sólidos sobre las aceras, si es una canasta de recolección de basura para una urbanización está deberá colocarse sobre la franja verde, y si es de uso privado deberá de estar dentro de la edificación.
+h) Señalamiento de vías:
+El señalamiento vial tanto vertical como horizontal de calles y avenidas, incluyendo todas las indicaciones; altos, flechas direccionales, velocidad y otros, correrá por cuenta del urbanizador. Dicho señalamiento deberá hacerse de previo a la entrega de la urbanización a la Municipalidad.
+La demarcación, altura y ubicación de estos letreros se dará conforme a lo indicado por el Departamento de Señalamiento Vial del MOPT y de otras disposiciones puntuales que la Municipalidad haya definido.
+i) Estacionamiento sobre calles primarias:
+En conjuntos que contemplan la construcción de más de 50 unidades de vivienda y que tengan frente a calles primarias se proveerá un área de estacionamiento para vehículos de transporte colectivo sitio adecuado en la acera para la eventual construcción de refugios de espera cubierto, ampliando el derecho de vía en no menos de 2,50 m., y por una longitud de 12 m, salvo que exista un reglamento específico que establezca otros criterios.

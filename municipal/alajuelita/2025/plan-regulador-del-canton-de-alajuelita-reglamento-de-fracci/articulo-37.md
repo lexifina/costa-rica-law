@@ -1,0 +1,7 @@
+Artículo 37 Sistema de alcantarillado pluvial
+Cumplir las disposiciones establecidas en la Norma Técnica para Diseño y Construcción de sistemas de abastecimiento de agua potable, saneamiento y pluvial emitida por AyA y sus reformas o la normativa que la sustituya.
+En todo proyecto de urbanización las aguas pluviales deben ser conducidas hacia un sistema de alcantarillado pluvial, que garantice por medio de tuberías, conductos y demás obras accesorias, el vertido de las aguas de lluvia hacia lugares naturales de disposición.
+Para la construcción de la infraestructura del sistema de alcantarillado pluvial se debe acatar lo establecido en la Norma Técnica para Diseño y Construcción de sistemas de abastecimiento de agua potable, saneamiento y pluvial emitida por AYA y sus reformas o la normativa que la sustituya.
+En el caso de preverse en el predio terraceo, el profesional responsable del proyecto debe procurar la salida adecuada de las aguas pluviales de los lotes, prevenir la erosión de taludes y el empozamiento que pueda tener el predio.
+Para la descarga final del sistema de alcantarillado pluvial, se debe contar con la autorización del desfogue por parte de la municipalidad; las obras de infraestructura de este sistema deben ser entregadas al gobierno municipal.
+Cuando se requiera aumentar la cantidad del número de lotes o unidades habitacionales para modificaciones a urbanizaciones y esto implique el cambio del punto de desfogue, se debe contar con la autorización del desfogue por parte de la municipalidad.

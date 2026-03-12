@@ -1,0 +1,2 @@
+Artículo 9 Fraccionamiento mediante apertura de calles
+Si las características del predio a fraccionar permiten su división en lotes que cumplan con las dimensiones de área mínima establecidas en este Reglamento y a su vez se requiere la apertura de una vía pública para servir los lotes resultantes, se debe realizar la habilitación del predio mediante la apertura de calle y provisión de servicios, de conformidad con lo establecido en el presente Reglamento.

@@ -1,0 +1,3 @@
+Artículo 26 Cobertura máxima
+En parcelas cuya clasificación sea I, II, III, IV, V, VI según la Edafoaptitud aprobado por la SETENA para este plan regulador, sus reformas o normativa que le sustituya, la cobertura máxima será de un 5%.
+En este 5% de cobertura máxima, deberá contabilizarse el área total máxima de construcción de una única vivienda unifamiliar de hasta 300,00 m², que puede edificarse en una o dos plantas; las casas de trabajadores agrícolas y aquella infraestructura agroturística asociada a la actividad agropecuaria que se desarrolle en la parcela. El sumatorio total de estas áreas no excederá el 5%.
