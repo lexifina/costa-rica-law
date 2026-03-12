@@ -14,3 +14,4 @@ Reforma Sectores estratégicos para las empresas procesadoras contempladas en el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-12 | la propia norma |
+| 2 | 2026-03-12 | Acuerdo 0 (2026-03-12) |
