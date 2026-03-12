@@ -1,0 +1,7 @@
+ARTÍCULO 8- Obligaciones del franquiciador. Toda empresa que vaya a implementar un sistema de franquicias deberá contar experiencia comprobada en el sector respectivo, en el país o en el extranjero, y desarrollar su propia circular de oferta de franquicia, donde se demuestre que cumple con todas las condiciones para poder franquiciar. Además, podrá inscribir la oferta de franquicia en el registro respectivo, de conformidad con lo dispuesto en el artículo 6 de la presente ley.
+Una vez firmado el contrato de franquicia, el franquiciador deberá cumplir las siguientes obligaciones:
+a) Transferencia de conocimientos: el franquiciador deberá transferir, al franquiciado, los conocimientos comerciales y técnicos que sean necesarios para el desarrollo del contrato. Deberá brindar un acompañamiento en la etapa de preapertura del negocio y asumir una labor de formación continua del franquiciado.
+b) Registro: registrar y mantener vigente el registro de la marca objeto de la explotación.
+c) Asistencia técnica: suministrar al franquiciado el entrenamiento o ayuda requerida respecto del desarrollo comercial y técnico del negocio durante la vigencia del contrato.
+d) Actualización tecnológica: mantener al día la tecnología, de tal manera que sea apta y competitiva, cuando aplique.
+e) Defender y proteger el uso por el franquiciado, en las condiciones del contrato, de los derechos de propiedad intelectual e industrial incluidos en el contrato.
