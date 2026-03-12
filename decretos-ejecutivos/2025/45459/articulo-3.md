@@ -1,0 +1,2 @@
+Artículo 3.- Naturaleza. El permiso de uso que se otorga sobre los espacios sujetos a préstamo del Ministerio de Cultura y Juventud se emitirá de conformidad con las disposiciones del artículo 154 de la Ley General de la Administración Pública (Ley número 6227 del 2 de mayo de 1978).
+Este permiso constituye una relación a título precario y no generará relación de inquilinato, derecho de llave, ni otro beneficio diferente al solicitado; se tendrá por otorgado únicamente por el tiempo y actividades expresamente solicitadas y aprobadas.

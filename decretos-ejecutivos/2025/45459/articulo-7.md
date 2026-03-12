@@ -1,0 +1,1 @@
+Artículo 7.- Actividades permitidas. Las instalaciones del Ministerio de Cultura y Juventud, delimitadas en el artículo 5 del presente Reglamento, podrán ser utilizadas únicamente para el tipo de actividades descritas en el artículo 1 de esta norma.

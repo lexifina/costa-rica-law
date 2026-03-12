@@ -1,0 +1,1 @@
+Artículo 33.- Sobre la interrupción de los servicios. El Ministerio no asumirá ninguna responsabilidad por interrupción de servicios básicos como el agua, telecomunicaciones o fluido eléctrico durante el montaje, ejecución y desmontaje de la actividad, siempre y cuando correspondan a causas ajenas al control del Ministerio.

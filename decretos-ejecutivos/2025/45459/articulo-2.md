@@ -1,0 +1,11 @@
+Artículo 2.- Definiciones. Para los efectos del presente Reglamento se entenderá por:
+a) Actividad masiva: Todo evento temporal que reúna extraordinariamente a una cantidad de personas bajo condiciones de hacinamiento en espacios físicos abiertos o cerrados que, por sus características de sitio, estructurales y no estructurales, suponen o hacen suponer un escenario de riesgo o de amenaza que obligan a medidas preventivas de control de uso del espacio y de la conducta humana.
+b) Canon: Obligación monetaria que debe pagar el permisionario para optar por el uso o aprovechamiento de las instalaciones del MCJ sujetas a préstamo, en virtud de los gastos en que la institucionalidad debe incurrir para velar por el estado óptimo de éstas.
+c) Costo de Operación - CO: Costos en los que incurre el MCJ para garantizar la funcionalidad permanente de las instalaciones que se solicitan en calidad de préstamo, conforme a las disposiciones del presente reglamento.
+d) Departamento de Servicios Generales: Unidad administrativa del MCJ responsable de recibir, revisar y aprobar las solicitudes de las personas interesadas para el uso de las instalaciones, conforme los términos del presente reglamento.
+e) Formulario: Documento de solicitud que debe presentar la persona u organización interesada para obtener el permiso de uso de las instalaciones del Ministerio.
+f) Instalaciones: Espacios administrados por el Ministerio de Cultura y Juventud, y utilizados para el desarrollo de actividades conforme a las disposiciones del presente reglamento.
+g) Ministerio: El Ministerio de Cultura y Juventud (MCJ).
+h) Permisionario: Persona física o jurídica, pública o privada, a la cual se le otorga el permiso de uso, a título precario de alguna instalación del Ministerio, para el desarrollo de una actividad, conforme las disposiciones del presente reglamento.
+i) Persona interesada: Persona física o jurídica, pública o privada, que presente la solicitud para el uso de alguno de los espacios susceptibles de ser cedidos en préstamo, para el desarrollo de una actividad conforme a las disposiciones del presente reglamento.
+j) Programación de la actividad: Información detallada de la actividad en la que se explican las actividades, responsables y horarios en los que se hará uso de la infraestructura cedida en permiso de préstamo.

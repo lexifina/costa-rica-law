@@ -1,0 +1,3 @@
+Artículo 18.- Exoneración de canon. Del cobro por concepto de canon, se exceptúa a programas y órganos desconcentrados del Ministerio de Cultura y Juventud interesados en utilizar las instalaciones. Para estos efectos, únicamente presentarán la solicitud del espacio conforme a la información requerida en el artículo 15 de este Reglamento, según corresponda.
+Asimismo, la persona jerarca del Ministerio o quien este delegue podrá exonerar de manera excepcional, el pago del canon a las instituciones públicas, cuando por justificadas razones, no cuenten con el mecanismo técnico, jurídico o presupuestario para realizar dicho pago.
+En todo lo demás, deberán cumplir con el resto de las disposiciones establecidas en este Reglamento.

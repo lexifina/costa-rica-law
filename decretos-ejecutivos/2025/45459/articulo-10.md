@@ -1,0 +1,1 @@
+Artículo 10.- Utilización de circuito cerrado de televisión (CCTV). Por razones de seguridad, conforme la infraestructura tecnológica con que cuenta el Ministerio para circuito cerrado de televisión (CCTV) y por tratarse de espacios públicos, las actividades podrán ser monitoreadas sin requerir autorización de los permisionarios.

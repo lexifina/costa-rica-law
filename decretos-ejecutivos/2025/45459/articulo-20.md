@@ -1,0 +1,2 @@
+Artículo 20.- Tiempo de resolución. El Departamento de Servicios Generales contará con un plazo máximo de 15 días naturales para valorar, atender y resolver tanto la solicitud inicial como la formalización del permiso de uso, de conformidad con el artículo 15 y 16, de este Reglamento.
+En caso de aprobarse la solicitud se elaborará el Permiso de Uso correspondiente y se trasladará a firma de la persona jerarca o, a quien ésta designe, para la suscripción de estos documentos.

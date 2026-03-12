@@ -1,0 +1,1 @@
+Artículo 30.- Autorización de vehículos operativos en el montaje de las actividades. Se autoriza el empleo de vehículos operativos para el montaje de las actividades en la Nave de Ladrillo, siempre y cuando se garantice que dichos vehículos no provocarán daños a la infraestructura.

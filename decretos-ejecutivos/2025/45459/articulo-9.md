@@ -1,0 +1,1 @@
+Artículo 9.- Actividades simultáneas. El Ministerio se reserva el derecho de aprobar el uso de espacios para actividades simultáneas; de diferentes permisionarios, para lo cual, se informará a las personas solicitantes al momento de otorgar los permisos de uso.

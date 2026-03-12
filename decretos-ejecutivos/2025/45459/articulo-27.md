@@ -1,0 +1,1 @@
+Artículo 27.- Venta de materiales. El permisionario podrá llevar a cabo durante la actividad, la venta de materiales o artículos derivados o relacionados con la actividad principal. Toda venta, se debe realizar en apego de las regulaciones y requisitos establecidos por el Ministerio de Hacienda para cada caso.

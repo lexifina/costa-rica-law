@@ -1,0 +1,1 @@
+Artículo 13.- Asesoría de Unidades Especializadas. Para los casos en los que, para mejor resolver de las solicitudes se requiera un análisis de carácter técnico, financiero o jurídico, el Departamento de Servicios Generales, podrá acudir o solicitar criterio a las unidades especializadas del MCJ, según corresponda.
