@@ -14,3 +14,4 @@ Reforma Define sectores estratégicos conforme al inciso a) del artículo 21 bis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-18 | la propia norma |
+| 2 | 2026-03-12 | Acuerdo 0 (2026-03-12) |
