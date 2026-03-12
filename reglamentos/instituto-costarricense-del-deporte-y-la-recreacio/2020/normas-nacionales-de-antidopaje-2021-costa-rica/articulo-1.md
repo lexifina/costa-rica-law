@@ -49,23 +49,23 @@ Tal y como se establece en el Código, la Comisión Nacional Antidopaje de Costa
 Los términos que se usan en estas normas antidopaje y que son términos definidos del Código, se encuentran en letra itálica (cursiva).
 A menos que se especifique lo contrario, las referencias a artículos son referencias a los artículos de estas normas antidopaje.
 Fundamentos del Código y de las normas antidopaje de Costa Rica
-Los programas antidopaje se basan en el valor intrínseco del deporte. Este valor intrínseco muchas veces se denomina “espíritu deportivo”: la búsqueda por medios éticos de la excelencia humana a través del perfeccionamiento del talento natural de cada Deportista.
+Los programas antidopaje se basan en el valor intrínseco del deporte. Este valor intrínseco muchas veces se denomina "espíritu deportivo": la búsqueda por medios éticos de la excelencia humana a través del perfeccionamiento del talento natural de cada Deportista.
 Los programas antidopaje tienen por objeto proteger la salud de los Deportistas y ofrecer la oportunidad de perseguir la excelencia humana sin el empleo de Sustancias Prohibidas y Métodos Prohibidos.
 Los programas antidopaje buscan mantener la integridad del deporte en relación con el respeto a las normas, a otros competidores, al juego limpio, a la igualdad de condiciones y al valor del deporte limpio para el mundo.
 El espíritu deportivo es la celebración del espíritu, cuerpo y mente del ser humano. Es la esencia del Olimpismo, que se refleja en los valores que hallamos en el deporte y que este hace realidad, como:
 NORMAS NACIONALES ANTIDOPAJE DE COSTA RICA 2021
-• Salud
-• Ética, juego limpio y honradez
-• Derechos de los Deportistas, según se recogen en el Código
-• Excelencia en el desempeño
-• Carácter y Educación
-• Alegría y diversión
-• Espíritu de equipo
-• Dedicación y compromiso
-• Respeto de las normas y las leyes
-• Respeto hacia uno mismo y hacia los otros Participantes
-• Valentía
-• Comunidad y solidaridad
+. Salud
+. Ética, juego limpio y honradez
+. Derechos de los Deportistas, según se recogen en el Código
+. Excelencia en el desempeño
+. Carácter y Educación
+. Alegría y diversión
+. Espíritu de equipo
+. Dedicación y compromiso
+. Respeto de las normas y las leyes
+. Respeto hacia uno mismo y hacia los otros Participantes
+. Valentía
+. Comunidad y solidaridad
 El espíritu deportivo se manifiesta en el juego limpio.
 El dopaje es radicalmente contrario al espíritu deportivo.
 Programa Nacional Antidopaje
@@ -83,7 +83,7 @@ Estas normas antidopaje se aplicarán a:
 (iv) todos los Deportistas y Personal de Apoyo a los Deportistas que participen de alguna forma en alguna actividad organizada, realizada, convocada o autorizada por el organizador de un Evento Nacional o de una liga nacional que no está afiliada con una Federación Nacional.1
 1[Comentario al punto (iv): Estas entidades organizativas estarán incorporadas en el programa nacional antidopaje.]
 (v) Deportistas Aficionados: Cualquier Persona que se involucra o participa en actividades deportivas o físicas para estar en forma para fines recreativos pero que no competirían en Competiciones o Eventos organizados, reconocidos o patrocinados por una Federación Nacional, o por cualquier asociación, organización, club, equipo o liga, afiliada o no afiliada, no obstante, el término no comprenderá a ninguna persona que, en los cinco (5) años anteriores en la comisión de una infracción de las normas antidopaje, haya sido deportista a nivel internacional (según lo defina cada Federación Internacional con arreglo al Estándar Internacional Para Controles e Investigaciones), o bien deportista de nivel nacional (según lo defina la Comisión Nacional Antidopaje de Costa Rica con arreglo al Estándar Internacional para Controles e Investigaciones), haya representado a un país en un Evento Internacional en categoría abierta (Open)2 o haya sido incluido en un Grupo Registrado de Control u otros grupos de información sobre localización que gestione una Federación Internacional o la Comisión Nacional Antidopaje de Costa Rica u otra Organización Nacional Antidopaje.
-2 [Comentario: El término “categoría abierta” está pensada para excluir las competiciones que están limitadas a categorías junior o por grupo etario.]
+2 [Comentario: El término "categoría abierta" está pensada para excluir las competiciones que están limitadas a categorías junior o por grupo etario.]
 (d) Todas las demás Personas sobre quienes el Código le da autoridad a la Comisión Nacional Antidopaje de Costa Rica, incluidos todos los Deportistas que son nacionales o residentes de Costa Rica, y todos los Deportistas presentes en Costa Rica, ya sea para competir, entrenar o por cualquier otro motivo.
 Como condición para su participación deportiva en Costa Rica, se considera que cada una de las Personas mencionadas arriba aceptan y acatan estas normas antidopaje, y se han sometido a la autoridad de la Comisión Nacional Antidopaje de Costa Rica para hacer cumplir estas normas antidopaje, incluyendo cualquier Sanción por la violación de las mismas, y a la jurisdicción de los tribunales de expertos especificados en el artículo 8 y el artículo 13 para entender y decidir los casos y recursos incoados en virtud de estas normas antidopaje3.
 3 [Comentario: Cuando el Código exija que una persona que no sea un Deportista o una Persona de Apoyo a los Deportistas quede vinculada por el Código, dicha Persona no estaría de hecho sujeta a la Recogida de muestras o a Controles, ni podría incurrir en una infracción de las normas antidopaje establecidas en el Código por el Uso o la Posesión de una Sustancia Prohibida o un Método Prohibido. En cambio, dicha Persona solo podría ser sancionada por una vulneración de lo dispuesto en los apartados 5 (Manipulación), 7 (Tráfico), 8 (Administración), 9 (Complicidad), 10 (Asociación prohibida) y 11 (Represalia) del artículo 2 del Código. Además, dicha Persona estaría sujeta a las otras funciones y responsabilidades previstas en el artículo 21.3. Asimismo, la obligación de exigir que un trabajador quede vinculado por el Código está supeditada a la legislación aplicable.
@@ -95,14 +95,17 @@ Dentro del grupo general de Deportistas especificados arriba que están sujetos 
 (d) Deportistas que participan en alguna actividad organizada, reconocida o patrocinada por un organizador de Eventos Nacionales o cualquier otra liga nacional y que no esté afiliada de ninguna otra forma a una Federación Nacional.
 No obstante, si las respectivas federaciones internacionales clasifican a alguno de estos Deportistas como Deportistas de Nivel Internacional, entonces se los considerará Deportistas de Nivel Internacional (y no de Nivel Nacional) para los fines de estas normas antidopaje.
 Integración de la Comisión Nacional Antidopaje de Costa Rica (CONAD-CR) Comité Ejecutivo.
-El Consejo Nacional del Deporte y la Recreación nombrará por un periodo de cuatro años al Comité Ejecutivo de la Comisión Nacional Antidopaje de Costa Rica (CONAD-CR). El Comité Ejecutivo estará conformado por siete integrantes, todos ellos profesionales en un área relacionada a la lucha contra el dopaje en el deporte, según se indica:
+El Consejo Nacional del Deporte y la Recreación nombrará por un periodo de dos años al Comité Ejecutivo de la Comisión Nacional Antidopaje de Costa Rica (CONAD-CR). El Comité Ejecutivo estará conformado por ocho integrantes, todos ellos profesionales en un área relacionada a la lucha contra el dopaje en el deporte, según se indica:
+(Así reformado el párrafo anterior mediante sesión N° 10 del 12 de marzo de 2026)
 a) Un representante del ministro (a) del Deporte o del Ministro relacionado con el sector del deporte.
 b) Un representante del Director (a) del Instituto Costarricense del Deporte y la Recreación.
 c) Un representante del Ministro(a) de Salud.
-d) Un representante del Consejo Nacional del Deporte y la Recreación.
+d) Tres representantes designados por el Consejo Nacional del Deporte y la Recreación. Preferiblemente, uno de estos sea profesional en Derecho y otro en las Ciencias Médicas y cuenten con experiencia.
+(Así reformado el inciso anterior mediante sesión N° 10 del 12 de marzo de 2026)
 e) Un representante designado por el Comité Olímpico Nacional.
-f) Un representante designado por el Consejo Nacional del Deporte y la Recreación que sea profesional en Derecho, con experiencia en el tema de la lucha contra el dopaje.
-g) Un representante designado por el Consejo Nacional del Deporte y la Recreación que sea profesional en Ciencias Médicas, con experiencia en el tema de la lucha contra el dopaje.
+f) Un representante designado por el Comité Paralímpico Nacional de Costa Rica.
+(Así reformado el inciso anterior mediante sesión N° 10 del 12 de marzo de 2026)
+g) (Derogado mediante sesión N° 10 del 12 de marzo de 2026).
 Todos los representantes nombrados por las instituciones públicas no deben estar involucrados en las labores operativas de la institución que lo nombra relacionadas con el deporte y la lucha contra el dopaje ni de cualquier otra institución de gobierno. Deben ser absolutamente independientes de cualesquiera labores de alguna Federación Nacional o Internacional, organizadores de grandes eventos deportivos, Comité Olímpico Nacional, Comité Paralímpico Nacional, o cualquier club, asociación o grupo deportivo, nacional o internacional. Los representantes deben además ser independientes de cualquier otra organización internacional antidopaje.
 Atribuciones del Comité Ejecutivo
 El Comité Ejecutivo es un órgano interno de CONAD-CR con todas las atribuciones necesarias para garantizar que todas las tareas de CONAD-CR se conduzcan de conformidad con el Código y con los Estándares Internacionales adoptados por AMA. A pesar de esta atribución el Comité Ejecutivo de la CONAD-CR no puede, en ningún caso, interferir con las tareas operacionales de la CONADCR, que será enteramente independiente del Comité Ejecutivo.

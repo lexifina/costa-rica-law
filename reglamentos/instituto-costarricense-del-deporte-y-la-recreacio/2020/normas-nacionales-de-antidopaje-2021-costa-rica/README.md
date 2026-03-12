@@ -15,3 +15,4 @@ Normas nacionales de antidopaje 2021 Costa Rica
 | --- | --- | --- |
 | 1 | 2021-05-05 | la propia norma |
 | 2 | 2022-10-06 | Reglamento 1260 (2022-10-06) |
+| 3 | 2026-03-12 | Reglamento 10 (2026-03-12) |
