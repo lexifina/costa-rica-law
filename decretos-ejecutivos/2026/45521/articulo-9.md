@@ -1,0 +1,1 @@
+Artículo 9.- La presente declaratoria de emergencia fitosanitaria se mantendrá vigente durante el plazo que el Poder Ejecutivo disponga según los informes que sean emitidos por el SFE, con el apoyo de LAICA a través de la Dirección de Investigación y Extensión de la Caña de Azúcar (DIECA).

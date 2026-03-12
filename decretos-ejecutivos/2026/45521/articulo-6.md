@@ -1,0 +1,4 @@
+Artículo 6.- Para cumplimiento de las acciones de combate y atención de esta emergencia fitosanitaria ocasionada por la plaga roya naranja (Puccinia kuehnii) en el cultivo de caña de azúcar (Saccharum officinarum), el SFE ejecutará las siguientes acciones primordiales:
+a) Dar apoyo con personal oficial a nivel nacional para atención de la plaga.
+b) Divulgar a las comunidades involucradas sobre la problemática fitosanitaria, así como sus consecuencias y manejo recomendado sobre las plantaciones de caña de azúcar (Saccharum officinarum).
+c) Ejecutar labores o acciones que permitan mitigar los efectos de la plaga, para lo cual, a través de las instancias correspondientes, el SFE establecerá los procedimientos que permitan tanto la prevención y el control de la plaga. Estos procedimientos serán revisados periódicamente, actualizados y publicados en la página web oficial del SFE y del MAG, así como cualquier medio de difusión de la información.

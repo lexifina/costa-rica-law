@@ -1,0 +1,2 @@
+Artículo 7 .- Se autoriza a las dependencias y entidades de la Administración Pública para que dispongan los recursos que consideren necesarios para auxiliar al SFE, en la atención de la presente emergencia fitosanitaria.
+El SFE podrá recibir donaciones de personas, organizaciones e instituciones privadas nacionales, internacionales o extranjeras a efecto de coadyuvar en el esfuerzo del control y la erradicación de la plaga roya naranja (Puccinia kuehnii) en el cultivo de caña de azúcar (Saccharum officinarum).
