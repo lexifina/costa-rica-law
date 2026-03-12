@@ -1,6 +1,6 @@
 # Ley Sistema de Banca para el Desarrollo
 
-Ley N° 8634 del 2008-04-23. SINALEVI, ficha 63047: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=63047&param2=148703&param3=1>.
+Ley N° 8634 del 2008-04-23. SINALEVI, ficha 63047: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=63047&param2=149965&param3=1>.
 
 Publicada en La Gaceta N° 87 del 2008-05-07.
 
@@ -23,3 +23,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 13 de 16 | 2024-11-15 | Ley 10522 | 2024-11-05 |
 | 14 de 16 | 2025-04-24 | Ley 10672 | 2025-03-25 |
 | 15 de 16 | 2025-12-09 | Ley 10789 | 2025-11-11 |
+| 16 de 16 | 2026-03-12 | Ley 10859 | 2026-02-24 |
