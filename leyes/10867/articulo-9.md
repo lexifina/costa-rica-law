@@ -1,0 +1,2 @@
+ARTÍCULO 9- Reservas del franquiciador. Todo franquiciador tendrá el derecho de otorgar o no subfranquicias, así como de prohibir o limitar la cesión del contrato de franquicia.
+El franquiciador mantendrá su derecho de modificar el sistema de franquicias en cualquier momento, lo que podrá incluir cambios o modificaciones en marcas, imagen interna y externa, productos, presentaciones, servicios y en cualquier otro de los elementos constitutivos del sistema de franquicias.

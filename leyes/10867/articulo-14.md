@@ -1,0 +1,1 @@
+ARTÍCULO 14- Normas supletorias. En lo no regulado expresamente en esta ley se estará a lo dispuesto en la Ley 30, Código Civil, de 19 de abril de 1886; la Ley 9342, Código Procesal Civil, del 3 de febrero de 2016 y la Ley 7727, Ley de Resolución Alternativa de Conflictos y Promoción de la Paz Social, del 9 de diciembre de 1997.

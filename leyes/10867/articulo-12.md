@@ -1,0 +1,4 @@
+ARTÍCULO 12- Responsabilidad de las partes. El franquiciador y el franquiciado responderán individual e independientemente por sus obligaciones comerciales, tributarias y laborales, sin que pueda inferirse una solidaridad pasiva o subsidiaria.
+No existirá ninguna clase de relación jerárquica entre las partes contratantes ni entre los trabajadores del franquiciado respecto del franquiciador.
+El contrato de franquicia existirá de manera independiente respecto de otros contratos mercantiles o civiles que puedan desarrollarlo o complementarlo, o cualquier otro que no resulte incompatible con su naturaleza y propósito.
+No existirá obligación del franquiciado de enajenar sus activos al franquiciador o a quien este designe al término del contrato, salvo pacto en contrario. Tampoco existirá obligación del franquiciado de enajenar o transmitir al franquiciador, en ningún momento, las acciones de su sociedad o hacerlo socio de esta, salvo pacto en contrario.

@@ -1,0 +1,10 @@
+ARTÍCULO 10- Obligaciones del franquiciado. Son obligaciones mínimas del franquiciado:
+a) Cubrir todos los costos y gastos de equipamiento, preoperativos y de arranque, necesarios para la apertura de la unidad de franquicia.
+b) Desarrollar efectivamente la actividad comprendida en la franquicia, cumplir las especificaciones del manual de operaciones y las que el franquiciador le comunique en cumplimiento de su deber de asistencia técnica.
+c) Proporcionar las informaciones que razonablemente requiera el franquiciador para el conocimiento del desarrollo de la actividad y facilitar las inspecciones que se hayan pactado o que sean adecuadas al objeto de la franquicia.
+d) Abstenerse de actos que puedan poner en riesgo la identificación o el prestigio del sistema de franquicia que integra o de los derechos de propiedad intelectual o industrial propiedad del franquiciador, y cooperar, en su caso, en la protección de esos derechos.
+e) Mantener la confidencialidad de la información reservada que integra el conjunto de conocimientos técnicos transmitidos y asegurar esa confidencialidad respecto de las personas, dependientes o no, a las que deban comunicarse para el desarrollo de las actividades. Esta obligación subsiste después de la expiración del contrato.
+f) Explotar el formato de negocio, de conformidad con las condiciones pactadas en el contrato.
+g) Cumplir con las contraprestaciones comprometidas, entre las que pueden pactarse contribuciones para el desarrollo del mercado o de las tecnologías vinculadas a la franquicia.
+h) Cumplir con todas las leyes y los reglamentos vigentes, incluyendo aquellos relacionados con la protección del ambiente, salubridad, seguridad, asuntos fiscales, seguridad social, pólizas y riesgos laborales para los trabajadores, así como la obtención de licencias de funcionamiento, prevención de incendios, licencia de anuncios, uso de suelo y bioseguridad alimentaria.
+i) El franquiciado contratará el personal necesario para la ejecución del contrato de franquicia, respecto de los cuales se constituirá en patrono, debiendo cumplir con lo dispuesto en la legislación laboral y de seguridad social vigente.
