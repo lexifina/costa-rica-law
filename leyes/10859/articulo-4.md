@@ -1,0 +1,1 @@
+ARTÍCULO 4- Declaración de interés público. Declárense de conveniencia e interés público y nacional las organizaciones socioproductivas de la economía social solidaria, por contribuir al desarrollo económico y social del país.
