@@ -1,0 +1,2 @@
+Artículo 36. Padrón Electoral: Las elecciones del Representante Estudiantil ante el Consejo Directivo el CUC se efectuarán con base en el padrón de estudiantes de las nueve carreras, y de los cursos autorizados del DECAT en el período lectivo en que se realicen las elecciones, emitido por la Oficina de Registro del Colegio Universitario de Cartago.
+Podrán participar como electores únicamente las personas que aparezcan inscritas en el padrón electoral definitivo.

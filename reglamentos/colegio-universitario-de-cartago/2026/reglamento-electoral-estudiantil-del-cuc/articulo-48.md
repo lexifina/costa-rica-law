@@ -1,0 +1,1 @@
+Artículo 48 Acreditación de Fiscales: Los Candidatos que participen en la elección del Representante Estudiantil al Consejo Directivo, deberán acreditar, ante el T.E.E.C.U.C, un máximo de dos fiscales propietarios y dos suplentes. En caso de no hacerlo, no tendrá derecho a solicitar revisión del conteo de votos.

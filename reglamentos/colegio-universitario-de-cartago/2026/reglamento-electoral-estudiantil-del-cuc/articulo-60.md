@@ -1,0 +1,8 @@
+Artículo 60 Prohibiciones: Queda absolutamente prohibido:
+A) La circulación de propaganda sin autorización o colocarlas en las mallas del perímetro de la institución sea interna o externa. La utilización de conjuntos musicales, megáfonos, amplificadores de sonido, juegos de pólvora, bebidas alcohólicas o sin la debida autorización y control del T.E.E.C.U.C.
+o cualquier otra forma de propaganda que altere el orden y tranquilidad que debe imperar en un centro de estudios como el Colegio Universitario de Cartago.
+B) La utilización de pintura, material autoadhesivo, prendas de vestir que tengan fines propagandísticos el día de la elección; así como materiales, equipo y otros implementos de la institución.
+C) La distribución o instalación de cualquier tipo de material electoral de grupos u organizaciones que no participen en el proceso electoral.
+D) La participación en actividades electorales de cualquier persona ajena al Colegio Universitario de Cartago.
+E) El incumplimiento de esta disposición será considerado como falta grave o falta gravísima si la persona era afín o allegada al candidato legalmente inscrito que los candidatos autoricen, consientan, permitan o incluso que omitan su deber de denunciar la participación en actividades electorales de cualquier funcionario o profesor (o persona afín o allegada a algún candidato legalmente inscrito), sea que este haga o realice cualquier tipo de propaganda o proselitismo en cualquier forma a su favor.
+F) El incumplimiento de esta disposición será considerado falta gravísima, de acuerdo con el presente Reglamento, el cual establece la eventual descalificación del candidato infractor.

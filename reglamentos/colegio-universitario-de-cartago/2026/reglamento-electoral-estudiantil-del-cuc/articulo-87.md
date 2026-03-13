@@ -1,0 +1,1 @@
+Artículo 87 Cierre del recinto de votaciones: Al ser las ocho de la noche en punto, se procede al cierre físico de la Junta Receptora de votos, no se permitirá el ingreso de ninguna persona que venga a emitir su voto.

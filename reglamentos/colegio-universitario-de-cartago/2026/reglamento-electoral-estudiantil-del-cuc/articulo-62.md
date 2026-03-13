@@ -1,0 +1,3 @@
+Artículo 62 Suspensión de la autorización. Si al momento de poner en circulación la propaganda, se observa que el modelo distribuido no corresponde con el modelo presentado y autorizado previamente por el T.E.E.C.U.C.
+La propaganda se tendrá como no autorizada para todos sus efectos. El T.E.E.C.U.C. procederá a suspender y retirar de la circulación el material propagandístico y si no fuera posible, se sancionará como falta grave al Candidato legalmente inscrito responsable.
+Cualquier miembro del T.E.E.C.U.C. estará facultado para retirar propaganda que no se ajuste a las disposiciones y reglas establecidas, dejando constancia e informe para conocimiento inmediato del Tribunal, sin perjuicio de establecer las correspondientes sanciones que dicte el presente Reglamento.

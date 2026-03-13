@@ -1,0 +1,1 @@
+Artículo 22: Efectos de las Decisiones: Las decisiones del T.E.E.C.U.C. empezarán a surtir sus efectos de manera inmediatamente si son de carácter general o cuando sean notificadas si son de carácter individual; salvo que la misma resolución indique otro momento para sus efectos.

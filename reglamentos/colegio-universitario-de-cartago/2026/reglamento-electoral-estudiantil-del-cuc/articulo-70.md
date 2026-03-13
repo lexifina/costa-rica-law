@@ -1,0 +1,1 @@
+Artículo 70 Asignación de la secretaría de la Mesa Receptora: De los miembros de mesa se asignará la secretaría, previamente cada partido inscribirá a un miembro que se le asignará esta función el día de las votaciones, así existirá un secretario y un suplente de ser necesario.

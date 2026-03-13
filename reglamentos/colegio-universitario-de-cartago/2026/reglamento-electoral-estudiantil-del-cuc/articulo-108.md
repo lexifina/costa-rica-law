@@ -1,0 +1,4 @@
+Artículo 108 Tipos de sanciones aplicables: Las sanciones aplicables en caso de infracciones serán las siguientes:
+Sanciones por Faltas Leves: Amonestación privada verbal y dos días sin poder efectuar ningún tipo de actividad o propaganda a criterio del T.E.E.C.U.C. En caso de reincidencia se considerarán como falta grave y se aplicarán las sanciones que a ella correspondan.
+Sanciones por Faltas Graves: Amonestación pública y cinco días sin poder efectuar ningún tipo de actividad o propaganda a criterio del T.E.E.C.U.C. En caso de reincidencia se considerarán como falta gravísima y se aplicarán las sanciones que a ella correspondan.
+Sanciones por Faltas Gravísimas: Acarrearán la descalificación definitiva de la calidad con que fue acreditado el infractor ante el T.E.E.C.U.C. y de todos los derechos inherentes a su cargo, o la suspensión definitiva de todos losmedios de propaganda si se trata del candidato infractor.

@@ -1,0 +1,1 @@
+Artículo 106: El T.E.E.C.U.C., también podrá aplicar sanciones a los interesados en ser candidatos que sin abrir oficialmente la campaña electoral actúan en infracción a lo dispuesto por este Reglamento.

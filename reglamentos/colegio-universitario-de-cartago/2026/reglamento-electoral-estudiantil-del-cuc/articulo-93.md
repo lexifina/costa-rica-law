@@ -1,0 +1,1 @@
+Artículo 93 Revisión del conteo de votos: La solicitud de revisión del conteo de la ronda de votaciones, sólo podrá presentarse al T.E.E.C.U.C. por parte del candidato interesado que haya perdido la elección y en el plazo perentorio que correrá a partir de las ocho horas y a más tardar a las veintiuna horas del primer día hábil posterior al cierre de las mesas de votación.

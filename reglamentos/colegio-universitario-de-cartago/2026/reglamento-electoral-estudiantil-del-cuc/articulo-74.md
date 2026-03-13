@@ -1,0 +1,1 @@
+Artículo 74 Cierre temporal de la mesa: Si por alguna razón extraordinaria que sucediera, el T.E.E.C.U.C será el único en decidir si se cierra la mesa de forma temporal, hasta que se aclare o se subsane la eventualidad que obligó a cerrar la mesa receptora de votos.

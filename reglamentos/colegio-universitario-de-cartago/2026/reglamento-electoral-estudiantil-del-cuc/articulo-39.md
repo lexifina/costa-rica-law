@@ -1,0 +1,1 @@
+Artículo 39 Confección de Papelería: El T.E.E.C.U.C será responsable de la confección de las papeletas electorales, que se harán en un número igual al total de estudiantes que aparezcan matriculados en pregrado y programas técnicos, en el período lectivo en que se realice el proceso electoral.

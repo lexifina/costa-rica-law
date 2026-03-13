@@ -1,0 +1,1 @@
+Artículo 115. Vigencia: El presente Reglamento rige a partir de su aprobación del T.E.E.C.U.C, su envío para conocimiento del Consejo Directivo y la debida publicación en el Diario Oficial La Gaceta. Con su vigencia queda derogada cualquier otra norma o reglamento anterior que se le oponga.

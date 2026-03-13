@@ -1,0 +1,3 @@
+Artículo 72 Fiscales de mesa: Todo fiscal de mesa deberá ser acreditado ante el T.E.E.C.U.C., con por lo menos, una semana de anticipación y se deberá señalar el período de tiempo que permanecerá en ella.
+Una vez instalado en la mesa receptora, permanecerá en ese cargo durante el tiempo para el que se acreditó, salvo que el T.E.E.C.U.C. por alguna circunstancia particular considere, que su presencia está alterando el normal desarrollo del proceso electoral, en cuyo caso les podrá ordenar el abandono del recinto de votación, con la salvedad de que sea sustituido por otro fiscal de su partido.
+Esta circunstancia debe consignarse en el Acta de la mesa receptora.

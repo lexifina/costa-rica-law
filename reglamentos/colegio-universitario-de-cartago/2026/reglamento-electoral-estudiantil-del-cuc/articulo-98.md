@@ -1,0 +1,5 @@
+CAPÍTULO XII
+Deberes y Obligaciones de los (as) estudiantes interesados en participar del proceso electoral
+Si el personal docente y administrativo del Colegio Universitario de Cartago y personas afines o allegadas a estos, irrespetan el presente artículo e incluso hacen uso de medios electrónicos para pretender o querer beneficiar directa o indirectamente algún candidato legalmente inscrito y para ello recurren al envío de mensajes de texto, o hacen llamados para ir a votar por determinado candidato, plan, propuesta o programa de trabajo de algún candidato; el Tribunal Electoral deberá denunciar al estudiante, al funcionario docente o al administrativo del C.U.C., para que sea investigado y sancionado por el reglamento correspondiente a cada uno.
+Artículo 98 Intervención Externa: Está terminantemente prohibido para cualquier candidato, valerse de personas físicas o jurídicas ajenas al Colegio Universitario de Cartago que intervengan directa o indirectamente en cualquier actividad electoral estudiantil.
+El incumplimiento de esta disposición será considerado como falta grave y puede acarrear su descalificación inmediata.

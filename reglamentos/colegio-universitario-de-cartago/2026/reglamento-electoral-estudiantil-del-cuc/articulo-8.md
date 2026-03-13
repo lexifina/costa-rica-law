@@ -1,0 +1,1 @@
+Artículo 8: Tienen derecho a ser electos o electas como integrantes del T.E.E.C.U.C. todos los y los alumnos de pregrado y programas técnicos que de igual forma cumplan con los requisitos establecidos más adelante.

@@ -1,0 +1,2 @@
+Artículo 41: Los estudiantes tendrán derecho a representación en aquellos órganos que el presente reglamento y las disposiciones internas de cada institución señalen. El Representante Estudiantil ante el Consejo Directivo será nombrado en elecciones estudiantiles.
+Los estudiantes, además del cumplimiento de los requisitos académico administrativos, deberán reunir condiciones morales acordes con su condición y mantener una actitud constante de superación, crítica, respeto y disciplina.

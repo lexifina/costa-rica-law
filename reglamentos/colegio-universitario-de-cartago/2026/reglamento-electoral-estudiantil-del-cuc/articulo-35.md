@@ -1,0 +1,1 @@
+Artículo 35 Contenido de la convocatoria: La Convocatoria Oficial a Elecciones deberá indicar un cronograma de actividades, en donde se indiquen las fechas de apertura y cierre de inscripción de candidatos, de propaganda, de elecciones y de declaratoria oficial del ganador.

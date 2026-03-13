@@ -1,0 +1,1 @@
+ARTICULO 114: Toda reforma de este reglamento, que no provenga del propio T.E.E.C.U.C., será nula hasta que el tribunal de forma unánime acepte el cambio, de igual forma el T.E.E.C.U.C. estará obligada consultar a la Administración institucional previamente sobre alguna modificación.

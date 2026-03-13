@@ -1,0 +1,1 @@
+Artículo 26: Forma de notificación: El T.E.E.C.U.C. notificará por escrito o por correo electrónico oficial de todas sus resoluciones a cada una de las partes interesadas. Estas resoluciones deberán estar firmadas por la presidencia o por dos miembros del T.E.E.C.U.C autorizado por la presidencia ya sea física o digitalmente.

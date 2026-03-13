@@ -1,0 +1,1 @@
+Artículo 100 Derecho de Defensa: De toda investigación que pudiera ser iniciada por el T.E.E.C.U.C. se dará audiencia a la parte interesada para que dentro del término de dos días hábiles de notificada la situación fáctica, diga si acepta o rechaza los hechos de que se le hace responsable y presente las pruebas de descargo.

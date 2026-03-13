@@ -1,0 +1,1 @@
+Artículo 32 Revocatoria por el T.E.E.C.U.C: El T.E.E.C.U.C. podrá revocar de oficio sus resoluciones únicamente por ser evidentemente infractoras de las normas establecidas en este mismo Reglamento, en el Reglamento de Orden Académico o el Reglamento Autónomo de Trabajo del Colegio Universitario de Cartago y otras normas conexas o supletorias.
