@@ -1,0 +1,3 @@
+Artículo 9º-Modalidad del Fondo. Se establecen dos modalidades para el funcionamiento del Fondo Fijo de Caja Recaudadora:
+a. Fondo en Remesas: Fondo de dinero en efectivo custodiado por el funcionario encargado de la gestión del proceso de remesas en la Tesorería Municipal con la finalidad de realizar el cambio de efectivo de pequeña denominación a cada uno de los cajeros.
+b. Fondo en Caja Recaudadora: Fondo de dinero que se mantiene en efectivo en cada una de las cajas de recaudación de la Municipalidad de Cartago, para brindar los cambios o vueltos a los contribuyentes. Podrá la municipalidad cuando el caso lo amerite autorizar la instalación de cajas recaudadoras auxiliares en distintos puntos del Cantón siguiendo los lineamientos del presente reglamento.

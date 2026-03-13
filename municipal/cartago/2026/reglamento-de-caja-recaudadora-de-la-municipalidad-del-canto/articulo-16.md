@@ -1,0 +1,1 @@
+Artículo 16.-De las remesas parciales. Cuando el monto de la recaudación supere el monto definido en las directrices o procedimientos internos del departamento antes de la hora fijada para el cierre diario, el cajero debe entregar al encargado de remesas el dinero recaudado parcial mediante el formulario definido por la Tesorería Municipal.

@@ -1,0 +1,1 @@
+Artículo 30.-Sobre las directrices o lineamientos. Los funcionarios municipales destacados en las cajas recaudadoras de la municipalidad observarán en cumplimiento de sus funciones, las indicaciones que en materia laboral y de control de operaciones y de actividades propias que dicte la Tesorería Municipal.

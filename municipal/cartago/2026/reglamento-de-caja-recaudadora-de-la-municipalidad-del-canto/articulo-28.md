@@ -1,0 +1,1 @@
+Artículo 28.-Faltantes o Sobrantes del fondo. Si al realizar el arqueo al fondo, el mismo presenta un faltante de recursos, los mismos deberán ser reintegrados de inmediato por el Encargado del Fondo. En caso de encontrar algún sobrante, este será depositado a la cuenta corriente que el Tesorero designe a nombre de la Municipalidad de Cartago posterior a la conclusión del arqueo.

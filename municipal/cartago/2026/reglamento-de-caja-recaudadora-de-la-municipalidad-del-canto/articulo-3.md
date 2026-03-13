@@ -1,0 +1,1 @@
+Artículo 3º-Normativa aplicable. La operación del Fondo de Caja Recaudadora deberá sujetarse a las disposiciones del presente reglamento, y cualquier otra normativa de rango superior conexa con la materia.

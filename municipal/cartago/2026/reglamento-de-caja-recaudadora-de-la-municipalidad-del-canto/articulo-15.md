@@ -1,0 +1,1 @@
+Artículo 15.-Custodia del dinero. La caja recaudadora municipal, contará con una caja de seguridad donde el cajero pueda custodiar el dinero y los valores que para sus funciones tenga en su poder en horas hábiles. Además, la Tesorería Municipal deberá contar con una caja de seguridad para custodiar los dineros y valores recaudados.

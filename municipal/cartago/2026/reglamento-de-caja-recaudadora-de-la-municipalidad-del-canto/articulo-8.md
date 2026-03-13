@@ -1,0 +1,1 @@
+Artículo 8º-Póliza de fidelidad. Los funcionarios encargados de velar por la gestión de la caja recaudadora, proceso de remesa, deberán contar con una póliza de fidelidad, dicha póliza deber ser otorgada por la empresa aseguradora, cuyo monto se fijará de acuerdo con sus disposiciones internas.

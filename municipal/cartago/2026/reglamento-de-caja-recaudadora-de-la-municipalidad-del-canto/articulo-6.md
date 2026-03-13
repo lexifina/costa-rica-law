@@ -1,0 +1,1 @@
+Artículo 6º-Responsable. El responsable del Fondo Fijo de Caja Recaudadora de la Municipalidad de Cartago será el Tesorero (a) Municipal, quien delegará bajo su supervisión, el cumplimiento de las funciones atinentes a este reglamento a los funcionarios destacados en los procesos de remesas y recaudación de la Municipalidad de Cartago.

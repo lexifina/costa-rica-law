@@ -1,0 +1,1 @@
+Artículo 21.-Archivo de información y cierre. Las copias de los recibos cancelados, las nóminas de recaudación y el cierre de caja deberá archivarse y guardarse en las ubicaciones definidas en las directrices o procedimientos internos del departamento de Tesorería para su firma y aprobación por el Tesorero (a) Municipal o persona designada por ésta.

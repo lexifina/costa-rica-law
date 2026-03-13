@@ -1,0 +1,1 @@
+Artículo 35.-De la responsabilidad solidaria: La jefatura del Departamento de Tesorería y el (la) cajero (a) nombrada para el manejo de la caja recaudadora y remesas, serán responsables solidariamente por el buen funcionamiento de esta.

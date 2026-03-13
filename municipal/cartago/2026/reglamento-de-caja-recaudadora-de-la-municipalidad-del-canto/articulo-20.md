@@ -1,0 +1,1 @@
+Artículo 20.-Sobre las anulaciones. Cuando por error involuntario o bien porque el contribuyente no desee cancelar el recibo y el mismo ya se haya aplicado, el cajero deberá solicitar al Tesorero (a) Municipal o persona designada por ésta, la anulación correspondiente, quedando como respaldo la justificación de parte del cajero y el recibo original con el sello de anulado.

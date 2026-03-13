@@ -1,0 +1,1 @@
+Artículo 19.-De los sobrantes. Los sobrantes que se produzcan en los cierres diarios de operaciones de la caja de recaudación deberán ser entregados en el proceso de cierre de caja, para que el encargado del proceso de remesas lo deposite en la entidad bancaria correspondiente.

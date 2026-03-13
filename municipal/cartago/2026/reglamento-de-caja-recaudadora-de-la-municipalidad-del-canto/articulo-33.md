@@ -1,0 +1,1 @@
+Artículo 33.-Consecuencias del incumplimiento: El incumplimiento de este Reglamento o la falta de control en su aplicación, serán consideradas como faltas y podrá ser sancionable conforme a lo dispuesto en el Código Municipal, el Reglamento Interior de la Municipalidad de Cartago y demás legislación conexa.

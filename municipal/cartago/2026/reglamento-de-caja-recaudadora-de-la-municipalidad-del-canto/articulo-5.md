@@ -1,0 +1,1 @@
+Artículo 5º-Conformación del Fondo Fijo de Caja Recaudadora. El Fondo Fijo de Caja Recaudadora, mantendrá siempre el total del monto asignado, el cual estará conformado por dinero de baja denominación para la correcta ejecución de las funciones. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de la Caja Recaudadora.

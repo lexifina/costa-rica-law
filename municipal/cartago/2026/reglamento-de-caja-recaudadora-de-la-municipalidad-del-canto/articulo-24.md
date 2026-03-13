@@ -1,0 +1,1 @@
+Artículo 24.-De los suplentes. Deberá existir en la municipalidad funcionarios que cumplan con el perfil de cajero y que cuenten con la póliza de fidelidad otorgada por la empresa aseguradora que suplan al cajero en su ausencia.
