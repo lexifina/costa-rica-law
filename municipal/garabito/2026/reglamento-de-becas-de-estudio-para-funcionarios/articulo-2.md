@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. Regular el otorgamiento de becas de estudio a funcionarios(as) municipales, asegurando que respondan a necesidades institucionales previamente identificada y generen un beneficio directo, verificable y medible para la Municipalidad.

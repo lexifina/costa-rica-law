@@ -1,0 +1,1 @@
+Artículo 11.—Prohibición de liberalidades. Queda expresamente prohibido otorgar becas que no respondan a una necesidad institucional debidamente acreditada o que constituyan beneficios discrecionales sin sustento técnico.
