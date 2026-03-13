@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Planificación y ejecución de investigaciones
+Artículo 17.-Investigaciones sobre hechos presuntamente irregulares. Una vez declarada la admisibilidad de la denuncia, se debe abrir la correspondiente investigación preliminar, a efecto de determinar si existe suficiente mérito para solicitar la apertura de un procedimiento administrativo para establecer eventuales responsabilidades disciplinarias o civiles, e incluso la interposición de una denuncia penal.
+Las investigaciones sobre hechos presuntamente irregulares no pueden ser delegadas en terceros, sin que ello limite la posibilidad de que durante el desarrollo de una investigación preliminar se puedan contratar servicios de asesoría en temas específicos requeridos para el caso concreto.
+Quienes colaboren con las Auditorías Internas en la realización de investigaciones preliminares de presuntos hechos irregulares no tendrán acceso a la identidad de la persona (s) denunciante (s). La información a la que accedan durante su colaboración estará sujeta a las reglas de confidencialidad establecidas por ley y estos Lineamientos.

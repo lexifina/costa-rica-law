@@ -1,0 +1,2 @@
+Artículo 22.-Sobre seguimiento a los resultados de las investigaciones sobre hechos presuntamente irregulares. La Auditoría Interna de BCR Valores S.A. debe efectuar un seguimiento sobre la atención de los informes resultantes de una investigación preliminar de las denuncias tramitadas, para verificar la debida atención de las recomendaciones emitidas, así como de las denuncias que remita a la administración activa para verificar que las mismas sean atendidas en forma oportuna y completa.
+San José, 18 de febrero de 2026

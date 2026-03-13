@@ -1,0 +1,2 @@
+Artículo 9º-Presentación de información adicional. La Auditoría Interna podrá solicitar a particulares, a entes y órganos públicos, sujetos privados incluidos dentro de su ámbito de acción y a los propios denunciantes, toda aquella información que les permita recabar elementos, pruebas o datos necesarios para el análisis y valoración de los hechos presuntamente irregulares que estén investigando.
+Los sujetos bajo su ámbito de acción tienen el deber de brindar toda la información requerida por la Auditoría Interna, para el ejercicio de sus competencias.

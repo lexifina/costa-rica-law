@@ -1,0 +1,2 @@
+Artículo 15.-Recurso de revocatoria y apelación. Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabe, por parte de la persona denunciante, los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.
+En caso de revocatoria con apelación en subsidio, la revocatoria será resuelta por el Auditor Interno. y la apelación en subsidio por la Junta Directiva de BCR Valores S.A.
