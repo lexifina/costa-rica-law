@@ -1,0 +1,1 @@
+Artículo 7º-La jornada extraordinaria, se cancelará a partir de la primera hora completa de trabajo y adicional las medias horas en delante, entendiendo esto último como que se pagarían solamente una hora, una hora y treinta, dos horas, dos horas y treinta y así sucesivamente.
