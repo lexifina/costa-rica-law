@@ -1,0 +1,4 @@
+POPULAR SOCIEDAD FONDOS DE INVERSIÓN S.A.
+REGLAMENTO DE LA COMISIÓN INTERNA
+INMOBILIARIA DE POPULAR FONDOS DE INVERSIÓN
+Artículo 1º-Naturaleza o rango. La Comisión Interna Inmobiliaria de Popular Sociedad de Fondos de Inversión, de ahora en adelante Comisión Interna Inmobiliaria, es un órgano de apoyo para la Administración y para el Comité de Inversiones de Popular SAFI, cuyo fin es analizar, revisar y recomendar a la Administración sobre temas propios de gestión de la cartera inmobiliaria y al Comité de Inversiones sobre la compra o venta de bienes inmuebles, para que sean incorporados en los Fondos de Inversión Inmobiliarios y así facilitar la toma de decisiones. Además, esta Comisión coadyuvará con las Políticas aplicables a la Gestión de Fondos de Inversión Inmobiliarios.
