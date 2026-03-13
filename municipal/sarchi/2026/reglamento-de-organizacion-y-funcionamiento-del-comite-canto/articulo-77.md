@@ -1,0 +1,1 @@
+Artículo 77.- Normativa supletoria. El Comité Cantonal está subordinado a toda la normativa contenida en el Código Municipal, y a la normativa interna de la Municipalidad de Sarchí, así como las circulares, directrices y ordenanzas de la Alcaldía y el Concejo Municipal, según corresponda.

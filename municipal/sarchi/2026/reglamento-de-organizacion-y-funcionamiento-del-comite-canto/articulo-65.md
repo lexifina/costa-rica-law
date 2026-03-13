@@ -1,0 +1,2 @@
+CAPÍTULO XVIII: DE LAS INSTALACIONES DEPORTIVAS
+Artículo 65.- Administración. El Comité Cantonal deberá velar por la buena administración de las instalaciones deportivas y recreativas del cantón cedidas para su administración, de manera que todos los grupos deportivos y recreativos organizados del cantón, tengan fácil acceso al uso y disfrute de las mismas. Para ello tendrán preferencia los equipos o grupos que representan al cantón y a los distritos en los campeonatos oficiales. La programación para tal efecto será conforme a las necesidades de los usuarios.

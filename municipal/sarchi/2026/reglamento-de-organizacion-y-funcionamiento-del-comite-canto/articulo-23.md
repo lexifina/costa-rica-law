@@ -1,0 +1,1 @@
+Artículo 23.- Gestores deportivos y entrenadores. El Comité Cantonal siguiendo lo establecido en el artículo 21 de este reglamento, podrá contar con los servicios de gestores deportivos y entrenadores para el cumplimiento de los objetivos encomendados.

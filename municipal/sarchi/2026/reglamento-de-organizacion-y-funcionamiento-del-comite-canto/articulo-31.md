@@ -1,0 +1,3 @@
+Artículo 31.- Financiamiento. Para el cumplimiento de sus objetivos y metas, los comités comunales contarán con los siguientes recursos:
+1. Sumas provenientes de actividades organizadas por el mismos Comité Comunal. Para ello deberán previamente contar con el permiso del Comité Cantonal o el Concejo Municipal, según corresponda.
+2. Donaciones recibidas por parte de particulares al Comité Comunal, que se deben informar al Comité Cantonal y al Concejo Municipal, constar en actas y ser recibidos, así como gestionarse, conforme a lo establece el ordenamiento jurídico costarricense para estos fines.

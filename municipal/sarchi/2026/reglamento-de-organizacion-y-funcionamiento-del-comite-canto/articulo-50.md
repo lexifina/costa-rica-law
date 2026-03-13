@@ -1,0 +1,1 @@
+Artículo 50.- Partidas específicas. La Junta Directiva podrá incluir en su presupuesto el dinero de partidas específicas que tengan en sus cuentas corrientes, siempre y cuando se respete el destino de estas.

@@ -1,0 +1,5 @@
+Artículo 16.- Prohibiciones. A las personas miembros de la Junta Directiva del Comité Cantonal les estará prohibido:
+1. Participar, conocer, deliberar o votar en aquellos asuntos, trámites, decisiones o procedimientos en los que tengan un interés personal, directo o indirecto, o cuando dichos asuntos involucren a su cónyuge, conviviente en unión de hecho, o a sus familiares por consanguinidad o afinidad, hasta el segundo grado inclusive, en cuyo caso deberá de inhibirse. El miembro que se encuentre en una situación de conflicto de intereses deberá manifestarlo de forma expresa y previa al inicio de la deliberación del asunto correspondiente, solicitando que conste en actas su inhibición y retirándose de la sesión mientras se conozca y resuelva el punto respectivo.
+2. Integrar los Comités Comunales.
+3. Utilizar la información, los bienes, los recursos o la posición que les confiere el cargo para obtener beneficios personales o para terceros, de forma directa o indirecta.
+4. Celebrar contratos ni convenios con el Comité Cantonal, ni con sus órganos adscritos que reciban fondos públicos.

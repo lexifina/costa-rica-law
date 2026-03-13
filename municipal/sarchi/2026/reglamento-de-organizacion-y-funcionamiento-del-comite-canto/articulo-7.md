@@ -1,0 +1,8 @@
+CAPÍTULO III: DE LA ALCALDÍA MUNICIPAL
+Artículo 7.- Competencias. La alcaldía tendrá las siguientes competencias y atribuciones sobre el Comité Cantonal:
+1. Mediante acto motivado deberá definir las medidas administrativas que se adoptaran para dar cumplimiento a la obligación de contar con enlace permanente entre la corporación municipal y el Comité Cantonal, que como mínimo garantice la rendición trimestral de informes sobre la ejecución presupuestaria y el cumplimiento de objetivos trazados en el Plan Anual Operativo, el Plan Estratégico y la Política Cantonal de Deporte y Recreación.
+2. Coordinar el cumplimiento de lo regulado en el Reglamento interno de contratación pública de la Municipalidad de Sarchi sobre el tema de las contrataciones públicas del Comité Cantonal y cualquier otro reglamento interno.
+3. Ejercer la representación legal del Comité Cantonal, en el supuesto de que no exista nombramiento de Junta Directiva.
+4. Velar por el cumplimiento de lo acordado en los convenios suscritos entre la Municipalidad de Sarchí y el Comité Cantonal.
+5. Coordinar con las dependencias municipales correspondientes, cuando sea requerido para el buen funcionamiento del Comité Cantonal, en cuyo caso dichas dependencias tiene la obligación de brindar apoyo y criterio, según corresponda.
+6. En caso de que se proponga la creación de nuevas plazas, estas deberán ser aprobadas tanto por la Junta Directiva como por el Concejo Municipal, y su tramitación deberá coordinarse obligatoriamente con el Departamento de Recursos Humanos, a efectos de elaborar los estudios técnicos correspondientes, lo cual será coordinado con el titular de la Alcaldía

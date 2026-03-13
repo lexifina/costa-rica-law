@@ -1,0 +1,1 @@
+Artículo 49.- Remisión y comunicación del presupuesto. La Junta Directiva deberá remitir a la Contraloría General de la República su presupuesto e informar al Concejo Municipal remitiendo una copia de este en las fechas que sean indicadas por el órgano contralor, la normativa aplicable o este reglamento.

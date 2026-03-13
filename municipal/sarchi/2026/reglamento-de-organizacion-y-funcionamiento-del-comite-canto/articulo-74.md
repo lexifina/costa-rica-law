@@ -1,0 +1,3 @@
+CAPÍTULO XX: DE LOS CONVENIOS
+Artículo 74.- Aprobación. Los convenios que suscriba la Junta Directiva del Comité Cantonal deberán contar, de previo, con la aprobación formal de dicho órgano colegiado, otorgada en sesión ordinaria o extraordinaria debidamente celebrada.
+Cuando se trate de convenios que, por su naturaleza, requieran la intervención o participación de la Municipalidad, estos deberán ser remitidos al Concejo Municipal para su conocimiento y aprobación. Para tales efectos, el Comité Cantonal gestionará el ingreso del convenio mediante correspondencia dirigida al Concejo Municipal, a fin de que se disponga lo correspondiente, incluyendo la eventual remisión a una comisión municipal para estudio y la adopción del acuerdo final que proceda.

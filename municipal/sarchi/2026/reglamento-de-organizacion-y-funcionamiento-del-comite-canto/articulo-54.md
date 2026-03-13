@@ -1,0 +1,2 @@
+CAPÍTULO XIV: DE LAS ORGANIZACIONES DEPORTIVAS Y RECREATIVAS
+Artículo 54.- Gestión de programas deportivos y recreativos. Las Organizaciones Deportivas y Recreativas que se encuentren debidamente inscritas al Comité Cantonal, podrán prever, planificar, organizar, ejecutar, controlar y evaluar los programas y planes de iniciación deportiva, la participación en los Juegos Deportivos Nacionales y Cantonales, el desarrollo integral de las distintas disciplinas deportivas, así como la programación y coordinación de actividades recreativas, en coordinación con el Comité Cantonal.

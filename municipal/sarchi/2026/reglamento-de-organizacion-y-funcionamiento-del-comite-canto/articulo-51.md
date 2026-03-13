@@ -1,0 +1,1 @@
+Artículo 51.- Elaboración y contenido del presupuesto. El presupuesto debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que éste cubre de conformidad con las exigencias legales y reglamentarias establecidas al efecto, en lo conducente deberá de ajustarse a las prácticas municipales sobre la gestión presupuestaria y contable.

@@ -1,0 +1,1 @@
+Artículo 64.- Asamblea. La asamblea seguirá el mismo procedimiento del capítulo anterior, asimismo se deberá convocar con una antelación que garantice su realización con al menos sesenta (60) días hábiles anteriores al vencimiento de su periodo.

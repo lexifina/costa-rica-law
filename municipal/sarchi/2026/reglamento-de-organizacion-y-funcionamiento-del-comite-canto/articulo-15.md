@@ -1,0 +1,11 @@
+Artículo 15.- Deberes y obligaciones. Son deberes y obligaciones de los miembros de Junta Directiva los siguientes:
+1. Asistir a las sesiones ordinarias y extraordinaria de la Junta Directiva.
+2. Justificar la ausencia a las sesiones por escrito, ya sea en formato físico o por medio de correo electrónico institucional, con al menos veinticuatro horas de antelación, salvo casos de fuerza mayor debidamente acreditados.
+3. Actuar con apego a las normas éticas que rigen el ejercicio de la función pública, así como a las disposiciones del Reglamento Autónomo de Organización y Servicios y demás normativa interna vigente de la Municipalidad de Sarchí, en lo que resulte aplicable.
+4. Ejercer sus funciones con diligencia, responsabilidad y buena fe, participando activamente en las deliberaciones y decisiones de la Junta Directiva, procurando siempre la satisfacción del interés público y el cumplimiento de los fines del Comité Cantonal.
+5. Guardar reserva y confidencialidad respecto de la información, documentación y asuntos que, por su naturaleza, así lo requieran, aun después de haber cesado en el cargo, sin perjuicio de los deberes de transparencia y acceso a la información pública conforme al ordenamiento jurídico.
+6. Utilizar de manera responsable y exclusivamente para fines institucionales la información, los bienes y los recursos puestos a su disposición con ocasión del ejercicio del cargo, absteniéndose de emplearlos para beneficio propio o de terceros irregularmente.
+7. Respetar y acatar los acuerdos válidamente adoptados por la Junta Directiva, sin perjuicio del derecho a dejar constancia razonada de su voto disidente en el acta correspondiente, salvo que la situación corresponda al deber de desobediencia u obediencia.
+8. Colaborar con los órganos de control interno y externo, atender oportunamente los requerimientos de información que se formulen en el ejercicio de sus competencias y rendir cuentas sobre su gestión cuando así se les solicite.
+9. Informar oportunamente a la Junta Directiva cualquier situación personal, legal o funcional que pueda afectar el ejercicio del cargo, la integración del órgano o el cumplimiento de sus funciones.
+10. Los que establezcan las leyes y normativa interna de la Municipalidad sobre el ejercicio de la función pública.

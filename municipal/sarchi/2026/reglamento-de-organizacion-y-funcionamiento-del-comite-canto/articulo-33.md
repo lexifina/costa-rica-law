@@ -1,0 +1,1 @@
+Artículo 33.- Sesiones. Los Comités Comunales deberán reunirse en sesión, una vez por mes ordinaria y extraordinariamente cuando lo requieran. El Comité Cantonal debe capacitar a los miembros de los Comités Comunales en relación con el orden del manejo de correspondencia, actas, dineros, proyectos, planes y políticas, entre otros.

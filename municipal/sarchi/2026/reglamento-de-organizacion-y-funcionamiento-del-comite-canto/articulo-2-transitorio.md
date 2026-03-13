@@ -1,0 +1,2 @@
+TRANSITORIO II. Mediante acto motivado, el titular de la Alcaldía deberá de definir las medidas administrativas que se adoptaran para dar cumplimiento a la obligación de contar con enlace permanente entre la corporación municipal y el Comité Cantonal, que como mínimo garantice la rendición trimestral de informes sobre la ejecución presupuestaria y el cumplimiento de objetivos trazados en el Plan Anual Operativo, el Plan Estratégico y la Política Cantonal de Deporte y Recreación.
+<span style='font-family:"Arial",sans-serif; </body>
