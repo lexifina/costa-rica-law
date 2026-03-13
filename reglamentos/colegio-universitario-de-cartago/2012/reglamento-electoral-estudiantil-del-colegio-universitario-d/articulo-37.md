@@ -1,1 +1,0 @@
-Artículo 37.—Contenido de la convocatoria. La Convocatoria Oficial a Elecciones deberá indicar al menos: la semana próxima a la Elección de T.E.E.C.U.C., con un cronograma de actividades, en donde se indiquen las fechas de apertura y cierre de inscripción de candidatos, de propaganda, de elecciones y de declaratoria oficial del ganador.

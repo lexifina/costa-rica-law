@@ -1,1 +1,0 @@
-Artículo 33.—Contra decisiones colegiadas. Contra las decisiones colegiadas del T.E.E.C.U.C. cabe el recurso de revocatoria, que deberá interponerse dentro de los dos días siguientes a la recepción del recurso. Desde el día de la convocatoria oficial a elecciones y hasta el momento en que se haga la declaratoria oficial del ganador.

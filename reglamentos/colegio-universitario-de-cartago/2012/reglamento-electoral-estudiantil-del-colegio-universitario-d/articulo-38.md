@@ -1,2 +1,0 @@
-Artículo 38.—Padrón Electoral. Las elecciones del Representante Estudiantil ante el Consejo Directivo del CUC, se efectuarán con base en el padrón de estudiantes de las siete carreras, matriculados en el cuatrimestre en que se realicen las elecciones, emitido por la Oficina de Registro del Colegio Universitario de Cartago.
-Podrán participar como electores únicamente las personas que aparezcan inscritas en el padrón electoral definitivo.

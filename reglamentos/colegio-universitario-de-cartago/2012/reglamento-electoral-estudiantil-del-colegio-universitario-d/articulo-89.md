@@ -1,1 +1,0 @@
-Artículo 89.—Conteo Final. Terminado el plazo para emitir el voto se procederá al conteo final de los mismos y se completará el acta de cierre de la votación. Posteriormente el miembro del T.E.E.C.U.C. en compañía del fiscal de cada candidato, llevará los documentos debidamente empacados, al lugar previamente designado por el T.E.E.C.U.C. para custodiarlos en forma definitiva.

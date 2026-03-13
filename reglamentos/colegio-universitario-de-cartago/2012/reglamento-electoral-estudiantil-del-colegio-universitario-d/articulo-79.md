@@ -1,1 +1,0 @@
-Artículo 79.—Verificación del material electoral. Antes de iniciarse la votación, los miembros de la mesa receptora de votos deberán verificar la cantidad y el estado del material electoral que reciban del T.E.E.C.U.C. y proceder a llenar los espacios en blanco del acta de apertura de la votación.

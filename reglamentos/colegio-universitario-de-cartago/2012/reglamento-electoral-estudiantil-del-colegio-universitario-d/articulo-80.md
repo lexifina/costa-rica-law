@@ -1,1 +1,0 @@
-Artículo 80.—Disposición de la mesa receptora. El recinto electoral contará con un espacio para los miembros de la mesa receptora, la urna, y otro debidamente acondicionado para garantizar el ejercicio secreto del voto.

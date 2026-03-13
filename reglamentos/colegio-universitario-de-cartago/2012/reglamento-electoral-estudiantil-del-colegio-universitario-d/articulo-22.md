@@ -1,1 +1,0 @@
-Artículo 22.—Decisiones colegiadas. Las decisiones del T.E.E.C.U.C. requerirán del voto de una mayoría simple de sus miembros, empezarán a surtir sus efectos inmediatamente si en la misma resolución no se indica un momento posterior.

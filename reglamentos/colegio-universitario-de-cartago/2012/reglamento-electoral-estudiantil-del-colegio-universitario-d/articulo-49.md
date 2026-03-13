@@ -1,1 +1,0 @@
-Artículo 49.—El (la) estudiante deberá cumplir con lo indicado en la hoja de requerimientos, en la cual se establecen las formalidades que deberán cumplir y presentar el día del Acto de Formal Inscripción, los (as) estudiantes interesados (as) en inscribirse para ser candidatos (as) legalmente inscritos (as).

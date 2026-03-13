@@ -1,9 +1,0 @@
-Artículo 116.—Entre las labores operativas del T.E.E.C.U.C., tendientes a asegurar la buena marcha del proceso electoral estudiantil, se contará con algunas de las siguientes:
-Definir: el día, la hora y el lugar de reuniones del T.E.E.C.U.C., en las cuales se tomará la asistencia de sus miembros.
-Elaborar cronograma de fechas para el proceso electoral estudiantil (artículo37).
-Elaborar cartas con solicitudes diversas relacionadas con el proceso al: Consejo Directivo, Decanatura, Servicios Operativos y Mantenimiento, Dirección Académica y al Departamento de Registro. En ellas se solicitará: horarios definitivos de las carreras para el cuatrimestre de la elección respectiva, padrón provisional y padrón definitivo, espacio y lugar para colocar propaganda, del aula para el día de la votación, permiso para pasar por las aulas y de solicitud a los profesores para que permitan a los estudiantes salir a votar el día de la elección (brindándoles un espacio de diez minutos) y colaboración a la Decanatura en relación con la imparcialidad de los profesores.
-Realizar preparativos varios para el día de las votaciones.
-Establecer las normas electorales para las personas designadas en las juntas receptoras de votos o actúen como Miembros de Mesa.
-Acreditar o enviar cartas de invitaciones a Observadores Externos como testigos de honor del proceso electoral estudiantil del CUC y a la Prensa Local de la Provincia de Cartago.
-Elaborar carnés o gafetes para los: Colaboradores del Departamento de Bienestar Estudiantil y Calidad de Vida, Fiscales de los Candidatos Legalmente Inscritos, Miembros de Mesa, Miembros del T.E.E.C.U.C., Observadores Acreditados, Prensa Local de Cartago, funcionarios de la Oficina de Comunicación y Relaciones Públicas del CUC).
-Otras que el T.E.E.C.U.C. estime pertinentes para la buena marcha del proceso.

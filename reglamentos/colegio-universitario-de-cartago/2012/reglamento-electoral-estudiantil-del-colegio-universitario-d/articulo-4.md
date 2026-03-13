@@ -1,1 +1,0 @@
-Artículo 4—Objetivos del Proceso Electoral. El T.E.E.C.U.C. velará en todo momento porque el proceso electoral, en forma integral, tenga como objetivo principal, el enfrentamiento equitativo de ideas y programas de los candidatos y los grupos que los apoyan, y se desarrolle dentro de un ambiente de respeto mutuo entre todas las personas y grupos participantes.

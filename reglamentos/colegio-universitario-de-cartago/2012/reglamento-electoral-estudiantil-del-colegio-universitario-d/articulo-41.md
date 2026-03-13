@@ -1,1 +1,0 @@
-Artículo 41.—Confección de Papelería. El T.E.E.C.U.C. será responsable de la confección de las papeletas electorales, que se harán en un número igual al total de estudiantes que aparezcan matriculados en las carreras del CUC, en el cuatrimestre en que se realice el proceso electoral.

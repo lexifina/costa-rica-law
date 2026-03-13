@@ -1,1 +1,0 @@
-Artículo 94.—Revisión del conteo de votos. Cualquier solicitud de revisión del conteo de la ronda de votaciones, deberá presentarse al T.E.E.C.U.C. a partir de las 10:00 a.m. y a más tardar a las dieciséis horas del primer día hábil posterior al cierre de las mesas de votación.

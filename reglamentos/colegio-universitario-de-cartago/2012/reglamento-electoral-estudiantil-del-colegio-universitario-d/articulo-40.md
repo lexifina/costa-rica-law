@@ -1,1 +1,0 @@
-Artículo 40.—Exhibición del Padrón. El T.E.E.C.U.C. asegurará la exhibición del Padrón Electoral en las pizarras de las Carreras del CUC, con al menos una semana de anticipación a la fecha de elecciones, en las pizarras del Edificio de Aulas y del Edificio Administrativo.

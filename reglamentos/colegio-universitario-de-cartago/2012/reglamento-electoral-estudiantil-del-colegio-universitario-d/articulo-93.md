@@ -1,6 +1,0 @@
-Artículo 93.—Candidato ganador. Será considerado y declarado como ganador de la elección a Representante Estudiantil ante el Consejo Directivo, el candidato que obtenga la mayoría simple del total de votos válidos emitidos. Los resultados de la votación deben aparecer en el acta y ser comunicados mediante transcripción de acuerdo a:
-Los candidatos inscritos;
-La comunidad estudiantil;
-El Consejo Directivo del CUC;
-El señor Decano de la Institución.
-En caso de que exista un empate en la votación entre dos candidatos, el T.E.E.C.U.C. definirá la misma mediante una moneda. Si el empate se presenta entre tres o más candidatos, el T.E.E.C.U.C., definirá el resultado de este proceso electoral mediante la escogencia de un papel debidamente cerrado para que guarde la confidencialidad de su contenido. Para ello el T.E.E.C.U.C. utilizará papeles idénticos, en el número de candidatos empatados, y en el que todos estarán en blanco, a excepción de uno en el que se leerá la leyenda “ganador del proceso electoral”. El T.E.E.C.U.C. podrá informar a los candidatos participantes, en forma extraoficial, el resultado del proceso; aclarándoles que será hasta el momento y forma que establece el artículo 95, que se da el resultado oficial de proceso electoral.

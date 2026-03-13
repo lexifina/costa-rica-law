@@ -1,1 +1,0 @@
-Artículo 108.—El T.E.E.C.U.C., también podrá aplicar sanciones a los interesados en ser candidatos que sin abrir oficialmente la campaña electoral actúan en contradicción a lo dispuesto por este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 88.—Imposibilidad de realizar conteos parciales. Por ningún motivo, absolutamente nadie podrá o deberá realizar conteos parciales de la votación, ni los miembros de la Mesa Electoral prestarse para transmitir información solapada sobre este particular. El incumplimiento de esta disposición será considerado falta gravísima.

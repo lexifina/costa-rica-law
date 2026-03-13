@@ -1,1 +1,0 @@
-Artículo 46.—Libertad de asociación y participación. Todos los estudiantes matriculados en las siete Carreras del CUC, tienen la libertad y el derecho de participar en la elección y en ser candidatos para la representación estudiantil ante el Consejo Directivo del CUC., siempre y cuando acaten lo dispuesto por este Reglamento.

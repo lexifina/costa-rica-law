@@ -1,1 +1,0 @@
-Artículo 86.—Voto público. El estudiante que no pudiera emitir su voto en forma secreta por alguna circunstancia especial, lo hará de manera pública ante los miembros de la Mesa Receptora. El Presidente de la Mesa, marcará la casilla seleccionada por el votante especial, en la papeleta. Esta situación deberá consignarse debidamente en el acta de la Mesa Receptora.

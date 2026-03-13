@@ -1,1 +1,0 @@
-Artículo 97.—En los casos de incumplimiento a los deberes y obligaciones de los candidatos legalmente inscritos, así como de las disposiciones mencionadas en el artículo 96 en sus diferentes incisos, serán considerado como falta grave o falta gravísima, según corresponda, y se sancionará de acuerdo con el indicado por el presente Reglamento.

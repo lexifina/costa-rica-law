@@ -1,1 +1,0 @@
-Artículo 57.—Periodo de propaganda. El T.E.E.C.U.C fijará en la Convocatoria Oficial a Elecciones, un periodo para que los candidatos hagan propaganda. No podrá haber ninguna actividad de este tipo fuera de ese periodo. El incumplimiento de esta disposición será considerado como falta grave.

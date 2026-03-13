@@ -1,1 +1,0 @@
-Artículo 95.—Resultado oficial y declaratorio del ganador. Concluido el día de la elección, el T.E.E.C.U.C. contará con un plazo de un día hábil para dar a conocer el resultado oficial de la votación a los entes consignados en el presente Reglamento y hacer la declaratoria oficial del ganador.

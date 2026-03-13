@@ -1,1 +1,0 @@
-Artículo 19.—Asistencia a sesiones. Todas las sesiones y votaciones del T.E.E.C.U.C. son privadas. Sin embargo, podrán asistir a las sesiones algún (os) invitado (s), si así lo acuerda la mayoría simple de los miembros del T.E.E.C.U.C.

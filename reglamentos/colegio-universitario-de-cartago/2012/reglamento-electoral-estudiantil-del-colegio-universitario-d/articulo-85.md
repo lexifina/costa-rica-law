@@ -1,1 +1,0 @@
-Artículo 85.—Forma de votación. El votante doblará la papeleta de tal forma que las firmas de los miembros de la mesa receptora de votos queden visibles. Las mostrará a éstos y depositará la papeleta en la urna correspondiente, que deberá permanecer en todo momento bajo la más estricta vigilancia de los miembros de la mesa receptora.

@@ -1,1 +1,0 @@
-Artículo 109.—Los candidatos legalmente inscritos que con posterioridad al llamado de atención del T.E.E.C.U.C. reincidan o utilicen indebidamente recursos no autorizados o su posición en el CUC para su beneficio electoral, se sancionarán conforme a lo dispuesto en los siguientes artículos y el presente Reglamento.

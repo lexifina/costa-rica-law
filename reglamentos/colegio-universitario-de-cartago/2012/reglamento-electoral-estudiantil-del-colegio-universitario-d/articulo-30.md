@@ -1,1 +1,0 @@
-Artículo 30.—No tendrán validez (para efectos de legalidad) las comunicaciones, gestiones o peticiones que se dirijan ante el T.E.E.C.U.C. a través de correo electrónico, fax, mensajes de texto, redes sociales o por medio de teléfono fijo o celular.

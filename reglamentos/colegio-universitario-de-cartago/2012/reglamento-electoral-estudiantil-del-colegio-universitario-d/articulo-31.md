@@ -1,1 +1,0 @@
-Artículo 31.—Por consiguiente, toda posible denuncia, inconformidad, queja, petición, reclamo o recurso, para su efectiva validez, deberá ser presentada por escrito. En caso de ser anónimas, el Tribunal valorará su intervención, y en caso de denuncias, se protegerá la identidad de los denunciantes cuando así lo soliciten expresamente.
