@@ -1,0 +1,1 @@
+Artículo 33. -Denuncias falsas. La persona que denuncie una conducta de hostigamiento sexual falsa podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de un delito contra el honor, según lo establecido en el Código Penal.

@@ -1,0 +1,2 @@
+Artículo 10º-Nombramiento de la Comisión Investigadora. La Alcaldía Municipal deberá nombrar mediante resolución, a las personas que integrarán la Comisión Investigadora, por periodos de dos años.
+En casos calificados, la Alcaldía Municipal podrá sustituir, mediante resolución fundamentada, a alguna de las personas integrantes de la Comisión, antes del vencimiento del periodo de nombramiento, sobre todo si alguna de estas personas, que integran la comisión, falta al punto 4 del artículo 5 de este reglamento.

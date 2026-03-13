@@ -1,0 +1,1 @@
+Artículo 19. -Trámite de la denuncia y audiencia. Para el trámite de la denuncia se debe actuar de conformidad con lo establecido en este Reglamento, sin embargo antes de la apertura del procedimiento por parte de la Comisión Investigadora, no se deberá dar audiencia a la persona denunciada.

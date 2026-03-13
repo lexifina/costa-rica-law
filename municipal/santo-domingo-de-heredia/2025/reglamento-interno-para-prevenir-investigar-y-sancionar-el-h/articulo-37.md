@@ -1,0 +1,1 @@
+Artículo 37. -Normativa supletoria. Para lo no regulado expresamente en este reglamento, se aplicarán supletoriamente las disposiciones de la Ley 7476 contra el hostigamiento sexual en el empleo y la docencia, el Código de Trabajo y la Ley General de Administración Pública.
