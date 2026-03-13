@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LEÓN CORTÉS
+El Concejo Municipal de León Cortés Castro, acordó en sesión extraordinaria N° 13-2025, del 21 de agosto de 2025, adoptar en todos sus extremos las disposiciones del Decreto Ejecutivo N° 44335-MICITT, "Reglamento a la Ley para incentivar y promover la construcción de infraestructura de telecomunicaciones en Costa Rica, sobre los procedimientos y especificaciones técnicas de la infraestructura de telecomunicaciones", publicado en el Alcance N° 13 a La Gaceta N° 14 del 25 de enero de 2024.
