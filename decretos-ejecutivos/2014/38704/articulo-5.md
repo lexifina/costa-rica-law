@@ -1,1 +1,0 @@
-Artículo 5º—De los puestos de trabajo en los cuales se implementará la modalidad de teletrabajo. La modalidad de teletrabajo se aplicará en aquellos puestos en los cuales su función se puede desarrollar de manera no presencial a discreción del titular subordinado correspondiente.

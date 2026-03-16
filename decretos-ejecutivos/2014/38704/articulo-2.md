@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de Aplicación. Este reglamento es aplicable a los trabajadores del Ministerio de Agricultura y Ganadería y entes adscritos de desconcentración máxima y mínima que realicen labores que el Ministerio determine como teletrabajables en el lugar donde existan las condiciones tecnológicas requeridas.
