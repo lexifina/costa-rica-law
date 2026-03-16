@@ -1,2 +1,2 @@
-Transitorio XI. Las instituciones que reciben recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf) contarán con seis meses, a partir de la publicación de esta ley, para reglamentar, según su ámbito de acción, la metodología y los criterios específicos referidos en el artículo 5 de la presente ley, para atender a la mayor cantidad posible de población en situaciones de vulnerabilidad económica, pobreza y/o pobreza extrema, según los recursos disponibles.
-(Así reformado por el artículo 3° de la Ley para la dinamización de la atención de la población vulnerable en Costa Rica, N° 10705 del 6 de mayo de 2025)
+Transitorio Xl- El Poder Ejecutivo contará con seis meses, a partir de la publicación de esta ley, para emitir su reglamento.
+(Así reformado por el artículo 3° de la ley N° 10875 del 16 de marzo de 2026)
