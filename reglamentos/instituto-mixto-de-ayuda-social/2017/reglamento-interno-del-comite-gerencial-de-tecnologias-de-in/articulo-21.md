@@ -1,3 +1,0 @@
-Capítulo V
-DISPOSICIONES FINALES
-Artículo 21°.- De la vigencia. El presente reglamento rige a partir del día de su publicación en el Diario Oficial La Gaceta.
