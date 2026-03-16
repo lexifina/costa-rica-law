@@ -21,3 +21,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo (Uso de lo
 | 6 | 2022-09-30 | Reglamento 93 (2022-09-30) |
 | 7 | 2024-01-25 | Reglamento 7 (2024-01-25) |
 | 8 | 2025-01-31 | Reglamento 12 (2025-01-31) |
+| 9 | 2026-03-16 | Reglamento 0 (2026-03-16) |
