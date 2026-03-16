@@ -1,6 +1,0 @@
-Artículo 7. Funciones de la Gerencia General del ICT en el Programa CST.
-Corresponderá a la Gerencia General del ICT en ejercicio de las atribuciones establecidas en el artículo 32 de la Ley Orgánica del ICT, Ley Nº 1917 del 30 de julio de 1955 y sus reformas:
-a) Proponer a la Junta Directiva la aprobación del Estándar CST correspondiente a cada actividad turística -incluyendo el uso de nuevas normas técnicas de sostenibilidad-, sus reformas o actualizaciones.
-b) Organizar, coordinar y supervisar en calidad de administrador general y jefe superior del ICT a las unidades técnicas y dependencias institucionales que designe como responsables de ejecutar acciones relativas al programa CST, para lo cual podrá designar o constituir de entre ellas, unidades responsables, equipos de trabajo o comités técnicos de ejecución.
-c) Recomendar y proponer iniciativas a la Junta Directiva del ICT, cuando corresponda, para la organización, funcionamiento y fortalecimiento del programa CST.
-d) Coordinar con la Subgerencia y Dirección de Mercadeo, la Unidad Técnica del CST y las unidades institucionales que estime conveniente y oportuno a los intereses institucionales, la planificación y concertación de acciones de promoción y mercadeo nacional e internacional del programa CST.

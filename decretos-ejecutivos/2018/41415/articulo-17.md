@@ -1,3 +1,0 @@
-Artículo 17. Niveles del CST. Al solicitante que cumpla con el estándar CST y su trámite, según lo indicado en el artículo 16 de este Reglamento, se le otorgará el Certificado CST, el cual tendrá los siguientes niveles:
-a) Nivel Básico: Requiere el cumplimiento por parte del solicitante del cien por ciento de los criterios e indicadores obligatorios estipulados en el Estándar del CST.
-b) Nivel Élite: Requiere que el solicitante demuestre la mejora y continuidad del proceso de gestión en un mínimo de treinta por ciento y un impacto externo en un setenta por ciento en los criterios e indicadores del Estándar del CST.

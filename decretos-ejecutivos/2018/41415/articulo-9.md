@@ -1,4 +1,0 @@
-Artículo 9. Estructura de la Unidad Técnica del Programa CST.
-La siguiente será la estructura de la Unidad Técnica del Programa CST:
-a) Equipo auditor: Equipo integrado por funcionarios del ICT certificados como Auditores Líderes en Sistemas Integrados de Gestión Calidad ISO 9001:2015 y Ambiental ISO 14001:2015 -o versión más actualizada y validada por INTECO- y asignados para realizar una auditoría, equipo que está constituido por un auditor líder, quien podrá estar acompañado de auditores, expertos técnicos o de auditores en fase de entrenamiento. Sus funciones se definen en el Anexo 6 de este Reglamento.
-b) Equipo Capacitador: Equipo integrado por funcionarios del ICT, asignados para generar contenido, herramientas, talleres y apoyo a las empresas u organizaciones turísticas interesadas en participar en el proceso del CST, quiénes no podrán simultáneamente, auditar a solicitantes del Programa CST. Sus funciones se definen en el Anexo 7 de este Reglamento.
