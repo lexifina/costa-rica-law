@@ -1,1 +1,4 @@
-ARTÍCULO 146.- Los accionistas podrán hacerse representar en las asambleas por apoderado generalísimo o general o por carta poder otorgada a cualquier persona, sea socia o no.
+Artículo 146- Los accionistas podrán hacerse representar en las asambleas por apoderado especial, general o generalísimo.
+En el caso de las micro, pequeñas y medianas empresas (pymes), inscritas ante el Ministerio de Economía, Industria y Comercio (MEIC), y los pequeños y medianos productores agropecuarios (pympas), inscritos ante el Ministerio de Agricultura y Ganadería (MAG), y que cuenten con la respectiva condición vigente en cada institución, podrán autorizar a un tercero, sea socio o no, mediante un mandato especial otorgado para cada junta.
+Dicho mandato deberá emitirse en papel simple, contar con los timbres correspondientes, estar firmado por el mandante y contar con la autenticación de un abogado.
+(Así reformado por el artículo único de la Ley para la armonización del Código de Comercio y el Fortalecimiento del poder especial, N° 10840 del 4 de febrero de 2026)
