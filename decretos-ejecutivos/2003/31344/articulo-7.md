@@ -1,7 +1,0 @@
-Artículo 7º—Corresponderá a la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA), actuar como órgano ejecutivo del Comité Directivo Sectorial, específicamente a través del Área de Estudios Económicos e Información. La SEPSA integrará un equipo con al menos dos funcionarios profesionales y un técnico profesional, todos a tiempo completo y a cargo del Coordinador del Área señalada. Entre las principales funciones de SEPSA estarán:
-1- Coordinar, promover y ejecutar acciones del sistema en el nivel nacional y la articulación de éstas en las regiones y localidades del país, mediante las estructuras correspondientes en esos niveles.
-2- Informar periódicamente al Ministro Rector y a las autoridades del Sector Agropecuario sobre el avance nacional de INFOAGRO y recomendar las medidas correspondientes.
-3- Ejecutar, en concordancia con las disposiciones del Comité Directivo Sectorial (CDS), los lineamientos técnicos para el buen funcionamiento de INFOAGRO.
-4- Coordinar con los entes que se requiera para disponibilizar información considerada de interés para los usuarios.
-5- Promover la capacitación de los usuarios de INFOAGRO en cuanto al uso de la información, así como del manejo de las herramientas del sistema.
-6- Generar acciones y estrategias tendientes a la promoción y difusión de los alcances y objetivos de INFOAGRO en procura de una incorporación creciente de usuarios al sistema.

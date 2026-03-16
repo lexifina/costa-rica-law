@@ -1,5 +1,0 @@
-Artículo 8º—Los Comités Sectoriales Regionales Agropecuarios (CSRA), estarán integrados por los directores regionales de las instituciones públicas agropecuarias en cada región, y serán las instancias responsables, en ese ámbito, del desarrollo de INFOAGRO, en concordancia con las políticas definidas por el CAN y el Ministro Rector del Sector. Serán funciones de los Comités Sectoriales Regionales Agropecuarios:
-1- Orientar las acciones regionales de INFOAGRO en concordancia con los lineamientos de política nacional, el Plan Regional de Desarrollo y las necesidades y características de la región.
-2- Constituir formalmente los equipos regionales de INFOAGRO que garanticen el adecuado funcionamiento de las actividades del sistema en la región, según una planificación anual operativa y presupuestaria.
-3- Implementar las tareas de seguimiento y evaluación que permitan el control y desarrollo eficiente de INFOAGRO en los niveles regional y local.
-4- Informar periódicamente a las autoridades del Sector Agropecuario sobre los resultados de la operación de INFOAGRO en la región.
