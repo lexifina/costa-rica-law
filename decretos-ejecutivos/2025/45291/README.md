@@ -14,3 +14,4 @@ Emite el documento "Normas y Criterios Operativos para la utilización de los Cl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-12-02 | la propia norma |
+| 2 | 2026-03-16 | Decreto Ejecutivo 45682 (2026-03-16) |
