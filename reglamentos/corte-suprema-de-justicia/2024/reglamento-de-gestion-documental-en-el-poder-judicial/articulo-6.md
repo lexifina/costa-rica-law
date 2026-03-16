@@ -1,4 +1,4 @@
-Capítulo III
+Capítulo III.
 Archivo Judicial (Central).
 Artículo 6. Objetivo. El Archivo Judicial (central) es el órgano rector en materia de gestión documental en el Poder Judicial, y su principal objetivo es garantizar la custodia, conservación, clasificación, organización, descripción, y administración de la documentación que produce la institución en cualquier soporte.
 Es una dependencia de la Dirección Ejecutiva del Poder Judicial, por lo tanto, su organización se encuentra vinculada a ésta para una mejor función operativa.

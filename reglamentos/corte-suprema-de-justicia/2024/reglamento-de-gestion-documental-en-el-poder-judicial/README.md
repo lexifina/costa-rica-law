@@ -13,3 +13,4 @@ Reglamento de Gestión Documental en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-22 | la propia norma |
+| 2 | 2026-03-16 | Reglamento 12 (2026-03-16) |

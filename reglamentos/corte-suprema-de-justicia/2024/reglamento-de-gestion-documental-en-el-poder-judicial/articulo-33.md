@@ -1,1 +1,1 @@
-Artículo 33. Digitalización de los documentos. Se podrá realizar la digitalización de los documentos siempre y cuando cumplan con los procedimientos establecidos por la administración y lo dispuesto en la normativa existente.
+Artículo 33. Digitalización de los documentos. Se podrá realizar la digitalización de los documentos siempre y cuando cumplan con los procedimientos establecidos por la administración y lo dispuesto en la normativa existente, su uso no implica la eliminación del documento original sin la autorización correspondiente.

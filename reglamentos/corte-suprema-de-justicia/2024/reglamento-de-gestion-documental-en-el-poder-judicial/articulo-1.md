@@ -4,7 +4,7 @@ A LOS DESPACHOS JUDICIALES DEL PAÍS, ABOGADOS, ABOGADAS Y PÚBLICO EN GENERAL.
 SE LES HACE SABER QUE:
 La Corte Plena en sesión 01-2024 celebrada el 15 de enero de 2024, artículo XX, de conformidad con el artículo 361 de la Ley General de la Administración Pública, dispuso la publicación del aviso respectivo en el diario oficial La Gaceta, en el cual concede audiencia a todas las personas o entidades que tengan interés, por el plazo de 10 días hábiles a partir de la publicación de ese aviso, sobre la propuesta del Reglamento Institucional de Gestión Documental en el Poder Judicial, para lo cual pone a disposición la cuenta de correo electrónico "secrecorte@poder-judicial.go.cr", de la Secretaria General de la Corte, para que remitan las observaciones que estimen pertinentes de previo a su aprobación por la Corte Suprema de Justicia.
 La propuesta del Reglamento Institucional de Gestión Documental en el Poder Judicial, literalmente indica:
-Reglamento de Gestión Documental en el Poder Judicial.
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra sesión N° 12 del 16 de marzo de 2026, y publicado en el Boletín Judicial N° 78 del 29 de abril de 2026, por lo que se trascribe a continuación:)
 Capítulo I
 Disposiciones Generales.
 Artículo 1. Ámbito de aplicación. El presente reglamento establece las disposiciones para una adecuada Gestión Documental en todas las dependencias y oficinas que conforman el Poder Judicial conforme lo establece la Ley del Sistema Nacional de Archivos y la Ley Orgánica del Poder Judicial.

@@ -1,3 +1,4 @@
-Capítulo V
+Capítulo V.
 Comisión Institucional de Selección y Eliminación de Documentos.
-Artículo 15. Sobre la Comisión. La Comisión Institucional de Selección y Eliminación de Documentos (CISED), es el órgano encargado de dictar las directrices sobre gestión documental y específicamente para la valoración, selección y eliminación de los documentos del Poder Judicial conforme lo establece el artículo 33 de la Ley 7202 del Sistema Nacional de Archivos. Asimismo, corresponde coordinar la elaboración de las tablas de plazos para los expedientes judiciales, con las distintas comisiones jurisdiccionales que integran la Corte Plena, para su posterior revisión y aprobación.
+Artículo 15. Sobre la Comisión. La Comisión Institucional de Selección y Eliminación de Documentos (CISED), es el órgano encargado de dictar las directrices sobre gestión documental y específicamente para la valoración, selección y eliminación de los documentos del Poder Judicial conforme lo establece el artículo 33 de la Ley 7202 del Sistema Nacional de Archivos.
+Asimismo, corresponde coordinar la elaboración de las tablas de plazos para los expedientes judiciales, con las distintas comisiones jurisdiccionales que integran la Corte Plena, para su posterior revisión y aprobación.
