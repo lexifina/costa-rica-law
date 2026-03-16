@@ -1,0 +1,2 @@
+Artículo IX.-Todas las sesiones serán grabadas y las cintas respectivas las conservará en lugar seguro la Secretaría General, durante un lapso mínimo de doce meses, una vez cumplido este plazo, la Secretaría General procederá a remitir la información a la Unidad de Tecnología e información de Japdeva para su debido resguardo.
+Estas cintas son para consultas o aclaraciones de la Junta Directiva única y exclusivamente. Para cualquier otro uso que quisiera dársele se debe tener de previo el consentimiento de la Junta Directiva, manifestado por escrito.

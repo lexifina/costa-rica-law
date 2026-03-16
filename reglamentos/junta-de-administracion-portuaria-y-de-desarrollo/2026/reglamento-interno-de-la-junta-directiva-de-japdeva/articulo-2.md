@@ -1,0 +1,1 @@
+Artículo II.-Los Directores, salvo el Presidente Ejecutivo devengarán dietas únicamente por las sesiones a las cuales asistan y que efectivamente se realicen. Los directores que se incorporen posterior a 20 minutos injustificadamente después de haber iniciado la sesión ordinaria o extraordinaria no devengaran dieta.

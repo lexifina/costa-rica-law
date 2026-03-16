@@ -1,0 +1,1 @@
+Artículo XXIII.-Cada una de las actas debe llevar su respectivo expediente digital el cual estará conformado por los documentos (originales o copias) de los asuntos que se conocen en cada sesión y tendrá el carácter de libro auxiliar digital o complementario del Libro de Actas.

@@ -1,0 +1,1 @@
+Artículo XXIX.-Cuando se produjera un empate en la votación de algún asunto, sometido al criterio de los señores Directores el Presidente Ejecutivo o quien lo sustituya decidirá la votación por medio del doble voto de que gozará en estos casos.

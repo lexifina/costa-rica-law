@@ -1,0 +1,1 @@
+Artículo VIII.-El Orden del Día debe distribuirse entre los Directores, Gerente y Auditor por lo menos 12 horas antes del inicio de la respectiva sesión. Cuando por motivos de domicilio del Director, no pudiera enviársele con suficiente tiempo, se le informará por teléfono, telegrama o cualquier medio electrónico sobre los asuntos del orden del día.

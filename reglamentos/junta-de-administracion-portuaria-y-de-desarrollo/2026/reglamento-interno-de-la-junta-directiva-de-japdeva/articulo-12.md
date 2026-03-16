@@ -1,0 +1,1 @@
+Artículo XII.-Las actas una vez aprobadas deben transcribirse de inmediato al libro. Cada uno de los libros de actas constará de quinientos folios, sean doscientas cincuenta hojas, numerados del uno hasta quinientos y debidamente sellados por la Auditoria General de la Institución. Cada uno de estos libros deben llevar la respectiva numeración.

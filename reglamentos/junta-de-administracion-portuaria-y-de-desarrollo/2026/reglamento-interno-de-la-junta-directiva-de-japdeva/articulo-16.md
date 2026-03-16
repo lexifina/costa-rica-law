@@ -1,0 +1,1 @@
+Artículo XVI.-Cuando un Director desee que su opinión sobre algún aspecto conste en el acta, así lo solicitará expresamente al Secretario General en la misma sesión, para que lo reproduzca en el acta respectiva.

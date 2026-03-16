@@ -1,0 +1,1 @@
+Artículo XXIV.-Sin excepción se transcribirán al acta todos los contratos y convenios que celebre JAPDEVA. Igualmente, todas las modificaciones al presupuesto ordinario que apruebe la Junta Directiva y los otros documentos que éste específicamente señale.

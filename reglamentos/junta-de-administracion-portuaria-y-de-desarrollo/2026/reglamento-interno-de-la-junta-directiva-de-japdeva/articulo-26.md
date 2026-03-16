@@ -1,0 +1,1 @@
+Artículo XXVI.-Las Actas serán firmadas por el señor Presidente Ejecutivo, o por quien en su lugar presida la sesión y por el Secretario de la Junta Directiva, además de aquellos Directores con votos disidentes.

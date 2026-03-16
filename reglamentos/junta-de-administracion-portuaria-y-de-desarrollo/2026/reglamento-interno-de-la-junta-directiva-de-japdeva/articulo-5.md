@@ -1,0 +1,1 @@
+Artículo V.-Para la tramitación de los asuntos que se someten a conocimiento de la Junta Directiva, existirá una Secretaría a cargo del Secretario General, de nombramiento de la Junta. Este funcionario seleccionará el personal necesario para el correcto funcionamiento de esta dependencia de acuerdo con los lineamientos generales que se siguen en la Institución.

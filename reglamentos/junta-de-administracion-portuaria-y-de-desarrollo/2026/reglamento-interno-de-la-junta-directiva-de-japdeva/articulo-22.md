@@ -1,0 +1,1 @@
+Artículo XXII.-La Secretaría General deberá mantener un índice por asuntos, ordenados cronológicamente de los acuerdos tomados por la Junta Directiva, de manera que la localización de los acuerdos sea ágil, expedita y eficiente.

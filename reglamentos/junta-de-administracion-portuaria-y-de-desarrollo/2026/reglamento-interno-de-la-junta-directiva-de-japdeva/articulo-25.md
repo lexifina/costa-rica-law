@@ -1,0 +1,1 @@
+Artículo XXV.-Los Gerentes y el abogado asesor de la Junta Directiva asistirán a las sesiones de Junta Directiva; excepcionalmente el Auditor General cuando así lo requiera el Órgano Director, lo mismo que aquellos funcionarios de la Institución que se requiera brindar informe en relación con asuntos que figuran en el orden del día.
