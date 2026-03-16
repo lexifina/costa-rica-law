@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo número 45212-H del 05 de setiembre de 2025, publicado en La Gaceta número 192 del 14 de octubre de 2025 mediante el cual se actualizó el impuesto a partir del 1 º de octubre de 2025, a partir de la vigencia del presente decreto.
