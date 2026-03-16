@@ -1,2 +1,5 @@
-ARTÍCULO 98.- Los socios tendrán derecho a un número de votos igual al de cuotas que le pertenezcan. Para efectos de votación las cuotas sociales serán indivisibles.
-En las reuniones podrá emitirse el voto personalmente o por medio de apoderado general, generalísimo o especial. También podrá autorizarse a un tercero mediante carta poder.
+Artículo 98- Los socios tendrán derecho a un número de votos igual al de cuotas que le pertenezcan. Para efectos de votación, las cuotas sociales serán indivisibles.
+En las reuniones podrá emitirse el voto personalmente o por medio de apoderado especial, general o generalísimo.
+En el caso de las micro, pequeñas y medianas empresas (pymes), inscritas ante el Ministerio de Economía, Industria y Comercio (MEIC), y los pequeños y medianos productores agropecuarios (pympas), inscritos ante el Ministerio de Agricultura y Ganadería (MAG), y que cuenten con la respectiva condición vigente en cada institución, podrán autorizar a un tercero, sea socio o no, mediante un mandato especial otorgado para cada junta.
+Dicho mandato deberá emitirse en papel simple, contar con los timbres correspondientes, estar firmado por el mandante y contar con la autenticación de un abogado.
+(Así reformado por el artículo único de la Ley para la armonización del Código de Comercio y el Fortalecimiento del poder especial, N° 10840 del 4 de febrero de 2026)
