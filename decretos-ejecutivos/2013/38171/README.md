@@ -15,3 +15,4 @@ Reglamento a la Ley de Concesión y Operación de Marinas y Atracaderos Turísti
 | --- | --- | --- |
 | 1 | 2014-02-20 | la propia norma |
 | 2 | 2022-10-04 | Decreto Ejecutivo 43751 (2022-10-04) |
+| 3 | 2026-03-16 | Decreto Ejecutivo 45742 (2026-03-16) |
