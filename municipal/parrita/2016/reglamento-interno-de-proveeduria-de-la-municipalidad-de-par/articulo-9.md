@@ -1,2 +1,0 @@
-Artículo 9.—De la Alcaldía. Corresponde a la Alcaldía dictar la declaratoria de infructuoso, desierto o acto de adjudicación de los procedimientos de compra que no le correspondan al Concejo dictar, así como las ampliaciones o contratos adicionales derivados de dichos procedimientos. Además, la elaboración de cualquier solicitud de autorización o gestión que se requiera ante la CGR para los procedimientos de adquisición de bienes y servicios no personales.
-(Así reformado en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017)

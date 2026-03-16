@@ -1,1 +1,0 @@
-Artículo 13. – Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán acordadas por la Proveeduría, la cual deberá coordinarlas previamente con la Asesoría Legal, cuando sea necesario y la Unidad Técnica o Solicitante respectiva.

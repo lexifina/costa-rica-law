@@ -1,2 +1,0 @@
-Artículo 11.—Plazos máximos para gestionar el inicio del procedimiento. El plazo máximo para que las unidades internas gestionen el inicio de un procedimiento de licitación pública será el primero de marzo y de un procedimiento de licitación abreviada será el primero de mayo. En el caso de las contrataciones directas dichos plazos serán definidos por la Proveeduría mediante comunicación al resto de la Administración.
-(Así reformado en sesión N° 038 del 21 de mayo del 2018)
