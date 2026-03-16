@@ -1,0 +1,1 @@
+Artículo 14.-Sujeto pasivo: La tasa por el servicio de Mantenimiento de Parques y Zonas Verdes deberán cancelarla todos los propietarios de bienes inmuebles del cantón de Matina, sin importar el título de propiedad que ostenten.

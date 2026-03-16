@@ -1,0 +1,1 @@
+Artículo 27.-Vigencia: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y será de acatamiento obligatorio para todos los contribuyentes del cantón de Matina. Segunda vez.

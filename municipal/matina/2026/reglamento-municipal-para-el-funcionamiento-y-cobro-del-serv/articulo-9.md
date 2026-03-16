@@ -1,0 +1,1 @@
+Artículo 9º-Sujeto pasivo: La tasa por el Aseo de Vías y Sitios Públicos deberán cancelarla todos los propietarios de bienes inmuebles que se encuentren dentro de la cobertura del servicio, sin importar el título de propiedad que ostenten, en donde exista la infraestructura mencionada en el artículo 4° de este reglamento y se brinde el servicio.

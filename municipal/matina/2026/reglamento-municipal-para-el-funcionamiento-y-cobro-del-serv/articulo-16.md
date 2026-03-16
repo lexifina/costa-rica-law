@@ -1,0 +1,1 @@
+Artículo 16.-Utilidad para el desarrollo: El diez por ciento de utilidad para el desarrollo que contempla la tarifa del servicio de Mantenimiento de Parques y Zonas Verdes, se destinará prioritariamente a impulsar el mejoramiento del servicio en cuanto a recursos humanos, técnicos y materiales entre otros.
