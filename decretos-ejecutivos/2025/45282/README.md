@@ -14,3 +14,4 @@ Reglamento orgánico del Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-11-06 | la propia norma |
+| 2 | 2026-03-16 | Decreto Ejecutivo 45693 (2026-03-16) |

@@ -8,6 +8,10 @@ Las Funciones de la Unidad de Gestión de la Organización del Trabajo son las s
 1.3 Realizar estudios de recalificación, reclasificación y reasignación, cuando así se requiera y se autorice, contemplando los de recursos de revocatoria.
 1.4 Gestionar ante la Dirección General de Servicio Civil modificaciones requeridas tanto al Manual de Clases Anchas como al Manual Descriptivo de Especialidades, realizando los estudios técnicos requeridos como respuesta a las necesidades institucionales para un óptimo desarrollo de sus competencias.
 1.5 Justificar puestos ante la STAP, gestión mediante la cual se solicita a la Secretaría Técnica de la Autoridad Presupuestaria la autorización de uso de plazas vacantes, de acuerdo con las necesidades ministeriales y las cargas de trabajo de los puestos con que se cuenta.
+1.6 Proponer a la Dirección General de Servicio Civil modificaciones a los manuales de Clases y de Especialidades, realizando los estudios técnicos requeridos como respuesta a las necesidades institucionales para un óptimo desarrollo de sus competencias.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+1.7 Mantener actualizado el Manual de Cargos institucional realizando los ajustes necesarios para adaptarlo a la estructura ocupacional del Ministerio.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
 2. Unidad de Gestión de Empleo: Cuyo Objetivo será gestionar las actividades vinculadas con el ingreso a la organización y el permanente movimiento de las personas funcionarias.
 Las Funciones de la Unidad de Gestión de Empleo son las siguientes:
 2.1 Realizar la rendición de cuentas de la instancia, referentes al cumplimiento de metas y presupuesto, de acuerdo con los instrumentos de planificación institucional establecidos, y solicitados por los entes fiscalizadores.
@@ -16,8 +20,8 @@ Las Funciones de la Unidad de Gestión de Empleo son las siguientes:
 2.4 Gestionar la movilidad de los funcionarios, contemplando traslados y permutas, traslados intra e interinstitucionales, temporales o permanentes, así como su debida promoción.
 2.5 Realizar la gestión de desvincular a las personas por renuncia, jubilación, sanción disciplinaria, reducción forzosa entre otros.
 2.6 Confeccionar y custodiar lo que concierne a la administración de los expedientes personales de los funcionarios de la Institución.
-2.7 Proponer a la Dirección General de Servicio Civil modificaciones a los manuales de Clases y de Especialidades, realizando los estudios técnicos requeridos como respuesta a las necesidades institucionales para un óptimo desarrollo de sus competencias.
-2.8 Mantener actualizado el Manual de Cargos institucional realizando los ajustes necesarios para adaptarlo a la estructura ocupacional del Ministerio.
+2.7(Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026).
+2.8 (Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026).
 3. Unidad de Gestión de Compensación y Relaciones Laborales: Cuyo objetivo es gestionar el conjunto de compensaciones retributivas (salariales y extrasalariales) y no retributivas que se den por concepto de la prestación de servicios.
 Las Funciones de la Unidad de Gestión de Compensación y Relaciones Laborales serán:
 3.1 Realizar la rendición de cuentas de la instancia, referentes al cumplimiento de metas y presupuesto, de acuerdo con los instrumentos de planificación institucional establecidos, y solicitados por los entes fiscalizadores.

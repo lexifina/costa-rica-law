@@ -20,10 +20,10 @@ Artículo 35: De las Funciones del Departamento de Gestión de Recursos Humanos:
 19. Proponer a la Dirección General de Servicio Civil modificaciones a los manuales de Clases y de Especialidades, realizando los estudios técnicos requeridos como respuesta a las necesidades institucionales para un óptimo desarrollo de sus competencias.
 20. Mantener actualizado el Manual de Cargos institucional realizando los ajustes necesarios para adaptarlo a la estructura ocupacional del Ministerio, a fin de que pueda ser utilizado como un instrumento auxiliar que facilite la aplicación del proceso de análisis ocupacional.
 21. Busca influir sobre el rendimiento de las personas en el trabajo, con el propósito de lograr su alineación con las prioridades de la organización.
-22. Diagnóstico, tratamiento, control y seguimiento de las patologías agudas y crónicas de las personas funcionarias de la institución.
-23. Gestionar la promoción y prevención de la salud física, mental, social y laboral del Ministerio.
-24. Realización de pruebas y estudios en el ámbito psicológico según sea necesarios.
-25. Gestionar la salud ocupacional de las personas en los centros de trabajo, a partir de un abordaje de prevención y promoción de la salud ocupacional, higiene ambiental y seguridad laboral.
+22.(Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+23. (Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+24. (Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+25(Derogado por el 3° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
 26. Gestionar el reclutamiento y selección del personal para ocupar puestos dentro y fuera del Régimen del Servicio Civil.
 27. Planificar, organizar, direccionar y controlar todas las diferentes actividades necesarias para desarrollar los concursos internos y externos del Ministerio de Agricultura y Ganadería y sus Órganos Desconcentrados.
 28. Gestionar la recepción, socialización o inducción de periodo de prueba, movilidad o promoción incluida la funcional (variación de tareas) y la geográfica (reubicación) y la desvinculación de personas.

@@ -1,4 +1,4 @@
-Artículo 31. Funciones de la Oficialía Mayor y Dirección Administrativa Financiera. Son Funciones de la Oficialía Mayor y Dirección Administrativa Financiera las siguientes:
+Artículo 31. Funciones de la Oficialía Mayor y Dirección Administrativa Financiera. Son funciones de la Oficialía Mayor y Dirección Administrativa Financiera las siguientes:
 1. Coordinar el accionar de los diferentes procesos administrativos que permitan un funcionamiento óptimo en la atención de las necesidades institucionales.
 2. Coordinar el proceso de formulación del Presupuesto Ordinario y Extraordinario y velar por su efectiva ejecución.
 3. Participar en la definición de las políticas financieras institucionales y dar el seguimiento correspondiente.
@@ -16,3 +16,9 @@ Artículo 31. Funciones de la Oficialía Mayor y Dirección Administrativa Finan
 15. Proponer, coordinar y ejecutar acciones que tiendan al adecuado desenvolvimiento administrativo y técnico del Ministerio y sus órganos de desconcentración.
 16. Implementar las recomendaciones en materia administrativa y financiera, planteadas por la Contrataría General de la República, el Ministerio de Hacienda, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), la Dirección General del Servicio Civil, la Auditoría Interna y otras instancias institucionales.
 17. En los casos en que exista justificación técnica y se determine la necesidad, los funcionarios de la Oficialía Mayor y Dirección Administrativa podrán ser instruidos por la Jefatura para realizar funciones de apoyo en otros departamentos, siempre dentro del ámbito de acción establecido en la Ley N.° 7064 "Ley de Fomento a la Producción Agropecuaria FODEA y Orgánica del MAG", así como en el presente reglamento.
+18. Diagnóstico, tratamiento, control y seguimiento de las patologías agudas y crónicas de las personas funcionarias de la institución.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+19. Gestionar la promoción y prevención de la salud física, mental, social y laboral del Ministerio.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
+20. Realización de pruebas y estudios en el ámbito psicológico según sea necesarios.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)

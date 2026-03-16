@@ -2,7 +2,8 @@ TITULO III
 De la Estructura Organizacional del MAG
 CAPITULO I
 De los departamentos, unidades e instancias asesoras del MAG
-Artículo 9. De las Estructura organizacional del MAG: El ministerio estará conformado por las siguientes departamentos, unidades e instancias asesoras:
+Artículo 9. De la estructura organizacional del MAG: El Ministerio estará conformado por las siguientes Direcciones, Departamentos, Unidades e Instancias Asesoras:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
 1. Contraloría de Servicios
 2. Planificación Institucional
 2.1 Unidad de Planificación Estratégica
@@ -41,13 +42,18 @@ Artículo 9. De las Estructura organizacional del MAG: El ministerio estará con
 13.1 Unidad de Servicios institucionales
 13.2 Unidad de Transportes
 13.3 Unidad de Infraestructura
-14. Dirección Nacional de Extensión Agropecuaria
-14.1 Subdirección de Extensión Agropecuaria
-14.2 Unidad de Producción Sostenible
-14.3 Unidad de Agromática
-14.4 Unidad de Gestión Agroempresarial y Organizacional
-14.5 Región de Desarrollo Central Sur
-14.6 Región de Desarrollo Chorotega
-14.7 Región de Desarrollo Brunca
-14.8 Región de Desarrollo Huetar Norte
-14.9 Región de Desarrollo Huetar Caribe
+(*) 14. Dirección Nacional de Extensión Agropecuaria.
+14.1 Subdirección de Extensión Agropecuaria.
+14.2 Unidad de Producción Sostenible.
+14. 3 Unidad de Agromática.
+14. 4 Unidad de Gestión Agroempresarial y Organizacional.
+14.5 Departamento Regional Brunca.
+14. 6 Departamento Regional Central Occidental.
+14. 7 Departamento Regional Central Oriental.
+14. 8 Departamento Regional Central Sur.
+14.9 Departamento Regional Chorotega.
+14.1 O Departamento Regional Huetar Caribe.
+14.11 Departamento Regional Huetar Norte.
+14.12 Departamento Regional Pacifico Central.
+14.13 Unidades Agencias de Extensión Agropecuarias (AEA)
+(*) (Así reformado el punto 14) anterior por el artículo 1° del decreto ejecutivo N° 45693 del 16 de marzo de 2026)
