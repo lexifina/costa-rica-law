@@ -14,3 +14,4 @@ Clasificador de Ingresos del Sector Público de uso generalizado para el Sector 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-11 | la propia norma |
+| 2 | 2026-03-16 | Decreto Ejecutivo 45682 (2026-03-16) |
