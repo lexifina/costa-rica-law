@@ -1,1 +1,0 @@
-Artículo 123.-Incumplimiento por parte de las entidades financieras. El Consejo Rector reportará a la SUGEF los incumplimientos por parte de las entidades financieras. La SUGEF establecerá las sanciones y multas a las entidades financieras, el importe de las multas será depositado en las cuentas del FONADE.
