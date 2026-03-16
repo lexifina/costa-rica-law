@@ -1,0 +1,1 @@
+Artículo 41° Responsabilidad del funcionario. En los casos que el funcionario sea reincidente, se analizará la situación y en caso de establecerse una eventual responsabilidad se remitirá el expediente a la Gerencia General quien es el Órgano Colegiado competente en conformar un procedimiento administrativo

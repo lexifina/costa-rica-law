@@ -1,0 +1,1 @@
+Artículo 3° - Objeto. Este Reglamento tiene como objeto fundamental crear, regular y controlar el sistema planificado de gestión del proceso de transportes de JASEC y sus unidades, de manera que cumpla con el ordenamiento jurídico que lo regula y se oriente a brindar un servicio al usuario eficiente y eficaz
