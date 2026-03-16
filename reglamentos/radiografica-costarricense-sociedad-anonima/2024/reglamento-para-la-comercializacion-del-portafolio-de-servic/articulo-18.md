@@ -1,2 +1,0 @@
-7.7 CAPÍTULO VII - De la ejecución y evaluación.
-Artículo 18.-Estrategias comerciales. Durante la vigencia del contrato, RACSA podrá implementar las estrategias comerciales, promociones, variaciones de oferta, entre otros, necesarias para el buen funcionamiento del negocio, de acuerdo con la evolución de este, las cuales serán de acatamiento obligatorio para los comercializadores que tengan un contrato vigente, en cuyo caso serán notificados por el Administrador del Contrato.

@@ -1,1 +1,0 @@
-Artículo 12.-Selección de comercializadores. A fin de seleccionar los posibles Comercializadores, RACSA tomará en cuenta las evaluaciones establecidas en este Reglamento, así como criterios de oportunidad y conveniencia empresarial. Los criterios de selección del Comercializador estarán dados por la evaluación y estrategia comercial definida por RACSA.

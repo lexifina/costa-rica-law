@@ -1,2 +1,0 @@
-7.2 CAPÍTULO II-De la información.
-Artículo 3°-Contratos. Los términos comerciales y contractuales de la relación se incorporarán en un contrato que será definido por RACSA, en concordancia con los intereses empresariales y las estrategias comerciales, mismo que deberá ser firmado por las partes, con el fin de que dejen de manifiesto su aceptación respecto a los alcances del negocio de comercialización. RACSA deberá proveer al comercializador la plantilla de contrato del servicio que comercializará.
