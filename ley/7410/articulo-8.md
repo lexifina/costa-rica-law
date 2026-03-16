@@ -1,5 +1,4 @@
-Artículo 8º—Atribuciones.
-Son atribuciones generales de todas las fuerzas de policía:
+Artículo 8º-Atribuciones. Son atribuciones generales de todas las fuerzas de policía:
 a) Resguardar el orden constitucional.
 b) Prevenir potenciales violaciones de la integridad territorial de la República.
 c) Velar por la integridad de los bienes y los derechos de la ciudadanía.
@@ -18,3 +17,5 @@ n) Controlar el manejo de explosivos para usos industriales mineros o recreativo
 (Así adicionado el inciso anterior por el artículo 262 de la Ley de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005)
 o) Las demás atribuciones señaladas en la Constitución Política, los tratados internacionales, las leyes y sus reglamentos.
 (Corrida la numeración del inciso anterior por el artículo 262 de la Ley de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005, que lo traspaso del antiguo inciso ñ) al inciso o) actual)
+p) Adquirir, gestionar y utilizar el equipo tecnológico necesario para grabar, con audio y video, las operaciones policiales que faciliten la ejecución de las políticas de seguridad ciudadana, así como el debido cumplimiento de las funciones policiales.
+(Así adicionado el inciso anterior por el artículo 9 de la ley Autorización para el uso de cámaras corporales y vehiculares en los cuerpos de policía a cargo del Ministerio de Seguridad Pública y demás fuerzas policiales, N° 10870 del 16 de marzo de 2026)
