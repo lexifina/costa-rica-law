@@ -14,3 +14,4 @@ Amojonamiento Zona Pública Sector Costera Bahía Pavón.Mojones del 250 al 256,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-16 | la propia norma |
+| 2 | 2026-03-17 | Aviso 7 (2026-03-17) |

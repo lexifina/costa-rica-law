@@ -7,8 +7,10 @@ De conformidad con lo dispuesto en el artículo 63 del Reglamento de la ley N° 
 (7 mojones: enumerados del 250 al 256.
 258280 N- 557140 E y 261220 N-558060 E
 (87 mojones enumerados del 219 al 305)
+(Nota de Sinalevi: Mediante aviso N° 007-2026 del 17 de marzo de 2026, se eliminó los mojones 304 y 305)
 261220 N-558060 E y 261325 N-558080 E
 (6 mojones enumerados del 306 al 309, 309 A, 310 al 311)
+(Nota de Sinalevi: Mediante aviso N° 007-2026 del 17 de marzo de 2026, se eliminó los mojones 306, 307, 310 y 311 de ría del Río Claro)
 261325 N-558080 E y 262450 N- 559350 E
 (44 mojones; enumerados del 312 al 355)
 263350 N-560950 E y 265660 N- 561880 E
