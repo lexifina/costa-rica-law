@@ -14,3 +14,4 @@ Uso del Formulario de la Declaración “Informativa Resumen Mensual de Clientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-11-03 | la propia norma |
+| 2 | 2026-03-17 | Resolución 10 (2026-03-17) |
