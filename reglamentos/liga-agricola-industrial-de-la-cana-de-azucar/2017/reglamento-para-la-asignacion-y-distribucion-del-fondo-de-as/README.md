@@ -14,3 +14,4 @@ Reglamento para la asignación y distribución del "Fondo de Asistencia Económi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-14 | la propia norma |
+| 2 | 2026-03-17 | Reglamento 779 (2026-03-17) |
