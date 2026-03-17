@@ -14,3 +14,4 @@ Reglamento de la ley N° 3580 Reglamento de parquímetros, zonas de estacionóme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-22 | la propia norma |
+| 2 | 2026-03-17 | Reglamento municipal 154 (2026-03-17) |
