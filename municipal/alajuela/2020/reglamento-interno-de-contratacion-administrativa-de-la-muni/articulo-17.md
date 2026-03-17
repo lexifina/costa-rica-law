@@ -1,1 +1,0 @@
-Artículo 17.—Verificación de requisitos esenciales. En los procedimientos de contratación administrativa deberá constar en el expediente electrónico el cumplimiento de los anteriores requisitos esenciales, así como los que establezca la Ley de Contratación Administrativa, su Reglamento y cualquier otra regulación conexa.

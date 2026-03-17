@@ -1,3 +1,0 @@
-Artículo 19.—Objetos de naturaleza o circunstancias concurrente incompatibles con el concurso.
-Para él la aplicación excepcional de los supuestos indicados en el artículo 139 del Reglamento a la Ley de Contratación Administrativa, las unidades administrativas solicitantes deberán incluir una justificación de la aplicación de dichos supuestos, adjuntando toda la documentación que se considere necesaria con el fin de analizar si es procedente o no dicha solicitud.
-La resolución de adjudicación de dichos procesos se tomará considerando el monto de la contratación con base en las competencias reguladas en el artículo 11 y 12 del presente reglamento.

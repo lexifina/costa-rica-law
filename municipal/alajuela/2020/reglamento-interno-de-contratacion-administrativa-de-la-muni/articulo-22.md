@@ -1,1 +1,0 @@
-Artículo 22.—Formulación del cartel. La Proveeduría Municipal elaborará los carteles de los procedimientos de contratación, cuando fuere pertinente, para lo cual requerirá, de ser necesario y a su criterio, la participación de las unidades usuaria, técnica, financiera u otras según corresponda.
