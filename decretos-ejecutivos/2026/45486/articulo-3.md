@@ -1,0 +1,2 @@
+Artículo 3º-Se adiciona el transitorio II al Decreto Ejecutivo N° 14 del 31 de agosto de 1953 "Reglamento del Consejo Superior Educación", que se leerá de la siguiente manera:
+Transitorio II.-A partir de la entrada en vigor del decreto que nos ocupa, los sectores convocados, conforme a lo establecido en el artículo 5, dispondrán de un plazo máximo de tres meses calendario para designar a los nuevos representantes ante el Consejo Superior de Educación.
