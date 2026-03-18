@@ -1,0 +1,1 @@
+Artículo 2º-Otorgar la declaratoria de utilidad pública a la Asociación de Rehabilitación y Restauración Integral Teen Challenge de Costa Rica, cédula jurídica número tres-cero cero dos-ciento sesenta y dos mil ciento catorce.
