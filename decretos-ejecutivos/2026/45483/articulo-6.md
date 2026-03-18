@@ -1,0 +1,1 @@
+Artículo 6. Ejecución de las modalidades de teletrabajo. Las modalidades de teletrabajo móvil, telecentro y domiciliar, podrán ejecutarse de manera parcial, flexible o total, respecto de la jornada laboral o la cantidad de días asignados y hasta dé manera mixta; todo de acuerdo con las necesidades y conveniencia institucional y del servicio público involucrado.

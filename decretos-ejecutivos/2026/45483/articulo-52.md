@@ -1,0 +1,1 @@
+Artículo 52. Cumplimiento de Condiciones. Independientemente del lugar donde se desarrollen las actividades teletrabajables, el teletrabajador debe cumplir con todas las condiciones que establezcan las normas, decretos, reglamentos, circulares, directrices y procedimientos, aplicables a la modalidad de teletrabajo y a su puesto.

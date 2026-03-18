@@ -1,0 +1,1 @@
+Artículo 16. Pago de la jornada extraordinaria. En la modalidad de teletrabajo, el Cosevi aplicará lo establecido en el Decreto Ejecutivo Nº 41062-MOPT Reglamento para la Autorización y Pago de Horas Extras en el Consejo de Seguridad Vial del 14 de marzo de 2018.

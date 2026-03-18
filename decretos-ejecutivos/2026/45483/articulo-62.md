@@ -1,0 +1,1 @@
+Artículo 62. Solicitud de resolución contractual de la adenda. La jefatura del teletrabajador deberá informar y solicitar a la Dirección Ejecutiva, la resolución contractual de la adenda al contrato de prestación de servicios bajo la modalidad de teletrabajo, en aquellos casos en que el teletrabajador no cumpla con las condiciones establecidas.

@@ -1,0 +1,1 @@
+Artículo 29. Definición de las modalidades de teletrabajo. Le corresponde a la jefatura del solicitante, definir y justificar el tipo de modalidad de teletrabajo a convenir, ya sea tipo domiciliario, móvil o telecéntro. Los requisitos para el ingreso a la modalidad de teletrabajo se encuentran estipulados en el artículo 27 del presente reglamento.

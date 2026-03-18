@@ -1,0 +1,2 @@
+Artículo 78. Activos institucionales. La Dirección de Logística verificará el estado de los activos propiedad del Cosevi, asignados al teletrabajador para el desempeño de sus funciones.
+En caso de que se identifiquen anomalías como son el daño, el mal uso, el mantenimiento inadecuado, y/o destrucción del activo por parte del funcionario, se reportará a la Dirección Ejecutiva y a la jefatura involucrada en el Programa de Teletrabajo para que tome las medidas correspondientes.

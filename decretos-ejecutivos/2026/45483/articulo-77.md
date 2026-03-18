@@ -1,0 +1,1 @@
+Artículo 77. Informes financieros. La Dirección Financiera será la responsable de emitir un informe semestral a la CITT, que permita identificar, determinar y cuantificar los beneficios institucionales obtenidos y las economías en que incurre el Cosevi producto de la gestión de teletrabajo, el cual deberá ser presentado según el plan de trabajo anual de la Comisión.

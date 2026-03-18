@@ -1,0 +1,1 @@
+Artículo 66. Rendición de' informes. La jefatura involucrada en el Programa de Teletrabajo deberá presentar todos los informes de gestión de teletrabajo que solicite la CITT o la Dirección Ejecutiva, conforme a los lineamientos emitidos al respecto.

@@ -1,0 +1,1 @@
+Artículo 39. Carrera administrativa. Los teletrabajadores tendrán el mismo derecho de acceso a la información necesaria para su puesto y a las oportunidades de desarrollo de, la carrera administrativa y profesional que los demás funcionarios que laboran en las instalaciones del Cosevi.

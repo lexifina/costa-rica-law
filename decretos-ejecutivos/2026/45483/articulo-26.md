@@ -1,0 +1,1 @@
+Artículo 26. Solicitud de ingreso. La jefatura interesada en la inclusión de trabajadores en la modalidad de teletrabajo, deberá presentar solicitud de forma física o digital ante el Departamento de Gestión y Desarrollo Humano para los estudios y visitas correspondientes.

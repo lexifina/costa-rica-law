@@ -1,0 +1,4 @@
+Artículo 30. Ejecución total, parcial o flexible. Le corresponde a la jefatura, en coordinación con el funcionario, definir y justificar la conveniencia y oportunidad del cumplimiento del tipo de ejecución de teletrabajo a autorizar, sea esta total, parcial o flexible.
+a) Total: se llama de ejecución total, cuando el teletrabajo se ejecuta en el I 00% de la jornada, horario y días laborales.
+b) Parcial: cuando el teletrabajo se ejecuta en menos del 100% de la jornada, horario y días laborales; definido previamente entre la jefatura y el teletrabajador.
+c) Flexible: cuando el teletrabajo se presenta sin afectación del porcentaje de la jornada, horario y días laborales; quedando sujeto a coordinación de la jefatura interna con el teletrabajador, la cantidad de días a la semana que debe asistir al Cosevi. Dicha coordinación debe darse previo a la ejecución.

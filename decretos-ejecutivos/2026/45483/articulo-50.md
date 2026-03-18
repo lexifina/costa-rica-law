@@ -1,0 +1,1 @@
+Artículo 50. Herramientas tecnológicas. El teletrabajador debe mantenerse actualizado en las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con lo que establezca el Cosevi, mediante ATI y las Políticas de Seguridad de la Información.

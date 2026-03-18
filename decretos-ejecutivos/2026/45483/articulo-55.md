@@ -1,0 +1,2 @@
+Artículo 55. Información de medición. El teletrabajador debe brindar información verídica y oportuna en todos los procesos de medición, control y evaluación, a los que deba someterse.
+El teletrabajador es el responsable de cumplir con la meta y/o cuota laboral establecida por la jefatura inmediata, conforme a la Guía para la Medición, Control y Evaluación del Teletrabajador y aceptada por él en la adeuda al contrato de trabajo; caso contrario la Dirección Ejecutiva procederá conforme lo establece el artículo 11 del presente reglamento.

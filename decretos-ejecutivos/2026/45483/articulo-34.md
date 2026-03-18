@@ -1,0 +1,4 @@
+Artículo 34. Mantenimiento de condiciones establecidas para el teletrabajo, El funcionario incorporado a la modalidad de teletrabajo, deberá mantener todas las condiciones que justificaron su aprobación con respecto a éste, así como cumplir con la normativa aplicable a la relación laboral y al teletrabajo, y con todas las obligaciones y responsabilidades adquiridas contractualmente.
+En caso de que surja alguna razón de salud para modificar dichas condiciones, la jefatura del teletrabajador deberá justificar la necesidad del cambio, ante el Departamento de Gestión de Desarrollo Humano para que ésta analice si aprueba o no la propuesta de cambio.
+En caso de ser aprobada la modificación por parte del Departamento de Gestión y Desarrollo Humano, se procederá a suscribir una adenda nueva, que deberá ser suscrita por las partes.
+Transitoriamente se mantendrá la adenda vigente, mientras se, aprueba, confecciona y firma la denda modificada.

@@ -1,0 +1,2 @@
+Artículo 68. Requerimientos y características tecnológicas del equipo de cómputo y comunicación. Será responsabilidad de ATI, establecer los parámetros de los requerimientos y caracteristicas del equipo de cómputo y comunicación banda de acceso a internet para el desarrollo de las funciones en la modalidad de teletrabajo.
+ATI deberá verificar los requerimientos tecnológicos para desarrollar el teletrabajo a través de la herramienta establecida para tal efecto.

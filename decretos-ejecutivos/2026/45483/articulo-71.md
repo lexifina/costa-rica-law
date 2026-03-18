@@ -1,0 +1,1 @@
+Artículo 71. Asistencia técnica. ATI es la responsable de brindarle al teletrabajador asistencia técnica oportuna para la resolución de los problemas que se le presenten en los sistemas de información del Cosevi, mediante medios remotos; en caso que no se pueda dar asistencia remota, estos serán atendidos en la Institución.

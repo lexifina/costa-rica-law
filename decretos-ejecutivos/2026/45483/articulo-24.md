@@ -1,0 +1,1 @@
+Artículo 24. Directores de Área. Les corresponde recibir y compilar de los departamentos o unidades a su cargo con funcionarios en la modalidad de teletrabajo, los informes trimestrales y de control y evaluación de los teletrabajadores, remitidos por las jefaturas correspondientes para su respectiva presentación ante la CITT.
