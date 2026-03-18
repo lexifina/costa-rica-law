@@ -1,0 +1,2 @@
+Artículo 2º-Modifíquese el artículo 3° del Decreto Ejecutivo N° 32338-MEP del 27 de abril del 2005, denominado Creación de la Comisión Nacional de Estudios Afrocostarricenses, modificado por el Decreto Ejecutivo N° 41460-MEP del 26 de octubre de 2018, para que se lea de la siguiente manera:
+Artículo 3º-La Comisión se reunirá, ordinariamente, una vez cada dos meses y, extraordinariamente, cuando sea convocada por quien ejerza la presidencia de la Comisión o por el Ministro o Ministra de Educación Pública.

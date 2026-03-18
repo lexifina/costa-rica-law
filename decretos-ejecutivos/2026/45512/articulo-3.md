@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el Decreto Ejecutivo N° 42068- MEP, denominado: Adición de un inciso h) al artículo N° 2 del Decreto Ejecutivo N° 32338, "Crea Comisión Nacional de Estudios Afrocostarricenses, del 18 de octubre del 2019 y publicado en La Gaceta N° 238 del 13 de diciembre del 2019.
