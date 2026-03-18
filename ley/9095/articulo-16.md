@@ -9,4 +9,9 @@ a) Promover, garantizar y coordinar políticas públicas para la prevención de 
 b) Propiciar la normativa necesaria para fortalecer la investigación y sanción del delito de trata de personas.
 c) Definir un marco específico y complementario de protección y asistencia a las víctimas de trata de personas y sus dependientes.
 d) Impulsar y facilitar la cooperación nacional e internacional en el tema de trata de personas.
-e) Otros objetivos que se consideren necesarios.
+e) Articular en la política, la manera en que la institucionalidad pública en coordinación con otras organizaciones no gubernamentales brindará los servicios especializados y alojamientos necesarios acorde con los derechos y las necesidades particulares para las víctimas, con el fin de garantizar la restitución de sus derechos y la reparación integral del daño causado.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 10886 del 18 de marzo de 2026)
+f) Indicar los enlaces de las instituciones, desde la perspectiva regional y temática, para integrar el Equipo de Respuesta Inmediata (ERI), con el objetivo de cumplir con el desarrollo y el seguimiento a la política pública.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 10886 del 18 de marzo de 2026)
+g) Otros objetivos que se consideren necesarios.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 10886 del 18 de marzo de 2026)
