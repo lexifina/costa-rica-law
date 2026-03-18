@@ -17,7 +17,8 @@ j) Dirección General de Crédito Público
 k) Dirección de Tecnologías de Información y Comunicación
 l) Dirección Jurídica
 m) Oficialía Mayor y Dirección Administrativa y Financiera
-n) Dirección de Planificación Institucional
+n) Dirección de Planificación Estratégica.
+(Así reformado el inciso anterior por el artículo 7° del decreto ejecutivo N° 45684 del 18 de marzo del 2026, "Reorganización de la Dirección de Planificación Estratégica del Ministerio de Hacienda")
 o) Tribunal Aduanero Nacional
 p) Tribunal Fiscal Administrativo
 q) Dirección General de Auditoría Interna
