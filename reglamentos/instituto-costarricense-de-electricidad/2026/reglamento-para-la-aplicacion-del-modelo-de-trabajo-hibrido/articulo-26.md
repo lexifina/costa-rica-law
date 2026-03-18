@@ -1,0 +1,1 @@
+Artículo 26°. En aquellos casos en que la reincorporación de la persona trabajadora a actividades presenciales obedezca a incumplimientos de índole técnico o de seguridad y salud en el trabajo, se solicitará a las áreas competentes adscritas a la Dirección Talento el criterio respectivo para la valoración y recomendación para la toma de decisión.

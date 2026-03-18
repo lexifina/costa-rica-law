@@ -1,0 +1,1 @@
+Artículo 9°. El Modelo de Trabajo Híbrido se establece a partir de la firma del adendum al contrato laboral entre el ICE y la persona trabajadora y hasta tanto no se dé la revocatoria, lo obliga a cumplir con los requisitos establecidos en este reglamento y demás normativa aplicable, independientemente del régimen de contratación.

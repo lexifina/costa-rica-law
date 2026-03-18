@@ -1,0 +1,1 @@
+Artículo 20°. La permanencia de una persona en el Modelo de Trabajo Híbrido estará sujeta al análisis del cumplimiento y condiciones objetivas que justificaron su ingreso, las métricas establecidas en el plan de desempeño anual, así como al cumplimiento de las obligaciones y responsabilidades indicadas en el presente reglamento y en el adendum al contrato de trabajo.

@@ -1,0 +1,1 @@
+Artículo 34°. En caso de que la persona trabajadora requiera hacer uso del domicilio alternativo lo podrá realizar hasta el momento en que cuente con la debida aprobación de la solicitud y haya firmado el nuevo adendum donde consten ambas direcciones.

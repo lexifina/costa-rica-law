@@ -1,0 +1,1 @@
+Artículo 17° La incorporación formal al Modelo de Trabajo Híbrido solo se podrá realizar una vez que la persona trabajadora se encuentre debidamente contratada por la Institución y registrada en la planilla del ICE. Además, es indispensable que la dependencia haya cumplido con todos los requisitos establecidos para el análisis y registro correspondiente.

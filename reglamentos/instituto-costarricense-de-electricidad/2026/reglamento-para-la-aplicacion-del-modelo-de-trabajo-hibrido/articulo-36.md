@@ -1,0 +1,1 @@
+Artículo 36°. La jefatura inmediata, con la debida justificación y bajo los principios de razonabilidad y proporcionalidad, podrá convocar a la persona trabajadora del Modelo de Trabajo Híbrido de manera presencial en un mismo día, considerando los tiempos de traslado desde el domicilio al centro de trabajo respectivo.

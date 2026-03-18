@@ -1,0 +1,2 @@
+Artículo 35°. La jefatura inmediata tiene la potestad de solicitarle a la persona trabajadora, según las necesidades del área, cumplir con la jornada y horario laboral en el centro de trabajo, la convocatoria debe realizarse por medio de correo electrónico institucional, el día anterior durante la jornada laboral.
+En caso de incumplimiento al llamado por parte de la persona trabajadora, se procederá, de conformidad con lo que establece la normativa vigente.

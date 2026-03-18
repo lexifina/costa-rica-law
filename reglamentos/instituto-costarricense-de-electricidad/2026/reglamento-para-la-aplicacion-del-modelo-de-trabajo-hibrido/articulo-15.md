@@ -1,0 +1,1 @@
+Artículo 15°. El trabajo remoto es una modalidad temporal dentro de la Institución, con carácter voluntario para el personal que no fue contratado bajo esta figura inicialmente, previa aprobación de la jefatura inmediata.

@@ -1,0 +1,1 @@
+Artículo 28°. El domicilio permanente o alternativo donde la persona trabajadora desarrolle sus funciones remotas debe tener una red y una conexión de Internet de al menos 45 megas tanto de descarga como de subida.

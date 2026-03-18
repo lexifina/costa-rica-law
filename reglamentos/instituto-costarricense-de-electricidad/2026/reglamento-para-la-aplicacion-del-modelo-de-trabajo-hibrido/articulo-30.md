@@ -1,0 +1,1 @@
+Artículo 30°. Si se presenta una falla en el equipo asignado o de los elementos telemáticos, atribuible a la Institución, que le impidan realizar a la persona trabajadora sus labores híbridas, este debe informar de forma a la jefatura inmediata quien debe valorar la solución temporal, hasta tanto se corrija la situación presentada.

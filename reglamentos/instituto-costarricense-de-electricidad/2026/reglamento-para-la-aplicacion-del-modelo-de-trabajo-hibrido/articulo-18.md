@@ -1,0 +1,1 @@
+Artículo 18° Los criterios de medición, evaluación y control de la persona trabajadora serán previamente determinados en el acuerdo o adenda a suscribir y deberán ser proporcionales a los aplicados en su centro de trabajo.

@@ -1,0 +1,1 @@
+Artículo 11°. El Modelo de Trabajo Híbrido implica la combinación de trabajo remoto y en la oficina. Las personas trabajadoras, deben hacer uso de las herramientas de comunicación e instalaciones que el ICE tenga a disposición.

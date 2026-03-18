@@ -1,0 +1,4 @@
+Artículo 29° Si se presenta alguna situación que le impida realizar a la persona trabajadora sus labores remotas, este debe informar de forma inmediata a la jefatura inmediata quien debe valorar y aprobar:
+1. Si el inconveniente se prolonga un tiempo mayor a 2 horas y las actividades no se pueden realizar temporalmente sin los medios tecnológicos (Internet y fluido eléctrico), la persona trabajadora deberá desplazarse a un sitio cercano que cuente con las condiciones o a un centro de trabajo ICE para el cumplimiento de la jornada laboral.
+2. Si es producto de una falla propia del equipo de cómputo deberá realizar las gestiones necesarias ante DTI, para determinar el tiempo que requiere la solución y tomar así las acciones pertinentes.
+3. En cualquiera de las situaciones señaladas, puede optar por otorgar vacaciones, rebajar el tiempo no laborado o en su defecto la reposición de este.
