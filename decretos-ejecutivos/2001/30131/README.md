@@ -21,3 +21,4 @@ Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización
 | 6 | 2012-06-25 | Ley 9046 |
 | 7 | 2022-04-18 | Decreto Ejecutivo 43184 (2022-04-18) |
 | 8 | 2022-04-27 | Decreto Ejecutivo 43449 (2022-04-27) |
+| 9 | 2026-03-18 | SINALEVI (sin norma nombrada) |
