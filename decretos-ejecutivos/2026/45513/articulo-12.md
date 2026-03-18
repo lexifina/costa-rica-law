@@ -1,0 +1,1 @@
+Artículo 12.- La institución de educación superior parauniversitaria nombrará al decano o director, con base en el procedimiento que disponga el Consejo Directivo o Junta Directiva. Este nombramiento deberá ser comunicado a la Secretaría General del Consejo Superior de Educación, en un plazo máximo de 10 días hábiles, contados a partir de la correspondiente designación.

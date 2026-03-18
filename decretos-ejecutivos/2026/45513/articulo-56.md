@@ -1,0 +1,1 @@
+Artículo 56.- La Secretaría General del Consejo Superior de Educación realizará la inscripción en el plazo máximo de un mes calendario, contado a partir del día en que la institución presente la solicitud con todos los documentos requeridos, conforme a lo establecido en el inciso b) del artículo 40 del Decreto Ejecutivo N°37045-MP-MEIC del 22 de febrero de 2012.

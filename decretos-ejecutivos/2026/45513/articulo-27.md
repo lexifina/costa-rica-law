@@ -1,0 +1,2 @@
+Artículo 27.- La solicitud para el reconocimiento como instituciones de educación superior parauniversitaria, deberá estar acompañada de la solicitud de autorización de al menos una carrera de diplomado, estas solicitudes deberán ser tramitadas de forma simultánea.
+Las solicitudes deben ser presentadas ante la Secretaría General del Consejo Superior de Educación, por escrito, debidamente firmadas por la persona física o el representante legal de la entidad interesada y con estricta sujeción a las disposiciones contenidas en la Ley N° 6541 y el presente reglamento.

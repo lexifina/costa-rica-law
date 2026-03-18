@@ -1,0 +1,1 @@
+Artículo 43.- Las instituciones parauniversitarias podrán presentar sus carreras de diplomado en educación dual con base en lo indicado en la Ley N°9728 del 12 de setiembre de 2019 y su reglamento, acorde con las necesidades del mercado laboral y los requerimientos establecidos en esta normativa.

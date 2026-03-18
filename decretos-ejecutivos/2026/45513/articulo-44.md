@@ -1,0 +1,9 @@
+CAPÍTULO II
+De las actualizaciones y modificaciones de las Carreras
+Artículo 44.- Los planes de estudio de las carreras de diplomado aprobadas por el Consejo Superior de Educación, deberán ser actualizados como máximo cada 5 años. No obstante, las instituciones podrán presentar las propuestas de actualización o modificación de las carreras de diplomado antes del plazo indicado.
+Lo anterior con base en los diferentes campos de conocimiento y el análisis de los resultados de estudios de mercado como fuentes primarias y secundarias.
+En tanto, las modificaciones curriculares deberán atender temas específicos que no alcancen las características de una actualización curricular.
+Las actualizaciones pretenden renovar las referencias bibliográficas de los cursos de la carrera con 5 años o menos de haber sido publicados, así como contenidos, objetivos, evaluación, enfoque, creditaje o bien la prueba de graduación; siempre que no varíe el perfil de salida de la carrera aprobada.
+Si las actualizaciones superan el 50% de la malla curricular, se deberá presentar como una carrera nueva con todos sus requerimientos.
+Para los subsanes de las actualizaciones o modificaciones de las carreras, se otorgará al interesado un plazo no mayor a 22 días hábiles con posibilidad de prórroga por un periodo igual por una única vez. De no presentar los subsanes en el plazo indicado, la administración procederá con el archivo de la solicitud.
+En caso de incumplimiento la Secretaría General del Consejo Superior de Educación hará el apercibimiento correspondiente para que, en un plazo no mayor de tres meses calendario, proceda la institución con la actualización de la carrera. La desatención al deber antes descrito será motivo de supresión del diplomado al amparo de lo previsto en el artículo 4 de la Ley N°6541 del 19 de noviembre de 1980.

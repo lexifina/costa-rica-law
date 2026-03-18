@@ -1,0 +1,1 @@
+Artículo 18.- La destitución del decano o director será decisión del Consejo Directivo o Junta Directiva, previa aplicación del procedimiento que determine la normativa interna de la institución. Dicho cambio debe ser comunicado al Consejo Superior de Educación en el plazo máximo de tres días hábiles.

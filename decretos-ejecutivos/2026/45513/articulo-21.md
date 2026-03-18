@@ -1,0 +1,1 @@
+Artículo 21.- Cada institución parauniversitaria establecerá las normas de clasificación, selección y contratación del personal, garantizando la idoneidad para el puesto y la observancia de lo dispuesto en el artículo 30 del presente reglamento.

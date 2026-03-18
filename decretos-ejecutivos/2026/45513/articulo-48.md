@@ -1,0 +1,4 @@
+Artículo 48.- La institución parauniversitaria podrá solicitar por escrito la decisión de cerrar una carrera de diplomado parauniversitario. Para que proceda la solicitud deberá garantizar que:
+a) La institución parauniversitaria cuente con al menos una carrera de diplomado parauniversitario actualizada dentro de su oferta.
+b) Los expedientes físicos o digitales del estudiantado, la certificación de récord académico y otros documentos relacionados con el historial académico del estudiante, estarán resguardados en orden alfabético, con el año de la matrícula, número de identificación, foliados, en estricto orden cronológico.
+Dicha solicitud deberá ser resuelta en el plazo máximo de un mes calendario, contado a partir del día en que la institución presente la solicitud con todos los documentos requeridos, conforme a lo establecido en el inciso b) del artículo 40 del Decreto Ejecutivo N°37045-MP-MEIC del 22 de febrero de 2012.

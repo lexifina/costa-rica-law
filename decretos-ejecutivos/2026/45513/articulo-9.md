@@ -1,0 +1,3 @@
+Artículo 9.- La designación de los miembros del Consejo Directivo y de quien lo preside se realizará de conformidad con la ley de creación de la respectiva institución parauniversitaria pública y, supletoriamente, con lo dispuesto en la Ley N° 6541 y el presente reglamento.
+En el caso de las Juntas Directivas de las instituciones parauniversitarias privadas, la designación se efectuará de conformidad con lo establecido en la Ley N° 3284 del 30 de abril de 1964 en la disposición que regula la representación de las sociedades mercantiles.
+En ambos casos, dicha designación deberá estar prevista en el Estatuto Orgánico.

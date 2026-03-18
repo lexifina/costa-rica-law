@@ -1,0 +1,1 @@
+Artículo 41.- Cuando la Secretaría General no cuente con especialistas del área disciplinar para el análisis de la nueva carrera, el Consejo Superior de Educación o sus comisiones podrán solicitar el criterio especializado a las personas u organismos externos que considere oportuno.

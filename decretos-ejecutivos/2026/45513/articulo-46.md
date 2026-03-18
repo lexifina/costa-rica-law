@@ -1,0 +1,1 @@
+Artículo 46.- La entrada en vigor de las actualizaciones de los planes de estudio de una carrera de diplomado se aplicará a las personas estudiantes de nuevo ingreso del cuatrimestre siguiente; sin perjuicio del estudiantado que decida voluntariamente someterse a estos cambios.
