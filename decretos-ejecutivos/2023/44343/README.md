@@ -14,3 +14,4 @@ Creación de la Comisión de enlace interinstitucional para la atención integra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-06 | la propia norma |
+| 2 | 2026-03-18 | Decreto Ejecutivo 45678 (2026-03-18) |
