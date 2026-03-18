@@ -16,3 +16,4 @@ Crea el Sistema Nacional de Identificación Individual y Rastreabilidad del gana
 | 1 | 2024-07-26 | la propia norma |
 | 2 | 2025-08-14 | Decreto Ejecutivo 45314 (2025-08-14) |
 | 3 | 2025-11-26 | Resolución 1 (2025-11-26) |
+| 4 | 2026-03-18 | Decreto Ejecutivo 45675 (2026-03-18) |
