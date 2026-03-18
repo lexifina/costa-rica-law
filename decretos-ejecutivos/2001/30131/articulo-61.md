@@ -1,4 +1,0 @@
-CAPÍTULO XI
-Especificaciones Técnicas para Proyecto y Construcción de Estaciones de Servicio de Gas L.P para Carburación
-Artículo 61.—Generalidades. Además de lo dispuesto para estaciones de servicio en el presente reglamento, las estaciones de servicio de gas L.P deben observar las siguientes especificaciones técnicas mínimas para la construcción, remodelación o ampliación de estaciones que mediante instalaciones y equipos apropiados que se destinen exclusivamente a llenar tanques instalados permanentemente en los vehículos de combustión interno que usen el gas para su propulsión, con el fin de que opere dentro de las máximas condiciones de seguridad y funcionalidad preservando la integridad del ambiente.
-Para efectos del presente reglamento las estaciones de carburación no se considerarán como plantas de almacenamiento y llenado de GLP, sino como una instalación independiente.

@@ -1,2 +1,0 @@
-Artículo 87.—La suspensión será levantada mediante resolución razonada del Ministro, previa dictamen de la DGTCC en que conste la subsanación de las causales que causaron la suspensión y que las instalaciones se han adecuado a los requisitos establecidos para el correcto funcionamiento de estos establecimientos; dichas resoluciones serán debidamente comunicadas a los organismos competentes.
-87.1 Si la suspensión obedece a un acto de ARESEP, la misma se levantará únicamente cuando así lo disponga el ente regulador por escrito.

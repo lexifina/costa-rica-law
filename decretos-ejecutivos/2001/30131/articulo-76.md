@@ -1,3 +1,0 @@
-CAPÍTULO XIV
-Cambio de Titular o Arrendamiento
-Artículo 76.—Cambio de Titular. Una vez autorizado el permiso de funcionamiento de una estación de servicio o de las instalaciones de almacenamiento, cualquier cambio en la titularidad de las mismas, deberá comunicársele a la DGTCC. Igualmente se procederá si la estación de servicio es dada en arriendo. De forma expresa el autorizado deberá solicitar a la DGTCC la cancelación de la autorización para brindar el servicio público, quedando el nuevo titular en la obligación de solicitar la respectiva autorización. Las solicitudes que se planteen ante la DGTCC deberán cumplir con los requisitos que se indican a continuación.

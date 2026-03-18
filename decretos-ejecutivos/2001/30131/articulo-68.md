@@ -1,1 +1,0 @@
-Artículo 68.—La autorización de funcionamiento de estas instalaciones se emitirá con una vigencia de tres años renovables hasta completar la vida útil del tanque, previa verificación de que las instalaciones cumplen con las condiciones óptimas de mantenimiento y operación.

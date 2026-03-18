@@ -1,1 +1,0 @@
-Transitorio IV.—(La derogación practicada a este decreto por decreto ejecutivo N° 36011 del 28 de abril de 2010, posteriormente fue derogada por el artículo 5° del decreto ejecutivo N° 36967 del 9 de enero del 2012. Se advierte que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha abrogación).

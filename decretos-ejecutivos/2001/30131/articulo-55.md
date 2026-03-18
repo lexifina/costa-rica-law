@@ -1,1 +1,0 @@
-Artículo 55.—Tanques de Almacenamiento Superficiales. Se aplicará lo establecido en el capítulo de Requisitos Específicos para la instalación de Tanques de Almacenamiento de Combustible para Autoconsumo, del presente reglamento.
