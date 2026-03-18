@@ -1,0 +1,1 @@
+Artículo 26º. Sello del Colegio. Las actas de Asamblea General y de Junta Directiva llevarán el sello oficial del Colegio, cuando sea en físico, en caso de ser digitales llevarán el logo oficial del Colegio.

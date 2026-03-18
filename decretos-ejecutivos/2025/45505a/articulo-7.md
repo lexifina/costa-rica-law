@@ -1,0 +1,3 @@
+Artículo 7º. Ejercicio profesional colectivo mediante entidades. Los Contadores Públicos Autorizados podrán ofrecer sus servicios mediante personas jurídicas legalmente constituidas, cuya persona jurídica deberá estar vigente al momento en que se contratan los servicios o durante la emisión de los actos profesionales propios del CPA.
+Los trabajos propios de un Contador Público Autorizado no tienen ningún valor sino cuenta con su firma, y además deberá estar activo ante el Colegio de Contadores Públicos de Costa Rica.
+Dichas personas jurídicas deberán estar inscritas en el Colegio, renovando anualmente su licencia, cubrir la cuota correspondiente y cumplir las disposiciones que emanen de la Junta Directiva o Asamblea General del Colegio.

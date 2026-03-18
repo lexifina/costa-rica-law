@@ -1,0 +1,2 @@
+Artículo 59º. Comisión de Gestión de Calidad: Corresponde a la Comisión de Gestión de Calidad preparar los lineamientos mínimos que todo profesional en contaduría pública, en el ejercicio liberal de la profesión, debe contar para el ejercicio profesional; así como para las firmas o despachos de Contadores Públicos, observando lo que señala las normas internacionales emitidas y lo que se indique en el Código de Ética Profesional.
+También deberá atender aquellos otros asuntos afines a sus objetivos, que le asigne la Junta Directiva.

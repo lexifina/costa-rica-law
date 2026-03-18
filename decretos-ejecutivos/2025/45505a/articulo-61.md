@@ -1,0 +1,2 @@
+Artículo 61º. Comisión de Educación. Corresponde a la Comisión de Educación asistir a la Junta Directiva a promover el desarrollo profesional, en observación con los estándares internacionales, principalmente aquellos que se encuentran en las Normas Internacionales de Educación emitidos por la Federación Internacional de Contadores.
+También deberá atender aquellos otros asuntos afines a sus objetivos, que le asigne la Junta Directiva.

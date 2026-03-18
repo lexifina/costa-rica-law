@@ -1,0 +1,1 @@
+Artículo 58º. Comisión de Admisión. Corresponde a la Comisión de Admisión preparar un reglamento de admisión que debe ser aprobado definitivamente por la Junta Directiva del Colegio. También le corresponderá estudiar y dictaminar previamente sobre toda solicitud de admisión al Colegio y rendir un informe a la Junta Directiva para su aprobación.

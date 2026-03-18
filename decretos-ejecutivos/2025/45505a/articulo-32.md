@@ -1,0 +1,1 @@
+Artículo 32º. Libro de Registro. El Departamento de Admisión será responsable de llevar debidamente actualizado un "Libro de Registro", físico o digital donde por el orden de inscripción constarán la fotografía y firma o imagen de la cédula de identidad del colegiado y sus principales datos personales y profesionales.

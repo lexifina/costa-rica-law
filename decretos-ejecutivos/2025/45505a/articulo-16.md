@@ -1,0 +1,1 @@
+Artículo 16º. Carácter de la certificación. Toda certificación extendida por los Contadores Públicos Autorizados en el ejercicio de sus funciones tendrá el valor de documentos públicos, según el artículo 8 de la ley N.° 1038 y en este reglamento.

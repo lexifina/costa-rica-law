@@ -1,0 +1,2 @@
+Artículo 42º. Convocatoria. La convocatoria a sesión de la Asamblea General se hará por publicación en "La Gaceta", dos días consecutivos, debiendo aparecer el primer aviso por lo menos cinco días naturales antes de la reunión. Se hará una publicación también en un diario de circulación nacional.
+La convocatoria indicará la agenda a tratar. En las reuniones extraordinarias sólo se podrán tratar los asuntos indicados en la agenda de la convocatoria.

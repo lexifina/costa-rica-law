@@ -1,0 +1,1 @@
+Artículo 71º. Póliza de fidelidad. Por el monto que señale la Junta Directiva, se rendirá una póliza de fidelidad con alguna de las entidades aseguradoras autorizadas por la Superintendencia General de Seguros, por los directivos y colaboradores del Colegio que designe la Junta Directiva, que deberá ser pagada por el directivo o colaborar de su propio pecunio.

@@ -1,0 +1,1 @@
+Artículo 81º. Iniciativa del procedimiento. El Colegio actuará de oficio o por denuncia formal de persona física o jurídica que se sienta lesionado en sus derechos o intereses legítimos con motivo de alguna actuación de un Contador Público Autorizado.

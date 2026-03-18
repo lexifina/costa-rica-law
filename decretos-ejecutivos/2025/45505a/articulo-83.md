@@ -1,0 +1,2 @@
+Artículo 83º. Sanciones recurribles. Sólo serán apelables, dentro del tercer día hábil siguiente a la notificación del acto, ante la Asamblea General, la suspensión del ejercicio profesional superior a un año.
+Toda sanción tiene recurso de revocatoria ante la Junta Directiva conforme lo señala la Ley General de Administración Pública según el artículo 346, en el plazo de tres días hábiles a partir de la notificación del acto.

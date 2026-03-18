@@ -1,0 +1,2 @@
+Artículo 72º. Revisión de libros. El Fiscal o el Presidente de la Junta Directiva o un delegado de cualquiera de ellos, podrá en cualquier momento revisar los libros, comprobantes, archivos y demás documentos y medios tecnológicos en que se soporte la información financiera del Colegio, contemplando el presupuesto. La revisión se llevará a cabo una vez al año como mínimo; sin perjuicio, de las revisiones que pueda hacer el auditor interno según su plan de trabajo.
+Los estados financieros anuales y el presupuesto deben ser sometidos a una auditoría externa.

@@ -1,0 +1,1 @@
+Artículo 47º. Reuniones. La Junta Directiva sesionará ordinariamente por lo menos una vez al mes, y extraordinariamente cuando sea convocada por el Presidente, con veinticuatro horas de anticipación, con indicación de la agenda a tratar y si es presencial virtual o presencial física.

@@ -1,0 +1,1 @@
+Artículo 53º. Integración. Las Comisiones Permanentes de Trabajo estarán integradas por cinco colegiados, uno de los cuales lo será a su vez un directivo de la Junta Directiva y será quien las presida.

@@ -1,0 +1,2 @@
+Artículo 78º. Atraso en el pago de las obligaciones con el Colegio. El atraso en el pago de dos o más cuotas ordinarias y extraordinarias mensuales originará la suspensión de derechos por parte de la Junta Directiva, previo debido proceso hasta tanto el colegiado no se ponga al día, así como con las licencias por parte de las firmas o despachos de contadores públicos.
+Todo atraso en el pago de cuotas, licencias y otros cargos con el Colegio acarreará una multa del 2% mensual.

@@ -1,0 +1,2 @@
+Artículo 40º. Quorum. El quorum de las sesiones, presencial física o presencial virtual, estará conformado por no menos de la mitad de los colegiados inscritos a la fecha de la convocatoria. En caso de no lograrse completar dicho quorum a la hora establecida, la Junta Directiva podrá hacer una nueva convocatoria para celebrar la Asamblea media hora después, con cualquier cantidad de colegiados presentes, en el mismo lugar y con la misma agenda.
+La Junta Directiva podrá hacer simultáneamente la primera y segunda convocatoria.

@@ -1,0 +1,2 @@
+Artículo 64º. Competencia. Corresponde al Tribunal de Honor buscar la verdad de los hechos de posibles violaciones al Código de Ética Profesional del Contador Público y Contadora Pública Autorizada y la normativa aplicable a todo Contador Público Autorizado, siguiendo el principio constitucional del debido proceso.
+El Tribunal de Honor sólo conocerá de los casos que le someta a conocimiento la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 69º. Cuentas bancarias. Los fondos del Colegio se mantendrán en las cuentas corrientes bancarias que acuerde la Junta Directiva. Contra dichas cuentas girarán el Tesorero conjuntamente con el Presidente, o los miembros autorizados por la Junta para suplir las ausencias de éstos.

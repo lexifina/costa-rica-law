@@ -1,0 +1,3 @@
+Artículo 6º. Cesación (retiro) y suspensión de la condición de Contador Público Autorizado. La condición de Contador Público Autorizado se suspenderá cuando la persona es sancionada disciplinariamente conforme lo establece el Código de Ética Profesional del Colegio de Contadores Públicos de Costa Rica, después de un debido proceso o cuando se encuentre con una condena penal en firme y vigente, sea privado
+de libertad en un centro penitenciario o en arresto domiciliario o inhabilitado de ejercer lo relacionado con la contaduría pública o por adeudar dos o más cuotas del pago de la colegiatura.
+Un Contador Público Autorizado será cesado (retiro), cuando lo solicite voluntariamente conforme a lo estipulado en este Reglamento.

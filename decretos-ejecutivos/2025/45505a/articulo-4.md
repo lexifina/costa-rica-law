@@ -1,0 +1,2 @@
+Artículo 4º. Definición de Contador Público Autorizado. Se considera Contador Público Autorizado la persona que satisfaga los requisitos y condiciones establecidos por la ley N.° 1038, este Reglamento, la Asamblea General y la Junta Directiva del Colegio, como necesarios para el ejercicio de la profesión.
+La persona que no satisfaga dichos requisitos y condiciones no podrá ejercer la profesión y será denominado simplemente Contador Público.

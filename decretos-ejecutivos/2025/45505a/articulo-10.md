@@ -1,0 +1,1 @@
+Artículo 10º. Anuncios y ejercicio profesional por firmas extranjeras. Las firmas extranjeras sólo podrán anunciarse y ejercer en Costa Rica por medio de profesionales o despachos costarricenses debidamente inscritos ante el Colegio.

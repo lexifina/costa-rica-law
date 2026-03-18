@@ -1,0 +1,1 @@
+Artículo 33º. Libro de Control digital. El Colegio bajo la responsabilidad del departamento Financiero Administrativo llevará un control digital, en donde se registran las renovaciones de las pólizas de fidelidad de los Contadores Públicos Autorizados, según se requiere en el artículo 3º de la Ley N.° 1038. Dicho control deberá ser revisado por la Fiscalía anualmente.

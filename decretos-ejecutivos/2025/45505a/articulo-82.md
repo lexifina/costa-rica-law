@@ -1,0 +1,1 @@
+Artículo 82º. Participación del interesado en el procedimiento. Todo procedimiento disciplinario será tramitado con suficiente participación del colegiado interesado conforme lo dispone nuestra Constitución Política y siguiendo el debido proceso.

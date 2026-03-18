@@ -1,0 +1,1 @@
+Artículo 13º. Indicación de vigencia de la póliza. En todo documento que expida el Contador Público Autorizado, en el ejercicio de su profesión debajo de su firma digital o física indicará: "Póliza de Fidelidad (N.°), Fecha de Vencimiento", requerida en el artículo 3º de la Ley N.° 1038.

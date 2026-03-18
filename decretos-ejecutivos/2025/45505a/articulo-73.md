@@ -1,0 +1,1 @@
+Artículo 73º. Cambio de Tesorero. En cualquier circunstancia que genere un cambio del Tesorero de la Junta Directiva, la entrega de valores, libros, papelería y demás documentos, físicos o digitales, se hará en presencia del Fiscal y mediante elaboración del acta formal respectiva.

@@ -1,0 +1,6 @@
+Artículo 9º. Funciones del Contador Público Autorizado. Corresponde al Contador Público Autorizado, sin perjuicio de lo que sea normalmente reconocido como propio, de acuerdo con su formación académica:
+a) Las enumeradas en el artículo 7º de la ley N.° 1038 citada; así como las indicadas en el artículo 2º de este reglamento.
+b) Las de dictaminar sobre estados financieros o parte de éstos, y sobre toda clase de documentos para efectos tributarios, fiscales, judiciales, de crédito o similares, así como los encargos de aseguramiento y servicios relacionados conforme se señala en el Manual de Pronunciamientos Internacionales de la Federación Internacional de Contadores.
+c) Las de intervención en materia judicial, bancaria, comercial, administrativa y en cuentas, en todos aquellos actos que requieran el concurso de un técnico en dichas materias o que demanden la opinión o certificación de estados, cuentas, participaciones, liquidaciones y similares.
+d) Servicios de revisión de toda clase de estados financieros, atestiguamiento, opiniones, preparación de estados financieros o compilación para propósitos de terceros conforme lo indica el artículo 2 de la Ley N.° 1038, y las Normas Internacionales de Servicios Relacionados.
+e) Asesoramiento en el campo de la contaduría pública

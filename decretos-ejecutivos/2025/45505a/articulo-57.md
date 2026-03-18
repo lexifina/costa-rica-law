@@ -1,0 +1,1 @@
+Artículo 57º. Comisión de Fiscalía. Corresponde a la Comisión de Fiscalía, presidida por el Fiscal de la Junta Directiva, analizar y preparar el informe del resultado de la investigación preliminar, que será elevado a la Junta Directiva, de los casos de oficio o denuncia con el respectivo apoyo administrativo del personal del departamento de fiscalía.

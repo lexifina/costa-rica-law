@@ -1,0 +1,1 @@
+Artículo 75º. Exoneración del pago de cuotas para los Miembros de la Junta Directiva. Los miembros de la Junta Directiva tendrán derecho mientras permanezcan en el cargo, a la exoneración del pago de las cuotas ordinarias mensuales.

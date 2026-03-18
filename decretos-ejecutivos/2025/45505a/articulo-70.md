@@ -1,0 +1,1 @@
+Artículo 70º. Facilidades de cobro y pago. El Colegio podrá utilizar plataformas tecnológicas para el cobro de las cuotas y servicios; así como para el pago de sus obligaciones, salvo aquellos que se efectúen por caja chica de conformidad con el manual aprobado por la Junta Directiva.
