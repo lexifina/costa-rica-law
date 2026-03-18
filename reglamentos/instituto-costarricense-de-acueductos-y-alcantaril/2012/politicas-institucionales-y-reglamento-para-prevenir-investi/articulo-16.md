@@ -1,4 +1,0 @@
-Artículo 16.—Medidas cautelares. En cualquier estado del Procedimiento Administrativo Disciplinario o antes de éste y hasta tanto no adquiera firmeza el fallo contenido en la Resolución Final, la Gerencia General, podrá adoptar el establecimiento de medidas cautelares como:
-a) Suspensión temporal con goce de salario de la persona denunciada.
-b) Traslado temporal de la persona denunciada a otro puesto que no sea de inferior jerarquía; si esta medida es adoptada, el salario de esta persona no puede verse disminuido.
-c) Traslado de la presunta víctima o de algún testigo cuando estos sean parte del personal de AyA a un puesto de igual o superior jerarquía sin afectación en perjuicio de su salario. Esta medida puede generarse por requerimiento de la Gerencia General, de ellos mismos o de sus representantes legales.

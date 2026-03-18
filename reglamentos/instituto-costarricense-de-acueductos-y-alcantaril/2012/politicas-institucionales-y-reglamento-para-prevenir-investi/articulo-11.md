@@ -1,1 +1,0 @@
-Artículo 11.—Dirección de Igualdad y Equidad de Género como coadyuvante – Que la Dirección de Igualdad y Equidad de Género y la Dirección Jurídica en caso de no llevar la instrucción del proceso, serán reconocidos expresamente como coadyuvantes de la víctima en todos los procesos por hostigamiento sexual.
