@@ -14,3 +14,4 @@ Reglamento del suministro de combustibles en estaciones de servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-07 | la propia norma |
+| 2 | 2026-03-18 | SINALEVI (sin norma nombrada) |
