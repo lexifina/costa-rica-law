@@ -14,3 +14,4 @@ Actualización del Sistema Geodésico de Referencia Horizontal Oficial para Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-17 | la propia norma |
+| 2 | 2026-03-18 | Ley 10887 |
