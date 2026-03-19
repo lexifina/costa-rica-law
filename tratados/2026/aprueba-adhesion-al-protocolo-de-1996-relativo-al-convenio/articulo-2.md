@@ -1,0 +1,4 @@
+ARTÍCULO 2- La República de Costa Rica hace reserva a los artículos 21 y 22 del Protocolo de 1996, relativo al Convenio sobre la Prevención de la Contaminación del Mar por Vertimiento de Desechos y otras Materias, de 1972, sus anexos y enmiendas; en el sentido de que las enmiendas aprobadas conforme al procedimiento ahí descrito tendrán vigencia en el país cuando se consideren protocolos de menor rango derivados del Convenio en los términos que establece nuestra Constitución Política. En el caso de enmiendas sustanciales, tendrán vigencia una vez que hayan sido aprobados de conformidad con los procedimientos establecidos en la Constitución Política de la República de Costa Rica.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los diez días del mes de febrero del año dos mil veintiséis.
+EJECÚTESE Y PUBLÍQUESE.
