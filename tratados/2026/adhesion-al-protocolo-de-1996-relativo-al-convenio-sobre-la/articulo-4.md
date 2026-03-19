@@ -1,0 +1,4 @@
+Artículo 4. Vertimiento de desechos u otras materias
+1.1 Las Partes Contratantes prohibirán el vertimiento de cualesquiera desechos u otras materias, con excepción de los que se enumeran en el anexo 1.
+1.2 Para el vertimiento de desechos u otros materiales enumerados en el anexo 1 será necesario un permiso. Las Partes Contratantes adoptarán medidas administrativas o legislativas a fin de garantizar que la expedición de los permisos y las condiciones de éstos cumplen las disposiciones del anexo 2. Se prestará particular atención a las posibilidades de evitar el vertimiento en favor de alternativas preferibles desde el punto de vista ambiental.
+2 Nada de lo dispuesto en el presente protocolo se interpretará en el sentido de impedir que una Parte Contratante prohíba, en lo que esa Parte concierne el vertimiento de los desechos u otras materias mencionados en el anexo 1. La parte en cuestión notificará tales medidas a la Organización.

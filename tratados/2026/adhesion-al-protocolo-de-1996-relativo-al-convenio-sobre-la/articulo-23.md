@@ -1,0 +1,1 @@
+Artículo 23. Relación entre el Protocolo y el Convenio. El presente protocolo deroga el Convenio por lo que respecta a las Partes Contratantes del presente protocolo que también son Partes en el Convenio.

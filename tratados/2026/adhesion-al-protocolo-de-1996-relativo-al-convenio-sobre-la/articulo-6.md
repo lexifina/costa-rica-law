@@ -1,0 +1,6 @@
+Artículo 6. Exportación de desechos u otras materias
+1 Las Partes Contratantes no permitirán la exportación de desechos u otras materias a otros países para su vertimiento o incineración en el mar.
+2 No obstante lo dispuesto en el apartado 1, los f lujos de dióxido de carbono podrán exportarse para su evacuación de conformidad con lo dispuesto en el anexo 1 a condición de que los países interesados hayan concluido un acuerdo o concierto. Dicho acuerdo o concierto incluirá:
+.1 la confirmación y asignación de las responsabilidades del permiso entre los países exportadores y receptores, en consonancia con las disposiciones del presente Protocolo y otro derecho internacional aplicable; y
+.2 en el caso de exportaciones a Estados que no son Partes Contratantes, disposiciones equivalentes, como mínimo, a las recogidas en el presente Protocolo, incluidas las relativas a la expedición de permisos y a las condiciones de los permisos para el cump limiento de las disposiciones del anexo 2, para garantizar que el acuerdo o concierto no menoscabe las obligaciones de las Partes Contratantes en virtud del presente Protocolo de proteger y preservar el medio marino.
+Toda Parte Contratante que concluya tal acuerdo o concierto lo notificará a la Organización.
