@@ -1,1 +1,0 @@
-Artículo 2º—La Dirección de Tecnologías de Información y Comunicación es la dependencia del Ministerio de Hacienda, que tendrá a su cargo coordinar y asegurar el cumplimiento de las actividades de la gestión de Tecnologías de Información y Comunicación, que permitan el alineamiento con los objetivos estratégicos del Ministerio y sus funciones operativas.
