@@ -1,0 +1,3 @@
+Artículo 37- Obligaciones de los funcionarios del Cementerio Municipal: El Cementerio Municipal deberá colaborar con el Departamento de Recaudación de Ingresos en los procesos de recuperación de ingresos por servicio de aseo y ornato de cementerio y demás rubros asociados, y para ello tendrá las siguientes obligaciones específicas:
+a) Realizar gestiones y actividades para promover el cumplimiento de las obligaciones por concepto de derechos y servicios del cementerio municipal.
+b) Atender en coordinación con el Departamento de Recaudación de Ingresos las consultas y reclamos presentados por los contribuyentes referentes a pago por servicio de cementerio.

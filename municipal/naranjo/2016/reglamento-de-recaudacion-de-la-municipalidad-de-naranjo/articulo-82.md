@@ -1,0 +1,1 @@
+Artículo 82.- Derogatorias. Este reglamento deroga el Reglamento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Naranjo, publicado en La Gaceta Nº 148 del 05 de agosto de 2013.

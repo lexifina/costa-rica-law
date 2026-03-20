@@ -1,0 +1,1 @@
+Artículo 77.-Finalización de la contratación. Al finalizar abogado externo la labor para la cual fue contratado deberá remitir la totalidad de la documentación correspondiente a los casos a su cargo al Departamento de Recaudación de Ingresos, con un informe final detallado de su labor y de la finalización del contrato correspondiente.

@@ -1,0 +1,1 @@
+Artículo 50- Obligación de interrumpir los plazos de prescripción. El Departamento de Recaudación de Ingresos tendrá la obligación de velar porque se realicen todas las actuaciones que intimen a las personas contribuyentes morosas el pago de las cuentas vencidas.

@@ -1,0 +1,1 @@
+Artículo 29- Obligaciones de la Dirección Financiera y Tributaria. Será obligación de la Dirección Financiera y Tributaria asumir funciones de supervisión, articulación y apoyo estratégico en el proceso de gestión de Recaudación.

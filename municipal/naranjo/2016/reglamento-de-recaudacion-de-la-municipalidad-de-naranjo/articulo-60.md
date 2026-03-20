@@ -1,0 +1,2 @@
+Artículo 60- Incumplimiento del arreglo de pago. En caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá a realizar el trámite de cobro judicial; sin que se requiera de comunicación previa alguna al administrado.
+Se considerará incumplido el arreglo de pago cuando el obligado incurra en un atraso superior a treinta (30) días hábiles respecto de cualquier cuota pactada.

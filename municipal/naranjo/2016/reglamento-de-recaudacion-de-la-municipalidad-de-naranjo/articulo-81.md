@@ -1,0 +1,1 @@
+Artículo 81. Procedimientos. Como complemento al presente reglamento se preparan y divulgarán debidamente los procedimientos que detallen las actividades y responsables de su ejecución que se deberán ejecutar para la aplicación de lo aquí dispuesto.

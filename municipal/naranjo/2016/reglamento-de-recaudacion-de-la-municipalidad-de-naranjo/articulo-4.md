@@ -1,0 +1,5 @@
+CAPÍTULO II
+FUNCIONAMIENTO DEL DEPARTAMENTO DE RECAUDACION DE INGRESOS
+Sección I Aspectos Generales
+Artículo 4.-De la función de gestión de ingresos. La función de gestión de ingresos comprende el conjunto de actividades destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales de los contribuyentes.
+La función de gestión se realizará en tres etapas sucesivas: voluntaria, administrativa y ejecutiva. En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación cobratoria alguna por parte de la Municipalidad. En la etapa administrativa se concretará un requerimiento persuasivo de pago a los sujetos pasivos, exhortándoles a normalizar su situación financiera con el gobierno local. En la etapa ejecutiva, la recaudación se efectuará utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos. Esta etapa será ejecutada por los abogados externos contratados para tal efecto, o por los abogados internos en casos calificados.

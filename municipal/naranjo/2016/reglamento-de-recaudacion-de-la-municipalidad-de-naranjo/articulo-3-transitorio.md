@@ -1,0 +1,1 @@
+Transitorio III. A partir de la depuración extraordinaria indicada en el transitorio anterior, la Administración dispondrá de dos meses para validar y realizar los actos administrativos requeridos para concretar la depuración en los correspondientes sistemas de información.

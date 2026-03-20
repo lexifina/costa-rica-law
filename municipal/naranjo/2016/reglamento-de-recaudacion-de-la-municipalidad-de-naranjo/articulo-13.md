@@ -1,0 +1,1 @@
+Artículo 13- Seguimiento de la estrategia. La Dirección Financiero Tributaria será la responsable de fiscalizar que, todos los departamentos involucrados directa o indirectamente acaten la estrategia de cobro, debiendo informar sus resultados anuales a la Alcaldía Municipal, a más tardar en el mes de febrero del año siguiente.

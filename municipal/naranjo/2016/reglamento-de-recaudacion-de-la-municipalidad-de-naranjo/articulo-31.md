@@ -1,0 +1,6 @@
+Artículo 31- Obligaciones de los funcionarios de la Plataforma de Servicios. Serán obligaciones del personal del Departamento de Plataforma de Servicios como apoyo a los procesos de recuperación de ingresos municipales:
+a) Verificar, actualizar y registrar en el sistema informático municipal toda la información correspondiente al contribuyente.
+b) En los casos en que en la atención presencial con el contribuyente se identifique la existencia de saldos pendientes superiores a un trimestre calendario, deben alertar al contribuyente siendo esto una gestión de aviso de cobro.
+c) Notificar gestiones de cobro a los contribuyentes que se presenten a realizar gestiones a la plataforma de servicios, dejando la debida constancia de la comunicación realizada, de conformidad con el procedimiento establecido al efecto.
+d) Colaborar activamente en la divulgación de campañas institucionales relacionadas con actualización de datos, facilidades de pago u otras estrategias de regularización según les sea requerido.
+e) Participar obligatoriamente en los programas de capacitación y actualización que convoque el Departamento de Recaudación de Ingresos en relación con los procedimientos, sistemas y normativas aplicables a la recuperación de ingresos.

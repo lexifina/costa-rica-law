@@ -1,0 +1,1 @@
+Artículo 53. Colaboración a los funcionarios de gestión de Recaudación. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios de Recaudación y prestarles la mayor colaboración en el desarrollo de su función.

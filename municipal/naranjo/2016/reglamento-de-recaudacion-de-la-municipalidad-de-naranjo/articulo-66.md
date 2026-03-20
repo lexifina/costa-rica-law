@@ -1,0 +1,4 @@
+Sección II De la gestión de cobro externo, extrajudicial o judicial
+Artículo 66. Inicio. La gestión de cobro externo o extrajudicial y/o judicial iniciará una vez agotada la gestión de cobro administrativo de acuerdo al grado de morosidad de la cuenta y previo informe del coordinador del departamento de cobro que evidencie la finalización de la fase de cobro administrativo.
+La Municipalidad de Naranjo podrá realizar procesos contractuales según la normativa aplicable, para la contratación de gestiones de cobro extrajudicial, independientemente del grado de morosidad de la cuenta, esto como parte de las estrategias de recuperación que determine el coordinador del Departamento de Recaudación de Ingresos.
+A fin de que haya mayor equidad, el Departamento de Recaudación de Ingresos hará la distribución de las cuentas que se asignan a cobro judicial, tomando en consideración el rol de los abogados y el monto a ejecutar judicialmente.

@@ -1,0 +1,1 @@
+Artículo 48.-Resolución Administrativa. Una vez determinados los contribuyentes con obligaciones que califiquen como exiguas, la Administración Tributaria y la Gestión Financiera, procederán a emitir la Resolución Administrativa por la totalidad de los exiguos, la cual deberá ser firmada también por la Alcaldía Municipal y ser avalada por un acuerdo del Concejo Municipal.

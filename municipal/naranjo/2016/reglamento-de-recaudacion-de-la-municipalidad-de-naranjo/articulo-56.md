@@ -1,0 +1,1 @@
+Artículo 56-Responsabilidad de los trámites de arreglos de pago. El Departamento de Recaudación de esta Municipalidad será el encargado de realizar todos los trámites de arreglos de pago, ante el cual deberán presentarse las respectivas solicitudes. La suscripción del acuerdo deberá ser realizado por la persona legitimada jurídicamente para realizarlo.

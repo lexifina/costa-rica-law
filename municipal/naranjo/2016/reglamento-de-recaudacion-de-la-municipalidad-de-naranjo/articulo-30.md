@@ -1,0 +1,4 @@
+Artículo 30- Obligaciones del Departamento de Tesorería. Serán obligaciones del Departamento de Tesorería Municipal asumir un rol estratégico y de apoyo operativo en el proceso de gestión de Recaudación, debiendo:
+a) Facilitar al Departamento de Recaudación de Ingresos, cuando sea requerido el acceso actualizado a los registros contables de ingresos municipales, incluyendo saldos pendientes, pagos aplicados y cualquier movimiento que impacte la cartera morosa.
+b) Informar diariamente al Departamento de Recaudación de Ingresos sobre cualquier pago recibido que corresponda a contribuyentes en proceso de gestión de cobro, tanto en fase administrativa como extrajudicial o judicial.
+c) Velar por la correcta aplicación de los abonos realizados mediante arreglos de pago, convenios o cancelaciones parciales, y notificar inmediatamente cualquier inconsistencia detectada.

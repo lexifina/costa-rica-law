@@ -1,0 +1,1 @@
+Artículo 58. Actualización periódica de los parámetros. Se faculta a la Alcaldía para que anualmente, mediante resolución administrativa pueda actualizar los rangos establecidos en el artículo anterior en función de la inflación nacional medida según el Índice de Precios al Por Menor calculado por el Instituto Nacional de Estadística y Censos (INEC).

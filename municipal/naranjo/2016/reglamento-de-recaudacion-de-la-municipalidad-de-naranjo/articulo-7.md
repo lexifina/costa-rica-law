@@ -1,0 +1,1 @@
+Artículo 7. Deberes del personal. Todo el personal municipal relacionado de manera directa o indirecta con la gestión de cobro en el cumplimiento de sus funciones y sin detrimento del ejercicio de sus funciones, guardará el debido respeto a los interesados y al público en general e informará a aquéllos, tanto de sus derechos como de sus deberes.
