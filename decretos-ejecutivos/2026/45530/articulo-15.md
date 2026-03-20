@@ -1,0 +1,1 @@
+ARTÍCULO 15.- El Comité Nacional de Protección Marítima se reunirá en la sede central del MOPT o en el lugar que este Comité acuerde previamente, y contará para el cumplimiento de sus funciones, con la ayuda técnica y logística que requiera de las entidades que lo integran.

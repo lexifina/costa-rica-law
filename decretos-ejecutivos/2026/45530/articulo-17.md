@@ -1,0 +1,1 @@
+ARTÍCULO 17.- El Comité Nacional de Protección Marítima ajustará su funcionamiento a lo establecido en los artículos 49, 50, 51, 52, 53, 54, 55, 56, 57 y 58 de la Ley General de la Administración Pública en materia de órganos colegiados, en todo aquello que no se encuentre expresamente regulado en el presente reglamento.

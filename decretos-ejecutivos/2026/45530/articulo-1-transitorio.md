@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO. - El Comité Nacional de Protección Marítima deberá elaborar y aprobar su reglamento interno de funcionamiento, procedimientos y normas de trabajo dentro del plazo máximo de noventa días naturales, contados a partir de la entrada en vigencia del presente reglamento.
+Durante dicho plazo, el Comité podrá sesionar y adoptar acuerdos conforme a lo dispuesto en el presente decreto y a las reglas sobre funcionamiento de órganos colegiados establecidas en los artículos 49, 50, 51, 52, 53, 54, 55, 56, 57 y 58 de la Ley General de la Administración Pública.

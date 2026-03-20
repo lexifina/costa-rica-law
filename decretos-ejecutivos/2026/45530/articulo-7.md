@@ -1,0 +1,1 @@
+ARTÍCULO 7.- El Comité Nacional de Protección Marítima podrá convocar y establecer grupos de trabajo especializados en distintas iniciativas relacionadas con la protección marítima; en los cuales podrán participar otros miembros del sector relacionado con la protección marítima, que no se encuentren contemplados en el artículo 4 del presente reglamento.

@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El Comité Nacional de Protección Marítima será el órgano de coordinación interinstitucional permanente entre las instancias gubernamentales de conformidad con lo dispuesto en el artículo 4 del presente decreto, que tienen competencias relacionadas con procedimientos relativos a la protección de las instalaciones portuarias e interfaz buque puerto.

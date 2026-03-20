@@ -1,0 +1,1 @@
+ARTÍCULO 21.- La participación de los miembros del Comité Nacional de Protección Marítima, no generará dietas o sobre sueldos, más allá de lo establecido en el ordenamiento jurídico como funcionarios públicos o empleados de empresa privada y podrá ser ejecutadas en jornada ordinaria o extraordinaria laboral.

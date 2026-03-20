@@ -1,0 +1,1 @@
+ARTÍCULO 11.- La información que se genere producto de las actividades del Comité, será custodiada, resguardada y archivada por parte de la Dirección de Navegación y Seguridad Acuática de la División Marítima Portuaria del Ministerio de Obras Públicas y Transportes.
