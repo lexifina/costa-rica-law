@@ -1,1 +1,0 @@
-Artículo 5º—Se autoriza al SENASA a actualizar la lista de principios activos de medicamentos para el uso de las especies de acuicultura, conforme se registren y aprueben por el Departamento de Registro y Control de Medicamentos Veterinarios del SENASA.

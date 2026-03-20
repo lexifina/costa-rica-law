@@ -1,1 +1,0 @@
-Artículo 4º—En el caso de exportaciones a mercados con requerimientos que difieran a los límites establecidos en la presente disposición normativa, el SENASA debe exigir el cumplimiento de la regulación del mercado de destino en cuyo caso, deberá informar y justificar a los interesados de esos requerimientos establecidos por esos mercados destino.

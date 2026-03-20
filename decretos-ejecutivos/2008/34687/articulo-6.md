@@ -1,1 +1,0 @@
-Artículo 6º—Todos aquellos productos y subproductos pesqueros que de acuerdo a los análisis realizados sobrepasen los limites fijados en el presente Decreto se les aplicará la correspondiente medida sanitaria conforme lo determinado por la Ley General del Servicio Nacional de Salud Animal (SENASA), Ley Nº 8495 del 6 de abril del 2006.
