@@ -1,0 +1,5 @@
+Sección II
+Del nivel operativo
+Artículo 14.-. Dirección Administrativa Financiera:
+Administrar en forma óptima los recursos financieros y físicos, así como el Talento Humano, los cuales dan soporte al quehacer institucional de manera eficiente y eficaz, así como el manejo de los sistemas administrativos internos, aplicando estrategias que procuren un uso eficiente de los mismos, bajo los principios de transparencia, legalidad y un uso racional de los recursos.
+La Dirección, mandos medios y todos sus socios laborales tienen la responsabilidad de proveer los recursos materiales y financieros, de igual forma realizar los procesos de reclutamiento y selección adecuados para dotar de capital intelectual a las diferentes unidades que integran el ICT, para poder cumplir con los objetivos y metas institucionales. Es decir, debe estructurar equipos de trabajo adscritos a sus áreas para garantizar que los procesos transversales se den en toda la Institución, garantizando en forma oportuna todas las soluciones técnicas dentro de su alcance.

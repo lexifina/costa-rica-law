@@ -1,0 +1,2 @@
+Artículo 25.- Dirección de Estrategia Turística.
+Esta dirección tiene como propósito liderar los procesos de planificación del desarrollo turístico del país, la generación de información para la toma de decisiones, la planificación e inspección en la zona marítimo terrestre, el monitoreo de los planes, diseño de producto turístico y el desarrollo de iniciativas de competitividad en el sector turístico.

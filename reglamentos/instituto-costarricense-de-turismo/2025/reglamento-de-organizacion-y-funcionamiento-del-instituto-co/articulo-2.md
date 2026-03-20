@@ -1,0 +1,3 @@
+Artículo 2.- Naturaleza jurídica:
+Con base en lo que establece el artículo 2° de la Ley Orgánica del Instituto Costarricense de Turismo Ley No.19171, esta institución autónoma con personalidad jurídica plena y patrimonio propio que realiza función de gobierno en el ámbito nacional, a quien le ha sido asignada una competencia específica en la satisfacción de un fin público, el cual es el fomento del turismo hacia Costa Rica y dentro del país. Además, tiene autonomía administrativa, política y organizativa, pero está sujeto a la tutela administrativa del Estado. La Junta Directiva será responsable de su gestión en forma total e ineludible.
+1 Ley No. 1917 del 29 de julio de 1955, publicado en La Gaceta No.175 del 09 de agosto de 1955 y sus Reformas.

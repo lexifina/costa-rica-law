@@ -1,0 +1,3 @@
+Artículo 40.- Comisión Interinstitucional de Marinas y Atracaderos Turísticos (CIMAT).
+Su naturaleza jurídica es de órgano desconcentrado en grado máximo, adscrito al ICT, está compuesta además por representantes del MOPT, MINAE, INVU y SALUD (Artículo 6 de la Ley No.7744). Es el órgano técnico especializado en el desarrollo de proyectos de marinas y atracaderos turísticos.
+Como parte de sus atribuciones, ejecuta las actividades necesarias para el control, fiscalización y vigilancia en la concesión, construcción y operación de este tipo de proyectos en el país. Tiene como una de sus principales funciones asesorar técnicamente a las Municipalidades sobre este tema.

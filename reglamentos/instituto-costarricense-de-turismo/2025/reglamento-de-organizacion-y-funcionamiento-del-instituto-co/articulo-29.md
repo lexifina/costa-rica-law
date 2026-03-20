@@ -1,0 +1,3 @@
+Artículo 29.- Departamento de Planeamiento Turístico.
+Ejecuta actividades que se relacionan con la elaboración, actualización y seguimiento del Plan Nacional de Desarrollo turístico y demás planes y políticas.
+Tiene por objetivo ejecutar actividades relacionadas con la elaboración y seguimiento del Plan Nacional de Desarrollo Turístico y demás planes y políticas que integran este, se emplea software especializados para desempeñar sus labores, tales como Sistemas de Información Geográfica para la realización de las labores de planeamiento a nivel nacional, tanto en zonas costeras como en el interior del país.

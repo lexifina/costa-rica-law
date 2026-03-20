@@ -1,0 +1,18 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+CONSIDERANDO
+I. Que, los artículos 188 y 189 de la Constitución Política de la República de Costa Rica, establece la independencia administrativa de las Instituciones Autónomas.
+II. Que, Ley General de la Administración Pública N.º 6227, publicada en La Gaceta N.º 102 del 30 de mayo de 1978, establece las prerrogativas de dirección administrativa de la Administración Pública.
+III. Que, la Ley Orgánica del Instituto Costarricense de Turismo (en adelante ICT), número 1917, en su artículo 26, establece que, la Junta Directiva del Instituto Costarricense de Turismo tendrá como atribuciones dictar, promulgar, reformar e interpretar los reglamentos internos necesarios para el mejor desarrollo de los fines del Instituto.
+IV. Que mediante Decreto No. 43864-PLAN se emitió el Reglamento para el trámite y resolución de reorganizaciones administrativas, publicado en La Gaceta No 21 del 6 de febrero de 2023, que establece el procedimiento para el trámite, análisis y resolución de las propuestas de reorganización administrativa que presentan los entes y órganos públicos, ante el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).
+V. Que en el artículo 12 del Decreto No. 43864-PLAN se establece la oficialización de la estructura organizacional en los siguientes términos: "La entidad proponente deberá tramitar la publicación de un Decreto Ejecutivo o Reglamento de Organización, en el cual se oficialice la estructura aprobada por MIDEPLAN".
+VI. Que el 20 de mayo de 2024, mediante acuerdo tomado por la Junta Directiva del Instituto Costarricense de Turismo en el Apartado 3, Inciso l de la Sesión Ordinaria Presencial No. 6289 (comunicado SJD-108-2024), se aprobó la reorganización parcial, según el estudio técnico dado en el oficio G-0952-2024 denominada "Fortalecimiento Institucional", remitido por la Gerencia General el 15 de mayo de 2024 y el criterio técnico de la Unidad de Planificación Institucional, dado mediante oficio UPI-099-2024 de fecha 16 e mayo 2024, e instruyó a la Administración para continuar los trámites y gestionar ante los entes externos para aprobar el aval y la reorganización administrativa.
+VII. Que el 03 de junio de 2024, mediante oficio MEIC-DM-193-2024 y estudio técnico MEIC-SSPDR, el Ministerio de Economía Industria y Comercio, otorgó el respectivo aval a la reorganización parcial en todo su alcance, en atención al comunicado de acuerdo SJD-108-2024.
+VIII. Que el 23 de julio de 2024, mediante resolución MIDEPLAN-DM-OF-0785- 2024, el Ministerio de Planificación aprobó la reorganización parcial del ICT, remitida mediante oficio DM-317-2024 del 06 de junio de 2024.
+IX. Que de conformidad con los considerandos que preceden y de acuerdo con el mérito de los autos, lo procedente es dictar el "Reglamento de Organización y Funcionamiento del Instituto Costarricense de Turismo", tal y como se dispone.
+POR TANTO
+LA JUNTA DIRECTIVA DEL INSTITUTO COSTARRICENSE DE TURISMO
+ACUERDA:
+Aprobar el Reglamento de Organización y Funcionamiento del Instituto Costarricense de Turismo, cuyo texto se transcribe a continuación:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+Artículo 1.- Contenido del reglamento.
+El presente reglamento establece la estructura, organización, relaciones de jerarquía y de coordinación interna del Instituto Costarricense de Turismo, para el cumplimiento de las funciones que le encomienda el ordenamiento jurídico. Para efectos de este reglamento, cuando se hace alusión al cargo, puesto o condición de una persona, debe entenderse que se hace sin distinción o discriminación de género.

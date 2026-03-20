@@ -1,0 +1,5 @@
+Sección III
+De los órganos desconcentrados:
+Artículo 39.- Proyecto Turístico Golfo de Papagayo (PTGP).
+El Proyecto Turístico Golfo de Papagayo comprende un área aproximada de 1.658 hectáreas, además de la zona pública, inscrita a nombre del Estado Costarricense bajo la administración del Instituto Costarricense de Turismo (en adelante, ICT), con el fin primordial de atraer el turismo nacional e internacional, aprovechando al máximo los recursos turísticos de esa región.
+Por lo tanto, el ICT, mediante la Oficina Ejecutora, se encarga de la ejecución y desarrollo del proyecto, para lo cual tiene la facultad exclusiva de dirigir, coordinar, administrar y controlar el desarrollo del citado proyecto. Se destacan, además, dos grandes actividades que esta responsabilidad conlleva: una consiste en la concesión de los terrenos adquiridos para el desarrollo de proyectos turísticos, y la otra, en la construcción de obras de infraestructura pública que permiten que dicho desarrollo se consolide. El Consejo Director del PTGP constituye un órgano adscrito a la Junta Directiva del ICT.
