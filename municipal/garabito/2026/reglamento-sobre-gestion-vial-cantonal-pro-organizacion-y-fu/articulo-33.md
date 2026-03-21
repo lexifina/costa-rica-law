@@ -1,0 +1,3 @@
+Artículo 34.-De la vigencia y derogación del presente reglamento.
+El presente reglamento entrará en vigencia al día siguiente de su publicación definitiva y deroga cualquier reglamento anterior y cualquier disposición reglamentaria municipal que se le oponga a tal antes de reformas del mismo se debe de contar con la revisión y acuerdo del mismo por la Junta Vial Cantonal de Garabito, para el debido traslado al Concejo Municipal de Garabito.
+Rige a partir de su publicación en el Diario Oficial. Aprobada en Sesión Ordinaria del Concejo Municipal de Garabito N°.105, celebrada el 23 de febrero del 2026. Rige a partir de la publicación en La Gaceta. Jacó 27 de febrero del 2026.

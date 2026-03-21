@@ -1,0 +1,10 @@
+CAPÍTULO 2
+SOBRE SERVICIOS DE INFRAESTRUCTURA Y OBRA PÚBLICA- SIOP
+Artículo 21. De la integración y carácter de la Servicios de Infraestructura y Obra Pública- SIOP
+Se constituirá una Unidad Técnica de Gestión Vial Municipal, la cual fungirá como Secretaría Técnica de la Junta Vial Cantonal. En apego a lo establecido y debido al alcance adecuado del desarrollo de las cantidades de funciones, el Servicios de Infraestructura y Obra Pública- SIOP, debe estar constituida como mínimo por:
+a) Un Ingeniero o Ingeniera Civil, o Ingeniería en construcción, habilitado legalmente para el ejercicio de la profesión, quien fungirá como responsable de la Unidad siendo el encargado, jefe, coordinador o titular de la misma.
+b) Un Promotor o Promotora Social profesional en ciencias sociales, habilitado legalmente para el ejercicio de la profesión.
+c) Un Asistente Técnico con experiencia en la gestión vial cantonal y vías públicas.
+d) E) personal administrativo y operativo que se requiera para su efectiva operatividad y funcionamiento.
+Los puestos señalados anteriormente serán nombrados por cargos fijos, a tiempo completo, dependiendo de su condición profesional, preferentemente compensados bajo el régimen de dedicación exclusiva.
+Al constituir este servicio su operación y financiamiento se incluirá dentro del Plan Operativo Anual, en carácter de servicio de gestión vial, como parte de las actividades a ser financiadas con los recursos del presente reglamento. Dentro de las eventuales actividades operativas a financiar se incluyen: adquisición, mejora y reparación de edificaciones, equipo y maquinaria, equipo y materiales de oficina, consultorías, salarios, gastos de viaje y transporte, siempre que se ajusten a los principios de razonabilidad y proporcionalidad. Corresponderá a la administración garantizar que los recursos señalados en el párrafo anterior. La aplicación o el uso diferente de los recursos, generará las responsabilidades civiles, administrativas y penales que correspondan.

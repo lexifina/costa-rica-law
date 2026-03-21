@@ -1,0 +1,2 @@
+Artículo 30.- Asesoría capacitación y coordinación interinstitucional
+El Servicios de Infraestructura y Obra Pública (SIOP) solicitará asesoría técnica, legal, ambiental o cualquier otro que amerite para su buen funcionamiento, ante las instancias competentes en la materia e igualmente coordinará con las instituciones que corresponda las capacitaciones para su personal tanto técnico (incluyendo maquinaria, como administrativo) para lo cual se presupuestaran los recursos necesarios anualmente.
