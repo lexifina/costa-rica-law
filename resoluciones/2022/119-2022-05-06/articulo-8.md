@@ -1,1 +1,0 @@
-Artículo 8º-Vigencia. El uso del distintivo deberá circunscribirse al plazo de vigencia de la incorporación del reconocimiento al SIREA, que es de 5 años, tal como lo establece el artículo 17 del Decreto Ejecutivo N° 41594-MINAE.

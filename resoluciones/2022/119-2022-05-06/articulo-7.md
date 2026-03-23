@@ -1,1 +1,0 @@
-Artículo 7º-Prohibición de manipulación del distintivo. No está permitido introducirle variantes al distintivo del SIREA, como incluir efectos visuales, alterar el fondo, tamaño, cambiar los colores ni su tipografía. Deberá regirse por lo indicado en el libro de marca.

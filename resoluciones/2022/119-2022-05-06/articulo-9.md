@@ -1,1 +1,0 @@
-Artículo 9º-Registro de derechos de uso vigentes. La CTC-SIREA mantendrá actualizado un registro de los reconocimientos a los que se les otorgó el derecho de uso del distintivo SIREA, el cual estará disponible en el sitio http://www.digeca.go.cr
