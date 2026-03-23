@@ -1,3 +1,4 @@
 CAPÍTULO IV
 De la Ejecución de la Auditoría
-Artículo 41.—Ejecución formal. La Unidad de Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas de ejecución de la auditoría contenidas en el “Manual de Normas Generales de Auditoría para el Sector Público”(M-2-2006-CO-DFOE), las del Colegio de Contadores Públicos de Costa Rica, en lo que sea aplicable, las normas que al respecto contiene el “Manual de normas generales para el ejercicio de la Auditoría Interna en el Sector Público”(M-1-2004-CO-DD1) y en cualesquiera otras disposiciones que dicte la Contraloría General de la República de Costa Rica.
+Artículo 41-Potestades. El Auditor Interno y los demás funcionarios de la auditoría interna actuará conforme a las potestades que le establecen la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República en lo que aplique, y las demás potestades que contemple la normativa legal, reglamentaria y técnica aplicable.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

@@ -1,0 +1,3 @@
+Artículo 83-Productos resultantes. Entre los documentos que pueden generarse producto de una investigación de presuntos hechos irregulares, están los siguientes: Relaciones de Hechos, Denuncias Penales, Informe de Control Interno, Advertencias, a los cuales la Auditoria Interna deberá darles seguimiento pertinente. El informe final de Relaciones de Hechos y Denuncias Penales deberá ser firmado por los funcionarios responsables de su emisión, con indicación del nombre y el cargo que ocupan.
+Capítulo IX Disposiciones finales.
+(Así adicionado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

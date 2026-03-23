@@ -1,1 +1,2 @@
-Artículo 79.—Derogatoria. Este reglamento deroga el “Reglamento de Organización y Funciones de la Unidad de Auditoría Interna de la Municipalidad de San Carlos”, aprobado en acuerdo Nº 16, acta Nº 77 del 12 de Agosto de 1996 y cualquier otra disposición legal que se le oponga.
+Artículo 79-Seguimiento de denuncias trasladadas. El titular de la Auditoría Interna determinará los casos en que dará seguimiento a las denuncias que se hayan trasladado a otras instancias, para lo que concierne pertinente.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

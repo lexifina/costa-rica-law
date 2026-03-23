@@ -1,6 +1,2 @@
-Artículo 40.—Prohibiciones. El auditor interno, y los demás funcionarios de la auditoria interna, tendrán las siguientes prohibiciones:
-a) Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
-b) Formar parte de un órgano director de un procedimiento administrativo.
-c) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-d) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
-e) Revelar información sobre las auditorias o los estudios especiales de auditoria que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a su fiscalización.
+Artículo 40-Deberes. La Unidad de Auditoría Interna actuará conforme a los deberes que se establecen en la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República en lo que aplique, y los demás deberes que contemple la normativa legal, reglamentaria y técnica aplicable.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

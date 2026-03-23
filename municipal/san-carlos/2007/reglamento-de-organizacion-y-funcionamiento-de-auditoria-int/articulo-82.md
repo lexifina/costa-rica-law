@@ -1,0 +1,2 @@
+Artículo 82-Programas de Trabajo de Planificación y Ejecución. Se deberá elaborar los respectivos planes de conformidad con lo normado internamente por la auditoría Interna sobre el contenido de los referidos programas.
+(Así adicionado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

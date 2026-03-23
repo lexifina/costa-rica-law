@@ -1,1 +1,2 @@
-Artículo 80.—Disposiciones transitorias.
+Artículo 80-Lineamientos para la atención de denuncias. El titular de la Auditoría Interna establecerá los lineamientos para la atención de denuncias ante la Auditoría Interna sobre presuntos hechos irregulares, considerando la normativa que formule la Contraloría General de la República.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

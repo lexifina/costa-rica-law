@@ -1,5 +1,5 @@
 CAPÍTULO V
 De los informes y la comunicación de resultados
-Artículo 46.—Informes. Los informes de auditoria interna versarán sobre diversos asuntos de su competencia, así como sobre asuntos de que pueden derivarse posibles responsabilidades para funcionarios, exfuncionarios de la institución y terceros.
-Cuando de un estudio se deriven recomendaciones sobre asuntos de control interno y sobre responsabilidades, la auditoria interna deberá comunicarlas en informes independientes para cada materia.
-Los resultados o comentarios, las conclusiones y recomendaciones de los estudios realizados por la auditoria, deberán comunicarse oficialmente, mediante informes al jerarca o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones.
+Artículo 46-Servicios de Auditoría. Los servicios de auditoría comprenden los distintos tipos de auditoría: Carácter Especial, Financiera, Operativa, Estudios Especiales (Presuntos Hechos Irregulares) y Estudio Técnico.
+El trabajo derivado de los servicios de auditoría se comunicará mediante informes que serán de tres tipos: de control interno (incluidos los de seguimiento), de responsabilidades (denominados Relaciones de Hechos-Denuncia o Insumo Penal) y Estudio Técnico.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

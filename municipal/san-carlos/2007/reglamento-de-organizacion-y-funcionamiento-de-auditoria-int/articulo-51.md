@@ -1,1 +1,2 @@
-Artículo 51.—Relaciones de hechos. Los informes de Relaciones de Hechos se ajustarán en su contenido a las disposiciones que promulgue la Contraloría General de la República.
+Artículo 51-Plazos de informes. Los informes de control interno finales, están sujetos al trámite y a los plazos improrrogables previstos en la LGCI, así como los de responsabilidades (Relaciones de Hechos), excepto aquellos que la Contraloría General de la República determine, en las directrices que promulgue sobre este tipo de informes, que no están sujetos al trámite de conflicto por su naturaleza especial.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)

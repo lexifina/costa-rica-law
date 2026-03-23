@@ -1,2 +1,2 @@
-Artículo 81.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Ciudad Quesada, 29 de junio del 2007.
+Artículo 81-Expediente de la investigación. Para efectos de una investigación la Auditoría Interna debe elaborar el expediente respectivo, debidamente foliado, ordenado y organizado, conforme el procedimiento respectivo y elaborar el informe respectivo.
+(Así reformado en sesión ordinaria celebrada el lunes 23 de marzo del 2026, en el salón de sesiones de la Municipalidad de San Carlos, mediante Artículo N° Xll, Acuerdo N° 55, Acta N° 18)
