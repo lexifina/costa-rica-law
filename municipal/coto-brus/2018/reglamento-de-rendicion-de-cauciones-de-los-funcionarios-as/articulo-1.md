@@ -10,7 +10,8 @@ II.-Que el Objeto de las Cauciones es proteger y conservar el patrimonio institu
 CAPÍTULO I
 1- El presente Reglamento tiene por objeto regular lo atinente a las garantías que deben rendir algunos funcionarios de la Municipalidad de Coto Brus.
 2- Deberán caucionar todos aquellos funcionarios que recauden, custodien o administren fondos o valores públicos. Asimismo, deberán rendir cauciona todos aquellos funcionarios nombrados para suplir temporalmente a servidores municipales que manejen fondos públicos, siempre que el nombramiento para cubrir dichos puestos, sea mayor a un mes calendario.
-3- Funcionarios que deben rendir garantía: Deben rendir caución para el ejercicio de sus cargos el Alcalde, Vicealcalde primero, Gestor Financiero Administrativo, Tesorero Municipal, Cajeros Facturadores, Administrador de la Unidad Técnica.
+3-Funcionarios que deben rendir garantía: Deben rendir caución para el ejercicio de sus cargos el Alcalde, Vicealcalde primero, Gestor Financiero Administrativo, Tesorero Municipal, Cajeros Facturadores, Administrador de la Unidad Técnica y Proveedora Municipal.
+(Así reformado el inciso anterior en sesión N° 099 del 23 de marzo de 2026)
 4- Los funcionarios municipales que en virtud de este Reglamento deben rendir cauciones, estarán obligados a:
 a- Si es un nombramiento mayor a un mes calendario, tendrá 3 días hábiles para rendir la garantía.
 b- Los ostenten cargos de dicha índole fijos, tendrán 5 días hábiles para rendir la póliza de fidelidad o caución, tiempo que comenzará a correr un día después la notificación donde se le comunique que debe rendirla, dado el puesto que ocupa.

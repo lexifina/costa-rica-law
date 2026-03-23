@@ -14,3 +14,4 @@ Reglamento de rendición de cauciones de los funcionarios (as) municipales de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-28 | la propia norma |
+| 2 | 2026-03-23 | Reglamento municipal 99 (2026-03-23) |
