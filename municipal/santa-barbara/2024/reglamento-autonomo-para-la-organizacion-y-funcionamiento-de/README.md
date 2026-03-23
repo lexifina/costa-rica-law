@@ -15,3 +15,4 @@ Reglamento autónomo para la organización y funcionamiento del Comité Cantonal
 | --- | --- | --- |
 | 1 | 2024-05-24 | la propia norma |
 | 2 | 2025-07-21 | Reglamento municipal 64 (2025-07-21) |
+| 3 | 2026-03-23 | Reglamento municipal 99 (2026-03-23) |
