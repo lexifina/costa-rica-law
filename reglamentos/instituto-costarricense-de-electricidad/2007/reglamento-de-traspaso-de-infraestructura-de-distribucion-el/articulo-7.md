@@ -1,1 +1,0 @@
-Artículo 7º—El artículo anterior se aplicará sin perjuicio de los servicios de construcción e instalación de extensiones de redes de telecomunicaciones brindados por el ICE, aplicables para distancias superiores a 500 metros de la caja de dispersión más cercana a la edificación del usuario.

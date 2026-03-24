@@ -1,1 +1,0 @@
-Artículo 4º—Procedimiento y formalización. El traspaso por disposición legal de instalaciones y redes de telecomunicaciones y de distribución eléctrica en urbanizaciones se realizará mediante la suscripción del acta de recibo conforme (F01-41.00.001.2006- Acta de recibo) que emitirá el Director Regional o el Jefe de CAIC, según corresponda.
