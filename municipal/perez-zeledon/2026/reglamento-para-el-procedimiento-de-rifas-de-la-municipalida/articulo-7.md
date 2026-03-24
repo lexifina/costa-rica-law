@@ -1,0 +1,1 @@
+Artículo 7º-Lugar y fecha. El sorteo se realizará en el mes de abril de cada año, el cual se realizaría en el Palacio Municipal, dicho acto será presidido por el Alcalde Municipal y algunos otros funcionarios municipales que el Alcalde designe, también podrán estar presentes miembros del Concejo Municipal y prensa en general.

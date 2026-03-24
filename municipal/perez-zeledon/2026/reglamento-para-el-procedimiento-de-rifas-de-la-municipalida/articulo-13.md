@@ -1,0 +1,3 @@
+Artículo 13.-De los ganadores. El o los recibos ganadores deberán ser verificados en el Sistema Integral de Cobros Municipal con la finalidad de determinar la existencia del número de recibo y el cumplimiento de los requisitos de contribuyente puntual.
+Luego de haber culminado el sorteo, el o los contribuyentes ganadores serán publicados en el sitio web de la Municipalidad Pérez Zeledón, www.perezzeledon.go.cr, así como en sus redes sociales.
+El contribuyente que resulte ganador deberá presentar documento de Identidad idóneo como, cédula, residencia o pasaporte y para las Personas Jurídicas el poder vigente debidamente inscrito en el Registro Nacional.

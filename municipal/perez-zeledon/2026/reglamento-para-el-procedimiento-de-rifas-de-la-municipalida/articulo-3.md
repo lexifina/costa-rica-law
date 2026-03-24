@@ -1,0 +1,2 @@
+Artículo 3º-Participantes. Para efectos del sorteo, se tendrá en cuenta la siguiente definición:
+Contribuyente participante: Se considera contribuyente participante al sujeto pasivo de todos los tributos municipales, administrados por la Municipalidad de Pérez Zeledón, que a fecha del 01° abril de cada año haya cancelado todas sus obligaciones tributarias municipales del año en curso y anteriores, para lo cual se verificará en los registros del sistema de cobro municipal.

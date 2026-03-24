@@ -1,0 +1,1 @@
+Artículo 2º-Competencia. Le corresponde al Proceso de Hacienda Municipal, la responsabilidad, la ejecución y los procedimientos relaciones con los sorteos, asimismo, definirá los premios que correspondan.

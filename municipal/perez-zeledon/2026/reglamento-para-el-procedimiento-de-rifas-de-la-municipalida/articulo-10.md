@@ -1,0 +1,1 @@
+Artículo 10.-Acción electrónica. La Administración Municipal solicitará un listado de todos los contribuyentes que hayan cancelado los tributos municipales en su totalidad, incluyendo el periodo vigente, antes del 01 de abril de cada año, luego el número de recibo de cancelación se convertirá en la acción electrónica para el sorteo.

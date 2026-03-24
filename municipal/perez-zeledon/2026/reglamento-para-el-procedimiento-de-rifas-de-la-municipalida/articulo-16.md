@@ -1,0 +1,1 @@
+Artículo 16.-Del Comité de Solución de Conflictos y Reclamos. El Comité de Solución de Conflictos y Reclamos está encargado de solucionar cualquier situación no prevista dentro del reglamento. Estará conformado por la coordinadora de Hacienda Municipal, coordinador de Asesoría Jurídica, coordinador de Gestión Tributaria y un representante de la Alcaldía Municipal.

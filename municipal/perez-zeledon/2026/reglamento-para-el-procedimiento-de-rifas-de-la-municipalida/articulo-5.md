@@ -1,0 +1,1 @@
+Artículo 5º-Condiciones para participar en el sorteo. Están facultados a participar todos los contribuyentes que hayan cumplido con el pago de los tributos municipales, incluido todo el año en curso, conforme se especifica en el artículo 07 del presente reglamento.

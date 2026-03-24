@@ -1,0 +1,1 @@
+Artículo 9º-Participantes del sorteo. Los participantes del sorteo son los que se contemplan en la publicación del padrón de contribuyentes en el portal institucional de la corporación municipal, esto incluye todos los contribuyentes que realizaron los pagos de sus tributos municipales, en su totalidad incluyendo el periodo vigente de cada año.

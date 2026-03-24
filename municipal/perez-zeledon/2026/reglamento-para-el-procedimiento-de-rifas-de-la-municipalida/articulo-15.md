@@ -1,0 +1,2 @@
+Artículo 15.-Aplicación del reglamento. La participación en el presente sorteo es gratuita y automática para todos los contribuyentes que cumplan con los requisitos exigidos respecto del cumplimiento de las obligaciones tributarias del año en curso y anteriores, asimismo se debe enfatizar que solo los contribuyentes sin deudas son los que participan en el presente sorteo.
+Todos los contribuyentes que estén aptos al sorteo se someten y aceptan el cumplimiento del presente reglamento.
