@@ -17,3 +17,4 @@ Reglamento para potenciar el desarrollo del talento humano en las empresas Benef
 | 2 | 2018-03-07 | Decreto Ejecutivo 41061 (2018-03-07) |
 | 3 | 2020-08-24 | Decreto Ejecutivo 42634 (2020-08-24) |
 | 4 | 2024-07-23 | Decreto Ejecutivo 44703 (2024-07-23) |
+| 5 | 2026-03-24 | Decreto Ejecutivo 45750 (2026-03-24) |

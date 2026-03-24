@@ -1,5 +1,6 @@
 Artículo 2°-Definiciones. Para los efectos del presente Reglamento, se entiende por:
-a) Beneficiario: Empresa que pertenece al Régimen de Zonas Francas.
+a) Beneficiario: empresas que pertenecen al Régimen de Zonas Francas o empresas vinculadas con el Sector Comercio Exterior que postulen a sus empleados o a aspirantes a empleados.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 45750 del 24 de marzo de 2026)
 b) Capacitación: Es el conjunto de acciones y productos técnicos, tecnológicos, metodológicos y curriculares derivados de la identificación de necesidades y requerimientos de las empresas beneficiarias del Régimen de Zonas Francas, cuyos tipos, serán al menos los siguientes:
 i. Asesoría Técnica: Acción de capacitación dirigida a personas que trabajan en una unidad productiva que requieren adquirir determinadas competencias técnicas específicas para mejorar su desempeño laboral.
 ii. Ayuda económica: Es un monto de dinero girado por el INA para cubrir las necesidades de la población participante de escasos recursos económicos.
@@ -12,7 +13,13 @@ c) COMEX: El Ministerio de Comercio Exterior.
 d) INA: El Instituto Nacional de Aprendizaje.
 e) Formación: Acción de impartir sistemáticamente un conjunto organizado de contenidos teóricos, prácticos y axiológicos a las personas que no poseen conocimientos previos de un ámbito de empleo, con el fin de calificarlos para su ejercicio profesional.
 f) Entrenamiento: Todo conjunto de acciones formativas para la especialización, certificación de conocimientos, competencias y habilidades; así como las subsecuentes readecuaciones o actualizaciones que requiera una persona para su desempeño laboral.
+Entre tales acciones se contemplan las relacionadas con el desarrollo de entrenamientos prácticos o pasantías dirigidas a generar conocimientos, competencias y habilidades a personas que aspiren a obtener empleo en empresas del Régimen de Zonas Francas o en empresas vinculadas con el Sector Comercio Exterior. Los programas de entrenamiento que se desarrollen podrán contar o no con un subsidio económico.
+(Así reformado el inciso f) anterior por el artículo 3° del decreto ejecutivo N° 45750 del 24 de marzo de 2026)
 g) Régimen: El Régimen de Zonas Francas creado en la Ley del Régimen de Zonas Francas, Ley N° 7210 del 23 de noviembre de 1990.
 h) PROCOMER: La Promotora del Comercio Exterior de Costa Rica.
 i) AZOFRAS: La Asociación de Empresas de Zonas Francas de Costa Rica.
+j) Aspirante a empleado: persona que desea o requiere una formación, capacitación o entrenamiento con el objetivo de adquirir conocimientos, competencias o habilidades que faciliten su inserción en el mercado laboral de las empresas del Régimen de Zonas Francas y de las empresas vinculadas con el Sector Comercio Exterior.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 45750 del 24 de marzo de 2026)
+k) Personas o empresas vinculadas al Sector Comercio Exterior: comprende las empresas del Régimen de Zonas Francas; las empresas exportadoras o con potencial exportador; las empresas PYMES exportadoras o con potencial exportador; las empresas que se encadenan productivamente con otras empresas exportadoras (incluidas las de zona franca), o con potencial exportador; las empresas que operan bajo el Régimen de Perfeccionamiento Activo; y las empresas que ejecutan o gestionan la inversión extranjera directa (IED).
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 45750 del 24 de marzo de 2026)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 44703 del 23 de julio de 2024)
