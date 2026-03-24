@@ -1,3 +1,0 @@
-Artículo 19º - De los informes de ejecución.
-Las organizaciones sociales subvencionadas, las Asociaciones o Fundaciones beneficiarias de una transferencia deberán rendir en tiempo y forma los informes de ejecución establecidos en este reglamento y en el respectivo convenio.
-Será responsabilidad del Departamento de Transferencias del MTSS, velar por que los mismos sean debidamente rendidos o en su caso aclarados o subsanados de cualquier inconsistencia, aspectos sobre los cuales deberá ese Departamento informar a la Dirección Financiera y a la Comisión de Transferencias para lo de su cargo. Asimismo, elaborará un informe semestral sobre los informes de ejecución presentados, dirigido al (a) Ministro (a) con copia a la Comisión de Transferencias.

@@ -1,5 +1,0 @@
-SECCIÓN III.
-DE LAS SANCIONES.
-Artículo 36º - Sanciones en General. Aparte de otras sanciones que pueda establecer el ordenamiento jurídico, la desviación del beneficio o de la liberación de obligaciones otorgadas por los componentes de la Hacienda Pública, hacia fines diversos del asignado, aunque éstos sean también de interés público, facultará a la entidad concedente para suspender o revocar la concesión, según la gravedad de la violación cometida.
-También facultará a la Contraloría General de la República para ordenar que se imponga la sanción, conforme al artículo 72 de su Ley Orgánica.
-Cuando la desviación se realice en beneficio de intereses privados, del sujeto agente o de terceros, la concesión deberá ser revocada y el beneficiario quedará obligado a la restitución del valor del beneficio desviado, con los daños y perjuicios respectivos. En este caso, la recuperación del monto del beneficio desviado podrá lograrse, además, en la vía ejecutiva, con base en la resolución certificada de la Contraloría General de la República, a que se refiere el artículo 76 de la Ley Orgánica de la Contraloría General de la República, Ley Nº 7428.

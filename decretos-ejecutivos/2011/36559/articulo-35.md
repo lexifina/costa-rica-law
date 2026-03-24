@@ -1,1 +1,0 @@
-Artículo 35º - De la responsabilidad de los servidores concedentes de los beneficios del MTSS. Los (as) servidores (as) concedentes de los beneficios, a que se refiere éste reglamento, serán responsables por conducta indebida, dolosa o gravemente culposa, en el ejercicio de los controles tendientes a garantizar el cumplimiento del fin asignado al beneficio concedido.

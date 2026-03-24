@@ -1,1 +1,0 @@
-Artículo 42º. – Del Recurso de Reposición. Contra la decisión final adoptada en un procedimiento ordinario cabrá recurso de reposición a interponer dentro del plazo de tres días hábiles a partir de su comunicación, ante el / la Ministro (a) de Trabajo y Seguridad Social, a quien corresponderá su resolución.

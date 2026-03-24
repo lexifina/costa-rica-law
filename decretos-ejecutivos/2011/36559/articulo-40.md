@@ -1,1 +1,0 @@
-Artículo 40º - Otras Investigaciones previas. La Administración concedente, en caso de ser necesario, y previo a la apertura del procedimiento administrativo disciplinario, podrá ordenar otras investigaciones o diligencias sumarias a efecto de contar con mayores elementos para la adopción de la decisión final.

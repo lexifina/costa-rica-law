@@ -1,2 +1,0 @@
-Artículo 18º -. De la aprobación del presupuesto por la Contraloría General de la República.
-En los casos en que por razones del monto de la transferencia que se le otorgue al sujeto privado, se encuentre en la obligación de presentar y someter a aprobación el presupuesto ante la Contraloría General de la República, éste deberá presentar al Departamento de Transferencias de la Dirección Financiera una fotocopia legible del oficio de aprobación del Presupuesto de la entidad por parte de la Contraloría General de la República.

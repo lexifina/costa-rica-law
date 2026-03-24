@@ -1,1 +1,0 @@
-Artículo 30º - De la Prohibición de Influencias. A las personas cubiertas por el régimen de prohibiciones se les prohíbe intervenir, directa o indirectamente, ante los (as) funcionarios (as) responsables de las etapas del procedimiento de transferencias, en la asignación, giro, ejecución y fiscalización del convenio, a favor propio o de terceros.
