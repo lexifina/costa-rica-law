@@ -1,1 +1,0 @@
-Artículo 13.-Es deber del usuario velar por que el Antivirus que posee su equipo de cómputo este actualizado. En este sentido, debe solicitar su revisión al departamento de Tecnologías de Información, en caso de que exista sospecha de que el mismo esté desactualizado o no esté funcionando.

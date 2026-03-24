@@ -1,2 +1,0 @@
-Artículo 9º-Todos los equipos ya sean adquiridos por el presupuesto de la institución o donados a la misma deben ingresar al departamento de Tecnologías de Información, inventariados y registrados dentro del inventario de equipos, para su respectiva revisión y configuración, de previo a su asignación y utilización.
-Asimismo, toda adquisición relacionada a software o equipo deberá contar con el visto bueno del departamento de Tecnologías de Información.

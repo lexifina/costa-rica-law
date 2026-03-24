@@ -1,1 +1,0 @@
-Artículo 20.-Los accesos a las redes inalámbricas de la Municipalidad serán restringidos, por el departamento de Tecnologías de Información, para obtener acceso deberá ser justificado por algún medio oficial de La Municipalidad, tanto personal interno como externo.

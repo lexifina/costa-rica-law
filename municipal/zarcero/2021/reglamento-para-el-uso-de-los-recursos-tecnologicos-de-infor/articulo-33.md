@@ -1,2 +1,0 @@
-Artículo 33.-El daño, destrucción o pérdida intencional de la información ya sea almacenada en el servidor de la red o en el disco duro de cualquier equipo de la Institución será notificada al Alcalde Municipal a fin de que se sienten las responsabilidades del caso.
-Asimismo, la Institución podrá acudir a la instancia judicial que corresponda para denunciar la intrusión o destrucción de información institucional por parte de funcionarios o terceras personas.
