@@ -1,0 +1,1 @@
+Artículo 9º-Todos los equipos y dispositivos tecnológicos, ya sean adquiridos por presupuesto institucional o donados a la Municipalidad, deben ser gestionados por el Departamento de Tecnologías de Información y Comunicación para su revisión técnica, configuración inicial y aplicación de las políticas de seguridad, previo a su asignación y puesta en operación.

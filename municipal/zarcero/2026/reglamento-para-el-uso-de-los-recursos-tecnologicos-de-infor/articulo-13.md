@@ -1,0 +1,1 @@
+Artículo 13.-Es deber del usuario velar por que el software antivirus de su equipo esté activo y actualizado. En este sentido, debe reportar de inmediato al Departamento de Tecnologías de Información y Comunicación cualquier sospecha de desactualización, mal funcionamiento o detección de amenazas.

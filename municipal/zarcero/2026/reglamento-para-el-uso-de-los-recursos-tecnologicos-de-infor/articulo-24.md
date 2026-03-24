@@ -1,0 +1,1 @@
+Artículo 24.-De ser necesario, el Departamento de Tecnologías de Información y Comunicación podrá establecer horarios o limitaciones de ancho de banda para el uso de determinados servicios, a fin de garantizar el buen desempeño de la red y los recursos relacionados, y asegurar la continuidad operativa de los servicios prioritarios.

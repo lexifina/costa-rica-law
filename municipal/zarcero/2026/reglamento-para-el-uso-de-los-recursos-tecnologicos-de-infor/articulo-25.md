@@ -1,0 +1,1 @@
+Artículo 25.-El Departamento de Tecnologías de Información y Comunicación implementará herramientas de monitoreo y control para detectar, analizar y bloquear accesos no permitidos o actividades que pongan en riesgo la seguridad de los recursos informáticos, comprometan la información institucional o atenten contra su desempeño y las políticas de uso establecidas.

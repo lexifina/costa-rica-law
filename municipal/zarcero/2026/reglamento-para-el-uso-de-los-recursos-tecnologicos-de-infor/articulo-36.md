@@ -1,0 +1,1 @@
+Artículo 36.-El Departamento de Tecnologías de Información y Comunicación será el ente técnico contralor y supervisor de la administración y el uso de los recursos informáticos y de comunicación en la Municipalidad de Zarcero, y brindará el soporte técnico necesario para la aplicación de este reglamento.

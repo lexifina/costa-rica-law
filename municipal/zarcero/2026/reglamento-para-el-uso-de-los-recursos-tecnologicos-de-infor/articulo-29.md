@@ -1,0 +1,1 @@
+Artículo 29.-Una vez establecidos y divulgados, los procedimientos específicos definidos por el DTIC serán de acatamiento obligatorio para todos los usuarios de las tecnologías de información y comunicación de la Municipalidad de Zarcero.

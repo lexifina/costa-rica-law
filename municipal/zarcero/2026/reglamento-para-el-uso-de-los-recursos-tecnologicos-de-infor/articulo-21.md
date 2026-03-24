@@ -1,0 +1,1 @@
+Artículo 21.-El uso de Internet es de carácter laboral. Se prohíbe mantener sesiones de internet abiertas de forma continua si no se están utilizando activamente para fines institucionales, y su uso para asuntos personales queda estrictamente prohibido.

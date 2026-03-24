@@ -1,0 +1,2 @@
+Artículo 17.-El usuario podrá almacenar en los servidores de red únicamente información institucional, aplicaciones institucionales y archivos compartidos esenciales para las labores de la Municipalidad. Los archivos de carácter personal o no institucionales no deben almacenarse en la red ni en los equipos municipales.
+El Departamento de Tecnologías de Información y Comunicación realizará copias de seguridad (respaldos) periódicas y automatizadas de la información almacenada en los servidores institucionales, de acuerdo con las políticas de respaldo y recuperación de datos.

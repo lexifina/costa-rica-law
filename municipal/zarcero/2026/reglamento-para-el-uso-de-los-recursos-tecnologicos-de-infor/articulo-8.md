@@ -1,0 +1,1 @@
+Artículo 8º-Todos los equipos de cómputo propiedad de la Municipalidad de Zarcero deben ser inventariados por el departamento correspondiente. El Departamento de Tecnologías de Información y Comunicación no prestará servicios de soporte o mantenimiento a equipos que no estén debidamente inventariados e identificados por la Institución.

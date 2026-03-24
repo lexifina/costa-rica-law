@@ -1,0 +1,16 @@
+Artículo 6º-Prohibiciones generales. Queda absolutamente prohibido al usuario:
+a) Emplear los recursos tecnológicos asignados para actividades extralaborales y prohibida la reproducción, descarga, almacenamiento o difusión de cualquier tipo de material protegido por la Ley de Derechos de Autor sin la debida licencia o autorización, o para fines no institucionales.
+b) Abrir el equipo de cómputo para su revisión, reparación o instalar aplicaciones en el mismo, asimismo variar la configuración inicial provista para el equipo o realizar modificaciones físicas o lógicas no autorizadas.
+c) Los equipos de cómputo no podrán ser desmantelados, cambiados, abiertos ni reparados por los usuarios, y sus componentes (entiéndase "mouse", disco duro, teclado, memoria, fuente de poder, tarjeta madre entre otros) no podrán ser removidos por personal no autorizado por el departamento de Tecnologías de Información y Comunicación.
+d) Utilizar únicamente dispositivos de almacenamiento externo que sean de procedencia conocida y que hayan sido previamente verificados mediante el sistema antivirus institucional o autorizados por el DTIC. Se prohíbe la conexión de dispositivos personales no autorizados que puedan comprometer la seguridad o integridad de la red.
+e) Ingerir alimentos o bebidas en las áreas donde se encuentran ubicados los equipos de cómputo.
+f) Utilizar el equipo de cómputo para generar mensajes anónimos obscenos u ofensivos, así como para divulgar material pornográfico o que ofenda la dignidad humana, contenido ofensivo, discriminatorio, ilegal o que atente contra la dignidad humana o las políticas de la Institución.
+g) Trasladar los equipos de cómputo fuera de las otras oficinas municipales, salvo que por razones de trabajo así se requiera y siempre bajo la aprobación y registro del Departamento de Tecnologías de Información y Comunicación.
+h) Instalar software no autorizado: Instalar cualquier tipo de software, aplicación o extensión sin la previa autorización del Departamento de Tecnologías de Información y Comunicación.
+i) Deshabilitar medidas de seguridad: Deshabilitar, modificar o eludir las medidas de seguridad implementadas por el DTIC (antivirus, firewall, actualizaciones de sistema, etc.).
+j) Acceso no autorizado: Intentar acceder a sistemas, redes o información para la cual no se tienen permisos explícitos.
+k) Ingeniería social: Participar o colaborar en intentos de ingeniería social (ej. responder a correos de phishing, divulgar información sensible bajo presión).
+l) Conexiones no autorizadas: Conectar dispositivos personales a la red institucional sin la debida autorización (ej. routers personales, extensores Wi-Fi).
+m) Minería de criptomonedas o actividades ilícitas: Utilizar los recursos institucionales para la minería de criptomonedas, actividades de hacking, distribución de malware o cualquier otra actividad ilegal o no ética.
+n) Uso de Inteligencia Artificial (IA) generativa con información sensible: Introducir información confidencial o datos personales de la Municipalidad en herramientas de Inteligencia Artificial generativa públicas (ej. ChatGPT, Bard, Copilot) sin la previa autorización y las salvaguardas establecidas por el DTIC
+o) Todas aquellas que se establezcan en el presente reglamento

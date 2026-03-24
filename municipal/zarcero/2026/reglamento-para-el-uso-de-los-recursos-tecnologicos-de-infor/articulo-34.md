@@ -1,0 +1,1 @@
+Artículo 34.-Toda Jefatura o Dirección es responsable de supervisar y controlar el uso adecuado de los recursos tecnológicos dentro de sus departamentos, e implementar los controles operativos necesarios para garantizar el cumplimiento de este reglamento por parte de su personal a cargo, así como el cuidado de los equipos de cómputo y dispositivos asignados a sus dependencias.

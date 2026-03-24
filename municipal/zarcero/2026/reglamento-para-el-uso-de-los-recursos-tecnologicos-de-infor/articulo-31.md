@@ -1,0 +1,3 @@
+Artículo 31.-La información institucional es un activo valioso y su uso es discrecional para el usuario exclusivamente para fines laborales.
+Queda estrictamente prohibido permitir o propiciar el acceso de personas no autorizadas o ajenas a la Institución a dicha información.
+Cualquier persona externa que requiera acceso a información institucional deberá contar con el permiso expreso de la Alcaldía Municipal o de la Jefatura del Departamento titular de la información, especificando el tipo de información requerida, la justificación y la finalidad de dicho acceso, y siempre bajo los mecanismos de seguridad y registro establecidos por el DTIC.
