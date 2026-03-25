@@ -457,6 +457,10 @@ a. Estar debidamente inscrito como Especialista en Pediatría en el Colegio de M
 b. Estar debidamente inscrito como Subespecialista en Cardiología Pediátrica o Medicina Crítica y Cuidados Intensivos Pediátricos, en el Colegio de Médicos y Cirujanos de Costa Rica.
 c. Aprobación de un (1) año mínimo en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cuidado Crítico Cardiaco Pediátrico, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*)16.20.22 Medicina Extracorpórea Pediátrica
+a. Estar debidamente inscrito como Especialista en Pediatría en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de dos (2) años mínimo en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Medicina Extracorpórea Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así adicionado el inciso 16.20.22) anterior en sesión ordinaria 2026-03-25, celebrada el 25 de marzo de 2026)
 16.21. Subespecialidades Médicas de Psiquiatría
 16.21.1. Medicina del Sueño.
 Requisitos específicos:
