@@ -20,3 +20,4 @@ Equipara con los de la educación formal regular estatal, según los niveles y m
 | 5 | 2021-07-12 | Decreto Ejecutivo 43115 (2021-07-12) |
 | 6 | 2022-09-26 | Decreto Ejecutivo 43890 (2022-09-26) |
 | 7 | 2024-06-05 | Decreto Ejecutivo 44633 (2024-06-05) |
+| 8 | 2026-03-26 | Decreto Ejecutivo 45689 (2026-03-26) |

@@ -13,7 +13,7 @@ Centro Educativo San Miguel Arcángel | San José | Desamparados
 Sistema Educativo San Lorenzo | San José | Curridabat
 Colegio La Asunción | San José | Pérez Zeledón
 Saint Gregory School | Cartago | La Unión
-Colegio la Gran Esperanza internacional | Cartago | La Unión
+(Eliminado por el artículo 1° del decreto ejecutivo N° 45689 del 26 de marzo de 2026) | (Eliminado por el artículo 1° del decreto ejecutivo N° 45689 del 26 de marzo de 2026) | (Eliminado por el artículo 1° del decreto ejecutivo N° 45689 del 26 de marzo de 2026)
 Escuela y Colegio del Valle | San José | Pérez Zeledón
 Colegio John Dewey | San José | Curridabat
 Instituto de Desarrollo de Inteligencia | San José | San José
