@@ -1,0 +1,7 @@
+Artículo 7º—Plan de trabajo de la Contraloría de Servicios. La Contraloría de Servicios presentará, en enero de cada año, un plan anual de trabajo ante su superior inmediato, área que será responsable de su conocimiento y aprobación. Este plan deberá contemplar, al menos, lo siguiente:
+a) Los informes de labores que periódicamente se presentarán a consideración a las dependencias gerenciales.
+b) El cronograma anual de autoevaluaciones de servicios por parte de las unidades administrativas y de negocios del Banco, que permitan medir la calidad de los productos y servicios prestados. Estas actividades se realizarán con los instrumentos de investigación que se consideren adecuados para este fin, y serán sujetas a evaluaciones selectivas para verificar sus resultados.
+c) El cronograma de evaluaciones selectivas de las autoevaluaciones realizadas por las distintas Unidades del Banco.
+d) Los mecanismos de control, seguimiento, resolución y respuesta oportuna a las gestiones presentados por los clientes y usuarios.
+e) Listado de acciones para mantener un registro de control de las gestiones planteadas y admitidas, resumiendo los resultados de su gestión. Este registro se utilizará para la elaboración de los informes necesarios que enviará la Dirección Servicio al Cliente donde se indicará la naturaleza y frecuencia de las inconformidades, así como las acciones acatadas o recomendadas para resolver el caso.
+f) Se deben considerar los lineamientos generales emitidos por el Sistema Nacional de Contralorías de Servicios para establecer el plan de trabajo.

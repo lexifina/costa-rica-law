@@ -1,0 +1,4 @@
+Artículo 2º—Objetivo de la Contraloría de Servicios. La Contraloría de Servicios promoverá los cambios y mejoras en la atención y el servicio al cliente y usuario, de conformidad con sus necesidades y expectativas y con la viabilidad técnica y financiera del Banco, con el propósito de satisfacer oportuna y adecuadamente las demandas de los clientes y usuarios actuales y potenciales de tales servicios. En general, es el área administrativa responsable de velar:
+a) Por qué las áreas donde se generen Inconformidades, consultas y sugerencias, en adelante se definen como gestiones, las atiendan de manera debida y oportuna.
+b) Por la debida y oportuna implementación de las mejoras en la atención y servicio a clientes y usuarios.
+c) La satisfacción ciudadana conforme al artículo 3° de la Ley N° 9158.
