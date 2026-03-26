@@ -1,0 +1,1 @@
+Artículo 12.-Articulación con el Bono Colectivo y el saneamiento. Las actuaciones vinculadas al Bono Colectivo de La Carpio y al Proyecto de saneamiento deberá ser compatibles con el PMLC actualizado y las OUI priorizadas, ajustando las inversiones institucionales conforme a sus competencias.

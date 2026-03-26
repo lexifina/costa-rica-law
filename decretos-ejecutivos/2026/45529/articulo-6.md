@@ -1,0 +1,1 @@
+Artículo 6º-Participación comunitaria. El MIVAH garantizará mecanismos efectivos, transparentes y permanentes de participación comunitaria, reconociendo liderazgos locales y asegurando la inclusión de poblaciones en condición de vulnerabilidad y población migrante.

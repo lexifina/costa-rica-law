@@ -1,0 +1,5 @@
+Artículo 9º-Estrategia general. La intervención se regirá por las siguientes líneas maestras:
+1. Organización del territorio a partir de la estructura vial y del espacio público.
+2. Dotación de suelo con servicios e infraestructura.
+3. Programas de vivienda y seguridad de la tenencia, incluida, cuando corresponda, la relocalización de asentamientos en condición de riesgo.
+Estas líneas constituyen criterios orientadores para la coordinación interinstitucional y la planificación de las intervenciones públicas en el sector. El Plan Maestro de La Carpio (PMLC) actualizado constituirá un instrumento técnico de referencia para la programación, priorización, articulación de inversiones públicas para la planificación, desarrollo y ejecución de proyectos locales en el ámbito de intervención; de acuerdo con las competencias legales y disponibilidad presupuestaria de cada una de las instituciones y gobiernos locales involucrados. De conformidad con lo establecido en los artículos 50, 169 y 170 de la Constitución Política.

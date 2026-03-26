@@ -1,0 +1,2 @@
+Artículo 3º-Declaratoria de interés público. Declárense de interés público la intervención urbanística integral de La Carpio y todas las actividades y proyectos comprendidos en el PMLC, orientados a restablecer su gobernanza territorial, definir y priorizar Operaciones Urbanas Integrales como paquetes de intervención y alineas las inversiones públicas y financieras requeridas para su ejecución.
+Asimismo, se declaran de interés público la Mesa Técnica- Interinstitucional y la Mesa Social, coordinadas y lideradas por el Ministerio de Vivienda y Asentamientos Humanos.
