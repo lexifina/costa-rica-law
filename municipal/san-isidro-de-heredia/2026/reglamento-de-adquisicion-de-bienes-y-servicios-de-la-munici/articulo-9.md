@@ -1,0 +1,14 @@
+CAPÍTULO III
+TRAMITACIÓN DE LOS PROCEDIMIENTOS DE CONTRATACIÓN PÚBLICA
+SECCIÓN I
+DECISIÓN ADMINISTRATIVA INICIAL DEL PROCEDIMIENTO DE CONTRATACIÓN
+Artículo 9. Decisión Inicial. Corresponde al acto formal que da inicio al procedimiento de contratación y deberá contener como mínimo la siguiente información:
+a) Una justificación de la procedencia de la contratación, con indicación expresa de la necesidad y cuando corresponda, su vinculación con los instrumentos de planificación con que cuenta la Municipalidad de San Isidro o aquellos externos que le vinculen.
+b) La descripción del objeto, las especificaciones técnicas y características de los bienes, obras o servicios que se requieran. En caso de que puedan existir diferentes opciones técnicas para satisfacer la necesidad, acreditar las razones por las cuales se escoge una determinada solución, así como la indicación de la posibilidad de adjudicar parcialmente de acuerdo a la naturaleza del objeto.
+c) El cronograma con las tareas y las unidades responsables de su ejecución con las fechas de inicio y finalización.
+d) Designación de una persona servidora de la Municipalidad como administradora del contrato.
+e) Cuando corresponda por la naturaleza del objeto, los procedimientos de control de calidad que se aplicarán durante la ejecución del contrato y para la recepción de la obra, suministro o servicio, los terceros interesados y/o afectados, así como las medidas de abordaje de estos sujetos cuando el proyecto lo amerite y los riesgos identificados, debiendo asegurarse que el riesgo en ningún caso superará el beneficio que se obtendrá con la contratación. En lo que atañe a los procedimientos de control de calidad se deberán respetar las regulaciones de la Ley del Sistema Nacional de la Calidad.
+f) La estimación actualizada del costo del objeto.
+g) En las licitaciones mayores salvo que por la naturaleza del objeto no resulte pertinente, deberá acreditarse la existencia de estudios que demuestren que los objetivos del proyecto de contratación serán alcanzados con una eficiencia y seguridad razonables. Para determinar la eficiencia, se valorará el costo beneficio de modo que se dé la aplicación más conveniente de los recursos asignados.
+La seguridad razonable será determinada una vez considerados los riesgos asociados de la contratación y estos sean analizados y evaluados para adoptar las medidas pertinentes de administración de riesgos, según lo dispone la Ley General de Control Interno.
+h) Indicación expresa de los recursos humanos y materiales de que dispone o llegara a disponer para verificar la correcta ejecución del objeto del contrato. En la etapa de definición de especificaciones técnicas, selección y ejecución contractual deberá participar la unidad usuaria de la Administración que formuló el requerimiento.

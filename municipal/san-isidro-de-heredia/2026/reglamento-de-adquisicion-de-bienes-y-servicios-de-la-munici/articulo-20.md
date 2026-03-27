@@ -1,0 +1,1 @@
+Artículo 20.- Aprobación de las modificaciones. Las modificaciones a los pliegos de condiciones deberán contar con la aprobación del sujeto competente para aprobar el pliego mismo, de conformidad con las reglas previstas en este reglamento.

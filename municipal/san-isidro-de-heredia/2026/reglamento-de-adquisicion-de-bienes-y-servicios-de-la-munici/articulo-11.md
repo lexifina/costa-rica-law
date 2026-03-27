@@ -1,0 +1,1 @@
+Artículo 11.- Modelo de decisión inicial. Para emitir la decisión inicial del procedimiento de contratación, el personal municipal deberá utilizar el modelo que haya sido elaborado por la Proveeduría Municipal y aprobado por la Alcaldía Municipal.

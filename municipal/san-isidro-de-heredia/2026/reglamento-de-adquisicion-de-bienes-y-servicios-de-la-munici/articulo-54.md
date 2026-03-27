@@ -1,0 +1,1 @@
+Artículo 54.- Rechazo de plano de las solicitudes. o subsanación de la solicitud. Serán aplicable a este trámite las reglas de rechazo de plano y subsanación previstas en el artículo 50 del presente reglamento.

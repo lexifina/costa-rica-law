@@ -1,0 +1,6 @@
+Artículo 61.- Finiquito en contratos de adquisición de bienes y servicios. En los procedimientos de adquisición de bienes y servicios, la administración deberá incorporar dentro de los pliegos de condiciones la necesidad de cumplir con el trámite de finiquito siempre y cuando los objetos a adquirir se ajusten a alguno de los siguientes supuestos:
+a) Bienes individuales con valor superior al millón de colones.
+b) Compras de tecnología (incluye conjunto de bienes) por un valor superior a los dos millones de colones.
+c) Servicios cuyos productos requieran aprobación de entes u órganos externos a la organización municipal.
+Para la determinación del valor de los bienes referidos en los incisos a) y b), se tomará en cuenta los valores de referencia que se desprendan del estudio de mercado llevado a cabo por la persona funcionaria promovente de la contratación.
+En todo caso, las personas funcionarias promoventes de procedimientos de contratación administrativa y la Proveeduría Municipal podrán incorporar este tipo de cláusulas en los pliegos de condiciones, cuando consideren que existen condiciones particulares del objeto contractual que hacen necesario incorporar un finiquito contractual como seguridad adicional.

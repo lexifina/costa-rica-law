@@ -1,0 +1,2 @@
+Artículo 6.- Agrupación de Bienes y Servicios a Contratar. La proveeduría municipal, en el proceso de programación anual de las compras, agrupará los bienes y servicios requeridos
+por los centros de costos, de acuerdo con la disponibilidad de los fondos, limitaciones legales y principios aplicables a la materia. Todas aquellas contrataciones que pudieran reportar economías de escala deberán efectuarse en forma centralizada, para lo cual deberá existir la planificación de las compras respectivas, si así resulta más conveniente para el interés público.

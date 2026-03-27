@@ -1,0 +1,3 @@
+Artículo 24.- Designación de las personas representantes del Concejo Municipal. La designación de las personas que han de representar al Concejo Municipal en la Comisión se llevará a cabo mediante acuerdo adoptado por mayoría simple.
+Una vez nombrados los representantes del Concejo Municipal, este comunicará a la Proveeduría Municipal el nombre y número de cédula de las personas designadas, así como un medio para atender notificaciones y comunicar las convocatorias por parte de la Proveeduría Municipal.
+Para las sesiones que realice la Comisión, el quorum se considerará válido si se tiene la mayoría simple y se cuenta con la presencia de la persona titular de la Proveeduría Municipal. Los dictámenes serán adoptados por mayoría simple.

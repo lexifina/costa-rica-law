@@ -1,0 +1,4 @@
+SECCIÓN III
+ADJUDICACIÓN DEL PROCEDIMIENTO DE CONTRATACIÓN
+Artículo 21.- Recomendación de adjudicación: Se entiende por recomendación de adjudicación el documento suscrito por la persona titular de la Proveeduría Municipal o por la Comisión de Recomendación de Adjudicaciones, donde posterior al análisis técnico de las ofertas presentadas en contraposición con el pliego de condiciones, y cumplido el procedimiento de ley, se recomienda al órgano encargado de adoptar la decisión final la oferta a adjudicar.
+El documento de recomendación de adjudicación debe contener al menos lo siguiente: resumen del objeto de la contratación, enumeración de las ofertas recibidas, síntesis del estudio técnico, cuadro de comparación de ofertas y recomendación de aquella o aquellas ofertas que de conformidad con lo dispuesto en el cartel respectivo resulten ganadoras de las contrataciones promovidas.

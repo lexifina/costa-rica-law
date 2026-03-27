@@ -1,0 +1,1 @@
+Artículo 10.- Requisitos especiales en proyectos de obra pública. Cuando se trate de proyectos de obra pública en los términos del presente reglamento y la normativa nacional, deberán cumplirse los requisitos previstos en el artículo 172 del Reglamento a la Ley General de Contratación Pública, cuando le resulten aplicables.

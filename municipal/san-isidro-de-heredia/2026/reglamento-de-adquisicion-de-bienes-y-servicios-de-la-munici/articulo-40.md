@@ -1,0 +1,1 @@
+Artículo 40.- Firma de la Orden de Compra: Las Órdenes de Compra serán suscritas por el Proveedor o Proveedora Municipal, el Coordinador o Coordinadora de Formulación y Ejecución Presupuestaria, y el Alcalde o Alcaldesa Municipal.

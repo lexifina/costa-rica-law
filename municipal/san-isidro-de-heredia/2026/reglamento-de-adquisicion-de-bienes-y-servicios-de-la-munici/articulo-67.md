@@ -1,0 +1,1 @@
+Artículo 67.- Del procedimiento. Para declarar la resolución contractual, la administración deberá ajustarse al procedimiento previsto en los artículos 113 y 114 de la Ley General de Contratación Pública, No. 9986 y el artículo 293 de su reglamento, incluyendo lo que respecta a la fase recursiva especial.
