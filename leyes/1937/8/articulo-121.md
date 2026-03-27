@@ -1,4 +1,3 @@
-Artículo 121.- En materia de tránsito, los juzgados contravencionales, conocerán:
-1.- De las infracciones de tránsito.
-2.- De los demás asuntos que determine la ley.
-(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997)
+Artículo 121.- Los juzgados contravencionales y de menor cuantía conocerán en materia de trabajo, como juzgados de trabajo por ministerio de ley, de todos los asuntos, cualquiera sea su valor económico, correspondientes a su circunscripción territorial, excepto de los conflictos colectivos de carácter económico y social, siempre y cuando en su territorio no exista juzgado de trabajo.
+(Así reformado por el artículo 3° aparte b) de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 116 al artículo 121)

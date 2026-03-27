@@ -1,8 +1,10 @@
-Artículo 95.- Los tribunales colegiados de apelación civiles conocerán:
-(Así reformado el párrafo anterior por el artículo 184 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
-1. De los recursos de apelación que procedan contra las resoluciones de los tribunales colegiados de primera instancia y de los juzgados civiles. Si el proceso es de menor cuantía será conocido por un integrante del tribunal colegiado de forma unipersonal.
-(Así reformado el inciso anterior por el artículo 184 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
-2. De los cuestionamientos sobre competencia subjetiva de sus integrantes.
-(Así reformado el inciso anterior por el artículo 184 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
-3.- De los conflictos de competencia en materia civil entre autoridades de su mismo territorio.
-4.- De los demás asuntos que determine la ley.
+Artículo 95.- Corresponde al Auditor:
+1.- Ejercer la suprema vigilancia sobre el régimen económico del Poder Judicial, sin perjuicio de lo que pueda resolver la Corte o el Consejo.
+2.- Dirigir, programar y fiscalizar las labores de control interno.
+3.- Fiscalizar la ejecución del Presupuesto.
+4.- Controlar el buen uso y correcto destino de los fondos públicos puestos a disposición del Poder Judicial, para lo cual tendrá acceso a todas las dependencias judiciales y a los libros, archivos y documentos referentes al movimiento económico.
+5.- Refrendar, a posteriori, los documentos que impliquen responsabilidad económica para el Poder Judicial en relación con el uso de fondos.
+6.- Practicar revisiones, con la frecuencia que sea necesaria, sobre los gastos efectuados por el Poder Judicial, elaborar los informes financieros que se deriven de esos estudios y si encontrare alguna irregularidad, dar cuenta de inmediato al Consejo.
+7.- Dar pautas y recomendaciones a los servidores judiciales de las oficinas que tengan a su cargo actividades de carácter contable.
+8.- Colaborar con la Contraloría General de la República, en las funciones de auditoría externa.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 90 al artículo 95)

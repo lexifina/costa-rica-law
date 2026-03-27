@@ -1,2 +1,5 @@
-Artículo 91.- En el caso de ausencia temporal del Auditor, sus funciones se recargarán en cualquier otro servidor de la Auditoría que tenga conocimientos contables, según lo disponga el Presidente del Consejo. Si la ausencia se prolongare por más de ocho días, el Consejo nombrará a un auditor interino.
-Los nombramientos que se realicen, de forma interina, podrán recaer en personas que no reúnan los requisitos establecidos en esta Ley, siempre que tales nombramientos no excedan de tres meses. Transcurrido este término, el Consejo deberá hacer el nombramiento de una persona que reúna los requisitos establecidos, previo concurso que convocará el Departamento de Personal.
+SECCION II
+DE LA DIRECCION EJECUTIVA DEL PODER JUDICIAL
+Artículo 91.- La Dirección Ejecutiva estará a cargo de un funcionario que se denominará Director Ejecutivo del Poder Judicial, deberá ser costarricense, mayor de treinta años, abogado con conocimientos y experiencia en Administración o licenciado en Administración.
+Con excepción de los órganos previstos en el artículo 84 y de otros que así se establezca por reglamento o acuerdo de la Corte Plena, las demás oficinas administrativas del Poder Judicial dependerán de la Dirección Ejecutiva.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 86 al artículo 91)

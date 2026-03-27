@@ -1,7 +1,5 @@
-TITULO VI
-DE LAS PERSONAS Y DEPENDENCIAS QUE
-AUXILIAN LA ADMINISTRACION DE JUSTICIA
-CAPITULO I
-DE LOS ORGANOS
-Artículo 149.- Además de otros órganos que establezcan la ley o el reglamento, actuarán como auxiliares de la administración de justicia: el Ministerio Público, el Organismo de Investigación Judicial, la Defensa Pública, la Escuela Judicial , el Centro Electrónico de Información Jurisprudencial y el Archivo y Registros Judiciales.
-(Así reformado por el artículo 6° de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 149.- En los circuitos judiciales y los tribunales donde el mejor servicio público lo requiera, podrán establecerse unidades de servicio administrativo centralizado, tales como: notificaciones, recepción de documentos, correo interno, archivo, custodia de evidencias, administración de salas de audiencias, tesorería y cualquier otra que determine la Corte , de manera que una unidad de trabajo pueda atender las necesidades y los requerimientos de dos o más tribunales.
+Las labores de estas oficinas pueden extenderse más allá de los horarios habituales, según se necesite para mejorar el servicio público.
+Estos despachos dependerán de la administración general.
+(Así reformado por el artículo 5° de la Ley N° 7728 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 144 al artículo 149)

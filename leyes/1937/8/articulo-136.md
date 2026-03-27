@@ -1,1 +1,5 @@
-Artículo 136.- Salvo los que corresponda hacer al Consejo, los jefes de Despacho -sujetos a la aprobación de aquel- podrán nombrar a sus respectivos funcionarios y empleados. Cuando se trate de nombramientos en propiedad, deberán solicitar al Departamento de Personal, las ternas respectivas, las cuales podrán ser rechazadas si estiman que ninguno de los candidatos satisface las necesidades del Despacho. Si la plaza estuviere vacante, el nombramiento en propiedad no podrá diferirse por más de tres meses. Las mismas reglas se aplicarán para los nombramientos del personal subalterno del resto de las oficinas judiciales.
+CAPITULO VI
+DE LOS JUECES ARBITROS
+Artículo 136.- El árbitro de derecho debe sujetarse a las leyes en sus procedimientos y fallo; el árbitro arbitrador obedece solo a lo que su prudencia le dicte.
+No expresándose por las partes la calidad del árbitro, se entenderá nombrado árbitro de derecho.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 131 al artículo 136)

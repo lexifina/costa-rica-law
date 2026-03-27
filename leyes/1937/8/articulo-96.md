@@ -1,7 +1,3 @@
-Artículo 96.- Los tribunales penales de juicio estarán conformados al menos por cuatro jueces y se integrarán, en cada caso, con tres de ellos, para conocer de los siguientes asuntos:
-1.- De la fase de juicio, en los procesos seguidos contra personas que a la fecha de los hechos pertenecieron a los Supremos Poderes del Estado, o fueron por delitos sancionados con más de cinco años de prisión, salvo que corresponda el procedimiento abreviado.
-2.- De la fase de juicio, en procesos contra funcionarios equiparados, pero que en el momento del juzgamiento no ostentan esos cargos.
-3.- Del proceso por delitos de injurias y calumnias realizados por los medios de comunicación colectiva. En tal caso, el tribunal nombrará a uno de sus miembros para que ejecute los actos preliminares al juicio.
-4.- De los impedimentos, las excusas y las recusaciones, de los jueces propietarios y suplentes.
-5.- De los demás asuntos que se determinen por ley.
-(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 96.- En el caso de ausencia temporal del Auditor, sus funciones se recargarán en cualquier otro servidor de la Auditoría que tenga conocimientos contables, según lo disponga el Presidente del Consejo. Si la ausencia se prolongare por más de ocho días, el Consejo nombrará a un auditor interino.
+Los nombramientos que se realicen, de forma interina, podrán recaer en personas que no reúnan los requisitos establecidos en esta Ley, siempre que tales nombramientos no excedan de tres meses. Transcurrido este término, el Consejo deberá hacer el nombramiento de una persona que reúna los requisitos establecidos, previo concurso que convocará el Departamento de Personal.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 91 al artículo 96)

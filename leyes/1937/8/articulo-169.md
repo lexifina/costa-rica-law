@@ -1,3 +1,6 @@
-Artículo 169.- Cuando un funcionario estimare que es incompetente para conocer del asunto que se le somete, salvo el caso de prórroga de competencia, lo declarará así de oficio y ordenará remitir el expediente al funcionario que a su juicio corresponda conocer. Si mediare apelación de alguna de las partes o si, no habiéndola, este último funcionario desintiere de esa opinión, será el superior de ambos quien decida la competencia, sin más trámite y tan pronto como reciba los autos.
-El funcionario que, en definitiva, resulte competente continuará los procedimientos, si los trámites señalados por la ley para el juicio fueren los mismos iniciados por el funcionario que se separó del conocimiento del asunto. En caso de no ser así, repondrá los autos al estado necesario para que el proceso tome su curso normal.
-La competencia entre las autoridades administrativas y las judiciales se decidirá en la forma que determinen los respectivos códigos procesales.
+Artículo 169.- Salvo en los casos exceptuados por la ley, la competencia se suspende:
+1.- Por excusa del juez, desde que la exponga hasta que las partes se allanen o se declare inadmisible en primera instancia.
+2.- Por recusación, desde que sea legalmente interpuesta, hasta que se declare improcedente en primera instancia.
+3.- Por la excepción de incompetencia o declinatoria de competencia, desde que se le presenta el escrito en que se alega hasta que se declare sin lugar, salvo para tramitar y resolver dicha excepción, o por la declaratoria de incompetencia que haga el funcionario hasta tanto no sea revocada por el superior.
+4.- Por la apelación otorgada en ambos efectos.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 164 al artículo 169)

@@ -1,1 +1,2 @@
-Artículo 78.- En lo no dispuesto en la presente Ley, el régimen de los actos del Consejo será el establecido para los actos administrativos, sin que, en ningún caso, deba consultarse a la Procuraduría General de la República.
+Artículo 78.- Los miembros del Consejo atenderán sus funciones a tiempo completo y tendrán las mismas prohibiciones e incompatibilidades que los demás servidores judiciales.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 73 al artículo 78)

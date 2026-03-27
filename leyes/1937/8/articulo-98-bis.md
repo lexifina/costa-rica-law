@@ -1,4 +1,5 @@
-Artículo 93 bis.—Integración de los tribunales de apelación de sentencia:
+Artículo 98 bis.-Integración de los tribunales de apelación de sentencia:
 Los tribunales de apelación de sentencia estarán conformados por secciones independientes, integradas cada una por tres jueces, de acuerdo con las necesidades del servicio, y se distribuirán su labor conforme lo dispone la presente Ley. La jurisdicción penal juvenil contará con los tribunales de apelación de sentencia, especializados en esta materia, según las necesidades del servicio.
 (Así adicionado por el artículo 5° de la Ley N° 8503 del 28 de abril de 2006)
 (Así reformado por el artículo 8° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 93 bis al artículo 98 bis)

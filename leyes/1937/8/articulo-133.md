@@ -1,4 +1,3 @@
-Artículo 133.- Los árbitros que no sean funcionarios judiciales, una vez aceptado su encargo, quedan obligados a desempeñarlo, bajo la pena de responder de los daños y perjuicios que causaren con su incumplimiento. Esta obligación cesa:
-1.- Por sobrevenir causa que implique impedimento para ejercer el cargo o constituya un motivo legal de excusa o de recusación.
-2.- Si contrajeren enfermedad que les impida seguir ejerciendo sus funciones.
-3.- Si, por cualquier causa, tuvieren que ausentarse del lugar, donde se sigue el juicio, por más de un mes.
+Artículo 133.- La Corte Suprema de Justicia podrá establecer, mediante acuerdo que se publicará en el Boletín Judicial, otras funciones que deben realizar los jueces tramitadores, según la materia y la cuantía de los asuntos.
+(Así reformado por el artículo 4° de la Ley N° 7728 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 128 al artículo 133)

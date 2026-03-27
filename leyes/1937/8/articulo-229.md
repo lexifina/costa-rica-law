@@ -1,6 +1,10 @@
-Artículo 229- El monto de las prestaciones de pensión por sobrevivencia en los casos de viudez, unión de hecho, orfandad o ascendencia será proporcional al monto de pensión que recibía el pensionado al momento de fallecer, y en su conjunto este monto no será mayor al ochenta por ciento (80%) de lo que correspondía al causante. En caso de muerte de un servidor activo, la cuantía de la pensión por viudez, unión de hecho, orfandad o ascendencia será proporcional al monto de pensión que hubiera recibido el fallecido de acuerdo con el cumplimiento de requisitos en el momento de la contingencia, y en su conjunto este monto no será mayor al ochenta por ciento (80%) de lo que le hubiera correspondido al causante.
-Las proporciones para los beneficios por viudez, unión de hecho, orfandad y ascendencia serán las que se estipulen en el reglamento del Régimen.
-Toda pensión por sobrevivencia caducará por la muerte del beneficiario, a excepción de lo dispuesto en este artículo para la pensión que corresponde a los hijos.
-Las asignaciones que caduquen acrecerán proporcionalmente las de los demás beneficiarios que se mantienen vigentes, a solicitud de ellos y siempre y cuando los requieran, previo estudio de trabajo social y aprobación de la Junta Administrativa del Fondo.
+TÍTULO IX
+RÉGIMEN DE JUBILACIONES Y PENSIONES
+DEL PODER JUDICIAL
+(Así reformado el título anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
+CAPÍTULO I
+PRESTACIONES
+(Así reformado el capítulo anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
+Artículo 229- Los servidores judiciales con veinte o más años de servicio en el Poder Judicial podrán acogerse a una jubilación ordinaria igual a un ochenta y dos por ciento (82%) del promedio de los últimos veinte años de salarios mensuales ordinarios devengados en su vida laboral, actualizados según el índice de precios al consumidor (IPC), definido por el Instituto Nacional de Estadística y Censos (INEC), siempre y cuando hayan cumplido sesenta y cinco años de edad y hayan trabajado al menos treinta y cinco años.
 (Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
-(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 11957-2021 del 25 de mayo de 2021, se declara inconstitucional el requisito de los 20 años de servicio exigido para efectos de obtener la pensión por sobrevivencia que se deriva del artículo 229 de la Ley 9544 de 24 de abril de 2018, en cuyo caso se mantiene vigente el requisito de 10 años para adquirir ese derecho, según el artículo 230 de la Ley 7333 de 5 de mayo de 1993 en la versión anterior a la reforma.)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 224 al artículo 229)

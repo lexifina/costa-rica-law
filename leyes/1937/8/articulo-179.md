@@ -1,3 +1,6 @@
-Artículo 179.- A los efectos de la inspección y vigilancia de los tribunales, en los primeros cinco días de los meses de enero, abril, julio y octubre, los jefes de Despacho deberán remitir al Consejo Superior la relación de los asuntos ingresados, pendientes y resueltos, en la forma que lo disponga el Consejo. También se indicarán las sentencias definitivas o interlocutorias dictadas en el señalado lapso, la justificación por los atrasos, si los hubiere, y cualquier otro dato que resulte de interés.
-A efecto de establecer el debido control, el Departamento de Planificación rendirá un informe general en el que se establezcan principalmente problemas detectados y se propongan las soluciones del caso.
-Además de los referidos informes, el Consejo podrá ordenar que se rindan otros, cuando así lo estime necesario.
+TITULO VIII
+REGIMEN DISCIPLINARIO
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 179.- El régimen disciplinario tiene por objeto asegurar la eficiencia, corrección y decoro de las funciones encomendadas al Poder Judicial y garantizar a los ciudadanos una correcta administración de justicia. Para tales efectos, existirán los mecanismos de control, ágiles y confiables, que sean necesarios.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 174 al artículo 179)

@@ -1,2 +1,0 @@
-Artículo 107 bis- Corresponde al Juzgado Especializado en Delincuencia Organizada conocer de los actos jurisdiccionales de los procedimientos preparatorio e intermedio. Se procurará que un juez no asuma ambas etapas en un solo proceso.
-(Así adicionado por el artículo 18 de la Ley Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, N° 9481 del 13 de setiembre de 2017)

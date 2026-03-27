@@ -1,5 +1,2 @@
-TITULO VII
-DE LA JURISDICCION Y COMPETENCIA
-CAPITULO UNICO
-DISPOSICIONES GENERALES
-Artículo 162.- La facultad de administrar justicia se adquiere con el cargo al que está anexa y se pierde o suspende para todos los negocios cuando, por cualquier motivo, el juez deja de serlo o queda suspendido temporalmente en sus funciones.
+Artículo 162.- En caso de inopia de abogados en una determinada jurisdicción territorial, se podrá nombrar como defensores, en ese orden, a los egresados de las facultades o escuelas de Derecho o a los estudiantes que estén cursando el último año. Sin embargo, los profesionales siempre desplazarán a quienes carezcan de título, pero se respetará el plazo por el que estos hayan sido nombrados.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 157 al artículo 162)

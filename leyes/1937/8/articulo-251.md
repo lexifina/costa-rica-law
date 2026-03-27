@@ -1,1 +1,2 @@
-Artículo 251.- La Corte queda facultada para dictar las reglas prácticas que sean necesarias para la aplicación de la presente Ley.
+Artículo 251.- El Colegio de Abogados informará a la Secretaría del Consejo Superior del Poder Judicial de las inscripciones de los licenciados en Derecho, a fin de anotarlos en los catálogos respectivos y publicar sus nombres en el Boletín Judicial, para que todas las autoridades judiciales tengan conocimiento de ello.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 246 al artículo 251)

@@ -1,2 +1,2 @@
-Artículo 183.- Las faltas atribuidas a los miembros del Consejo Superior del Poder Judicial y del Tribunal de la Inspección Judicial, serán conocidas por la Corte Plena.
-Las resoluciones finales de la Corte Plena deberán fundamentarse debidamente.
+Artículo 183.- Las inspecciones a las oficinas judiciales deberán realizarse por lo menos una vez cada tres meses y de ellas deberán elaborarse los informes correspondientes, para apreciar el funcionamiento de la administración de justicia en la respectiva circunscripción.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 178 al artículo 183)

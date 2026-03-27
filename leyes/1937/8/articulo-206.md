@@ -1,1 +1,2 @@
-Artículo 206.- Concluido el trámite, el expediente pasará a estudio de los restantes inspectores generales; cada uno lo estudiará por tres días; luego, dictarán sentencia en un plazo no mayor de cinco días.
+Artículo 206.- En todo caso, el denunciado podrá nombrar defensor a su costo, o solicitar se le designe uno conforme a lo dispuesto en el artículo 152. El denunciado y su defensor tendrán libre acceso al expediente.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 201 al artículo 206)

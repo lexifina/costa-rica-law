@@ -1,4 +1,4 @@
-Artículo 94 bis.-
+Artículo 99 bis.-
 1) Corresponderá al Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda, conocer y resolver el recurso extraordinario de casación, cuando intervenga alguno de los siguientes entes u órganos:
 a) Los colegios profesionales y cualquier ente de carácter corporativo.
 b) Los entes públicos no estatales.
@@ -10,3 +10,4 @@ d) Las empresas públicas que asuman formas de organización distintas de las de
 5) De los conflictos de competencia que se susciten entre los órganos que componen la Jurisdicción Contencioso-Administrativa, siempre que no correspondan a la Sala Primera de la Corte Suprema de Justicia.
 6) De los demás asuntos que determine la ley.
 (Así adicionado por el artículo 212 de la Ley N° 8508 de 28 de abril de 2006 Código Procesal Contencioso-Administrativo).
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 94 bis al artículo 99 bis)

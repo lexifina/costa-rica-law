@@ -1,2 +1,2 @@
-Artículo 139.- Podrá haber en cada oficina, hasta dos servidores meritorios, nombrados por los respectivos jefes de Despacho. La relación creada bajo las previsiones de este artículo no crea derechos laborales en favor del meritorio, pero sí faculta para el ejercicio del régimen disciplinario.
-Cuando el jefe de la oficina considere inconveniente la presencia o actuación del meritorio, podrá prescindir de éste dando cuenta al Consejo.
+Artículo 139.- Los árbitros juris han de tener las mismas calidades y condiciones que las exigidas para ejercer en un juzgado. Los árbitros arbitradores no requerirán condiciones especiales sino el nombramiento de las partes.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 134 al artículo 139)

@@ -1,9 +1,6 @@
-TÍTULO IX
-RÉGIMEN DE JUBILACIONES Y PENSIONES
-DEL PODER JUDICIAL
-(Así reformado el título anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
-CAPÍTULO I
-PRESTACIONES
-(Así reformado el capítulo anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
-Artículo 224- Los servidores judiciales con veinte o más años de servicio en el Poder Judicial podrán acogerse a una jubilación ordinaria igual a un ochenta y dos por ciento (82%) del promedio de los últimos veinte años de salarios mensuales ordinarios devengados en su vida laboral, actualizados según el índice de precios al consumidor (IPC), definido por el Instituto Nacional de Estadística y Censos (INEC), siempre y cuando hayan cumplido sesenta y cinco años de edad y hayan trabajado al menos treinta y cinco años.
-(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
+Artículo 224.- Los profesionales y las partes que en sus escritos consignen ofensas, frases injuriosas, despectivas o irrespetuosas contra los colegas o contra las partes o personas que intervienen en los juicios, podrán ser corregidos con cinco a quince días multa, sin perjuicio de que el ofendido les exija las responsabilidades consiguientes.
+En los casos de injurias o de agresión personal al practicarse una diligencia, se le impondrá de cinco a veinte días multa; pero si hubiere habido provocación, la multa podrá reducirse a la mitad.
+En los casos establecidos en el presente artículo y en los dos anteriores, la certificación extendida por el secretario del
+Despacho que impuso la multa constituirá título ejecutivo para su cobro en favor del Estado. Corresponde a la Procuraduría General de la República plantear la demanda correspondiente.
+Estas multas son de carácter disciplinario y nunca podrán convertirse en prisión.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 219 al artículo 224)
