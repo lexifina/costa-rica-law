@@ -1,0 +1,1 @@
+ARTÍCULO 2- Autorización de donación. Se autoriza al Estado para que done el inmueble a la Municipalidad de Alajuelita, cédula jurídica número tres cero catorce cero cuatro dos cero cuarenta y cuatro (n.º 3-014-042044).
