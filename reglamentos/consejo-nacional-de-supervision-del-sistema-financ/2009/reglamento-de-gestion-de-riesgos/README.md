@@ -31,3 +31,4 @@ Reglamento de Gestión de Riesgos
 | 16 | 2022-05-27 | Reglamento 1734 (2022-05-27) |
 | 17 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
 | 18 | 2023-02-06 | Reglamento 1784 (2023-02-06) |
+| 19 | 2026-03-27 | Reglamento 2011 (2026-03-27) |
