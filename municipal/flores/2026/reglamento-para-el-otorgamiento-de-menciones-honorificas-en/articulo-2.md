@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento es aplicable a todas las menciones honoríficas otorgadas por la Municipalidad de Flores, bajo la responsabilidad del Concejo Municipal y de acuerdo con los lineamientos establecidos en el presente reglamento.

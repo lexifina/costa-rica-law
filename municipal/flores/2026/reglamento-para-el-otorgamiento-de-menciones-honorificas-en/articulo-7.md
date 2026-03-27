@@ -1,0 +1,1 @@
+Artículo 7º-Evaluación de candidaturas. Las propuestas de candidaturas serán evaluadas por la Comisión permanente de Asuntos Culturales. La comisión se encargará de verificar que las candidaturas cumplan con los requisitos establecidos en este reglamento y emitirá una recomendación al Concejo Municipal para su aprobación.

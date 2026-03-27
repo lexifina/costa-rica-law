@@ -1,0 +1,1 @@
+Artículo 8º-Aprobación del Concejo Municipal. El otorgamiento de menciones honoríficas será aprobado por el Concejo Municipal mediante acuerdo de mayoría simple, con base en el dictamen emitido por la Comisión Permanente de Asuntos Culturales. No se podrá otorgar menciones honorificas durante los seis meses anteriores a las elecciones nacionales o cantonales.

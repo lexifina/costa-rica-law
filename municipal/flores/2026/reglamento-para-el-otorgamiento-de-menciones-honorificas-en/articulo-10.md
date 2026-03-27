@@ -1,0 +1,1 @@
+Artículo 10.-Revocación de la mención honorífica. El Concejo Municipal podrá revocar una mención honorífica otorgada en caso de que se demuestre que la persona o entidad ha cometido actos que desmerezcan el honor conferido o que sean contrarios a los principios éticos. Esta decisión deberá ser aprobada por mayoría absoluta de los miembros del Concejo Municipal.
