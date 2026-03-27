@@ -1,0 +1,1 @@
+ARTÍCULO 4- El beneficiario de esta donación no podrá traspasar, vender, redestinar, arrendar o gravar, de ninguna forma, el terreno donado. En caso de que la asociación se disuelva o que el bien donado deje de cumplir o no continúe con el fin que motivó la donación, volverá, de pleno derecho, a ser propiedad del Instituto.

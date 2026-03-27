@@ -1,0 +1,7 @@
+N° 10863
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO, PARA
+DONAR UN LOTE DE SU PROPIEDAD A LA ASOCIACIÓN PARA EL PROGRESO
+INTEGRAL DE CALLE LA LABOR
+ARTÍCULO 1- Se autoriza al Instituto Costarricense de Puertos del Pacífico, cédula jurídica número cuatro cero cero cero cero cuatro dos uno cuatro cero (n.° 4-000-042140), a segregar un lote de una finca de su propiedad, inscrita bajo el sistema de folio real matrícula número uno uno cero tres cuatro siete cero cero cero (n.° 110347-000), que se sitúa en el distrito La Ribera, cantón Belén de la provincia de Heredia, conforme al plano catastrado H-cero cuatro dos tres tres nueve seis uno nueve ocho dos (H-0423396-1982); cuya naturaleza es de "Balneario de Ojo de Agua", mide noventa y seis mil quinientos setenta y cuatro metros con dieciocho decímetros cuadrados (96574,18 m2); linda al norte con calle pública, al oeste con Arquidiócesis de Alajuela, al sur con calle pública y al este con calle pública. El lote por segregar mide quinientos ochenta y siete metros cuadrados (587m2), cuyos linderos son: al norte con el identificador predial 40702011034700; al sur con los indicadores prediales 20108P00021100 y 20108P00009200; al oeste con los identificadores prediales 20108036809200 y 20108036803900 y al este con calle pública. El resto del inmueble se lo reserva el Instituto.
