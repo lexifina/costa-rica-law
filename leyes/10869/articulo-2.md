@@ -1,0 +1,1 @@
+ARTÍCULO 2- El CNP deberá contar con un sistema digital para la ágil y eficiente tramitación de los pedidos y pagos a realizar para la adquisición de alimentos de los comedores escolares del Ministerio de Educación Pública.
