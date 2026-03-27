@@ -1,0 +1,1 @@
+TRANSITORIO I- Para las magistraturas que se encuentren nombradas al momento de aprobación de la presente ley, el plazo de presentación del informe de rendición de cuentas será un mes posterior al cumplimiento de la siguiente la anualidad dentro del periodo de nombramiento actual.
