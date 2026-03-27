@@ -1,0 +1,6 @@
+Artículo 12.- Del proceso de divulgación formal de las candidaturas.
+Una vez que se cuente con la inscripción de las candidaturas, la Comisión Coordinadora lo comunicará a la Dirección de Prensa y Relaciones Públicas del Ministerio de Educación Pública, con la finalidad de que se realice una publicación del afiche o imagen promocional facilitado por cada persona candidata, a través del correo electrónico masivo institucional y redes sociales oficiales.
+En caso de que la persona candidata aporte un video promocional, también se remitirá a la Dirección de Prensa y Relaciones Públicas del Ministerio de Educación Pública, a fin de que se incluya en la divulgación respectiva.
+Se realizará un comunicado inicial con la información de todas las personas candidatas para cada uno de los cargos, sin perjuicio de que posteriormente se remitan mensajes individualizados. El envío de los mensajes individuales se efectuará según el orden alfabético correspondiente al nombre de pila de la persona candidata.
+El proceso de divulgación se realizará del 27 al 30 de abril de 2026.
+El Consejo Superior de Educación Pública podrá incluir la información correspondiente a las candidaturas en su página web, con el propósito de brindar la mayor publicidad al proceso electoral.
