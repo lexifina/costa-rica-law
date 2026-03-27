@@ -1,0 +1,1 @@
+Artículo 67.-Los ministerios, entidades descentralizadas y empresas públicas en lo relativo a puestos de confianza subalternos, deberán cumplir con lo dispuesto en el Decreto N.0 390 59-H Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público, publicado en La Gaceta N.º 137 del 16 de julio de 2015 y lo que disponga el MIDEPLAN al respecto.

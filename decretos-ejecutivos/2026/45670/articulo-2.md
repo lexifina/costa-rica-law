@@ -1,0 +1,1 @@
+Artículo 2°.- Es responsabilidad de la máxima autoridad de cada ministerio y entidad, velar por el cumplimiento de estas directrices, de conformidad con lo dispuesto en los artículos 23 de la Ley N.º 8131 y 15 de su Reglamento.

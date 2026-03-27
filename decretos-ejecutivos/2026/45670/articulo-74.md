@@ -1,0 +1,1 @@
+Artículo 74.-EI incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el Título X, artículos 107 y siguientes de la Ley N.0 8131.

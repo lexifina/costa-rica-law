@@ -1,0 +1,3 @@
+Artículo 12.-Para las entidades públicas financieras no bancarias, el gasto presupuestario máximo del 2027 se establecerá con base en la proyección de ingresos totales 2027 (corrientes, capital y financiamiento) , definida por dichas entidades públicas en coordinación con la STAP.
+Para el cálculo de los ingresos se utilizará como insumo la serie histórica del periodo 2022-2025; así como la estimación de ingresos para los años 2026-2027.
+La proyección de ingresos debe ser remitida a la STAP, a más tardar los primeros cinco días hábiles del mes de abril del 2026. Los montos del gasto presupuestario máximo resultantes, serán comunicados por la STAP a más tardar el 30 de abril de 2026.

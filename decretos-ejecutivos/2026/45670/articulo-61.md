@@ -1,0 +1,2 @@
+Articulo 61.- En el ejercicio de sus competencias, la AP sólo creará plazas de tiempo completo y la utilización total o parcial de la jornada, quedará a entera responsabilidad de la Administración Activa.
+Cada plaza contará con un único código o número de puesto y en ésta solo se podrá nombrar a una persona funcionaria, salvo en los casos de suplencia o sustitución en que se podrá nombrar a una persona funcionaria en el mismo código o número de puesto para esos efectos.
