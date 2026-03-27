@@ -1,0 +1,19 @@
+Artículo 3°- Mecánica de participación
+La mecánica de participación consiste en que toda persona mayor de 18 años, nacional o extranjero, podrá activar a partir del lunes 06 de abril de 2026, a las 12 mediodía y hasta el lunes 30 de noviembre de 2026, a las 6:00 pm a través de la App JPS A SU ALCANCE boletos no premiados de la Lotería Instantánea de los juegos se encuentren vigentes.
+Se aclara que, las personas, para completar una participación, debe activar un boleto no premiado de Lotería Instantánea, siempre y cuando correspondan a los juegos que se encuentren vigentes en los meses de abril a noviembre, 2026.
+La Junta por conveniencia estratégica se reserva el derecho, de ser necesario, de otorgar una doble participación por boleto activado, en aquellos juegos de Lotería Instantánea que estime conveniente.
+No participan de esta promoción los funcionarios de la Junta de Protección Social, los miembros de Junta Directiva, ni los vendedores autorizados de la Junta de Protección Social que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
+Requisitos para activación en la App JPS A SU ALCANCE:
+Las personas que nunca hayan activado por la App JPS A SU ALCANCE, deberán:
+1. Descargar la aplicación en la tienda PlayStore de Google, App Store o App Gallery.
+2. Registrarse y completar una única vez el formulario de inscripción.
+3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la ventana "activación de productos", ingresar a la ventana "activaciones instantáneas" e ingresar a la ventana "Promoción Activación Lotería Instantánea"
+4. Escanear cada uno de los boletos no premiados de Lotería Instantánea, que desean activar, de los juegos que se encuentren vigentes. Para el escaneo correcto de cada uno de los boletos deben posicionar la cámara en el código de barras que se ubica bajo el área de raspado y que consta de doce dígitos.
+Las personas que ya tienen una cuenta en la aplicación JPS A SU ALCANCE deberán ingresar con su cédula y contraseña y acceder a la ventana "activación de productos", ingresar a la ventana "activaciones instantáneas" e ingresar a la ventana "Promoción Activación Lotería Instantánea" y escanear cada uno de los boletos no premiados de Lotería Instantánea, que desean activar, de los juegos que se encuentren vigentes en los meses de abril a noviembre 2026.
+Una persona solo podrá realizar la activación de un máximo de 200 boletos no premiados de Lotería Instantánea en total, de los juegos que se encuentren vigentes, para cada sorteo de esta promoción, a su nombre.
+Se reitera que un boleto no premiado solo podrá ser activado una vez durante el período de activaciones.
+No es permitido para esta promoción que los participantes intenten registrar activaciones de boletos no premiados de Lotería Instantánea de juegos que no se encuentren vigentes.
+El participante está en la obligación de registrar información veraz y exacta y es el único responsable de los datos que registre para participar.
+Se aclara que las personas para participar en cada uno de los sorteos de esta promoción deben activar boletos no premiados de Lotería Instantánea distintos. Es decir, los boletos no premiados que active para un sorteo de esta promoción no podrá activarlos para un sorteo siguiente de esta promoción.
+Se aclara que los boletos no premiados de Lotería Instantánea activados para esta promoción NO podrán activarse para participar en cualquier otra promoción que se encuentre vigente, y viceversa.
+Se aclara que los boletos no premiados de Lotería Instantánea que se activen para participar en cada uno de los sorteos de esta promoción NO podrán activarse para participar en el programa Rueda de La Fortuna y viceversa.
