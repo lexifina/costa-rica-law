@@ -1,0 +1,2 @@
+ARTÍCULO 35º. Profesionales o técnicos de diferentes disciplinas.
+La auditoría interna, podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Institución, para que lleven a cabo labores de su especialidad en apoyo a los estudios que realice ésta. Para esto se deben cumplir las regulaciones y los procedimientos habituales conforme a lo establecido en el marco legal.

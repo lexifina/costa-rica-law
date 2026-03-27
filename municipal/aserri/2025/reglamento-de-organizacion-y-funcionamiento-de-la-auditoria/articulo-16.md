@@ -1,0 +1,8 @@
+ARTÍCULO 16º. Sobre requerimiento de autorización de la CGR para nombrar interinamente.
+Los recargos de funciones y las sustituciones no estarán sujetos a la autorización de la Contraloría General de la República, pero si a la evaluación que esta pueda determinar. El jerarca o su representante deberá informar al Órgano Contralor que se ha realizado el recargo o la sustitución y los datos del funcionario en quien ha recaído.
+Cuando la ausencia del auditor interno sea temporal, la Municipalidad no requerirá la autorización de la CGR, para tal nombramiento interino, sino que se aplicará las regulaciones internas cumpliendo con lo establecido en el régimen de empleo público, sin afectar la actividad de la Auditoría interna.
+El jerarca o su representante deberán informar al Órgano Contralor que se ha realizado el nombramiento interino y los datos del funcionario designado.
+Cuando la ausencia sea permanente, la Municipalidad deberá gestionar la autorización de la CGR de previo a realizar el nombramiento interino, indicando los datos de la persona que
+se designará y demostrando el cumplimiento de los requisitos de idoneidad aplicables. No obstante, si el nombramiento interino en el puesto de Auditor recayera en quien ejerce el cargo de Subauditor, no requerirá la autorización del Órgano Contralor.
+El jerarca o su representante deberán comunicar a la Contraloría General el nombramiento interino a más tardar el primer día hábil del inicio de funciones en el respectivo cargo.
+Los requisitos para la formulación de la autorización ante la Contraloría General de la República serán los estipulados en los Lineamientos sobre Gestiones que involucren a la Auditoria Interna R-DC-083-2018 y sus futuras reformas.

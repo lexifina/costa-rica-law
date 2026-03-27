@@ -1,0 +1,2 @@
+ARTÍCULO 19º. Vacaciones, permisos y otros del Auditor (a) interno (a)
+Las vacaciones, permisos y otros asuntos del Auditor Interno deberán ser conocidos y aprobados por el Concejo Municipal. Sin embargo, en los casos en que dichos permisos o vacaciones no superen los 5 días hábiles y no puedan ser tramitados con anticipación, será suficiente la comunicación previa a la Coordinación de Recursos Humanos.

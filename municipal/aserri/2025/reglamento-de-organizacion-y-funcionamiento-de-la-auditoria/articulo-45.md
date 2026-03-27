@@ -1,0 +1,2 @@
+ARTÍCULO 45º. Solicitud de Información para mejor resolver.
+El Jerarca o el titular subordinado podrán solicitar a la Auditoria Interna las aclaraciones u otra información adicional al contenido del informe para resolver lo que proceda, y la Auditoria Interna en la medida de sus posibilidades deberá proporcionarla. Sin embargo, la solicitud de nueva información o la falta de ésta no obstarán para que el Jerarca observe el plazo improrrogable en que debe ordenar o resolver lo que juzgue pertinente, so pena de incurrir en incumplimientos.

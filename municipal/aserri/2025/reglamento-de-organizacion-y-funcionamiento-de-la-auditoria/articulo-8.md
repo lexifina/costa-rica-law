@@ -1,0 +1,2 @@
+ARTÍCULO 8º. Organización
+La Auditoría Interna se organizará y funcionará como lo disponga el Auditor Interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, las cuales serán de acatamiento obligatorio. El Auditor Interno considerará en las planeaciones anuales o cuando así lo estime conveniente la forma en que a nivel de estructura se organizará el personal de Auditoría y comunicará lo correspondiente por los medios que estime pertinente.

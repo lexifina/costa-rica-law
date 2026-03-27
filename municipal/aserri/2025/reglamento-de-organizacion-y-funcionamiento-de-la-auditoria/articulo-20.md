@@ -1,0 +1,4 @@
+ARTÍCULO 20º. Capacitaciones
+En el caso de capacitaciones, seminarios o congresos a que deba asistir el Auditor Interno, éstos podrán ser autorizados por la Alcaldía Municipal cuando su duración sea menor o igual a 5 días hábiles y se realicen en el país.
+Las capacitaciones mayores a 5 días hábiles o las que se desarrollen fuera del país deberán ser autorizadas por el Concejo Municipal.
+Se exceptúan de cualquier trámite de autorización, aquellas capacitaciones, seminarios o congresos menores o iguales a un día hábil o aquellos que sean convocados por la Contraloría General de la República, o alguna otra Institución Pública y que no represente costo para la Municipalidad, para lo cual se deberá de informar al Concejo Municipal o, en su defecto, a la Alcaldía Municipal, en forma previa a la fecha de la capacitación, sobre la participación en la citada actividad, lugar, fecha y entidad o dependencia que la realiza.

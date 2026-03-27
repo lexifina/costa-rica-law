@@ -1,0 +1,2 @@
+ARTÍCULO 55º. Cumplimiento de normativa jurídica y técnica
+El Auditor Interno deberá vigilar y tomar las decisiones que correspondan para que los funcionarios de la auditoría interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la auditoría interna) que les sean aplicables.

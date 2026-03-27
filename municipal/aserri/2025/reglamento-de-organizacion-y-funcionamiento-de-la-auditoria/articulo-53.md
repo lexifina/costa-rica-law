@@ -1,0 +1,3 @@
+ARTÍCULO 53º. Modificaciones al Reglamento
+El Auditor Interno, podrá proponer las modificaciones que considere oportunas al presente reglamento. El jerarca debe aprobar esa gestión en un plazo máximo de treinta días hábiles a partir de su recepción.
+Una vez aprobado el reglamento por el jerarca, el auditor interno debe someterlo a la aprobación de la Contraloría General de la República, dentro de un plazo de quince días hábiles posteriores a su recepción, cumpliendo con los requisitos indicados en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

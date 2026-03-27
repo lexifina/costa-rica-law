@@ -1,0 +1,2 @@
+ARTÍCULO 47º. Confidencialidad
+Se debe guardar la confidencialidad de la identidad del denunciante, ya sea que se genere una Relación de Hechos o una Denuncia Penal, así como la información, la documentación y otras evidencias que se generen producto de las investigaciones de conformidad con lo establecido en la Ley General de Control Interno y la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

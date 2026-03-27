@@ -1,0 +1,6 @@
+ARTÍCULO 44º. Informe y otras comunicaciones de la Auditoría Interna.
+Producto de los procesos de auditoría, la Auditoria Interna genera por escrito informes con recomendaciones, sujetas al proceso establecido en el capítulo IV de la Ley General de Control Interno.
+Requisitos y contenidos de los informes y otras comunicaciones
+El texto de los informes de auditoría o estudio especial de auditoria constará como principal división, de los cuatro siguientes capítulos: introducción, comentarios, conclusiones y recomendaciones, que se subdividirán en secciones de acuerdo con las necesidades de exposición. Sin embargo, los memorandos no necesariamente deben ordenarse de acuerdo con la división mencionada, siempre y cuando la excepción no vaya en demérito de la concisión, exactitud, objetividad, y claridad de la información.
+Recordatorio al Jerarca o al Titular Subordinado sobre plazos
+La Auditoría Interna en sus informes y oficio de remisión, cuando se usa, deberá recordar expresamente los plazos con que cuentan el Jerarca o el titular subordinado para ordenar o resolver lo que corresponda. En la copia del informe o de la nota de remisión de cada informe deberá quedar consignada la fecha de recibido por parte de la unidad o despacho destinatarios.
