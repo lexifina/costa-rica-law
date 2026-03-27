@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE HACIENDA
+MH-DGH-RES-0022-2026.-Ministerio de Hacienda.- Dirección General de Hacienda.-San José, a las once y horas con once minutos del diez de marzo de dos mil veintiséis.
+Procede la Dirección General de Hacienda a corregir error material de la resolución MH-DGH-00542025 de las ocho y treinta seis minutos del veinticinco de setiembre de dos mil veinticinco.
+Resultando:
+I.-Que la Dirección General de Hacienda emitió la resolución MH-DGH-0054-2025 de las ocho y treinta seis minutos del veinticinco de setiembre de dos mil veinticinco, con el fin de definir el procedimiento para el Ministerio de Relaciones Exteriores y Culto, para la consignación de la exoneración mediante carné (DIDIS) conforme a la legislación vigente.
+II.-Que en el considerando XVI y en el artículo 7° "Derogaciones", de la citada resolución, se consignan las resoluciones que se derogan, indicándose de forma incorrecta la DGH-032-2019 de las siete horas y diez minutos del día tres de agosto de dos mil veintidós, con un error evidente en la numeración de la misma, cuando lo que corresponde es DGH-032-2022 de las siete horas y diez minutos del día tres de agosto de dos mil veintidós.
+Considerando:
+I.-Que el artículo 5° de la Ley N° 3022 de fecha 27 de agosto de 1962, denominada "Crea Dirección General de Hacienda en el Ministerio de Hacienda", establece que el Ministro de Hacienda, el Director General de Hacienda u otro funcionario de esa Dirección, escogido por aquellos, son los únicos funcionarios facultados para autorizar, bajo su responsabilidad, las exenciones de impuestos debiendo en cada caso señalar la ley en que se ampare dicha petición.
+II.-Que el artículo 99 de la Ley N° 4755 de fecha 3 de mayo de 1971, denominada "Código de Normas y Procedimientos Tributarios", establece que los órganos de la Administración Tributaria del Ministerio de Hacienda pueden dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites fijados por las normas legales y reglamentarias pertinentes.
+III.-Que el artículo 157 de la Ley General de la Administración Pública establece que la Administración puede rectificar en cualquier momento los errores materiales, de hecho y los aritméticos.
+IV.-Que con el fin de evitar confusiones en los destinatarios y potenciales beneficiarios de lo dispuesto en la resolución MH-DGH-0054-2025 de las ocho y treinta seis minutos del veinticinco de setiembre de dos mil veinticinco, se debe corregir el error material antes indicado, dejando vigente todo el contenido adicional de la misma. Por lo tanto,
+LA DIRECCIÓN GENERAL DE HACIENDA,
+RESUELVE:
+Modificar el considerando XVI y el artículo 7° "Derogaciones" de la resolución MH-DGH-0054-2025 de las ocho y treinta seis minutos del veinticinco de setiembre de dos mil veinticinco, para corregir el error material detectado, para que cuando se hace referencia a la resolución DGH-032- 2019 se lea correctamente DGH-032-2022. En todo lo demás la resolución MH-DGH-0054-2025 permanece vigente.
+Rige a partir de su publicación. Publíquese una vez
