@@ -1,4 +1,3 @@
-Artículo 144.- En los circuitos judiciales y los tribunales donde el mejor servicio público lo requiera, podrán establecerse unidades de servicio administrativo centralizado, tales como: notificaciones, recepción de documentos, correo interno, archivo, custodia de evidencias, administración de salas de audiencias, tesorería y cualquier otra que determine la Corte , de manera que una unidad de trabajo pueda atender las necesidades y los requerimientos de dos o más tribunales.
-Las labores de estas oficinas pueden extenderse más allá de los horarios habituales, según se necesite para mejorar el servicio público.
-Estos despachos dependerán de la administración general.
-(Así reformado por el artículo 5° de la Ley N° 7728 de 15 de diciembre de 1997).
+Artículo 144.- Podrá haber en cada oficina, hasta dos servidores meritorios, nombrados por los respectivos jefes de Despacho. La relación creada bajo las previsiones de este artículo no crea derechos laborales en favor del meritorio, pero sí faculta para el ejercicio del régimen disciplinario.
+Cuando el jefe de la oficina considere inconveniente la presencia o actuación del meritorio, podrá prescindir de éste dando cuenta al Consejo.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 139 al artículo 144)

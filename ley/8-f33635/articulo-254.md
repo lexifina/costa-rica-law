@@ -1,0 +1,2 @@
+Artículo 254.- Las funciones no jurisdiccionales asignadas a la Corte, mediante leyes promulgadas con anterioridad a ésta, son, en adelante, de competencia del Consejo, con las excepciones que esta Ley establece.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 249 al artículo 254)

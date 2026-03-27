@@ -1,1 +1,2 @@
-Artículo 75.- Los miembros del Consejo Superior del Poder Judicial, propietarios o suplentes en el ejercicio del cargo, no podrán, durante su mandato, ser promovidos en ascenso mediante nombramientos que dependan del Consejo.
+Artículo 75.- El Presidente de la Corte es, a su vez, el Presidente del Consejo. Los restantes miembros serán nombrados, libremente, por la Corte, por períodos de seis años y no podrán ser reelectos, salvo que las tres cuartas partes del total de los Magistrados acuerden lo contrario.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 70 al artículo 75)

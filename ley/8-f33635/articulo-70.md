@@ -1,1 +1,2 @@
-Artículo 70.- El Presidente de la Corte es, a su vez, el Presidente del Consejo. Los restantes miembros serán nombrados, libremente, por la Corte, por períodos de seis años y no podrán ser reelectos, salvo que las tres cuartas partes del total de los Magistrados acuerden lo contrario.
+Artículo 70- Publicación y acceso. El informe de rendición de cuentas deberá ser publicado en el sitio web oficial del Poder Judicial y de la Asamblea Legislativa y estar disponible para consulta pública.
+(Así adicionado por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026)

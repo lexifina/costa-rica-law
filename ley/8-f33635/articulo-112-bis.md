@@ -1,0 +1,3 @@
+Artículo 112 bis- Corresponde al Juzgado Especializado en Delincuencia Organizada conocer de los actos jurisdiccionales de los procedimientos preparatorio e intermedio. Se procurará que un juez no asuma ambas etapas en un solo proceso.
+(Así adicionado por el artículo 18 de la Ley Creación de la Jurisdicción Especializada en Delincuencia Organizada en Costa Rica, N° 9481 del 13 de setiembre de 2017)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 107 bis al artículo 112 bis)

@@ -1,3 +1,4 @@
-Artículo 76.- El Consejo Superior del Poder Judicial deberá reunirse, ordinariamente, como mínimo dos veces por semana y, extraordinariamente, cuando sea convocado por su Presidente o por tres de sus miembros. El quórum se formará con el total de sus miembros.
-Salvo norma en contrario, las decisiones se tomarán por mayoría de votos. De no lograrse mayoría, el Presidente tendrá doble voto.
-Sin perjuicio de la aplicación del régimen disciplinario, la inasistencia injustificada a las sesiones del Consejo por tres veces consecutivas, o por seis veces alternas durante un semestre, se considerará como causal de remoción del cargo de miembro del Consejo.
+Artículo 76.- Salvo el Presidente, los tres miembros del Consejo, que a su vez son funcionarios judiciales, deberán haber laborado para el Poder Judicial, como mínimo durante cinco años.
+Dos de ellos serán escogidos entre los funcionarios que administren justicia y los demás abogados que trabajan en el Poder Judicial. El otro, entre los restantes servidores judiciales. Para elegir a este último, la Corte solicitará a todas las organizaciones de empleados del Poder Judicial, el envío de una lista de cinco candidatos.
+El abogado externo deberá tener experiencia profesional como litigante, no menor de diez años.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 71 al artículo 76)

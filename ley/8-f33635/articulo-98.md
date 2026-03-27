@@ -1,4 +1,10 @@
-Artículo 98.- Los tribunales de apelación conocerán:
-1) De las apelaciones que procedan en los asuntos de conocimiento de los juzgados de trabajo, excepto las diferidas que eventualmente deban ser conocidas por los órganos de casación.
-2) De los demás asuntos que determine la ley.
-(Así reformado por el artículo 3° aparte b) de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+Artículo 98.-Los tribunales de apelación de sentencia penal conocerán:
+1) Del recurso de apelación contra las sentencias dictadas por los tribunales unipersonales y colegiados de juicio.
+2) De la apelación contra las resoluciones que dicten los jueces del tribunal de juicio, cuando la ley acuerde la procedencia del recurso.
+3) De los impedimentos, las excusas y las recusaciones, de sus integrantes propietarios y suplentes.
+4) De los conflictos de competencia suscitados entre tribunales de juicio de su circunscripción territorial.
+5) De los conflictos suscitados entre juzgados contravencionales y tribunales de juicio de su circunscripción territorial.
+6) Del recurso de apelación de sentencia en la jurisdicción especializada penal juvenil.
+7) De los demás asuntos que se determinen por ley.
+(Así reformado por el artículo 8° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 93 al artículo 98)

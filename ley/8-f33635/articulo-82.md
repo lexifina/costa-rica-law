@@ -1,4 +1,5 @@
-Artículo 82.- Para los efectos de ejecutar el presupuesto del Poder Judicial promulgado por la Asamblea Legislativa, el Poder Ejecutivo girará al primero, por mensualidades adelantadas, los montos correspondientes a las transferencias que se le asignen, con excepción de los rubros que correspondan a salarios.
-El Consejo está autorizado para abrir cuentas a nombre del Poder Judicial en los bancos del Estado, con el propósito de depositar esos fondos y ordenar pagos contra ellos.
-Cuando las necesidades del servicio lo requieran, el Consejo podrá crear subpartidas y realizar traspasos entre gastos que le estén autorizados en las leyes de presupuesto, sin que exceda el monto total de los recursos asignados más el superávit acumulado.
-No obstante, no se podrán modificar los recursos destinados a cubrir sueldos o servicios personales, salvo que se trate de sumas acumuladas o no gastadas.
+Artículo 82- Las sesiones del Consejo serán públicas, salvo en casos especiales debidamente motivados en los que la ley disponga lo contrario.
+El Consejo podrá invitar a sus sesiones a las personas que a bien tenga, con el objeto de oír sus criterios respecto de los asuntos de su competencia.
+En cada sesión se levantará un acta, la cual constituirá una transcripción literal de todas las intervenciones efectuadas.
+(Así reformado por el artículo único de la ley N° 9782 del 12 de noviembre de 2019, “Ley para promover la publicidad, la transparencia y la rendición de cuentas en las sesiones del Consejo Superior del Poder Judicial”)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 77 al artículo 82)

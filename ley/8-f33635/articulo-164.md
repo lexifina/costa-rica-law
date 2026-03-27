@@ -1,5 +1,5 @@
-Artículo 164.- Salvo en los casos exceptuados por la ley, la competencia se suspende:
-1.- Por excusa del juez, desde que la exponga hasta que las partes se allanen o se declare inadmisible en primera instancia.
-2.- Por recusación, desde que sea legalmente interpuesta, hasta que se declare improcedente en primera instancia.
-3.- Por la excepción de incompetencia o declinatoria de competencia, desde que se le presenta el escrito en que se alega hasta que se declare sin lugar, salvo para tramitar y resolver dicha excepción, o por la declaratoria de incompetencia que haga el funcionario hasta tanto no sea revocada por el superior.
-4.- Por la apelación otorgada en ambos efectos.
+Artículo 164.- En las circunscripciones territoriales donde no exista defensor público nombrado, la asistencia podrá estar a cargo de defensores de oficio, de nombramiento del funcionario que conozca del asunto, salvo que el Jefe de la Defensa Pública recargue esas labores en un defensor público de otro territorio.
+Todo abogado que tenga oficina abierta está en la obligación de aceptar, simultáneamente, hasta dos defensas de oficio.
+El cargo de defensor de oficio es gratuito y la persona en la que recaiga el nombramiento solo puede excusarse de servirlo por motivo justo, a juicio del tribunal respectivo. El abogado o egresado de Derecho que sea designado defensor de oficio, no podrá figurar luego como defensor particular en el mismo proceso.
+(Así reformado por el artículo 6° de la Ley N° 7728 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 159 al artículo 164)

@@ -1,3 +1,5 @@
-Artículo 202.- Si los hechos denunciados pudieren ser sancionados con revocatoria de nombramiento o suspensión, o si otras circunstancias lo hicieren aconsejable, el Tribunal de la Inspección podrá separar preventivamente al servidor del cargo hasta por tres meses, con goce de salario. En tal caso, esta medida no será compensable con la sanción que se llegare a imponer.
-La potestad disciplinaria de suspensión deberá ejercitarse en forma restringida y, como se señala en el párrafo final del artículo 195, cuando existan fundadas razones para sospechar que, si el servidor sigue en el desempeño de su puesto, podrá obstaculizar o hacer nugatoria la investigación iniciada en su contra o afectar el buen servicio público.
-La misma facultad tendrá la Corte y el Consejo respecto de los servidores sobre quienes ejerza el régimen disciplinario, o que sean de su nombramiento.
+CAPITULO IV
+DEL PROCEDIMIENTO
+Artículo 202.- Las sanciones deben ser impuestas por el procedimiento establecido en esta Ley y, a falta de regla expresa, se aplicará la Ley General de la Administración Pública en lo que fuere compatible con la índole de estos asuntos y su tramitación sumaria.
+Sin embargo, la sanción de advertencia podrá imponerse sin cumplir ese procedimiento; pero, deberá escucharse previamente al interesado.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 197 al artículo 202)
