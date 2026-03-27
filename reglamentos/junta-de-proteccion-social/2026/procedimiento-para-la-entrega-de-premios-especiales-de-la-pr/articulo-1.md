@@ -1,0 +1,4 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Institución Benemérita, para hacer el bien
+Procedimiento para la entrega de premios especiales de la Promoción de Lotería Electrónica, correspondiente a activaciones realizadas con los sorteos de Nuevos Tiempos, Lotto y 3 Monazos que se celebren entre abril y noviembre, 2026
+Artículo 1°- Objeto. El objeto del presente procedimiento es regular los aspectos relacionados para el otorgamiento de premios especiales con la Lotería Electrónica a realizarse con los sorteos de Nuevos Tiempos, Lotto y 3 Monazos, que fue aprobado por la Junta Directiva de la Junta de Protección Social según acuerdo JD-104 correspondiente al Capítulo VI), artículo 8) de la sesión ordinaria 12-2026, celebrada el 09 de marzo de 2026, mediante la activación de tiquetes de Lotería Electrónica a través de la APP JPS A SU ALCANCE y automática por la compra por medio del canal www.jpsenlinea.go.cr.
