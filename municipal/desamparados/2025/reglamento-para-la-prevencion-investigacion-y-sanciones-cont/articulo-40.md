@@ -1,0 +1,2 @@
+Artículo 40. Faltas relacionadas a la figura y procedimiento.
+Será igualmente considerada como falta la conducta de quien, siendo funcionario o funcionaria de la Municipalidad, injustificadamente entorpezca o atrase una investigación de hostigamiento sexual, se negare a declarar o a brindar información sobre hechos denunciados u omitiere dar trámite a la denuncia e impulso al procedimiento, estando obligado y obligada a hacerlo.

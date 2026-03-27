@@ -1,0 +1,3 @@
+Artículo 14. Confidencialidad y acceso al expediente.
+Todo funcionario o funcionaria que participe en el recibo o tramitación de denuncia por acoso u hostigamiento sexual, incluyendo al personal miembro del órgano director y testigos, quedan obligados y obligadas a guardar la confidencialidad de la denuncia y del contenido del expediente, bajo pena de incurrir en falta que se sancionará según corresponda.
+Durante su trámite el expediente será confidencial excepto para las partes involucradas, las que tendrán libre acceso al mismo, a los documentos y pruebas que este contenga. En salvaguarda de esa confidencialidad, toda notificación que con motivo del proceso se deban llevar a cabo, será a nivel personal y respecto de las personas que en él estén involucradas.

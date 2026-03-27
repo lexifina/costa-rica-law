@@ -1,0 +1,2 @@
+Artículo 19. Plazos ordenatorios.
+A partir de la denuncia recibida, La Municipalidad tendrá un plazo de tres meses para concluir todo el proceso mediante el dictado del acto final. Dicho plazo se entenderá como ordenatorio, su incumplimiento sin causa de justificación no imputable a los miembros del órgano director genera responsabilidad para las personas integrantes del mismo. En el caso que él o la denunciada no ejerza su derecho de defensa, el proceso continuará hasta concluirse definitivamente con la resolución final.

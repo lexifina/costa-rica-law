@@ -1,0 +1,4 @@
+Artículo 24. Auto de apertura.
+Tomándose en cuenta el cómputo de los plazos de prescripción, el Órgano Director deberá emitir el auto de inicio del procedimiento administrativo tomando en consideración los hechos relatados en la denuncia interpuesta y los elementos de convicción asociados a la misma. La notificación de apertura de un procedimiento disciplinario por hostigamiento o acoso sexual se podrá realizar a través de los siguientes mecanismos:
+a) Los medios establecidos en la Ley 8687, Notificaciones Judiciales, de 4 de diciembre de 2008.
+b) Cuando se haya intentado realizar la notificación a través de los medios establecidos en el inciso anterior, pero esta no sea posible, se tendrá como medio de notificación la dirección de correo electrónico que el centro de trabajo o centro educativo le otorgó a la persona denunciada o, en su defecto, la dirección de correo electrónico propia o personal que la persona denunciada suministró en su lugar de trabajo.

@@ -1,0 +1,2 @@
+Artículo 11. Garantías para la persona denunciante y testigos.
+Ninguna persona denunciante de hostigamiento sexual o que haya comparecido como testigo de alguna de las partes, podrá sufrir por ello perjuicio personal en su trabajo. La Municipalidad debe garantizar tanto a los y las testigos, como a la persona denunciante, que no serán sancionadas por participar en el proceso, salvo aquellas situaciones donde se compruebe que existe delito de falso testimonio.
