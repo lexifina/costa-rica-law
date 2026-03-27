@@ -1,0 +1,2 @@
+Artículo 2. Alcance
+El presente reglamento tiene como alcance el ámbito territorial bajo tutela de cada corporación municipal, en este caso para el Cantón de Mora. Las disposiciones de este reglamento son aplicables a las personas autorizadas mediante licencia comercial para ser explotada en el cantón de Mora que cumpla con los requisitos establecidos en la Ley Especial para el Comercio Sobre Ruedas, Ley No. 10.254, leyes conexas y de este reglamento.

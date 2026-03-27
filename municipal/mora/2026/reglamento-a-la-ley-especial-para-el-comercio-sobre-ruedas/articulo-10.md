@@ -1,0 +1,3 @@
+Artículo 10: Notificaciones e inspecciones
+La Unidad de Policía e Inspectores Municipales, será la encargada de realizar periódicamente las inspecciones de las áreas de uso comercial destinadas y el desarrollo correcto de la actividad comercial autorizada con el fin de verificar el cumplimiento de este reglamento.
+En caso de que la Unidad Técnica de Gestión Vial técnicamente determine la necesidad de mantenimiento, rehabilitación o construcción del espacio público sobre vía cantonal donde una persona licenciataria tenga autorización de comercio al aire libre, procederá a notificar a la persona licenciataria mínimo 1 mes antes de iniciar la obra.

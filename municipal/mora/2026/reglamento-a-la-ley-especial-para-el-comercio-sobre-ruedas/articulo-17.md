@@ -1,0 +1,4 @@
+Artículo 17: Metodología de cobro de la licencia comercial para comercio sobre ruedas
+Aquellas figuras ya establecidas en el mercado, así sea en otros cantones de Costa Rica, que deseen iniciar en Mora su actividad, deberán adjuntar las proyecciones y los estudios certificados razonables para establecerse en el mercado, que ayuden a determinar el impuesto correspondiente.
+Para el resto de las figuras, que no sean las antes mencionadas, se faculta a la Municipalidad de Mora para que aplique los criterios de ponderación con las actividades iguales o similares domiciliadas dentro del Cantón.
+Se podrán aplicar criterios de tasación establecidos en la debida norma y de no existir ninguno de las calidades antes expuestas se recurrirá a la consulta de ingresos reportados por actividades iguales o similares en otras Municipalidades y/o la Administración Tributaria del Ministerio de Hacienda.

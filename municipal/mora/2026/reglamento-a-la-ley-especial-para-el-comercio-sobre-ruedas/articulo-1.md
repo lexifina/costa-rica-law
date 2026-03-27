@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE MORA
+Edicto 002-2026
+1. Transcurrido el plazo reglamentario de la primera publicación del Reglamento a la Ley Especial para el Comercio Sobre Ruedas, Ley #10.254, (publicado en el Alcance N° 1 a La Gaceta N° 1, de fecha 05 de enero de 2026) y no habiendo pronunciamiento alguno para tal Reglamento, en el uso de las facultades que le otorga la Constitución Política y Código Municipal, el Concejo Municipal en la Sesión Ordinaria número 90 celebrada el día 21 de enero del año 2026, aprueba para segunda publicación mediante acuerdo N°ACM-90-03-2026, el reglamento:
+2. REGLAMENTO A LA LEY ESPECIAL PARA EL COMERCIO SOBRE RUEDAS, LEY #10.254
+3. De conformidad con el artículo 43 del Código Municipal, se instruye al Alcalde Municipal para que proceda con la segunda publicación del texto de este Reglamento de manera íntegra en el Diario Oficial La Gaceta, para que entre a regir a partir de su publicación.
+Capítulo 1: Objetivo y alcance
+Artículo 1. Objeto
+Este reglamento tiene como objeto tutelar las actividades lucrativas que se derivan de la Ley Especial para el Comercio Sobre Ruedas, Ley No. 10.254 y normas conexas, para autorizar a las personas a la instalación y funcionamiento de los comercios sobre ruedas que se dediquen a la venta y preparación de alimentos y bebidas, venta de bienes y servicios mediante la debida licencia comercial con la intención de promover y ampliar el comercio, el aprovechamiento del espacio público, la seguridad ciudadana y generar mayor actividad económica, en un marco de respeto del derecho al libre tránsito, la accesibilidad, el mantenimiento y la protección de los espacios públicos.

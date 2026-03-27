@@ -1,0 +1,3 @@
+Artículo 18: Metodología de cobro por derecho de uso de área / zona pública para comercio sobre ruedas
+La Municipalidad podrá solicitar a un profesional en la materia de su propia Administración para realizar un avalúo que contribuya a establecer una estimación por el uso del área / zona pública autorizada para el desarrollo de la actividad comercial sobre ruedas, que serán desarrollados reglamentariamente, con el fin de mantener la equidad tributaria respetando la capacidad económica del contribuyente.
+El monto por pagar por concepto del derecho de uso de espacio otorgado mediante la licencia de comercio sobre ruedas se ostenta solamente como un permiso de uso de un espacio público sujeto al pago de un canon municipal.

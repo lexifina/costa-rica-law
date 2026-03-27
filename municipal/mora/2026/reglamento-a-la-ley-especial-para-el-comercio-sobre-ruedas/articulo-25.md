@@ -1,0 +1,1 @@
+Artículo 25: Convenios con terceros. Se faculta a esta Municipalidad para que establezcan convenios de alianza público-privada con terceros para autorizar las zonas públicas previamente autorizadas, en cumplimiento de lascondiciones expresas en Ley 10.254, Ley de Comercio Sobre Ruedas, del 14 de junio del 2022, leyes conexas y este reglamento.

@@ -1,0 +1,7 @@
+Artículo 12: Atribuciones de las personas licenciatarias
+Las personas licenciatarias que cuenten con autorización de comercio sobre ruedas tendrán las siguientes atribuciones:
+a. Utilizar un único espacio público para desarrollar la actividad comercial sobre el cual se otorgó la autorización, en los términos y las condiciones establecidos por la municipalidad, sin que se perturbe su ocupación sin un acto administrativo que fundamenta el cese de la actividad.
+b. Toda actividad se debe desarrollar únicamente sobre automotores de ruedas, según las condiciones y limitaciones definidas por la Municipalidad de Mora, no podrá mostrarse, ni mantenerse ningún producto fuera el automotor autorizado para el desarrollo de la actividad.
+c. Realizar obras de mejoramiento del espacio como la incorporación de iluminación de batería, reparación de huecos y/o de la capa de la acera o espacio autorizado, entre otras. Siempre que exista previa autorización, del Departamento de Unidad Técnica de Gestión Vial y de la Dirección de Desarrollo y Control Urbano de la Municipalidad de Mora, en el caso de vías públicas cantonales.
+d. Utilizar el material mobiliario y de decoración pertinente para el desarrollo de la actividad comercial, en el espacio público autorizado, en las condiciones definidas por la Dirección de Desarrollo y Control Urbano.
+e. Debe colocar contenedores para el depósito de cualquier tipo de basura / desecho o en su defecto podrá mantener botes en los cuales debe realizar la clasificación inmediata de los desechos por parte de los usuarios del servicio.
