@@ -1,0 +1,2 @@
+Artículo 5. Quorum del Comité de Adjudicación de Bienes Temporales
+El quórum del CABT quedará válidamente constituido con al menos dos miembros, quienes podrán tomar acuerdos dentro de los límites establecidos en el artículo 4; y las decisiones se tomarán por simple mayoría de los miembros con derecho a voto.
