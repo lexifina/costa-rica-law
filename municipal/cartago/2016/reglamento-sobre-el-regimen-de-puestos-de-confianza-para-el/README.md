@@ -18,3 +18,4 @@ Reglamento sobre el régimen de puestos de confianza para el Concejo Municipal d
 | 3 | 2018-11-27 | Reglamento municipal 0 (2018-11-27) |
 | 4 | 2021-04-06 | Reglamento municipal 0 (2021-04-06) |
 | 5 | 2025-04-29 | Reglamento municipal 78 (2025-04-29) |
+| 6 | 2026-03-30 | Reglamento municipal 148 (2026-03-30) |

@@ -1,1 +1,3 @@
 Artículo 16.-Lugar de trabajo. El personal contratado prestará sus servicios en el lugar designado al efecto por la Administración. El mismo deberá cumplir con las condiciones mínimas para la efectiva y adecuada prestación del servicio, entre las que se incluye el espacio, las condiciones logísticas, de equipamiento y de salud ocupacional en general; sin perjuicio de que por la índole de las funciones que se le encomiende, deba desplazarse a otros lugares, inclusive fuera del cantón.
+El lugar y las condiciones de teletrabajo se dispondrán de acuerdo a lo dispuesto en el Reglamento Interno para la Aplicación del Teletrabajo y el contrato de teletrabajo de la persona funcionaria de fracción.
+(Así reformado en sesión N° 148 del 30 de marzo de 2026)
