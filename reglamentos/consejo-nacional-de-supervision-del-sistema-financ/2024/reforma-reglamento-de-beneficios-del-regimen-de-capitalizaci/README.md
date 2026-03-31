@@ -14,3 +14,4 @@ Reforma Reglamento de beneficios del Régimen de capitalización individual
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-03-31 | la propia norma |
+| 2 | 2026-03-31 | Reglamento 1927 (2025-03-28) |

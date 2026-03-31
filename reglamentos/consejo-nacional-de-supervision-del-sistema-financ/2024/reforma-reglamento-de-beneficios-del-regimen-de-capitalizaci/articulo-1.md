@@ -23,5 +23,6 @@ dispuso por unanimidad y en firme:
 aprobar la modificación del párrafo primero del Transitorio I del Reglamento de Beneficios del Régimen de Capitalización Individual cuyo texto se leerá:
 Transitorio I.-De la Administración.
 Hasta el 31 marzo de 2025 los recursos correspondientes a las distintas modalidades de pensión complementaria se administrarán dentro del fondo correspondiente al Régimen Obligatorio de Pensiones de cada entidad.
-[…]
+[..]
 Vigencia: Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Nota de Sinalevi: Mediante sesión N° 1927 del 28 de marzo del 2025, el Consejo Nacional de Supervisión del Sistema Financiero Nacional, acordó modificar la entrada en vigencia de lo acordado en el artículo 6 del acta de la sesión 1908-2024, celebrada el 13 de diciembre del 2024, y por directa consecuencia de lo establecido mediante acuerdo que consta en el artículo 5 del acta de la sesión 1924-2025, celebrada el 20 de marzo de 2025, el plazo contemplado en el primer párrafo del Transitorio I del Reglamento de beneficios del régimen de capitalización individual, debe entenderse también prorrogado por el plazo de un año, es decir, hasta el 31 de marzo de 2026. Dado lo anterior esta norma entrará a regir a partir del 31 de marzo del 2026.)
