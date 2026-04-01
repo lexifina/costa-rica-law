@@ -1,0 +1,1 @@
+Artículo 2º- Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número MH-DGH-RES-0023-2025 de las doce horas y quince minutos del siete de marzo de dos mil veinticinco, publicada en el Alcance N°38 a La Gaceta N°52 del 18 de marzo de 2025.
