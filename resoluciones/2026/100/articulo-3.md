@@ -1,0 +1,1 @@
+Artículo 3: Todas las clases de puestos asignadas a la Escala de Sueldos de la Administración Pública quedan revaloradas de acuerdo con lo establecido en los artículos 1 y 2 de la presente resolución, considerando la categoría y nivel salarial que ostenten al 31 de marzo del 2026, conforme con lo detallado en la Escala de Sueldos e Índices Salariales respectivos.
