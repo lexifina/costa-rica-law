@@ -1,0 +1,3 @@
+Artículo 16.-Aseguramiento de las obras seleccionadas.
+La Municipalidad brindará la vigilancia de las obras seleccionadas en segunda instancia y suscribirá una póliza de seguros por robo, hurto o daño malicioso o actos de personas malintencionadas, o cualquier otro que contemple el aseguramiento de las colecciones de obras de arte que se exponen en el Museo Municipal de Cartago.
+Sin perjuicio de lo anterior la Municipalidad no asume responsabilidades por daños en general a las obras causados por caso fortuito o fuerza mayor, eventos naturales, incluidos de carácter climatológico, o en caso de que las obras presenten daños causados por el embalaje, el desembalaje y el transporte de las mismas; en su montaje o en su desmontaje.
