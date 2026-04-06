@@ -1,0 +1,1 @@
+Artículo 12.-Enlaces. Se deberá designar un Enlace con la Comisión de Ética y Valores. Los enlaces colaborarán con la Comisión en la articulación de actividades y la transmisión de información a nivel local. Los enlaces serán convocados cuando así lo disponga la CIEV.
