@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Contraloría de Servicios del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
+| 2 | 2026-04-06 | Decreto Ejecutivo 45749 (2026-04-06) |
