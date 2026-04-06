@@ -1,4 +1,0 @@
-Artículo 28.—Prohibiciones a los encargados de intervenir en el proceso. A los funcionarios y servidores judiciales, así como al personal de salud aquí autorizado, que participen en la obtención del material biológico, el encargado de obtener y registrar el perfil genético, así como el responsable de almacenar la información personal del donante del material biológico, se les prohíbe lo siguiente:
-1. Utilizar el material biológico del donante, para propósitos distintos a la identificación humana.
-2. Violar la confidencialidad y revelar a terceras personas no autorizadas, la información registrada en la Base de Datos de ADN.
-3. Participar en cualquiera de las etapas del procedimiento de la Base de Datos de ADN, cuando exista alguna de las causales de recusación de las reguladas en el Código Procesal Penal.

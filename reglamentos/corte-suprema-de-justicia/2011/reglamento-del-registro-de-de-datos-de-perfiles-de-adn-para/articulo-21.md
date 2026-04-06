@@ -1,1 +1,0 @@
-Artículo 21.—Organización de la Información Codificada de Perfiles genéticos. La información codificada de los perfiles genéticos está organizada dentro de la Base de Datos de ADN, por el Archivo para la Identificación de Personas Desaparecidas y Restos Cadavéricos y el Archivo Penal. Solo podrán ser comparados entre sí, los perfiles genéticos pertenecientes a un mismo archivo.

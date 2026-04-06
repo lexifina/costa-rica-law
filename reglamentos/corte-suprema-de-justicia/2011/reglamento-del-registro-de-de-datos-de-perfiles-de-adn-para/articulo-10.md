@@ -1,1 +1,0 @@
-Artículo 10.—Acceso de Terceros a la Información. La información que integra la Base de Datos de ADN podrá ser compartida con las Autoridades Fiscales, Judiciales o Policiales de terceros países, cuando expresamente así se disponga por Convenios Internacionales suscritos por Costa Rica o por Ley.

@@ -1,3 +1,0 @@
-Artículo 29: Obligación del Juez, Fiscal y encargados de la Base de Datos. Será obligación del Juez o Fiscal, comunicar al Departamento de Ciencias Forenses, cuando se ha dispuesto la cancelación de la información que fue introducida en la Base de Datos de ADN en los casos previstos en el artículo 25 de este Reglamento. Por su parte, el servidor judicial encargado de la Base de Datos de ADN, deberá cumplir con la orden emitida por la Autoridad Judicial. La inobservancia de lo aquí dispuesto será motivo de causa disciplinaria, sin perjuicio de la acción penal que pueda ser iniciada contra el funcionario que omita su cumplimiento.
-(Así reformado mediante circular N° 163-2022 del 31 de agosto de 2022)
-San José, 8 de agosto de 2011.

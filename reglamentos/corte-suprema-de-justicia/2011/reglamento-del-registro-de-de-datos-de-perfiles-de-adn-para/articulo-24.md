@@ -1,6 +1,0 @@
-Artículo 24.—Archivo Penal. El Archivo Penal, lo integran cuatro registros:
-1. Registro de muestras dubitadas o pendientes de asociación, incluye los perfiles genéticos obtenidos de muestras biológicas recolectadas en la investigación penal y que corresponden a personas no identificadas.
-2. Registro de muestras indubitadas o perfil genético individualizado, incluye el perfil genético del imputado sometido a investigación penal y del imputado sobre el cual recae sentencia condenatoria, en ambos casos por delitos dolosos sancionados con pena de cinco o más años de prisión o por delitos de crimen organizado, estos últimos descritos en los artículos 1 y 16 de la Ley de Crimen Organizado. Así mismo, será incluido en la Base de Datos de ADN, el perfil genético de todo aquel imputado, que en el proceso penal usurpe la identidad de otra persona.
-También forma parte del registro de muestras indubitadas, el perfil genético de las víctimas de un delito, que voluntariamente bajo un consentimiento informado, admita ser incluida en la Base de Datos de ADN
-3. Registro de los perfiles genético obtenido a partir de personas desaparecidas y restos cadavéricos.
-4. Registro de los perfiles genéticos correspondientes a los funcionarios y servidores judiciales, que participan en el proceso de la recolección y análisis del material biológico.

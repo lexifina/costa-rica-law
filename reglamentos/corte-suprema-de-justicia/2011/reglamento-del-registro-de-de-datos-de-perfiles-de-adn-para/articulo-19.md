@@ -1,1 +1,0 @@
-Artículo 19.—Destrucción de la muestra biológica. La muestra biológica recolectada para los fines de este reglamento, será conservada por un período máximo de diez años, contados a partir de su recolección o recepción por el Departamento de Ciencias Forenses, pasado este plazo las mismas serán destruidas, previa comunicación al Juez o Ministerio Público.
