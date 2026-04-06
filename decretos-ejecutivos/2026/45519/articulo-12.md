@@ -1,0 +1,1 @@
+Artículo 12°-Plazo. Las solicitudes de condonación se deberán presentar dentro de los cinco años contados a partir de la entrada en vigencia del presente reglamento. Todos los procedimientos presentados en tiempo, se les dará trámite y resolución hasta su conclusión.
