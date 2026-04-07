@@ -1,0 +1,2 @@
+Artículo 8 BIS. El otorgamiento de la "Orden Rita Mora López" implicará en forma simultánea la declaración del designado como "Hijo Predilecto del Cantón de Belén, si fuera belemita de nacimiento, como "Ciudadano Ilustre" si se tratara del caso de una persona nacida en otro sitio que haya residido al menos 20 años ininterrumpidos en el cantón.
+(Así adicionado en sesión N° 20 del 7 de abril de 2026)

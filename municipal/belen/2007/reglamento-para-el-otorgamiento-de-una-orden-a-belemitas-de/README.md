@@ -16,3 +16,4 @@ Reglamento para el Otorgamiento de una Orden a Belemitas de Trayectoria en el Se
 | 1 | 2007-04-27 | la propia norma |
 | 2 | 2020-12-07 | Reglamento municipal 71 (2020-12-07) |
 | 3 | 2024-01-11 | Reglamento municipal 2 (2024-01-11) |
+| 4 | 2026-04-07 | Reglamento municipal 20 (2026-04-07) |
