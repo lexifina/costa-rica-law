@@ -1,2 +1,3 @@
-ARTÍCULO 2.- Interés público
-Esta ley es de orden público e interés social; está destinada a lograr un ambiente libre de acoso escolar o “bullying” físico, sexual, psicológico, verbal y cibernético, procurando el respeto de los derechos humanos y el cumplimiento de los principios de tolerancia, respeto a la dignidad humana, igualdad, equidad y convivencia pacífica y social.
+Artículo 2- Interés público
+Esta ley es de orden público e interés social; está destinada a lograr un ambiente libre de acoso escolar o "bullying" físico, sexual, psicológico, verbal y cibernético, propiciar la ejecución de las acciones judiciales pertinentes en procura de la reparación del daño y evitar prácticas de revictimización, procurando el respeto de los derechos humanos y el cumplimiento de los principios de tolerancia, respeto a la dignidad humana, igualdad, equidad y convivencia pacífica.
+(Así reformado por el artículo 1° de la Ley para fortalecer la protección frente al acoso escolar, N° 10894 del 7 de abril del 2026)
