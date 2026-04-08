@@ -58,6 +58,7 @@ articulo-57.md
 articulo-58.md
 articulo-59.md
 articulo-59-bis.md
+articulo-59-ter.md
 articulo-60.md
 articulo-61.md
 articulo-62.md

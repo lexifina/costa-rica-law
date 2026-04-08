@@ -17,3 +17,4 @@ Reglamento a la Ley General de Contratación Pública
 | 2 | 2024-09-18 | Ley 10524 |
 | 3 | 2024-10-09 | Decreto Ejecutivo 44745 (2024-10-09) |
 | 4 | 2026-03-09 | Decreto Ejecutivo 45763 (2026-03-09) |
+| 5 | 2026-04-08 | Decreto Ejecutivo 45782 (2026-04-08) |

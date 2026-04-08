@@ -1,4 +1,5 @@
-Artículo 309. Materia consultiva en Contratación Pública. Le corresponde a la Dirección de Contratación Pública, atender las consultas de la Administración o terceros relacionadas en materia específica de sus competencias previstas en la Ley General de Contratación Pública.
+Artículo 309. Materia consultiva en Contratación Pública. Le corresponde a la Dirección de Contratación Pública atender las consultas de la Administración relacionadas con la materia específica de sus competencias previstas en la Ley General de Contratación Pública.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 45782 del 8 de abril de 2026)
 Las consultas que se presenten para la atención de la Dirección de Contratación Pública deberán cumplir con los lineamientos que esta Dirección emita al efecto.
 Los criterios que emita la Dirección de Contratación Pública en el ejercicio de esta competencia serán vinculantes para los sujetos consultantes de la Administración Central y en caso de que la consulta pertenezca a la Administración descentralizada, ésta podrá apartarse del criterio siempre y cuando emita un acto motivado.
 Asimismo, le corresponderá a la Contraloría General de la República atender las consultas que en materia de su competencia le otorga la Ley Orgánica de la Contraloría General de la República, Ley N°7428, de 07 de setiembre de 1994.
