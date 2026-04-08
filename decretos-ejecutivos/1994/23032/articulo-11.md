@@ -1,1 +1,0 @@
-Articulo 11° Estos bonos o Títulos de Propiedad que se emitan con su respaldo, se entregarán a los Partidos Políticos como pago de los gastos en que incurrieron en la campaña política 93-94 según lo disponga la Contraloría General de la República y el Tribunal Supremo de Elecciones.

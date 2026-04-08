@@ -1,2 +1,0 @@
-Artículo 4° Estos bonos estarán a cargo del Tesoro Público y llevarán en facsimil las firmas del Ministerio de Hacienda y del Tesoro Nacional, el sello blanco de la República, el sello del Banco Central y todas las seguridades de impresión, uso de materiales y registros que se crean convenientes para los valores de esta naturaleza.
-Para los propósitos de control interno mecanizado del Banco Central de Costa Rica, esta emisión llevará impreso tanto en los bonos como en los cupones el siguiente número de referencia 348.

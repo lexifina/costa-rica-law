@@ -1,1 +1,0 @@
-Articulo 5° Los bonos irán numerados del N° 1 al N° 16, serán amortizado mediante 16 cuotas trimestres que corresponderán con la fecha de cancelación de intereses, la primera amortización deberá realzarse el 1° de julio de 1994

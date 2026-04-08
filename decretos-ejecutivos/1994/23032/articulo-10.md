@@ -1,2 +1,0 @@
-Articulo 10° El Ministerio de Hacienda podrá emitir bonos provisionales hasta por un monto total de ¢1.600 000 00 provistos de las mismas firmas, así como los requisitos y seguridades que la Tesorería Nacional, estime necesarios, conforme con lo establecido en este reglamento y podrán ser canjeados por los definitivos cuando ello proceda. Dichos certificados llevarán el refrendo del señor Contralor General de la República.
-Estos títulos provisionales serán canjeados por los definitivos cuando la Tesorería Nacional lo juzgue oportuno.

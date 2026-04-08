@@ -1,2 +1,0 @@
-Artículo 3° Estos bonos irán fechados 20 de abril de 1994 y su plazo será de 4 años y tendrán una cuota trimestral fija de ¢0.0922699080 por colón para atender la amortización e intereses.
-Devengarán un interés anual del 20% pagaderos por trimestre vencidos al día 1° de cada uno de los meses de julio y octubre (1994), enero, abril, mayo, junio y octubre (1995-1996 y 1997), enero y abril (1998) y para atender el servicio de amortización e intereses de dichos bonos se incluirá en el Presupuesto Ordinario de la República la suma anual de ¢295,263.705, 53
