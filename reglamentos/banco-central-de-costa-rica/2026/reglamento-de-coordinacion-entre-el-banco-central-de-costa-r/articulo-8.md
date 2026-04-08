@@ -1,0 +1,6 @@
+Capítulo II. Administración y manejo de las colecciones
+Artículo 8. Adquisición de objetos para la colección
+La Fundación será la encargada de planificar la adquisición de objetos de las colecciones y solicitar la aprobación al BCCR, a más tardar en los primeros seis meses de cada año, en atención a los plazos establecidos en las normativas aplicables.
+La planificación deberá contemplar la recomendación para los casos de urgencia que puedan presentarse, dada la naturaleza de los objetos de colección.
+Toda propuesta de adquisición de nuevas piezas para una colección deberá incluir los estudios técnicos correspondientes (tales como dictamen curatorial, dictamen y aprobación del Museo de Arte Costarricense, en los casos que amerita, entre otros documentos), el costo previsto del seguro requerido (impacto presupuestario), así como documentación establecida por la normativa de contratación pública, dentro del análisis remitido al BCCR.
+El Banco podrá definir el monto del presupuesto destinado para las compras de objetos de colección de acuerdo con los lineamientos de formulación y restricciones del gasto que establezca anualmente la Junta Directiva, revisar los objetos a adquirir a partir del presupuesto aprobado, las prioridades definidas por la Fundación y ejecutar el proceso de contratación pública correspondiente.

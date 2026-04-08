@@ -1,0 +1,3 @@
+Artículo 4. Propiedad de las colecciones.
+El propietario de las colecciones es el BCCR, incluyendo cualquier objeto que las incremente, producto de adquisiciones que realice ya sea el propio BCCR o la Fundación con la autorización expresa de la Gerencia del BCCR, por medio de la compra, donación, legado, transferencia, intercambio o las adquisiciones producto de hallazgos o recolecciones efectuadas por dichas entidades de conformidad con las leyes vigentes.
+Por lo anterior, toda adquisición o descatalogación de cualquier objeto de la colección, deberá contar con la aprobación previa y expresa de la Gerencia del BCCR, o del funcionario que ésta designe, una vez considerado el criterio técnico de la Fundación.

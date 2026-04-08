@@ -1,0 +1,3 @@
+Artículo 18. Conservación de objetos
+La Curaduría y el Departamento de Gestión de Colecciones trabajarán en conjunto continuamente para diagnosticar y determinar las necesidades de conservación que tenga cada objeto basado en sus características físicas, condiciones medioambientales, espacios de almacenamiento y exhibición, y realizarán un informe del estado de conservación de los objetos de colección.
+Este diagnóstico deberá ser anexado como parte del informe sobre la administración de las colecciones y bienes inmuebles, entregado anualmente al BCCR, según lo documentado en las Políticas específicas emitidas por la Gerencia.

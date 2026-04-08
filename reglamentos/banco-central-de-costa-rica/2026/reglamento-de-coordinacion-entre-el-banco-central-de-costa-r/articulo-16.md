@@ -1,0 +1,4 @@
+Artículo 16. Traslados
+La reubicación de obras dentro de un mismo edificio ya sea el del BCCR, los ODM o el de los Museos del BCCR, cuando sea mayor a 48 horas, requerirá que la Fundación Museos notifique al BCCR los cambios con un mínimo de 24 horas de anticipación a la ejecución del traslado y, además, actualice la información en la base de datos dentro de un plazo de 5 días hábiles contados a partir de la ejecución del traslado.
+Deberá ofrecer al colaborador al que se le retiró la obra la posibilidad de reemplazarla durante el tiempo en que la pieza esté en otra ubicación, o bien, sustituirla por una nueva.
+En caso de movimientos de piezas de las colecciones dentro de las mismas bóvedas por parte de los curadores de la FMBCCR con fines investigativos, la Fundación Museos deberá notificar al BCCR cuando el movimiento sea mayor a cinco días hábiles.

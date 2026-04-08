@@ -1,0 +1,2 @@
+Artículo 23. Otros aspectos relevantes referentes a la relación entre el Banco Central y la Fundación.
+En la medida que se respete el ordenamiento jurídico vigente y con el fin de propiciar el cumplimiento de los fines y objetivos que tiene la Fundación, el Banco Central podrá donar a la primera bienes en desuso, brindarle los servicios complementarios que requiera y otras mejoras debidamente justificadas, según sus posibilidades, y en el tanto ello no impida de alguna forma el cumplimiento de sus deberes y obligaciones.

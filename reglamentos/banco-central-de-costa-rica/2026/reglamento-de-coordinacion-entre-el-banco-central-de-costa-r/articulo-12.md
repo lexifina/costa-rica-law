@@ -1,0 +1,2 @@
+Artículo 12.- Activos no incorporables a una colección establecida.
+En caso de que la Fundación considere que un activo del BCCR no debe incorporarse a una colección, a partir del estudio técnico correspondiente, coordinará con el BCCR la inclusión del objeto en cuestión en una nueva categoría, para su registro y el cuidado correspondiente, por tratarse de un activo público a su cargo. El BCCR procederá a su aseguramiento.
