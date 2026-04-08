@@ -1,1 +1,0 @@
-Artículo 7° Se modifica el artículo 5° del decreto ejecutivo N° 19590-H del 16 de abril de 1990, a efecto de que títulos a que el mismo se refiere se emitan por montos de ¢500.000,00, ¢1.000.000.00, ¢5.000,000.00, ¢10,000.000,00 y…………¢20,000, 000.00
