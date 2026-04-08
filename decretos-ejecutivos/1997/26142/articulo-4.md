@@ -1,1 +1,0 @@
-Artículo 4° Estos bonos estarán a cargo del Tesoro Público, llevarán en facsímil las firmas del Ministro de Hacienda y del Tesorero Nacional, el sello blanco de la República, el sello de Banco Central y todas las seguridades de impresión, uso de materiales y registros que se crean convenientes para valores de esta naturaleza.

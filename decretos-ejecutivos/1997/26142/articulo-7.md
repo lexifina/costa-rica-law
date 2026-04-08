@@ -1,1 +1,0 @@
-Artículo 7° El servicio de amortización e intereses lo hará el Banco Central de Costa Rica, de acuerdo con lo que dispone el artículo de su Ley Orgánica N°7558. El Banco sólo estará obligado a atender el servicio de valores a que se refiere este reglamento cuando se le haga traspaso oportunamente los fondos necesarios para ese efecto.

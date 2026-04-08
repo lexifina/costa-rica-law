@@ -1,1 +1,0 @@
-Articulo 5° Los bonos irán numerados del N°1 al N°60, serán amortizados mediante 60 cuotas trimestrales que corresponderán con la fecha de cancelación de intereses; la primera amortización deberá realizarse el 1 de junio de 1997.
