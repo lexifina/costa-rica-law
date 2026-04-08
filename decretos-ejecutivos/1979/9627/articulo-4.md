@@ -1,2 +1,0 @@
-Artículo 4° La tasa diferencial, que se reconoce en los pactos a plazo, se hace efectiva a la hora de realizarse la liquidación del cupón de intereses, igual tratamiento se dará a los bonos colocados en firme con reconocimiento de una sobretasa.
-El comprobante de venta se estipulará el plazo y el tipo de interés pactados. La presentación de este documento es indispensable tanto en el cobro de intereses como para hacer efectivo el pacto.
