@@ -1,1 +1,0 @@
-Artículo 10.- Los títulos a que se refiere este decreto (interés fijo y ajustable) podrán ser colocados por ventanilla o mediante subasta. En este último caso se podrán subastar por precio o por tasa ofrecida.

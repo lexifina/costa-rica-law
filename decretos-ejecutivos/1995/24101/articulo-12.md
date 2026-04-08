@@ -1,1 +1,0 @@
-Artículo 12.- El Banco Central como cajero del Gobierno y los demás bancos autorizados como cajeros auxiliares, atenderán el servicio de estos títulos, cancelándolos en dólares estadounidenses cobrando los respectivos rubros al Ministerio de Hacienda a través de la cámara de compensación.

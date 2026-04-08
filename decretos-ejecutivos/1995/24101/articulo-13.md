@@ -1,1 +1,0 @@
-Artículo 13.- La Tesorería Nacional abrirá una cuenta en dólares en el Banco Central a efecto de trasladar a ella los dólares provenientes de las colocaciones de estos títulos, que serán utilizados en el servicio de la deuda externa.

@@ -1,1 +1,0 @@
-Artículo 9.- Para efectos del cálculo de los intereses trimestrales o semestrales se considerará la Tasa Libor a seis meses informada por el Banco Central de Costa Rica para el día hábil inmediato anterior al inicio del respectivo trimestre o semestre.

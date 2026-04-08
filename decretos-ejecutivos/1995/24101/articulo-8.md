@@ -1,1 +1,0 @@
-Artículo 8.- Los intereses serán pagaderos trimestral o semestralmente y se establecerán en función de la Tasa Libor (London Interbank Offering Rate), más un margen que definirá la Tesorería Nacional, según el plazo, y las condiciones del mercado.
