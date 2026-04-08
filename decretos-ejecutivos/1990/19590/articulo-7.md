@@ -1,1 +1,0 @@
-Artículo 7°.-Los títulos de interés ajustable ser n de dos clases amortizables semestralmente y amortizables a su vencimiento. Los primeros se amortizarán semestralmente por sumas iguales durante el período de la inversión y serán cobrables a partir de las fechas de vencimiento de los respectivos cupones de interés. Los segundos se pagarán a su presentación una vez vencidos.

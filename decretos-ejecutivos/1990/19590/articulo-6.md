@@ -1,1 +1,0 @@
-Artículo 6°.-Cada emisión estará a disposición de los inversionistas durante un plazo máximo de 30 días calendario. El primer cupón devengará intereses a partir de la fecha de venta del título por lo que esta fecha se indicará en el título y en dicho cupón.

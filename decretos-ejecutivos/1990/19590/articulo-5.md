@@ -1,1 +1,0 @@
-Artículo 5°.-Los títulos de cada serie tendrán la misma fecha de emisión y la misma fecha de vencimiento. La Tesorería Nacional, definirá los montos a emitir de cada serie. Los títulos se emitirán por montos de ¢ 1.000.000,00, ¢ 10.000.000,00 y ¢ 20.000.000,00.

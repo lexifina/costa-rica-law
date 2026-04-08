@@ -1,2 +1,0 @@
-Artículo 10°.-El Ministerio de Hacienda, en la medida de sus posibilidades, hará divulgación del TIAB vigente en forma diaria o semanal, e informará oportunamente sobre el TIAB que corresponde aplicar en cada fecha de vencimiento de los cupones. Esta información deberá suministrarse a los bancos comerciales del Estado y a los agentes e intermediarios financieros y bursátiles que directamente así lo soliciten.
-Los datos y procedimientos que se utilicen en el cálculo del TIAB estarán a disposición de los interesados que los soliciten por escrito a la Tesorería Nacional.

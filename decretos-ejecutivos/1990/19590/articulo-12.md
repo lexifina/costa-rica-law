@@ -1,1 +1,0 @@
-Artículo 12°.-El Ministerio de Hacienda, continuará, como hasta ahora, ofreciendo títulos de propiedad a tasas de mercado no ajustable para plazos de 6 a 360 días. Asimismo podrá emitir títulos con características diferentes en cumplimiento de convenios suscritos con instituciones del Sector Público.
