@@ -1,1 +1,0 @@
-Artículo 83.-Trazabilidad de SICOP. SICOP permite visualizar el estado en que se encuentran los procedimientos de contratación administrativa, así como los responsables en cada una de esas fases y el cumplimiento de los plazos establecidos para cada uno de ellos; además, alerta a los responsables de cada fase sobre el vencimiento de sus procesos.

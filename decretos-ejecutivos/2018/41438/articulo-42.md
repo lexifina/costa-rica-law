@@ -1,3 +1,0 @@
-Artículo 42.-Apertura de ofertas. Las ofertas permanecerán encriptadas e inaccesibles hasta la fecha y la hora señalada para el acto de apertura; solo hasta ese momento serán desencriptadas, y estarán disponibles a todos los interesados una vez que SICOP registre y genere un acta de las ofertas recibidas, la cual será agregada al expediente respectivo, todo ello según la normativa especial aplicable a la institución usuaria.
-Los oferentes podrán efectuar observaciones en forma electrónica dentro del plazo
-establecido en el cartel para tal efecto. En caso de que se presenten observaciones, éstas se consignarán en el expediente y serán valoradas cuando corresponda.

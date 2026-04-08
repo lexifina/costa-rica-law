@@ -1,2 +1,0 @@
-Artículo 96.-Condiciones para la utilización de SICOP. Los proveedores registrados deberán aceptar las Políticas de uso, disponer de los certificados de firma digital emitidos por una autoridad certificadora debidamente registrada, cumplir los requisitos que establece el presente Reglamento y realizar todas sus actuaciones únicamente por medio de SICOP, salvo los casos de excepción al uso del Sistema, estipulados en el presente Reglamento.
-Será responsabilidad del proveedor registrado la obtención oportuna de la firma digital certificada y el uso adecuado de esta.

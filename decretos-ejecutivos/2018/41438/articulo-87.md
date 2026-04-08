@@ -1,1 +1,0 @@
-Artículo 87.-Requerimientos técnicos. Las personas físicas y jurídicas, así como las instituciones usuarias que deseen hacer uso de SICOP, deberán cumplir los requerimientos técnicos que se definan en las Políticas de uso; además, serán responsables del mantenimiento de los medios que adquieran e instalen para la utilización de SICOP.

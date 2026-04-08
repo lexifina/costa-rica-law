@@ -1,3 +1,0 @@
-Artículo 40.-Ingreso de la oferta. Las ofertas deberán ser presentadas dentro del plazo previsto para tal efecto en el cartel, pero permanecerán encriptadas e inaccesibles hasta la hora y la fecha señaladas en el cartel para la apertura de ofertas.
-La oferta se tendrá por ingresada en la hora y la fecha que se registre mediante el certificado de estampado de tiempo.
-Cada una de las propuestas ofertadas participará únicamente en el concurso para el que fue presentada, asumiendo el oferente las consecuencias que se puedan generar por su falta de cuidado o cualquier error imputable a él en el momento de ingresar su oferta y la documentación complementaria.

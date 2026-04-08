@@ -1,1 +1,0 @@
-TRANSITORIO I.-Los procedimientos de contratación administrativa, iniciados en formato físico por las instituciones usuarias de SICOP con anterioridad a la publicación del presente Reglamento en el diario oficial La Gaceta, continuarán su trámite hasta su finiquito.

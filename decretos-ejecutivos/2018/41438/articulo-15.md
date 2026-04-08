@@ -1,1 +1,0 @@
-Artículo 15.- El Registro electrónico de proveedores. SICOP contará con un responsable del prestador del servicio del Registro electrónico de proveedores, quien tendrá bajo su responsabilidad el manejo centralizado, así como velar por la actualización de la información aportada por los proveedores al momento de su inscripción, garantizando su calidad y buen funcionamiento.

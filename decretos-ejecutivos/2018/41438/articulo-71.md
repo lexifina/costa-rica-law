@@ -1,3 +1,0 @@
-Artículo 71.-Uso de factura electrónica. SICOP brindará la funcionalidad de envío y recepción de facturas electrónicas, de conformidad con las disposiciones que emita en ese sentido la Dirección General de Tributación del Ministerio de Hacienda.
-Las instituciones usuarias y los proveedores registrados que deseen utilizar la factura
-electrónica deberán efectuar las gestiones correspondientes ante la Dirección General de Tributación para que se les autorice la recepción y la emisión de facturas electrónicas, según corresponda, así como también deberán cumplir todos los requisitos que dicho órgano disponga.

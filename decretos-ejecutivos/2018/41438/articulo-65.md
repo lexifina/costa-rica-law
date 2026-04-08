@@ -1,1 +1,0 @@
-Artículo 65.-Acuse de recibo. Cada vez que una institución usuaria o un proveedor registrado envíen un documento por medio de SICOP, el Sistema emitirá un acuse de recibo electrónico que permitirá acreditar la fecha y la hora de la recepción.

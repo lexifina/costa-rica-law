@@ -1,1 +1,0 @@
-Artículo 17.-Invitación a integrar el Registro electrónico de proveedores. Sin perjuicio de la normativa aplicable a la institución usuaria, por medio del portal de SICOP se efectuará una invitación anual para integrar el Registro electrónico de proveedores de este Sistema. Esto no obsta para que los interesados se inscriban en cualquier momento.

@@ -1,1 +1,0 @@
-Artículo 41.-Prórroga del plazo para recepción de ofertas. Cuando sea necesario prorrogar el plazo de apertura de ofertas, la institución usuaria deberá realizar en el sistema la correspondiente prórroga, de conformidad con lo establecido en la normativa aplicable.

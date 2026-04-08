@@ -1,1 +1,0 @@
-Artículo 93.-Actualización de registros. Las instituciones usuarias deben mantener actualizada la información del Catálogo de bienes, servicios, portal y expediente electrónico. Asimismo, deberán mantener actualizado las sanciones en el Registro electrónico de proveedores.

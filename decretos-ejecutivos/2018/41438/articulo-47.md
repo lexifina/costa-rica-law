@@ -1,1 +1,0 @@
-Artículo 47.-Plazo para rendir la garantía de cumplimiento. El adjudicatario se encuentra obligado a asegurar el contrato dentro del plazo indicado en el cartel, o en su defecto, dentro de los diez días hábiles siguientes a la firmeza de la adjudicación, salvo los casos en los que se requiera formalización contractual.

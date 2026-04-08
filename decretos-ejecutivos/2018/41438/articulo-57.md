@@ -1,2 +1,0 @@
-Artículo 57.-Comunicación del plan de adquisiciones. Todas las instituciones usuarias deberán divulgar el respectivo programa de adquisiciones y sus modificaciones en el portal de SICOP. Lo anterior se ejecutará sin perjuicio de cumplir las publicaciones que se requieran, de acuerdo con la normativa vigente.
-Se exceptúan de esta publicación las instituciones usuarias que por norma especial no estén obligadas a publicar dicho plan.
