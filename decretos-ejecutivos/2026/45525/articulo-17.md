@@ -1,0 +1,2 @@
+Artículo 17.- Frecuencia de las inspecciones. Las inspecciones se llevarán a cabo en el momento del atraque de la embarcación al puerto. Adicionalmente, si se sospecha de un evento de salud pública, una emergencia médica o si se trata de un buque granelero que requiera muestreo, las inspecciones se realizarán de inmediato al momento del arribo.
+Las embarcaciones que cuenten con un Certificado de Control de Sanidad válido y vigente podrán quedar exentas de inspecciones rutinarias, a menos que la autoridad sanitaria lo considere necesario.

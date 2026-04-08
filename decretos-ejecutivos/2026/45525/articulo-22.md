@@ -1,0 +1,2 @@
+Artículo 22.- De las Medidas Preventivas. Las embarcaciones deben disponer de documentación en idioma español que detalle los planes de control de plagas, incluyendo desratización y las medidas para eliminar insectos vectores.
+Se deberán implementar procedimientos adecuados para la gestión de aguas residuales, residuos sólidos, alimentos y mercancías peligrosas que puedan representar un riesgo sanitario.

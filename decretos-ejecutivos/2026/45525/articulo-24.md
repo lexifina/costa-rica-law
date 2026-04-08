@@ -1,0 +1,3 @@
+Capítulo VI
+Requisitos de Personal y Equipo de Protección Personal para Inspecciones de Buques
+Artículo 24. El Ministerio de Salud implementará estándares de seguridad para la inspección de buques. El Ministerio de Salud, establecerá los requisitos de personal y equipo de protección personal (EPP) necesarios para llevar a cabo inspecciones de buques de manera segura, garantizando la protección del personal y minimizando los riesgos asociados con las operaciones de inspección en embarcaciones, según lo indicado en los Anexos 4 y 5 de este reglamento. El plazo de cumplimiento de dicho articulo será el indicado en el transitorio único del presente reglamento.

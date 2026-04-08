@@ -1,0 +1,1 @@
+Artículo 23- Notificación de Enfermedades. El capitán de la embarcación debe notificar a las autoridades sanitarias cualquier sospecha de enfermedad transmisible a bordo antes de la llegada al puerto. Esto incluye la presentación de síntomas por parte de los pasajeros o tripulación, y cualquier mortalidad inexplicada de animales a bordo.

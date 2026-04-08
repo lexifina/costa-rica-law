@@ -1,0 +1,1 @@
+Artículo 7- Revisión y actualización de tarifas. Las tarifas establecidas en este decreto serán revisadas periódicamente por el Ministerio de Salud, quien podrá proponer ajustes con base en los costos operativos y la inflación de la tasa o tipo de cambio entre las divisas.

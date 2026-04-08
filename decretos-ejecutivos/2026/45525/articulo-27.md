@@ -1,0 +1,3 @@
+Artículo 27.- Procedimiento de Verificación de Equipos de Protección Personal. Antes de cada inspección, el jefe del equipo o inspector responsable debe realizar una verificación del Equipos de Protección Personal para asegurar que esté en condiciones adecuadas de uso y en cumplimiento con las especificaciones de seguridad.
+Cualquier equipo que presente daños o desgaste será retirado y reemplazado antes de la inspección.
+Los elementos de Equipos de Protección Personal deben ser revisados al finalizar cada inspección y mantenerse en condiciones óptimas de funcionamiento, realizando mantenimientos periódicos.

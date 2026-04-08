@@ -1,0 +1,4 @@
+Artículo 29.- Equipos de Inspección y Mantenimiento del Equipos de Protección Personal. Para garantizar el control adecuado sobre las inspecciones y el mantenimiento del equipo de protección personal, se deben considerar:
+a) Equipos de Medición: Se requiere contar con equipos de medición de gases y niveles de oxígeno para la entrada a espacios confinados, además de equipos de detección de ruido, iluminación, y otros factores de riesgo que puedan impactar la salud del inspector.
+b) Calibración de Equipos: Todos los equipos de medición deben ser calibrados y revisados de acuerdo con el manual de fabricante y las normativas de calidad y seguridad.
+c) Responsabilidad del Mantenimiento: Cada inspector es responsable de reportar cualquier irregularidad en el funcionamiento de los equipos y el equipo de protección personal al departamento correspondiente para garantizar su mantenimiento y reparación.

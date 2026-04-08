@@ -1,0 +1,1 @@
+Artículo 42.- Desinfección y Descontaminación: Si se detecta la presencia de agentes infecciosos, las autoridades podrán ordenar la desinfección de áreas, mercancías o bienes a bordo de la embarcación, siguiendo las normativas nacionales e internacionales.

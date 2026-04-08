@@ -1,0 +1,3 @@
+Artículo 25.- Competencias del Personal. Todo el personal encargado de la inspección debe contar con la capacitación y certificación necesaria en temas de inspección de buques, prevención de riesgos laborales y uso de Equipos de Protección Personal.
+Se deberá contar con conocimientos sobre procedimientos de seguridad específicos de la embarcación, así como las normativas nacionales e internacionales vigentes en la materia.
+Cada inspector deberá actualizar sus conocimientos de manera periódica, asistiendo a capacitaciones anuales o a sesiones específicas cuando se introduzcan nuevas normativas o tecnologías en el sector.

@@ -1,0 +1,3 @@
+Artículo 30.- Provisión y Renovación del Equipos de Protección Personal. Para la adquisición y renovación del equipo de protección personal destinado a los inspectores, se deberán considerarlos siguientes puntos:
+a) Provisión del equipo de protección personal: El Ministerio de Salud será responsable de proveer y reponer el equipo de acuerdo con los requisitos de cada inspección.
+b) Renovación del equipo de protección personal: Se realizará una revisión del estado del equipo cada seis meses o de acuerdo con el tiempo de vida útil de cada elemento, para garantizar la protección y seguridad de los inspectores.

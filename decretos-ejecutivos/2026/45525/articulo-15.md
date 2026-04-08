@@ -1,0 +1,2 @@
+Artículo 15.- Renovación y Validez de los Certificados. Ambos certificados tendrán una vigencia máxima de seis meses, conforme al RSI. En caso de que la inspección o las medidas de control no puedan realizarse en el puerto, podrá otorgarse una prórroga de hasta un mes, debidamente justificada.
+Las embarcaciones que no cuenten con certificados válidos y vigentes al ingresar a aguas costarricenses deberán solicitar la inspección con el fin de obtener el Certificado de Control de Sanidad a Bordo o el Certificado de Exención de Control de Sanidad a Bordo, según corresponda.

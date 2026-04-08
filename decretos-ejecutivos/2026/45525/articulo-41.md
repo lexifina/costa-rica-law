@@ -1,0 +1,1 @@
+Artículo 41.- Cuarentena y Aislamiento: Las embarcaciones que representen un riesgo inminente para la salud pública podrán ser puestas en cuarentena por las autoridades costarricenses. El personal sanitario podrá recomendar el aislamiento de casos sospechosos y la aplicación de tratamientos preventivos.

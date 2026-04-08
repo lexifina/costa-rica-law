@@ -1,0 +1,1 @@
+Artículo 21.- Obligación de colaboración. El capitán o el representante de la embarcación deberá colaborar con las autoridades sanitarias proporcionando acceso a las instalaciones de la embarcación y facilitando la información requerida para las inspecciones.
