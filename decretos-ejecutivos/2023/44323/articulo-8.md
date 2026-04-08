@@ -1,1 +1,0 @@
-Artículo 8º-Forma de liquidación. La colocación del TPTRI se liquidará según las disposiciones que para tal efecto disponga la Tesorería Nacional, las cuales comunicará mediante los mecanismos usualmente empleados por los emisores en el mercado de valores.
