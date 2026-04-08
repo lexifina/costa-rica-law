@@ -1,2 +1,0 @@
-Artículo 10.—Emisión del Pagaré del Tesoro. El Pagaré del Tesoro será desestandarizado y desmaterializado. La Tesorería Nacional implementará las medidas que garanticen las rigurosidades de registro y control pertinentes a través de los sistemas informáticos disponibles para tales efectos.
-Lo anterior, sin detrimento que, si la Tesorería Nacional observa la conveniencia de realizar emisiones estandarizas y/o materializadas, estará en su derecho de hacerlo.

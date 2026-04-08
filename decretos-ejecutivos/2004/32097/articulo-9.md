@@ -1,4 +1,0 @@
-CAPÍTULO II
-Creación del pagaré del tesoro
-Artículo 9º—Creación del Pagaré del Tesorería Nacional. Créase el Pagaré del Tesoro, destinado a financiar operaciones temporales de la Tesorería Nacional, previa determinación de las necesidades de recursos detectadas mediante los mecanismos de programación financiera, cuyo procedimiento de colocación se regula a continuación. Este instrumento se constituirá como un valor de deuda del tesoro, de conformidad con el artículo 82 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131.
-El Pagaré del Tesoro será amortizable al vencimiento y sin cupones de interés. La Tesorería Nacional tendrá facultades plenas para definir la tasa de rendimiento de conformidad con las disposiciones legales aplicables y las de mercado, la cual se pagará en el mismo acto de cancelación del principal.
