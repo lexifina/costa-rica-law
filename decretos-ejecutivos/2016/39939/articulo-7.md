@@ -1,1 +1,0 @@
-Artículo 7. Plazos. Se emitirá el TPRAS en los plazos de emisión según la estrategia y política de emisión que defina el Ministerio de Hacienda. Quedará a consideración de la Tesorería Nacional emitir otros plazos a los establecidos en el TPRAS.

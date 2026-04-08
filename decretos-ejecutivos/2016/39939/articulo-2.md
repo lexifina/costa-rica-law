@@ -1,1 +1,0 @@
-Artículo 2. Forma de Emisión. El TPRAS podrá ser emitido de forma estandarizada y desmaterializada. Lo anterior, sin detrimento que, si la Tesorería Nacional observa la conveniencia de realizar emisiones desestandarizas y/o materializadas, lo llevará a cabo a través de los sistemas informáticos disponibles para tales efectos.
