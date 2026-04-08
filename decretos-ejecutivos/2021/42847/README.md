@@ -56,3 +56,4 @@ Reglamento de especialidades y subespecialidades médicas
 | 41 | 2026-02-04 | Reglamento 0 (2026-02-04) |
 | 42 | 2026-03-11 | Reglamento 0 (2026-03-11) |
 | 43 | 2026-03-25 | Reglamento 0 (2026-03-25) |
+| 44 | 2026-04-08 | Reglamento 0 (2026-04-08) |

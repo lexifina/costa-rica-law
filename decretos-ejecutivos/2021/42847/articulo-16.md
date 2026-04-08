@@ -432,10 +432,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Neumología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
-16.20.17. Neurología Pediátrica.
+16.20.17. Neurología Pediátrica. Se reconoce como sinónimos de esta subespecialidad el siguiente término: Neurología General Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Neurología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(Así reformado el punto 16.20.17 anterior en la sesión ordinaria 2026-04-08 celebrada el 08 de abril del 2026)
+.
 16.20.18. Oncología Médica Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
