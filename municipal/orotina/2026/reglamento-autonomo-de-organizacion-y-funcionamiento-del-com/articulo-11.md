@@ -1,0 +1,1 @@
+Artículo 11.-Domicilio Legal. El domicilio legal del CCDRO será en sus oficinas centrales ubicadas en el distrito primero; pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la Junta Directiva.

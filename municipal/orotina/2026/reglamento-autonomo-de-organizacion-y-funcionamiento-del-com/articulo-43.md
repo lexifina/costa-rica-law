@@ -1,0 +1,3 @@
+SECCIÓN V
+De las actas
+Artículo 43.- Obligación de llevar actas. El CCDRO deberá llevar un libro de actas autorizado por la Auditoria Interna de la Municipalidad. El libro deberá estar sellado y foliado por esa dependencia. Podrá usarse a folio suelto y su numeración deberá ser consecutiva. En el libro de actas se asentará una razón de apertura y de cierre, ambas por parte de la Auditoría Interna. En el libro de actas se asentarán en forma sucinta los acuerdos, las iniciativas y mociones y demás incidencias que estos traten en sus sesiones. Competerá a la Secretaría Municipal llevar el control de los tomos autorizados y custodiar sus originales.

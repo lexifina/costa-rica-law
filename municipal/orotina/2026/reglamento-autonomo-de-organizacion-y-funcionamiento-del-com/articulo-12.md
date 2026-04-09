@@ -1,0 +1,1 @@
+Artículo 12.- De la responsabilidad. A los miembros del CCDRO se les aplicarán las normas de responsabilidad establecidas en los artículos 190, siguientes y concordantes de la Ley General de la Administración Pública, sin detrimento de lo establecido en otras normativas legales y reglamentarias aplicables.

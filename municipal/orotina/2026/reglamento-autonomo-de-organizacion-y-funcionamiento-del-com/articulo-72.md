@@ -1,0 +1,1 @@
+Artículo 72.-De las tarifas. Las tarifas para el uso de las instalaciones no pueden ser modificadas sin previa autorización de la Junta Directiva del CCDRO, para lo cual deberá emitir o actualizar el estudio tarifario correspondiente.

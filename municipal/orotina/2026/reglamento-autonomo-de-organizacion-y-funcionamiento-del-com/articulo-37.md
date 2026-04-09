@@ -1,0 +1,1 @@
+Artículo 37.-Votación. Existen dos tipos de votación; Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto. Será secreta únicamente para la elección de los puestos dentro de la Junta Directiva del CCDRO.

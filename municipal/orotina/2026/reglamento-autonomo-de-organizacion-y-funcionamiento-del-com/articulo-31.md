@@ -1,0 +1,1 @@
+Artículo 31.-Funciones de la Vicepresidencia. Corresponde a la Vicepresidencia sustituir al titular de la Presidencia en sus ausencias temporales o definitivas, con las mismas atribuciones y obligaciones establecidas para éste, reguladas en el artículo anterior.

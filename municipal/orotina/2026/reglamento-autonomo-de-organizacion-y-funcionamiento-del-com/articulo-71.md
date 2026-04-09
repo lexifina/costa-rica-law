@@ -1,0 +1,2 @@
+Artículo 71.-Clasificación de instalaciones. Las instalaciones bajo administración del CCDRO serán clasificadas en deportivas y recreativas, de acuerdo con la infraestructura de éstas, El CCDRO regulará el uso de las mismas de acuerdo con el tipo de actividad.
+Deberá la Junta Directiva del CCDRO realizar un estudio tarifario para definir las tarifas por derecho de uso de las instalaciones y el periodo que abarca dicha tarifa, siguiendo los lineamientos técnicos establecidos por la Municipalidad.

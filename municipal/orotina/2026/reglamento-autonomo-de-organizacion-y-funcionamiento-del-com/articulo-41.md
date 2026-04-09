@@ -1,0 +1,1 @@
+Artículo 41.-Acuerdos firmes. Los acuerdos quedarán en firme en la sesión ordinaria inmediata siguiente, con la lectura y aprobación del acta respectiva. Sin embargo, por votación de las dos terceras partes de los miembros presentes podrá acordarse que los acuerdos y fallos queden firmes en la misma sesión en que han sido tomados.

@@ -1,0 +1,1 @@
+Artículo 80.- Derogatoria.- Este reglamento deroga el Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Orotina publicado en La Gaceta No. 104 del 01 de junio de 2009 y sus reformas, así como de cualquiera otra disposición reglamentaria que se le oponga.

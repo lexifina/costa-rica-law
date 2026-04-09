@@ -1,0 +1,3 @@
+Artículo 68. -Presentación de los Planes de trabajo. Los Comités Distritales y/o Comunales deberán presentar al CCDRO, durante la primera semana del mes de mayo de cada año, el documento que contenga sus planes de trabajo correspondientes al año inmediato posterior.
+El CCDRO deberá conocer, aprobar o devolver debidamente motivados los planes de trabajo en un plazo máximo de un mes contado a partir de su presentación. En caso de devolución, se indicarán de forma clara y expresa las observaciones o correcciones que deban realizarse.
+Corresponderá al CCDRO definir, implementar y supervisar los procedimientos, mecanismos de control y seguimiento necesarios para la ejecución, evaluación y cumplimiento de los planes de trabajo aprobados.

@@ -1,0 +1,1 @@
+Artículo 65.-Prohibiciones. En la integración de los Comités Distritales y/o Comunales se aplicarán las mismas disposiciones sobre impedimentos y prohibiciones contempladas en este reglamento respecto de la integración del CCDRO.

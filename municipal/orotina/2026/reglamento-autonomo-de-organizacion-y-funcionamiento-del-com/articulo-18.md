@@ -1,0 +1,4 @@
+Artículo 18.-Juramentación y toma de cargos. Las designaciones que resulten de las Asambleas Generales válidamente realizadas serán vinculantes para el Concejo Municipal, por lo que la Junta Directiva del CCDRO deberá comunicar tales nombramientos de forma inmediata a la Secretaria Municipal para que ésta convoque a los nuevos integrantes a presentarse en el Concejo Municipal para su debida juramentación.
+El Concejo deberá juramentar a todos los miembros electos, titulares y suplentes, a más tardar la sesión ordinaria siguiente a su comunicación.
+Los miembros de la nueva Junta Directiva tomarán posesión de sus cargos a partir del primero de enero del año siguiente al vencimiento de la Junta Directiva saliente.
+En su primera sesión la persona miembro de mayor edad dirigirá el órgano, para que se realice la designación de los siguientes puestos: una presidencia, una vicepresidencia, una secretaría, una tesorería y tres vocalías.

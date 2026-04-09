@@ -1,0 +1,1 @@
+Artículo 26.- Excepción a la jerarquía superior. La jerarquía del Concejo Municipal sobre Junta Directiva del CCDRO no aplica en las materias para las cuales el CCDRO goce de personalidad jurídica instrumental, donde la Jerarquía impropia recaerá en el órgano o ente que disponga la Ley.

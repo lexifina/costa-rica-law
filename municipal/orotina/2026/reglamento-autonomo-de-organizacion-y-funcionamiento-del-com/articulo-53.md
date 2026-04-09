@@ -1,0 +1,8 @@
+Artículo 53.-Ingresos. El CCDRO contará con los siguientes recursos:
+a) Ordinarios. La Municipalidad asignará al menos un tres por ciento (3%) de los ingresos ordinarios anuales municipales. De este porcentaje, un diez por ciento (10%), como máximo, se destinará a gastos administrativos y el resto a programas deportivos, recreativos, de estilos de vida saludable, y al mantenimiento y construcción de instalaciones. Este porcentaje destinado a gasto administrativo podrá aumentar en otros diez puntos porcentuales (10%) siempre y cuando se demuestre que dicho recurso es necesario para el desarrollo y continuidad de los planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales, así como para construir, administrar y mantener sus instalaciones deportivas o recreativas.
+b) Extraordinarios. Recursos financieros, económicos, en efectivo y en especie, originados del usufructo de sus instalaciones, colocación financiera del superávit, superávits provenientes de la ejecución presupuestaria de años anteriores y cualquier otro proveniente de fuentes externas.
+c) Partidas adicionales a criterio de la Municipalidad.
+d) Ingresos por cuotas o tarifas originadas en rubros de alquiler de instalaciones deportivas.
+e) Partidas específicas destinada por la Asamblea Legislativa para construcción o mejoras de instalaciones, actividades deportivas o recreativas, o compra de equipo o implementos deportivos.
+f) Ingresos generados mediante el Plan de Mercadeo que ejecute el CCDRO.
+g) Partidas dadas por el ICODER u otras organizaciones y entidades públicas o privadas.

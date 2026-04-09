@@ -1,0 +1,5 @@
+Artículo 14.- Prohibición. No podrán formar parte de la Junta Directiva del CCDRO:
+a) Los titulares de la Alcaldía o Vicealcaldías, ni su personal de confianza, asesores o asistentes, ni los familiares de estos hasta tercer grado de consanguinidad o afinidad.
+b) Los regidores o síndicos, tanto propietarios como suplentes, ni los asesores de éstos o de las fracciones municipales, ni los familiares de estos hasta tercer grado de consanguinidad o afinidad.
+c) Los titulares de la Auditoría Interna y sus subalternos, de la Dirección de Hacienda y sus subalternos, de la Unidad de Planificación, Presupuesto y Control Interno y sus subalternos, de la Contaduría y sus subalternos, de la Tesorería y sus subalternos, de la Secretaria del Concejo Municipal y sus subalternos, ni funcionarios del CCDRO.
+d) Aquellas personas que tengan alguna relación laboral, contractual privada o que reciban cualquier clase de estipendio o recurso del CCDRO. Aplicará igual cuando los beneficiarios sean sus familiares por consanguinidad o afinidad hasta tercer grado.

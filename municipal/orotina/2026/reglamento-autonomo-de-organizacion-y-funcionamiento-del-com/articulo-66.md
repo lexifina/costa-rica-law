@@ -1,0 +1,1 @@
+Artículo 66. -Período del cargo. Los miembros de cada comité durarán en sus cargos cuatro años; podrán ser reelegidos consecutivamente durante dos periodos y no devengarán dietas ni remuneración alguna.
