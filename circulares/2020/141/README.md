@@ -14,3 +14,4 @@ Obligación de realizar evaluaciones semestrales y anuales a los Planes Anuales 
 | --- | --- | --- |
 | 1 | 2020-07-03 | la propia norma |
 | 2 | 2023-01-16 | Circular 9 (2023-01-16) |
+| 3 | 2026-04-09 | Circular 26 (2026-04-09) |
