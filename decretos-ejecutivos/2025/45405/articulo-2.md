@@ -1,0 +1,5 @@
+Artículo 2º-De los objetivos del Festival Gastronómico Fogón Futuro. Forma parte de la estrategia nacional de salvaguarda del patrimonio cultural inmaterial y de promoción de la economía creativa costarricense, reconociendo a la cocina costarricense como un espacio de encuentro, transmisión de saberes y creación de oportunidades, persiguiendo los siguientes objetivos:
+1. Posicionar una marca país gastronómica basada en identidad, calidad y sostenibilidad.
+2. Establecer redes nacionales e internacionales de cooperación gastronómica.
+3. Convertir el Festival Gastronómico Fogón Futuro en uno de los encuentros culinarios más relevantes de América Latina.
+4. Facilitar alianzas estratégicas o acuerdos de cooperación que fomentan el desarrollo de la economía creativa cultural como conjunto de actividades económicas que combinan la creación, producción y distribución de bienes y servicios culturales, impulsado por la creatividad y el conocimiento para promover el turismo y las industrias culturales.

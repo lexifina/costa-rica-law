@@ -1,0 +1,1 @@
+Artículo 8º-Rectoría Política. Le corresponderá al Ministerio de Cultura y Juventud la coordinación de los procesos de implementación derivados del presente Decreto Ejecutivo, en ejercicio de su rectoría en materia de protección del patrimonio inmaterial y el impulso a los emprendimientos creativos y culturales.
