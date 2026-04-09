@@ -1,1 +1,0 @@
-Artículo 7º—Disposiciones sobre modificaciones presupuestarias a fondos con destino específico. La aplicación de fondos que por ley tienen un destino específico solo podrán modificarse para cubrir gastos dentro del destino señalado por ley.
