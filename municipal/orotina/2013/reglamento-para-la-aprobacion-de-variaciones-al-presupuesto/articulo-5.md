@@ -1,1 +1,0 @@
-Artículo 5º—Los presupuestos extraordinarios de la Municipalidad serán remitidos a la Contraloría General de la República, a más tardar cinco días hábiles después de su aprobación en firme por parte del Concejo Municipal.

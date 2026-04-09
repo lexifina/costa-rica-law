@@ -1,2 +1,0 @@
-Transitorio 1: Las funciones que en el presente documento se asignan al Planificador Institucional sean desempeñadas por el Encargado de Control Interno hasta que en la Municipalidad exista el puesto de Planificador con las condiciones para desempeñar la función que se señala en este reglamento (Grado de Licenciatura e incorporado al Colegio de Ciencias Económicas.)
-Rige a partir del 1° de enero del 2014.

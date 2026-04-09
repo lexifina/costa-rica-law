@@ -1,3 +1,0 @@
-Artículo 8º—Corresponderá a la Alcaldía aprobar o improbar las variaciones presupuestarias del Comité. Podrán elevarse al Concejo las modificaciones presupuestarias una vez adjunto el criterio del Comité Permanente de Presupuesto.
-Las funciones desempeñadas por el Comité Permanente de Presupuesto no eximen a la Administración de la responsabilidad en la verificación del cumplimiento de la normativa técnica y del bloque de legalidad que regula la materia.
-Para el caso de variaciones al presupuesto en la cuenta de Remuneraciones, se procederá considerando lo establecido en el artículo 13 de este Reglamento.

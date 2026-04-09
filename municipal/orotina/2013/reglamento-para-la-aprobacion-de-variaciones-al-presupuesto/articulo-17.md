@@ -1,1 +1,0 @@
-Artículo 17.—Los procedimientos de contratación administrativa que versen sobre plan de compras deberán tener por obligatorio al iniciar su trámite el visto bueno del Departamento de Planificación, que al respecto deberá controlar el cumplimiento fiel del plan anual operativo.

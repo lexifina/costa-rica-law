@@ -1,1 +1,0 @@
-Artículo 14.—Presupuestos extraordinarios. Los presupuestos extraordinarios deben contar con aprobación del Concejo Municipal y de la Contraloría General de la República, de conformidad con lo establecido en las Normas Técnicas Sobre Presupuesto Público.
