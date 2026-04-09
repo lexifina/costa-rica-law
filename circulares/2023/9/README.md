@@ -13,3 +13,4 @@ Modificación de la circular N° 141-2020 sobre la "Obligación de realizar eval
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-16 | la propia norma |
+| 2 | 2026-04-09 | Circular 26 (2026-04-09) |
