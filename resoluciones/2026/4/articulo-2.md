@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número MH-DGH-RES-0055-2025 del 07 de octubre de 2025, publicada en el Alcance número 131 a La Gaceta número 190 del 10 de octubre de 2025.
