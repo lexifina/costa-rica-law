@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo N° 45246-H de fecha 9 de octubre de 2025, publicado en el Alcance número 137 a La Gaceta número 200, de fecha 24 de octubre de 2025, a partir de la vigencia del presente decreto.
