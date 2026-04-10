@@ -1,0 +1,12 @@
+CIRCULAR N° 57-2026
+Asunto: Actividades de control a ejercer por las jefaturas del ámbito administrativo.
+A TODAS LAS JEFATURAS DEL ÁMBITO ADMINISTRATIVO
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 24-2026 celebrada el 26 marzo de 2026, artículo LII, a solicitud de la Oficina de Control Interno, dispuso hacer de conocimiento de las jefaturas del ámbito administrativo las siguientes recomendaciones:
+- Continuar con la buena práctica de mantener debidamente documentados y actualizados los procedimientos empleados para el registro oportuno, distribución equitativa y seguimiento de la carga de trabajo individual del personal. Igualmente, que soliciten al personal de apoyo registrar oportunamente los controles asociados a su gestión permitiendo garantizar la medida uniforme de las cargas de trabajo.
+- Mantener los procesos de supervisión periódica, mediante la identificación de espacios en agenda para atender esta labor y desarrollar reuniones para el análisis de reportes, dar seguimiento y verificar el cumplimiento de metas individuales y colectivas, definiendo planes remediales cuando sea requerido, con acciones dirigidas a asegurar el cumplimiento oportuno de los objetivos trasados.
+- Continuar aplicando como hasta el momento el cronograma institucional establecido para la formulación y seguimiento de los compromisos administrativos del PAO, SEVRI y PAI, incentivando la participación de todo el personal para fortalecer el conocimiento y cultura en lo relativo a la planificación, gestión de riesgo y la autoevaluación institucional periódica.
+- Conservar la buena práctica del estricto cumplimiento de la normativa, contratos y jornadas en la modalidad de Teletrabajo; en complemento compartir con las personas involucradas, las Políticas de Salud y Bienestar Laboral, para coadyuvar a prevenir el desgaste con pausas activas y demás variables motivacionales en beneficio propio e institucional.
+- En relación con el trabajo presencial, promover entre el equipo de colaboradores recordatorios y acciones para concientizar sobre el cumplimiento de horarios, vestimenta y portación de carne, así como el cumplimiento de las responsabilidades laborales en teletrabajo y presencial, acciones preventivas que fortalecen el ambiente y contribuyen al cumplimiento del ordenamiento jurídico y técnico.
+Publíquese una vez en el Boletín Judicial.
+San José, 10 de abril de 2026.
