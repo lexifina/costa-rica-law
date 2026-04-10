@@ -1,0 +1,12 @@
+N° 10875
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DE LA LEY 10.705, LEY PARA LA DINAMIZACIÓN DE LA ATENCIÓN
+DE LA POBLACIÓN VULNERABLE EN COSTA RICA, DE 26 DE MAYO DE 2025
+ARTÍCULO 1- Refórmense los artículos 2 y 5 de la Ley 5662, Ley de Desarrollo Social y Asignaciones Familiares, de 23 de diciembre de 1974. Los textos son los siguientes:
+Artículo 2-Podrán ser beneficiarios de este Fondo los costarricenses, los extranjeros residentes legales, las personas adultas mayores, las personas con discapacidad y mujeres jefas de hogar.
+También podrán ser beneficiarias las personas menores de edad en el territorio nacional, independientemente de su situación migratoria.
+Las líneas de pobreza básica y pobreza extrema, así como el alcance del concepto de vulnerabilidad económica, serán determinados anualmente por el Instituto Nacional de Estadística y Censos (INEC).
+La atención que se realice con recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf) se dirigirá a personas en pobreza extrema y pobreza básica, y vulnerabilidad económica; siempre y cuando se priorice, bajo los parámetros que establezca la reglamentación de esta ley, la atención de la población en pobreza básica y pobreza extrema, y haya disponibilidad presupuestaria.
+Artículo 5- Las instituciones y los programas que reciban recursos del Fondo, por medio de ley específica o convenio, deberán seleccionar a sus beneficiarios con base en la clasificación socioeconómica de las personas que se registra en el Sinirube. Las instituciones ejecutoras deberán atender los parámetros establecidos en esta ley y su reglamento, así como los lineamientos técnicos que emita la Dirección General de Desarrollo Social y Asignaciones Familiares (Desaf ), con el f in de que se atienda a la mayor cantidad posible de población en situaciones de pobreza extrema, pobreza básica y vulnerabilidad económica.
+Cada institución y programa financiado por medio de ley o convenio, con recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf), deberá hacerle llegar al Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), con la periodicidad que se defina en el reglamento de esta ley, la lista completa de beneficiarios de ese período, seleccionados mediante la metodología antes mencionada. Con esa información, el Sinirube levantará una única base de datos, para evitar la duplicación en el otorgamiento de beneficios por parte de cualquier entidad pública.
