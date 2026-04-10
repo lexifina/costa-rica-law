@@ -1,0 +1,1 @@
+Artículo 8: Destino de los ingresos generados por el CCMO. Todos los ingresos que se generen por concepto de alquiler del CCMO y otros servicios que se presten en él, serán utilizados para cubrir los gastos operativos y el mantenimiento preventivo y correctivo del Centro.

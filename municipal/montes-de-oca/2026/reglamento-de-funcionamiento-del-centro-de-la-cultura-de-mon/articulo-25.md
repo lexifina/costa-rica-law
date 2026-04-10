@@ -1,0 +1,1 @@
+Artículo 25. Solicitudes de préstamo oneroso de las instalaciones. Podrán solicitar el préstamo de las instalaciones a título oneroso, asociaciones, fundaciones, comités o subcomités, centros educativos, grupos o empresas culturales, instituciones estatales, organizaciones cantonales, nacionales, internacionales y personas físicas.

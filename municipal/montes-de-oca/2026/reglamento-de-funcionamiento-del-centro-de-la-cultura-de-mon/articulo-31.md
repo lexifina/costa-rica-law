@@ -1,0 +1,1 @@
+Artículo 31. Exposiciones de artistas y artesanos en instalaciones municipales. Todos aquellos artistas que deseen exponer sus obras en las salas de exposiciones del CCMO, deberán realizar la solicitud ante la Administración del CCMO. Aquellos que sean autorizados podrán realizar únicamente la exposición en los horarios asignados.

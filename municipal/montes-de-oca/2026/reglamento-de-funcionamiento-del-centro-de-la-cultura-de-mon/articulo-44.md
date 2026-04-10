@@ -1,0 +1,1 @@
+Artículo 44. Registro de sanciones. La Administración del CCMO llevará un registro actualizado de las sanciones impuestas, el cual estará disponible para consulta interna y para efectos de control institucional.

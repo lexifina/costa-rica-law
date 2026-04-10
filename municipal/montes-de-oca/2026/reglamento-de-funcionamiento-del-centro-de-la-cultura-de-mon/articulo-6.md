@@ -1,0 +1,2 @@
+Artículo 6. Criterios de adjudicación de horarios para actividades culturales. Para la adjudicación de los horarios de las instalaciones se seguirá el criterio de preferencia según el siguiente orden: Cartelera Cultural del CCMO, Agrupaciones y empresas culturales, Instituciones estatales, centros educativos; Asociaciones y fundaciones; Particulares.
+La asignación de las instalaciones se hará según el orden de ingreso de las solicitudes, sea en el mismo día u horario.

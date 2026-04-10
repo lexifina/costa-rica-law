@@ -1,0 +1,4 @@
+Artículo 17. Derechos de los solicitantes de las instalaciones. Los solicitantes que hayan sido autorizados a utilizar las instalaciones del CCMO tendrán derecho a:
+a. Coordinar con la Administración para acceder a las instalaciones con la antelación suficiente al horario de la actividad, para poder efectuar instalaciones de equipos u otros implementos y su prueba respectiva, montaje de mobiliario o escenográfica, y puesta de vestuario y maquillaje cuando fuese necesario y demás actividades previas al evento por realizar; dependiendo de la disponibilidad de horarios de las instalaciones.
+b. Podrá permanecer en el CCMO una vez finalizada la actividad por el máximo una hora para el retiro de los materiales y equipos. Si por su complejidad fuera necesario más tiempo, deberá coordinarse con anterioridad con la Administración.
+c. Encontrar las instalaciones, materiales y mobiliario con que está equipado el inmueble en óptimas condiciones de limpieza y mantenimiento.

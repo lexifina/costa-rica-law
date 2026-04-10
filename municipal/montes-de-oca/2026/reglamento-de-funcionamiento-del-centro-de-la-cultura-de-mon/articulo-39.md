@@ -1,0 +1,1 @@
+Artículo 39. Inscripción de Grupos Culturales. Toda agrupación cultural que tenga como sede el cantón de Montes de Oca y que solicite las instalaciones del CCMO, deberá llenar también el registro de inventario cultural del Cantón, esto con el fin de mantener un registro actualizado del mismo.

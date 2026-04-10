@@ -1,0 +1,1 @@
+Artículo 14. Actividades municipales. Cuando la Administración, el Concejo Municipal, o cualquier otra dependencia municipal, requieran utilizar el CCMO para actividades de carácter municipal deberá coordinar previamente con la Administración del CCMO.

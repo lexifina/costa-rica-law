@@ -1,0 +1,1 @@
+Artículo 26. Documentos para solicitud de préstamo. Presentar la solicitud, indicando el uso que se les dará a las instalaciones, copia de cédula de identidad del solicitante cuando sea persona física. En el caso de persona jurídica, deberá aportar además de la fotocopia de la cédula del representante legal, certificación de personería vigente.
