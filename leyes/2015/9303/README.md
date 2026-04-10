@@ -1,6 +1,6 @@
 # Creación del Consejo Nacional de Personas con Discapacidad
 
-Ley N° 9303 del 2015-05-26. SINALEVI, ficha 79686: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=79686&param2=142987&param3=1>.
+Ley N° 9303 del 2015-05-26. SINALEVI, ficha 79686: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=79686&param2=150448&param3=1>.
 
 Publicada en La Gaceta N° 123 del 2015-06-26.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 2021-11-24 | Ley 10077 | 2021-11-05 |
 | 3 de 5 | 2022-06-03 | Ley 10248 | 2022-05-05 |
 | 4 de 5 | 2024-10-30 | Ley 10546 | 2024-10-16 |
+| 5 de 5 | 2026-04-10 | Ley 10883 | 2026-03-16 |
