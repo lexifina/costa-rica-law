@@ -1,0 +1,1 @@
+ARTÍCULO 4- Dirección y organización de la elección. El Tribunal Supremo de Elecciones dirigirá y organizará la elección de los miembros del concejo de distrito y síndicos de los distritos cuando corresponda y cuando así lo determine, de acuerdo con su calendarización oficial.
