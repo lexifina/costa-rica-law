@@ -1,2 +1,3 @@
-Artículo 44. Áreas. La comercialización ordinaria de bienes y servicios se realizará en las áreas establecidas para tal efecto dentro de galpones y mediante la dinámica propia del Mercado Regional Chorotega.
-(Así reformado y publicado en La Gaceta N° 104 del 1° de junio del 2021)
+Artículo 44. La comercialización ordinaria de bienes y servicios se realizará en las áreas establecidas para tal efecto dentro de galpones y polivalencias.
+Adicionalmente, se podrán habilitar áreas para actividades conexas como servicios logísticos, empaques, etiquetados, exposiciones, coworking agroalimentario, ferias de economía circular, incubación de PYMES agroindustriales y actividades piloto de innovación, entre otras y vinculadas a la producción agrícola de la Región; siempre que no impliquen procesos industriales de gran escala ni acumulación excesiva de residuos que superen la capacidad instalada del MRMRCH.
+(Así reformado en sesión N° 014 del 10 de abril de 2026)

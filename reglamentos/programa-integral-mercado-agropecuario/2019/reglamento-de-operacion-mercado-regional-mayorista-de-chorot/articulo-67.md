@@ -16,3 +16,6 @@ k) Hacer un correcto uso de las facilidades y servicios que brinda la instituci�
 l) Cumplir con los requisitos firmados y establecidos en el Artículo 14 del presente Reglamento.
 m) Informar a la Dirección del Mercado Regional Chorotega del personal que cada concesionario tenga trabajando, según lo establecido en el artículo 28 del presente Reglamento.
 n) Mantener un programa de control de plagas a lo interno del área concesionada de manera activa y efectiva.
+o) Seguir el plan de gestión de residuos del PIMA- MRMRCH, alineado con los protocolos institucionales, siendo el Mercado quien establezca las reglas.
+Cada concesionario deberá presentar un plan básico de gestión de residuos, acorde con la actividad desarrollada, y será responsable de la disposición de aquellos residuos que excedan la capacidad ordinaria de recolección del mercado. El concesionario cubrirá los costos adicionales que esto genere, aplicando las herramientas contenidas en la normativa vigente para su ejecución administrativa.
+(Así adicionado el inciso o) anterior en sesión N° 014 del 10 de abril de 2026)
