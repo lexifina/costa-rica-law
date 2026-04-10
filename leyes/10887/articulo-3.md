@@ -1,0 +1,1 @@
+ARTÍCULO 3- Interpretación de límites. Se faculta al Instituto Geográfico Nacional para que interprete los límites señalados en el artículo 2 y que con base en esta interpretación elabore el nuevo mapa oficial de este distrito.
