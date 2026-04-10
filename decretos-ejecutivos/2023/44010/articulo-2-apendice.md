@@ -52,28 +52,7 @@ Sensibilidad mínima (dBm) | -112 | -121
 Estaciones Fijas: Pérdidas totales en la línea (dB) | 1 | 6
 Estaciones móviles: Pérdidas totales en la línea (dB) | 1 | 1
 * Esta potencia es la presente en la salida del sistema transmisor hacia la antena.
-Tabla 14. Parámetros técnicos máximos permitidos para los servicios fijo y móvil en sistemas de radiocomunicación de dos vías (2)
-Bandas de frecuencias (MHz) | 225 a 288 | 422 a 470
-Tipo de emisión | Analógica | Digital | Analógica | Digital
-Sistema
-Ancho de canal (kHz) | 12,5 | 6,25/12,5 | 12,5 | 6,25/12,5
-SINAD o BER | 12 dB | 5% | 12 dB | 5%
-Ganancia de antena (dBd) | 11 | 11
-Polarización de la antena | Vertical, horizontal o circular | Vertical, horizontal o circular
-Transmisor
-Potencia de salida (W) * | 25 | 25
-Ancho de banda necesario (kHz) | 11 | 5,5/8,1 | 11 | 5,5/8,1
-Estaciones Fijas: Pérdidas totales en la línea (dB) | 3 | 9
-Bandas de frecuencias (MHz) | 225 a 288 | 422 a 470
-Tipo de emisión | Analógica | Digital | Analógica | Digital
-Estaciones móviles: Pérdidas totales en la línea (dB) | 3 | 1
-Receptor
-Factor de ruido (dB) | 12 | 12
-Ancho de banda del filtro de FI (kHz) | 8 | 5,5/5,5 | 8 | 5,5/5,5
-Sensibilidad mínima (dBm) | -121 | -120
-Estaciones Fijas: Pérdidas totales en la línea (dB) | 3 | 9
-Estaciones móviles: Pérdidas totales en la línea (dB) | 3 | 1
-* Esta potencia es la presente en la salida del sistema transmisor hacia la antena.
+(Así reformada la tabla 14) anterior por el artículo 8° del decreto ejecutivo N° 45769 del 10 de abril del 2026)
 1.6. Consideraciones adicionales para el servicio fijo y móvil en sistemas de radiocomunicación de dos vías
 Se permite la implementación de cualquier otro tipo de aplicaciones y/o sistemas de comunicación, previo a estudio técnico de la SUTEL, que empleen anchos de canal máximo de 12,5 kHz y tecnología con modulación digital, que podrían hacer uso de dos canales consecutivos de 6,25 kHz, así como anchos de banda necesario superiores a los indicados en las tablas anteriores que aseguren el uso eficiente del espectro, dentro de las frecuencias establecidas para estos servicios.
 Adicionalmente, se permite la implementación de sistemas entroncados o troncalizados (trunking), cumpliendo las características técnicas de funcionamiento establecidas en la presente sección.
@@ -115,3 +94,6 @@ La separación mínima entre frecuencias de transmisión y recepción en explota
 Tabla 17. Separación de frecuencias en explotación dúplex de sistemas entroncados
 Banda de frecuencias | Separación
 De 806 MHz a 859 MHz | 45 MHz
+3. Requerimientos técnicos complementarios.
+Para los sistemas de radiocomunicación en banda angosta, la SUTEL definirá, mediante resolución, los requerimientos técnicos complementarios aplicables a los sistemas de radiocomunicación convencionales, así como a los sistemas de radiocomunicación multicanal y troncalizados, con el objetivo de promover el uso eficiente y ordenado del espectro radioeléctrico.
+(Así adicionado el punto 3) anterior por el artículo 9 del decreto ejecutivo N° 45769 del 10 de abril del 2026)

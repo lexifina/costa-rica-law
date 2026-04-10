@@ -15,3 +15,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | --- | --- | --- |
 | 1 | 2023-05-31 | la propia norma |
 | 2 | 2024-11-12 | Decreto Ejecutivo 44789 (2024-11-12) |
+| 3 | 2026-04-10 | Decreto Ejecutivo 45769 (2026-04-10) |
