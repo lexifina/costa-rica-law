@@ -1,0 +1,1 @@
+Artículo 42. -Otras sanciones. Lo dispuesto en este capítulo de este Reglamento no limita la facultad de la Municipalidad de aplicar otras sanciones establecidas en otras normas del Ordenamiento Jurídico vigente, en especial aquellas que determina el Código de Normas y Procedimientos Tributarios y el Código Penal.

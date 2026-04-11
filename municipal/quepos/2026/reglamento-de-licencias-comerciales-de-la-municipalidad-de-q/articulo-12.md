@@ -1,0 +1,1 @@
+Artículo 12. -Condiciones en que se otorgan las Licencias. Las licencias municipales son propiedad municipal y se otorgan únicamente para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece la resolución administrativa que se dicte con ese fin. Son otorgadas hasta la muerte del Licenciatario o su extinción de acuerdo a la ley.

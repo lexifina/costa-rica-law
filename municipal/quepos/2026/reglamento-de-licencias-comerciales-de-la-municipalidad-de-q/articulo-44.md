@@ -1,0 +1,1 @@
+Artículo 44.-Derogatoria: Este Reglamento deroga cualquier otro Reglamento que regule lo establecido en la Ley 7457 y que se encuentre incorporado en este articulado. Rige a partir del día de su publicación en el Diario Oficial La Gaceta.

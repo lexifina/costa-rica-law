@@ -1,0 +1,1 @@
+Artículo 10. -Plazos para el cumplimiento. Para el cumplimiento de los diferentes requisitos anteriormente establecidos el solicitante tendrá los siguientes términos perentorios. a) Los requisitos generales de los que habla el artículo 7 de este Reglamento deberán ser presentados junto con la solicitud de trámite de la Licencia, bajo pena de inadmisibilidad.
