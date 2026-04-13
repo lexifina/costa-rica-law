@@ -1,2 +1,0 @@
-Artículo 3°—Vigencia del cargo.
-Los directores durarán en sus cargos por períodos de 5 años, excepto el director indicado en el inciso b) del artículo primero, el cual será rotativo por un período de un año. En todos los casos de sustitución antes del vencimiento del período para el que fue electo, por cualquier causa, el sustituto reemplazante fungirá por el resto del período correspondiente al director sustituido.

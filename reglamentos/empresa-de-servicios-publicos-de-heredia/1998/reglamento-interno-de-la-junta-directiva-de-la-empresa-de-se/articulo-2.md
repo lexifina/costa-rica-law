@@ -1,3 +1,0 @@
-Artículo 2°—Requisitos
-Los candidatos deberán poseer conducta intachable, títulos profesionales afines a las funciones propias del cargo o experiencia empresarial equivalente y serán por la Asamblea General de Accionistas con base en las propuestas específicas, las entidades designantes o de las ternas que en su caso sometan aquellas a la consideración de la Asamblea.
-Cuando se proponga una terna los candidatos se nombrarán por simple mayoría y la asamblea no podrá negarse a elegir ninguno de los propuestos salvo que no reúnan los requisitos o adolezcan de incompatibilidad conforme a la ley. Cuando se proponga una sola persona, ésta únicamente podrá ser rechazada por una votación que represente al menos el 60% del total de los votos.

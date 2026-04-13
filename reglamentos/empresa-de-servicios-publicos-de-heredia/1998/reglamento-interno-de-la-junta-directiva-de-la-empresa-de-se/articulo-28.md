@@ -1,2 +1,0 @@
-Artículo 28.—Trascripción y firma.
-Una vez firmes, las actas se transcribirán al Libro de Actas de la Junta Directiva, a fin de ser presentadas para su firma por los directores en la sesión ordinaria o extraordinaria siguiente, según corresponda. Es obligación de los directores firmar las actas respectivas aún cuando ya hayan cesado en el ejercicio del cargo, y salvo causa justificada, bajo pena de la sanción de ley.

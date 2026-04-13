@@ -1,2 +1,0 @@
-Artículo 26.—Asuntos complejos.
-Cuando algún asunto por su complejidad e importancia no pueda ser estudiado y resuelto en una sesión, la Junta Directiva podrá nombrar una comisión especial para su estudio y dictamen o pasará el asunto a la Gerencia, a fin de que aquélla o ésta, rinda informe detallado sobre el particular. En ambos casos, deberá fijarse necesariamente el término dentro del cual ha de rendirse el informe correspondiente.

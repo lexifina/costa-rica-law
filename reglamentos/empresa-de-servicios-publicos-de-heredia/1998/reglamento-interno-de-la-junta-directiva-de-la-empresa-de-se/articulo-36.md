@@ -1,3 +1,0 @@
-Artículo 36.—Revisión.
-Las mociones, resoluciones, acuerdos y demás disposiciones aprobadas pero aún no emitidas por la Junta, podrán revocarse por una sola vez, a solicitud de cualquier director o de la Gerencia General, siempre que la revisión se pida inmediatamente después de la votación; o antes de la aprobación del acta respectiva en la sesión inmediata siguiente.
-Si se considera la revisión, el asunto volverá al estado en que se encontraba antes de votarse la cuestión que la motivó. No cabrá revisión contra los acuerdos de nombramientos que haga la junta Directiva en uso de sus atribuciones legales.

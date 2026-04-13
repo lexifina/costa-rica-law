@@ -1,2 +1,0 @@
-Artículo 19.—Asistencia a las sesiones
-A las sesiones de Junta Directiva -salvo resolución en contrario por parte del órgano colegiado o que exista impedimento específico conforme a la ley- deberán asistir: los Directores, el Gerente General, el Contralor, el Asesor Legal, y los funcionarios de la sociedad que la Junta Directiva o la Gerencia General consideren conveniente convocar, a fin de que rindan informes sobre los asuntos que figuran en la Orden del Día.

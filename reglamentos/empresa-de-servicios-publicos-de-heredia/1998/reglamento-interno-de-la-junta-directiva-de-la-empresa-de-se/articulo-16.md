@@ -1,2 +1,0 @@
-Artículo 16.—Del quorum.
-La Junta Directiva actuará válidamente, tanto en sesiones ordinarias como extraordinarias, con tres de sus miembros. Si no hubiere quorum a la hora señalada, el órgano colegiado podrá sesionar válidamente en segunda convocatoria 24 horas después de la fijada para la primera; salvo casos de urgencia, en que podrá sesionar dejando la debida justificación en el acta respectiva, con la asistencia de dos de sus miembros media hora después de la señalada en la convocatoria inicial.

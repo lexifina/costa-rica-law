@@ -1,2 +1,0 @@
-Artículo 12.—Visitas y sesiones en lugares distintos.
-La Gerencia General convocará en forma periódica a sesiones de Junta Directiva, en lugares distintos de las oficinas centrales, con el objeto de que los directores puedan conocer diferentes aspectos de la Institución. Además, la Gerencia General deberá organizar visitas frecuentes de la Junta Directiva a todos aquellos lugares en donde se realicen obras de la Empresa.

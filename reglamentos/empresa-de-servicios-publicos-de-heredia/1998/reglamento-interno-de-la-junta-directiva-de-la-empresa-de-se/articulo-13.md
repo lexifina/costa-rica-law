@@ -1,2 +1,0 @@
-Artículo 13.—Sesiones en día inhábil.
-Tratándose de sesiones ordinarias, cuando la fecha señalada para la sesión recayere en día feriado, se trasladará ésta al día hábil inmediato siguiente, sin necesidad de convocatoria alguna.
