@@ -1,1 +1,0 @@
-Artículo 24.—Votaciones. Los Acuerdos y Directrices de la Junta Directiva se decidirán por simple mayoría de votos presentes, excepto que por disposición legal o reglamentaria se requiera una votación calificada.

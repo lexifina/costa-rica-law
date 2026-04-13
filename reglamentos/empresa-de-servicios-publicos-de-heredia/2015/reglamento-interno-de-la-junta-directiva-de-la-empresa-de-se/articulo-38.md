@@ -1,5 +1,0 @@
-Artículo 38.—Confidencialidad de las Actas y documentos anexos. Las actas de la Junta Directiva y los documentos anexos a éstas se considerarán confidenciales y pertenecen por ese motivo exclusivamente a ésta.
-En consecuencia, tanto los miembros de Junta Directiva como los demás funcionarios que tengan acceso a éstas y sus antecedentes, se encuentran inhibidos de divulgar dicha información en forma oral o escrita o por cualquier otro medio, salvo autorización previa del Órgano Director; a reserva de las excepciones contempladas en la ley o en este reglamento.
-Los informes técnicos legales, financieros o de otra índole que se conozcan para efectos de coadyuvar en la toma de decisiones se consideran confidenciales hasta tanto el acuerdo final de que se trate no quede en firme.
-En aquellos negocios no regulados la información relativa a estrategias de mercado, comerciales, financieras, técnicas o legales, entre otras, será considerada confidencial.
-La violación a la prohibición que antecede será reputada como falta grave y sancionada como incumplimiento de deberes inherentes a las respectivas funciones.

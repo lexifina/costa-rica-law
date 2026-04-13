@@ -1,1 +1,0 @@
-Artículo 32.—Comunicación de las resoluciones. Las partes considerativas generales, cuando fuere del caso; y las dispositivas de las resoluciones de la Junta Directiva, serán comunicadas a los interesados por la Secretaría y podrán hacerse de conocimiento público, a través de los diferentes medios de comunicación; cuando a juicio de los Directores sea conveniente hacerlo.

@@ -1,1 +1,0 @@
-Artículo 26.—Empates y Voto de calidad. Cuando hubiere empate en la votación de una moción, de un acuerdo o de otra disposición de la Junta Directiva, aquél o aquélla serán puestos en discusión y votación en la sesión siguiente. Si resultare otro empate, el Presidente o quien lo sustituya, decidirá la votación por medio del doble voto de que gozará en estos casos.

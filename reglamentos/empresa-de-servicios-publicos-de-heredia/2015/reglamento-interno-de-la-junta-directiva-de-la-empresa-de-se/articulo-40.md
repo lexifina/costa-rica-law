@@ -1,1 +1,0 @@
-Artículo 40.—Pérdida de dietas. La inasistencia del Director a una sesión ocasionará pérdida de la dieta, salvo que existiere causa justificada a juicio de la Junta Directiva; o cuando el Director se encontrare realizando diligencias dentro o fuera del país con el permiso y en representación de la Institución.
