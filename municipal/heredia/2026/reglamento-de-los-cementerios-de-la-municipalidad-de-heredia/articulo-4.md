@@ -1,0 +1,1 @@
+Artículo 4. Derecho de inhumación. Todo permisionario (a) en propiedad tendrá derecho a la disposición más conveniente y adecuada de su cadáver, restos o cenizas y a que estos sean tratados con consideración y respeto. Este derecho quedará sujeto a razones de factibilidad, a la existencia de espacio y nichos disponibles.

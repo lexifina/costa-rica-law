@@ -1,0 +1,9 @@
+Artículo 46. Trámite del permiso de construcción, remodelación o reparación. El permisionario que desee realizar trabajos de construcción, reparación, pintura u otro en su bóveda debe iniciar la gestión ante la Sección de Cementerios, en horario de lunes a viernes de 7:00 am a 4:00 pm. Para esto debe cumplir con los siguientes requisitos:
+1. Debe tener el pago del servicio de mantenimiento de nichos al día, esta información se verificará en el sistema municipal.
+2. Presentarse con documento de identidad en caso de ser el permisionario, si se trata de un beneficiario u otro debe presentar la autorización escrita, firmada por el permisionario y fotocopia de la cédula y en la misma autorización indicar el tipo de trabajo a realizar, el costo de los materiales, costo del trabajo y los datos del contratista (teléfono, dirección y cédula) y a su vez adjuntar la fotocopia de la cédula para validar en el ingreso de las instalaciones quien será el contratista.
+3. Especificar detalladamente los trabajos que se van a realizar.
+4. Presentar cotización formal del trabajador que le realizará los trabajos, detalle del trabajo, monto total (mano de obra y materiales) este documento debe estar firmado por el trabajador.
+5. Declaración Jurada bajo fe de juramento sin formalización ante abogado o notario público, de que conoce plenamente los alcances del Artículo 45 de este reglamento y asume las obligaciones correspondientes con las personas que contrate.
+6. Una vez que se cuente con el permiso se inicia la obra.
+7. La resolución para obras menores será de forma inmediata y para obras mayores será un plazo de resolución de 7 días naturales y la vigencia del tramite es de 6 meses.
+8. Se extiende el permiso de construcción por un plazo de 6 meses para realizar la remodelación o reparación solicitada.

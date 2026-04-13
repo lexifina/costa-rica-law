@@ -1,0 +1,19 @@
+MUNICIPALIDAD DE HEREDIA
+ACUERDO-MH-CM-SCM-326-2026, tomado en la Sesión Ordinaria N° 156-2026, celebrada por el Concejo Municipal del Cantón Central de Heredia, el lunes 09 de Marzo del 2026, en el artículo IV
+REGLAMENTO DE LOS CEMENTERIOS DE LA
+MUNICIPALIDAD DE HEREDIA
+CONSIDERANDOS
+I.- Que con el Decreto N° XXIV del 19 de julio de 1884, se secularizaron los cementerios que para ese entonces estaban bajo la autoridad eclesiástica; quedando su construcción y administración a cargo de la autoridad política de cada lugar, y bajo la inspección del Gobernador de la provincia respectiva.
+II.- Que mediante Decreto N°36 de 13 de abril de 1920, se dispuso que los mausoleos, tumbas y demás sitios reducidos a dominio particular en los cementerios, no son susceptibles de embargos ni de venta forzosa judicial.
+III.- Que por la Ley N°58 de 9 de agosto de 1920, se reguló el traspaso de tumbas y parcelas particulares en cementerios.
+IV.- Que mediante la Ley N°704 de 7 de setiembre de 1949 se reguló lo relativo a la propiedad y al arrendamiento de tumbas en cementerios.
+V.- Que con la Ley N°6000 del 10 de noviembre de 1976 se dispuso que, en caso de disolución de una junta de protección social, el Ministerio de Salud podía confiar la administración de los cementerios que estuvieren a cargo de esa junta a la municipalidad del respectivo cantón y traspasarle, en forma definitiva, la propiedad de los terrenos en que se encuentren ubicados los respectivos camposantos.
+VI.- Que por disposición del artículo 261 Código Civil: "Son cosas públicas las que, por ley, están destinadas de un modo permanente a cualquier servicio de utilidad general, y aquellas de que todos pueden aprovecharse por estar entregadas al uso público".
+VII.- Que la jurisprudencia patria ha señalado que los cementerios nacionales son bienes demaniales, afectos al bien común y al servicio de la comunidad por disposición de la Ley General de Salud número 5395 del 30 de octubre de 1973, en sus numerales 327 al 330, así como el Reglamento General de Cementerios, número 32833 del tres de agosto del 2005. (Sentencia: 00066-2012 de las 4:00:00 PM del 22 de junio del 2012 del Tribunal Contencioso Administrativo Sección IV y 00118-2013 de las 10:00:00 a.m. del 20 de diciembre del 2012 Tribunal Contencioso Administrativo, Sección IV).
+VIII.- Que por disposición del artículo 3 del Código Municipal el gobierno y la administración de los intereses y servicios cantonales están a cargo de la Municipalidad.
+IX Que conforme a lo anterior y al artículo 3 inciso c del Código Municipal es deber del Municipio dictar los reglamentos de los servicios que presta.
+X.-Que este reglamento cumple con los principios de mejora Regulatoria de acuerdo con el informe DMR-DAR-INF-005-2025, emitido por la Dirección de Análisis Regulatorio.
+CAPITULO I
+Disposiciones generales
+Artículo 1. Demanialidad de Cementerios: De conformidad con el artículo 121 inciso 14) de la Constitución Política, y el artículo 261 del Código Civil, los terrenos de cementerios municipales son bienes demaniales afectados al bien común y servicio público. El Municipio otorga un derecho de uso sobre estos terrenos bajo la figura de permiso precario, que no constituye derecho real, comercializable ni transferible a terceros, limitándose a la disposición funeraria y de construcción cuando corresponda. Este permiso es revocable a solicitud del Municipio por razones de interés público debidamente justificadas, conforme a la normativa vigente.
+En este sentido son bienes demaniales, los terrenos en los que se ubican los Cementerios existentes y futuros del cantón porque están afectos al bien común y al servicio de la comunidad por disposición de la Ley General de Salud número 5395 del 30 de octubre de 1973, en sus numerales 327 al 330, así como el Reglamento General de Cementerios, Decreto Ejecutivo N°32833 del tres de agosto del 2005.

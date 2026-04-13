@@ -1,0 +1,1 @@
+Artículo 22. Cobertura mínima. Todo nicho subterráneo deberá tener una cobertura mínima de 60 centímetros cúbicos de tierra, al igual sobre ellos solo se permitirá colocar un pedestal de 30cm por 35cm, de acuerdo con la figura adjunta.

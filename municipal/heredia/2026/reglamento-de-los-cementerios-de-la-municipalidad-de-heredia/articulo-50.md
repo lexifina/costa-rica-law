@@ -1,0 +1,1 @@
+Artículo 50. Todo trabajador privado debe finalizar el trabajo contratado antes de iniciar con otro. Para esto la Administración solicitará el consentimiento del permisionario, mediante documento escrito y se procederá a revisar que el lugar haya quedado en perfecto orden y limpieza.

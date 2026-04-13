@@ -1,0 +1,1 @@
+Artículo 51. Las bóvedas que sean construidas en el Cementerio viejo deben pintarse en color blanco o enchapar en tonos sobrios (blanco, gris, arena o negro). Además, todos los nichos deben quedar tapados.

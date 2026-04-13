@@ -1,0 +1,1 @@
+Artículo 16. Topografía de los cementerios. Los terrenos dedicados a camposantos municipales deberán contar con las condiciones establecidas en el artículo 19 del Reglamento General de Cementerios Decreto Ejecutivo Nº 32833.

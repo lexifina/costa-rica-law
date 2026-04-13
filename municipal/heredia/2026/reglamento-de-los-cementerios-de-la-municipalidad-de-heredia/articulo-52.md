@@ -1,0 +1,1 @@
+Artículo 52. Ningún permisionario o trabajador privado podrá iniciar labores sin haber solicitado el permiso ante la Oficina de Administración. En caso de hacerlo, los trabajos se detendrán de forma inmediata sin previo aviso y podrán reanudarse hasta que cuente con el permiso respectivo.

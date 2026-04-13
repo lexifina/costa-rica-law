@@ -1,0 +1,1 @@
+Artículo 53. Ningún trabajador privado o persona podrá sacar del Cementerio imágenes, placas u cualquier otro objeto de la bóveda sin previa autorización del permisionario y el registro de salida de la Oficina de la Administración del Cementerio.

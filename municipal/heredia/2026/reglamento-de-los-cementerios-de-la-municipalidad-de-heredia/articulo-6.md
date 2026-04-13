@@ -1,0 +1,1 @@
+Artículo 6. Otorgamiento de derechos. Cuando la extensión del área de cementerio lo permita y en el caso de que existan parcelas no asignadas, la Municipalidad podrá otorgar el permiso de uso de cada una de ellas a quienes lo soliciten y cumplan con todos los requisitos solicitados en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 33. Corrección de errores materiales. Los errores de nombre, apellidos u otros en la inscripción del permiso de uso, se conocerán a instancia del titular o de oficio, previa justificación y comprobación ante la Sección de Cementerios de la información correcta.

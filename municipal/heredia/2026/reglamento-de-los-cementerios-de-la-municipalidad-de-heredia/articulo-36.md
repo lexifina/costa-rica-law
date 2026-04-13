@@ -1,0 +1,1 @@
+Artículo 36. Autorización para realizar inhumación. Quien necesite realizar una inhumación, deberá tramitar en la Sección de cementerios. Esta dependencia no autorizará inhumaciones en bóvedas o nichos que presenten fallas en su estructura.

@@ -1,0 +1,1 @@
+Artículo 18. Osario. Todo cementerio contara con uno o más osarios debidamente protegidos del ingreso y miradas ajenas al mismo, donde se depositarán los restos óseos provenientes de las exhumaciones. Todo osario deberá contar con medidas de seguridad y protocolos de sanidad avalados por el Ministerio de Salud.
