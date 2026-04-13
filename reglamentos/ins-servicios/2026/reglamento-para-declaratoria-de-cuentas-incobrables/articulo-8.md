@@ -1,0 +1,1 @@
+Artículo 8º-Comunicación de la declaratoria de incobrabilidad: La resolución firmada por el Gerente General que declare una deuda como incobrable será remitida a la Jefatura Financiero Administrativo a efectos de que se realicen las actuaciones administrativas necesarias en materia de registro y control, conforme a la normativa aplicable.

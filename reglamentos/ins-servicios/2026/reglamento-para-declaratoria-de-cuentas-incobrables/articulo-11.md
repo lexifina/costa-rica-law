@@ -1,0 +1,1 @@
+Artículo 11.-Nulidad absoluta de la declaratoria de incobrabilidad: Serán absolutamente nulos los procedimientos que se lleven a cabo con inobservancia a lo dispuesto en el presente Reglamento y/o en la normativa interna (FI-M-008).

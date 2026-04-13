@@ -1,0 +1,1 @@
+Artículo 14.-Revisión y actualización: Este reglamento deberá ser revisado por el Departamento Financiero Administrativo, al menos una vez al año, o cuando sea requerido por cambios operativos y estratégicos de la organización.

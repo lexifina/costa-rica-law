@@ -1,0 +1,1 @@
+Artículo 2º-Alcance: Las disposiciones de este reglamento son aplicables a todo el personal de INS Servicios S. A., órganos que intervengan directa o indirectamente en la generación, registro, gestión de cobro, control y declaratoria de cuentas incobrables.
