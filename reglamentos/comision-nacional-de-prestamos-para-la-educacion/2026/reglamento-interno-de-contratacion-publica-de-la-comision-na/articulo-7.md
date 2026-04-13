@@ -1,0 +1,1 @@
+Artículo 7.- Proceso de gestión de contratación pública. El proceso de gestión de contratación pública describirá las actividades y responsables de la venta y compra de bienes, servicios y obras en CONAPE y será detallado en lineamientos, guías e instructivos que se generen para su tramitación.

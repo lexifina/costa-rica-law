@@ -1,0 +1,1 @@
+Artículo 33.- Autorización de pago. Los pagos se realizarán una vez que el Administrador del Contrato compruebe el cumplimiento del objeto contractual, verifique los datos consignados en la factura y comunique formalmente a la unidad encargada de tramitarlo para que proceda con el pago, según procedimientos establecidos, acorde al proceso oficializado.

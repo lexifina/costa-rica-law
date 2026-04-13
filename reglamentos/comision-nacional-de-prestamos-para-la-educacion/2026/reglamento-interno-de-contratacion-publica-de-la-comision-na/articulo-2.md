@@ -1,0 +1,2 @@
+Artículo 2.-Alcance. Este reglamento tendrá como alcance todas las contrataciones realizadas por CONAPE, excluyendo del mismo las compras a realizar mediante la Caja Chica que se regirán por su propia reglamentación.
+Lo establecido en el presente reglamento, es de acatamiento obligatorio en el proceso de gestión de contratación pública para la Proveeduría, las unidades organizacionales y funcionarios involucrados directa o indirectamente en esta materia, con apego a las normas y principios del ordenamiento jurídico.

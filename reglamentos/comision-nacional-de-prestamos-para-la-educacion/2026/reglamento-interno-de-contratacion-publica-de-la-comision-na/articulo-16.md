@@ -1,0 +1,1 @@
+Artículo 16.- De las excepciones. No se registrarán contrataciones referidas a pagos por servicios públicos que brinda un único ente competente, pago de membrecías a nivel internacional, según normativa vigente.

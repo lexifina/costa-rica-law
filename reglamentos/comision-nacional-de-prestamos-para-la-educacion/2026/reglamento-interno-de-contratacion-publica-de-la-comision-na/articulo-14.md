@@ -1,0 +1,1 @@
+Artículo 14.- Solicitud de contratación administrativa. El trámite de contratación administrativa iniciará a partir de la aprobación de la solicitud de contratación administrativa en el sistema digital unificado por parte de la jefatura de la unidad solicitante. Esta solicitud deberá contener toda la información detallada en decisión inicial en la normativa vinculada.

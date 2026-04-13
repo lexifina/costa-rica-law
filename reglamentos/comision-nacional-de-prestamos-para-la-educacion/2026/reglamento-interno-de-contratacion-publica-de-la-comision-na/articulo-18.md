@@ -1,0 +1,1 @@
+Artículo 18-Del expediente administrativo de contratación. La conformación oficial del expediente administrativo de contratación pública será responsabilidad de la Proveeduría, la cual velará que se ejecute conforme a la normativa para el tipo de expediente a ejecutar, cumpliendo con lo normado en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos.
