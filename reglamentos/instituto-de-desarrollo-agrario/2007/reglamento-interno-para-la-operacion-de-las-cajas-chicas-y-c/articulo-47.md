@@ -1,2 +1,0 @@
-Artículo 47.—Auditoría del Fondo Fijo: La Junta Directiva del Instituto debe solicitar a la Auditoría Interna incluir en su Programa de Trabajo Anual, la revisión del Fondo Fijo de Caja Chica autorizados en las diferentes regiones y en oficinas centrales, con el propósito de evaluar la suficiencia y la efectividad de estos controles.
-Del respectivo informe se deberá enviar copia a la Dirección Administrativa Financiera y a los superiores jerárquicos del Encargado del Fondo de Caja chica, para las acciones que corresponda.

@@ -1,1 +1,0 @@
-Artículo 17.—El Fondo Fijo de Caja Chica y la Caja General, recibirán devoluciones de dinero en efectivo, acompañados de la documentación respectiva que generó la compra o la liquidación correspondiente o el respectivo depósito a la cuenta de dicho Fondo.

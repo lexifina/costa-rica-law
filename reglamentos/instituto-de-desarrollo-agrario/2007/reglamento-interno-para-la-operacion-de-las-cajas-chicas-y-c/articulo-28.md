@@ -1,1 +1,0 @@
-Artículo 28.—Los cheques que se emitan deben ser individuales por el pago a cada proveedor del bien o servicio. En caso de no existir el sistema de cheque comprobante de fórmula continua con las copias de rigor, éstos se emitirán sólo en original debiendo quedar y ser conservados los talones debidamente llenos para las verificaciones posteriores que correspondan.

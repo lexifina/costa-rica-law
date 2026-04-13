@@ -1,1 +1,0 @@
-Artículo 10.—Bloque de legalidad: Conjunto de Normas Jurídicas, escritas o no escritas, a cuya observancia se encuentra obligada la Administración Pública, que comprende tanto la Ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
