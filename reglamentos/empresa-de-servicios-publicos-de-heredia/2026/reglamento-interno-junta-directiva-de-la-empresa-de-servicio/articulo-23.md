@@ -1,0 +1,2 @@
+ARTÍCULO 23°. Prioridad de las mociones.
+Las mociones de orden han de referirse necesariamente a cuestiones de procedimiento y tienen prioridad en la discusión. Lo que se resuelva en cuanto a estas últimas, carece de recurso alguno.

@@ -1,0 +1,2 @@
+ARTICULO 31°. De los Recursos de los Particulares
+Los Recursos que interponen los particulares contra los Acuerdos, Directrices, resoluciones o disposiciones de la Junta Directiva se regirán en lo aplicable por las normas del Título Octavo, Libro Segundo, de la Ley General de la Administración Pública N°6227 de 2 de mayo de 1978 y sus reformas.

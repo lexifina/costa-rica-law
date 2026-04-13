@@ -1,0 +1,3 @@
+ARTÍCULO 5°. Vigencia y Publicidad.
+Los Directores durarán en sus cargos por periodos de 5 años excepto el Director indicado en el inciso b) del Artículo 4° de este reglamento, el cual será rotativo por un período de un año. En todos los casos de sustitución antes del vencimiento del período para el que fue electo, por cualquier causa, el sustituto reemplazante fungirá por el resto del período correspondiente al Director sustituido.
+Los nombramientos de los señores Miembros de la Junta Directiva, serán publicados en el Periódico Oficial La Gaceta e Inscritos en el Registro Público.
