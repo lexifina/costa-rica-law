@@ -23,3 +23,4 @@ Reglamento de organización y funcionamiento de la junta directiva de la Junta d
 | 8 | 2021-01-18 | Reglamento 4 (2021-01-18) |
 | 9 | 2021-02-22 | Reglamento 12 (2021-02-22) |
 | 10 | 2023-07-20 | Reglamento 42 (2023-07-20) |
+| 11 | 2026-04-13 | Reglamento 18 (2026-04-13) |

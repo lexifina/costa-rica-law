@@ -4,3 +4,4 @@ Es responsabilidad del Director que preside el comité o comisión, implementar 
 Los integrantes de los comités corporativos y de las comisiones de trabajo, deben completar el "Formulario de autoevaluación de asistencia a cada sesión de comité o comisión.
 (Así adicionado en sesión N° 06 del 27 de enero de 2020)
 (Así reformado mediante sesión N° 42-2023 del 20 de julio de 2023)
+(Nota de Sinalevi: Mediante sesión N° 18 del 13 de abril de 2026, se acordó derogar todas aquellas disposiciones reglamentarias que se opongan a la reforma del numeral 24 bis de este reglamento, establecido en esta sesión, en particular las referencias a comités corporativos cuya denominación o funciones hayan sido integradas o sustituidas conforme a esta nueva estructura.)
