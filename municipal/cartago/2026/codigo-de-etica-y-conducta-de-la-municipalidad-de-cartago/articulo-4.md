@@ -1,0 +1,12 @@
+CAPÍTULO IV
+Declaración de valores compartidos
+6-Valores. Los siguientes son los valores sobre los cuales se rige la institución:
+a. Compañerismo: actitud de respeto, solidaridad, colaboración y empatía entre personas que comparten un entorno común, como el trabajo, mediante el vínculo que se establece entre compañeros que forman un grupo o equipo y que persiguen un propósito u objetivo común, tarea o proyecto grupal. Es la actitud y base para un equipo exitoso.
+b. Comunicación: habilidad de expresar nuestras ideas de manera abierta, honesta, directa y respetuosa dentro del desarrollo organizacional de la municipalidad, de forma tal que permita el reconocimiento de los espacios de derecho, del respeto de las personas involucradas, de los diferentes grados de responsabilidad y de las construcciones existentes a nivel de la organización.
+c. Empatía: capacidad de comprender y compartir los sentimientos, pensamientos y experiencias de otra persona, poniéndonos en su lugar de manera comprensiva, racional y sensibilidad ante las necesidades de los demás.
+d. Trabajo en Equipo: colaboración articulada de todos los funcionarios de la municipalidad, de manera tal - que logremos- objetivos estratégicos y la obtención de un resultado común que genere valor público.
+e. Excelencia: es la capacidad de brindar servicios con altos estándares para cumplir y satisfacer las necesidades del usuario. Significa aportar valor al usuario, esto es, ofreciendo unas condiciones de uso del servicio superiores a las que el usuario espera recibir.
+f. Cultura de Servicio: conjunto de prácticas o estrategias que lleva a cabo la organización estén orientadas hacia el usuario. La cultura de servicio nos ayuda a mejorar el servicio que proporcionamos a nuestros usuarios, logrando puntos de oportunidad para la mejora de los servicios y la atención que brindamos
+g. Igualdad: Principio de derechos humanos que exige tratar a todas las personas sin ningún tipo de discriminación. No es posible una conducta pública que haga distinciones.
+h. Responsabilidad: Se debe responder, de frente al país y a los órganos de control, investigación y sanción, por sus faltas desde los ámbitos ético, disciplinario, civil, político y penal.
+i. Honestidad: Actuamos con justicia, decoro, honradez y moderación, implicando una conducta razonable, recta y honrada, que facilita la transparencia, la credibilidad y la confianza en las relaciones interpersonales y laborales con diferentes compañeros/as, superiores jerárquicos y usuarios.
