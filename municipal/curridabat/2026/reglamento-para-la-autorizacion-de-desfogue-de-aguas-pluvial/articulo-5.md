@@ -1,0 +1,1 @@
+Artículo 5. Obras necesarias. Los proyectos indicados en el artículo anterior deberán implementar dentro del desarrollo un sistema de detención pluvial, según los lineamientos y parámetros de diseño contenidos en este Reglamento. El profesional responsable del diseño está en la libertad de proponer sistemas mixtos que justifiquen una reducción del volumen de detención.

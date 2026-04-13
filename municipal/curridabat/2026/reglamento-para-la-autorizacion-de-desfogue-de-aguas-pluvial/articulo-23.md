@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Procedimiento municipal
+Artículo 23. Trámite de la solicitud. Una vez recibida la solicitud con todos los requisitos, por parte del Departamento de Gestión Integral del Riesgo se dará respuesta en un plazo de treinta días hábiles a partir de la fecha de recepción. Si la solicitud se encuentra incompleta se notificará al solicitante en un plazo de cinco días hábiles para que proceda a completar la solicitud. Si transcurridos diez días hábiles desde la notificación no se reciben los documentos se procederá a finalizar el trámite y a futuro se deberá iniciar el trámite desde el principio. Estos plazos cuentan a partir del día siguiente de la notificación.

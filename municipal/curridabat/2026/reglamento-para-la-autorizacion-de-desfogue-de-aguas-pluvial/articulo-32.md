@@ -1,0 +1,1 @@
+Artículo 32. Incumplimiento en obra. La no construcción o modificación de obras de desfogue pluvial, derivará en la aplicación del Artículo 88 de la Ley de Construcciones, de conformidad con el debido proceso.

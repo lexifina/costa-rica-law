@@ -1,0 +1,35 @@
+Artículo 2. Definiciones.
+a. Aguas pluviales: Las aguas de escorrentía cuyo origen es por precipitación, que discurran por barrancos, caños, alcantarillado o ramblas y que desemboque a la red fluvial o pluvial.
+b. Alcantarillado pluvial: Red pública o privada de tuberías que se utilizan para recolectar y transportar las aguas de lluvia hasta su punto de descarga a un medio receptor.
+c. Áreas de protección: Refiérase al artículo 33 de la Ley Forestal de Costa Rica. "Se declaran áreas de protección las siguientes: a) Las áreas que bordeen nacientes permanentes, definidas en un radio de cien metros medidos de modo horizontal. b) Una franja de quince metros en zona rural y de diez metros en zona urbana, medidas horizontalmente a ambos lados, en las riberas de los ríos, quebradas o arroyos, si el terreno es plano, y de cincuenta metros horizontales, si el terreno es quebrado. c) Una zona de cincuenta metros medida horizontalmente en las riberas de los lagos y embalses naturales y en los lagos o embalses artificiales construidos por el Estado y sus instituciones. Se exceptúan los lagos y embalses artificiales privados. d) Las áreas de recarga y los acuíferos de los manantiales, cuyos límites serán determinados por los órganos competentes establecidos en el reglamento de esta ley".
+d. Áreas tributarias: Zona de la superficie terrestre en donde las gotas de lluvia que caen sobre ella tienden a ser drenadas hacia un mismo punto.
+e. Cauce de dominio público: Lo constituyen los ríos y sus afluentes directos o indirectos, arroyos o manantiales desde el punto en que broten las primeras aguas permanentes hasta su desembocadura en el mar o lagos, lagunas o esteros.
+f. Caudal: Es la cantidad de agua que escurre por algún conducto natural o artificial por unidad de tiempo, medido habitualmente en litros por segundo o en metros cúbicos por segundo.
+g. Caudal máximo instantáneo o caudal pico: Es el valor mayor de caudal registrado, o inferido de un hidrograma, durante una tormenta.
+h. Coeficiente de escorrentía: Es el porcentaje de agua, del total llovida, que escurre por el suelo sin ser retenida por ningún elemento externo, como vegetación o suelo. Se expresa como fracción de 1.
+i. Coeficiente de Manning: Es un índice el cual determina la resistencia de un flujo en un canal.
+j. Cuenca hidrográfica: Área definida por la topografía que encauza el agua superficial, producida por las lluvias y las lleva a un determinado río o quebrada.
+k. Cuerpo receptor: Cuerpo de agua superficial al cual se vierten aguas residuales tratadas o aguas pluviales.
+l. Desfogue pluvial: Autorización otorgada por la Municipalidad para encausar las aguas pluviales de una propiedad hacia un cuerpo receptor.
+m. Detención pluvial: Es la práctica de recolectar agua para almacenamiento temporal con la intención de liberarla posteriormente. Los sistemas de detención no retienen una reserva permanente significativa de agua entre eventos de escorrentía.
+n. Deslizamiento: Movimiento de capas de suelo o roca, ladera abajo producto de la existencia de zonas de menor resistencia, o zonas débiles de un macizo de suelo o roca.
+o. Erosión: Proceso de dislocación y acarreo de las partículas de suelo hacia otro lugar por la acción continua de algún agente erosivo, químico o mecánico, tal como agua, viento u otros.
+p. Hidrograma: Representación gráfica que muestra la variación en el caudal de una sección específica de un río o quebrada, durante un período.
+q. Hietograma: Representa gráfica que muestra la distribución de la intensidad de las precipitaciones a lo largo del tiempo.
+r. Huella constructiva: Toda área de construcción medida en planta que modifique el grado de impermeabilidad del suelo existente en una propiedad.
+s. Intensidad de la lluvia: Es la cantidad de lluvia precipitada en un período de tiempo determinado. Habitualmente medida en milímetros por hora (mm/h).
+t. Lagunas de detención: Adaptación de los embalses de control de crecida, con elementos que permiten su empleo en zonas urbanas. Las lagunas de detención se diseñan de manera que se vacíen totalmente después de un periodo relativamente corto una vez que pasa la tormenta y por lo tanto la mayor parte del tiempo se encuentran vacíos o secos.
+u. Período de recurrencia de una tormenta: Es una determinación estadística del período en años que se espera ha de transcurrir para que una tormenta o caudal de características muy similares vuelva a darse. La tormenta con un determinado período de recurrencia no necesariamente genera el caudal con ese mismo período, ya que la respuesta de la cuenca es variable.
+v. Red fluvial: Recorrido de los ríos, arroyos, lagos, lagunas y demás cauces que puede tener un cantón, provincia o país.
+w. Retiro de construcción: Demarca el límite de edificación permitido dentro de la propiedad.
+x. Servidumbre pluvial constituida: Es un derecho real que permite a una propiedad recibir las aguas pluviales que naturalmente escurren desde otra propiedad ya sea por condiciones topográficas preexistentes o porque así lo establece una ley o un acuerdo entre los propietarios.
+y. Sistema de detención pluvial: Obras que se caracterizan por almacenar de forma temporal la escorrentía y verterla de manera mesurada hacia un cuerpo de agua receptor o hacia un alcantarillado pluvial.
+z. Sistemas mixtos de detención pluvial: Combinación de técnicas de captación, almacenamiento temporal, infiltración, descarga controlada y reuso del agua de lluvia.
+aa. Sistemas urbanos de drenaje sostenible (SUDS): Técnicas de gestión de aguas pluviales y planeamiento urbano que pretende imitar procesos hidrológicos en el desarrollo urbanístico, controlando la escorrentía en el paisaje urbano para reducir la cantidad de agua del vertido final y mejorar la calidad del agua vertida al medio natural.
+bb. Socavación: Proceso de erosión progresiva de la base de un talud o ladera provocada por el agua o el viento. Ese fenómeno puede ocurrir en sistemas de drenaje, por filtración de las aguas y migración de las partículas finas del suelo.
+cc. Tanques de detención: Similares a las lagunas de detención en cuanto a su función, estas son estructuras cerradas y pueden ser construidas en concreto (prefabricadas o coladas en sitio), materiales plásticos o mediante un paquete de tuberías donde se contiene el volumen requerido.
+Estos tanques pueden ser construidos tanto superficialmente como subterráneos.
+dd. Tiempo de concentración de la cuenca: Es el tiempo que transcurre para que el agua de lluvia precipitada en el sector más alejado de la cuenca avance hasta un punto determinado dentro de la misma.
+ee. Tormenta: Evento de lluvia extremo que se caracteriza por la precipitación intensa.
+ff. Tragantes o sumideros: Son estructuras que tienen como función principal la captura de las aguas lluvias que transportan los elementos de conducción superficiales (caños, cunetas, canales, vados, entre otros) para transferirlos a la red subterránea de tuberías.
+gg. Zonas verdes: Áreas libres enzacatadas o arborizadas, de uso público comunal, destinadas a la recreación.
