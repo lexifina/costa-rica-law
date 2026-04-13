@@ -1,0 +1,1 @@
+Artículo 39. Regulación de propaganda por el Consejo. El Consejo tiene facultades para regular la propaganda, por lo que sus disposiciones son de acatamiento obligatorio para todas agrupaciones y personas candidatas.

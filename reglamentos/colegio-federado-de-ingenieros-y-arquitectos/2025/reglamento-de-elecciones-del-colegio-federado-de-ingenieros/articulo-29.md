@@ -1,0 +1,1 @@
+Artículo 29. Subsanación de requisitos. El Consejo Electoral podrá solicitar aclaraciones o subsanaciones sobre los documentos e información presentada, para lo cual otorgará al solicitante un plazo de hasta tres días hábiles para que se refiera. En caso de no responder dentro del plazo otorgado, la solicitud de inscripción se tendrá por archivada.

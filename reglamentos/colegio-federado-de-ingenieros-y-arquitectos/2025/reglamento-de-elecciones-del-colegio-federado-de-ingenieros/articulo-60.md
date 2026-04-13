@@ -1,0 +1,2 @@
+Artículo 60. Dirección del proceso electoral. El día de la Asamblea General Ordinaria convocada para elecciones, el Presidente del Colegio Miembro o quien lo sustituya presidirá la sesión, declarando iniciada la Asamblea General Ordinaria, la cual se mantendrá abierta hasta la conclusión del proceso electoral.
+La Asamblea General Ordinaria contará con la participación obligatoria de un integrante del Consejo Electoral de otro Colegio Miembro, quien actuará como observador.

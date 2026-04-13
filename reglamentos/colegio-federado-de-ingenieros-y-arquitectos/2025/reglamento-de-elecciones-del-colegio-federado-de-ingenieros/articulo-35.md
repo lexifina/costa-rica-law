@@ -1,0 +1,1 @@
+Artículo 35. Prohibición de participación de terceros. Queda prohibida la participación de personas que no pertenezcan al Colegio Miembro respectivo, a favor de los candidatos en actividades del proceso electoral.

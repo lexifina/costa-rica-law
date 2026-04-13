@@ -1,0 +1,1 @@
+Artículo 65. Acta de cierre de la jornada electoral. Al finalizar la jornada electoral, la persona integrante del Consejo Electoral, la empresa o la persona designada que opere el sistema electrónico de votación, y una persona abogada de la Asesoría Legal del Colegio Federado, levantarán y firmarán un acta de cierre de la jornada electoral.

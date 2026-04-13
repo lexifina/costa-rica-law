@@ -1,0 +1,1 @@
+Artículo 4. Ejercicio del sufragio. El derecho al voto es universal, libre, secreto, directo, personal e indelegable. Solo podrán ejercer el voto las personas colegiadas incorporadas y habilitadas conforme a la ley, que se encuentren al día con el pago de cuotas de colegiatura con el Colegio, según la periodicidad de pago elegida.

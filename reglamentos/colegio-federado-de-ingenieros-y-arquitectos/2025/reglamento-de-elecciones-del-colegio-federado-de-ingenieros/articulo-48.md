@@ -1,0 +1,4 @@
+Artículo 48. Modalidades de voto asistido. Para ejercer el voto asistido, se podrán utilizar las siguientes alternativas de votación:
+a) Voto público: la persona electora podrá manifestar ante la persona encargada de la respectiva Sede y un miembro del Comité Auxiliar Administrativo la intención de votar públicamente, con el fin de que marquen la papeleta conforme a la voluntad expresa de quien ejerce su voto.
+b) Voto semipúblico: la persona electora podrá ingresar al recinto establecida en compañía de alguna persona de su confianza que le ayudará a ejercer el voto. Esa persona deberá ser mayor de edad, debidamente identificada.
+El Consejo Electoral adoptará las medidas técnicas, logísticas y de accesibilidad necesarias para facilitar este procedimiento, asegurando que el proceso se desarrolle en condiciones de seguridad, privacidad y respeto a la voluntad del elector.

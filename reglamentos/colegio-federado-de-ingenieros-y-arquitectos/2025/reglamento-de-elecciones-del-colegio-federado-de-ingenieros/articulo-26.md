@@ -1,0 +1,6 @@
+Artículo 26. Requisitos de elegibilidad para Junta Directiva. Podrá participar como candidato(a) a integrar la Junta Directiva del Colegio Miembro, aquel agremiado(a) que se encuentre habilitado(a) para el ejercicio de su profesión y al día en el pago de sus cuotas de colegiatura con el Colegio. Los aspirantes a miembros de la Junta Directiva del Colegio Miembro deben ser ciudadanos costarricenses y haber estado colegiados al menos dos años, de conformidad con el artículo 62 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica. Adicional no deberán presentar las siguientes condiciones:
+a) No podrán participar aquellas personas que hayan recibido una sanción disciplinaria de inhabilitación en el ejercicio profesional, que se encuentre surtiendo efectos.
+b) No tener una condena penal mediante sentencia firme y vigente que lo inhabilite para cumplir los cometidos del cargo.
+c) No poseer una sanción firme y vigente emitida por la Contraloría General de la República, que lo inhabilite para cargos públicos.
+d) No ser miembro de Tribunal de Honor, ni funcionario del Colegio Federado.
+Las condiciones anteriores deberán mantenerlas las personas electas mientras ejerzan el cargo.

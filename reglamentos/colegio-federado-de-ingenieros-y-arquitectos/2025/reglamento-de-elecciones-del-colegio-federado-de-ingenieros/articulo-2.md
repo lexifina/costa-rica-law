@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este Reglamento se aplica al proceso electoral y la elección de las personas que integrarán las Juntas Directivas de los Colegios Miembros, la Junta Directiva General y la Asamblea de Representantes del Colegio Federado.

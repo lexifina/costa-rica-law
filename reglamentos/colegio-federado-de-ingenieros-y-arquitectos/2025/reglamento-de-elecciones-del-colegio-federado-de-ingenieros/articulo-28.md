@@ -1,0 +1,9 @@
+Artículo 28. Reglas para la inscripción de candidaturas. La solicitud de inscripción de candidatura se presentará en el formulario que se establezca al afecto, ante el Colegio Miembro, quien lo remitirá al Consejo Electoral.
+La inscripción deberá hacerse en forma individual. Las personas interesadas podrán postularse únicamente para uno de los cargos disponibles, sea para integrar la Junta Directiva del respectivo Colegio Miembro o para desempeñarse como delegado ante la Asamblea de Representantes. En ningún caso podrán figurar en más de una postulación, ya sea para conformar la Junta Directiva o para ser designados como delegados ante la Asamblea de Representantes. En consecuencia, solo se podrá aspirar a un puesto.
+La solicitud de inscripción debe cumplir, al menos, los siguientes requisitos de forma:
+a) Incluir el nombre completo de cada persona candidata, fotografía, el puesto para el que se postula, calidades, número de cédula y número de carné profesional, además de la manifestación expresa de aceptación de la candidatura debidamente firmada.
+b) Queda absolutamente prohibido el uso de banderas, colores, emblemas, símbolos nacionales o signos distintivos del Colegio Federado, Colegio Miembro u otros que la institución defina en el futuro.
+c) Designar el correo electrónico permanente para atender notificaciones registrado ante el Colegio Federado.
+Para esta solicitud también se debe tomar en cuenta que:
+I. Quienes aspiren a ocupar puestos en la Junta Directiva y en la Asamblea de Representantes deben cumplir con los requisitos dispuestos en los artículos 26 y 27 del presente Reglamento, según corresponda.
+II. Que para conformar la Junta Directiva de cada uno de los Colegios Miembros, los miembros no podrán ser reelectos para períodos sucesivos, salvo en cargos diferentes.

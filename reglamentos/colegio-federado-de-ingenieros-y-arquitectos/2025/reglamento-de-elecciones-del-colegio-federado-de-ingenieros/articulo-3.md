@@ -1,0 +1,1 @@
+Artículo 3. Principios rectores. Los procesos electorales se rigen por los principios de legalidad, transparencia, objetividad, participación libre y equitativa, igualdad de condiciones entre las candidaturas, confidencialidad del sufragio, publicidad de los resultados, neutralidad institucional y responsabilidad.

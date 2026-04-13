@@ -1,0 +1,1 @@
+Artículo 53. Organización de la votación. El Consejo Electoral organizará y dispondrá la votación electrónica, la cual deberá celebrarse en la fecha y horario señalados en la convocatoria, habilitando un único sistema de votación en el sitio web dispuesto para tal efecto.

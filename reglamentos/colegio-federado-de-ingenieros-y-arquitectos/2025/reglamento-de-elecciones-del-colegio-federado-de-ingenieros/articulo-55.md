@@ -1,0 +1,1 @@
+Artículo 55. Validez de los votos. Serán considerados válidos únicamente los votos emitidos de acuerdo con los mecanismos de seguridad previstos por el sistema electrónico, avalados por el Consejo Electoral. Los votos en blanco o nulos no se adjudicarán a ninguna candidatura.

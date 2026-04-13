@@ -1,0 +1,1 @@
+Artículo 57. Plazo para inscripción de candidaturas. Las candidaturas deberán inscribirse dentro del período que va del 1 de agosto al 31 de agosto, cumpliendo con los requisitos legales y reglamentarios establecidos al efecto.

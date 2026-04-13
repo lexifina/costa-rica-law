@@ -1,0 +1,1 @@
+Artículo 33. Derechos de las personas candidatas. Las personas candidatas tendrán derecho a realizar propaganda para la elección, de acuerdo con los cánones éticos definidos por el Código de Ética Profesional del CFIA y deben mantener el respeto hacia las otras personas postulantes a los distintos puestos.

@@ -1,0 +1,1 @@
+Artículo 50. Comunicados de carácter electoral. Los comunicados de carácter electoral deberán ser publicados por el Colegio Miembro a través de sus medios digitales, en coordinación con el Consejo Electoral, salvo que éste último defina otro mecanismo.

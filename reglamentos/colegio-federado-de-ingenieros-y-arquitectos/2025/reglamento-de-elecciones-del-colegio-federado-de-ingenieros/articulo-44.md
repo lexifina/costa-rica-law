@@ -1,0 +1,1 @@
+Artículo 44. Mecanismos de verificación. Para ejercer el voto electrónico, el elector deberá cumplir con los mecanismos de seguridad que establezca el Consejo Electoral acorde con el programa informático que se utilice. El sistema verificará los datos en el padrón y posterior a ello podrá emitir el voto.

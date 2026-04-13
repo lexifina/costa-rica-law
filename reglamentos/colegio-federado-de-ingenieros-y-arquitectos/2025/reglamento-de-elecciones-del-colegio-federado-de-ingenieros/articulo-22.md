@@ -1,0 +1,9 @@
+CAPÍTULO IV. DEL PADRÓN ELECTORAL
+Artículo 22. Padrón electoral. El padrón electoral estará conformado por las personas colegiadas que se encuentren debidamente habilitadas, en pleno goce de sus derechos y con el pago de la cuota colegiatura al día, conforme a la normativa vigente.
+Existirá un padrón electoral provisional se pondrá a disposición de las personas colegiadas con una antelación mínima de quince (15) días naturales a la fecha de realización de la elección, y mantendrá dicho carácter hasta su cierre definitivo.
+Durante la vigencia del padrón electoral provisional, el Consejo Electoral dispondrá la inclusión de personas colegiadas y efectuará las correcciones que correspondan, con base en la información oportuna suministrada por la Administración, hasta el cierre definitivo del padrón electoral.
+Las personas colegiadas que no figuren en el padrón electoral provisional deberán comunicarlo oportunamente al Consejo Electoral, por los medios que se habiliten al efecto, a fin de que se verifique su inclusión antes del cierre definitivo.
+Formarán parte del padrón electoral las personas colegiadas que adquieran la condición de habilitadas con posterioridad a la publicación del padrón provisional y antes del cierre definitivo, conforme a lo dispuesto en el artículo 24 del presente Reglamento.
+El padrón electoral definitivo quedará cerrado siete (7) días naturales antes de la fecha de realización de la elección.
+El Consejo Electoral, en coordinación con el Comité Auxiliar Administrativo del Colegio Miembro respectivo, realizará la divulgación previa y necesaria del padrón electoral por los medios idóneos que determine.
+La verificación y validación de la condición financiera de las personas colegiadas, para efectos de su habilitación electoral, corresponderá a la Dirección Administrativa Financiera, en coordinación con cualquier otro órgano competente interno del Colegio Federado, de conformidad con los registros institucionales oficiales.

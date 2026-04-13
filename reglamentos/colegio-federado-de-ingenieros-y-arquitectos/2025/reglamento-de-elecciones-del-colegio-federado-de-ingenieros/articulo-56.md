@@ -1,0 +1,1 @@
+Artículo 56. Convocatoria a elecciones por parte de la Junta Directiva. La Junta Directiva del Colegio Miembro emitirá la convocatoria a las personas colegiadas durante el mes de julio, indicando los cargos a elegir, requisitos, plazos, condiciones de participación y demás elementos que estime necesarios para el adecuado desarrollo del proceso electoral.

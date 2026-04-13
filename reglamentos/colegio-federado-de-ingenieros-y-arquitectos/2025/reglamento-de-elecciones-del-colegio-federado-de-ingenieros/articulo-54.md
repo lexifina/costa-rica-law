@@ -1,0 +1,1 @@
+Artículo 54. Medios de asistencia a votantes. El Consejo Electoral, en coordinación con el Colegio Miembro, promoverá la existencia de un medio de comunicación accesible, con personal debidamente capacitado que brinde asistencia a los colegiados con dificultades en el ejercicio del voto.
