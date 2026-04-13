@@ -1,0 +1,1 @@
+Artículo 50. Procedimiento. Para la aplicación de las medidas preventivas y sanciones establecidas en el artículo anterior, se seguirá el procedimiento abreviado establecido en la Ley General de Administración Pública, Ley 6227.

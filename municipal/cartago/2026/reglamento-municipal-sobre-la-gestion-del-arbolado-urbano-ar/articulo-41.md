@@ -1,0 +1,1 @@
+Artículo 41. Árboles patrimoniales en propiedad privada. Se podrá analizar y declarar un árbol patrimonial en propiedad privada, siempre que la solicitud sea impulsada por la persona propietaria del terreno donde está ubicado el árbol.

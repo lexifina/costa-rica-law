@@ -1,0 +1,1 @@
+Artículo 35. Alcance. El alcance geográfico del Plan podrá cubrir toda el área urbana del cantón o ser parcial, priorizando los distritos o zonas con mayores necesidades. En caso de que el Plan sea parcial, sus actualizaciones irán ampliando progresivamente el alcance geográfico hasta cubrir toda el área urbana del Cantón.

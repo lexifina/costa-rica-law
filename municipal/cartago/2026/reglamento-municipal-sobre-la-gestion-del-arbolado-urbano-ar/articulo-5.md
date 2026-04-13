@@ -1,0 +1,17 @@
+Artículo 5. Obligaciones municipales. En la aplicación del presente Reglamento, la Municipalidad de Cartago tendrá las siguientes obligaciones:
+1) Integrar a nivel multidisciplinario el Equipo Técnico de Arbolado para realizar los procesos de gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde con enfoque de paisaje.
+2) Desarrollar los procesos de gestión del arbolado urbano, arbustos y herbáceas según las fases y criterios establecidos en el presente Reglamento.
+3) Implementar el enfoque de riesgo de desastre, género y accesibilidad universal en los procesos de planificación y gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana.
+4) Promover que los procesos de planificación y gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana sean lo más participativos posibles, con el fin de que las comunidades colaboren y se apropien de los procesos de intervención en la infraestructura verde.
+5) Incluir un monto en el presupuesto anual ordinario para procesos de gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana.
+6) Priorizar y desarrollar procesos de gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana con base en un Plan Director.
+7) Capacitar al personal técnico municipal a cargo de la arborización urbana y gestión de la infraestructura verde urbana, y del público, sobre la aplicación del presente Reglamento.
+8) Procurar la aplicación de la normativa nacional INTE-B51-6 plantación y trasplante o las normas técnicas internacionales para la ejecución de buenas prácticas de arboricultura, tales como la norma del Instituto Nacional Estadounidense de Estándares (ANSI) A300 elaborada para la industria del cuidado del árbol y otras plantas leñosas.
+9) Procurar contar con la asesoría de una persona arboricultora en los procesos de gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana, así como de profesionales correspondientes en procesos de rehabilitación ecológica.
+10) Solicitar dentro de los procesos de contratación administrativa o personal voluntario implementar los procesos de gestión del arbolado urbano, arbustos y herbáceas en la infraestructura verde urbana, establecidos en este Reglamento y el Plan Director.
+11) Podar o cortar árboles en la infraestructura verde urbana, de oficio o a solicitud de parte, de conformidad con lo establecido en este Reglamento y la legislación vigente.
+12) Apoyar procesos de monitoreo de conectividad funcional en los territorios, que permitan conocer el estado de la biodiversidad y orientar acciones hacia el cumplimiento en la recuperación de sostenibilidad de los ecosistemas a largo plazo.
+13) Incentivar estrategias de preservación de árboles nativos en terrenos, públicos y privados, con el fin de mantener o conservar la cobertura verde del Cantón.
+14) Promover el reemplazo progresivo de árboles exóticos para aumentar especies nativas, bajo un enfoque de gestión de riesgo.
+15) Incluir en el diseño, ejecución y financiamiento de los proyectos de renovación urbana, movilidad activa, infraestructura vial cantonal, alcantarillado pluvial y cualquier otra competencia municipal, elementos de infraestructura verde urbana, acordes al proyecto a desarrollar.
+16) Coordinar con empresas e instituciones públicas, que por sus competencias realicen podas en áreas urbanas, para que mejoren sus prácticas de poda y se ajusten a lo solicitado en este Reglamento.

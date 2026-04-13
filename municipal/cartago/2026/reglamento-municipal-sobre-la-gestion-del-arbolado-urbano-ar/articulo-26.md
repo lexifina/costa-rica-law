@@ -1,0 +1,1 @@
+Artículo 26. Reservas de dominio a favor de la Nación. Las disposiciones de la presente sección también aplicarán a las reservas de dominio a favor de la Nación definidas por el artículo 31 de la Ley de AGUAS, Ley 276.

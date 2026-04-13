@@ -1,0 +1,2 @@
+Artículo 18. Reposición de árboles urbanos talados. El Equipo Técnico de Arbolado deberá reponer cada árbol talado con la plantación y mantenimiento de dos a seis árboles de especies nativas, para lo cual considerará los servicios ecosistémicos brindados por el árbol talado.
+La reposición puede ser en el área de tala o cualquier otro sitio que El Equipo Técnico de Arbolado estime conveniente. Las características técnicas de los árboles a plantar deberán adaptarse a las condiciones del sitio de plantación y los demás requerimientos solicitados en el presente Reglamento.
