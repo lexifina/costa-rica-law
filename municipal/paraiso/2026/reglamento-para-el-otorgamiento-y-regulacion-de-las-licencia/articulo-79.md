@@ -1,0 +1,1 @@
+Artículo 79. Deber de informar sobre conductas sancionables. Es deber de los Inspectores Municipales, así como de la Policía Municipal, informar a la Municipalidad de las personas físicas o jurídicas que contravengan lo dispuesto en el presente reglamento- Dichos informes serán canalizados por medio del Departamento de Patentes.

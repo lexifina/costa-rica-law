@@ -1,0 +1,1 @@
+Artículo 40. Fase recursiva. -Las resoluciones administrativas del Departamento de Patentes relacionadas con solicitudes de licencias, traslados, traspasos, renuncias, recalificaciones, suspensiones, cancelaciones y exclusiones, tendrán recurso de revocatoria ante el Departamento de Patentes y el de apelación ante la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 69.- Irregularidades. -Ante la detección de irregularidades de parte del propietario del establecimiento, espectáculo o diversión, se realizará una tasación de oficio, hecha por el Jefe del Departamento de Patentes de la Municipalidad o por quien este designe, previo debido proceso.

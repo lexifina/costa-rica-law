@@ -1,0 +1,1 @@
+Artículo 70.- Pago. -El pago del impuesto, será establecido mediante la autoliquidación presentada. El pago del impuesto deberá ser cancelado en diferentes medios de pago designados por la Municipalidad.

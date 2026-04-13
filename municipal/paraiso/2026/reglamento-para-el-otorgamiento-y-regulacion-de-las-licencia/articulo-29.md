@@ -1,0 +1,9 @@
+Artículo 29.- Eliminación o Renuncia de la Licencia municipal. - Cuando el patentado no desee o no pueda continuar ejerciendo del todo la(s) actividad(es) económica(s) autorizada(s) mediante la Licencia Municipal, podrá renunciar expresamente a dicho derecho, lo cual conllevará la extinción total de la licencia otorgada. Para ello, deberá cumplir con los siguientes requisitos establecidos para tal efecto:
+Requisitos generales de eliminación o renuncia:
+a) Formulario de Solicitud de Modificación de licencia municipal, debidamente lleno, el cual debe ser firmado por el solicitante de la licencia. (Ley de Regulación del Derecho de Petición 9097)
+b) Documento de identidad del solicitante. Si la modificación es solicitada por una persona jurídica debe adjuntar original de personería jurídica vigente y aportar documento de identidad del Representante Legal. (Ley N°3504. Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil/ Ley 9342. Código Procesal Civil)
+c) Hacer entrega del certificado de la licencia municipal anterior, caso contrario presentar declaración jurada indicando por qué no posee el certificado original.
+d) Señalar lugar y medio de notificación dentro del espacio establecido para estos fines en el formulario. (Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales Ley 7637)
+Requisitos de verificación de eliminación o renuncia.
+Tanto el solicitante de la licencia comercial o la empresa, así como el propietario(os) del inmueble donde se va a eliminar la licencia municipal, deberán estar al día en el pago de impuestos y tarifas municipales, incluidos arreglos de pago y demás obligaciones formales. (Ley 4755. Código de Normas y Procedimientos Tributarios). Esta disposición tiene como finalidad la extinción de licencias sin obligaciones pendientes.
+Una vez firme esta renuncia el derecho otorgado se extinguirá.

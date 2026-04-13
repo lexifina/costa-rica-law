@@ -1,0 +1,18 @@
+MUNICIPALIDAD DE PARAÍSO
+MUPA-SECON-CERT-19-2026
+Cinthya Fernández Montenegro
+SECRETARIA DEL CONCEJO MUNICIPAL
+CERTIFICA
+Que, según consta en la Sesión Ordinaria N°118-2026 celebrada el 03 de marzo del dos mil veintiséis el Concejo Municipal de la Municipalidad de Paraíso, aprobó en firme y definitivamente, en su Artículo VI, Inciso 3, el Acuerdo 56 y 57, la segunda publicación del Reglamento para el Otorgamiento y Regulación de las Licencias Comerciales de la Municipalidad de Paraíso, mismo publicado por primera vez el martes 20 de enero del 2026, en el Alcance N°5 de la Gaceta N°12, el cual literalmente dice:
+REGLAMENTO PARA EL OTORGAMIENTO Y REGULACIÓN DE LAS
+LICENCIAS COMERCIALES DE LA MUNICIPALIDAD DE PARAÍSO
+Considerando:
+I. Que la Ley 7140 de Impuestos Municipales del Cantón de Paraíso tiene por objeto regular el cobro de los impuestos de patente a todas las personas físicas o jurídicas que ejerzan actividades lucrativas dentro del cantón, con el fin de generar recursos financieros necesarios para el desarrollo de la comunidad y garantizar el cumplimiento de los servicios municipales.
+II. Que el Artículo 1 de dicha ley establece la obligatoriedad de obtener una licencia municipal para el ejercicio de actividades lucrativas y el establecimiento de un impuesto de patente para los contribuyentes de acuerdo con las características y condiciones definidas en la ley.
+III. Que es necesario establecer los procedimientos claros y las directrices operativas para asegurar la correcta aplicación de los impuestos sobre las actividades lucrativas en el Cantón de Paraíso, de acuerdo con los artículos 3 y 4, que indican cómo deben calcularse los impuestos tomando en cuenta las ventas o ingresos brutos y la renta líquida gravable de los contribuyentes.
+IV. Que, para asegurar el cumplimiento de la ley y las disposiciones que de ella derivan, la Municipalidad de Paraíso, conforme al Artículo 20, tiene la facultad de adoptar las medidas administrativas necesarias para llevar a cabo una fiscalización adecuada y la recaudación del impuesto de patente, protegiendo los intereses de la Municipalidad y de los contribuyentes.
+V. Por tanto, en atención a la necesidad de reglamentar los aspectos operativos y prácticos de la Ley 7140 de Impuestos Municipales del Cantón de Paraíso, se hace necesario establecer un conjunto de disposiciones reglamentarias que den cumplimiento a los fines de la ley, aseguren su aplicación efectiva y fortalezcan la capacidad administrativa de la Municipalidad en la fiscalización y recaudación del impuesto de patente.
+VI. Que, de conformidad con lo dispuesto en la Ley N.° 8220, "Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", y su Reglamento, contenido en el Decreto Ejecutivo N.° 37045-MP-MEIC y sus reformas, se tramitó ante la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio el correspondiente Análisis Costo-Beneficio de este reglamento. Dicho órgano, mediante el informe DMR-DAR-INF-251-2025, concluyó que la propuesta regulatoria cumple con los principios de mejora regulatoria.
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 1.- Objeto.- El presente Reglamento tiene por objeto organizar las normas que regulan la gestión del Departamento de Patentes de la Municipalidad de Paraíso, de conformidad con lo preceptuado en la Ley 7140 Impuestos Municipales de Paraíso, lo señalado en el artículo 88 siguientes y concordantes del Código Municipal y artículo 2 inciso d) del Código de Normas y Procedimientos Tributarios y será de observación obligatoria para los funcionarios municipales, involucrados directa o indirectamente en las gestiones de licencia municipal y la determinación del impuesto de licencia municipal.

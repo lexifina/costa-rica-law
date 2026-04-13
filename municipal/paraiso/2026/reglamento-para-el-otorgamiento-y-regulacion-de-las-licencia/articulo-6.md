@@ -1,0 +1,2 @@
+Artículo 6.- Área de influencia geográfica de aplicación. - Este Reglamento podrá ser aplicado para todas aquellas actividades lucrativas que requieran licencia municipal ubicada en el Cantón de Paraíso.
+La propiedad donde se va a instalar el negocio debe reunir las condiciones para dar el servicio sin que obstaculice el paso a peatones y la circulación vehicular, y las disposiciones del Plan Regulador del Cantón de Paraíso

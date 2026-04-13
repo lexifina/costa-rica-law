@@ -1,0 +1,17 @@
+Artículo 81.- Clausura de local. - En los casos indicados en el artículo anterior y los que se detallan a continuación podrá la autoridad municipal, de requerirlo, acudir a la Policía Municipal o a la Fuerza Pública para proceder a la clausura del local donde se ejerza la actividad, en los términos establecidos en el ordenamiento jurídico, sin responsabilidad para esta Municipalidad y previo cumplimiento del debido proceso, salvo el inciso a), en los siguientes casos:
+a) En cualquier caso, que la Municipalidad conozca y confirme que existe una actividad lucrativa que se ejerce dentro del cantón de Paraíso sin la correspondiente licencia municipal.
+b) En cualquier caso, que la Municipalidad conozca y confirme el no cumplimiento de alguno(s) de los requisitos establecidos en este Reglamento, por parte de aquel a quien se haya otorgado un permiso o licencia municipal en los términos regulados por este Reglamento.
+c) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en los bienes muebles o inmuebles en que explota la licencia municipal, que no hayan sido expresamente autorizados por la Municipalidad.
+d) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en el bien mueble o inmueble en que explota la licencia municipal que están expresamente prohibidas de acuerdo con las normas jurídicas vigentes.
+e) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en el bien inmueble o mueble en que explota la licencia municipal que están expresamente restringidas de acuerdo con las normas jurídicas vigentes en el ordenamiento jurídico nacional y en los casos en que se demuestre que no las realiza en las condiciones de la restricción impuesta.
+f) En los casos de que se declare un acto de suspensión de licencia municipal según lo que se indica en el artículo siguiente.
+.Artículo 81.- Suspensión de la Licencia municipal. - La Municipalidad por medio del Departamento de Patentes, previo debido proceso, quedará autorizada para suspender la licencia municipal a los negocios que:
+a) Incumplan los requisitos que las leyes establezcan para el ejercicio de la actividad por explotar.
+b) Incumplan con las restricciones, obligaciones y prohibiciones dispuestas en este Reglamento según la actividad económica.
+c) Desacaten los requisitos exigidos por leyes conexas para el desarrollo de la actividad económica.
+d) Violenten el orden y la tranquilidad pública.
+De igual forma quedará autorizada la Municipalidad, por medio del Departamento de Gestión Comercial para suspender la licencia municipal a los negocios que:
+a) Estén morosos en el pago del impuesto de patentes, de dos trimestres o más.
+La suspensión de la licencia municipal implica el cierre temporal del negocio hasta que el patentado se ponga a derecho con sus incumplimientos; en caso de reincidencia se podrá iniciar el debido proceso para la clausurará del negocio en forma definitiva.
+Además, serán sancionados con multa equivalente a tres salarios base al propietario, administrador o responsable de un establecimiento que, con la licencia municipal suspendida, siga operando la actividad.
+Para el cumplimiento de lo anterior la Municipalidad podrá pedir colaboración a las autoridades policiales que considere conveniente, las cuales estarán obligadas a brindárselas.

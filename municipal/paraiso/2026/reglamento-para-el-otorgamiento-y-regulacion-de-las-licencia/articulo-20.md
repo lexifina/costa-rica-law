@@ -1,0 +1,1 @@
+Artículo 20.-Basura comercial. Todo patentado cancelará la tasa correspondiente al servicio de recolección y disposición de desechos sólidos, según la tarifa comercial que sea aprobada por la Municipalidad. Ley 7794 Código Municipal, artículo 83

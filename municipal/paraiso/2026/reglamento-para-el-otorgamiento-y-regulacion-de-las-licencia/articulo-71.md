@@ -1,0 +1,1 @@
+Artículo 71.- Multa. - Según lo estipulado en el artículo 3 de la Ley de Impuestos a Espectáculos Públicos, Nº 6844, la Municipalidad de Paraíso, impondrá una multa equivalente a diez veces el monto dejado de pagar, a los contribuyentes que incurran en la falta de pago de este impuesto.

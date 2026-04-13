@@ -1,0 +1,1 @@
+Artículo 16.-Emisión del certificado. Después de aprobada la Licencia Municipal, se deberá emitir el certificado correspondiente, el cual deberá ser exhibido por el patentado en el negocio donde opere la licencia y el mismo podrá ser requerido por las autoridades municipales, en el momento que lo consideren oportuno.

@@ -1,0 +1,1 @@
+Artículo 23.- Modificación de Licencia Municipal de Funcionamiento. - Para modificar una licencia de funcionamiento se requiere el Formulario de Solicitud de Modificación Licencia Municipal, para los siguientes casos: Traspaso, Traslado, Ampliación de Actividad, Eliminación o Renuncia de Actividad, Cambio de Nombre Comercial o de Razón Social.

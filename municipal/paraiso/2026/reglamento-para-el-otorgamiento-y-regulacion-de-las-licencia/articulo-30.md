@@ -1,0 +1,9 @@
+Artículo 30.- Solicitud de Reposición de Certificado (Cartón) de Licencia Comercial. - En los casos en que el patentado requiera una reimpresión del certificado por deterioro, pérdida o robo de este podrá solicitarlo mediante el formulario los siguientes requisitos:
+Requisitos generales de reposición:
+a) Formulario de solicitud de Reposición de Certificado (Cartón) de Licencia debidamente lleno y firmado por el patentado. (Ley de Regulación del Derecho de Petición 9097).
+b) Documento de identidad del solicitante. Si el trámite es solicitado por una persona jurídica debe adjuntar original de personería jurídica vigente y documento de identidad del representante legal de la sociedad. Ley N°3504. Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil/ Ley 9342. Código Procesal Civil)
+c) Estar al día con el pago de las obligaciones con la Caja Costarricense del Seguro Social, (CCSS) según lo previsto en el artículo 74 de la Ley Constitutiva de la CCSS, así como en las demás obligaciones tributarias materiales y formales, de conformidad con lo previsto en el numeral 18 bis de la Ley 4755 "Código de Normas y Procedimientos Tributarios" y numeral 2 de la Ley Número 7140 "Ley de Impuestos Municipales de Paraíso."
+d) Entregar el certificado (cartón) a reponer., caso contrario presentar declaración jurada indicando por qué no posee el certificado original.
+e) Señalar lugar y medio de notificación dentro del espacio establecido para estos fines en el formulario. (Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales Ley 7637)
+Requisitos de verificación de reposición:
+Tanto el solicitante como el propietario (s) del inmueble deberán estar al día con el pago de tributos y precios municipales, incluidos arreglos de pago, así como dar cumplimiento a las obligaciones formales. (Ley 4755. Código de Normas y Procedimientos Tributarios)

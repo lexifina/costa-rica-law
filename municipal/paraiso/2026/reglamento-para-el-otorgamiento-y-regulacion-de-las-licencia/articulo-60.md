@@ -1,0 +1,7 @@
+CAPITULO VI
+LICENCIA PARA LA REALIZACIÓN DE ESPECTÁCULOS PÚBLICOS
+Considerando:
+I. El artículo 170 de la Constitución Política y el artículo 4 del Código Municipal, establecen que compete a la Administración Municipal el velar por los intereses y servicios locales, concepto en el cual se encuentra inmerso el velar por un adecuado funcionamiento de la actividad lucrativa que se realiza en el Cantón De conformidad con lo que establecen los artículos 88, 89, 90 y 90 bis del Código Municipal, Ley N° 7794 del 16 de abril de 1998, compete a la Municipalidad, la potestad de establecer las políticas generales de las actividades lucrativas por desarrollarse en el Cantón.
+II. La Jurisprudencia de la Sala Constitucional de la Corte Suprema de Justicia ha sido consecuente con la facultad municipal de controlar y administrar todo espectáculo público que se realice en su jurisdicción.
+III. Que en igual sentido en los últimos años se han dictado una serie de dictámenes por parte de la Procuraduría General de la República, la cual constituye jurisprudencia administrativa que debe ser tomada en cuenta por el gobierno local.
+Artículo 60.- Objetivo y alcance: Otorgar a la administración Municipal la potestad para regular y controlar las licencias para la realización de espectáculos públicos dentro del cantón de Paraíso, asegurando que estos eventos se realicen conforme a las regulaciones establecidas por la Municipalidad.
