@@ -1,1 +1,0 @@
-Artículo 7°- Comunicación de declaratoria de incobrabilidad. La resolución debidamente aprobada por la Gerencia General que declare la incobrabilidad de una deuda será comunicada al Departamento Financiero Contable y Presupuestario, para que proceda a realizar la liquidación de las cuentas por cobrar, según la normativa establecida.
