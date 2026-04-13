@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Obtención de los servicios
+Artículo 13º.-Para que la Municipalidad considere una solicitud de servicios es indispensable que se disponga de vías públicas de acceso o bien servidumbre de paso de agua constituida en favor de la Municipalidad de San Carlos, al perímetro de la propiedad a la que pertenece la edificación, en las cuales existan o puedan instalarse las tuberías del caso. De existir solicitudes del servicio donde el acceso a la propiedad es por servidumbre de paso de agua, el propietario del inmueble deberá proveer e instalar debidamente todo el sistema de tubería necesaria desde la red pública hasta el perímetro de la propiedad según las normas y/o indicaciones de la parte técnica del Acueducto.

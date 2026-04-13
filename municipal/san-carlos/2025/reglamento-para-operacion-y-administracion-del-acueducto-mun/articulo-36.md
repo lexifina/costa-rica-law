@@ -1,0 +1,2 @@
+Artículo 36º.-Es obligación de la Municipalidad hacer reparaciones que requiera el Acueducto.
+Las acometidas forman parte de las redes de acueductos y su mantenimiento y reparación corresponden a la Municipalidad. Las conexiones intradomiciliarias defectuosas serán reparadas por el abonado. Se entenderá como responsabilidad del Acueducto reparar hasta el medidor inclusive, del mismo hacia la propiedad es responsabilidad del abonado.

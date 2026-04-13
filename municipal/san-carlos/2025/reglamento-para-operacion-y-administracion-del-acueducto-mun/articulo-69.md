@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De la reconexión
+Artículo 69º.-Para que se reconecte un servicio que haya sido suspendido, el usuario deberá cancelar los recibos que tuviera atrasados, así como los intereses, multas y el derecho de reconexión, que pesen sobre dichas deudas. Quedan a salvo de lo anterior, los arreglos de pago, siempre que cancelen el derecho de reconexión. En casos del abonado no poder cancelar todas las obligaciones Municipales podrá solicitar se le reconecte el servicio pagando el último mes vigente, esto para salvaguardar el derecho humano al agua. No obstante, la administración del Acueducto también podrá ejercer la respectiva corta tantas veces este en la condición de mora, generando campañas de cortas mensuales, semanales o diarias según se requiera.

@@ -1,0 +1,1 @@
+Artículo 52º.- La lectura se realizarán del día 1 al 10 de cada mes. La revisión y/o depuración de los consumos recogidos en lectura se dará del día 11 al último día de cada mes, siendo esto competencia operativa por ende del Departamento del Acueducto. Pasado ese periodo el consumo real se transforma en monto económico facturado y esto pasa a ser materia tributaria.

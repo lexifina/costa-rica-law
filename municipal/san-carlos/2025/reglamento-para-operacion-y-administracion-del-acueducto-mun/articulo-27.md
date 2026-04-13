@@ -1,0 +1,1 @@
+Artículo 27°- Cuando en una misma conexión existen unidades de consumo con diferente uso, se aplicará la tarifa más alta. Sin embargo, el propietario puede pedir a la Municipalidad la individualización del servicio por categoría, siempre y cuando el sistema interno permita esta separación y se cumpla con los demás requerimientos que al efecto establezca la Municipalidad.

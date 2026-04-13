@@ -1,0 +1,1 @@
+Artículo 56°. ---Inconsistencias: Cada lector que verifique cualquier inconsistencia o irregularidad, lo informara al Departamento de Acueducto al momento de hacer la lectura en los lectores digitales empleados en el campo, a fin de que día dichos datos se integren al sistema de facturación.

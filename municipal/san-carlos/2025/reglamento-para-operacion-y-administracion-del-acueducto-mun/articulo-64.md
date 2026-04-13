@@ -1,0 +1,3 @@
+Artículo 64º.-Se prohíbe a los Servidores Municipales, realizar las siguientes acciones: Actos que interfiera con el fiel cumplimiento de las estipulaciones del presente Reglamento y el Código Municipal, en cuyo caso se les aplicarán los procedimientos y sanciones establecidos en el Código Municipal.
+a. Utilizar los recursos Municipales tangibles o intangibles en obras no autorizadas por el Departamento del Acueducto Municipal.
+b. Autorizar, sea expresa o tácitamente, urbanizaciones, segregaciones o demás construcciones, sin la presentación y verificación de los requisitos reglamentarios indicados.

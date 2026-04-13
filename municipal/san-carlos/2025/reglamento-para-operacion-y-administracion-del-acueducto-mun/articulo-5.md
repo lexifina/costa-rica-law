@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del servicio en general
+Artículo 5º-Todo propietario de inmuebles con edificaciones dedicadas al trabajo o residencia de personas, ubicados con proximidad a red (que será definida por un criterio técnico del jefe del Acueducto o el Ingeniero del Departamento, además de criterios definidos en el manual de proceso de Disponibilidad de Agua). Tendrá el derecho de solicitar al Departamento de Acueductos las conexiones respectivas. Los servicios sólo se concederán al propietario del inmueble, previa presentación de certificación registral que así lo acredite, o a su representante legal, siempre y cuando presente el documento público que así lo demuestre.

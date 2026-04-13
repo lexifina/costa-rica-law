@@ -1,0 +1,1 @@
+Artículo 9º.-La Municipalidad no incurrirá en responsabilidad alguna en la red del Acueducto Municipal, cuando por mantenimiento, reparación, organización, funcionamiento, y proyección, así también en caso fortuito, o fuerza mayor, como cualquier otra causa justificada, se cause insuficiencia o impureza real o alegada del servicio de agua suministrada por el sistema.

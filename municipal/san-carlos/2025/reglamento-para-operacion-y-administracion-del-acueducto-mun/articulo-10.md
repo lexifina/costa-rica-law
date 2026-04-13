@@ -1,0 +1,1 @@
+Artículo 10º.-La Municipalidad prestará un servicio de agua medido: Son aquellos que se pagarán de acuerdo con los consumos reales efectuados y medidos a través del hidrómetro, se cobrará de acuerdo con las tarifas aprobadas por el Concejo Municipal y publicado en el Diario Oficial La Gaceta.

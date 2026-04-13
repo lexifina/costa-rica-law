@@ -1,0 +1,1 @@
+Artículo 51º.-Por atraso o vencimiento en el pago del servicio de agua potable, se cobrarán intereses, de conformidad con el código municipal y al artículo 13 de la Ley General de Agua Potable número 1634, se cobrará una multa del 2% mensual sobre el monto de la deuda.

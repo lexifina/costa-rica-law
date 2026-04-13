@@ -1,0 +1,1 @@
+Artículo 74º.- El Departamento del Acueducto podrá establecer convenios o alianzas estratégicas de ayudas mutuas con diferentes instituciones, con el fin de establecer mejoras o planes que vayan a contribuir con el servicio de agua, las cuales podrían ser cooperativas, instituciones financieras, educativas, asadas u otras de interés, y que la ley permita.

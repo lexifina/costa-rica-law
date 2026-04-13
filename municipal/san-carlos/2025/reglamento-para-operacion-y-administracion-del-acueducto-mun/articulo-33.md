@@ -1,0 +1,1 @@
+Artículo 33º.-El Departamento del Acueducto procederá a otorgar y facturar los nuevos servicios, a partir del momento en que se dé por recibido oficialmente el proyecto por parte del Acueducto Municipal.

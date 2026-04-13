@@ -1,0 +1,1 @@
+Artículo 37º.-En el trabajo específico de detección de fugas de agua en cañerías intra domiciliares, la Municipalidad no está obligada a realizar el trabajo de detección, los funcionarios Municipales no están facultados a ingresar a propiedades de los abonados y detectar la fuga es responsabilidad del dueño de la propiedad.

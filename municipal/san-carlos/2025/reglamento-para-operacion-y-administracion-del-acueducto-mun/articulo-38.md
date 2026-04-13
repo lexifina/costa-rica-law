@@ -1,0 +1,1 @@
+Artículo 38º.- En cuanto a la revisión o inspección de los hidrómetros por fuga interna, solamente cuando es por primera vez no tendrá ningún costo, si se solicita una inspección por segunda vez y de comprobarse el buen funcionamiento del hidrómetro, el abonado pagará la suma estipulada en la Tarifa por la re - inspección realizada.

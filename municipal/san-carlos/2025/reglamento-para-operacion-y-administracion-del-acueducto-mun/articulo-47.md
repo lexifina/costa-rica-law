@@ -1,0 +1,2 @@
+Artículo 47º.-La Municipalidad no podrá suministrar el servicio de agua potable de forma gratuita, ni exonerar total o parcialmente el pago de cualquier multa, reparación o rubro que deba recaudar, mientras el servicio se ofrezca, a menos que una ley ordene la exoneración.
+Los funcionarios Municipales designados para el cobro de lo estipulado en la tarifa están en la obligación de cobrar las sumas adeudadas por el concepto de agua potable. La omisión a la anterior disposición provocará que se le aplique al funcionario municipal lo establecido por el Código Municipal.
