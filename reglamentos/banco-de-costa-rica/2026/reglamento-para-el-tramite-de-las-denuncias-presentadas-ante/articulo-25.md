@@ -1,0 +1,1 @@
+Artículo 25.-Derogatorias. Este documento deroga el Reglamento para el trámite de las denuncias presentadas ante la Auditoría Interna de BCR Corredora de Seguros S.A., publicado en el Diario Oficial La Gaceta N°292 del 14 de diciembre 2020.
