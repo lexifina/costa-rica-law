@@ -1,1 +1,0 @@
-Artículo 12.—El formulario solicitud control servicios de transporte, deberá estar debidamente autorizado por los jefes de departamento o por los titulares de las dependencias superiores cuando corresponda. Los jefes de Dirección podrán delegar esta autoridad cuando por la naturaleza de sus funciones así lo requiera.

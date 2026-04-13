@@ -1,1 +1,0 @@
-Artículo 41.—El Alcalde Municipal analizará todo accidente detránsito en el que participe un vehículo de la Municipalidad y adoptara las medidas disciplinarias del caso o someterán lo ocurrido a conocimiento de la Junta de Relaciones Labores correspondiente, si existiere.

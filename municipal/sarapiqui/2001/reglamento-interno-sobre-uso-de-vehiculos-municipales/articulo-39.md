@@ -1,1 +1,0 @@
-Artículo 39.—Ningún conductor de la Municipalidad está autorizado para hacer arreglos extrajudiciales en casos de accidentes con vehículos municipales, debe indicarle al particular que se apersone o se comunique con el Alcalde para efectuar las gestiones correspondientes.

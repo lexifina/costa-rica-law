@@ -1,4 +1,0 @@
-Artículo 6°—En forma excepcional y debidamente justificado por escrito, con la anuencia del Alcalde y con dos días al menos de anticipación, salvo que se trate de asuntos imprevistos, urgentes e impostergables a criterio del alcalde, la municipalidad podrá contratar la prestación de servicios de transporte de funcionarios y miembros del oncejo bajo cualquiera de las siguientes modalidades:
-- Contratación de servicios de transporte
-- Alquiler de vehículos
-Tanto para la contratación específica del servicio como para el alquiler de vehículos se utilizarán los procedimientos usuales de contratación de la Municipalidad. El arrendamiento de vehículos tendrá lugar por vía de excepción altamente calificada, conforme con los estudios y recomendaciones que emita el Concejo Municipal. Le corresponderá al Alcalde Municipal autorizar dicho arrendamiento, siguiéndose los trámites anteriormente señalados.

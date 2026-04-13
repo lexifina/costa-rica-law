@@ -1,1 +1,0 @@
-Artículo 27.—Será facultad del jefe de maquinaria, en coordinación con el jefe del taller recomendar al superior inmediato la aplicación de las sanciones que consideren pertinentes y por la vía que corresponda, para aquellos funcionarios que incumplen los programas de mantenimientos.

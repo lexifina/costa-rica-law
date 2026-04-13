@@ -1,7 +1,0 @@
-Artículo 4°—Son vehículos de uso discrecional los asignados a determinados funcionarios con rango de dirección en la estructura interna de la Institución, y que en razón de su cargo y para el mejor desempeño del mismo se les da esta categoría. En el caso actual se clasifican como vehículos de uso discrecional el del señor Alcalde, el del señor Jefe Financiero y el del Auditor Interno. En este último caso cuando la municipalidad pueda adjudicarle un vehículo exclusivo para ese fin.
-(NOTA DE SINALEVI: Mediante sesión N° 23 del 5 de junio del 2006, se reforma el presente artículo de la siguiente manera "...para que únicamente se clasifique como Vehículo de Uso Discrecional el asignado al señor Alcalde de la Municipalidad. No obstante, se aplicarán controles mínimos como los establecidos para otros activos de la Institución, los cuales deben referirse a:
-1- Kilometraje recorrido por período.
-2- Consumo de combustible por período.
-3- Reparación y mantenimiento.
-4- Seguros y estado físico. (Carrocería, llantas, motor, herramientas y demás piezas complementarias).
-Por lo tanto, los otros vehículos mencionados en el citado artículo del Reglamento y que se definen y asignan de uso discrecional al Jefe Financiero y al del Auditor Interno de la Municipalidad, se clasifiquen como Vehículos de uso Administrativo, para que cumplan con todas las condiciones generales y específicas que regulan la materia aducida en el mismo").
