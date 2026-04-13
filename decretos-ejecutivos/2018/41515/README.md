@@ -14,3 +14,4 @@ Procedimiento para el trámite de solicitudes de dación en pago de bienes muebl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-18 | la propia norma |
+| 2 | 2026-04-13 | Decreto Ejecutivo 45736 (2026-04-13) |
