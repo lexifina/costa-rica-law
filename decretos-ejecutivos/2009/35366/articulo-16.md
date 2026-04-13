@@ -1,1 +1,0 @@
-Artículo 16.—División de control y evaluación de la gestión de ingresos. Esta División está integrada por las Subdirecciones de Programación y Seguimiento, y de Normas y Procedimientos. Además, por el Departamento de Evaluación de la Gestión.

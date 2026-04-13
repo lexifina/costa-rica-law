@@ -1,1 +1,0 @@
-Artículo 9º—División de incentivos fiscales. Esta División está integrada por las Subdirecciones de: Programación, Supervisión Operativa, y Normativa. Así como por los Departamentos de Gestión de Exenciones y de Fiscalización.
