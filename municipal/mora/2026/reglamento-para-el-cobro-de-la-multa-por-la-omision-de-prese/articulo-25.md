@@ -1,0 +1,1 @@
+Artículo 25.-Plazo de prescripción. El plazo de prescripción para efectos del cobro de esta multa es de 3 años en concordancia con el artículo 8° de la Ley N° 7509, Ley del impuesto de Bienes Inmuebles.

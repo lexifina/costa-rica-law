@@ -1,0 +1,1 @@
+Artículo 9º-Impulso procesal. La Administración Tributaria deberá conducir el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, dentro del ordenamiento jurídico y a los derechos e intereses legítimos del sujeto pasivo.

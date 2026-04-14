@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento para el Cobro de la Multa
+Artículo 16.-Del incumplimiento de la presentación de la declaración. El hecho generador de la multa es el incumplimiento del contribuyente de no presentar la declaración de Bienes Inmuebles, conforme a lo señalado con el artículo 16 de la Ley N° 7509 y que, por disposición expresa del legislador en el artículo 17 de la misma Ley, se refiere ante la inobservancia de la presentación de la declaración previniendo dos consecuencias: la imposición de una multa a cargo del obligado y la valoración de oficio, lo que faculta a la Administración a practicar el avalúo.

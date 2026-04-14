@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Recursos
+Artículo 21.-Tipo de recursos. Contra el acto sancionador de Bienes Inmuebles y Valoraciones de la Administración Tributaria de la Municipalidad de Mora cabe el Recurso de Revocatoria ante el órgano que dictó el acto dentro del plazo de cinco días hábiles y el de apelación que, para éste caso resulta necesario remitirse como norma supletoria por tratarse de una infracción administrativa tributaria del deber formal, al artículo 150 del Código de Normas y Procedimientos Tributarios por lo que, contra la resolución que resuelve el Recurso de revocatoria procederá el Recurso de Apelación ante el Tribunal Fiscal Administrativo, dentro de los primeros 5 días siguientes a la notificación de la resolución del recurso de apelación.

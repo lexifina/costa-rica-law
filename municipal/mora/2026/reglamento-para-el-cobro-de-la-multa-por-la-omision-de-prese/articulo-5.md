@@ -1,0 +1,1 @@
+Artículo 5º-Deberes y obligaciones. Los sujetos pasivos deben responden por el pago de las multas que deriven sobre el bien, por el incumplimiento de presentar la declaración al menos cada 5 años como lo establece el artículo 17 de la Ley N° 7509.

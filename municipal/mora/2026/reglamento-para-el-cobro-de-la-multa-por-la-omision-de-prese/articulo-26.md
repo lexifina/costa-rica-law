@@ -1,0 +1,2 @@
+Artículo 26.-Arreglo de pago. El contribuyente tendrá la opción de llegar a un arreglo de pago para cumplir con el cobro sancionatorio, en aquellos casos que la situación económica del deudor le imposibilite hacer frente al pago, el cual podrá fraccionarse en un plazo máximo de cuatro meses, sujeto a la aprobación del Departamento de Cobro Administrativo y Judicial de la Municipalidad de Mora. 2 vez.
+Mora, Colón, 30 de enero del 2026.

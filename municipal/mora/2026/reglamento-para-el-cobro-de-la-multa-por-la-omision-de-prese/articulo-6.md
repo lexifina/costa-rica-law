@@ -1,0 +1,1 @@
+Artículo 6º-Incumplimiento del deber. Ante el incumplimiento del deber establecido en el artículo 16 de la Ley N° 7509, Ley del Impuesto de Bienes Inmuebles, acarreará la imposición por parte de la Administración de la multa contenida en el artículo 17 de la Ley del Impuesto de Bienes Inmuebles, mediante los procedimientos indicados más adelante en este Reglamento.
