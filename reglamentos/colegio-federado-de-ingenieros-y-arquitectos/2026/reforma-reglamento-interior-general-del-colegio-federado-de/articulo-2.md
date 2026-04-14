@@ -1,0 +1,3 @@
+Artículo 2º-Se reforma el artículo 30 del Reglamento Interior General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, para que en lo sucesivo se lea:
+"Artículo 30.-Cuando la asamblea se convoque simultáneamente por segunda y tercera vez, de conformidad con lo que dispone el artículo 20 de la Ley Orgánica, deberá mediar entre la hora de cada convocatoria por lo menos treinta minutos. En todo caso, si pasados treinta minutos de la hora en que deba darse inicio a la reunión no hubiere quórum, quedará sin efecto la convocatoria.
+Las disposiciones sobre convocatoria y quórum serán aplicables tanto a las sesiones presenciales como a las virtuales, en lo que resulte compatible con la modalidad acordada por la Junta Directiva General."

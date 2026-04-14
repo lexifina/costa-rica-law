@@ -1,0 +1,4 @@
+Artículo 4º-Se reforma el artículo 49 del Reglamento Interior General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, para que en lo sucesivo se lea:
+"Artículo 49.-Las Juntas Directivas de los Colegios Miembros establecerán el calendario de sus Asambleas Generales ordinarias, las cuales deberán celebrarse en los meses de setiembre y octubre de cada año, conforme a lo dispuesto en los artículos 36, 37 y 37 bis de la Ley Orgánica del Colegio Federado.
+Las Asambleas Generales ordinarias o extraordinarias de los Colegios Miembros relacionadas con procesos electorales se regirán exclusivamente por el Reglamento de Elecciones que se dicte al efecto.
+Las demás Asambleas Generales ordinarias o extraordinarias de los Colegios Miembros, no vinculadas a procesos electorales, podrán celebrarse de forma presencial, virtual o mixta, según lo acuerde la respectiva Junta Directiva del Colegio Miembro, de conformidad con este Reglamento Interior General."
