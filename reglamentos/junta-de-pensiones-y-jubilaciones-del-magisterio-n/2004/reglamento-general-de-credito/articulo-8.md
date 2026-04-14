@@ -29,9 +29,10 @@ l) Debe presentar la cédula de identidad vigente y en buen estado.
 m) Debe proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
 n) En caso de garantía hipotecaria, debe depositar a favor de JUPEMA, el monto de los honorarios que se requieran para la realización del avalúo y otros gastos inherentes.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
-o) Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos de la Junta Directiva.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
-p) Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos de la Junta Directiva.
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+o) Autorizar la domiciliación de la cuenta a favor de JUPEMA.
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+p) Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos del Órgano de Dirección.
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
 El Departamento de Crédito y Cobro realiza un estudio formal con base en la información recibida y en las investigaciones adicionales que considere pertinente realizar. Lo anterior con el propósito de presentar el caso en el Comité de Crédito para su análisis y resolución mediante acuerdo (aprobación o denegatoria).
 (Así reformado mediante sesión N° 0004-2022 del 6 de enero de 2022)

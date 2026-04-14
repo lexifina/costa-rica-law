@@ -9,7 +9,9 @@ f) Las cuotas del crédito, incluyendo amortización, pago de intereses y póliz
 g) Debe presentar facturas proforma donde se muestre el servicio funerario a financiar, o las facturas timbradas que comprueben la cancelación, ambas acompañadas del acta de defunción.
 h) Debe proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
 i) En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito, para resguardar los intereses de la institución.
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
 j) Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
 Pensionados, trabajadores en Servicio de MEP, INA, CUC, CUN Limón y de las universidades estatales, con nombramiento en Propiedad, o bien, interinos de estos centros educativos, con 48 cotizaciones o más, en los últimos 5 años:
 Hasta | ¢3.000.000,00 | Sin fiador
 Trabajadores en Servicio del MEP, INA, CUC, CUN Limón y de las Universidades Interinos de estas instituciones con menos de 48 cotizaciones:
@@ -18,5 +20,6 @@ Hasta | ¢1.000.000,00 | Sin fiador
 (*)Trabajadores en Servicio de Centros Educativos Privados (CEP), en Propiedad e Interinos con al menos 36 cotizaciones aportadas al régimen en los últimos 48 meses.
 Hasta | ¢3.000.000,00 | 1 fiador
 (*) (Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
-k) Línea de crédito inhabilitada temporalmente según acuerdo de Junta Directiva, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
+k) Línea de crédito inhabilitada temporalmente según acuerdo del Órgano de Dirección, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
 (Así adicionado el inciso anterior en sesión N° 0101 del 13 de setiembre de 2023)
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)

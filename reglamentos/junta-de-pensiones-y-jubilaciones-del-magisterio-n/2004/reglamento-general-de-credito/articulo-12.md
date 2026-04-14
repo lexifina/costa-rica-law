@@ -9,8 +9,11 @@ g) Las cuotas del crédito, incluyendo amortización, pago de intereses y póliz
 h) Debe llenar el formulario que le proporcione la Unidad de Crédito para realizar la autorización de la domiciliación de la cuenta. Esto para que, en caso de que eventualmente no se pueda realizar la deducción de la mensualidad, ésta se realice mediante débito a la cuenta bancaria.
 i) En el caso de que la solicitud sea por problemas parciales o totales en el pago de su salario, se requiere la presentación de elementos probatorios que respalden y reflejen claramente esta situación en los pagos por parte del patrono.
 j) Debe presentar y cumplir con los documentos y requisitos adicionales, que le solicite la Unidad de Crédito, en caso de considerarse necesario.
-k) Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
-Pensionados y jubilados (as):
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+k) Autorizar la domiciliación de la cuenta a favor de JUPEMA.
+(Así adicionado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+l) Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
+(Así modificada la numeración del inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026, que lo traspaso del inciso K) al inciso l)
 Hasta | ¢5.000.000,00 | Sin fiador
 Trabajadores en Servicio: del MEP, INA, CUC, CUN Limón y de las universidades estatales en Propiedad, o bien, interinos de estos centros educativos, con 48 cotizaciones o más, en los últimos 5 años.
 Hasta | ¢5.000.000,00 | 1 fiador

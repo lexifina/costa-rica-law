@@ -22,3 +22,5 @@ Hasta ¢2.000.000,00 | 1 fiador
 (*) (Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 j) Línea de crédito inhabilitada temporalmente según acuerdo de Junta Directiva, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
 (Así reformado el inciso anterior en sesión N° 0101 del 13 de setiembre de 2023)
+k) Línea de crédito inhabilitada temporalmente según acuerdo del Órgano de Dirección, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
+(Así adicionado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)

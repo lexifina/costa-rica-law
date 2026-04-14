@@ -8,7 +8,11 @@ f) Autorizar el rebajo de la cuota, intereses y pólizas del salario, la pensió
 g) Presentar facturas proforma donde se muestre monto exacto por cancelar al proveedor, debe indicar: cédula jurídica, cuenta cliente o cuenta IBAN y el correo electrónico para reportar la transferencia.
 h) Proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
 i) En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito, para resguardar los intereses de la institución.
-j) Garantía: Línea de Crédito Verde: De acuerdo con el plan de inversión.
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+j) Autorizar la domiciliación de la cuenta a favor de JUPEMA.
+(Así adicionado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
+k) Garantía: Línea de Crédito Verde: De acuerdo con el plan de inversión
+(Así reformado el inciso anterior mediante sesión ordinaria N°042-2026 del 14 de abril del 2026)
 A continuación, se presentan diversas opciones para la inversión de esta línea:
 a. Páneles Solares
 Pensionados, jubilados, trabajadores en Servicio de MEP, INA, CUC, CUN Limón y de las universidades estatales, con nombramiento en Propiedad.
