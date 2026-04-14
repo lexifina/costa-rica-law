@@ -12,10 +12,12 @@ En virtud de que la concesión de créditos con fondos del Régimen de Capitaliz
 1. Capacidad de pago: Situación financiera y capacidad del deudor que le permitirá atender sus obligaciones financieras en las condiciones pactadas.
 2. Cep: Centro educativo privado.
 3. Comité de Crédito: Estará conformado por el (la) Jefe del Departamento de Crédito y Cobro, quien coordinará el Comité, el (la) Oficial de Cobro, el (la) oficial de crédito y un miembro externo al Departamento de Crédito y Cobro, que será nombrado por la Dirección Ejecutiva. Este comité, será el responsable de analizar las solicitudes de crédito de Vivienda del programa del Régimen de Capitalización Colectiva.
-4. Comportamiento de pago histórico: Antecedentes crediticios del deudor en la atención de sus obligaciones financieras durante los últimos cuatro años, independientemente de si estas se encuentran vigentes o extintas a la fecha de corte.
-Información brindada por la SUGEF.
+4. Comportamiento de pago histórico: Antecedentes crediticios del deudor, fiador y/o codeudor en la atención de sus obligaciones financieras durante los últimos cuatro años, independientemente de si éstas se encuentran vigentes o extintas a la fecha de corte. Información brindada por la SUGEF.
+(Así reformada la definición anterior en sesión N° 042 del 14 de abril de 2026)
+- Domiciliación de Cuenta: Proceso para matrícula de la cuenta iban del afiliado, para rebajos directos de la cuenta bancaria en caso de incumplimiento de pago.
+(Así adicionada la definición anterior en sesión N° 042 del 14 de abril de 2026)
 5) Hipoteca: Gravamen inscrito ante el Registro de la Propiedad en primer grado a favor de JUPEMA, se acepta hasta un 80% del valor del inmueble según el avalúo.
-(Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
+(Así reformada la definición anterior en sesión N° 042 del 14 de abril de 2026)
 6) JUPEMA: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
 (Así reformado el inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
 7) MEP: Ministerio de Educación Pública
