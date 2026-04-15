@@ -1,0 +1,2 @@
+Artículo 6º. Sobre la Organización.
+La PMGRE, procurará una organización integral del servicio en dónde todos sus trabajadores se sometan a procedimientos y protocolos de actuación que permitan maximizar el servicio y la asignación de diferentes tareas administrativas, logísticas, operativas y organizativas para todos sus integrantes. En casos de emergencias debidamente declaradas por los órganos competentes, todos los funcionarios de la PMGRE deben de deberán atender con exclusividad la emergencia.

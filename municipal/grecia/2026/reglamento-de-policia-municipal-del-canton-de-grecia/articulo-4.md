@@ -1,0 +1,2 @@
+Artículo 4°. Sobre las Competencias:
+Corresponderá a la PMGRE, las potestades, facultades y competencias previstas en la Ley, mismas que deberán de ser ejercidas tanto de manera independiente, como en asocio y coordinación oportuna con los demás cuerpos policiales del país, por lo que la Alcaldía Municipal con el apoyo de la PMGRE debe de procurar la firma y ejecución de todos los convenios de colaboración que sean necesarios, los mismos deberán ser revisados y aprobados por el Concejo Municipal.

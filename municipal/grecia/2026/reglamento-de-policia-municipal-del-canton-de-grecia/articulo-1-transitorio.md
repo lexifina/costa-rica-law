@@ -1,0 +1,2 @@
+TRANSITORIO.
+La Alcaldía Municipal, deberá en el plazo de seis meses contados a partir del nombramiento en firme de la totalidad de los miembros del Departamento de Policía Municipal, conforme consta en SEC-1230-2025 del 25 de agosto del 2025, según se acordó en sesión ordinaria del 19 de agosto del 2025, artículo V, inciso 2, sub inciso b), acta 100 y presentar al Concejo Municipal la Política Cantonal de Convivencia y Seguridad Ciudadana, de igual manera informes semestrales del avance de la Política.

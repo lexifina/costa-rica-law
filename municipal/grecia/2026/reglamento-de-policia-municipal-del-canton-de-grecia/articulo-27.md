@@ -1,0 +1,2 @@
+Artículo 27º. Obligatoriedad en la Prestación del Servicio.
+Se entenderá que todo servidor de la policía municipal, que circula por la vía pública identificado y vestido de uniforme, estará en la obligación de prestar servicio, en el momento que sea requerido.

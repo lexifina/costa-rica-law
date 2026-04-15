@@ -1,0 +1,2 @@
+Artículo 24º. Sobre el Comportamiento Policial.
+Siendo la disciplina, base fundamental en todo cuerpo policial, el policía municipal obedecerá y ejecutará las órdenes que reciba de sus superiores jerárquicos, siempre que no contradigan la legislación vigente y las buenas costumbres, de conformidad al principio de obediencia.

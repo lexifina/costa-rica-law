@@ -1,0 +1,2 @@
+Artículo 30º. Sobre las Pruebas de Dopaje.
+La PMGRE se someterá en lo conducente por la normativa interna que se genere en materia de aplicación de pruebas médicas y toxicológicas del personal municipal y aspirantes a puestos dentro de la institución, serán obligatorias para el ingreso y podrán realizarse de forma aleatoria durante la permanencia en el servicio, respetando la dignidad del trabajador.

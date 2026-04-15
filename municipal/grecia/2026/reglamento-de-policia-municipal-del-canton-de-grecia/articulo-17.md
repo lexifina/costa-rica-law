@@ -1,0 +1,4 @@
+Artículo 17º. Sobre las Condiciones Personales.
+En cuanto al uso del cabello debe de mantenerse un corte que brinde seguridad al funcionario en el desempeño de sus funciones.
+Respecto a la barba de los funcionarios, esta no podrá impedir la adecuada identificación de la persona.
+El largo de las uñas debe de mantenerse a una extensión moderada que no produzca lesiones a sí mismo o a terceros en el cumplimiento de sus funciones.

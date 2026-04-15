@@ -1,0 +1,6 @@
+ARTÍCULO 11: De la Jornada y Roles de Servicio.
+La determinación y fijación del rol ordinario de servicio del personal de la Policía Municipal será competencia de la coordinación de la policía municipal, quien deberá fundamentar dicha programación en razones de necesidad y oportunidad operativa para garantizar la continuidad y eficacia del servicio público. Para su validez y ejecución, el rol establecido deberá:
+1. Ser comunicado formalmente al departamento de Gestión de Personal para el control administrativo respectivo.
+2. Contar con el visto bueno de la Alcaldía Municipal, en su condición de máxima autoridad de la institución.
+Dada la naturaleza de las funciones policiales, los roles de servicio podrán ser modificados de manera unilateral por la administración según lo exijan los requerimientos operativos, emergencias o eventos especiales que demanden el despliegue del cuerpo policial.
+En todo momento se garantizará el respeto a los derechos laborales del personal. No obstante, en virtud de la naturaleza de sus cargos y la obligatoriedad de la disponibilidad del servicio, los oficiales de la Policía Municipal pertenecen al régimen especial de excepción definido en el artículo 143 del Código de Trabajo, lo cual se tomará como base para la configuración de las jornadas del personal.

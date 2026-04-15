@@ -1,0 +1,2 @@
+Artículo 7º. Sobre la Estructura Jerárquica.
+La estructura jerárquica de la PMGRE corresponderá a la enunciada en la Ley de Fortalecimiento de la Policía Civilista (Ley número 8096) y procurará incentivar los cuadros de mando que permitan el desarrollo y crecimiento del cuerpo policial. La asignación de estos grados policiales, serán los civilistas y se otorgarán de manera honoraria sin que implique el reconocimiento de pluses u otros rubros salariales, de conformidad con el reglamento de carrera administrativa.
