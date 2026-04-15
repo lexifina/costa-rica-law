@@ -1,1 +1,0 @@
-Artículo 2°—Ambito de aplicación. Este reglamento será de aplicación obligatoria para la Administración Tributaria Municipal como para los abogados externos que sean contratados por la Municipalidad de Grecia, para gestionar el cobro extrajudicial y/o judicial de las obligaciones dineradas que se le adeuden a esta.

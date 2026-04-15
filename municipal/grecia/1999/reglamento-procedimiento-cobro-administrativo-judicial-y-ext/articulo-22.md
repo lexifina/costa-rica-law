@@ -1,1 +1,0 @@
-Artículo 22.—Monto mínimo para realizar arreglo de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la quinta parte del salario base, correspondiente al oficinista, de conformidad con el Decreto de Salario Mínimo vigente al momento de efectuarse el arreglo de pago respectivo.
