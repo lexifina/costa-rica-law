@@ -1,0 +1,1 @@
+Transitorio I - Los procesos de contratación de servicios de auditoría externa, encargo de aseguramiento y certificación brindados por un profesional, despacho o firma, externa e independiente iniciados antes de la vigencia de estas Directrices, se concluirán conforme a las disposiciones vigentes al momento de su contratación.
