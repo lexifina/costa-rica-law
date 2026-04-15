@@ -13,3 +13,25 @@ Se adicionan dentro del rol Gestor de Portafolio los roles de "Gestor de cartera
 Se elimina como rol Aprobador de Roles.
 [imagen]
 (Así reformado por el artículo 21° del acuerdo N° SGV-A-6-2024 del 5 de noviembre de 2024)
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-9-2026 del 15 de abril del 2026, seacordó adicionar al anexo 1 del artículo 5, los requerimientos de información para las Entidades de Registros Centralizados de Letras de Cambio y Pagarés Electrónicos, de la siguiente manera:
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[1] Cuando corresponda incluír "Otro miembro" se debe de digitar el nombre del rol, por ejemplo: vocales,directivos, etc.
+[2] En el caso de los Gerentes a.i. estos deberán ingresarse al sistema en caso de renuncia o destitución del gerente general o sustitución temporal
+[3] Aplica a la persona física accionista indicada en el artículo 35 de la Ley Reguladora del Mercado de Valores")
