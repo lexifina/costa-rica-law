@@ -1,0 +1,2 @@
+ARTÍCULO 3- Uso de los recursos
+Los recursos provenientes de los contratos de préstamo n.º 2341, suscrito entre la República de Costa Rica y el Banco Centroamericano de Integración Económica (BCIE), y n.º 16603P, suscrito entre la República de Costa Rica y el Fondo OPEP para el Desarrollo Internacional, se destinarán exclusivamente al financiamiento del proyecto denominado "Ampliación y Mejoramiento del Corredor Vial San José - San Ramón".
