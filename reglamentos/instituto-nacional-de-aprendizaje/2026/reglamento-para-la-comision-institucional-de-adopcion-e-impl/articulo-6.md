@@ -1,0 +1,12 @@
+Artículo 6º-Funciones y atribuciones. La Comisión Institucional de Normas Internacionales de Contabilidad para el Sector Público tendrá las siguientes funciones y atribuciones:
+1. Conocer y aprobar los resultados del FODA institucional que considere todos los impactos con respecto a la aplicación de los estándares de las NICSP, las Políticas Generales Contables y el cumplimiento de los demás requerimientos solicitados por parte de la Contabilidad Nacional.
+2. Analizar y aprobar la Matriz de Autoevaluación de NICSP, con el fin de detectar las brechas que dificultan el cumplimiento de dichas normas a nivel institucional.
+3. Aprobar los planes de acción que sometan las dependencias con el fin de mitigar las brechas en NICSP, estableciendo los responsables de generar la información y los plazos acorde a lo dispuesto la Contabilidad Nacional.
+4. Aprobar los ajustes que se planteen en la Estrategia de Adopción e Implementación de NICSP considerando los elementos de control como la coordinación, comunicación, ejecución y seguimiento.
+5. Verificar que las unidades pertinentes incluyan dentro de la planificación formal de la institución, el proceso de implementación de las NICSP, con el fin de establecer los recursos técnicos, presupuestarios y financieros necesarios y que faciliten cumplir con las NICSP y con ello emitir estados financieros con un nivel de calidad optimo que permitan tomar las mejores decisiones a nivel gerencial.
+6. Velar porque la implementación de las NICSP se efectúe según los lineamientos emitidos por el Rector.
+7. Velar que la Unidad de Recursos financieros coordine la participación de las personas funcionarias pertinentes en los procesos de capacitación que establezca la Contabilidad Nacional.
+8. Velar para que las personas funcionarias se capaciten sobre las disposiciones de NICSP con base al plan de capacitación Diagnostico de Necesidad de Capacitación (DNC).
+9. Monitorear el control de minutas de las reuniones y acuerdos que lleva la secretaría de esta Comisión.
+10. Autorizar la emisión de certificación a la Contabilidad Nacional del funcionamiento de la comisión, y los avances logrados de los planes de acción en forma trimestral para la adopción e implementación de las NICSP e incorporarlos en la revelación del Estado de Notas Contables dentro de los Estados Financieros trimestrales.
+11. Aprobar los cambios que sean presentados por el Proceso de Contabilidad en las Políticas Particulares.

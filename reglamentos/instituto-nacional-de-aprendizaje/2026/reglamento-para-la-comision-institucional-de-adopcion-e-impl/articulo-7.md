@@ -1,0 +1,1 @@
+Artículo 7º-Asesoría Técnica. En caso de ser requerido, la Comisión Institucional de Normas Internacionales de Contabilidad para el Sector Público contará con la asesoría técnica de las diferentes dependencias según el tema o situación a tratar.

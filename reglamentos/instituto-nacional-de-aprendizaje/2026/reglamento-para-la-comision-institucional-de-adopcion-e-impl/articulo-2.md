@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento es aplicable a todas las unidades administrativas del Instituto Nacional de Aprendizaje y se fundamenta en las Normas Internacionales de Contabilidad para el Sector Público y la normativa contable vigente establecida por la Dirección General de Contabilidad Nacional del Ministerio de Hacienda.
