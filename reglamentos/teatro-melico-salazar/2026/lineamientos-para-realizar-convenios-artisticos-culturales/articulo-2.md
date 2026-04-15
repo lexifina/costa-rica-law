@@ -1,0 +1,2 @@
+Artículo 2º.- OBJETO: Los presentes lineamientos establecen el marco normativo con el cual el Teatro, podrá desarrollar juntamente con una contraparte, un proyecto, evento o montaje de índole artístico espectáculo, obra escénica, teatral, coreográfica, literaria, por normativa, musical o audiovisual; así como actividades culturales, didácticas y/o de formación relacionadas con las áreas de acción propias del Teatro.
+Lo anterior de conformidad con la capacidad instalada y recursos disponibles del Teatro.

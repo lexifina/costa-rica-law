@@ -1,0 +1,1 @@
+Artículo 13 º .- NORMATIVA SUPLETORIA. Todo lo no previsto en el presente reglamento, se regirá por lo dispuesto Ley General de la Administración Pública, el bloque de legalidad aplicable al Teatro; y demás normas afines.

@@ -1,0 +1,2 @@
+CAPÍTULO III. DISPOSICIONES FINALES
+Artículo 10° .- POLÍTICA DE NO DISCRIMINACIÓN. El Teatro, como entidad gubernamental de carácter pluralista y respetuoso de la diversidad, no apoyará proyectos que fomenten el desorden público, el odio y/o la discriminación de las personas por razones de grupo étnico o etario, religión, afiliación política, nacionalidad, discapacidad, género, orientación sexual o identidad de género o cualquier otra condición social o personal.

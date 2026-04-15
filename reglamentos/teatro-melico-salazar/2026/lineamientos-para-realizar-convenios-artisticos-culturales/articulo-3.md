@@ -1,0 +1,1 @@
+Artículo 3º.- FINALIDAD. El Teatro utilizará la figura del Convenio artístico cultural para fomentar el goce y disfrute de los derechos culturales por parte de la población. el estímulo a la creación cultural, la dinamización económica de la cultura, así como la promoción del artista, gestor cultural, creador, investigador y proresional cultural.

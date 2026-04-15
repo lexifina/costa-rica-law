@@ -1,0 +1,4 @@
+Artículo 6º.- DERECHOS Y OBLIGACIONES DE LAS PARTES. Las partes tendrán derecho a ejecutar plenamente lo pactado en cuanto a la prestación y entrega de los aportes en el pla1.o convenido. Asimismo, estarán obligados a cumplir cabalmente con lo ofrecido en su propuesta de convenio y en cualquier manifestación formal documentada que se haya aportado adicionalmente.
+EL Teatro se reserva el derecho de ejercer la rescisión del convenio suscrito por razones de interés público, caso fortuito o fuerza mayor; y de resolverlo por causales de incumplimiento atribuibles a la contraparte.
+No podrán ser contraparte del Teatro, sus funcionarios, miembros de Junta Directiva ni sus
+No podrán ser contraparte del Teatro, sus funcionarios, miembros de Junta Directiva ni sus familiares hasta segundo grado de afinidad o consanguinidad.
