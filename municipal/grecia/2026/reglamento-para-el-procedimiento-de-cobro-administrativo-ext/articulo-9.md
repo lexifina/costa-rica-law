@@ -1,0 +1,1 @@
+Artículo 9º-Agotada la gestión de cobro administrativo, la Oficina de Cobro podrá realizar arreglos de pago a los contribuyentes que lo soliciten, y que no tengan arreglos de pago pendientes, previo a cancelación total de las costas personales (honorarios) y procesales que al momento se hayan generado.

@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Este reglamento será de aplicación obligatoria todos los procesos de cobro administrativo, extrajudicial y judicial que realice la Municipalidad de Grecia, sobre las obligaciones dinerarias adeudadas a la Municipalidad.

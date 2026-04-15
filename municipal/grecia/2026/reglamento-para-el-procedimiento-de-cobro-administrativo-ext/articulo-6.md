@@ -1,0 +1,8 @@
+Artículo 6º-Responsabilidades del contribuyente: El contribuyente tendrá la responsabilidad de:
+a) Actualizar datos. Todo contribuyente deberá actualizar los siguientes datos:
+i. Teléfono,
+ii. Buzón electrónico permanente (correo electrónico)
+iii. Dirección exacta de domicilio residencial y domicilio fiscal.
+Esto se realizará mediante los formularios que suministre el municipio físicamente o mediante medios electrónicos. De igual forma en el momento en que el contribuyente presente variaciones en sus datos deberá informarlo al municipio. A fin de obtener la certificación de encontrarse al día con las obligaciones formales y materiales municipales, el contribuyente deberá contar con sus datos debidamente actualizados, esto al tenor de lo establecido en el artículo 18 y 128 del Código de Normas y Procedimientos Tributarios. Esta actualización la podrá realizar el contribuyente en la Plataforma de Servicios o en la Administración Tributaria Municipal.
+b) Todo contribuyente, sujeto pasivo o interesado que presente una nota, documento o realice un trámite en la Plataforma de Servicios Municipales tiene la obligación de señalar buzón electrónico permanente (Correo electrónico), según Reglamento de Notificaciones de la Administración Tributaria. La Municipalidad deberá contar con un formulario para tal efecto.
+c) El contribuyente deberá cancelar a la Municipalidad los gastos administrativos en que se incurra por gestión de cobro (llamadas telefónicas, mensajería de texto y correos electrónicos) realizada por la persona física o jurídica contratada para tal efecto por parte de la Municipalidad; se cobrará un 5% sobre la totalidad de la deuda recuperable (sin incluir exoneraciones ni montos prescritos).
