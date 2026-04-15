@@ -1,0 +1,1 @@
+Artículo 4º-Carácter obligatorio. La presente directriz es de acatamiento obligatorio para todas las dependencias técnicas, jurídicas y administrativas del Consejo de Salud Ocupacional, en la tramitación y resolución de procedimientos relacionados con la verificación de requisitos de formación profesional de las personas encargadas de los Departamentos de Salud Ocupacional.
