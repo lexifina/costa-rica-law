@@ -3,8 +3,9 @@ CIRCULAR No.106-2025
 Asunto: Plazo máximo que tiene una oficina judicial para registrar y aprobar nombramientos y movimientos de personal en la Proposición electrónica de Nombramientos (PIN).
 A TODAS LOS SERVIDORES JUDICIALES DEL PAIS
 SE LES HACE SABER QUE:
-El Consejo Superior del Poder Judicial en sesión N° 39-2025 celebrada el 08 de mayo de 2025, artículo XXIX, producto del análisis de la recomendación contenida en el oficio de la Dirección de Gestión Humana N° PJ-DGH-SAS-0451-2025 del 28 de febrero 2025, donde se expone la situación que se presenta con la comunicación tardía de los nombramientos y movimientos de personal en la Proposición electrónica de Nombramientos (PIN), dispuso:
+El Consejo Superior del Poder Judicial en sesión N°39-2025 celebrada el 8 de mayo de 2025, artículo XXIX, producto del análisis de la recomendación contenida en el oficio de la Dirección de Gestión Humana N° PJ-DGH-SAS-0451-2025 del 28 de febrero 2025, donde se expone la situación que se presenta con la comunicación tardía de los nombramientos y movimientos de personal en la Proposición electrónica de Nombramientos (PIN), dispuso:
 Que el plazo máximo que tiene una oficina judicial para registrar y aprobar nombramientos y movimientos de personal en la Proposición electrónica de Nombramientos (PIN) es de quince días calendario, desde la fecha de vigencia de la designación o del movimiento correspondiente.
 Por otro lado, la Dirección de Gestión Humana como respaldo del cumplimiento de las acciones de seguimiento y control sobre las comunicaciones tardías, estará remitiendo un informe trimestral al Consejo Superior con el detalle de los despachos judiciales que incumplan esta directriz, mismo que hará de conocimiento de la Inspección Judicial, con el objetivo que valoren la apertura de procedimientos disciplinarios contra las jefaturas que no gestionaron oportunamente los registros en la PIN, aún y cuando hayan sido justificado en el apartado de observaciones.
+(Así reformado mediante circular N° 54-2026 del 15 de abril del 2026)
 Publíquese una vez en el Boletín Judicial.
 San José, 04 de julio de 2025.

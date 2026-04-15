@@ -13,3 +13,4 @@ Plazo máximo que tiene una oficina judicial para registrar y aprobar nombramien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-04 | la propia norma |
+| 2 | 2026-04-15 | Circular 54 (2026-04-15) |
