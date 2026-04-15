@@ -31,3 +31,4 @@ Lineamientos para el ejercicio y control del servicio notarial
 | 16 | 2023-03-29 | Reglamento 6 (2023-03-29) |
 | 17 | 2023-06-21 | Reglamento 12 (2023-06-21) |
 | 18 | 2024-08-28 | Reglamento 19 (2024-08-28) |
+| 19 | 2026-04-15 | Reglamento 7 (2026-04-15) |
