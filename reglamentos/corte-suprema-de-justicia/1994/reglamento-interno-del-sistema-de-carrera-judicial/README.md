@@ -25,3 +25,4 @@ Reglamento Interno del Sistema de Carrera Judicial
 | 11 | 2019-11-01 | Circular 198 (2019-11-01) |
 | 12 | 2025-11-21 | Circular 222 (2025-11-21) |
 | 13 | 2026-04-15 | Circular 59 (2026-04-15) |
+| 14 | 2026-04-15 | Circular 62 (2026-04-15) |
