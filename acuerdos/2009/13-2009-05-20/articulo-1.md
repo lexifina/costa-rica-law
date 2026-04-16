@@ -569,13 +569,11 @@ Capacitación relacionada con el cargo.
 Requisito académico alternativo el Certificado de los servicios educativos que se brindan desde la oferta de la educación especial: Aula Integrada y Tercer Ciclo y Ciclo Diversificado Vocacional o certificados equivalentes.
 (Así adicionado el párrafo anterior en sesión N° 159 del 26 de noviembre de 2025)
 Nivel 2
-Título de bachiller Educación Media o Secundaria.
-Experiencia mínima de un año en la ejecución de labores relacionadas con el cargo.
-Capacitación relacionada con el cargo.
-O
-Conclusión de estudios de Enseñanza General Básica (9º de secundaria).
-Experiencia mínima de cinco años en la ejecución de labores relacionadas con el cargo.
-Capacitación relacionada con el cargo.
+(*)Requisitos:
+a) Título de Bachiller en Educación Media o Secundaria, un año de experiencia mínima en la ejecución de labores relacionadas con el cargo y capacitación relacionada con el cargo; o
+b) Conclusión de estudios de Enseñanza General Básica (noveno año), cinco años de experiencia mínima en la ejecución de labores relacionadas con el cargo y capacitación relacionada con el cargo; o
+c) Conclusión del Segundo Ciclo de la Educación General Básica (sexto grado), siete años de experiencia mínima en la ejecución de labores relacionadas con el cargo y capacitación relacionada con el cargo.
+(*) (Así reformado los requisitos de la clase de puesto Trabajador Especializado 2) anterior mediante sesión N° 174 del 16 de abril de 2026)
 ESTRATO TÉCNICO
 Este estrato abarca clases que incluyen actividades que se encuentran en una posición intermedia de la estructura ocupacional. Son clases en las que se desarrollan actividades de investigación y análisis de nivel auxiliar o asistencial en una disciplina específica con el fin de producir los insumos necesarios para que los procesos profesionales de la Institución cumplan su misión. La ejecución de las funciones requiere formación que puede abarcar desde el título de bachiller de Enseñanza Media hasta un nivel de cuarto año universitario.
 Se ubica en todas las dependencias de Asamblea Legislativa. Trabaja con la guía de un profesional (jefatura o no) que participa significativamente en la consecución de los objetivos definidos para las diferentes unidades administrativas de la Institución; igualmente, trabaja con lineamientos claramente definidos. Sus funciones son de índole asistencial, bien sea en el desempeño de roles técnicos y/o administrativos de soporte para la realización de actividades dentro de una organización de servicios. Requiere competencias personales para intervenir en los procesos de trabajo enmarcados en condiciones de polifuncionalidad, calidad y seguimiento de instrucciones.
