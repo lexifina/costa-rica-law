@@ -1,5 +1,0 @@
-Artículo 4º—Definiciones. En el procedimiento de solicitud y aprobación para la incorporación de profesionales en Enfermería, se tienen como sujetos involucrados los siguientes:
-1. Junta Directiva: Junta Directiva del Colegio de Enfermeras de Costa Rica.
-2. Unidad de Desarrollo Profesional: Órgano adscrito al Colegio de Enfermeras de Costa Rica, que tendrá a cargo la revisión y análisis de las solicitudes de incorporación para recomendar a la Junta Directiva del Colegio su aprobación o denegación. En adelante denominada UDP.
-3. Solicitante: Profesional en Enfermería que ostenta el grado académico de Licenciatura en Enfermería debidamente emitido por las Universidades Nacionales autorizadas o cuyo título emitido por una Universidad Extranjera esté reconocido y equiparado por el Consejo Nacional de Rectores (CONARE) de acuerdo con los cánones legales para dicho procedimiento.
-4. Acto de incorporación: Acto de carácter obligatorio para la juramentación y entrega de licencia al solicitante.

@@ -1,1 +1,0 @@
-Artículo 9º—Solicitudes de incorporación. Recibida la solicitud y los requisitos correspondientes dentro de los plazos establecidos, se trasladará la documentación para que la UDP proceda con su revisión y análisis. Las solicitudes que sean presentadas extemporáneamente se acumularán para la convocatoria de incorporación siguiente.

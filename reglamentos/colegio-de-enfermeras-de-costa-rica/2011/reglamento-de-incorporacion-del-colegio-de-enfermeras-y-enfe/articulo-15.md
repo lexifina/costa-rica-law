@@ -1,1 +1,0 @@
-Artículo 15.—Para efectos de las y los profesionales incorporados antes de la emisión del presente reglamento, se establece que podrán solicitar el cambio de licencia que incluye la nomenclatura de uso social que la o lo acredita como Doctora o Doctor, cancelando el importe de la emisión del certificado y la licencia, establecido por la Junta Directiva.

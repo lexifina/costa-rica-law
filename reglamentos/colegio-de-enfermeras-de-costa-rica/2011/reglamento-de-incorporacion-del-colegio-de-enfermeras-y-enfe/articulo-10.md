@@ -1,1 +1,0 @@
-Artículo 10.—De la aprobación de la Junta Directiva. Una vez revisada la documentación respectiva y habiéndose determinado que la misma se encuentra a derecho, la Junta Directiva aprobará y hará constar en actas el acuerdo de incorporación.
