@@ -1,1 +1,0 @@
-Artículo 59.—Acceso a informes. Los informes de la Auditoría Interna en materia de control interno, - únicamente-, una vez presentados ante el CONAC o la Administración del SINAC; son de libre acceso para cualquier persona.

@@ -1,1 +1,0 @@
-Artículo 29.—Registro presupuestario separado. La Administración mantendrá un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controle la ejecución y las modificaciones de los recursos presupuestados.
