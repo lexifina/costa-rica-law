@@ -1,0 +1,1 @@
+Artículo 7- Las Direcciones Regionales de Educación ejercerán sus funciones y atribuciones dentro de los criterios de desconcentración autorizados por la persona ministra y que fije la legislación nacional, así como lo establecido en el presente Decreto Ejecutivo.

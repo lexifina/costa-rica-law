@@ -1,0 +1,3 @@
+SECCION V
+Del Departamento de Servicios Administrativos y Financieros
+Artículo 47- El Departamento de Servicios Administrativos y Financieros es el órgano técnico responsable de velar por la dotación de bienes y la prestación de los servicios requeridos para el funcionamiento operativo de todas las dependencias de la Dirección Regional de Educación. Asimismo, coordinaren materia de su competencia, la prestación de servicios de apoyo a las comunidades educativas, de acuerdo con las políticas de desconcentración mínima impulsadas por las autoridades superiores del Ministerio de Educación Pública.

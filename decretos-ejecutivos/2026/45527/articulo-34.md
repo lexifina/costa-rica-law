@@ -1,0 +1,1 @@
+Artículo 34- Para propiciar, desarrollar y mantener la visión de conjunto, las Direcciones Regionales de Educación llevarán a cabo reuniones estratégicas. Los temas, la cantidad de reuniones, las personas que se convoque y el seguimiento de éstas quedará a criterio de la jefatura correspondiente de cada dependencia de la dirección regional.

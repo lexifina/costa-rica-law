@@ -1,0 +1,1 @@
+Artículo 40- El Departamento de Asesoría Pedagógica funcionará bajo la responsabilidad de una jefatura de Asesoría Pedagógica, nombrado de conformidad con los procedimientos y requisitos establecidos por la Dirección General de Servicio Civil, quien dependerá jerárquicamente de la persona directora regional de educación.

@@ -1,0 +1,1 @@
+Artículo 48- El Departamento de Servicios Administrativos y Financieros funcionará bajo la responsabilidad de una jefatura de Servicios Administrativos y Financieros, nombrado de conformidad con los procedimientos y requisitos establecidos por la Dirección General de Servicio Civil. Dependerá jerárquicamente de la persona directora regional de Educación.

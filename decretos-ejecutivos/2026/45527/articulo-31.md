@@ -1,0 +1,9 @@
+Artículo 31- La Dirección contará con el apoyo de una persona asesora legal, quien dependerá jerárquicamente de la persona directora regional. Le corresponden las siguientes funciones:
+a) Atender las consultas de las distintas dependencias de la Dirección Regional de Educación, canalizadas por medio de la persona directora regional, así como brindar asesoría jurídica.
+b) Preparar la documentación requerida para responder, de manera oportuna, los recursos de amparo interpuestos en contra de la Dirección Regional de Educación y sus dependencias; así como requerimientos de otras instancias fiscalizadoras o contraloras.
+c) Mantener un registro actualizado para el seguimiento y control de los recursos de amparo en todas sus etapas, hasta su resolución definitiva.
+d) Coordinar con las dependencias del nivel central, según corresponda, la respuesta de los recursos de amparo que involucren a la persona ministra de Educación Pública, a la persona viceministra Académica, a la persona viceministra Administrativa, a la persona viceministra de Planificación Institucional y Coordinación Regional u otras dependencias de Oficinas Centrales.
+e) Participar en la fase de instrucción de procesos disciplinarios y en la atención de situaciones conflictivas, de acuerdo con los procedimientos y protocolos establecidos para tales efectos por la Dirección de Gestión del Talento Humano.
+f) Coordinar con la Dirección de Asuntos Jurídicos, la Dirección de Gestión del Talento Humano y otras dependencias del nivel central, cuando así se lo solicite la persona directora regional de educación o para mejor resolver en relación con los casos que este atendiendo en el marco de sus funciones.
+g) Participar en las reuniones y comisiones en las que la persona directora regional de educación le requiera o instruya.
+h) Ejecutar procesos de asesoramiento que la persona directora regional de educación requiera o le instruya.

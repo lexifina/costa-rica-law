@@ -1,0 +1,4 @@
+SECCION III
+De las visitas a los centros educativos
+Artículo 35- Cada Dirección Regional de Educación realizará visitas colegiadas a los centros educativos, como una estrategia de abordaje integral formulada a partir de las necesidades, indicadores y diagnósticos previos, o cuando sea solicitado por la persona directora regional ante situaciones especiales debidamente justificadas.
+Las recomendaciones técnicas y administrativas generadas producto de estas visitas serán de acatamiento obligatorio por parte de la persona directora del centro educativo, quien será responsable de formular e implementar un plan de mejora institucional para tales efectos. Le corresponde a la persona supervisora del circuito educativo realizar el seguimiento de este plan y verificar su cumplimiento; así como brindar los informes de avance a la persona directora regional en las reuniones que este convoque con las personas supervisoras o cuando la situación lo amerite.

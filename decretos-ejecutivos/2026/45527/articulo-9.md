@@ -1,0 +1,1 @@
+Artículo 9- Las Direcciones Regionales de Educación podrán establecer acciones de coordinación conjunta para analizar y atender las necesidades educativas comunes e impulsar estrategias, planes, programas, proyectos y asesorías conducentes a promover el desarrollo educativo de sus regiones.

@@ -1,0 +1,1 @@
+Artículo 43- La Dirección de Desarrollo Curricular y la Dirección de Vida Estudiantil, en coordinación con la Dirección de Gestión y Desarrollo Regional y las direcciones regionales de educación, establecerán los lineamientos técnicos y administrativos para el accionar de los Equipos Técnicos Itinerantes Regionales (ETIR).

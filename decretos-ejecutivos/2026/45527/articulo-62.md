@@ -1,0 +1,1 @@
+Artículo 62- A partir de la publicación de este decreto, toda responsabilidad establecida por lineamientos, circulares o directrices que haga referencia al Consejo Asesor Regional (CAR) o al Consejo de Supervisión de Centros Educativos, será asumida por la persona directora regional, con el apoyo de las jefaturas de Departamento y Supervisiones, según sea el caso.

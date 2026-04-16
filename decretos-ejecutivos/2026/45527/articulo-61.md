@@ -1,0 +1,1 @@
+Artículo 61- La Dirección Regional de Educación Sulá, en virtud de ser una dirección conformada en su totalidad por territorios indígenas reconocidos, podrá establecer, previa autorización de las autoridades superiores del Ministerio de Educación Pública, una gestión administrativa interna propia que se ajuste a las necesidades de las comunidades educativas indígenas.

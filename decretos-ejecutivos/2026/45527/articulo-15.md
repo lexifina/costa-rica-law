@@ -1,0 +1,1 @@
+Artículo 15- Es competencia exclusiva de las autoridades superiores del Ministerio de Educación Pública autorizar la creación y modificación de las Direcciones Regionales de Educación, por lo que cualquier solicitud al respecto debe ser presentada ante esas instancias.

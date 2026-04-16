@@ -1,0 +1,3 @@
+Artículo 5- De conformidad con las políticas institucionales y los lineamientos establecidos, las Direcciones Regionales de Educación, promoverán la educación intercultural como instrumento para contextualizarla y fortalecer el carácter pluricultural y multiétnico de nuestra sociedad.
+Las comunidades educativas localizadas en los territorios indígenas reconocidos, serán atendidas según lo establecido en el presente decreto, respetando la normativa que regula el Subsistema de Educación Indígena.
+Las Direcciones Regionales de Educación podrán desarrollar procesos de investigación sobre la realidad histórica, cultural, socioeconómica y política de la región, para promover la contextualización y desarrollo de la política educativa.
