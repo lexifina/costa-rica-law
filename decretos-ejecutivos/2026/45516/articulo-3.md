@@ -1,0 +1,1 @@
+Artículo 3.-Sesiones. La Comisión Nacional Una Sola Salud Costa Rica sesionará por convocatoria del coordinador una vez al mes de manera ordinaria y de forma extraordinaria cada vez que sea requerido, convocado por quien preside, mediante sesiones de trabajo en modalidad virtual o presencial.

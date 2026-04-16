@@ -1,0 +1,1 @@
+Artículo 4.-Funcionamiento. La Comisión Nacional Una Sola Salud Costa Rica definirá mediante acuerdo de sus representantes el funcionamiento y mecanismos internos de trabajo, de acuerdo con los términos y condiciones establecidos en la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".
