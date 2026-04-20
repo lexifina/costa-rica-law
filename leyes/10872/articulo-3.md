@@ -1,0 +1,1 @@
+ARTÍCULO 3- Arreglos de pagos. Se autoriza a la Municipalidad la posibilidad de ofrecer a sus contribuyentes, durante los doce meses posteriores a la publicación del acuerdo municipal, arreglos de pago por un plazo de hasta veinticuatro meses, para que los contribuyentes cancelen el principal de sus obligaciones pendientes por concepto de impuestos y tasas.
