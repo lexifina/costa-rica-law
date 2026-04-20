@@ -1,1 +1,0 @@
-Artículo 29. Toda iniciativa debe ser presentada por escrito ante la Junta Directiva a modo de moción y debidamente firmada. Los miembros pueden acoger mociones de particulares, que se relacionen con la recreación y el deporte, para que sean conocidas por la Junta Directiva del Comité Cantonal en las sesiones que se celebren.

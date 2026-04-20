@@ -1,2 +1,0 @@
-Artículo 34.—El proyecto de acta de cada sesión de la Junta Directiva del CCDRSI deberá entregarse a sus miembros, a más tardar dos horas antes de la sesión en que serán discutidas y aprobadas. Una vez aprobada el acta podrá ser incorporada y firmada en el libro de Actas. La persona encargada de las labores de secretaría, será la responsable de levantar las actas, en ellas se harán constar los acuerdos tomados y sucintamente las deliberaciones habidas.
-(Así reformado mediante sesión ordinaria N° 57-2017 del 28 de agosto del 2017)

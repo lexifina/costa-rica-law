@@ -1,1 +1,0 @@
-Artículo 70. Dicho presupuesto debe ser consecuente con lo establecido en los artículos 62 y 63 del presente reglamento, además debe reflejar las necesidades de las Asociaciones, los Comités Comunales, organizaciones comunales o deportivas y las comisiones que existan y de los munícipes, debiendo seguir el procedimiento reglamentario y la normativa específica correspondiente.

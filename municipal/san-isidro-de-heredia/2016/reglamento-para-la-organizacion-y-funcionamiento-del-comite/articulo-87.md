@@ -1,1 +1,0 @@
-Artículo 87. Se deroga el Reglamento Autónomo de Funcionamiento y Organización del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia, publicado en el Diario Oficial La Gaceta N° 64, del 30 de marzo del 2001, así como sus reformas y cualquier otra normativa que le contradiga.

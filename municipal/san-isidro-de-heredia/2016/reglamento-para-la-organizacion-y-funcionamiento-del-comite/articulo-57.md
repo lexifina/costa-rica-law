@@ -1,2 +1,0 @@
-Artículo 57. En cada una de las Asambleas, participarán al menos los delegados con voz y voto por cada organización deportiva, recreativa, comunal del distrito respectivo los cuales deben cumplir con los requisitos dispuestos en este reglamento.
-Los delegados serán comunicados al Comité Cantonal, con ocho días naturales de anticipación a la celebración de cada Asamblea, mediante comunicación oficial de la organización respectiva, indicando la sesión, fecha, y artículo en los cuales conste su designación.

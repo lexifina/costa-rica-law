@@ -1,1 +1,0 @@
-ARTÍCULO 36. Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la persona que realiza las labores propias de secretaría. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad de San Isidro de Heredia, las hojas serán selladas y foliadas por ésta.

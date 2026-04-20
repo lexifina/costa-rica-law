@@ -1,1 +1,0 @@
-Artículo 48. Los Comités Comunales estarán integrados por una Junta Directiva compuesta por cinco miembros, representantes de las asociaciones deportivas, recreativas. y de desarrollo comunal existentes en el respectivo distrito del Comité Comunal.

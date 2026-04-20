@@ -1,1 +1,0 @@
-Artículo 50. Los Comités Comunales deberán reunirse en sesión pública, cada ocho días ordinariamente y extraordinariamente cuando lo requieran. El CCDRSI debe capacitar a los miembros de los Comités Comunales en relación con el orden del manejo de correspondencia, actas, recibos, proyectos, planes, políticas, entre otros.

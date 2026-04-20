@@ -1,1 +1,0 @@
-Artículo 58. El quórum para desarrollar el acto en primera convocatoria de cada una de las Asambleas, será de la mitad más uno de los delegados inscritos, y para la segunda convocatoria a realizarse una hora después, se realizará con los delegados presentes. No será válida ninguna Asamblea que sea realizada con menos de tres delegados.

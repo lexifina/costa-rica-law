@@ -1,1 +1,0 @@
-Artículo 52. Cuando el Comité Comunal en coordinación con el área técnica del CCDRSI pretenda la realización de torneos, estará en la obligación de confeccionar la respectiva regulación que deberá ser aprobada previamente por la Junta Directiva del Comité Cantonal.

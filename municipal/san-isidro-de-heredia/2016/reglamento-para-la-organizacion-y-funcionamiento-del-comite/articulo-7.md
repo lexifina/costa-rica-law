@@ -1,3 +1,0 @@
-SECCIÓN II
-DE LA JUNTA DIRECTIVA
-Artículo 7. La Junta Directiva del CCDRSI le corresponde la dirección y la organización, del Deporte y la Recreación en el cantón de San Isidro de Heredia Estará integrada por cinco miembros procurando respetar la paridad y equidad de género, quienes, una vez juramentados por el Concejo Municipal, nombrarán entre su seno: Presidente, Vicepresidente, Secretario, Tesorero y Vocal. En caso de que la Junta Directiva cuente con un funcionario que se encargue de las labores de la secretaría, el directorio está compuesto por Presidente, Vicepresidente, Tesorero y dos Vocales.

@@ -1,1 +1,0 @@
-Artículo 4. El domicilio legal del CCDRSI será siempre el cantón de San Isidro, pudiendo variarse para casos excepcionales en forma temporal para eventos deportivos o recreativos, previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.

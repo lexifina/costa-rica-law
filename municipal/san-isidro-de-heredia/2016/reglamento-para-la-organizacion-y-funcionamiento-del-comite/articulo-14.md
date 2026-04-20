@@ -1,1 +1,0 @@
-Artículo 14. Los miembros de la Junta Directiva y el Administrador General, en el tanto lleven a cabo manejo de fondos públicos, deberán ajustarse a lo dispuesto en el reglamento municipal que al efecto regule la materia de rendición de cauciones.
