@@ -1,1 +1,2 @@
-Artículo 52- (Derogado por el artículo 2° de la ley N° 10714 del 7 de mayo de 2025)
+Artículo 52- Toda municipalidad nombrará a un contador o gestor financiero como funcionario municipal, amparado por los derechos y beneficios de la carrera administrativa municipal. Además, deberán contar con una auditoría interna o implementar los métodos de control o fiscalización alternativos, según corresponda, de conformidad con lo dispuesto en la Ley 8292, Ley General de Control Interno, del 31 de julio de 2002.
+(Así reformado por el artículo 2° de la Ley para fortalecer la naturaleza de las auditorías internas y su relación con la administración activa, N° 10881 del 16 de marzo de 2026)
