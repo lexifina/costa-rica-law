@@ -1,1 +1,0 @@
-Artículo 8°-El Tribunal Electoral estará integrado ordinariamente por tres miembros propietarios y tres miembros suplentes, nombrados de la siguiente forma: dos representantes del Concejo Municipal, dos representantes del Comité de Deportes y Recreación y dos representantes de los Concejos de Distritos, nombrados por mayoría simple de los miembros de cada órgano respectivo.

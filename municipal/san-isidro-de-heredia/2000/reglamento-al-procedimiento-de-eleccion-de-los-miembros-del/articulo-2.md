@@ -1,1 +1,0 @@
-Artículo 2°-El Comité Cantonal de Deportes y Recreación del cantón de San Isidro de Heredia tiene por objeto la atención vigilancia y re fiscalización de la actividad deportiva en todos sus aspectos, así como promover el deporte y la recreación en general, procurando el aprovechamiento y el tiempo libre de sus habitantes mediante una recreación saludable.

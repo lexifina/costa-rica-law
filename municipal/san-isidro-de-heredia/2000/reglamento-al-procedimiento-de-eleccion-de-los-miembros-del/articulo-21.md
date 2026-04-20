@@ -1,1 +1,0 @@
-Artículo 21.-De cada una de las Asambleas se levantará un acta que será comunicada al Concejo Municipal, para su conocimiento en su sesión ordinaria más próxima a la celebración de cada una de las Asambleas, la cual deberá estar debidamente firmada por todos los miembros presentes del Tribunal Electoral.

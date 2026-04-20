@@ -1,1 +1,0 @@
-Artículo 6°-Se entenderá por Organizaciones Comunales las Asociaciones de Desarrollo Integral, las Asociaciones de Desarrollo Comunal, las Asociaciones de Desarrollo Específico de conformidad con la ley N° 218, y las Asociaciones de Bien Social que tengan su radio de acción en el cantón de San Isidro de Heredia, con cédula y personería jurídicas al día.

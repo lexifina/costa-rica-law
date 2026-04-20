@@ -1,2 +1,0 @@
-Artículo 19.-Para el caso de elección de los representantes de las organizaciones deportivas y recreativas del cantón, cada delegado podrá votar por dos candidatos de su predilección de la nómina existente. Resultarán electos los dos candidatos que obtengan la mayoría de los votos.
-En caso de empate entre tres o más postulantes, se realizará una segunda votación, únicamente entre los postulantes que resultaron empatados en la votación; de mantenerse el empate se resolverá por suerte (lanzamiento de una moneda).
