@@ -1,0 +1,1 @@
+Artículo 4º-La presente directriz tiene carácter orientador, constituye una acción de promoción cultural de alcance nacional y no genera obligaciones jurídicas para las instituciones con autonomía constitucional o legal, ni implica modificación alguna de la jornada laboral o de las condiciones de trabajo en el sector público o privado.
