@@ -1,0 +1,1 @@
+TRANSITORIO III- Evaluación y ajustes. Pasados cinco años de la entrada en vigor de esta ley, el Ministerio de Salud realizará una evaluación exhaustiva de su impacto. Con base en los resultados de esta evaluación, se podrán realizar los ajustes y las modificaciones necesarios para mejorar su implementación y lograr los objetivos propuestos.

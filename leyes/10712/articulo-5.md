@@ -1,0 +1,2 @@
+ARTÍCULO 5- Promoción de la investigación. Se autoriza a destinar fondos para el incentivo de la investigación científica orientada a mejorar los métodos de detección, tratamiento, promoción y prevención del cáncer de mama. Además, se fomentará la colaboración entre instituciones de investigación y clínicas para impulsar avances en este campo.
+Será responsabilidad del Ministerio de Salud verificar la validez, viabilidad y aplicación científica y médica de este tipo de estudios, la CCSS será responsable de priorizar la investigación en el abordaje integral del cáncer de mama.

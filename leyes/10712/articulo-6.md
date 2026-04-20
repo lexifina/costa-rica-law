@@ -1,0 +1,1 @@
+ARTÍCULO 6- Implementación y financiamiento. El Ministerio de Salud será responsable del establecimiento de políticas públicas y planes nacionales, para la implementación de esta ley. Se autoriza a asignar los recursos necesarios para las campañas de concientización, educación e investigación científica.
