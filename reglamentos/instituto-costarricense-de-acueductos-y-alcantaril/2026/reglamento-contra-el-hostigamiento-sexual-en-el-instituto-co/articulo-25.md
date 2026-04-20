@@ -1,0 +1,1 @@
+Artículo 25. Derogatoria. El presente reglamento deroga totalmente el "Reglamento para Prevenir, Investigar y Sancionar el Hostigamiento Sexual en el Instituto Costarricense de Acueductos y Alcantarillados", publicado en la Gaceta N° 72 del 13 de abril de 2012.

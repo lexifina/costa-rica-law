@@ -1,0 +1,3 @@
+Artículo 13. Formalidades de las medidas cautelares.
+La solicitud o recomendación de interponer la medida cautelar (según sea el caso) deberá presentarse ante el Órgano Decisor, quien tendrá el plazo de un mes calendario (contado a partir del día siguiente a la recepción de esta petición) para emitir un acto motivado en el que la apruebe o rechace. Lo anterior, no tendrá efectos suspensivos en el procedimiento.
+Asimismo, el plazo de vigencia de esta medida quedará a discreción del Órgano Decisor; sin perjuicio de prórroga o que en otra etapa del procedimiento se vuelva a solicitar por hechos nuevos dentro del mismo procedimiento.

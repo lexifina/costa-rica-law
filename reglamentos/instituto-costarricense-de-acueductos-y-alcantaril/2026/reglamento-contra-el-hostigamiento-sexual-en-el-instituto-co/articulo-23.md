@@ -1,0 +1,2 @@
+Artículo 23. Sobre los recursos.
+El denunciante tendrá derecho de presentar los recursos ordinarios de Revocatoria y/o Apelación, los cuales cabrán únicamente contra el acto: que lo inicie, contra el que deniega la comparecencia oral o cualquier prueba y contra el acto final. Contra el acto final deberán interponerse dentro del término de tres días y en los demás casos en el término de veinticuatro horas, ambos plazos, contados a partir del día siguiente de la notificación del acto que se recurre.

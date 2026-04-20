@@ -1,0 +1,5 @@
+Artículo 14. Presentación de la denuncia.
+La interposición de la denuncia será de manera personal o a través de su representante legal, sindical o técnico, éstos dos últimos debidamente acreditados a través de un poder especial, de conformidad con lo regulado en el Código Civil. Dicha denuncia deberá ser presentada en forma escrita, ante la Gerencia General y por los medios oficiales que a los efectos tenga habilitada la Institución.
+Si la persona denunciada ocupa el cargo de Gerencia o Subgerencia General, el Órgano Decisor será la Junta Directiva.
+Asimismo, si la denuncia es hacia la persona que ocupa el cargo de Presidencia Ejecutiva o integrante de la Junta Directiva, el Órgano Decisor será el Consejo de Gobierno de la República de Costa Rica.
+Finalmente, si la persona denunciada es quien ocupa el cargo de Auditor(a) o Subauditor(a) Interno, el Órgano Decisor será la Contraloría General de la República, de conformidad con lo establecido en la Ley Orgánica de la Contraloría General de la República N° 681 y en la Ley General de Control Interno N° 8292.
