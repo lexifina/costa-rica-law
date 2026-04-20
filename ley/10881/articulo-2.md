@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se reforma el artículo 52 de la Ley 7794, Código Municipal, de 30 de abril de 1998. El texto es el siguiente:
+Artículo 52- Toda municipalidad nombrará a un contador o gestor financiero como funcionario municipal, amparado por los derechos y beneficios de la carrera administrativa municipal. Además, deberán contar con una auditoría interna o implementar los métodos de control o fiscalización alternativos, según corresponda, de conformidad con lo dispuesto en la Ley 8292, Ley General de Control Interno, del 31 de julio de 2002.
