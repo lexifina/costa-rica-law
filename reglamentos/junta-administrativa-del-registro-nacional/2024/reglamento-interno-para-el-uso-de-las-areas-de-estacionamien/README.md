@@ -14,3 +14,4 @@ Reglamento interno para el uso de las áreas de estacionamiento de la sede centr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-25 | la propia norma |
+| 2 | 2026-04-20 | Reglamento 13 (2026-04-20) |
