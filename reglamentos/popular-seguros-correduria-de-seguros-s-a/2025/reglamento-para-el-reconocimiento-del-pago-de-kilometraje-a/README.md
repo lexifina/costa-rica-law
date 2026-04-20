@@ -14,3 +14,4 @@ Reglamento para el reconocimiento del pago de kilometraje a los trabajadores de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-11-17 | la propia norma |
+| 2 | 2026-04-20 | Reglamento 519 (2026-04-20) |
