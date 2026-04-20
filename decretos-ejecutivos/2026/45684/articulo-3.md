@@ -1,0 +1,28 @@
+Artículo 3°-Funciones de la Dirección de la DIPE. La Dirección superior de la DIPE tendrá las siguientes funciones:
+1.Supervisar y coordinar la labor de las siguientes unidades dependientes de su dirección:
+a.Unidad de Planificación Institucional.
+b.Unidad de Alineamiento Estratégico.
+c.Unidad de Control Estratégico Institucional.
+2.Gestionar ante la Unidad de Capacitación y Desarrollo del Departamento de Gestión de Potencial Humano los programas de capacitación, para fortalecer los procesos de planificación, gerencia y promover una cultura de gestión para resultados, en la Dirección de Planificación y sus Unidades.
+3.Dirigir y coordinar la elaboración e implementación de un modelo de planificación y gerencia para el Ministerio de Hacienda. Esto incluye proporcionar las metodologías necesarias para estandarizar y mejorar los procesos de planificación, seguimiento y control gerencial, así como evaluar y actualizar continuamente las metodologías utilizadas.
+4.Dirigir, apoyar y asesorar los procesos de planificación institucionales.
+5.Presentar al Ministro y Viceministros los informes ejecutivos trimestrales de seguimiento de planes estratégicos, operativos y proyectos institucionales, con las respectiva sobservaciones y recomendaciones.
+6.Resguardar la información básica del Ministerio de Hacienda en lo relativo a la estructura organizacional.
+7.Dar seguimiento a las consultas y recomendaciones de los entes fiscalizadores de la Administración Pública, Contraloría General de la República (CGR), Procuraduría General de la República (PGR), MIDEPLAN, Auditoría Interna del Ministerio, así como recibir y consolidar informes sobre la gestión de las actividades de las dependencias del Ministerio y atender requerimientos de informes de gestión de clientes o instituciones externas.
+8.Dar seguimiento a las consultas y recomendaciones de los Organismos Internacionales, como la Organización para la Cooperación y el Desarrollo Económicos (OCDE), Banco Mundial, Oficina de Asistencia Técnica del Departamento de Estado de los Estados Unidos de América (OTA).
+9.Coordinar el seguimiento programático de los informes de la Auditoría Interna para actualizar y publicar la Matriz de Cumplimientos (MACU), así como coordinar la ejecución del seguimiento programático a las disposiciones de la Contraloría General de la República.
+10.Evaluar y analizar los cambios que se consideren oportunos para adaptar la estructura organizativa del Ministerio a las exigencias internas y externas, así como asesorar al jerarca en los procesos de modernización de la gestión institucional.
+11.Aprobar y dar seguimiento a la implementación de los Planes Estratégicos, Operativos y Proyectos del Ministerio, mediante matrices de seguimiento, tableros de indicadores y reportes periódicos.
+12.Dirigir, coordinar y asesorar en el trámite de reorganizaciones administrativas del Ministerio de Hacienda ante el Ministerio de Planificación y Política Económica (MIDEPLAN).
+13.Dirigir y coordinar el proceso de elaboración de la Memoria Institucional Anual, la cual presenta de manera integral los principales resultados de la gestión institucional, el documento expone el marco estratégico, la estructura organizacional y las funciones sustantivas del Ministerio, así como el grado de cumplimiento de los planes institucionales y sectoriales, asimismo, incluye información sobre la administración de los ingresos y egresos públicos, la gestión presupuestaria y financiera, la administración de la deuda pública y las acciones de control, fiscalización y modernización institucional, incorpora un análisis de los principales logros alcanzados, los retos identificados y las líneas de acción orientadas al fortalecimiento de la sostenibilidad fiscal, la eficiencia administrativa y la calidad de los servicios brindados al Estado y a la ciudadanía. Aplica también para el proceso de elaboración de la Memoria Sector Hacienda Pública.
+14.Participar en reuniones, comisiones o talleres de trabajo con representantes de organismos nacionales o internacionales para coordinar proyectos institucionales.
+15.Dirigir la participación del Ministerio en la Consulta Nacional de Indicadores de Ciencia, Tecnología e Innovación.
+16.Dirigir y participar en el proceso de recopilación de información de los Índices tramitados por la Contraloría General de la República (CGR).
+17.Dirigir y participar en el seguimiento al Plan Nacional de Desarrollo y de Inversión Pública(PNDIP).
+18.Dirigir la Secretaría del Sector Hacienda Pública para consolidar la información del Sector según el PNDIP.
+19.Implementar y supervisar la Política de Continuidad de Negocio para optimizar la gestión institucional, asegurando así la integridad operativa y un ciclo de mejora continua.
+20.Dirigir y definir el proceso de Valoración de Riesgo Institucional, así como presentar propuestas para mantener actualizado el marco de Control Interno institucional.
+21.Dirigir y liderar en el rango de su competencia lo establecido en la política de Arquitectura Empresarial, coordinando la alineación de procesos, tecnologías y estructuras organizacionales con los objetivos estratégicos institucionales.
+22.Dirigir y liderar en el rango de su competencia lo establecido en la política de levantamiento de Procesos Institucional, asegurando el mapeo, documentación y mejora continua de los procesos del Ministerio.
+23.Dirigir y liderar en el rango de su competencia lo establecido en la política de Proyectos Institucional, garantizando la adecuada formulación, seguimiento y evaluación de los proyectos estratégicos del Ministerio.
+24.Ejecutar otras funciones que le asigne su superior jerárquico, siempre que estén relacionadas con la gestión administrativa y operativa de la Dirección.

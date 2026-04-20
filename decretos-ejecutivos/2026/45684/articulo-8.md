@@ -1,0 +1,1 @@
+Artículo 8°-Derogatorias. Se deroga en todos sus extremos el Decreto Ejecutivo N.º 32913-H del 29 de noviembre de 2005 denominado "Reglamento de Funcionamiento de la Unidad de Planificación del Ministerio de Hacienda", publicado en La Gaceta N° 47 del 7 de marzo de 2006.
