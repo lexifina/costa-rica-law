@@ -1,2 +1,2 @@
-ARTÍCULO 65.- Rendición de cuentas
-La Comisión de Gestión de Proyectos y la entidad fiduciaria respectiva brindarán un informe anual de rendición de cuentas a los miembros de la Conatt, acerca de los proyectos ejecutados con los recursos del Fonatt.
+Artículo 65- Rendición de cuentas. La Comisión de Gestión de Proyectos y la entidad fiduciaria respectiva brindarán un informe anual de rendición de cuentas a los miembros de la Conatt, acerca de los proyectos ejecutados con los recursos del Fondo Nacional contra la Trata de Personas y el Tráfico Ilícito de Migrantes (Fonatt). Este informe deberá ser publicado, mediante la página web y redes sociales de la Dirección General de Migración y Extranjería, en un formato accesible y claro para la ciudadanía, adaptado para la protección de datos e imagen de las personas víctimas, usuarias y funcionarias que participan en las actividades.
+(Así reformado por el artículo 10 de la ley N° 10886 del 18 de marzo de 2026)
