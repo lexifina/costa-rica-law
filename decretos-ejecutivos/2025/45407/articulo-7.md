@@ -1,0 +1,3 @@
+Artículo 7: De las comisiones El Ministerio contará con los siguientes órganos asesores para facilitar su desempeño en la materia:
+1.Comisión Nacional de Patrimonio Histórico Arquitectónico: Asesora al Ministerio de Cultura y Juventud en el cumplimiento de la Ley N° 7555 y se integra de conformidad con el artículo 5 de la "Ley de Patrimonio Histórico-Arquitectónico de Costa Rica.
+2.Comisión Nacional de Patrimonio Cultural Inmaterial: Asesora al Ministerio de Cultura y Juventud, creada por Decreto Ejecutivo N° 38325-C del 22 de enero de 2014,adscrita al Ministerio de Cultura y Juventud, como un órgano de carácter técnico, encargado de coordinar y asesorar en la salvaguarda, protección y revitalización del patrimonio intangible costarricense.

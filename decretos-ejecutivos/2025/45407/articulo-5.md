@@ -1,0 +1,8 @@
+CAPÍTULO II
+Estructura de la Dirección de Patrimonio Cultural
+Artículo 5: La Dirección de Patrimonio Cultural está compuesta por:
+a)Un(a) Director (a) de Patrimonio Cultural. El (la) Director (a) de Patrimonio Cultural ocupa un puesto de confianza excluido del régimen de Servicio Civil, es responsable técnica, administrativa y disciplinariamente ante el Ministro y Viceministro según corresponda.
+b)Unidades funcionales. Para el cumplimiento y ejecución de funciones asignadas a la Dirección de Patrimonio Cultural, contará con el apoyo de dos unidades funcionales, las cuales coordinarán las acciones propias dentro del marco de sus competencias.
+Estas dos unidades funcionales son:
+1.Unidad de Patrimonio Cultural Inmaterial: Cuyo objetivo general consiste en salvaguardar el Patrimonio Cultural Inmaterial del país, a través del seguimiento delas acciones principales que cita la "Convención para la Salvaguardia del Patrimonio Cultural Inmaterial de la Organización de las Naciones Unidas para la Educación, la Ciencia y la Cultura del año 2003", sean éstas la realización de inventarios de manifestaciones culturales y la conformación de medidas de salvaguarda de estas manifestaciones, a fin de crear las condiciones para la evolución e interpretación continuas del patrimonio cultural inmaterial, así como para su transmisión a las generaciones futuras.
+2.Unidad de Patrimonio Histórico Arquitectónico: Cuyo objetivo general consiste en proteger el legado histórico arquitectónico de la nación, mediante la aplicación de las acciones sustantivas que describe la ley N° 7555, para la conservación y preservación de nuestro patrimonio construido.
