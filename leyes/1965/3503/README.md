@@ -1,6 +1,6 @@
 # Ley Reguladora Transporte Remunerado Personas Vehículos Automotores
 
-Ley N° 3503 del 1965-05-10. SINALEVI, ficha 9433: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9433&param2=145244&param3=1>.
+Ley N° 3503 del 1965-05-10. SINALEVI, ficha 9433: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9433&param2=150675&param3=1>.
 
 Publicada en La Gaceta N° 112 del 1965-05-20.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 10 | 2010-05-13 | Ley 8826 | 2010-05-05 |
 | 8 de 10 | 2019-05-26 | Ley 9600 | 2018-08-13 |
 | 9 de 10 | 2025-03-17 | Ley 10638 | 2025-02-14 |
+| 10 de 10 | 2026-04-20 | Ley 10876 | 2026-03-26 |

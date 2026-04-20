@@ -1,22 +1,5 @@
-Artículo 10.- La explotación de cada línea de servicio se adjudicará
-de preferencia a una sola persona, física o jurídica; pero, en este
-último caso, el capital de la sociedad no podrá estar representado por
-acciones ni certificados al portador.
-Cuando lo exija una demanda extraordinaria del servicio, el
-Ministerio de Transportes podrá autorizar el establecimiento de nuevas
-líneas en rutas en las que haya otras líneas, de acuerdo con los estudios
-que realizará la Dirección General de Transporte Automotor(sic:*).
-Antes de establecer una nueva línea, se otorgará un plazo no menor
-de treinta días ni mayor de noventa al concesionario de la ruta en
-cuestión, para que aumente la capacidad del transporte o la frecuencia
-del servicio o sustituya sus vehículos por otros que satisfagan los
-requisitos de higiene y eficiencia exigidas para prestar el servicio
-público. Si el citado concesionario no cumple con esa obligación en el
-plazo señalado, el Ministerio de Obras Públicas y Transportes, con base
-en estudios técnicos aprobados por la Autoridad Reguladora de los
-Servicios Públicos, licitará una nueva concesión, distribuirá las líneas
-en la forma más adecuada, modificándolas si es preciso, sin crear una
-competencia ruinosa entre los concesionarios.
-( Así reformado por el artículo 64 de la Ley Nº 7593 de 9 de agosto
-de 1996).
-(*) Debe entenderse Dirección General de Transporte Público.
+Artículo 10.- La explotación de cada línea de servicio se adjudicará de preferencia a una sola persona, física o jurídica; pero, en este último caso, el capital de la sociedad no podrá estar representado por acciones ni certificados al portador.
+Cuando lo exija una demanda extraordinaria del servicio, el Ministerio de Transportes podrá autorizar el establecimiento de nuevas líneas en rutas en las que haya otras líneas, de acuerdo con los estudios que realizará la Dirección General de Transporte Automotor(*).
+(*) (Nota de Sinalevi: Este departamento se denominó como Dirección General de Transporte Público conforme al artículo 249 de la Ley de Tránsito por Vías Públicas Terrestres No.7331 de 13 de abril de 1993 en su versión original. No obstante, según el dictamen C-037 de 25 de febrero del 2000, este artículo ha sido derogado parcial y tácitamente por los artículos 3, 5, 6, 7, 8, 11, 12 inciso c), 16 y 22 de la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de Taxi No.7969 de 22 de diciembre de 1999, en lo referente a la Comisión Técnica de Transportes y la Dirección General de Transporte Público, cuyas funciones han sido sustituidas por el Consejo de Transporte Público).
+Antes de establecer una nueva línea, se otorgará un plazo no menor de treinta días ni mayor de noventa al concesionario de la ruta en cuestión, para que aumente la capacidad del transporte o la frecuencia del servicio o sustituya sus vehículos por otros que satisfagan los requisitos de higiene y eficiencia exigidas para prestar el servicio público. Si el citado concesionario no cumple con esa obligación en el plazo señalado, el Ministerio de Obras Públicas y Transportes, con base en estudios técnicos aprobados por la Autoridad Reguladora de los Servicios Públicos, licitará una nueva concesión, distribuirá las líneas en la forma más adecuada, modificándolas si es preciso, sin crear una competencia ruinosa entre los concesionarios.
+(Así reformado por el artículo 64 -actual 87- de la Ley de la Autoridad Reguladora de Servicios Públicos (Aresep) Nº 7593 de 9 de agosto de 1996).

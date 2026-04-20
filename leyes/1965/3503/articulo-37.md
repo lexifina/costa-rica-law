@@ -1,8 +1,3 @@
-Artículo 37(*).- Los vehículos automotores dedicados al servicio de
-Transporte Remunerado de Personas, deberán estar provistos de contador
-cuando se trate de vehículos que cobren por pasajero, y de taxímetro
-cuando la tarifa sea por distancia recorrida; ambos implementos
-debidamente aprobados y controlados por la Inspección del Tránsito.
-El Ministerio de Transportes podrá adquirir esos aparatos y
-venderlos al costo a los interesados.
-(* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este artículo se encuentra derogado tácitamente por el artículo 57 de la Ley 7969 de 22 de diciembre de 1999, en cuanto que la fijación de las tarifas es competencia exclusiva de la ARESEP).
+Artículo 37.- Los vehículos automotores dedicados al servicio de Transporte Remunerado de Personas, deberán estar provistos de contador cuando se trate de vehículos que cobren por pasajero, y de taxímetro cuando la tarifa(*) sea por distancia recorrida; ambos implementos debidamente aprobados y controlados por la Inspección del Tránsito.
+El Ministerio de Transportes podrá adquirir esos aparatos y venderlos al costo a los interesados.
+(*) (Nota de Sinalevi: Sobre el tema de tarifas, véase el artículo 57 a 59 de la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de TaxiNo.7969 de 22 de diciembre de 1999, que indica que la fijación de las tarifas es competencia exclusiva de la ARESEP, además de las reglas que allí se ordenan).

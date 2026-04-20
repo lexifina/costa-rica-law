@@ -1,34 +1,20 @@
+N° 3503
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
 Ley Reguladora del Transporte Remunerado
 de Personas en Vehículos Automotores
-(Nota de SINALEVI: La Ley Reguladora del Servicio Público de
-Transporte Remunerado de Personas en Vehículos en la modalidad
-Taxi, N° 7969 de 22 de diciembre de 1999, sustituye a la Comisión
-Técnica de Transportes y la Dirección de Transporte Público,
-mencionadas en esta Ley al crear el Consejo de Transporte Público).
-NOTA: La Ley Reguladora del Transporte Remunerado de Personas en Vehículos
-Taxis, Nº 5406 del 26 de noviembre de 1976, en su artículo 22 deroga en lo
-que se le opongan las disposiciones de la presente ley.
+(Nota de SINALEVI: La Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de Taxi No.7969 de 22 de diciembre de 1999, sustituye a la Comisión Técnica de Transportes y la Dirección de Transporte Público, mencionadas en esta Ley al crear el Consejo de Transporte Público).
+(Nota de Sinalevi: La Ley Reguladora del Transporte Remunerado de Personas en Vehículos Taxis, Nº 5406 del 26 de noviembre de 1976, en su artículo 22 deroga en lo que se le opongan las disposiciones de la presente ley. A su vez, la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de Taxi No.7969 de 22 de diciembre de 1999, la cual rige actualmente sobre dicha actividad, derogó a la ley No.5406)
 CAPITULO I
 Definiciones y Disposiciones Generales
-Artículo 1.- El transporte remunerado de personas en vehículos
-automotores colectivos, excepto los automóviles de servicio de taxi
-regulado en otra ley, que se lleva a cabo por calles, carreteras y
-caminos dentro del territorio nacional, es un servicio público regulado,
-controlado y vigilado por el Ministerio de Obras Públicas y Transportes.
-La prestación es delegada en particulares a quienes autoriza
-expresamente, de acuerdo con las normas aquí establecidas.
-Para los efectos de esta ley, los términos siguientes se definen
-así:
-Ruta: Trayecto que recorren, entre dos puntos llamados terminales,
-los vehículos de transporte remunerado de personas.
-Línea: Servicio de transporte que se presta en determinada ruta.
-Concesión: Derecho que el Estado otorga, previo trámite de
-licitación pública, para explotar comercialmente una línea por medio
-de uno o varios vehículos colectivos, tales como autobuses, busetas,
-microbuses o similares.
-Tarifa: Retribución económica fijada por el Ministerio de Obras
-Públicas y Transportes, como contraprestación por el servicio de
-transporte.
-ARESEP: Autoridad Reguladora de los Servicios Públicos.
-( Así reformado por el artículo 64 de la Ley Nº 7593 de 9 de agosto
-de 1996).
+Artículo 1- El transporte remunerado de personas en vehículos automotores colectivos, excepto los automóviles de servicio de taxi regulado en otra ley, que se lleva a cabo por calles, carreteras y caminos dentro del territorio nacional, es un servicio público regulado, controlado y vigilado por el Ministerio de Obras Públicas y Transportes (MOPT).
+La prestación es delegada en particulares a quienes autoriza expresamente, de acuerdo con las normas aquí establecidas.
+Para los efectos de esta ley, los términos siguientes se definen así:
+Ruta: trayecto que recorren, entre dos puntos llamados terminales, los vehículos de transporte remunerado de personas.
+Línea: servicio de transporte que se presta en determinada ruta.
+Concesión: derecho que el Estado otorga, previo trámite de licitación pública, para explotar comercialmente una línea por medio de uno o varios vehículos colectivos, tales como autobuses, busetas, microbuses o similares.
+Tarifa: retribución económica fijada por la Autoridad Reguladora de los Servicios Públicos, como contraprestación por el servicio de transporte.
+Aresep: Autoridad Reguladora de los Servicios Públicos.
+Equipaje: cualquier tipo de bolso, bolsa, maleta, maletín, maleta de viaje, salveque o cualquier tipo de recipiente utilizado para trasladar pertenencias lícitas y permitidas para que sean transportadas en unidades de autobús que, de conformidad con las disposiciones sobre peso y dimensiones máximas que establezca el Consejo de Transporte Público, las cuales se fundamentarán en criterios técnicos relacionados con el peso máximo que la unidad puede transportar de acuerdo con sus especificaciones de fábrica, sea factible transportar en los maleteros de los autobuses ubicados sobre los asientos de los pasajeros, o bien, en los maleteros accesibles por las compuertas laterales externas de las unidades de autobús, siempre y cuando la unidad cuente con uno o ambos de estos espacios.
+Objetos de uso personal: cualquier objeto lícito que la persona usuaria requiera para su actividad o desenvolvimiento diario que, de conformidad con las disposiciones sobre peso y dimensiones máximas que establezca el Consejo de Transporte Público, sea factible transportar en los maleteros internos de los autobuses, ubicados sobre los asientos de los pasajeros, o bien, en los maleteros accesibles por las compuertas laterales externas de las unidades de autobús, siempre y cuando la unidad cuente con uno o ambos de estos espacios. Se consideran objetos de uso personal: el equipo deportivo, los instrumentos musicales, el equipo fotográfico como pedestales o trípodes, etc.; las bicicletas plegables, patinetas y scooters plegables, scooters no plegables y cualquier otro que, por su peso y dimensión, se puedan transportar en las unidades de autobús, de conformidad con las disposiciones del Consejo de Transporte Público, las cuales se fundamentarán en criterios técnicos relacionados con el peso máximo que la unidad puede transportar, de acuerdo con sus especificaciones de fábrica.
+(Así reformado por el artículo 1° de la Ley para eliminar el cobro de tarifas por transportar objetos para el uso o desenvolvimiento diario en el servicio público de transporte modalidad de autobús y para fomentar el transporte intermodal de pasajeros, N° 10876 del 26 de marzo de 2026)
