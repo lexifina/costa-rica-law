@@ -14,3 +14,4 @@ Ampliación del plazo para recibir donaciones deducibles del Impuesto sobre las 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-02-25 | la propia norma |
+| 2 | 2026-04-20 | Resolución 16 (2026-04-20) |
