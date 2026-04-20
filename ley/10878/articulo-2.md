@@ -1,0 +1,1 @@
+ARTÍCULO 2- Destino de los terrenos. El terreno donado por el Estado-Ministerio de Obras Públicas y Transportes (MOPT) al Estado-Ministerio de Seguridad Pública será destinado a la construcción de una delegación policial, que atienda las necesidades de seguridad en el cantón de Upala y comunidades cercanas.

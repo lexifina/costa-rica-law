@@ -1,0 +1,7 @@
+N° 10878
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+LEY PARA QUE SE DESAFECTE UN BIEN INMUEBLE PROPIEDAD DEL ESTADO-
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES Y AUTORIZACIÓN PARA
+QUE LO DONE AL ESTADO-MINISTERIO DE SEGURIDAD PÚBLICA
+ARTÍCULO 1- Desafectación y donación. Se desafecta de su uso público la finca propiedad del Estado-Ministerio de Obras Públicas y Transportes (MOPT), con cédula de persona jurídica número dos-uno cero cero-cero cuatro dos cero cero ocho (n° 2-100-042008), inscrita en el Registro Nacional de la Propiedad Inmueble, partido de Alajuela, con matrícula de folio real número dos- cero cero cinco dos tres dos seis cuatro- cero cero cero (n.°2-00523264-000), que hoy es terreno de naturaleza destinado a la sede regional de la Dirección General de Educación Vial; situado en el distrito primero. Upala; cantón trece, Upala, de la provincia de Alajuela; con una medida de dos mil seiscientos quince metros cuadrados (2615 m2); según el plano catastrado A-uno siete seis tres nueve ocho siete - dos cero uno cuatro (A-1763987-2014), inscripción: 2-1763987-2014, con los siguientes linderos: al norte: resto de Arrocera Upala S.A.; al sur: calle pública; al este: resto de Arrocera Upala S.A. , y al oeste: resto de Arrocera UpalaS.A., y se autoriza para que done en su totalidad al Estado-Ministerio de Seguridad Pública, concédula persona jurídica número dos-uno cero cero- cero cuatro dos cero uno uno (N.°2-100-042011).
