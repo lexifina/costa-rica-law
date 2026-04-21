@@ -1,5 +1,5 @@
-Artículo 4°-Requisitos y deberes de las personas integrantes de las Juntas de Crédito Local.
-I.-Las personas integrantes de las Juntas de Crédito Local deberán reunir los siguientes requisitos:
+Artículo 4º-Requisitos y deberes de las personas integrantes de las Juntas de Crédito Local.
+I.- Las personas integrantes de las Juntas de Crédito Local deberán reunir los siguientes requisitos:
 a. Ser costarricenses y ciudadanas en ejercicio.
 b. Pertenecer a alguna de las organizaciones que conforman los sectores que integran la Asamblea de Trabajadores y Trabajadoras.
 c. Ser de reconocida honorabilidad.
@@ -12,5 +12,4 @@ g. No ser deudores morosos de alguna institución bancaria, lo que el Banco debe
 h. No estar inhabilitadas para ejercer cargos públicos.
 i. No integrar más de dos juntas directivas u otros órganos colegiados adscritos a órganos, entes y empresas de la Administración Pública, todo de conformidad con lo establecido en el artículo 17 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
 j. Al menos una de las personas integrantes de la Junta de Crédito Local deberá contar con preparación académica universitaria, con grado mínimo de bachiller y, preferiblemente, con conocimientos y experiencia en economía, banca o administración, así como experiencia en problemas relativos al desarrollo económico y social del país, salvo inopia debidamente comprobada, requisito que se procurará cumpla también su suplente.
-II.-De conformidad con lo indicado en el artículo 44 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, deberán guardar la más estricta imparcialidad en asuntos de política electoral.
-(Así reformado en sesión N° 5947 del 12 de octubre de 2022)
+II.- De conformidad con lo indicado en el artículo 44 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, deberán guardar la más estricta imparcialidad en asuntos de política electoral.
