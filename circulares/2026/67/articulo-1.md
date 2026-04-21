@@ -1,0 +1,14 @@
+CIRCULAR N° 67-2026
+Asunto: Ampliación de la competencia del Tribunal de Apelación Contencioso Administrativo para conocer asuntos de puro derecho, a partir del 02 de febrero de 2026. Al respecto, se aclara que esta Circular informativa no limita ni condiciona la atención de los asuntos de Puro Derecho ya iniciada en el Tribunal de Apelaciones.
+A LOS DESPACHOS JUDICIALES DEL PAÍS, COLEGIO DE ABOGADOS Y
+ABOGADAS DE COSTA RICA, ABOGADOS, ABOGADAS Y PÚBLICO EN GENERAL.
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 04-2026, celebrada el 02 de febrero del 2026, artículo XII, aprobó la ampliación de la competencia del Tribunal de Apelación Contencioso Administrativo, para que ese órgano emita resoluciones de manera unipersonal en los distintos asuntos propios de su competencia y además, de manera colegiada, conozca y emita sentencia en los asuntos de puro derecho que se tramitan en la Jurisdicción Contencioso Administrativo.
+De esa manera, por un plazo de seis meses, una sección del Tribunal de Apelaciones dará apoyo al plan de descongestionamiento de Puro Derecho del Tribunal de Apelaciones dará apoyo al plan de descongestionamiento de Puro Derecho del Tribunal Contencioso Administrativo, operando con una cuota compuesta de 25% de asuntos de su competencia ordinaria (apelativa) y 75% en la atención de procesos de Puro Derecho (equivalente a 3 sentencias mensuales por persona Juzgadora).
+De conformidad con ese acuerdo de la Dirección de Planificación con la Comisión de la Jurisdicción Contenciosa Administrativa y la Gestoría de la Jurisdicción deberán coordinar el plan de trabajo, a los efectos de definir la lista de expedientes de Puro Derecho que serán reasignados al Tribunal de Apelaciones en ejecución del plan de descongestionamiento, en aplicación de los criterios de prevalencia de la norma práctica (vulnerabilidad, antigüedad y especialidad) y considerando una distribución equitativa en las cargas de trabajo de las casillas del Tribunal Contencioso Administrativo del que provienen.
+La competencia del Tribunal de Apelación Contencioso Administrativo quedaría determinada de la siguiente forma:
+Código | /Oficina | Propuesta Aprobada de acuerdo tomado por la Corte Plena, en sesión N° 04-2026 celebrada el 02 de febrero de 2026.
+1120 | Tribunal de Apelación Contencioso Administrativo y Civil de Hacienda. | Disponer que el Tribunal de Apelación Contencioso Administrativo emita resoluciones de manera unipersonal en los distintos asuntos propios de la competencia y Ampliar la competencia del Tribunal de Apelación Contencioso Administrativo para que conozca los asuntos de puro derecho del Tribunal Contencioso Administrativo, mediante plan de trabajo previamente coordinado por la Dirección de Planificación con la Comisión y la Gestoría Jurisdiccional.
+Publíquese una vez en el Boletín Judicial.
+San José, 21 de abril de 2026.
+<span style='font-family:"Arial",sans-serif; </body>
