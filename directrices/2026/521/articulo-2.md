@@ -1,0 +1,3 @@
+Artículo 2º-Ámbito de aplicación, acceso y cumplimiento. Las guías oficializadas mediante la presente directriz serán de acceso abierto, garantizando su disponibilidad pública para consulta, implementación y adopción por parte de los distintos actores del ecosistema de salud digital.
+Serán de acatamiento obligatorio para todas las dependencias del Ministerio de Salud y de aplicación obligatoria y progresiva para las instituciones públicas del sector salud, en el desarrollo, adquisición, modernización e interoperabilidad de los sistemas de información en salud.
+Asimismo, constituirán referencia técnica obligatoria para los actores privados que interactúen con los sistemas de información en salud del Estado.

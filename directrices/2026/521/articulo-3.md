@@ -1,0 +1,1 @@
+Artículo 3º-Divulgación, actualización y vigencia. La Dirección de Transformación y Salud Digital (DTSD) será la instancia responsable de la divulgación oficial, acompañamiento técnico y seguimiento de la implementación de las guías señaladas, así como de proponer sus actualizaciones conforme a la evolución normativa y técnica nacional e internacional.
