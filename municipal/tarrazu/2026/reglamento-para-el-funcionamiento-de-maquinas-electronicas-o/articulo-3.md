@@ -1,0 +1,1 @@
+Artículo 3º-Máquinas de juegos permitidas. Son permitidas las máquinas de juego que simulen juegos de pinball, deportivos o de destreza, en las que el jugador emplee su habilidad mediante el pago de monedas o fichas, previa inspección y constatación de la Municipalidad.

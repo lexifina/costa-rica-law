@@ -1,0 +1,2 @@
+Artículo 4º-Máquinas de juego prohibidas. Quedan prohibidas las máquinas de juego en las que la eventual ganancia para el jugador dependa únicamente un mecanismo automático incontrolable o de la suerte.
+Asimismo, se prohíbe la instalación de salas de juego o de máquinas de cualquier tipo en establecimientos donde se expendan bebidas alcohólicas, así como en inmuebles ubicados a menos de ochenta metros de templos religiosos, centros de salud y centros de enseñanza debidamente autorizados.

@@ -1,0 +1,1 @@
+Artículo 6º-Horarios permitidos. Las maquinas podrán funcionar a partir de las dieciséis horas hasta las veintidós horas en días lectivos y de las trece horas hasta las veintidós horas los fines de semana.

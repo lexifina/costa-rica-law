@@ -1,0 +1,1 @@
+Artículo 12.-Inspección. La Municipalidad tendrá a su cargo la inspección y vigilancia de los establecimientos que operen máquinas de juego, con el objetivo de garantizar el cumplimiento de las disposiciones contenidas en el presente reglamento y en la normativa aplicable.
