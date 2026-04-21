@@ -14,3 +14,4 @@ Portafolio y Estructura de Riesgos Institucional, versión 2023
 | --- | --- | --- |
 | 1 | 2023-12-20 | la propia norma |
 | 2 | 2024-10-09 | Circular 206 (2024-10-09) |
+| 3 | 2026-04-21 | Circular 66 (2026-04-21) |
