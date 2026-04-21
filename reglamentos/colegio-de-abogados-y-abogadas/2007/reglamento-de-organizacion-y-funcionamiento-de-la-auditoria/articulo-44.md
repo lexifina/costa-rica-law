@@ -1,1 +1,3 @@
-Artículo 44.—Servicios de la asesoría legal. La asesoría legal del Colegio de Abogados de Costa Rica deberá brindar el oportuno y efectivo servicio a la Auditoría Interna mediante los estudios jurídicos que ésta requiera, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la Ley General de Control Interno.
+Artículo 44° Servicios de la asesoría legal
+La asesoría legal del Colegio de Abogados y Abogadas de Costa Rica deberá brindar el oportuno y
+efectivo servicio a la Auditoría Interna mediante los estudios jurídicos que ésta requiera, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la Ley General de Control Interno.

@@ -1,1 +1,2 @@
-Artículo 6º—Disponibilidad del reglamento. Una vez que este reglamento sea aprobado por la Contraloría General de la República y publicado en el Diario Oficial La Gaceta, se mantendrá disponible en el compendio de Leyes, Normativas y Reglamentos.
+Artículo 6° Disponibilidad del reglamento
+Una vez que este reglamento sea aprobado por la Contraloría General de la República y publicado en el Diario Oficial La Gaceta, se mantendrá disponible en el compendio de Leyes, Normativas y Reglamentos.

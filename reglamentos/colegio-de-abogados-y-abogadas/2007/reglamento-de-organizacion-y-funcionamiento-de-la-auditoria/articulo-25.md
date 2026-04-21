@@ -1,4 +1,6 @@
-CAPÍTULO IV
-Del auditor interno
-Artículo 25.—Nombramiento del auditor interno y subauditor interno. El nombramiento del auditor interno se hará observando lo previsto en el artículo 14 - De los Departamentos - del Reglamento Autónomo del Colegio de Abogados de Costa Rica y el artículo 31 de la Ley General de Control Interno Nº 8292, de los Lineamientos de la Contraloría General de la República sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos.
+CAPIITTULLO IV
+DEL AUDITOR INTERNO
+Artículo 25° Nombramiento del auditor interno y subauditor interno
+El nombramiento del auditor interno se hará observando lo previsto en el artículo 14 – De los Departamentos - del Reglamento Autónomo del Colegio de Abogados y Abogadas de Costa Rica y el artículo 31 de la Ley General de Control Interno No. 8292, de los Lineamientos de la Contraloría General de la República sobre los requisitos de los cargos de auditor y subauditor internos5, y las condiciones para las gestiones de nombramiento en dichos cargos.
+5 Véase “Reforma Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República”, en la resolución N.º R-DC-83-2018 y su reforma.
 La Junta Directiva podrá designar un subauditor interno con las mismas calidades y atribuciones del auditor interno, de quien dependerá directamente. Al subauditor interno le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

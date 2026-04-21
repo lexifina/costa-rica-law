@@ -1,3 +1,4 @@
-CAPÍTULO VI
-Ámbito de acción
-Artículo 40.—Ámbito de acción. La competencia de la auditoría interna está conformado por el Colegio de Abogados de Costa Rica, de sus diferentes sedes regionales, y oficinas descentralizadas o desconcentradas sujetos a su competencia institucional o donde existan recursos públicos o privados del Colegio de Abogados de Costa Rica, para lo cual el auditor interno deberá definir y mantener actualizado, en el instrumento que corresponda, los órganos y entes sujetos al ámbito de acción de la auditoría interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la Ley General de Control Interno.
+CAPITULO VI
+ÁMBITO DE ACIÓN
+Artículo 40° Ámbito de acción
+La competencia de la auditoría interna está conformado por el Colegio de Abogados y Abogadas de Costa Rica, de sus diferentes sedes regionales, y oficinas descentralizadas o desconcentradas sujetos a su competencia institucional o donde existan recursos públicos o privados del Colegio de Abogados y Abogadas de Costa Rica, para lo cual el auditor interno deberá definir y mantener actualizado, en el instrumento que corresponda, los órganos y entes sujetos al ámbito de acción de la auditoría interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la Ley General de Control Interno.

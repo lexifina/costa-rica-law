@@ -1,1 +1,2 @@
-Artículo 23.—Disciplinas. Las distintas disciplinas que sustentan el perfil de los funcionarios de la Auditoría Interna deberán concordar con su estructura y con las necesidades y servicios que presta el Colegio de Abogados de Costa Rica.
+Artículo 23° Disciplinas
+Las distintas disciplinas que sustentan el perfil de los funcionarios de la Auditoría Interna deberán concordar con su estructura y con las necesidades y servicios que presta el Colegio de Abogados y Abogadas de Costa Rica.

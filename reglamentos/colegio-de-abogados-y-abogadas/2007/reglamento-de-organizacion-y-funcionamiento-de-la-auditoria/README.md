@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoria Interna del Colegio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-08 | la propia norma |
+| 2 | 2026-04-21 | Reglamento 16 (2026-04-21) |

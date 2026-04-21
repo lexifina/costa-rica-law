@@ -1,1 +1,2 @@
-Artículo 14.—Medidas para controlar y administrar situaciones de impedimento. El auditor interno deberá establecer medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho o de apariencia) la objetividad e independencia de la Auditoría Interna.
+Artículo 14° Medidas para controlar y administrar situaciones de impedimento
+El auditor interno deberá establecer medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho, o de apariencia) la objetividad e independencia de la Auditoría Interna.

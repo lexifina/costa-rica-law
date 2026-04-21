@@ -1,1 +1,2 @@
-Artículo 57.—Supervisión. Los trabajos de la Auditoría Interna deben ser adecuadamente supervisados por el auditor interno, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.
+Artículo 57° Supervisión
+Los trabajos de la Auditoría Interna deben ser adecuadamente supervisados por el auditor interno, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.
