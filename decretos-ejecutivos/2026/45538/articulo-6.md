@@ -1,0 +1,2 @@
+Artículo 6º-Dependencia jerárquica. La Unidad de Infraestructura dependerá jerárquicamente del Viceministro Administrativo, y será una unidad de orden operativo, según la aprobación emitida por MIDEPLAN mediante resolución técnica comunicada en oficio CARTA-MIDEPLAN-DM-1049-2025 del 10 de noviembre de 2025.
+La integración de esta unidad al Viceministerio Administrativo permitirá la optimización de recursos técnicos, tecnológicos, humanos y financieros, así como la articulación con las direcciones y órganos desconcentrados del Ministerio de Cultura y Juventud.

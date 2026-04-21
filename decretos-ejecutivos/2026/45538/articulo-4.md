@@ -1,0 +1,10 @@
+Artículo 4.-Funciones. La Unidad de Infraestructura tendrá las siguientes funciones:
+1. Formular, ejecutar y dar seguimiento a los proyectos de infraestructura del Ministerio de Cultura y Juventud, incluyendo nuevas obras, remodelaciones, ampliaciones y mantenimientos mayores, en los inmuebles bajo su administración, en coordinación con los programas y subprogramas presupuestarios.
+2. Brindar acompañamiento técnico durante la ejecución contractual de los proyectos, incluyendo la fiscalización de obras y el análisis de ofertas cuando aplique.
+3. Realizar valoraciones técnicas de inmuebles para fines de alquiler, préstamo, convenio, compra o cesión, con el fin de respaldar la toma de decisiones institucionales sobre el uso y ocupación de espacios físicos.
+4. Elaborar lineamientos técnicos institucionales para el desarrollo de infraestructura cultural, considerando programas arquitectónicos de referencia según tipo de equipamiento, criterios de accesibilidad, sostenibilidad, mantenimiento y adecuación territorial.
+5. Establecer mecanismos de coordinación con unidades internas como la Secretaría de Planificación Institucional y Sectorial, la Proveeduría, el Departamento Financiero Contable y otras instancias involucradas, para garantizar la trazabilidad y alineación de los proyectos con la planificación institucional.
+6. Desarrollar y mantener actualizado un sistema de información técnica sobre el estado, uso y características de los inmuebles del Ministerio de Cultura y Juventud, que sirva de base para la toma de decisiones y la planificación estratégica.
+7. Ejecutar evaluaciones técnicas ex ante y ex post de los proyectos de infraestructura, como parte del proceso de mejora continua y rendición de cuentas institucional.
+8. Proveer insumos técnicos a las autoridades institucionales para la formulación de planes estratégicos relacionados con la infraestructura física del Ministerio.
+9. Realizar cualquier otra función que le sea asignada, conforme al marco normativo vigente y dentro del ámbito de su competencia.

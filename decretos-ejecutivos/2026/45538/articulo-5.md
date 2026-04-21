@@ -1,0 +1,2 @@
+Artículo 5º-Ubicación física y Conformación de la Unidad de Infraestructura. La Unidad de Infraestructura tendrá su sede en el Centro Nacional de la Cultura (CENAC).
+La Unidad de Infraestructura no tendrá una estructura organizacional interna, estará conformada por una estructura ocupacional con una figura de coordinación técnica, a cargo de profesionales y técnicos responsables de la planificación, ejecución y evaluación de los proyectos de infraestructura institucional.

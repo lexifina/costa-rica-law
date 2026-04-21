@@ -1,0 +1,5 @@
+Artículo 3º-Fines de la Unidad de Infraestructura. La creación de esta unidad permitirá la mejora en los siguientes aspectos:
+1. Centralización de la Gestión de Infraestructura: Las funciones relacionadas con la infraestructura, incluyendo el diseño, ejecución, y mantenimiento de proyectos, se consolidarán en una unidad especializada.
+2. Agilización de Procesos: La nueva unidad permitirá una mayor eficiencia en la ejecución de proyectos, optimizando recursos humanos, financieros y tecnológicos.
+3. Establecimiento de Procedimientos Estandarizados: Se implementarán procedimientos claros, uniformes y debidamente documentados para la gestión de los proyectos de infraestructura, abarcando todas sus etapas tales como la planificación, formulación, contratación, ejecución, supervisión y cierre. Esto permitirá mayor transparencia, trazabilidad y control institucional, así como un seguimiento oportuno y eficiente de las inversiones.
+4. Mejor Control de Calidad y Presupuesto: Al contar con un equipo especializado, se garantizará un control más riguroso sobre los costos, plazos y calidad de los proyectos.

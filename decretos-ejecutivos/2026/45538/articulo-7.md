@@ -1,0 +1,1 @@
+Artículo 7º-Recursos humanos. La implementación de esta unidad se realizará sin creación de nuevas plazas, utilizando exclusivamente el recurso humano existente, conforme la resolución citada en el artículo anterior.
