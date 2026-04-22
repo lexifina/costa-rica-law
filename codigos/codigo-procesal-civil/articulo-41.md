@@ -4,6 +4,10 @@ ARTÍCULO 41.- Disposiciones generales sobre prueba
 41.1 Carga de la prueba. Incumbe la carga de la prueba:
 1. A quien formule una pretensión, respecto de los hechos constitutivos de su derecho.
 2. A quien se oponga a una pretensión, en cuanto a los hechos impeditivos, modificativos o extintivos del derecho del actor.
+3- En los casos relacionados con la defensa al consumidor, ambiente, fraudes electrónicos personales o de cualquier tipo de entidad financiera, tanto a nivel administrativo como judicial, regirá la inversión de la carga de la prueba en favor de las personas consumidoras afectadas.
+Para la aplicación de lo dispuesto en los incisos anteriores de este artículo, se deberá tener presente la disponibilidad y facilidad probatoria que corresponde a cada una de las partes, de acuerdo con la naturaleza de lo debatido.
+Las normas precedentes se aplicarán siempre que una disposición legal expresa no distribuya con criterios especiales la carga de la prueba.
+(Así adicionado el inciso 3) anterior por el artículo 7° de la Ley Protección a las personas consumidoras en la custodia de su dinero que administra cualquier entidad financiera en Costa Rica, ya sea pública o privada, autorizada para este fin, N° 10889 del 23 de marzo de 2026)
 Para la aplicación de lo dispuesto en los incisos anteriores de este artículo, se deberá tener presente la disponibilidad y facilidad probatoria que corresponde a cada una de las partes, de acuerdo con la naturaleza de lo debatido.
 Las normas precedentes se aplicarán siempre que una disposición legal expresa no distribuya con criterios especiales la carga de la prueba.
 41.2 Medios de prueba. Son admisibles como medios de prueba los siguientes:
