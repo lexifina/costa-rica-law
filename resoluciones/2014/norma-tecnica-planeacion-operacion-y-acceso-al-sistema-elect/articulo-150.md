@@ -1,2 +1,0 @@
-Artículo 150. Vigencia. Esta disposición rige a partir de su publicación en el diario oficial.
-(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 181 pasó a ser el 150)

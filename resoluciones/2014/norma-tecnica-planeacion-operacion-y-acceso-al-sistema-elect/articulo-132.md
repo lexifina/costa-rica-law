@@ -1,2 +1,0 @@
-Artículo 132. Cumplimiento de la programación de los racionamientos. Es responsabilidad de las empresas el fiel cumplimiento de los racionamientos programados previamente por el Operador del Sistema, en apego a esta norma técnica.
-(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 163 pasó a ser el 132)

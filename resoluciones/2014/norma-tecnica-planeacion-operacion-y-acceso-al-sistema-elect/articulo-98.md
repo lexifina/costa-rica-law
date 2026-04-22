@@ -1,2 +1,0 @@
-Artículo 98. Proyecciones de potencia y energía estimadas y contratadas.
-En los meses de enero y julio de cada año, las empresas de generación deberán remitir a la Autoridad Reguladora y al Operador del Sistema, sus proyecciones de potencia máxima, potencia y energía media estimada y contratada (en el caso de contratos de compra-venta entre generadores privados y las empresas) de sus centrales de generación, para cada mes del semestre inmediato siguiente según corresponda.

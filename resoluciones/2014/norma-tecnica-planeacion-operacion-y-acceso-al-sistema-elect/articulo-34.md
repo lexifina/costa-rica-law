@@ -1,5 +1,0 @@
-CAPÍTULO VII.
-CONTRATO DE CONEXIÓN Y PUESTA EN SERVICIO DE LA CONEXIÓN.
-Artículo 34. Contrato o convenio de conexión
-Para el acceso al Sistema Eléctrico Nacional, el interesado deberá firmar un “Contrato de Conexión” con el ICE, la empresa de transmisión o la empresa distribuidora según corresponda, en el cual se especificarán las condiciones técnicas, económicas, financieras y jurídicas que no podrán exceder lo dispuesto en la normativa vigente, bajo las cuales se regirá el diseño, adquisición, construcción, la puesta en servicio y operación de la conexión solicitada. El texto del contrato o convenio de conexión, deberá ser revisado y avalado por el Operador del Sistema en el plazo que se establezcan en los procedimientos y protocolos que se aprueben por parte de la Autoridad Reguladora, conforme a lo dispuesto en el artículo 45 de esta norma técnica.
-(Así reformado mediante sesión ordinaria N° 24-2015 del 4 de junio del 2015)

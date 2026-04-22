@@ -1,5 +1,0 @@
-Artículo 124. Modalidades de generación distribuida para autoconsumo con fuentes renovables interconectadas a la red.
-La actividad de generación distribuida para autoconsumo con fuentes renovables interconectadas a la red se desarrollará y operará bajo las siguientes modalidades:
-a. Neta sencilla: alternativa para que los abonados generen electricidad mediante fuentes renovables con el propósito de satisfacer sus necesidades, funcionando en paralelo con la red de distribución eléctrica, bajo el concepto de depósito y devolución de energía.
-b. Neta completa (venta de excedentes): alternativa para que los abonados generen electricidad mediante fuentes renovables con el propósito de satisfacer sus necesidades, funcionando en paralelo con la red de distribución eléctrica, bajo el concepto de venta de excedentes de energía.
-(Así reformado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

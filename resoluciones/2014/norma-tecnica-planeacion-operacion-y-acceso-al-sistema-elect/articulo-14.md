@@ -1,2 +1,0 @@
-Artículo 14. Trasiego de información.
-Todas las empresas participantes en la industria eléctrica nacional, tienen la obligación de suministrar al Operador del Sistema, de acuerdo con los procedimientos que éste proponga y apruebe la Autoridad Reguladora, toda la información necesaria para la debida operación y la planeación de la operación del SEN, de conformidad con esta normativa y la normativa regional.

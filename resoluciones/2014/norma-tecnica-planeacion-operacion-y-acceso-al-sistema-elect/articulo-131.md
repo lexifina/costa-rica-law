@@ -1,3 +1,0 @@
-Artículo 131. Coordinación. El Operador del Sistema, es responsable de establecer los mecanismos de coordinación con las empresas eléctricas de distribución y con los generadores privados, para establecer la programación de los racionamientos.
-Consecuentemente las empresas distribuidoras y el ICE-Distribución, son responsables de establecer los mecanismos apropiados de coordinación con sus clientes, en lo que respecta a los racionamientos
-(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 162 pasó a ser el 131)
