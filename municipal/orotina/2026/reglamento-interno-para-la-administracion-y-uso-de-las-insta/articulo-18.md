@@ -1,0 +1,1 @@
+Artículo 18.- Usos compatibles. En cada instalación podrán practicarse las actividades a las que especialmente esté destinada. Será también posible la práctica de otras actividades, siempre que se sea técnicamente factible, previo informe técnico que respalde la autorización del Administrador.

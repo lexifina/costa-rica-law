@@ -1,0 +1,1 @@
+Artículo 2.- Objeto y cobertura. El objeto del presente Reglamento es regular la administración, funcionamiento y uso de las instalaciones ubicadas en el cantón de Orotina que están a cargo del CCDRO.

@@ -1,0 +1,1 @@
+Artículo 15.- Adquisición de bienes y servicios. Toda adquisición de bienes y servicios respecto de la administración de cualquiera de las instalaciones se hará a través del CCDRO, que se servirá del soporte administrativo brindado por la Municipalidad.

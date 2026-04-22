@@ -1,0 +1,1 @@
+Artículo 3.- Desarrollo del Reglamento. El CCDRO podrá dictar cuantas resoluciones estime oportunas en desarrollo y armonía de lo dispuesto en este Reglamento, en aras de obtener una mejor prestación del servicio y utilización de las instalaciones por los usuarios.

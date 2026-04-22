@@ -1,0 +1,2 @@
+Artículo 38. Divulgación. El CCDRO divulgará el presente reglamento en los medios digitales y físicos disponibles.
+También divulgará por los mismos medios el Administrador de cada instalación con sus respectivos integrantes, el nombre de la persona asignada a cada instalación, así como las referencias telefónicas, correos electrónicos y demás información necesaria para disposición de la ciudadanía.

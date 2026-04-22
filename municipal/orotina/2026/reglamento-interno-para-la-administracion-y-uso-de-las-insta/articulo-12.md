@@ -1,0 +1,1 @@
+Artículo 12.- Obligaciones legales. El personal contratado para el mantenimiento de las instalaciones deberá cumplir todas las obligaciones legales establecidas en materia de Seguridad social y salud ocupacional.

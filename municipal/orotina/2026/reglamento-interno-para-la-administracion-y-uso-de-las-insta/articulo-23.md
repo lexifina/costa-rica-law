@@ -1,0 +1,9 @@
+Artículo 23.- Derechos de los usuarios. Los Usuarios de las Instalaciones tienen derecho a:
+a) Hacer uso de las instalaciones en los días y en el horario señalado en el permiso o contrato de arrendamiento de uso de las instalaciones, o en el horario establecido para aquellas instalaciones de libre acceso.
+b) Hacer uso de los servicios y espacios complementarios como vestuarios, servicios sanitarios, bodegas, etc., en las instalaciones dotadas de dichos servicios, no estando permitido dejar ningún tipo de objeto en los mismos.
+c) Ingresar a la instalación con la antelación suficiente al horario de la actividad, para poder efectuar el cambio de ropa, montaje del equipamiento y permanecer en ella una vez finalizada la actividad el tiempo necesario para dichas tareas.
+d) Encontrar las instalaciones, material y mobiliario con que están equipadas en perfectas condiciones de limpieza y mantenimiento.
+e) Si por inclemencias del tiempo, fuera imposible realizar la actividad, con el visto bueno del Administrador o funcionario designado para tal efecto, se procederá a compensar dicho uso en fechas próximas, o, en su defecto, a la devolución del pago correspondiente.
+f) Vigilar por el cumplimiento de las normas de uso de las instalaciones.
+g) Hacer uso de las instalaciones en los días y horarios señalados para cada Instalación. Por necesidades de programación o fuerza mayor, el Administrador se reserva el derecho de anular o variar las condiciones establecidas; comunicando con la anterioridad del caso a los usuarios afectados.
+h) Presentar las quejas, sugerencias o reclamos que estimen convenientes por escrito en las boletas que facilitará el Administrador de cada instalación. También podrán dirigirse directamente al CCDRO a través de correo electrónico o en las oficinas centrales.

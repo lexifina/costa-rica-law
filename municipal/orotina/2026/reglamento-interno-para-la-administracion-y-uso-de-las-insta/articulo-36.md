@@ -1,0 +1,5 @@
+Artículo 36.- Procedimiento. Será competencia de la Secretaría del CCDRO o de la persona que la Junta Directiva designe en su defecto, tramitar la instrucción de los procedimientos de carácter disciplinario.
+Para tal efecto aplicará el procedimiento sumario, tratándose de infracciones leves, y del procedimiento ordinario, tratándose de infracciones graves o muy graves.
+Concluida la instrucción del procedimiento, el órgano instructor remitirá un informe a la Junta Directiva, como órgano decisor, para que dicte resolución final.
+Contra los acuerdos adoptados por la Junta Directiva el usuario podrá interponer impugnación de conformidad con lo dispuesto en la Ley General de Administración Pública.
+En el caso de que un usuario actúe de forma notoriamente contraria al presente reglamento, el personal del Administrador está autorizado a exigir el abandono inmediato de la instalación, o requerir la presencia de las fuerzas de seguridad, si la gravedad del caso así lo exigiese; sin perjuicio de las posteriores acciones aplicables al caso.

@@ -1,0 +1,1 @@
+Artículo 14.- Identificación del personal. El personal que preste sus servicios en las Instalaciones estará siempre debidamente identificado, mediante el vestuario adecuado, y portará una tarjeta con su nombre y apellido. Para ello es responsabilidad del CCDRO el brindar la implementación necesaria para que estas personas sean identificadas como encargados de las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 13.- Autorización de rótulos. El CCDRO podrá autorizar la colocación de rótulos en las instalaciones siempre que obtenga un beneficio económico conforme con las tarifas vigentes. Estos rótulos no podrán hacer alusión a publicidad de bebidas alcohólicas, política, cigarrillos o aquella que por su contenido atente contra los principios éticos y morales de la comunidad.

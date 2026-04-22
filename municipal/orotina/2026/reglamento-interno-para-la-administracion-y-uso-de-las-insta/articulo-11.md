@@ -1,0 +1,1 @@
+Artículo 11.- Información a disposición de los interesados. El CCDRO brindará por medio de su página de Internet, en sus oficinas administrativas o por medio de comunicación local, información general sobre la administración de las instalaciones y los programas y a actividades a realizar.

@@ -1,0 +1,1 @@
+Artículo 16.- Inventario de bienes. El CCDRO deberá llevar un inventario actualizado de las instalaciones bajo su responsabilidad, incluyendo las dadas en administración a los Comités Comunales y Comités Específicos, contemplando en cada una de ellas los bienes y equipos que las componen.
