@@ -1,0 +1,1 @@
+ARTÍCULO 13- Las entidades financieras deberán establecer criterios en sus políticas internas, ajustadas a la normativa de la Sugef , que le permita reconocer al cliente la suma sustraída, independientemente del análisis de las particularidades del caso, cuando el monto sea inferior al definido en dichas políticas, a partir de un análisis de costo -beneficio.

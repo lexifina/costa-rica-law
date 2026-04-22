@@ -1,0 +1,1 @@
+ARTÍCULO 12- Las entidades financieras deberán proporcionar, de manera periódica, clara, accesible y actualizada, toda información necesaria sobre las medidas de seguridad y las instrucciones de uso seguro a sus usuarios, promoviendo las prácticas responsables en el manejo de los medios de pago.

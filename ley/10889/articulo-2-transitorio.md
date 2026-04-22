@@ -1,0 +1,1 @@
+TRANSITORIO II- En el plazo de seis meses como máximo, contado a partir de la vigencia de esta ley, las entidades financieras deberán elaborar y poner en operación el protocolo para la atención inmediata de las víctimas de estafas bancarias, bajo los criterios establecidos en el artículo 9 de la presente ley.
