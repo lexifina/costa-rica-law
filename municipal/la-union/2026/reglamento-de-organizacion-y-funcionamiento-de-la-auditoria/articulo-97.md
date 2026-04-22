@@ -1,0 +1,1 @@
+Artículo 97. - Riesgo. La actividad de la Auditoría Interna deberá coadyuvar, conforme a sus competencias en la mejora del Sistema Específico de Valoración del Riesgo Institucional (SEVRI) de la Municipalidad, así como de los sistemas de control respectivos. La actividad de la Auditoría Interna deberá fiscalizar la efectividad del SEVRI, de conformidad con el Plan de Trabajo.

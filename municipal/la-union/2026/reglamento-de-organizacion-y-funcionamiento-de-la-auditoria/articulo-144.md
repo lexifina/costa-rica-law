@@ -1,0 +1,1 @@
+Artículo 144. - Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de La Unión, publicado en La Gaceta N.º 293 alcance N°328 del 15 de diciembre de 2020.

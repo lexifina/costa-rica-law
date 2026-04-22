@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+TRÁMITE DE DENUNCIAS
+Artículo 122. -Atención de denuncias. La Auditoría Interna recibirá todas las denuncias, tramitando únicamente las que correspondan a su competencia de acuerdo con los Lineamientos Generales para el análisis de presuntos hechos irregulares y archivando las demás conforme a lineamientos de CGR. Las denuncias pueden ser interpuestas por cualquier funcionario o ciudadano, quien puede identificarse o presentarla de forma anónima Las denuncias podrán presentarse en forma física o a través de los medios electrónicos que habilite la Auditoría Interna para ese fin, con el fin de garantizar la participación ciudadana en el control de la gestión pública y la confidencialidad de la identidad del denunciante y los hechos denunciados.

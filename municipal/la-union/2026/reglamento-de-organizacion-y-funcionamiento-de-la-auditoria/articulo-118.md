@@ -1,0 +1,1 @@
+Artículo 118. - Difusión de resultados. En el caso de informes de Control Interno que tengan disposiciones para titulares subordinados, podrá enviarse copia a cada uno de ellos y ellas, esto a criterio del Auditor o Auditora Interna.

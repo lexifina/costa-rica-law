@@ -1,0 +1,1 @@
+Artículo 54. -Potestades. El Auditor o Auditora Interna y el personal de la Auditoría Interna, tendrán todas aquellas potestades contenidas en el artículo 33 de la Ley General de Control Interno, así como las que establezca otra normativa legal y técnica vigente.

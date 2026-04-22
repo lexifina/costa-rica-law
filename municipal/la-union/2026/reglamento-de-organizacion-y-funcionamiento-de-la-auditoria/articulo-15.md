@@ -1,0 +1,1 @@
+Artículo 15. -Debido Cuidado profesional. Todo el personal de Auditoría debe ejecutar siempre sus funciones con el debido cuidado, pericia y juicio profesional, con apego a la normativa legal y técnica aplicable y a los procedimientos e instrucciones pertinentes de la auditoría.

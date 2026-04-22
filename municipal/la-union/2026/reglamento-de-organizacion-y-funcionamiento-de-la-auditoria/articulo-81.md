@@ -1,0 +1,1 @@
+Artículo 81. -Planificación del trabajo para los servicios de auditoría. Para los servicios de auditoría, el personal de la Auditoría deberá elaborar y documentar un plan de trabajo, que incluya el alcance, los objetivos, el tiempo y la asignación de recursos. Dicha planificación debe estar formalmente aprobada por la jefatura correspondiente

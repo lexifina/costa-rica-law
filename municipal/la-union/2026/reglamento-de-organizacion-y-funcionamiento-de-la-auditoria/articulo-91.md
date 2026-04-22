@@ -1,0 +1,1 @@
+Artículo 91. - Cualidades de la información. El personal de la Auditoría Interna deberá identificar información suficiente, competente, relevante, útil y oportuna, de manera tal que le permita alcanzar los objetivos del trabajo, conforme a las normas técnicas aplicables.

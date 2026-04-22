@@ -1,0 +1,12 @@
+Artículo 45. -Funciones del Auditor (a) Interno (a) y subauditor o subauditora interna. En dicho cargo se deberán observar las respectivas funciones establecidas en los manuales institucionales. Al Auditor (a) Interno (a) le corresponde la dirección superior y administración de la Auditoría Interna, debiendo cumplir para ello, entre otras, con las siguientes responsabilidades:
+a) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de ad- ministración requeridas para el cumplimiento de sus competencias, observando la normativa legal y técnica vigente.
+b) Mantener el debido cuidado en cuanto al acceso y custodia de la documentación de la Audi- toría; en especial la información relativa a los asuntos de carácter confidencial, de conformi- dad con lo estipulado en los artículos 6° de la LGCI y el 8° de la Ley Contra la Corrupción y el Enriquecimientos Ilícito en la Función Pública.
+c) Mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría In- terna, así como cumplir y hacer cumplir este Reglamento.
+d) Es competencia del Auditor, la elaboración del plan anual de trabajo de la Auditoría y sus modificaciones, acorde con los lineamientos emitidos por la Contraloría General de la Re- pública, sobre ese particular.
+e) Proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad observando en todo momento, los lineamientos que la Contraloría General de la República haya dictado para ese fin.
+f) Responder por su gestión ante el jerarca.
+g) Presentar ante el jerarca el informe de labores previsto en la Ley General de Control Interno.
+h) Establecer y mantener actualizado un programa de aseguramiento de la calidad para la au- ditoría interna.
+i) Delegar, cuando así lo estime necesario en el personal de la auditoría interna sus funciones, utilizando criterios de idoneidad, conforme a lo que establece la Ley General de Administra- ción Pública.
+j) Ambos cargos deberán cumplir con pericia y debido cuidado profesional sus funciones, ha- ciendo valer sus competencias con independencia funcional y de criterio, siendo vigilante de que su personal responda de igual manera.
+k) Al subauditor o subauditora interna, le corresponde apoyar al auditor o auditora interna en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

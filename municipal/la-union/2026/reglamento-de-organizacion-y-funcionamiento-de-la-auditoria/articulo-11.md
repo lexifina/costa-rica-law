@@ -1,0 +1,2 @@
+Artículo 11. -Independencia funcional. Por su función asesora al máximo jerarca institucional, y el alto nivel que la distingue de los demás estratos, la Auditoría Interna dependerá directamente del Concejo Municipal.
+Las resoluciones de carácter interno que emita el Auditor (a) Interno (a), tendrán recursos de revocatoria ante él mismo, y si fueran declaradas sin lugar, se admitiría la apelación ante el Concejo Municipal, de conformidad con el artículo 170 del Código Municipal.

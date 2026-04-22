@@ -1,0 +1,1 @@
+Artículo 90. - Procesamiento de información. El personal de la Auditoría Interna deberá identificar, evaluar y registrar suficiente información de manera que les permita cumplir con los objetivos del trabajo. Esto no implica que deben revisar el 100% de las operaciones.

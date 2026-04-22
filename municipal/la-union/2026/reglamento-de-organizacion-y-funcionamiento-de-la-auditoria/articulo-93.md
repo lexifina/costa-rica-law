@@ -1,0 +1,2 @@
+Artículo 93. - Registro de la información. El personal de la Auditoría Interna deberá documentar y custodiar la información relevante que respalde hallazgos, conclusiones y recomendaciones, asegurando su confidencialidad y restringiendo el acceso únicamente con autorización expresa del Auditor Interno
+1) El Auditor o Auditora Interna deberá establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos deberán ser consistentes con las regula- ciones pertinentes y otros requerimientos sobre este tema.
