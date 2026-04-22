@@ -1,3 +1,5 @@
-Artículo 61.—Procedimiento de cobro. Para proceder con el cobro de bienes muebles perdidos debe darse lo siguiente:
-Si por medio de un procedimiento administrativo se logra comprobar que existió hurto, mal uso, negligencia o dolo por parte del funcionario a cargo del bien, se aplicará el cobro de este. Para lo anterior, se observará lo establecido en el libro segundo de la Ley general de la Administración Pública.
+Artículo 61.- Procedimiento de cobro.
+Para proceder con el cobro de bienes muebles perdidos debe darse lo siguiente:
+Si por medio de un procedimiento administrativo se logra comprobar que existió hurto, mal uso, negligencia o dolo por parte del funcionario a cargo del bien, se aplicará el cobro de este.
+Para lo anterior, se observará lo establecido en el libro segundo de la Ley general de la Administración Pública.
 Con base en el resultado de esta gestión administrativa, se procederá a efectuar el retiro contable del bien mueble por parte del Departamento Financiero y del sistema de inventario del Área de Suministros y Bienes Muebles. Dicha acción es independiente a que se realice el cobro o no. Si el cobro del bien es aceptado por el funcionario o resuelto por la dependencia correspondiente, se deberá enviar a la dependencia para que efectúe los trámites y se aplique la deducción, a partir del momento en que recibe la nota de resolución definitiva, con base en lo establecido para tal efecto en el Departamento Financiero. Se aceptará al funcionario si ofrece la sustitución del bien en igualdad de características al sustraído.

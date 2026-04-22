@@ -1,3 +1,4 @@
-CAPÍTULO XIII
-Disposiciones Finales
-Artículo 72.—Casos no previstos. Los casos no previstos en este Reglamento se resolverán de acuerdo con la normativa vigente, la jurisprudencia administrativa y la norma de la Contraloría General de la República emitida sobre la materia.
+Artículo 72.- Clasificación: Los terminales móviles se consideran bienes consumibles, dado que:
+a) Son suministrados como parte de un plan de servicios de telefonía celular contratado por la Administración, sin que medie adquisición directa del bien por parte de la institución.
+b) Poseen una vida útil limitada, estimada en un máximo de dos años, conforme a criterios técnicos de los proveedores de servicios.
+c) Al concluir el plazo del plan, el dispositivo se considera obsoleto y agotada su vida útil.

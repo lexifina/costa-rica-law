@@ -19,3 +19,4 @@ Reglamento de bienes muebles de las Asamblea Legislativa
 | 4 | 2017-12-19 | Reglamento 199 (2017-12-19) |
 | 5 | 2020-06-25 | Reglamento 116 (2020-06-25) |
 | 6 | 2021-08-10 | Reglamento 170 (2021-08-10) |
+| 7 | 2026-04-22 | Reglamento 175 (2026-04-22) |

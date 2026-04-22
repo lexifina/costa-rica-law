@@ -1,6 +1,7 @@
-Artículo 6º—Departamento Financiero. Corresponde al Departamento Financiero lo siguiente:
+Artículo 6.- Departamento Financiero.
+Corresponde al Departamento Financiero lo siguiente:
 a) El Área de Contabilidad del Departamento Financiero deberá indicar de forma inmediata la respuesta a la solicitud de criterio del área de suministros y bienes muebles del departamento de proveeduría de si se debe o no asignar código de barras a un bien determinado cuando así lo amerite, la respuesta debe ser por escrito utilizando los diferentes medios de comunicación.
-b) Velar por que de previo al pago de los bienes adquiridos, conste un control de entrada o acta de recepción, la factura, la orden de pedido original y la boleta de inspección o acta de recepción, según sea el caso, con el recibo a satisfacción del bien o servicio, en el cual se especificará el adecuado funcionamiento, las características técnicas de este y el recibido por parte de la unidad técnica designada, según la contratación de que se trate.
+b) Velar por que, de previo al pago de los bienes adquiridos, conste un control de entrada o acta de recepción, la factura, la orden de pedido original y la boleta de inspección o acta de recepción, según sea el caso, con el recibo a satisfacción del bien o servicio, en el cual se especificará el adecuado funcionamiento, las características técnicas de este y el recibido por parte de la unidad técnica designada, según la contratación de que se trate.
 c) Verificar que los controles de entrada contengan toda la información necesaria para el registro adecuado de los bienes o servicios.
 d) Registrar y controlar el movimiento contable de los bienes de la institución con base en los documentos fuentes de información que reciba del Departamento de Proveeduría.
 e) Aprobar los registros en el Sistema correspondiente, ingresos de bienes, bienes dados de baja, reparaciones, mejoras, revaluaciones, reconstrucciones que por su condición lo ameriten, robos, donaciones de terceros, etc., de los bienes de la institución.
@@ -12,5 +13,5 @@ i) Realizar el estudio necesario para la recuperación de un bien, cuando por re
 j) Coordinar con el Área de Suministros y Bienes Muebles cuando se detecte alguna inconsistencia en el registro del inventario de bienes muebles e inmuebles en el Sistema correspondiente.
 k) Conservar los documentos originales de las compras de los bienes muebles adquiridos por la institución.
 l) Verificar la eliminación de los bienes muebles en los registros del Sistema correspondiente para todos aquellos bienes muebles e inmuebles que sean dados de baja por la institución.
-m) Registrar contablemente en los Estados Financieros los bienes muebles e inmuebles dados de baja así como las donaciones de terceros.
+m) Registrar contablemente en los Estados Financieros los bienes muebles e inmuebles dados de baja, así como las donaciones de terceros.
 n) Conservar el original de los contratos mediante los que se adquieren bienes muebles.

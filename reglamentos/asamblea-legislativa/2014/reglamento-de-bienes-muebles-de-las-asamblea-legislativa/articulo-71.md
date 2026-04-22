@@ -1,3 +1,4 @@
 CAPÍTULO XII
-Sanciones
-Artículo 71.—Sanciones. Cualquier infracción al presente Reglamento se sancionará de acuerdo con lo establecido en el ordenamiento jurídico y administrativamente por la Ley de personal de la Asamblea Legislativa, el Reglamento autónomo de servicio de la Asamblea Legislativa, el Estatuto de Servicio Civil y su Reglamento, la Ley general de la Administración Pública, el Código de Trabajo y cualquier otra disposición sobre la materia.
+Terminales móviles
+Artículo 71.- Naturaleza: Los terminales móviles asociados a los planes de telefonía celular institucional se clasifican como bienes consumibles, en virtud de que la Administración contrata el servicio de telecomunicaciones que los incluye como parte de las ayudas técnicas otorgadas para el ejercicio de la función legislativa, y no la adquisición directa del bien.
+Su vida útil depende de un uso constante que genera desgaste progresivo, así como de la rápida obsolescencia tecnológica que limita su aprovechamiento prolongado.

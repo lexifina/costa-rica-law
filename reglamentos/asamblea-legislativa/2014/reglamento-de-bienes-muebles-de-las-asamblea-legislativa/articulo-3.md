@@ -1,4 +1,5 @@
-Artículo 3º—Disposiciones. En el presente Reglamento se establecerán las disposiciones necesarias para:
+Artículo 3.- Disposiciones.
+En el presente reglamento se establecerán las disposiciones necesarias para:
 I. Determinar la responsabilidad del personal en cuanto a la custodia, el uso, la asignación y la conservación de bienes muebles.
 II. Asignar las responsabilidades por el mantenimiento y el soporte técnico que garanticen el adecuado funcionamiento y la prolongación de la vida útil de los bienes muebles institucionales.
 III. Mantener un control adecuado sobre la custodia de los bienes muebles de la institución, mediante un sistema de registro, inventario actualizado en forma permanente y control interno de su administración.

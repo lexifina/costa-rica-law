@@ -1,1 +1,2 @@
-Artículo 19.—Equipo dañado. Cuando un funcionario legislativo ingrese a un puesto de trabajo y encuentre equipo dañado, tendrá que comunicarlo al jefe inmediato; este a su vez, al Área de Suministros y Bienes Muebles del Departamento de Proveeduría y a la unidad técnica respectiva, para que se proceda a su reparación o reemplazo siempre y cuando se disponga del bien.
+Artículo 19.- Equipo dañado.
+Cuando un funcionario legislativo ingrese a un puesto de trabajo y encuentre equipo dañado, tendrá que comunicarlo al jefe inmediato; este a su vez, al Área de Suministros y Bienes Muebles del Departamento de Proveeduría y a la unidad técnica respectiva, para que se proceda a su reparación o reemplazo siempre y cuando se disponga del bien.

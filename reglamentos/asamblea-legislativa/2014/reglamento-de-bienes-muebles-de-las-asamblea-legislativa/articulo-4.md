@@ -1,6 +1,7 @@
 CAPÍTULO II
 Definiciones
-Artículo 4º—Definiciones. Para todos los efectos de interpretación que se deriven de la aplicación de este Reglamento, deben entenderse los términos de la siguiente manera:
+Artículo 4.- Definiciones.
+Para todos los efectos de interpretación que se deriven de la aplicación de este reglamento, deben entenderse los términos de la siguiente manera:
 Actas: Declaraciones de recepción, donación, desecho y desuso sin código. En casos de excepción, según el artículo 65 bis, se realizarán actas desecho y desecho de bienes con código y para los bienes sin código se realizarán actas de desecho y desuso según lo indicado en el artículo 8° inciso a.
 (Así reformada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Adiciones o mejoras: Erogaciones monetarias que tienen el efecto directo de aumentar el valor de un bien existente, al incrementar su capacidad, vida útil o su eficiencia; por lo tanto, estas deben cargarse al valor del bien.
@@ -15,14 +16,14 @@ Bien en desuso: Aquel bien declarado por la unidad técnica especializada como o
 Bien en mal estado: Aquel bien que ha sido valorado como malo por la unidad técnica correspondiente, devuelto al Almacén de Bienes Muebles y que queda en condición de desecho.
 (Así reformada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Bienes muebles: Todos los bienes institucionales que hayan sido adquiridos por medio de compra o donación de un tercero y que faciliten la ejecución de las funciones y las actividades conexas de los funcionarios o actividades oficiales de la institución, tales como maquinaria, vehículos, mobiliario y equipo de oficina, instrumentos, electrodomésticos, equipo eléctrico, equipo electrónico, equipo especializado y software, que por su vida útil, costo, disposición de ley o de este Reglamento se identifiquen como tales.
-Compras: Adquisición de bienes muebles realizada por el Departamento de Proveeduría para satisfacer los requerimientos de la institución, de acuerdo con los procedimientos establecidos en la Ley de contratación administrativa, su Reglamento y la normativa institucional interna.
+Compras: Adquisición de bienes muebles realizada por el Departamento de Proveeduría para satisfacer los requerimientos de la institución, de acuerdo con los procedimientos establecidos en la Ley de Contratación Administrativa, su reglamento y la normativa institucional interna.
 Custodia: Obligación que tiene cada funcionario de cuidar, proteger y vigilar los bienes muebles que se le han asignado.
 Daño anormal: Deterioro o desgaste que afecta el funcionamiento del bien en forma parcial o total, permanente o reparable, y se presenta por accidente, descuido o negligencia del funcionario responsable.
 Daño normal: Deterioro o desgaste que sufre un bien en su uso ordinario y no afecta en forma definitiva el funcionamiento total de este.
 Departamento o unidad solicitante del bien: Dependencia que realiza la solicitud de compra, con base en su presupuesto.
 Departamento o unidad técnica: Aquel departamento o unidad designado en el proceso de contratación como el encargado de emitir criterio técnico sobre la entera satisfacción del objeto de contrato y el adecuado funcionamiento del bien por adquirir, declarar en desuso o desechar, enviar a reparar o certificar el estado del bien.
-Dependencia institucional: Órgano legislativo, jefatura de fracciones, independiente, comisión, oficina administrativa y despacho de diputados.
-Depreciación: Gasto no erogable de una parte del costo del bien, dentro de su vida útil, de acuerdo con lo que establece el presente Reglamento.
+Dependencia institucional: Órgano legislativo, jefaturas de fracción, independiente, comisión, oficina administrativa y despacho de diputados.
+Depreciación: Gasto no derogable de una parte del costo del bien, dentro de su vida útil, de acuerdo con lo que establece el presente reglamento.
 Determinación de requerimientos: Cuantificación de los bienes muebles o recursos necesarios para la gestión de cada dependencia, conforme a los proyectos, procesos y actividades que se ejecutan en ella.
 Dictamen técnico de valoración: Declaración de las unidades técnicas correspondientes sobre el estado físico de los bienes muebles, sea como bueno, regular o malo.
 (Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
@@ -30,18 +31,20 @@ Dictamen de baja de bienes muebles: Declaración del Área de Suministros y Bien
 (Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
 Dictamen de donación: Es el dictamen de bienes muebles donados a través de la Comisión de Donaciones de Bienes Muebles, producto de los dictámenes de baja de bienes para desuso.
 (Así adicionada la definición anterior mediante sesión N° 116-2020 del 25 de junio del 2020)
-Directorio legislativo: Máximo órgano jerárquico institucional.
+Directorio Legislativo: Máximo órgano jerárquico institucional.
 Disposición final de bienes muebles: Proceso que determina cuándo un bien dejará de pertenecer a la institución, conforme a los procedimientos que se establezcan al efecto.
-Equipo: Colección de instrumentos y aparatos que constituyen un medio para producir. Dentro de esta categoría se incluyen computadoras, máquinas de escribir, calculadoras, faxes, fotocopiadoras, grabadoras, equipos de sonido y otros. De igual forma, en esta categoría también se incluye maquinaria con características especiales como equipo de impresión.
+Equipo: Colección de instrumentos y aparatos que constituyen un medio para producir.
+Dentro de esta categoría se incluyen computadoras, máquinas de escribir, calculadoras, faxes, fotocopiadoras, grabadoras, equipos de sonido y otros. De igual forma, en esta categoría también se incluye maquinaria con características especiales como equipo de impresión.
 Equipo especializado: Aquellos equipos especializados como vehículos, equipos informáticos como los servidores de cómputo, fuentes de poder, escáneres, equipo de comunicación, equipo médico, equipo de laboratorio, equipo de seguridad y salud ocupacional, equipo de impresión y demás bienes muebles adquiridos que posean características especiales; tales como bienes muebles que no son de uso común para todas las dependencias de la institución.
 Inventario: Recuento del total de bienes muebles de la institución a determinada fecha, el cual contiene, como mínimo, el tipo o nombre del bien, el número de identificación como el código, la descripción o las características específicas de los bienes muebles asignados a una determinada dependencia institucional y el nombre del funcionario responsable.
 Mantenimiento: Proceso preventivo o correctivo que permite el buen funcionamiento de un bien y que se ejecuta con el fin de prolongar su vida útil de este sin que aumente su valor.
 Mobiliario: Bienes muebles durables y susceptibles de ser capitalizables, los cuales pueden ser trasladados sin que se altere su integridad física y cuya conformación permite un adecuado control. Dentro de este grupo se encuentran escritorios, sillas, mesas (para computadora, teléfono o máquina de escribir), juegos de muebles, etc.
-Planificación de compras: Previsión que hacen las dependencias sobre los bienes muebles que se requieren y serán adquiridos por el Departamento de Proveeduría en un consolidado denominado Programa Anual de Adquisiciones, publicado en el Diario Oficial el mes de enero de cada año.
-Políticas y procedimientos: Normas administrativas que los departamentos y unidades competentes elaboran y son aprobadas por la Dirección Ejecutiva o por el Directorio legislativo.
-Recepción: Acto de recibo material de un bien en el que se verifica la cantidad y el ajuste a las especificaciones técnicas requeridas.
+Planificación de compras: Previsión que hacen las dependencias sobre los bienes muebles que se requieren y serán adquiridos por el Departamento de Proveeduría en un consolidado denominado Programa Anual de Adquisiciones, publicado en el diario oficial el mes de enero de cada año.
+Políticas y procedimientos: Normas administrativas que los departamentos y unidades competentes elaboran y son aprobadas por la Gerencia General o por el Directorio legislativo.
+Recepción: Acto de recibo material de un bien en el que se verifica la cantidad y el ajuste a as especificaciones técnicas requeridas.
 Registro: Proceso mediante el cual los datos relevantes de cada bien quedan debidamente documentados e ingresados en el sistema informático, en forma segura, íntegra y completa.
+Terminales móviles: dispositivos electrónicos destinados a la comunicación, tales como teléfonos celulares y smartphones, con capacidad de conexión móvil, adquiridos mediante planes de servicio de telefonía móvil.
 Uso: Adecuada y correcta utilización de los bienes muebles que cada funcionario tiene asignados para el cumplimiento de sus deberes.
 Valor de desecho: Valor del bien al término de su vida útil.
 Valor de recuperación: Importe que podrá obtenerse al momento de su disposición final.
-Vida útil: Estimación del tiempo que dura un bien; ésta valoración es necesaria para conocer el gasto por depreciación.
+Vida útil: Estimación del tiempo que dura un bien; esta valoración es necesaria para conocer el gasto por depreciación.
