@@ -14,3 +14,4 @@ Reglamento Operativo de la Junta Directiva del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-25 | la propia norma |
+| 2 | 2026-04-22 | Reglamento 6319 (2026-04-22) |

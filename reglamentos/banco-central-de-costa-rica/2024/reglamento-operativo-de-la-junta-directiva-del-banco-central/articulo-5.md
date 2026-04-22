@@ -1,11 +1,8 @@
-CAPITULO II
-En caso de que se incluyan asuntos confidenciales en la agenda, la Secretaría General lo revelará expresamente en la agenda correspondiente con la expresión "asunto confidencial" y distribuirá a los miembros de la Junta Directiva, a los funcionarios de la Administración del Banco que corresponda, según determinación que al efecto realicen la Administración en conjunto con la Presidencia del Banco al momento de formular y aprobar la agenda, por motivos de legalidad, interés público o institucional, a través del sistema considerado como el adecuado y seguro para esto, toda la documentación correspondiente.
-Las actividades que se requieran para garantizar la debida asignación y actualización de los perfiles en el sistema de actas serán responsabilidad de la Secretaría General. Esta dependencia debe realizar un informe anual para la Presidencia del Banco, en relación con los cambios realizados en los perfiles de acceso al sistema de actas.
 ARTÍCULO 5.- ASUNTOS CONFIDENCIALES.
 Se considerarán de carácter confidencial aquellos documentos preparativos referentes a medidas de política monetaria o cambiaria, así como otros temas protegidos por el marco legal aplicable, analizados por la Junta Directiva. Entre otros, se pueden mencionar, sin que se circunscriban sólo a éstos, los siguientes temas:
 a. Modificación o ajustes asociados al régimen cambiario del país.
-b. Utilización de los denominados instrumentos temporales2
-2 Establecidos en los artículos 77 al 84 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558. .
+b. Utilización de los denominados instrumentos temporales2.
+2 Establecidos en los artículos 77 al 84 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558.
 c. Modificaciones al encaje mínimo legal.3
 3 Según se indica en el artículo 80 de la Ley 7558.
 d. Propuestas de informes sobre la política monetaria del Banco Central.

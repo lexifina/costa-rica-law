@@ -1,8 +1,13 @@
 ARTÍCULO 9.- FUNCIONARIO DE HECHO
 En caso de que la Junta Directiva quede desintegrada podrá actuar como funcionario de hecho, bajo los lineamientos establecidos por la Ley General de la Administración Pública, con el único fin de satisfacer el interés público.6
 6 Artículo 115.-Será funcionario de hecho el que hace lo que el servidor público regular, pero sin investidura o con una investidura inválida o ineficaz, aun fuera de situaciones de urgencia o de cambios ilegítimos de gobierno, siempre que se den las siguientes circunstancias:
-a)Que no se haya declarado todavía la ausencia o la irregularidad de la investidura, ni administrativa ni jurisdiccionalmente; y
-b)Que la conducta sea desarrollada en forma pública, pacífica, continua y normalmente acomodada a derecho.
-Artículo 116.- 1. Los actos del funcionario de hecho serán válidos, aunque perjudiquen al administrado y aunque éste tenga conocimiento de la irregularidad de la investidura de aquél. 2. La Administración quedará obligada o favorecida ante terceros por virtud de los mismos. Artículo 117.-No habrá relación de servicio entre el funcionario de hecho y la Administración, pero si el primero ha actuado de buena fe no estará obligado a devolver lo percibido de la administración en concepto de retribución y, si nada ha recibido, podrá recuperar los costos de su conducta en la medida en que haya habido enriquecimiento sin causa, de la Administración, según las reglas del derecho común.
-Artículo 118.1. El funcionario de hecho será responsable ante la Administración y ante los administrados por los daños que cause su conducta. 2. La Administración será responsable ante los administrados por la conducta del funcionario de hecho.
+a) Que no se haya declarado todavía la ausencia o la irregularidad de la investidura, ni administrativa ni jurisdiccionalmente; y
+b) Que la conducta sea desarrollada en forma pública, pacífica, continua y normalmente acomodada a derecho.
+Artículo 116.-
+1. Los actos del funcionario de hecho serán válidos, aunque perjudiquen al administrado y aunque éste tenga conocimiento de la irregularidad de la investidura de aquél.
+2. La Administración quedará obligada o favorecida ante terceros por virtud de los mismos.
+Artículo 117.-No habrá relación de servicio entre el funcionario de hecho y la Administración, pero si el primero ha actuado de buena fe no estará obligado a devolver lo percibido de la administración en concepto de retribución y, si nada ha recibido, podrá recuperar los costos de su conducta en la medida en que haya habido enriquecimiento sin causa, de la Administración, según las reglas del derecho común.
+Artículo 118.-
+1. El funcionario de hecho será responsable ante la Administración y ante los administrados por los daños que cause su conducta.
+2. La Administración será responsable ante los administrados por la conducta del funcionario de hecho.
 Artículo 119.-La responsabilidad penal del funcionario de hecho que fuere usurpador se regulará por el Código Penal.

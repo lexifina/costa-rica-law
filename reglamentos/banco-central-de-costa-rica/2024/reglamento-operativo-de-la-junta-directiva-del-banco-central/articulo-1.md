@@ -8,7 +8,8 @@ Mediante artículo 4 del acta de la sesión 6060-2022, celebrada el 11 de mayo d
 Resulta necesario contar con un reglamento cuyo objetivo sea asegurar que el desarrollo de las sesiones de la Junta Directiva del Banco Central de Costa Rica y su preparación previa, desde la conformación de agendas, distribución y envío de los respectivos documentos, elaboración, hasta la aprobación del acta correspondiente, se dé ordenada y adecuadamente.
 dispuso por unanimidad y en firme:
 aprobar el Reglamento Operativo de la Junta Directiva del Banco Central de Costa Rica, cuyo texto se transcribe de inmediato:
-"REGLAMENTO OPERATIVO DE LA JUNTA DIRECTIVA
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión N° 6319-2026 del 22 de abril del 2026 y publicada en el Alcance Digital N° 45 a La Gaceta N° 78 del 29 de abril del 2026, por lo que se reproduce a continuación:)
+REGLAMENTO OPERATIVO DE LA JUNTA DIRECTIVA
 DEL BANCO CENTRAL DE COSTA RICA
 CAPÍTULO I
 DISPOSICIONES VARIAS
