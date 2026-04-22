@@ -1,0 +1,1 @@
+Artículo 26. Seguimiento. El Líder de Servicio de Mercadeo de RACSA, con el fin de asegurar la continuidad y calidad del servicio, es responsable de dar seguimiento a la correcta comercialización, para el cumplimiento de la estrategia, la presencia de marca, supervisión del plan de ventas, así como otras acciones comerciales afines.

@@ -1,0 +1,1 @@
+Artículo 12. Requisitos Diferenciados según la Naturaleza del Comercializador. Los requisitos de incorporación, preselección y permanencia en el Registro deben ser acordes con la naturaleza del Comercializador; en consecuencia, no se debe exigir a las personas físicas documentación propia de las personas jurídicas, tales como estados financieros auditados.
