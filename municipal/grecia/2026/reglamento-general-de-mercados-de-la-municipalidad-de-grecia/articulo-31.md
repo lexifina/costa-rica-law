@@ -1,0 +1,1 @@
+ARTÍCULO 31. Las recalificaciones y aumentos de alquileres se harán conforme a lo establecido en la Ley N°7024, Ley Sobre Arrendamientos de Locales Municipales, o en su caso con la Ley que regule la materia.

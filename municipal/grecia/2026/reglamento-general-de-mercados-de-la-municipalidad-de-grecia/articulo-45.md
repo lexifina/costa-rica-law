@@ -1,0 +1,1 @@
+ARTÍCULO 45. De las sanciones según la falta: La falta leve será sancionada con una amonestación escrita. La falta grave será sancionada con el cierre temporal del local por un plazo de entre diez a quince días, y la falta muy grave será sancionada con la rescisión del arrendamiento.

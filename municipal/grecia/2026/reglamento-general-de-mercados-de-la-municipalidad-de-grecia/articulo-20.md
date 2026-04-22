@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Deber probidad del inquilino, el titular y los dependientes autorizados para operar en el puesto están obligados a mantener un respeto en la atención de las personas inhibiéndose a utilizar palabras inapropiadas.
