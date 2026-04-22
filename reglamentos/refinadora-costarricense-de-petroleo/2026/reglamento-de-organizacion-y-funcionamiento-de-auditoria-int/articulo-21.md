@@ -1,0 +1,4 @@
+SECCIÓN E
+Del Auditor General y Subauditor General
+Artículo 21°-Nombramiento del Auditor General y Subauditor General. El nombramiento del Auditor General y Subauditor General, corresponderá al órgano jerárquico competente y se regirá por lo estipulado en el artículo 31 de la Ley General de Control Interno, N.°8292, el artículo 62 de la Ley Orgánica de la Contraloría General de la República, Ley N.°7428; así como por la normativa técnica, directrices y lineamientos emitidos por la Contraloría General de la República, en particular los "Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República".
+Dicho proceso deberá garantizar la idoneidad profesional, la independencia, la objetividad y la ausencia de conflictos de intereses, asegurando la transparencia, legalidad y observancia del debido proceso, en resguardo del adecuado ejercicio de la función de Auditoría Interna.

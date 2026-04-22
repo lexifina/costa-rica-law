@@ -1,0 +1,1 @@
+Artículo 72°-Trámite de aprobación. Este Reglamento, una vez aprobado por la Junta Directiva de RECOPE, deberá ser remitido por el Auditor General a la Contraloría General de la República para su trámite final. La publicación de este Reglamento en el periódico oficial "La Gaceta", deberá ser coordinada con la Administración Activa.

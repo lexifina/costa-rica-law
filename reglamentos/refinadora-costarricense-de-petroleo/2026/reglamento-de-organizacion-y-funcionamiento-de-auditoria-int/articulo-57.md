@@ -1,0 +1,1 @@
+Artículo 57°-Comunicación oficial de los Servicios Preventivos. La comunicación de los servicios preventivos se hará en forma escrita, mediante oficios u otros medios de comunicación legales permitidos, conforme lo establecido en los procedimientos aprobados por el Auditor General.

@@ -1,0 +1,2 @@
+Artículo 10°-Participación del Auditor General en las sesiones de Junta Directiva. El Auditor General o quien éste designe, asistirá a las sesiones de la Junta Directiva y del Comité de Auditoría, cuando sea previamente convocado, o cuando el Auditor General así lo solicite.
+En dichas sesiones, el Auditor General, tendrá voz, pero no voto y su participación se limitará al ejercicio de su función asesora y técnica, sin que esto implique subordinación, coadministración ni afectación a su independencia funcional y de criterio.

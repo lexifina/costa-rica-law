@@ -1,0 +1,3 @@
+SECCIÓN F
+Del ámbito de acción de Auditoría Interna
+Artículo 38°-Ámbito de competencia. Auditoría Interna ejercerá sus competencias y atribuciones en todas aquellas actividades que se relacionen directa o indirectamente con el quehacer de RECOPE, incluyendo los órganos y dependencias internas, así como los entes u órganos públicos y los sujetos de derecho privado que custodien, administren, ejecuten o reciban fondos, bienes, recursos o beneficios patrimoniales de la Empresa, independientemente de la forma jurídica utilizada, conforme a lo dispuesto en la Ley General de Control Interno, N.°8292 y la normativa técnica aplicable.

@@ -1,0 +1,1 @@
+Artículo 71°-Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento de Auditoría Interna de RECOPE S.A., aprobado por la Junta Directiva de Refinadora Costarricense de Petróleo S.A., en el artículo #6 de la Sesión Ordinaria N.º 5205-177, celebrada el 16 de diciembre de 2020 y publicado en La Gaceta N.º 41 - Lunes 1º de marzo del 2021.

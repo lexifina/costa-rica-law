@@ -1,0 +1,2 @@
+Artículo 50°-Supervisión de los Servicios de Auditoría Interna. Auditoría Interna establecerá, documentará y mantendrá una adecuada gestión de supervisión sobre los servicios que presta, con el fin de asegurar el logro de los objetivos de cada trabajo y la calidad de los resultados.
+La responsabilidad de ejercer la supervisión, conforme a sus competencias recae sobre el Auditor General, las Subauditoras y los (las) Profesionales Auditores (as) que tienen asignada esa función, de conformidad con la normativa interna y técnica aplicable.

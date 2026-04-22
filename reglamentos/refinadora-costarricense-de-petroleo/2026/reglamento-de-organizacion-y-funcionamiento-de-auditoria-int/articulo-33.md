@@ -1,0 +1,1 @@
+Artículo 33°-Frecuencia de Autoevaluación interna y evaluación externa de calidad. Anualmente, Auditoría Interna deberá efectuar una autoevaluación interna de calidad y cada cinco (5) años esa evaluación será sustituida por una evaluación externa de calidad, según la normativa vigente emitida por la Contraloría General de la República para este tipo de evaluaciones.

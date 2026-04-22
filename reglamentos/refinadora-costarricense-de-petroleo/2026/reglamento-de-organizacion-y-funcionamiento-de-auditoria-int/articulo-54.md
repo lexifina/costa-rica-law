@@ -1,0 +1,1 @@
+Artículo 54°-Comunicación escrita de los Servicios de Auditoría. Auditoría Interna comunicará en forma escrita los resultados de las auditorías que realicen de conformidad con el artículo 35 de la Ley General de Control Interno, N.°8292, mediante informes, los cuales se denominan de Control Interno.

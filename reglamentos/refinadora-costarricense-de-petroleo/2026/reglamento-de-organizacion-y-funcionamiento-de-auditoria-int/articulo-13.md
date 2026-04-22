@@ -1,0 +1,4 @@
+SECCIÓN C
+De los recursos y protección a Auditoría Interna
+Artículo 13°-Asignación de recursos. De conformidad con lo establecido en el artículo 27 de la Ley General de Control Interno, N.°8292, el Jerarca es responsable de la asignación de los recursos humanos, materiales, tecnológicos, de transporte y de cualquier otra naturaleza que resulten pertinentes, suficientes y oportunos, para que Auditoría Interna pueda ejercer eficazmente sus funciones con independencia, objetividad y calidad.
+Asimismo, dicha asignación deberá guardar coherencia con el universo auditable, el nivel de riesgos empresariales, el Plan Anual de Trabajo de Auditoría Interna y en lo que corresponda los requerimientos derivados del ordenamiento jurídico, de manera que no se limite indebidamente el alcance, la profundidad ni la oportunidad de los trabajos de auditoría.
