@@ -1,0 +1,3 @@
+ARTÍCULO 11.- Obligatoriedad de denunciar
+Cualquier persona funcionaria del centro educativo que en el ejercicio de su cargo tenga conocimiento de la comisión de un delito, se encuentra obligada a denunciarlo de acuerdo con el inciso a) del artículo 281 de la Ley N°7594 del 10 de abril de 1996, Código Procesal Penal.
+Asimismo, cualquier persona funcionaria del centro educativo tiene la obligación de denunciar toda situación de maltrato, agresión, acoso o abuso cometida contra una o varias personas menores de edad, siguiendo lo dispuesto por el artículo 49 la Ley N°7739 del 06 de enero de 1998, Código de la Niñez y la Adolescencia, así como lo establecido en la Ley N° 9404.
