@@ -1,0 +1,1 @@
+Artículo 8: RENDICION DE GARANTIAS O CAUSIONES: El funcionario encargado de custodiar el fondo de caja chica, el Tesorero así como el supervisor directo de éste estarán en la obligación de mantener una Póliza de Fidelidad Individual a favor de la Municipalidad de Santa Cruz por el equivalente a los fondos custodiados o administrados.

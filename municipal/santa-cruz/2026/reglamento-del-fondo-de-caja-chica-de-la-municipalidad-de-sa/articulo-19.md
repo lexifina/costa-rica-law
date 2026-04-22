@@ -1,0 +1,3 @@
+Artículo 19: TRAMITE PARA LA LIQUIDACION DE EROGACIONES NO AUTORIZADAS MEDIANTE ADELANTO DE
+DINEROS: Si algún funcionario realiza las compras que se consignaron en el adelanto, pero, además incurre en otros pagos no autorizados, debe liquidar la boleta inicial y reintegrar el dinero en su totalidad y de seguido tramitar una nueva boleta contemplando la totalidad de las compras realizadas con la debida autorización y la obtención del contenido presupuestario.
+De no obtener la autorización o no contarse con contenido presupuestario, deberá liquidarse lo solicitado previamente en la boleta inicial y proceder a reintegrar el monto correspondiente a los pagos no autorizados previamente, además, de lo indicado respecto a la responsabilidad laboral indicada en el artículo 19.

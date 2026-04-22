@@ -1,0 +1,1 @@
+Artículo 7: ADMINISTRACION DE FONDOS: La administración del fondo de Caja Chica estará a cargo de la persona designada para tal fin, el Tesorero Municipal, quien velará por su correcto funcionamiento en lo referente a los procedimientos de compras y de la razonabilidad del gasto.
