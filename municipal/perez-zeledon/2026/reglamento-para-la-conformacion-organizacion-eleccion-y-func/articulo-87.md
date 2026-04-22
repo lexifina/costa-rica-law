@@ -1,0 +1,1 @@
+ARTÍCULO 87.- Es responsabilidad de la Municipalidad velar por una adecuada gestión de los recursos de las transferencias efectuadas por el Consejo de la Persona Joven a los Comités Cantonales de la Persona Joven a través de las municipalidades.

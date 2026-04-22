@@ -1,0 +1,1 @@
+ARTÍCULO 53.- Inicio. Al inicio de cada libro de actas, se colocará una leyenda que indique la fecha de apertura del libro, el nombre Comité Cantonal de la Persona Joven de la respectiva municipalidad, y se hará constar el número de folios del libro y su buen estado, dándose la apertura en ese momento con la firma del auditor(a).

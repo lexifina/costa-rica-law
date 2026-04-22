@@ -1,0 +1,1 @@
+ARTÍCULO 76.- Del oficio del ente contralor. El Consejo de la Persona Joven requerirá para hacer efectiva la transferencia a la Municipalidad copia del oficio de la Contraloría General de la República donde se indique la inclusión de aprobación de los presupuestos del Gobierno Local con la transferencia del Consejo de la Persona Joven.

@@ -1,0 +1,2 @@
+ARTÍCULO 18.-De las organizaciones indígenas. Dos jóvenes representantes de las organizaciones indígenas de los cantones que albergan territorios indígenas, oficialmente establecidos. Las organizaciones indígenas deberán registrarse ante la Municipalidad correspondiente y la elección de los representantes se llevará a cabo en una asamblea de este
+sector, donde cada organización tendrá el derecho de postular a un candidato y a una candidata para formar parte del comité de la persona joven.

@@ -1,0 +1,1 @@
+ARTÍCULO 30.- Nómina de propietarios y suplentes. Cada asamblea nombrará por cada escaño de la Junta Directiva que le corresponda a un representante propietario y un suplente, quien entrará a sustituir al representante propietario únicamente en sus ausencias definitivas y por el resto del periodo, una vez sean debidamente juramentados por el Concejo Municipal.

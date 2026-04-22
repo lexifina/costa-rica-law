@@ -1,0 +1,1 @@
+ARTÍCULO 97.- El Comité contará con el apoyo, asesoría, coordinación y capacitación por parte de la Municipalidad para la formulación y ejecución de propuestas y proyectos locales y nacionales, de acuerdo con sus necesidades y de conformidad con el principio de legalidad.

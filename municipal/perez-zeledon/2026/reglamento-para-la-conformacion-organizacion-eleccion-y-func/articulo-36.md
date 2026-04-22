@@ -1,0 +1,2 @@
+ARTÍCULO 36.- De la asesoría del Concejo de la Persona Joven.
+El Concejo de la Persona Joven brindará información, orientación y asesoría a las municipalidades para fomentar y promover la constitución, funcionamiento y fortalecimiento de los Comités Cantonales de la Persona Joven; sin embargo, al ser los CPJ instancias municipales deberán recurrir a las oficinas de su municipalidad para tramitar consultas relacionadas con el funcionamiento y tramitación de asuntos propios de la comunidad a la cual representan.

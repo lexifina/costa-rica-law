@@ -1,0 +1,1 @@
+ARTÍCULO 4.- El ámbito de aplicación del presente reglamento se restringe únicamente a la jurisdicción del cantón de Pérez Zeledón, y será válido para todas las personas habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

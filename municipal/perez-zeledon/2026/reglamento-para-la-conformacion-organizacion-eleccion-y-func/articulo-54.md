@@ -1,0 +1,1 @@
+ARTÍCULO 54.- De conformidad con el Artículo 22 de la Ley General de Control Interno, corresponderá a las unidades de auditoría interna de cada municipalidad otorgar su razón de apertura del libro de actas que utilizará el Comité Cantonal de la Persona Joven.

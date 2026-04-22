@@ -1,0 +1,1 @@
+ARTÍCULO 92.- La Municipalidad dará apoyo técnico-operativo al CCPJPZ, para la ejecución del proyecto ejecutado con la transferencia de recursos por parte del CNPJ, y brindará el informe correspondiente al CNPJ sobre el gasto presupuestario realizado.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+DE LA CONVOCATORIA PARA LA ELECCIÓN DE LOS MIEMBROS Y LA PRESENTACIÓN DE LAS CANDIDATURAS
+ARTÍCULO 20.- De la convocatoria inicial en el mes de septiembre. Cada dos años, a partir del año 2026, durante el mes de setiembre el Concejo Municipal deberá tomar un acuerdo para aprobar la convocatoria para el proceso de elección del Comité Cantonal de la Persona Joven, para lo cual delegará la logística y fiscalización de los procesos de Asambleas en el lugar que el Concejo Municipal convoque, proceso que debe realizarse y finalizarse en los meses de octubre y noviembre acorde con las reglas estipuladas en el presente reglamento.

@@ -1,0 +1,1 @@
+ARTÍCULO 72.- De la no ejecución del proyecto. En caso de que no se ejecute un proyecto, el Comité deberá comunicarlo por escrito al Consejo de la Persona Joven y al Concejo Municipal, así como la debida justificación de la situación presentada. El dinero no utilizado, queda como superávit específico, que deberá ser utilizado para los mismos fines para los que fue girado.

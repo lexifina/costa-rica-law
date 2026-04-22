@@ -1,0 +1,1 @@
+ARTÍCULO 34.- Levantamiento de actas y acuerdos tomados en Asamblea. Quien presida la asamblea finalizada la sesión, enviará todas las actas y la ratificación de los acuerdos a la Secretaría del Concejo Municipal, junto con la documentación respectiva que acredita a los candidatos electos; antes de finalizar el mes de noviembre del año respectivo.

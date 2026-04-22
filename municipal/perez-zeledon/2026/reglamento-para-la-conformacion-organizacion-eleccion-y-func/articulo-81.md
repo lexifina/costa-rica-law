@@ -1,0 +1,1 @@
+ARTÍCULO 81.- De la información. La Municipalidad deberá brindar al Consejo de la Persona Joven la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por el CNPJ para el proyecto del Comité.
