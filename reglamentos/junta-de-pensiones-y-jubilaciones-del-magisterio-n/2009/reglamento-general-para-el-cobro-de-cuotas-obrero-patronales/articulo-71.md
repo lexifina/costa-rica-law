@@ -1,0 +1,2 @@
+Artículo 71.—Coordinación interinstitucional. JUPEMA establecerá mecanismos de interoperabilidad con el Ministerio de Educación Pública, el Registro Nacional, el Ministerio de Hacienda y otras entidades públicas, para garantizar el cumplimiento de este capítulo y facilitar el intercambio de información sobre la condición patronal de los Centros Educativos.
+(Así adicionado mediante sesión N° 0044-2026 del 22 de abril de 2026)
