@@ -1,1 +1,0 @@
-TRANSITORIO II.- Todos los inquilinos dentro de un plazo de seis meses debe aportar a la administración: 1- La personería jurídica que hace referencia el artículo 11 inciso b) 2 – Lo establecido en el inciso L) del artículo 17 del reglamento.

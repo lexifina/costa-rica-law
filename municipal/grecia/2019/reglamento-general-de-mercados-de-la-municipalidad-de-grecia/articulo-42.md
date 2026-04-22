@@ -1,2 +1,0 @@
-CAPÍTULO VI: De las Sanciones
-ARTÍCULO 42.- Ingreso de vehículos. No se permitirá el ingreso al mercado de ninguna clase de vehículos automotores, salvo aquellos que constituyan ayudas técnicas para obras de infraestructura y afines, para ayuda de personas con discapacidad, casos de fuerza mayor y previa autorización del administrador del Mercado.

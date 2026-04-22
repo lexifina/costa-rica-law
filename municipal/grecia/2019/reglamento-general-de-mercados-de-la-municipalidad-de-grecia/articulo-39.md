@@ -1,5 +1,0 @@
-ARTÍCULO 39.- Horario. El mercado funcionará ordinariamente según los horarios que fija el Alcalde o Alcaldesa Municipal, la Administración de Mercado, y la Asociación de Inquilinos del Mercado; velarán porque dichos horarios se ajusten a las necesidades de los usuarios con las siguientes excepciones:
-A) Solamente se permitirá al público ingresar al mercado entre la hora de apertura y la hora fijada para el cierre.
-B) En casos especiales la Administración del Mercado en coordinación con el Alcalde podrán autorizar modificaciones al horario establecido, para el funcionamiento general del mercado en coordinación con los inquilinos.
-C) Los domingos el mercado operará de manera extraordinaria, conforme acuerdo de los inquilinos con la Administración, según el horario formal establecido para el mercado que contemple el funcionamiento de lunes a sábado. Quedan exceptuados los locales externos, quienes tendrán independencia para establecer sus horarios.
-D) La Administración del Mercado, podrá extender licencias ocasionales razonadas mediante las cuales, pueden los inquilinos iniciar las actividades antes o después del horario fijado.

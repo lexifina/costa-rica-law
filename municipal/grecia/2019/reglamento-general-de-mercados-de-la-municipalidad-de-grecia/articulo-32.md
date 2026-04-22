@@ -1,1 +1,0 @@
-ARTÍCULO 32. Las recalificaciones y aumentos de alquileres se harán conforme a lo establecido en la Ley N°2428 del 14 de setiembre del 1959, Ley Sobre Arrendamientos de Locales Municipales, o en su caso con la Ley que regule la materia.

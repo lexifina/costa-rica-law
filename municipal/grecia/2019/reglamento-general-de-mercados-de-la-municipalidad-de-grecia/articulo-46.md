@@ -1,1 +1,0 @@
-ARTÍCULO 46.- Cierre indefinido: Ante el incumplimiento de las obligaciones contenidas en el artículo 17, incisos h) e i), lo anterior hasta que se produzca el pago efectivo del total de la deuda.

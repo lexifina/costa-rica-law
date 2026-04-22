@@ -1,1 +1,0 @@
-ARTÍCULO 44.- Amonestación escrita: Ante el incumplimiento por primera vez de las obligaciones contenidas en el artículo 17 incisos del a) al g). o cuando se incurra en las prohibiciones dispuestas en el artículo 18 incisos del a), b) c) y d).
