@@ -1,0 +1,1 @@
+ARTÍCULO 2- Para la presente ley todas las entidades financieras se entenderán como aquellas supervisadas, así definidas en la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
