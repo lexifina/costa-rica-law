@@ -1,0 +1,1 @@
+Artículo 10.-Naturaleza ad honorem del trabajo de la Comisión Organizadora: Las personas integrantes de la Comisión del festival navideño realizan su labor de forma altruista y voluntaria a favor del desarrollo cultural y artístico del cantón de Escazú.

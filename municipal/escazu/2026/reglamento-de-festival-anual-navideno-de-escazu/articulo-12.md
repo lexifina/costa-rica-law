@@ -1,0 +1,1 @@
+Artículo 12.-De las actas de la Comisión Organizadora: La secretaría de la Comisión del festival navideño deberá levantar actas de todas las reuniones que realice el órgano colegiado, sean estas presenciales o virtuales, ordinarias o extraordinarias; y las mismas deberán ser aprobadas en la sesión siguiente de su realización.
