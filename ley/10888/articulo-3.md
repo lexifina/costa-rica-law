@@ -1,0 +1,2 @@
+ARTÍCULO 3- Finalidad
+La finalidad de esta ley es establecer un programa que promueva las capacidades STEM (acrónimo en inglés para referirse a ciencia, tecnología, ingeniería y matemáticas) y mitigue las repercusiones negativas del "apagón educativo", por medio del trabajo experimental remoto con las ventajas de las Tecnologías de la Información y la Comunicación (TIC), en todo el sistema educativo costarricense.
