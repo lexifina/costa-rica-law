@@ -1,0 +1,1 @@
+Artículo 2º-Deróguense los apartados 4.3.5.16 y 4.3.5.17 del Anexo del Decreto Ejecutivo N° 39646-S del 8 de abril del 2016 "Norma para la habilitación de establecimientos de salud que realizan la técnica de reproducción asistida de fecundación in vitro y transferencia embrionaria (FIV-TE)", publicado en el Alcance N° 63 a La Gaceta N° 79 del 26 de abril del 2016.
