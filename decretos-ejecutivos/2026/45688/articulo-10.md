@@ -1,0 +1,1 @@
+Artículo 10 ° -. Domicilio laboral de la persona teletrabajadora. Para todos los efectos se tendrá como domicilio laboral el consignado en el contrato de trabajo, debiendo acreditarse dicha dirección de manera exacta dentro del contrato de teletrabajo. La persona funcionaria está obligada a informar todo cambio de domicilio laboral de forma inmediata al hecho.

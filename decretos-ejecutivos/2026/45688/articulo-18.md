@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LA SUSPENSIÓN TEMPORAL, REVOCACIÓN O TERMINACIÓN DE LA
+MODALIDAD DE TELETRABAJO
+Artículo 18 º -. Revocación o terminación del teletrabajo. La modalidad de teletrabajo es facultativa tanto para la Administración. El MAG y sus órganos de desconcentración máxima o mínima, podrán dejar sin efecto el teletrabajo para las personas funcionarias sin que ello implique perjuicio o ruptura de la relación laboral, cuando se estime necesario por razones de conveniencia institucional las cuales deberán estar debidamente motivadas. Cuando se revoque la modalidad, las personas funcionarias que estén teletrabajando, deberán reintegrarse a su domicilio laboral o sede de trabajo siguiendo las pautas establecidas en el contrato de teletrabajo. Dicho acto deberá comunicarse a las personas teletrabajadoras con una antelación de diez días hábiles previos al ingreso a la modalidad presencial absoluta.

@@ -1,0 +1,28 @@
+Artículo 4º -. Definiciones y Acrónimos. Para los efectos del presente reglamento, se entenderá por:
+1. Actividades teletrabajables: Tareas de un puesto que pueden realizarse fuera de la institución mediante medios digitales, generan productos o resultados verificables a distancia y no requieren presencia física para mantener la continuidad o calidad del serv1c10.
+2. Autenticación multifactor: La autenticación multifactor es un proceso de inicio de sesión que requiere múltiples formas de prueba de identidad, incluyendo una contraseña, datos biométricos o un token de segulidad.
+3. Asistencia técnica para la persona teletrabajadora: Soporte técnico que puede solicitar la persona teletrabajadora cuando el equipo tecnológico suministrado por la institución, no le permitan ejecutar el teletrabajo.
+4. Contrato o adenda de teletrabajo: Contrato laboral firmado entre el MAG y la persona teletrabajadora acordando detalladamente las condiciones de la relación de servicio mediante la modalidad de teletrabajo conforme las disposiciones de la Ley Nº 9738, Ley para Regular el Teletrabajo y su Reglamento.
+5. Declaración jurada: Documento formal que debe susclibir la persona funcionaria, mediante el cual manifiesta bajo juramento las condiciones de salud ocupacional y otros aspectos particulares existentes en el lugar donde se desarrollará la modalidad de teletrabajo. Este instrumento constituye el medio idóneo para acreditar la información solicitada por la Administración con el fin de garantizar el cumplimiento de las disposiciones normativas y la protección integral de la persona teletrabajadora.
+6. Domicilio Laboral: Lugar indicado por la persona funcionaria en el contrato de teletrabajo como su dirección legal para laborar en esa modalidad.
+7. Domicilio alternativo: Lugar indicado por la persona funcionaria en el contrato de teletrabajo como su dirección alterna para laborar en esa modalidad.
+8. DGIRH: Departamento de Gestión Institucional de Recursos Humanos.
+9. DTI: Departamento de Tecnologías de Información.
+10. Horario de trabajo: Corresponde al determinado por la Administración en la jornada ordinaria establecida para el personal del Ministerio y sus órganos adscritos.
+11. INTA: Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+12. Jerarca: El (la) Ministro/a de Agricultura y Ganadería.
+13. Superior jerárquico del personal: El Viceministro (a) administrativo.
+14. MAG: Ministerio de Agricultura y Ganadería.
+15. Órganos adscritos: Se entiende por órganos adscritos los órganos de desconcentración máxima y mínima del Ministerio de Agricultura y Ganadería los cuales son: Servicio Nacional de Salud Animal, Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria, el Servicio Fitosanitario del Estado y el Consejo Nacional de Clubes 4-S.
+16. Peñtl del puesto teletrabajable: Conjunto de tareas y requisitos que describen la naturaleza de un puesto que puede ser ejecutado desde la modalidad de teletrabajo.
+17. Persona teletrabajadora: Persona funcionaria del MAG o de sus órganos de desconcentración máxima y mínima, que realiza sus actividades laborales mediante la modalidad del teletrabajo por cumplir con los requisitos y condiciones y gozar de un contrato suscrito con el jerarca.
+18. Recursos para teletrabajar: Son recursos para desarrollar el teletrabajo apoyándose en las tecnologías de información: videoconferencias, herramientas ofimáticas en línea, telefonía fija y celular, equipo de cómputo
+19. SENASA: Servicio Nacional de Salud Animal.
+20. SFE: Servicio Fitosanitario del Estado.
+21. Tecnologías de la Información y Comunicaciones (TIC): Es un conjunto de servicios, redes, software, hardware y dispositivos que tienen como fin el mejoramiento de la calidad de vida, de las personas dentro un entorno, y que se integran a un sistema de información interconectado y complementario.
+22. Teletrabajo: Modalidad de trabajo de carácter individual y voluntaria tanto para la persona teletrabajadora como para la persona empleadora, que puede ser acordada desde el principio de la relación laboral o posteriormente y revocada sin que ello implique perjuicio o ruptura de la relación laboral; se realiza fuera de las instalaciones de la persona empleadora, utilizando las tecnologías de la información y comunicación sin afectar el normal desempeño de otros puestos, de los procesos y de los servicios que se brindan. Esta modalidad de trabajo está sujeta a los principios de oportunidad y conveniencia, donde la persona empleadora y la persona teletrabajadora definen sus objetivos de forma individual y la forma en cómo se evalúan los resultados del trabajo.
+23. Titular subordinado: Jefatura inmediata de la persona teletrabajadora.
+24. Conveniencia Institucional: Criterio mediante el cual y el MAG y sus órganos adscritos de desconcentración mínima y máxima, determinan que una medida, excepción o decisión resulta beneficiosa para el cumplimiento de sus objetivos y necesidades operativas o estratégicas. Dicho criterio debe estar debidamente justificado y respetar los principios de legalidad y eficiencia.
+25. Revocación: Implica dejar sin efecto la modalidad de teletrabajo de manera general y definitiva para las personas funcionarias del MAG y sus órganos adscritos.
+26. Suspensión: Consiste en interrumpir temporalmente la modalidad de teletrabajo para una persona funcionaria. Una vez levantada la suspensión, la persona podrá retomar a dicha modalidad.
+27. Terminación: Acto mediante el cual se pone fin a la modalidad para una persona funcionaria, ya sea por cumplimiento del objeto, vencimiento del plazo, mutuo acuerdo, decisión unilateral de la Administración o de la persona funcionaria.

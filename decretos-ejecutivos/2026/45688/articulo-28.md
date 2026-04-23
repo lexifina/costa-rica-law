@@ -1,0 +1,1 @@
+Artículo 28º -. Responsabilidad de la Dirección de Asesoría Jurídica. La Dirección de Asesoría Jurídica brindará el apoyo a los diferentes departamentos del MAG y sus órganos desconcentrados en todos aquellos temas relacionados con la aplicación de la normativa vinculada al teletrabajo.

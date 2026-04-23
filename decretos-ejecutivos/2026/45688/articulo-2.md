@@ -1,0 +1,3 @@
+Artículo 2 º-. Fines. El presente reglamento tiene los siguientes fines:
+a) Regular el teletrabajo como modalidad laboral autorizada en el Ministerio de Agricultura y Ganadería y sus órganos adscritos de desconcentración máxima y mínima: Servicio Nacional de Salud Animal, Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria, el Servicio Fitosanitario del Estado y el Consejo Nacional de Clubes 4-S.
+b) Definir los lineamientos técnicos, administrativos y legales, requeridos para la regulación efectiva del teletrabajo en el MAG y sus órganos adscritos en el inciso anterior.

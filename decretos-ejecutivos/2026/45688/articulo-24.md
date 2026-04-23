@@ -1,0 +1,1 @@
+Artículo 24 º - . Del Correcto Funcionamiento de los Equipos. Las personas teletrabajadoras deberán garantizar el óptimo funcionamiento del equipo tecnológico en aras de no afectar la ejecución de sus labores.
