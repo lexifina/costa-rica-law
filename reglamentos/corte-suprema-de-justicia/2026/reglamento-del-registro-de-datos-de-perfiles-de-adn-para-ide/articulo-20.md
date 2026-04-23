@@ -1,0 +1,2 @@
+Artículo 20°-Designación del servidor judicial para la introducción de datos.
+El Departamento de Ciencias Forenses, deberá designar a los servidores judiciales necesarios para introducir la información codificada del perfil genético y a otros distintos para que introduzcan los datos en el Archivo de Información Personal.

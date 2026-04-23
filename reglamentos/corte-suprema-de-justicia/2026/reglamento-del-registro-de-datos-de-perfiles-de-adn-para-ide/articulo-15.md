@@ -1,0 +1,2 @@
+Artículo 15°-Conservación de la muestra biológica.
+La persona perito durante la fase del análisis de la muestra biológica deberá conservar una muestra suficiente para una eventual contrapericia, excepto en los casos cuando el material biológico recolectado es escaso, existiendo una manifiesta imposibilidad. De lo anterior, la persona perito deberá dejar constancia escrita e informarlo a la Autoridad Judicial en el Informe Pericial que emita.

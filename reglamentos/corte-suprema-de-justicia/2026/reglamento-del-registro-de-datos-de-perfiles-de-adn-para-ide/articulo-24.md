@@ -1,0 +1,2 @@
+Artículo 24°-Acceso a la Información del resultado
+El donante de la muestra biológica podrá tener conocimiento de su propia información para los fines en que fue tomada la muestra. Tendrá acceso a la información específicamente relacionada con una investigación realizada como parte de sus competencias legales, el personal del Organismo de Investigación Judicial que autorice la Dirección General, los Jueces Penales y el Ministerio Público.
