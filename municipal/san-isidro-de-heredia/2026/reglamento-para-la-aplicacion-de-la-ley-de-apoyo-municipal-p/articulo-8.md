@@ -1,0 +1,1 @@
+Artículo 8º-Impugnaciones. Contra la resolución que rechaza el beneficio, el que lo aprueba de forma parcial y contra la resolución que dispone la revocación de un beneficio, cabrá la interposición de los recursos previstos en el Código Municipal para la impugnación de los actos de los funcionarios que no dependan del Concejo Municipal.

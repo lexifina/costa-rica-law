@@ -1,0 +1,4 @@
+Artículo 6º-Información de relevancia. La administración municipal deberá realizar los siguientes estudios y mantener una actualización periódica anual de lo siguiente:
+a) Identificación de las personas adultas mayores en estado de pobreza y pobreza extrema que sean habitantes de su circunscripción. Para tales efectos, deberán articularse esfuerzos entre el Departamento de Gestión de Cobros y el Departamento de Igualdad de Género y Desarrollo Social.
+b) Del ingreso por concepto de bienes inmuebles amparado a la Ley N° 7509, el monto que adeudan las personas adultas mayores en estado de pobreza y pobreza extrema hasta el cierre del segundo trimestre del año 2023.
+c) Monto que se puede condonar por concepto de los de impuestos municipales, tasas, servicios municipales sin que afecte el funcionamiento municipal.

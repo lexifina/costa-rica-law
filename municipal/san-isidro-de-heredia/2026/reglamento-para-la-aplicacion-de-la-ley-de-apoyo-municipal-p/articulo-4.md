@@ -1,0 +1,1 @@
+Artículo 4º-Sujeto pasivo. Serán sujetos pasivos de la aplicación de este reglamento aquellas personas adultas mayores en condición de pobreza o pobreza extrema debidamente registrados en el que residen y posean sus responsabilidades con la administración local del cantón de San Isidro de Heredia.
