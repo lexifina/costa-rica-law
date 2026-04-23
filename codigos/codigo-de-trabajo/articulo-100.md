@@ -1,4 +1,4 @@
-Artículo 100- Toda persona empleadora, que tenga en su establecimiento madres en período de lactancia, quedará obligada a acondicionar un espacio ideal, con el propósito de que las madres amamanten sin peligro a sus hijos y puedan extraerse la leche y almacenarla en un espacio adecuado en su lugar de trabajo.
-Este acondicionamiento deberá garantizar privacidad e higiene, dentro de las posibilidades económicas de la persona empleadora y deberá contar con el visto bueno de la oficina de seguridad e higiene del trabajo.
-Deberá proporcionarse, igualmente, un espacio dentro de sus instalaciones que garantice poder extraerse la leche y almacenarla en un espacio adecuado en su lugar de trabajo.
-(Así reformado por el artículo 1° de la Ley para combatir la discriminación laboral contra las mujeres en condición de maternidad, N° 10211 del 5 de mayo de 2022)
+Artículo 100- Toda persona empleadora, que tenga en su establecimiento madres en periodo de lactancia, quedará obligada a acondicionar un espacio de lactancia ideal, con el propósito de que las madres amamanten sin peligro a sus hijos y puedan extraerse la leche y almacenarla en un espacio adecuado, en su lugar de trabajo.
+Este acondicionamiento deberá garantizar privacidad e higiene, dentro de las posibilidades económicas de la persona empleadora, y deberá contar con el visto bueno de la oficina de seguridad e higiene del trabajo.
+Deberá proporcionarse, igualmente, un espacio dentro de sus instalaciones, que garantice poder extraerse la leche y almacenarla en un espacio adecuado en su lugar de trabajo.
+(Así reformado por el inciso e) del artículo 8° de la Ley para proteger, promover y apoyar la lactancia materna, N° 10895 del 7 de abril del 2026)
