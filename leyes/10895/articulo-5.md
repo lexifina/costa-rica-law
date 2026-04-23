@@ -1,0 +1,8 @@
+ARTÍCULO 5- Derechos de las madres estudiantes en periodo de lactancia
+Las madres estudiantes en periodo de lactancia, de los centros educativos públicos y privados del sistema educativo nacional, tienen derecho a disponer de facilidades académicas y espacios adecuados para la alimentación directa de sus hijos e hijas, o la extracción de leche materna.
+Por lo anterior se dispone:
+a) La madre estudiante, en periodo de lactancia, tendrá derecho a un permiso de ausencia de clases de 15 minutos, cada dos horas, que podrá utilizar de forma continua o fraccionada para alimentar directamente al menor. El tiempo de ausencia por este permiso no se considerará falta de asistencia, no afectará la carga académica de la madre estudiante ni afectará su participación o calificación en evaluaciones, trabajos prácticos o actividades obligatorias.
+b) La madre estudiante en periodo de lactancia tendrá derecho a un permiso de ausencia de clases de 25 minutos, cada tres horas, que podrá utilizar de forma continua o fraccionada para extraerse la leche materna.
+c) La madre estudiante podrá solicitar el permiso y el acceso al espacio de lactancia, ante la dirección del centro o el órgano académico correspondiente.
+d) Toda información relativa al estado de lactancia será tratada con estricta confidencialidad y sin afectar el desempeño académico ni dar lugar a discriminación.
+e) Los centros educativos deberán habilitar, en sus instalaciones, salas de lactancia o espacios privados, higiénicos, ventilados y equipados con mobiliario adecuado. Dichos espacios deberán estar disponibles durante todo el horario lectivo y ubicados de manera accesible, garantizando la privacidad de la usuaria.
