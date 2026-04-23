@@ -14,3 +14,4 @@ Reglamento de dedicación exclusiva de la Junta Administrativa del Servicio Elé
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-26 | la propia norma |
+| 2 | 2026-04-23 | Reglamento 30 (2026-04-23) |

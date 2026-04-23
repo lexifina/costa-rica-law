@@ -1,1 +1,1 @@
-Artículo 20.-JASEC reconocerá un 55% sobre el salario base al personal de nivel profesional que ostente el grado académico de licenciatura u otro grado académico superior que ocupe un puesto para el que se requiere dicho grado para las actividades y responsabilidades del puesto.
+Artículo 20.-JASEC reconocerá un 55% sobre el salario base al personal de nivel profesional que ostente el grado académico de licenciatura u otro grado académico superior que ocupe un puesto para el que se requiere dicho grado para las actividades y responsabilidades del puesto..

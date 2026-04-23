@@ -1,3 +1,2 @@
-Artículo 2º-Alcance. Aplica a las personas trabajadoras que estén nombradas en puestos profesionales y jefaturas de departamento, áreas, direcciones y asesoría jurídica, los cuales requieren como mínimo el grado académico de bachillerato o licenciatura universitaria, que les
-permita el ingreso al Régimen de Dedicación Exclusiva.
+Artículo 2º-Alcance. Aplica a las personas trabajadoras que estén nombradas en puestos profesionales y jefaturas de departamento, áreas, direcciones y asesoría jurídica, los cuales requieren como mínimo el grado académico de bachillerato o licenciatura universitaria, que les permita el ingreso al Régimen de Dedicación Exclusiva.
 Queda entendido que en el caso de profesionales con grado de bachillerato universitario no procede la dedicación exclusiva, si la ley constitutiva del colegio profesional no permite el ejercicio liberal ostentando dicho grado y por ende la incorporación al Colegio respectivo.
