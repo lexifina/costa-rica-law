@@ -1,1 +1,0 @@
-Artículo 15.—En caso de extravío del Protocolo, la empresa auditora deberá comunicar de inmediato por escrito tal situación a la Gerencia de Biotecnología para que se proceda a tomar nota de ello y tendrá que solicitar la apertura de un nuevo Protocolo.

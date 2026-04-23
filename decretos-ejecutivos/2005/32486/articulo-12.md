@@ -1,1 +1,0 @@
-Artículo 12.—Toda entidad auditada deberá archivar ordenadamente los documentos atinentes a la actividad, tales como informes de auditoraje, informes de inspección y otros, los cuales deberán facilitarse a los funcionarios o inspectores de la Gerencia de Biotecnología del Servicio Fitosanitario del Estado para su revisión, cuando estos lo soliciten.

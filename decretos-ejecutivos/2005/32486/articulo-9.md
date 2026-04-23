@@ -1,1 +1,0 @@
-Artículo 9º—Las entidades que realizan actividades con OVMs, deberán comunicar a la Gerencia de Biotecnología cual empresa de las que se encuentran inscritas y autorizadas, será la que le realizará el auditoraje respectivo.
