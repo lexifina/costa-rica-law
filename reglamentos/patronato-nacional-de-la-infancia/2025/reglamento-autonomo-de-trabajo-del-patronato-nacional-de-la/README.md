@@ -15,3 +15,4 @@ Reglamento autónomo de trabajo del Patronato Nacional de la Infancia
 | --- | --- | --- |
 | 1 | 2025-04-04 | la propia norma |
 | 2 | 2025-06-17 | Reglamento 29 (2025-06-17) |
+| 3 | 2026-04-23 | Reglamento 18 (2026-04-23) |
