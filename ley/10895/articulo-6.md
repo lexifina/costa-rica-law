@@ -1,0 +1,2 @@
+ARTÍCULO 6- Obligación de las universidades
+Las universidades públicas y privadas de Costa Rica implementarán políticas públicas y demás actividades dirigidas a educar en materia de lactancia materna a la población estudiantil. Asimismo, se facilitarán las condiciones adecuadas para garantizar la lactancia materna a las personas menores de edad por un periodo mínimo de seis meses, ya sea mediante la extracción y el almacenamiento de la leche o con espacios acondicionados para que las madres estudiantes puedan atender a sus hijos e hijas.
