@@ -1,2 +1,3 @@
-ARTÍCULO 27.- Autorización a otras instituciones
-Se autoriza a las instituciones públicas para que colaboren en las campañas que promuevan el Ministerio de Educación Pública (MEP), el Ministerio de Salud, la Defensoría de los Habitantes y el Patronato Nacional de la Infancia (PANI), en la prevención del acoso escolar o “bullying”.
+Artículo 27- Autorización a otras instituciones
+Se autoriza a las instituciones públicas para que colaboren en las campañas que promuevan el Ministerio de Educación Pública (MEP), el Ministerio de Salud, la Defensoría de los Habitantes y el Patronato Nacional de la Infancia (PANI), en la prevención del acoso escolar o "bullying". Asimismo, dichas instituciones estarán facultadas para celebrar convenios y alianzas con organizaciones no gubernamentales, sector privado y otras asociaciones, a fin de desarrollar las campañas.
+(Así reformado por el artículo 8° de la Ley para fortalecer la protección frente al acoso escolar, N° 10894 del 7 de abril del 2026)
