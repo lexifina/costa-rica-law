@@ -1,0 +1,2 @@
+ARTÍCULO 6- Potestades de Administración Tributaria de la Municipalidad. En el ejercicio de sus potestades de Administración Tributaria, la Municipalidad de Monteverde podrá exigir el cumplimiento de los deberes de los contribuyentes del impuesto de patentes, para lo cual podrá realizar funciones determinativas, administrativas, fiscalizadoras, recaudatorias y establecer
+las sanciones que esta ley, sus reglamentos y el ordenamiento jurídico vigente le faculte, según lo establece el artículo 77 bis de la Ley 7794, Código Municipal, del 30 de abril de 1998.

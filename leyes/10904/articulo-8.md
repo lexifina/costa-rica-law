@@ -1,0 +1,1 @@
+ARTÍCULO 8- De las licencias en un mismo establecimiento. Cuando en un mismo establecimiento dedicado a actividades lucrativas, donde ejerzan conjuntamente, varias personas físicas o jurídicas, cada una de ellas solicitará la licencia por separado y así pagará el impuesto de patente según la actividad que realice.

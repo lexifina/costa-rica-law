@@ -1,0 +1,1 @@
+ARTÍCULO 25- Reducción de sanciones. Las multas establecidas en esta ley y sus reglamentos podrán ser reducidas a la mitad, cuando -una vez iniciado el proceso sancionatorio o cobratorio correspondiente- el contribuyente subsane espontáneamente su incumplimiento y realice el pago antes que la resolución quede en firme.
