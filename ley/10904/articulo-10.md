@@ -1,0 +1,2 @@
+ARTÍCULO 10- Licencias temporales. Podrá la Municipalidad conceder licencias temporales para el ejercicio de una actividad comercial cuando la naturaleza de la actividad económica se limita en el tiempo. Estas licencias serán emitidas por un plazo de hasta un mes y puede prorrogarse a solicitud de la persona licenciataria temporal hasta por un período igual de tiempo.
+Serán requisitos para la obtención de una licencia temporal los requisitos contenidos en el reglamento de la presente ley, respetando la debida publicidad y notificación oportuna por parte de la Municipalidad.
