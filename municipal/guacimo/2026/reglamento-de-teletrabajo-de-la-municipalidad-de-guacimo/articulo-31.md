@@ -1,0 +1,1 @@
+Artículo 31.-Aporte facultativo. Sin detrimento de lo indicado en el artículo precedente, la municipalidad podrá facilitar algunos insumos dentro de las posibilidades y los casos autorizados por la Comisión Institucional.

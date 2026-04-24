@@ -1,0 +1,1 @@
+Artículo 27.-Reportes en caso de accidente laboral. En caso de accidente laboral la persona teletrabajadora deberá comunicarlo a su jefatura de manera inmediata para que este realice el reporte, conforme con el procedimiento establecido en la municipalidad.

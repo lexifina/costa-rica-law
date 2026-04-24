@@ -1,0 +1,1 @@
+Artículo 28.-Reportes en caso de enfermedad. En caso de enfermedad la persona teletrabajadora deberá comunicarlo a su jefatura de manera inmediata, y acudir al médico o en su caso a un centro de salud.
