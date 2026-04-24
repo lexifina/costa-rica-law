@@ -1,0 +1,3 @@
+ARTÍCULO 4. Definición de Proyecto.
+Para efectos del presente reglamento, se entiende por proyecto el conjunto de actividades planificadas, coordinadas y relacionadas entre sí, orientadas al logro de un objetivo específico, resultado, producto o servicio en beneficio de las personas menores de edad, dentro de un plazo determinado.
+Todo proyecto deberá contar con estrategias, acciones, alcance, plazo de ejecución y estimación de recursos definidos, y podrá ser ejecutado directamente por la institución o en coordinación con sujetos privados, conforme a las disposiciones legales y contractuales vigentes.

@@ -1,0 +1,4 @@
+ARTÍCULO 69. Procesos de supervisión técnica de los proyectos (ejecución- fiscalización de la obra pública)
+Los procesos de supervisión técnica de los proyectos (ejecución y fiscalización de la obra pública), se hará de la siguiente manera:
+a. Las instancias responsables de proyectos de inversión pública como el Departamento de Servicios Generales o el Departamento de Tecnologías de Información, entre otras, serán las responsables del avance de ejecución, acompañamiento, preparación de informes, actualización de fichas y supervisión de los proyectos de inversión pública, según los plazos establecidos en la normativa aplicable.
+b. La Oficina de Planificación y Desarrollo Institucional, dará seguimiento al cumplimiento de los informes de avances y actualización de las fichas técnicas de los proyectos de inversión pública ante MIDEPLAN, según los plazos establecidos en la normativa aplicable.

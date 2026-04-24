@@ -1,0 +1,7 @@
+ARTÍCULO 55. De la transferencia de beneficios patrimoniales ordinarios.
+Para la transferencia de beneficios patrimoniales mediante la suscripción de convenios, adendas que declaren la procedencia de transferencias, el PANI deberá tomar en cuenta lo siguiente:
+a) Verificar que el Sujeto Privado Beneficiario se encuentre declarado como patrono activo y al día con sus obligaciones o en arreglo de pago, con la CCSS y FODESAF.
+b) Los pagos a los sujetos privados beneficiarios se realizarán conforme lo establezca el convenio suscrito y las etapas de ejecución y avances del proyecto.
+c) El Departamento Financiero Contable, de acuerdo con la disponibilidad presupuestaria de recursos deberá incluir en la programación de salida de recursos ante Caja Única del Estado las fechas de desembolsos conforme los remita así el fiscalizador técnico y lo establecido en el convenio.
+d) Para aquellos Sujetos Privados Beneficiarios que su presupuesto está sujeto a la aprobación de la Contraloría General de la República, según lo establecido en sus normas técnicas, el Departamento de Administración del Presupuesto deberá presentar el oficio de aprobación emitido por dicho ente ante el Departamento Financiero Contable, para iniciar el giro de recursos.
+e) En caso de que existan resoluciones administrativas que contemplen un arreglo de pago por incumplimientos normativos, el Departamento Financiero Contable de previo al giro de recursos, verificará que éstos se encuentren al día para el respectivo desembolso.

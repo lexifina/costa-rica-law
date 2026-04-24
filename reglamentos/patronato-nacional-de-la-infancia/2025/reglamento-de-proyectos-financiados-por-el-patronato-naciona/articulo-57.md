@@ -1,0 +1,2 @@
+Artículo 57. Del uso de los recursos transferidos por el PANI a los Sujetos Privados Beneficiarios.
+Los sujetos privados beneficiarios podrán hacer uso de los beneficios transferidos de conformidad con el clasificador por objeto del gasto establecido por el Ministerio de Hacienda y lo programado en la ejecución de las etapas del proyecto según planteamiento aprobado por la instancia fiscalizadora y la oficina de proyectos.

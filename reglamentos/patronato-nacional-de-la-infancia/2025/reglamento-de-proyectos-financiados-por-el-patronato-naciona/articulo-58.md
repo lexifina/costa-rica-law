@@ -1,0 +1,4 @@
+Artículo 58. Estados Financieros.
+Los Sujetos Privados Beneficiarios deberán emitir en forma oportuna y mensual los estados financieros correspondientes y mantener a disposición del PANI sus libros legales contables actualizados, de forma digital o físicos los cuales deberán ser llevados por un contador privado incorporado en su colegio respectivo.
+Dichos estados financieros deberán cumplir con las disposiciones establecidas por la Contraloría General de la República para los sujetos privados.
+En relación con los aportes otorgados, los activos comprados, la depreciación y los gastos realizados, se deberá efectuar el registro en forma separada, de manera que sea posible identificar los ingresos y los gastos aplicados.

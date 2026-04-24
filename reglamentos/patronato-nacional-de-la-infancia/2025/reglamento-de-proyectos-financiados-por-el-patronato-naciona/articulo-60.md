@@ -1,0 +1,2 @@
+ARTÍCULO 60. Comprobante de pago de salario.
+El comprobante de pago de salario por planilla deberá cumplir con los requisitos que establezca el Departamento Financiero Contable. Las únicas deducciones permitidas en un comprobante de salario serán las establecidas por la Seguridad Social obligatoria, lo relativo a retenciones por concepto de renta proporcional en los casos en que los salarios superen el mínimo exento por ese concepto y las emitidas por la autoridad jurisdiccional

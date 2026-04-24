@@ -1,0 +1,2 @@
+ARTÍCULO 65. Presentación del documento de pre- inversión
+El cumplimiento de la inscripción y presentación de los proyectos de inversión pública en el Banco de Proyectos de Inversión Pública de MIDEPLAN, lo coordinara la oficina de Planificación y Desarrollo Institucional, para lo cual establecerá los procedimientos o manuales que considere necesarios, detallando actividades, instrumentos, plazos y responsables.

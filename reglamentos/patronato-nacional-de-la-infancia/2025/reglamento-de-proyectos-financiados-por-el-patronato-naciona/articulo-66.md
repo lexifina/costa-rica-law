@@ -1,0 +1,2 @@
+ARTÍCULO 66. Ruta Crítica de los Proyectos de Obra Pública, Maquinaria, Equipo y Capacitación
+La dependencia encargada de los proyectos de inversión será la responsable de elaborar y velar por la actualización del procedimiento para el proceso de aprobación de los proyectos de inversión pública, los cuales corresponden a obra pública, maquinaria, equipo y capacitación según las subpartidas indicadas en Normas Técnicas de Inversión Pública. Detallando actividades, instrumentos, plazos y responsables.

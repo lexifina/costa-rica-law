@@ -1,0 +1,2 @@
+ARTÍCULO 9. Establecimiento de criterios de admisibilidad.
+El PANI, deberá establecer los lineamientos o criterios de admisibilidad que debe contener cada proyecto para su ingreso al portafolio de proyectos institucional, entre los cuales deberán destacar: el alineamiento estratégico según los instrumentos de planificación respectivos, cumplimiento de requisitos según la normativa de proyectos de MIDEPLAN vigentes y cualquier otro requerimiento que contribuya a la consecución de los objetivos institucionales.

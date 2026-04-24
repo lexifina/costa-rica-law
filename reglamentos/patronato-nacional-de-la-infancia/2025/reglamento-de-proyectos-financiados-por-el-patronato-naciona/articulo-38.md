@@ -1,0 +1,2 @@
+ARTICULO 38. Instrumentos para la formalización de compromisos para la transferencia de beneficios patrimoniales a personas jurídicas.
+El PANI transferirá beneficios patrimoniales para la atención de finalidades que cuenten con los avales respectivos y únicamente mediante la existencia previa de un convenio suscrito con el sujeto privado beneficiario y de acuerdo con el cumplimiento de todos los requisitos establecidos por el ente concedente.

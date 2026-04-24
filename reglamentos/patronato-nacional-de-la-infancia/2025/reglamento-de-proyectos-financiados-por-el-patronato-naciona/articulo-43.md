@@ -1,0 +1,3 @@
+ARTICULO 43. Aprobación y Evaluación de Proyectos
+La Gerencia Técnica realizará un análisis de la viabilidad técnica y revisión integral de la propuesta del proyecto; así como de la estructura presentada con base a la normativa vigente. Para lo cual establecerá los respectivos procedimientos que contenga la ruta, responsables y plazos necesarios para la aprobación de los proyectos específicos (Sujetos Privados Beneficiarios: Fundaciones Organizaciones No Gubernamentales, Asociaciones de Desarrollo y Juntas de Educación).
+Los proyectos una vez que son puestos en marcha deberán ser evaluados por la dependencia encargada de los proyectos, acuerdo con los instrumentos y procedimientos que se definan para este fin.

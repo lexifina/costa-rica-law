@@ -1,0 +1,2 @@
+ARTÍCULO 13. Ejecución del Portafolio de Proyectos.
+La ejecución del portafolio comprende la verificación de las etapas actuales según el ciclo de vida de cada uno de los componentes; así como la programación y presupuestación de las siguientes etapas. Para tal efecto se deberá designar la dependencia encargada del portafolio de proyectos y las dependencias responsables de la ejecución de cada proyecto.

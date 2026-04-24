@@ -1,0 +1,2 @@
+ARTÍCULO 10. Priorización de los componentes del portafolio.
+El PANI, deberá establecer los criterios bajo los cuales se priorizarán los proyectos que conforman el portafolio, como mínimo deben contemplarse variables relacionadas con la contribución al cumplimiento de las prioridades y/o los objetivos estratégicos presentes en los instrumentos de planificación respectivos, los costos, los beneficios y los riesgos.

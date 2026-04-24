@@ -1,0 +1,2 @@
+ARTICULO 42. Análisis de la Propuesta del Proyecto
+La Gerencia Técnica, procederá a analizar la propuesta del proyecto presentada, con el fin de determinar su viabilidad y continuidad. Además, tendrá la potestad de coordinar con las dependencias internas para crear comisiones, en caso de que así lo considere necesario, con el propósito de obtener un criterio integral de sus diferentes campos de acción. Para lo cual establecerá los respectivos procedimientos que contenga la ruta y plazos necesarios para la ejecución del análisis.

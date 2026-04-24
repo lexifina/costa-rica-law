@@ -1,0 +1,2 @@
+ARTÍCULO 7. Definición de Portafolio Subordinado.
+Para todos los efectos se entenderá como portafolio subordinado la agrupación de proyectos y programas, por direcciones, gerencias o temáticas; que se organizan a lo interno del portafolio para el cumplimiento de las prioridades de una entidad y/o los objetivos estratégicos presentes en los respectivos instrumentos de planificación. No obstante, los portafolios subordinados están supeditados al portafolio principal de la organización.

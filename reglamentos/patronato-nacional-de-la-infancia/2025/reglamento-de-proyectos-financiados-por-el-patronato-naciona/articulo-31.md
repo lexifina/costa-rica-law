@@ -1,0 +1,8 @@
+ARTÍCULO 31. Directores Regionales
+Las competencias de los directores regionales con relación a los proyectos que se ejecutan con la fuente de financiamiento del Fondo de Niñez y Adolescencia son:
+a. Verificar que los proyectos de las Juntas de Protección a la Niñez y la Adolescencia financiados por el Fondo de la Niñez y la Adolescencia a nivel regional cumplan con los criterios técnicos de aprobación y que responden al portafolio institucional de proyectos.
+b. Verificar que los proyectos nuevos, aportados por las Oficinas Locales bajo su jurisdicción cumplen con los lineamientos establecidos por la Gerencia Técnica y están acordes a la Guía de Formulación de Proyectos del PANI.
+c. Brindar supervisión y control durante la planificación, ejecución, seguimiento y control de los proyectos como parte de las funciones propias a su cargo en relación con las labores sustantivas de la institución.
+d. Brindar semestralmente supervisión, seguimiento y control durante la ejecución de los proyectos como parte de las funciones propias a su cargo en relación con las labores sustantivas de la institución.
+e. Remitir los documentos finales, para el proceso de aval correspondiente.
+f. En caso de que alguna de las Oficinas Locales de su jurisdicción presente a la Dirección Regional proyectos nuevos que surjan a partir de las necesidades propias de la Oficina Local o de la comunidad, la Dirección Regional deberá trasladarlo a la Gerencia Técnica para su correspondiente revisión técnica, y una vez que sea aprobado por la gerencia, ésta lo remitirá la Unidad de Administración de Proyectos para la respectiva revisión de acuerdo con Guía de Formulación de Proyectos Sociales de la institución, la unidad emitirá el primer aval, y lo enviará a la Gerencia Técnica.
