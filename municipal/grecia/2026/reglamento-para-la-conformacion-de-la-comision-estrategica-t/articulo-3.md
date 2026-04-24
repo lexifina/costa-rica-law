@@ -1,0 +1,1 @@
+Artículo 3º-El Departamento de Ingeniería para Desarrollo Cantonal (IDC) en conjunto con la Alcaldía y Concejo Municipal, serán los encargados de la administración, aplicación, reforma y actualización del plan regulador, con asesoría de la CET.

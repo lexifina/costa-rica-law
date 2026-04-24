@@ -1,0 +1,8 @@
+III.-Integración y designación de miembros
+Artículo 5.-Integración de la CET. La CET estará integrada por representantes del gobierno local y de la comunidad, quienes fungirán ad honorem. Para los efectos del presente reglamento, la integración de la CET estará conformada por los siguientes miembros:
+a) El Alcalde (Alcaldesa) o un representante formal delegación para la toma de decisiones y voto.
+b) Un miembro del Concejo Municipal, el cual será designado mediante acuerdo firme adoptado al efecto por el Concejo Municipal.
+c) El Coordinador del Departamento de Ingeniería para el Desarrollo Cantonal (IDC).
+d) Un funcionario municipal designado por la Alcaldía, preferiblemente proveniente de las siguientes áreas: Gestión Ambiental, Gestión Vial, Catastro o SIG, o de alguna unidad municipal que trabaje directamente con las comunidades. Dicho funcionario deberá contar con idoneidad comprobada en sus áreas respectivas.
+e) Un representante de las Asociaciones administradoras de los Sistemas de Acueductos y Alcantarillados comunales en Costa Rica, también conocidas como ASADAS, nombrado Asamblea de éstos convocada por el Concejo Municipal al efecto. El acta de dicha Asamblea se remitirá al Concejo Municipal.
+f) Dos miembros de la sociedad civil, profesionales en áreas como medio ambiente, geografía, geología, urbanismo, hidrología, desarrollo vial u otras relacionadas con la regulación urbana. El concejo municipal realizará una convocatoria abierta, conformará una Comisión Especial para evaluar a los postulantes y, de entre una terna seleccionada, escogerá a los dos miembros mediante mayoría calificada.

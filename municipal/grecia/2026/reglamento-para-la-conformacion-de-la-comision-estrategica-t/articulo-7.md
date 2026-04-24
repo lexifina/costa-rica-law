@@ -1,0 +1,1 @@
+Artículo 7º-Será requisito para la existencia legal y funcionamiento de la CET, así como para el inicio del ejercicio colegiado de sus competencias, que todos los miembros hayan sido nombrados e investidos previamente, mediante el solemne juramento de rigor realizado en sesión formal del Concejo Municipal.
