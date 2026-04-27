@@ -1,0 +1,4 @@
+Artículo 13.- De la grabación de las sesiones.
+Los departamentos de Servicios Parlamentarios y Prensa Institucional serán los encargados de llevar a cabo la grabación en audio y video y remitirlos a la Gerencia General para garantizar su archivo, integridad y acceso.
+La grabación de audio y video de las sesiones del Directorio Legislativo se almacenará en una unidad de red dispuesta por el Departamento de Tecnologías de Información (TI) para esta función, bajo el esquema de seguridad proporcionado por la Gerencia General.
+Estas grabaciones se conservarán de acuerdo con lo estipulado por la Comisión Nacional de Selección y Eliminación de Documentos, en la resolución CNSED-01-2024, publicada en el diario oficial La Gaceta No 181, Alcance Digital No 167 de 30 de setiembre de 2024, así como la normativa que emita sobre este tema.

@@ -1,0 +1,2 @@
+Artículo 31.- Uso excepcional de medios alternos.
+En caso de indisponibilidad, falla tecnológica, incidente de ciberseguridad, fuerza mayor o cualquier contingencia que impida temporalmente el uso del sistema institucional, podrá utilizarse soporte físico o un mecanismo alterno, dejando constancia expresa de la incidencia, del medio utilizado y de la posterior incorporación o migración al formato electrónico oficial. En ningún caso coexistirán dos versiones oficiales con igual valor.

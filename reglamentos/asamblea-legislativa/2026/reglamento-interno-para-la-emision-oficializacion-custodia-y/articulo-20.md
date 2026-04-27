@@ -1,0 +1,2 @@
+Artículo 20.- Legalización.
+La Gerencia General llevará a cabo la coordinación con la Auditoría Interna para la legalización de las actas del Directorio Legislativo en estricto apego a lo dispuesto en el inciso e) del artículo 22 de la Ley General de Control Interno; el artículo 55 del Reglamento de Organización y Funcionamiento de la Auditoría Interna y las Normas para el ejercicio de la Auditoría Interna en el Sector Público, emitidas por la Contraloría General de la República, en su numeral 1.1.4.

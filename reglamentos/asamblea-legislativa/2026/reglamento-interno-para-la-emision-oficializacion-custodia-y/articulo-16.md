@@ -1,0 +1,3 @@
+Artículo 16.- Incorporación de documentos y no transcripción íntegra.
+En resguardo de los principios de economía, orden y claridad documental, los oficios, informes, dictámenes, propuestas, anexos y demás documentos conocidos por el Órgano Colegiado no se transcribirán íntegramente en el acta; sin embargo, el acta consignará la identificación completa del documento (tipo, número, fecha, emisor, asunto) y dejará constancia de su conocimiento, discusión, votación y acuerdo.
+Los documentos se incorporarán al expediente del asunto, en formato físico o digital, como anexos, y se mantendrán bajo custodia de la Gerencia General, hasta que finalice la legislatura de conformidad con lo dispuesto en el artículo 14 de este reglamento.

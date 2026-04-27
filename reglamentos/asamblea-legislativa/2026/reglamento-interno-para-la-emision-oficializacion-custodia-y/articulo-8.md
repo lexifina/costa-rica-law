@@ -1,0 +1,3 @@
+Artículo 8.- Sesiones virtuales.
+El Directorio Legislativo podrá realizar sesiones virtuales siempre que se cuente con respaldo digital, audio y video, así como el cumplimiento de los requisitos del cuórum para sesionar válidamente, salvo por situaciones de fuerza mayor debidamente justificadas. En el acta se indicará que los miembros del Órgano Colegiado se encuentran presentes de forma virtual.
+En caso de que la sesión sea virtual, se debe permitir a los miembros una comunicación integral y simultánea, de forma tal que puedan intercambiar criterios, ideas, interactuar en tiempo real y agilizar los procesos de toma de decisiones.

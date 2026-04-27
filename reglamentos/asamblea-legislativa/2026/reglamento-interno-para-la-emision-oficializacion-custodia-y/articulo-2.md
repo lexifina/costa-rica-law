@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación.
+Las disposiciones del presente reglamento son aplicables a la gestión de actas de las sesiones ordinarias y extraordinarias del Directorio Legislativo, celebradas de forma presencial, virtual o mixta, y a toda documentación asociada a estas, incluyendo las convocatorias, orden del día, anexos, grabaciones, respaldos, certificaciones y expedientes de sesión de conformidad con lo dispuesto en el artículo 49 y siguientes de la Ley General de la Administración Pública, N° 6227, del 2 de mayo de 1978.
