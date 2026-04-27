@@ -1,0 +1,1 @@
+Artículo 9. Gestión electrónica de los informes. La información requerida para la elaboración de los informes de gestión podrá ser obtenida de las herramientas tecnológicas con las que disponga el Poder Judicial, así como, por cualquier otro medio de registro y control que permita brindar seguimiento y supervisión del trabajo.

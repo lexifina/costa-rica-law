@@ -1,0 +1,1 @@
+Artículo 21. Acciones que corresponde realizar a la Auditoría Judicial. La Auditoría Judicial será responsable de verificar que los jerarcas y los titulares subordinados del Poder Judicial observen cuando proceda- las regulaciones emitidas por la Contraloría General de la República referentes a los informes de gestión, así como lo regulado en el presente Reglamento.

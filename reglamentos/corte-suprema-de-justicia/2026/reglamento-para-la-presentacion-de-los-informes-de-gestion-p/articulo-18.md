@@ -1,0 +1,10 @@
+Artículo 18. Deberes y responsabilidades de la Dirección de Gestión Humana. La Dirección de Gestión Humana deberá:
+a) Prevenir por escrito a los jerarcas o titulares subordinados -antes de que dejen su cargo- sobre la obligación de cumplir con lo indicado en el presente Reglamento en cuanto a la presentación del Informe de Fin de Gestión. Dicha prevención se deberá comunicar, en la medida de lo posible, un mes antes de que dejen el cargo, con copia a su jefatura inmediata, para lo de su competencia.
+b) Coordinar con el Departamento de Prensa y Comunicación Organizacional la realización periódica de campañas informativas, sobre las obligaciones y responsabilidades que tienen las personas servidoras judiciales en la rendición de los informes de fin de gestión, abreviado de gestión y sucinto de gestión.
+c) Resguardar los informes de fin de gestión, así como los formularios de revisión de fin de gestión remitidos por las jefaturas.
+d) Ingresar en el expediente electrónico personal, el informe de fin de gestión.
+e) Mantener disponibles en la página web de la Dirección de Gestión Humana, las copias de los informes de fin de gestión que reciba, para efectos de consultas de los ciudadanos interesados, así como de cualquier órgano de control externo o interno.
+f) Mantener un registro actualizado de los jerarcas y titulares subordinados que al final de su gestión cumplieron o no con la presentación del informe final de gestión, el cual debe estar a disposición para consulta de quien lo requiera.
+g) Deberá tener disponible en la página web de la Dirección de Gestión Humana los formularios de revisión de informes de gestión.
+h) Coordinar con el Departamento de Prensa y Comunicación la divulgación al personal judicial, sobre la obligación de presentar los informes de gestión y otros aspectos relevantes relacionados con los procesos de entrega, análisis, custodia y seguimiento de éstos.
+i) Llevar un registro de las comunicaciones generadas por las jefaturas, donde informan sobre el cumplimiento o incumplimiento de la persona servidora judicial obligada a presentar el informe de fin de gestión.

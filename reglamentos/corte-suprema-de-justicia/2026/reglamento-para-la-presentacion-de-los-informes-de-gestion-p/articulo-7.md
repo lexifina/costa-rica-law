@@ -1,0 +1,8 @@
+Artículo 7. Contenido del informe Abreviado de Gestión. El informe Abreviado debe presentarse mediante oficio y deberá contener al menos, la siguiente información:
+a) Nombre y apellidos de la persona obligada a presentar el informe, número de cédula de identidad, número de plaza y clase de puesto que ocupa, oficina en la que se desempeña y el período que cubre el informe.
+b) El estado en que se encuentran las labores sujetas a su responsabilidad. La mención se realizará mediante datos gruesos que consignen la cantidad de asuntos pendientes, con su respectiva individualización por número de expediente, número de referencia o de gestión, a fin de que a la persona sucesora le sea fácil ubicar los asuntos pendientes para que las gestiones no se retrasen. No se debe incorporar contenidos jurisdiccionales, criterios decisorios o estratégicos, asuntos relativos a la persecución penal o de defensa técnica, que puedan poner en riesgo una investigación, proceso o procedimiento, respetando la independencia funcional, la sana crítica racional y el criterio técnico profesional, según sea el caso.
+c) Los asuntos importantes por vencer, así como cualquier otra gestión que considere relevante.
+d) El estado de cumplimiento de los proyectos de mejora continua, compromisos de desempeño y gestiones pendientes bajo su responsabilidad.
+e) El estado actual de cumplimiento de las recomendaciones que durante su gestión hubiera formulado la Auditoría Interna o la Contraloría General de la República.
+f) Listado de los activos a su nombre, el estado en que se encuentran y la devolución respectiva.
+g) Detalle sobre las gestiones de conflictos de interés presentadas, para seguimiento y conocimiento de la persona sucesora, en los casos que corresponda.
