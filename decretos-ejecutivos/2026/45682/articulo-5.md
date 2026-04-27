@@ -1,0 +1,2 @@
+Articulo 5° .- Modifíquese el artículo 3º del Decreto Ejecutivo N.° 45082-H, denominado "Clasificador por Objeto del Gasto del Sector Público" publicado en el Alcance Digital N° 86 a La Gaceta N.°128 del 11 de julio de 2025, para que se lea:
+Artículo 3º .- El "Clasificador por Objeto de Gasto del Sector Público" se implementará para la formulación de los Presupuestos Ordinarios del Ejercicio Presupuestario del 2028.
