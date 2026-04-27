@@ -1,0 +1,1 @@
+Artículo 3º-Se deroga el inciso d) del artículo 2 y el artículo 26 del Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su Robo, Hurto y Receptación, Decreto Ejecutivo Nº 37918-MAG-S-SP-MOPT del 08 de julio de 2013.
