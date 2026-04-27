@@ -1,0 +1,1 @@
+Artículo 14. -Servicio de vigilancia obligatorio. Bajo ningún concepto se permitirá la existencia de estos dispositivos de acceso, sin que exista a su vez el servicio de vigilancia que lo manipule; siempre respetando el derecho al libre tránsito, y en caso de violentarse estas condiciones, la Municipalidad revocará el permiso respectivo.

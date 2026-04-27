@@ -1,0 +1,1 @@
+Artículo 7º-Instalación de dispositivos. La instalación de cualquier dispositivo o mecanismo de seguridad deberá instalarse conforme a las disposiciones técnicas y reglamentarias dispuestas por la ley 7600, su reglamento y normativa conexa.

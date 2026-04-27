@@ -1,0 +1,1 @@
+Artículo 22. -Verificación del cumplimiento de las medidas correctivas. Cuando el acuerdo municipal ordene la adopción de medidas correctivas por parte de la organización o comité vecinal involucrado, concederá el plazo de treinta (30) días naturales para que sean ejecutadas y corresponderá a la misma comisión que dictaminó, verificar el cumplimiento e informarlo al Concejo.
