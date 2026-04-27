@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Disposiciones transitorias
+TRANSITORIO I - Traslado del personal. Durante la implementación de la estructura organizativa basada en procesos integrados, todos los funcionarios que, a la fecha de publicación del presente Decreto, se encuentren laborando en la Dirección General de Hacienda serán reubicados en los nuevos procesos conforme a sus habilidades, destrezas, aptitudes y experiencia. El traslado no podrá implicar disminución salarial ni afectación de derechos adquiridos y deberá ejecutarse respetando los principios de legalidad, equidad, transparencia, eficiencia y continuidad del servicio público.
+La Dirección General será responsable de coordinar y ejecutar este proceso de transición, velando por su realización de manera ordenada, técnica y respetuosa de los derechos laborales, promoviendo una adecuada alineación entre el talento humano y los objetivos estratégicos del macroproceso hacendario.

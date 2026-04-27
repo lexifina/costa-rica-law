@@ -1,0 +1,10 @@
+Artículo 18. Funciones del Departamento de Validación de Actos. Son funciones de este Departamento las siguientes:
+a. Brindar el apoyo técnico y jurídico a través de solicitudes de información y/o certificación de expedientes por parte de la Procuraduría General de la República, o cualquier otro ente, de las gestiones bajo su custodia.
+b. Coordinar con los responsables de Prensa del Despacho del Ministro, el suministro de información en materia de gestión hacendaria a los medios de comunicación.
+c. Preparar y desarrollar estrategias e instrumentos para la comunicación y difusión de cambios normativos y reglamentarios, aspectos doctrinarios, jurisprudencia administrativa y judicial, de relevancia según la gestión hacendaria.
+d. Tramitar recursos e impugnaciones, así como las solicitudes de aclaración y adición sobre las actuaciones en materia de solicitudes de incobrabilidades, condonaciones y dación en pago.
+e. Atender y dar respuesta a las consultas legales y técnicas que se presenten en materia de su competencia, asegurando la correcta interpretación, integración y aplicación, así como promover la emisión de criterios técnicos que respalden la toma de decisiones.
+f. Atender las consultas que se presenten, con base en el artículo 119 del Código de Normas y Procedimientos Tributarios, en el ámbito de su competencia.
+g. Establecer los criterios de admisibilidad para la recepción y tramitación de los expedientes producto de las gestiones de incobrabilidad, condonaciones y daciones en pago y que se gestionen para la aprobación final de la DGH.
+h. Gestionar las resoluciones de incobrabilidad provenientes de la Dirección General de Tributación para la firma de del Director General.
+i. Recibir, analizar y tramitar las solicitudes de Dación en Pago, verificando el cumplimiento de los requisitos legales aplicables, así como elaborar el informe técnico-jurídico correspondiente que contenga la recomendación sobre la procedencia de aceptar la Dación en Pago propuesta. Dicho informe deberá ser remitido para la revisión y firma del Director General de Hacienda
