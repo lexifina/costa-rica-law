@@ -1,0 +1,1 @@
+ARTÍCULO 4- Administración de los recursos conforme de Principio de Unidad de Caja El Prestatario administrará los recursos de los contratos de préstamo de conformidad con el Principio de Unidad de Caja, en lo que corresponda.
