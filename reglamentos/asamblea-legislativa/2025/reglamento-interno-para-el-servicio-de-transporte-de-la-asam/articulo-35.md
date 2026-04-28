@@ -1,18 +1,18 @@
 CAPÍTULO VIII
 SUPLENCIA DE OPERADORES DE EQUIPÓ MOVIL
-ARTÍCULO 35.- Choferes suplentes. La administración podrá optar por la suplencia de los operadores de equipo móvil para fortalecer el servicio de transporte de giras, servicios cortos y otros, bajo las siguientes condiciones:
-a) Choferes suplentes son funcionarios en propiedad que laboran para la Asamblea Legislativa en distintos puestos y departamentos, quienes tienen la opción de prestar el servicio de conducir la flotilla Institucional, administrada por en el Área de Transportes, fuera de su horario habitual y ordinario.
-b) Se establece una cantidad de choferes suplentes igual a la mitad de los operadores regulares.
-c) La suplencia radica en sustituir la ausencia, incapacidad, vacaciones, permisos, disfrute de días libres, por caso fortuito o fuerza mayor a los operadores o choferes de equipo móvil que operan la flotilla Institucional.
+Artículo 35.- Choferes suplentes. La Administración podrá optar por la suplencia de los operadores de equipo móvil para fortalecer el servicio de transporte de giras, servicios cortos y otros, bajo las siguientes condiciones:
+a) Choferes suplentes son personas funcionarias de la Asamblea Legislativa de distintos puestos y departamentos, quienes tienen la opción de prestar el servicio de conducir la flotilla institucional, administrada por el Área de Transportes. Incluye al chofer de la Presidencia, según el inciso b) del artículo 4 bis del presente Reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria No. 176-2026 del 28 de abril del 2026)
+b) Se establece una cantidad de choferes suplentes igual a la mitad de los operadores regulares, dentro de los que se contempla el chofer de la Presidencia, según el inciso b) del artículo 4 bis del presente Reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria No. 176-2026 del 28 de abril del 2026)
+c) La suplencia radica en sustituir la ausencia, incapacidad, vacaciones, permisos, disfrute de días libres, por caso fortuito o fuerza mayor a los operadores o choferes de equipo móvil que operan la flotilla institucional; salvo el chofer de la Presidencia, según inciso b) del artículo 4 bis del presente Reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria No. 176-2026 del 28 de abril del 2026)
 d) Las personas funcionarias interesadas en formar parte del registro de choferes suplentes deben hacer la solicitud formal ante la Gerencia General para su aprobación o rechazo, e inscribirlo en el registro de operadores del Sistema Informático.
 En la mayoría de los casos la suplencia es para la atención y realización de giras, por lo tanto, lo interesados deben ser conscientes que la prestación de ese servicio es normalmente en zonas rurales, horarios extensivos y con la responsabilidad de llevar en sus manos la integridad física de la persona funcionaria y representantes públicos.
 e) La suplencia de los funcionarios autorizados como choferes suplentes no podrán ejercerse en su horario o jornada ordinaria de trabajo, ni afectar el desempeño de las labores que realiza en el departamento u oficina donde esta nombrado.
 f) Por la naturaleza del servicio y por Control Interno, los choferes suplentes pasan a las órdenes, regulaciones, responsabilidades, control y directrices de la Jefatura del Área de Transportes, como superior jerárquico durante el inicio y finalización de la prestación del servicio de transporte.
-g) Los requisitos para ser choferes suplentes son, los mismos que para optar por un puesto de chofer regular:
-a) Ser funcionario legislativo.
-b) Los requisitos que indique el Manual de Clases Administrativas de la Asamblea Legislativa para esta categoría.
-c) Cédula de identidad al día. Publíquese. Acuerdo Firme.
-(Así reformado el inciso g) anterior mediante sesión ordinaria N° 157-2025 del 5 de noviembre del 2025)
+g) Los requisitos para ser choferes suplentes son los mismos que para optar por un puesto de chofer regular.
+(Así reformado el inciso anterior mediante sesión ordinaria No. 176-2026 del 28 de abril del 2026)
 h) Comprometerse a guardar la discrecionalidad, las normas de buena conducta y respeto durante el ejercicio de la suplencia. Entender que durante la prestación del servicio de transportes no puede pretender dejar de prestar el servicio por una decisión personal o unilateral.
 i) Durante la suplencia no se podrá conducir en estado de ebriedad, drogas o fármacos que alteren y pongan en riesgo su integridad y la de los pasajeros durante la prestación del servicio.
 j) La Administración asignará a los choferes suplentes:

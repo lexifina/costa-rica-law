@@ -15,3 +15,4 @@ Reglamento interno para el servicio de transporte de la Asamblea Legislativa de 
 | --- | --- | --- |
 | 1 | 2025-07-11 | la propia norma |
 | 2 | 2025-11-05 | Reglamento 157 (2025-11-05) |
+| 3 | 2026-04-28 | Reglamento 176 (2026-04-28) |
