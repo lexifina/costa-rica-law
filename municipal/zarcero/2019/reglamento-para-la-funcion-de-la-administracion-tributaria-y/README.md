@@ -16,3 +16,4 @@ Reglamento para la función de la administración tributaria y el procedimiento 
 | 1 | 2019-12-03 | la propia norma |
 | 2 | 2020-06-08 | Reglamento municipal 6 (2020-06-08) |
 | 3 | 2020-10-01 | Reglamento municipal 16 (2020-10-01) |
+| 4 | 2026-04-28 | Reglamento municipal 0 (2026-04-28) |

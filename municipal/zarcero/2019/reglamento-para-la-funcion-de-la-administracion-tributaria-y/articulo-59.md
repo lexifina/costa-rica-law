@@ -1,0 +1,2 @@
+Artículo 59.- Cada dos años, el Departamento de Gestión de Cobros deberá realizar seguimiento de las cuentas declaradas incobrables o exiguas, si se detecta que la deuda podrá ser recuperada por la Municipalidad, se podrá emitir un nuevo estudio y una nueva resolución para reactivarla, siguiendo el mismo procedimiento descrito en este Reglamento para declararla en su oportunidad.
+(Así adicionado mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)

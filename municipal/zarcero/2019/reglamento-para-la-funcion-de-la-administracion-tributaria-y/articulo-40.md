@@ -1,4 +1,5 @@
-Artículo 40—Prohibiciones. Se prohíbe a los profesionales en derecho contratados, internos y externos incurrir en lo siguiente:
-a)Realizar ningún tipo de arreglo de pago con el sujeto pasivo.
-b)Solicitar por concepto de sus honorarios profesionales una suma mayor, mi menor a la estipulada en la Tabla de Honorarios.
-c)Aceptar realizar acciones judiciales o administrativas contra la Municipalidad.
+Artículo 40-Prohibiciones. Se prohíbe a los profesionales en derecho contratados, internos y externos incurrir en lo siguiente:
+a) Realizar arreglos de pago administrativos con el sujeto pasivo, siendo que los mismos le corresponden al Departamento de Cobro de la Municipalidad. Se exceptúa de esta prohibición, la facultad que tienen para acordar con el sujeto pasivo, que se retomen los arreglos de pago realizados con anterioridad en el Departamento de Gestión de Cobro y colaborar en el seguimiento al mismo. También se exceptúan los arreglos de pago que se realicen cuando el sujeto pasivo se encuentra en la vía judicial con la finalidad de suspender un remate, de acuerdo a lo señalado en el artículo 41 de este cuerpo normativo.
+b) Solicitar por concepto de sus honorarios profesionales una suma mayor, mi menor a la estipulada en la Tabla de Honorarios.
+c) Aceptar realizar acciones judiciales o administrativas contra la Municipalidad.
+(Así reformado mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)

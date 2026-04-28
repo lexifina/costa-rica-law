@@ -1,2 +1,5 @@
-Disposiciones finales
-Artículo 53—Derogaciones. Este Reglamento deroga cualquier otra disposición administrativa o reglamentaria que se contraponga a lo aquí regulado.
+CAPITULO VI
+INCOBRABILIDAD
+(Así adicionado el capítulo anterior mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)
+Artículo 53.- De conformidad con el Código de Normas y Procedimientos Tributarios, la Administración Tributaria de la Municipalidad de Zarcero está facultada para emitir una resolución administrativa con carácter general para disponer el archivo de deudas tributarias en gestión administrativa o judicial, las cuales en razón de su bajo monto o incobrabilidad no impliquen créditos de cierta, oportuna o económica concreción y generen más perjuicio a la Municipalidad y a sus recursos por el costo beneficio de recuperarlas, siendo que puede resultar más oneroso el intento de recuperación que su declaratoria. Decretado el archivo por incobrabilidad, en caso de pago voluntario o cuando se ubiquen bienes suficientes del deudor sobre los cuales se pueda hacer efectivo el cobro, se emitirá una resolución de la Dirección Tributaria que revalidará la deuda, esto porque la declaratoria de exiguo o incobrable no significa la eliminación de la deuda, por lo que bien podría ser cancelada por el deudor.
+(Así adicionado mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)

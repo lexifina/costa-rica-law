@@ -1,0 +1,3 @@
+Disposiciones finales
+Artículo 60.- Los funcionarios responsables de llevar a cabo la gestión de cobro administrativo y judicial, deberán inhibirse de atender asuntos de cobros cuando existan grados de parentesco por consanguinidad o afinidad hasta segundo grado y deben de comunicarlo por escrito a su superior jerárquico. En este sentido aplican las normas de responsabilidad de la Ley General de la Administración Pública y la normativa nacional aplicable a impedimentos, recusaciones y excusas.
+(Así adicionado mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)

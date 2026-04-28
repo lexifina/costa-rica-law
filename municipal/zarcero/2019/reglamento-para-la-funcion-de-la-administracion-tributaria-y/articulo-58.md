@@ -1,0 +1,2 @@
+Artículo 58.- La resolución debidamente aprobada por la Alcaldía Municipal que declare la incobrabilidad o lo exiguo de una deuda será comunicada por la Dirección Tributaria a los Departamentos de Gestión de Cobros, Planificación, Presupuesto, Contabilidad y la Dirección Administrativa Financiera por control interno y para que procedan con lo correspondiente.
+(Así adicionado mediante publicación en el Alcance Digital N° 65 a La Gaceta N° 98 del 29 de mayo del 2026)
