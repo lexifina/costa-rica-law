@@ -1,1 +1,1 @@
-Artículo 10.—Los recursos económicos dispuestos en el presupuesto municipal para el programa de transferencia monetaria condicionada, no podrán ser transferidos ni asignados a actividades o propósitos distintos a los establecidos en este reglamento, salvo situaciones excepcionales debidamente justificadas por la Administración Municipal y aprobadas por el Concejo Municipal.
+No se ha encontrado el texto del artículo
