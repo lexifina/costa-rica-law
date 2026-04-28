@@ -9,8 +9,8 @@ c. Conocer de las propuestas de inversión elaboradas por los Comités de Camino
 d. Presentar en los meses de enero un informe anual de rendición de cuentas tanto al Consejo Municipal, el cual deberá publicitar de forma íntegra o extractada y en el mismos mes, por cualquier medio de comunicación colectiva local o nacional.
 (Así reformado el inciso anterior mediante sesión N° 017-2020 del 25 de agosto del 2020)
 e. Velar por la actualización del Inventario de la Red Vial Cantonal.
-f. Velar porque las actividades de la Unidad Técnica de Gestión Vial Municipal, esté a cargo de un Ingeniero Civil, incorporado al CFIA (Colegio Federado de Ingenieros y Arquitectos) y sean desarrolladas y supervisadas por profesionales competentes e idóneos con la formación técnica y el perfil profesional adecuado, acorde y a fin a las labores que ejecuta la Unidad Técnica.
-(Así reformado el inciso anterior mediante sesión N° 017-2020 del 25 de agosto del 2020)
+f. Velar porque las actividades de la Unidad Técnica de Gestión Vial Municipal, estén a cargo de un profesional que cumpla los requisitos establecidos en el Manual Descriptivo de Clases y Puestos de la Municipalidad de Poás, para el puesto de Coordinador(a) de la Unidad de Gestión Vial, y sean desarrolladas y supervisadas por profesionales competentes e idóneos con la formación técnica y el perfil profesional adecuado, acorde y afín a las labores que ejecuta la Unidad Técnica Vial.
+(Así reformado el inciso anterior mediante sesión N° 151 del 28 de abril de 2026)
 g. Velar por la implementación de los componentes de Seguridad Vial en los Planes de Conservación y Desarrollo Vial del cantón con la asesoría del Concejo Local de Seguridad Vial -COLOSEVI-.
 h. Velar por la implementación de los componentes de Seguridad Vial en los Planes de Conservación y Desarrollo Vial del cantón.
 (Así reformado el inciso anterior mediante sesión N° 017-2020 del 25 de agosto del 2020)
