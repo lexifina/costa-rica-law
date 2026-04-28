@@ -20,3 +20,4 @@ Reglamento para ausencias de los señores Diputados
 | 5 | 2022-03-15 | Reglamento 198 (2022-03-15) |
 | 6 | 2024-09-18 | Reglamento 111 (2024-09-18) |
 | 7 | 2025-09-10 | Reglamento 149 (2025-09-10) |
+| 8 | 2026-04-28 | Reglamento 176 (2026-04-28) |

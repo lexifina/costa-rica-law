@@ -1,3 +1,6 @@
 Artículo 4°- La solicitud de permisos para viajes al exterior, en razón de las funciones propias del cargo, deberá contener una justificación amplia y clara de cómo la participación satisface el interés público, todo conforme al deber de probidad.
 Deberá indicarse el objetivo del viaje y su relación con la actividad parlamentaria, así como la explicación de la naturaleza jurídica de la entidad que auspicia o la patrocina y quién cubre los gastos de viaje, señalados en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República; así como cualquier otra información adicional que se considere vital para justificar las ausencias y la solicitud correspondiente.
-Este permiso de ausencia por motivos de viaje al exterior, deberá ser aprobado por el Directorio Legislativo.
+El permiso para ausentarse por motivos de viaje al exterior, para atender asuntos propios del cargo deberá ser aprobado por el Directorio Legislativo.
+(Así reformado el párrafo anterior en sesión N° 176 del 28 de abril de 2026)
+Los permisos para atender asuntos personales en el exterior, o bien los eventos que califiquen como caso fortuito o de fuerza mayor fuera de nuestras fronteras, deberán ser aprobados por el Presidente de la Asamblea Legislativa. El plazo máximo de estos permisos será tres días al mes por cada diputado o diputada.
+(Así adicionado el párrafo anterior en sesión N° 176 del 28 de abril de 2026)

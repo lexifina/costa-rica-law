@@ -1,0 +1,2 @@
+Artículo 11.-Cuando el órgano legislativo no hubiese podido sesionar por falta de cuórum, el legislador o legisladora ausente por motivo de pandemia o riesgo sanitario declarada por la autoridad de salud competente, deberá presentar la incapacidad u orden sanitaria respectiva para la justificación de las ausencias, de lo contrario se rebajará la dieta correspondiente.
+(Así adicionado en sesión N° 176 del 28 de abril de 2026)

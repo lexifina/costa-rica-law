@@ -1,2 +1,3 @@
-Artículo 6°- La solicitud de justificación, en la que se indicarán los motivos de la ausencia, deberá presentarse por escrito ante la Presidencia, a más tardar, dentro de los cinco días hábiles después de realizada la sesión correspondiente.
-Si por razón de fuerza mayor, la petición se presenta fuera de ese plazo, la Presidencia podrá recibirla, sin perjuicio de lo establecido en el artículo 1° de este Reglamento.
+Artículo 6°-La solicitud de justificación, en la que se indicarán los motivos de la ausencia, deberá presentarse por escrito ante la Presidencia, a más tardar, dentro de los dos días hábiles después de realizada la sesión correspondiente.
+Si la petición fuera presentada fuera de ese plazo, la Presidencia podrá recibirla, sin perjuicio de lo establecido en el artículo 1° de este Reglamento. Cuando esta justificación sea presentada posterior al mes en que se concretó la ausencia, el monto remunerado por concepto de la dieta podrá ser reintegrado en la planilla del mes siguiente.
+(Así reformado en sesión N° 176 del 28 de abril de 2026)
