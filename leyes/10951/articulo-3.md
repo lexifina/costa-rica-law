@@ -1,0 +1,2 @@
+ARTÍCULO 3- Incorporación de Recursos en el presupuesto ordinario y extraordinario de la República
+Se autoriza al Poder Ejecutivo para que, mediante Decreto Ejecutivo, realice las modificaciones presupuestarias necesarias para sustituir los ingresos de fuentes de financiamiento internas por los recursos autorizados en esta ley, para financiar los rubros señalados en el artículo 2, sin que pueda modificarse el destino de los ingresos sustituidos aprobados en la ley de presupuesto respectiva.
