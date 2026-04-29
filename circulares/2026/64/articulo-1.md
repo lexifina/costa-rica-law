@@ -1,0 +1,8 @@
+CIRCULAR No. 64-2026
+Asunto: Recordatorio al personal involucrado en la gestión de proyectos estratégicos, respecto al cumplimiento de las funciones que exigen los roles desempeñados como parte de esta labor.
+A TODO EL PERSONAL INVOLUCRADO EN LA GESTIÓN DE PROYECTOS ESTRATÉGICOS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión número 23 2026 celebrada el 24 de marzo de 2026, artículo XXV, tuvo por conocido el informe 444-26-IAO-SAO-2026 referente a la "Evaluación operativa de la administración del portafolio de proyectos estratégicos institucionales a cargo de la Dirección de Planificación", efectuada por la Sección Auditoría Operativa, ante lo cual dispuso hacer un recordatorio al personal involucrado en la gestión de proyectos estratégicos, respecto al cumplimiento de las funciones que exigen los roles desempeñados como parte de esa labor, definidos en la metodología respectiva; con la finalidad de asegurar de manera razonable la completitud, calidad y oportunidad de la información consignada como base para la trazabilidad y toma de decisiones; mismos que están contenidos en el Informe de Auditoría para el mejoramiento del sistema de control interno de la administración del portafolio de proyectos estratégicos institucionales a cargo de la Dirección de Planificación, resultado 3.3; el cual puede ser consultado mediante el siguiente link:
+https://secretariacorte.preproduccion/index.php/informacion-general/documentos-interes?download=53750:informe-final-eval-operat-admin-portafolio-proyectos-estrategicos
+Publíquese una vez en el Boletín Judicial."
+San José, 29 de abril de 2026.
