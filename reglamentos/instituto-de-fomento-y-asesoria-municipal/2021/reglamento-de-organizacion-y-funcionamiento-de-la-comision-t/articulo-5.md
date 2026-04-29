@@ -1,1 +1,1 @@
-Artículo 5º-La persona encargada de la Asesoría Jurídica brindará criterio con carácter no vinculante a la Comisión Técnica, para lo cual deberá asistir a las sesiones que se convoquen al efecto. Lo anterior sin detrimento de que la persona titular de la Dirección Ejecutiva determine, conforme con su criterio, designar otra persona con competencia para la asesoría legal.
+Artículo 5º-(Derogado en sesión N° 20 del 29 de abril de 2026)

@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Comisión Técnica del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-14 | la propia norma |
+| 2 | 2026-04-29 | Reglamento 20 (2026-04-29) |

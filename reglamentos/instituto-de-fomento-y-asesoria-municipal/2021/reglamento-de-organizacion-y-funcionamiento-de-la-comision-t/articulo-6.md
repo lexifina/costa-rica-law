@@ -1,1 +1,1 @@
-Artículo 6º-En caso de que la persona encargada de la Asesoría Jurídica no pueda asistir a las sesiones de Comisión Técnica, ésta designará a quien le sustituya temporalmente con el fin de que la asesoría sea brindada oportunamente. Si la persona encargada de la Asesoría Jurídica no pudiera designar alguien para que le sustituya, la persona titular de la Dirección Ejecutiva podrá definirlo.
+Artículo 6º-(Derogado en sesión N° 20 del 29 de abril de 2026)
