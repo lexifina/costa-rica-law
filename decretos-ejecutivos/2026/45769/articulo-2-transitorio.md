@@ -1,0 +1,1 @@
+Transitorio II: Para las frecuencias de 225 MHz a 288 MHz para redes de comunicación de banda angosta en tecnología digital, los títulos habilitantes que hayan sido otorgados antes de la fecha de emisión del presente Decreto Ejecutivo podrán continuar siendo explotados bajo las condiciones técnicas y el plazo establecidos en los mismos.

@@ -1,0 +1,2 @@
+Transitorio III: Para los segmentos de frecuencias de 420 MHz a 422 MHz; de 425 MHz a 427 MHz; de 450 MHz a 451 MHz y de 455 MHz a 456 MHz para redes del servicio fijo, utilizados para sistemas de radioenlaces punto a punto de redes de radiodifusión para las emisiones sonoras en AM, los títulos habilitantes que hayan sido otorgados antes de la fecha de emisión del presente Decreto Ejecutivo podrán continuar siendo explotados bajo las condiciones técnicas y el plazo establecidos en los mismos.
+(.)"

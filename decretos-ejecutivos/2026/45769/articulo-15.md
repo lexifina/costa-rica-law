@@ -1,0 +1,2 @@
+Artículo 15. Se establecen las siguientes disposiciones transitorias al presente Decreto Ejecutivo, orientadas a garantizar una implementación gradual y técnicamente viable, que permita la continuidad de los servicios existentes, la seguridad jurídica de los Acuerdos Ejecutivos vigentes y la adecuada adaptación de los usuarios a las nuevas condiciones regulatorias, evitando afectaciones abruptas en la prestación de los servicios de radiocomunicaciones.
+"(.)
