@@ -10,7 +10,7 @@ h) Domicilio de la persona a quien se prescribe en Costa Rica.
 i) Edad en años cumplidos de la persona a quien se prescribe.
 j) En todos los casos es necesario anotar el peso.
 k) Nombre del principio activo, dosis del medicamento y vía de administración.
-l) Diagnóstico clínico confirmado o presuntivo que justifica la indicación del medicamento antimicrobiano sistémico.
-m) Fecha y resultado de frotis y/o cultivo, cuando sea necesario llevar a cabo este procedimiento.
-n) Alergias medicamentosas.
+l) (Anulado mediante resolución de la Sala Constitucional N° 015323 del 29 de abril de 2026)
+m) (Anulado mediante resolución de la Sala Constitucional N° 015323 del 29 de abril de 2026)
+n) (Anulado mediante resolución de la Sala Constitucional N° 015323 del 29 de abril de 2026)
 o) Observaciones (permitirá al profesional que prescribe como al profesional que dispensa hacer aclaraciones, pero no modificaciones).

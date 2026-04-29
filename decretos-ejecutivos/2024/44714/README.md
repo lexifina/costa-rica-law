@@ -14,3 +14,4 @@ Reglamento de utilización y funcionamiento del sistema de receta digital y otro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-09 | la propia norma |
+| 2 | 2026-04-29 | SINALEVI (sin norma nombrada) |
