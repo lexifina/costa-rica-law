@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el inciso c) del artículo 6°, y los artículos 9° y 10 del Decreto Ejecutivo N° 35991-MINAET del 19 de enero de 2010, "Reglamento de Organización del Subsector Energía". Asimismo, deróguese el Decreto Ejecutivo N° 43398-MINAE del 24 de enero del 2022, Declaratoria de interés público y elaboración del balance energético nacional.

@@ -1,0 +1,29 @@
+N° 45747-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades y atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; artículo 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; artículos 1° y 4° de la Ley N° 10086 del 8 de diciembre de 2021, Ley de Promoción y Regulación de Recursos Energéticos Distribuidos a partir de Fuentes Renovables; artículos 1°, 2°, 4°, 5°, 49, 56, 57, 59, 60, 62 y 63 de la Ley Orgánica del Ambiente, Ley N° 7554 del 4 de octubre de 1995; artículo 4° de la Ley Orgánica del Ministerio de Ambiente y Energía, Ley N° 7152 del 5 de junio de 1990, el artículo 49 del Decreto Ejecutivo N° 35669-MINAET del 04 de diciembre del 2009, Reglamento Orgánico del Ministerio de Ambiente y Energía y el Decreto Ejecutivo N° 43398-MINAE del 24 de enero del 2022, Declaratoria de interés público y elaboración del balance energético nacional.
+Considerando:
+I.-Que el Poder Ejecutivo entiende que la estructura orgánica del Ministerio de Ambiente y Energía (MINAE) es de gran relevancia para su eficiente y eficaz gestión administrativa.
+II.-Que, la Ley Orgánica del Ministerio de Ambiente y Energía, Ley N° 7152 del 05 de junio de 1990, en su artículo 4° indica que el MINAE estará integrado por la Dirección de Energía, la Dirección de Geología y Minas, la Dirección General Forestal, el Departamento de Vida Silvestre que, en virtud de esta ley, pasa a ser la Dirección General, y el Servicio de Parques Nacionales; asimismo, tendrá adscrito el Instituto Meteorológico Nacional, con jerarquía de Dirección General.
+III.-Que, con el objetivo de fortalecer la gestión y el alcance de las funciones en materia de energía dentro del país, se ha considerado necesario adicionar los incisos g), h), i) y j) del artículo 49 del Decreto Ejecutivo N° 35669-MINAET del 04 de diciembre del 2009, Reglamento Orgánico del Ministerio de Ambiente y Energía. Esta adición se fundamenta en la necesidad de reestructurar las competencias de la Dirección de Energía para lograr una mayor eficiencia en la administración y seguimiento de temas energéticos de relevancia nacional e internacional.
+IV.-Que mediante el Decreto Ejecutivo N° 35991-MINAET del 19 de enero de 2010, denominado "Reglamento de Organización del Subsector Energía", se crearon la Secretaría de Planificación del Subsector Energía (SEPSE) y el cargo de su Director en los artículos 9° y 10 respectivamente; sin embargo, en la práctica administrativa actual, dichas funciones han sido asumidas de forma efectiva por la Secretaría de Planificación del Sector Ambiente y Energía (SEPLASA). Esta redistribución de competencias deja sin efecto la operatividad de la SEPSE y la aplicación de la normativa que la sustenta, tornando dichas disposiciones inaplicables. Por consiguiente, resulta necesario proceder con la derogación de los artículos 6° inciso c), 9° y 10 del citado reglamento y formalizar la asignación de estas atribuciones en la Secretaría de Planificación Sectorial de Ambiente y Energía (SEPLASA) y en lo correspondiente a la Dirección de Energía, garantizando coherencia normativa y eficiencia administrativa.
+V.-Que de conformidad con el oficio DM-142-2023, del 01 de marzo del 2023, emitido por el Ministro a.í. Ronny Rodríguez Chaves, se estableció que la Dirección de Energía del Ministerio de Ambiente y Energía asumirá los temas: Balance Energético Nacional, Informe Anual para la actualización de los indicadores del Objetivo de Desarrollo Sostenible (ODS), y la representación del país en organismos internacionales, tales como el Sistema de Integración Centroamericana (SICA) y la Agencia Internacional de Energía Renovable (IRENA).
+VI.-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012 y sus reformas "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" se ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio y las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la presente propuesta no contiene trámites ni requisitos que el administrado deba cumplir. Por tanto,
+Decretan:
+"ADICIÓN DE LOS INCISOS G), H), I) Y J) AL ARTÍCULO 49 DEL
+DECRETO EJECUTIVO N° 35669-MINAET DEL 04 DE DICIEMBRE
+DEL 2009, REGLAMENTO ORGÁNICO DEL MINISTERIO DE AMBIENTE
+Y ENERGÍA, DEROGATORIA DE LOS ARTÍCULOS 6° INCISO C), 9 Y 10
+DEL DECRETO EJECUTIVO N° 35991-MINAET DEL 19 DE ENERO DE
+2010, REGLAMENTO DE ORGANIZACIÓN DEL SUBSECTOR ENERGÍA
+Y DEROGATORIA DEL DECRETO EJECUTIVO N° 43398-MINAE DEL
+24 DE ENERO DEL 2022, "DECLARATORIA DE INTERÉS PÚBLICO
+Y ELABORACIÓN DEL BALANCE ENERGÉTICO NACIONAL"
+Artículo 1º-Adiciónense los incisos g), h), i) y j) al artículo 49 del Decreto Ejecutivo N° 35669-MINAET del 04 de diciembre del 2009, "Reglamento Orgánico del Ministerio de Ambiente y Energía" para que en adelante se lea:
+Artículo 49.-De las funciones de la Dirección de Energía.
+[...]
+g) Elaborar el Balance Energético Nacional (BEN), el cual se realizará anualmente.
+h) Coordinar la consolidación de información energética nacional para el reporte ante organismos e instancias nacionales e internacionales, en el plazo y condiciones que los requerimientos técnicos o las disposiciones correspondientes lo justifiquen.
+i) Coordinar la elaboración del Plan Nacional de Energía, el cual será actualizado cada tres años.
+j) Ejercer la representación técnica del país ante organismos y mecanismos de cooperación o integración internacional en materia de energía que el Ministro(a) designe.
+La Dirección de Energía publicará toda la información energética nacional referida en este artículo en su sitio web oficial: www.minae.go.cr/energia/, o el sitio que lo sustituya.
