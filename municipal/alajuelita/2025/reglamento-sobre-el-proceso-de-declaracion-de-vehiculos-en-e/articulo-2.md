@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Este reglamento es aplicable a la Municipalidad de Alajuelita, el Consejo de Seguridad Vial (COSEVI), la Policía Municipal y demás entidades involucradas en el control de vehículos en estado de abandono.

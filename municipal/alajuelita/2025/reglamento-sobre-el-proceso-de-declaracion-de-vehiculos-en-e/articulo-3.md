@@ -1,0 +1,4 @@
+Artículo 3°-Definición de vehículo en estado de abandono. Se considera vehículo en estado de abandono aquel que, cumpla con cualquiera de los siguientes puntos:
+- Permanezca en un mismo sitio por un período mayor de 48 horas sin signos de uso. (En caso de averías, los conductores deben aportar las medidas del caso para que se retire el vehículo en el menor plazo posible, el cual no puede ser superior a las cuarenta y ocho horas, siempre que quede fuera de la calzada y aceras y cumpla los requisitos establecidos en la Ley N° 10.599 y este reglamento.)
+- No posea placas visibles o presentes indicios de deterioro significativo como: falta de motor, transmisión, imposibilidad de movilización mecánica o bien por requisitos de tipo legales, marchamo, revisión técnica y otros.
+- Obstruya la vía pública o represente un riesgo para la seguridad vial, humana, el entorno donde se encuentre, así como la salubridad pública.
