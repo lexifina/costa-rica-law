@@ -14,3 +14,7 @@ ARTICULO 8º.- Dentro de los parques nacionales, queda prohibido a los visitante
 13) Dar de comer o beber a los animales.
 14) Construir líneas de conducción eléctrica o telefónica, acueductos o carreteras o vías férreas.
 15) Realizar cualquier tipo de actividad comercial, agrícola o industrial.
+16) El ingreso a sitios, en que el área silvestre protegida no lo permita de acuerdo con el instrumento técnico de planificación con el que cuente o en sitios autorizados sin cumplir con la normativa vigente. Esta prohibición aplica para los parques nacionales y sitios declarados oficialmente bajo cualquier categoría de manejo.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10861 del 25 de febrero de 2026)
+17) Realizar actividades no autorizadas en el área silvestre protegida, de acuerdo con el instrumento técnico de planificación, ya sea parque nacional o cualquier otra categoría de manejo oficialmente declarada.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10861 del 25 de febrero de 2026)
