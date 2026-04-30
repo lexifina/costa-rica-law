@@ -1,6 +1,6 @@
 # Ley Reguladora de la Propiedad en Condominio
 
-Ley N° 7933 del 1999-10-28. SINALEVI, ficha 31131: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31131&param2=147711&param3=1>.
+Ley N° 7933 del 1999-10-28. SINALEVI, ficha 31131: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31131&param2=150920&param3=1>.
 
 Publicada en La Gaceta N° 229 del 1999-11-25.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2011-10-18 | Ley 8984 | 2011-09-14 |
 | 6 de 8 | 2022-06-28 | Ley 10229 | 2022-05-05 |
 | 7 de 8 | 2025-09-25 | Ley 10746 | 2025-08-26 |
+| 8 de 8 | 2026-04-30 | Ley 10882 | 2026-03-16 |
