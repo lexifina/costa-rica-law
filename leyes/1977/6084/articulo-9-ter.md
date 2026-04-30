@@ -1,0 +1,3 @@
+Artículo 9 ter- En el caso de que el infractor no realice el pago de la multa establecida, el monto adeudado constituirá deuda líquida exigible por parte del Sistema Nacional de Áreas de Conservación y la certificación que emita tendrá el carácter de título ejecutivo válido y suficiente para proceder con el cobro judicial en la vía ejecutiva.
+La denominación de salario base corresponde a lo dispuesto en el artículo 2 de la Ley 7337, del 5 de mayo de 1993, que crea el concepto salario base para delitos especiales del Código Penal.
+(Así adicionado por el artículo 2° de la ley N° 10861 del 25 de febrero de 2026)

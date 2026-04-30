@@ -1,6 +1,6 @@
 # Ley del Servicio de Parques Nacionales
 
-Ley N° 6084 del 1977-08-24. SINALEVI, ficha 8216: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8216&param2=8818&param3=1>.
+Ley N° 6084 del 1977-08-24. SINALEVI, ficha 8216: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8216&param2=150918&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1977-08-24 | Ley 6084 | 1977-08-24 |
 | 2 de 3 | 1998-05-27 | SINALEVI (3 normas) | 1977-08-24 |
+| 3 de 3 | 2026-04-30 | Ley 10861 | 2026-02-25 |
