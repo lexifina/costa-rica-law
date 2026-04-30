@@ -1,1 +1,0 @@
-Artículo 11.-Para cada proyecto de implementación en las diferentes sedes del Ministerio confórmese la URE, con el objetivo de enfrentar de manera efectiva, los diferentes tipos y alcances de una emergencia.
