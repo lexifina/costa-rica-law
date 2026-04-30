@@ -1,0 +1,1 @@
+Artículo 10°-Comisiones de Salud Ocupacional. Cada sede del Ministerio de Seguridad Pública ejecutará su proyecto de implementación del Plan Institucional de Emergencias a través de su propia Comisión de Salud Ocupacional, encargada de liderarlo y desarrollarlo.

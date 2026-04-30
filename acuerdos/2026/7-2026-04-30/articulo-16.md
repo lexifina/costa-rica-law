@@ -1,0 +1,1 @@
+Artículo 16°-Transitorio. El CIE-MSP aprobará, dentro de los seis meses siguientes a la publicación de este acuerdo, el Protocolo de Activación y Funcionamiento del COE-MSP, el cual será validado por la CNE.

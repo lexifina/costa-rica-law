@@ -1,0 +1,2 @@
+Artículo 8°-De la Secretaría del Comité. La Secretaría del Comité estará a cargo de una persona representante del área de Salud Ocupacional, designada por el Viceministerio Administrativo.
+En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el/la Secretario (a) será sustituido (a) por la persona designada como su suplente por parte la persona Coordinadora General.
