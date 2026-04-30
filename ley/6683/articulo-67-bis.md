@@ -1,0 +1,2 @@
+Artículo 67 bis- La Benemérita Biblioteca Miguel Obregón Lizano podrá digitalizar y permitir el acceso al público de las ediciones de periódicos de circulación local o nacional impresos; en los casos en que se tenga, al menos, un año desde su circulación, así como de libros, artículos, fotografías y revistas para los que cuente con la debida autorización de quien detente sus derechos de propiedad intelectual o cuya propiedad haya pasado al dominio público.
+(Así adicionado por el artículo único de la ley N° 10871 del 16 de marzo de 2026)
