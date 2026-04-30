@@ -28,11 +28,11 @@ e) Dirección de Admisibilidad
 f) Direcciones de Defensa
 i) Dirección de la Defensoría de la Mujer
 ii) Dirección de Igualdad y No Discriminación
-iii) Dirección de Calidad de Vida
+iii) Dirección de Calidad de Vida y Derechos del Trabajo
 iv) Dirección de Gobernanza Pública
 v) Dirección de Niñez, Adolescencia y Juventud
 vi) Dirección de Estudios Económicos y Desarrollo
-vii) Dirección de Asuntos Laborales
+(Así reformado el inciso f) anterior mediante acuerdo N° DH-A-2875-2026 del 30 de abril de 2026)
 g) Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes
 (*)h) Dirección de Oficinas Regionales
 a) Dirección de Admisión y Defensa Sumaria
