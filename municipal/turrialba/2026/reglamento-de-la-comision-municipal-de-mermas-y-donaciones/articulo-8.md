@@ -1,0 +1,1 @@
+Artículo 8º-La Comisión mantendrá un registro actualizado de las mermas y, desechos que salgan del inventario municipal, con el fin de garantizar trazabilidad, transparencia y control de los recursos municipales.

@@ -1,0 +1,1 @@
+Artículo 2º-La Comisión estará integrada por regidores(as) municipales y síndicos designados por la presidencia del Concejo Municipal, quienes ejercerán sus funciones conforme a lo establecido en el Código Municipal y en este reglamento. Podrá invitar a funcionarios(as) técnicos o administrativos según la materia a tratar.
