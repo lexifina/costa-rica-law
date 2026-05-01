@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 45458-H de fecha 12 de enero de 2026, publicado en el Alcance número 11 a La Gaceta número 21, de fecha 02 de febrero de 2026, a partir de la vigencia del presente decreto.
