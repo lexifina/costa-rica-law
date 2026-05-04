@@ -1,0 +1,3 @@
+Artículo 5. Objetivo.
+La OPAMDIS tiene como objetivo o fin, velar desde el ámbito local, por una efectiva inclusión, promoción y cumplimiento de los derechos de las personas adultas mayores y de las personas con discapacidad.
+Para cumplir con su objetivo, la OPAMDIS podrá articular y conjugar los fines y las funciones con la Comisión Municipal de Discapacidad y Adulto Mayor (COMUDAM), para cumplir las políticas que la municipalidad acuerde y para maximizar la ejecución de resultados, del presupuesto y del recurso humano asignado. Igualmente, podrá coordinar acciones cantonales en la materia con el Consejo Nacional de Personas con Discapacidad (Conapdis) y el Consejo Nacional de la Persona Adulta Mayor (Conapam).

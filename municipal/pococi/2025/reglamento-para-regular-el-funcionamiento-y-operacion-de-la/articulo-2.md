@@ -1,0 +1,2 @@
+Artículo 2. Alcance
+El presente reglamento tiene como alcance el ámbito territorial bajo tutela del cantón de Pococí. Por lo que las disposiciones de este reglamento son aplicables a la municipalidad de Pococí, la cual deberá de cumplir con los requisitos establecidos en la Ley de Creación de la Oficina de la Persona Adulta Mayor y de Personas en situación de Discapacidad en las Municipalidades, Ley N°. 10046, leyes conexas y de este reglamento.
