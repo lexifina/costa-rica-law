@@ -1,0 +1,7 @@
+Artículo 134. Comunicación del resultado de la investigación. El resultado de la investigación se informará de la siguiente manera:
+1. Cuando se admita, se le podrá informar a la persona denunciante la actuación que se le dará.
+2. Al final de la investigación:
+i. Se informará si resultado de la investigación se realizó un Informe de Control Interno, el cual le será remitido a la persona denunciante si lo solicita, no existe información confidencial ni hay un informe de relación de hechos.
+ii. Si la denuncia origina un informe de Relación de Hechos, únicamente se le informará que la investigación resultó en una investigación preliminar. No se entregará el informe en virtud de la confidencialidad, sino hasta que se resuelva lo que corresponda por la instancia competente y, en ese caso, se deberán revisar los datos sensibles.
+iii. Cuando en las investigaciones se resuelve la presentación de una denuncia penal o la remisión de una relación de hechos; la comunicación a la persona denunciante o solicitante se limitará a indicar el respectivo envío o presentación del informe, sin hacer referencia a ningún elemento específico o valoración efectuada.
+3. Lo resuelto debe ser comunicado a la persona denunciante si hubiese señalado lugar para atender notificaciones; de lo contrario, la CEM elaborará el documento pertinente de conformidad con su regulación interna, para hacer constar los resultados de la investigación y los motivos que imposibilitan su comunicación al denunciante. Dicho documento deberá integrarse en el expediente respectivo.

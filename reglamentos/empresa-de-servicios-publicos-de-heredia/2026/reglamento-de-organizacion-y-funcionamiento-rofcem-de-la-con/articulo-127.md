@@ -1,0 +1,1 @@
+Artículo 127. Información adicional. La CEM podrá solicitar a la persona denunciante, particular, AA u otro sujeto de su ámbito de competencia, las aclaraciones o la información adicional que estime pertinente.

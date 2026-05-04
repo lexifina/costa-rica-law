@@ -1,0 +1,1 @@
+Artículo 36. Disposiciones. Las personas trabajadoras de la CEM estarán sujetas a las disposiciones administrativas aplicables al resto del personal de la ESPH S.A., y la persona CI asumirá como líder de Gestión y Desarrollo Humano de la CEM; en esa condición ejercerá todas las funciones que le son propias en la administración de este recurso.

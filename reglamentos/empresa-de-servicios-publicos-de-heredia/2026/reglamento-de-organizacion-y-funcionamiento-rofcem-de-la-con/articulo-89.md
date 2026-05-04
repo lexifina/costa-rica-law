@@ -1,0 +1,2 @@
+Artículo 89. Revisión de criterios para la evaluación de objetivos y metas. Se requerirán criterios adecuados para fiscalizar controles. Las personas auditoras internas de la CEM verificarán la efectividad con la que la AA ha definido criterios congruentes, para determinar si los objetivos y metas se han cumplido.
+Se utilizarán en la evaluación si son apropiados, pero si no son satisfactorios, las personas auditoras internas de la CEM desarrollarán los criterios de evaluación adecuados. Deberá contemplarse la normativa aplicable en ambos casos.

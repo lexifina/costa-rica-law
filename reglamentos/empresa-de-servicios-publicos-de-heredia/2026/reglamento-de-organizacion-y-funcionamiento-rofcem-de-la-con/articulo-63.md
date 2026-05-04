@@ -1,0 +1,7 @@
+Artículo 63. Actividades de planificación. Se efectuarán las siguientes actividades como parte de la planificación:
+a. Planificación estratégica. Se constituirá una planificación estratégica congruente con el universo auditable actualizado, la valoración del riesgo, los objetivos de la ESPH S.A. y el Plan Estratégico Empresarial. La misión, la visión, el propósito y el compromiso de calidad relativos a la CEM se plasmarán en dicho Plan.
+b. Plan de Trabajo Anual. Será presentado ante la Junta Directiva y la CGR, conforme a los lineamientos establecidos por el Órgano Contralor y consistente con el presupuesto anual.
+c. Presupuesto anual. Se determinará conforme a la planificación estratégica y el plan anual, cuyo contenido incluirá las acciones que se requiere realizar. Podrá agruparse según los servicios que brinda la CEM e incorporarse en el Presupuesto Ordinario (PO).
+d. Valoración como base. El Plan de Trabajo de la CEM se basará en un proceso de valoración del riesgo.
+e. Informes de desempeño. Los informes de desempeño se incluirán en el Plan de Trabajo de la CEM.
+f. Informe acerca de la suficiencia del recurso. La CEM comunicará a la Junta Directiva, mediante el Plan de Trabajo, el informe de desempeño o el informe anual, acerca de la suficiencia o no del recurso humano y otros recursos que dispone la CEM. La Junta Directiva decidirá al respecto y en caso de que no se asignen los recursos solicitados por la CEM, deberán consignarse las razones en el acuerdo.

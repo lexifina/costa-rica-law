@@ -1,0 +1,1 @@
+Artículo 142. Derogatoria. Este Reglamento deroga al Reglamento anterior de la CEM de la ESPH S.A., aprobado en el acuerdo de Junta Directiva JD 147-2024 de la Sesión 4324-C del 22 de julio de 2024, así como cualquier norma de rango igual o inferior que se le oponga.

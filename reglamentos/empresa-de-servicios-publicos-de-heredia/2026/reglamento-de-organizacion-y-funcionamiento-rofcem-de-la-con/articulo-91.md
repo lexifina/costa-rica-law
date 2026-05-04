@@ -1,0 +1,1 @@
+Artículo 91. Cualidades de la información. Las personas auditoras internas de la CEM distinguirán información suficiente, confiable, relevante y útil que posibilite alcanzar los objetivos del trabajo.

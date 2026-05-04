@@ -1,0 +1,1 @@
+Artículo 33. Registro presupuestario separado. Ejecución Presupuestaria deberá mantener un registro separado del monto asignado a la CEM, detallado por objeto del gasto, para que así se controlen la ejecución y las modificaciones de los recursos presupuestarios.

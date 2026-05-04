@@ -1,0 +1,2 @@
+Artículo 113. Registro del control de avance de implantación de acciones. La persona titular subordinada que le concierne la implementación de una o más acciones deberá llevar un registro para controlar el avance de la implementación de acciones y el cumplimiento del plazo establecido.
+La Junta Directiva llevará el control de sus propias acciones y podrá realizarlo dentro del seguimiento de acuerdos respectivo.

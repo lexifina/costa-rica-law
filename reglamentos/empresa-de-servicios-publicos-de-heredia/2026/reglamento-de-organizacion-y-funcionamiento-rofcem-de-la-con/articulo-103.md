@@ -1,0 +1,1 @@
+Artículo 103. Plazo para remitir información adicional a la conferencia. La persona trabajadora de la AA que requiera suministrar información adicional durante la conferencia final, lo comunicará en ese momento y se le concederá un plazo razonable para su entrega. Queda a criterio de la CEM solicitar información que considere necesaria, en el mismo plazo.

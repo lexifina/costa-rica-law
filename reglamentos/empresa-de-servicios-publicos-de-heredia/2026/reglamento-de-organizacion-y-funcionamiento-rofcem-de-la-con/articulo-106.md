@@ -1,0 +1,1 @@
+Artículo 106. Errores, omisiones y correcciones. La CEM notificará si una comunicación contuviese un error u omisión significativa, mediante la corrección hacia todas las partes que recibieron la información original.

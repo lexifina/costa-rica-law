@@ -1,0 +1,2 @@
+Artículo 48. Participación en Comisiones. La persona CI y las personas trabajadoras de la CEM podrán concurrir en comisiones; quedará a criterio de la persona CI el participar o no en ellas. La asistencia debe ser conforme al nivel de asesor que se tiene y según la normativa establecida por la CGR al respecto.
+La persona CI y las personas trabajadoras de la CEM se presentarán a dichas reuniones con voz, pero sin voto, esto por regla y aun cuando no se exprese en dichas comisiones. La participación no es de carácter permanente.

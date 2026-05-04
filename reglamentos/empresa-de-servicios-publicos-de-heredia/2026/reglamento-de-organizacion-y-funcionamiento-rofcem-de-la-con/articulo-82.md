@@ -1,0 +1,1 @@
+Artículo 82. Planificación del trabajo para los servicios a posteriori. Las personas encargadas confeccionarán y registrarán un plan de trabajo que abarque el alcance, los objetivos, la naturaleza, la normativa aplicable, el tiempo y la asignación de recursos.

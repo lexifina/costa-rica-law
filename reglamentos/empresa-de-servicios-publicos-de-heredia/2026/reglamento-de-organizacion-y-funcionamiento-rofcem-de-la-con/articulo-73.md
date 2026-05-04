@@ -1,0 +1,1 @@
+Artículo 73. Informes de auditoría. Los productos derivados de los distintos tipos de auditoría (financiera, operativa, carácter especial) son informes, que dependen de su alcance y normativa aplicable.

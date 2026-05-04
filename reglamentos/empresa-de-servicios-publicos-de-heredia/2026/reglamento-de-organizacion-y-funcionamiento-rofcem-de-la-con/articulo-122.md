@@ -1,0 +1,1 @@
+Artículo 122. Reiteración de recomendaciones. Los Auditores Externos indicarán si incluyen en los informes de recomendaciones de años anteriores que constituyen una reiteración; se debe identificar el número de informe y de recomendación.

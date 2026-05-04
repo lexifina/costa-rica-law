@@ -1,0 +1,1 @@
+Artículo 92. Análisis y evaluación. Las personas auditoras internas de la CEM fundamentarán los hallazgos, las conclusiones, recomendaciones, observaciones y demás resultados del trabajo en un análisis y evaluación adecuados.
