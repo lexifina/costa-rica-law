@@ -1,0 +1,2 @@
+Artículo 24 - Ofertas en conjunto. Se podrá participar bajo ofertas conjuntas, cuando el objeto lo permita y ello no coloque en riesgo el interés del ECA.
+En ese caso, dos o más oferentes podrán unirse para cotizar un mismo objeto contractual y cada quien responderá por la ejecución de su parte, salvo que las obligaciones no puedan diferenciarse, en cuyo caso cada uno responderá solidariamente por la totalidad del contrato.

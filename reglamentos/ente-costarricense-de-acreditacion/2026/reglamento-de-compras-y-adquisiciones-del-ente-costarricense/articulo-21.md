@@ -1,0 +1,1 @@
+Artículo 21 - Admisibilidad. En el pliego de condiciones se debe establecer los requisitos básicos para participar, sin su acreditación no podrá el oferente ser sometido al sistema de evaluación y su propuesta deberá ser descartada.

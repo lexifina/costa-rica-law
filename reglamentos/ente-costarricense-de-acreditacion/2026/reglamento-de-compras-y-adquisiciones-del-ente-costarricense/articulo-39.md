@@ -1,0 +1,5 @@
+Artículo 39 - En los concursos públicos abiertos o cerrados, cuando el acto haya sido dictado por la Gerencia, procederán los recursos ordinarios de revocatoria y de apelación, de conformidad con las disposiciones de este reglamento.
+El recurso de revocatoria deberá interponerse ante la Gerencia dentro del plazo de tres (3) días hábiles, contados a partir del día hábil siguiente a la notificación del acto de adjudicación.
+La Gerencia deberá resolver dicho recurso mediante resolución debidamente motivada, dentro del plazo máximo de cinco (5) días hábiles.
+El recurso de apelación deberá interponerse ante la Gerencia, dentro del mismo plazo de tres (3) días hábiles, quien lo remitirá, junto con el expediente administrativo, a la Junta Directiva del ECA para su conocimiento y resolución. La Junta Directiva resolverá el recurso de apelación, en definitiva, dentro del plazo máximo de diez (10) días hábiles, contados a partir de la recepción completa del expediente.
+La interposición de los recursos deberá realizarse por los medios electrónicos oficiales definidos por el ECA y tendrá los efectos que disponga la normativa aplicable.

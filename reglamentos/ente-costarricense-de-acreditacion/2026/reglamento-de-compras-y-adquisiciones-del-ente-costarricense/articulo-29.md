@@ -1,0 +1,1 @@
+Artículo 29 - Acto final. Una vez hechos los estudios y valoraciones señalados en los artículos anteriores, el ECA deberá dictar el acto de adjudicación. Dicho acto será emitido por la Gerencia, salvo supuesto de excepción previamente determinado, en cuyo caso el acto resultará competencia de la Junta Directiva.

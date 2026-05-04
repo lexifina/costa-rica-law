@@ -1,0 +1,2 @@
+Artículo 31 - Revocación del acto de adjudicación. El acto de adjudicación, así como el acto que declare desierto o infructuoso un procedimiento de contratación, podrá ser revocado por el ECA únicamente cuando no se encuentre en firme, y por razones debidamente acreditadas de oportunidad o legalidad, mediante resolución motivada.
+Una vez que el acto respectivo haya adquirido firmeza, no procederá su revocación, sin perjuicio de los mecanismos de nulidad o revisión que correspondan conforme al ordenamiento jurídico aplicable.

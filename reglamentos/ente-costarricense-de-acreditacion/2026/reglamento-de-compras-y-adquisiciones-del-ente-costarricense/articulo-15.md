@@ -1,0 +1,1 @@
+Artículo 15 - Expediente. Toda adquisición o contratación que se lleve a cabo por parte del ECA, deberá quedar debidamente documentada en el expediente digital, y contener las firmas de las personas responsables y el recibido por parte de la Proveeduría.

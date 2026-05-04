@@ -1,0 +1,1 @@
+Artículo 14 - Disponibilidad presupuestaria. Es requisito indispensable que toda compra o contratación disponga de previo los recursos económicos para hacer frente a la eventual erogación que se produzca, debidamente asignados y reservados, de lo cual debe dejarse constancia en el expediente del procedimiento.

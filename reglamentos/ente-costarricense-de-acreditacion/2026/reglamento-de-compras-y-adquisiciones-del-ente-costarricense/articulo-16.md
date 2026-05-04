@@ -1,0 +1,1 @@
+Artículo 16 - Variación del procedimiento infructuoso. Un procedimiento se considerará infructuoso cuando no hubiere habido oferentes o los que se hubieren presentado, hayan formulado sus ofertas en términos que no se ajusten al pliego de condiciones o resultaren inaceptables para el ECA. En esos casos, se podrá tramitar un procedimiento de menor jerarquía.

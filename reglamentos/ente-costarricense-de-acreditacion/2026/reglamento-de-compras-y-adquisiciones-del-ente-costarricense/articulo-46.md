@@ -1,0 +1,1 @@
+Artículo 46 - Rescisión del contrato por mutuo acuerdo. La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés público y no concurra causa de resolución imputable al contratista.

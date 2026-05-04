@@ -1,0 +1,1 @@
+Artículo 30 - Declaratoria de desierto. Es un acto que pone fin al procedimiento y puede adoptarse hasta antes del dictado del acto de adjudicación y opera cuando, pese haberse presentado ofertas elegibles, por razones de protección al interés público o institucional, el ECA mediante un acto motivado, determina la no continuidad del procedimiento.

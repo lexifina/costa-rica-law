@@ -1,0 +1,3 @@
+Artículo 11 - Información y documentos a aportar. El oferente deberá presentar toda la documentación solicitada en el pliego de condiciones.
+En el caso de las declaraciones juradas, serán rendidas bajo fe de juramento con las responsabilidades legales que ello conlleva en caso de indicar información falsa.
+El ECA verificará el estado de las obligaciones del oferente y subcontratista, señaladas en el pliego de condiciones, mediante consulta en línea en el sitio web de cada entidad competente en la materia; asimismo, se reserva el derecho de constatar en cualquier momento durante el procedimiento de selección o etapa posterior, el cumplimiento por parte del oferente, contratista y subcontratista de estas obligaciones.
