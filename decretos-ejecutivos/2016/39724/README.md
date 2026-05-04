@@ -19,3 +19,4 @@ Reglamento para el control de las emisiones contaminantes producidas por los veh
 | 4 | 2020-12-22 | Decreto Ejecutivo 42772 (2020-12-22) |
 | 5 | 2021-08-11 | Decreto Ejecutivo 43166 (2021-08-11) |
 | 6 | 2022-07-13 | Decreto Ejecutivo 43646 (2022-07-13) |
+| 7 | 2026-05-04 | Decreto Ejecutivo 45779 (2026-05-04) |
