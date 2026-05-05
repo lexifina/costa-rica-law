@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-05 | la propia norma |
+| 2 | 2026-05-05 | Reglamento 0 (2026-05-05) |
