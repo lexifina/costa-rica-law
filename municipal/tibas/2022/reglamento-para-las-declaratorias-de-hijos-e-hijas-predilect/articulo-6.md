@@ -1,1 +1,0 @@
-Artículo 6º-La Declaratoria de Hijo(a) Predilecto(a) podrá ser conferida e impuesta por el Concejo Municipal todos los años únicamente en la Sesión Solemne que se realice en conmemoración del aniversario del Cantón. Este plazo no es aplicable al supuesto del artículo quinto anterior, en razón de lo excepcional de tal eventualidad.
