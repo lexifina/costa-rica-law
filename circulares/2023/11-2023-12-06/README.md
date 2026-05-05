@@ -14,3 +14,4 @@ Lineamientos para la transición de salario compuesto a salario global
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-08 | la propia norma |
+| 2 | 2026-05-05 | Circular 8 (2026-05-05) |
