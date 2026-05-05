@@ -1,0 +1,1 @@
+Artículo 2. Derogatorias. Deróguese el Decreto Ejecutivo Nº 43646-MINAE-MOPT-MS del 13 de julio del 2022 "Reforma Decreto Ejecutivo Nº 43166" del 11 de agosto del 2021 Reforma Reglamento para el control de Emisiones Contaminantes Producidas por los Vehículos Automotores con Motor de Combustión Interna".
