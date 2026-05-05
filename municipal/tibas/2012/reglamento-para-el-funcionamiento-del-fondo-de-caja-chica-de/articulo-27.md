@@ -1,1 +1,0 @@
-Artículo 27.—Se confeccionarán reintegros de Caja Chica cuando se haya gastado no más del 60% del fondo fijo (600.000,00), con el propósito de darle la rotación óptima a los recursos y mantener suficiente liquidez en el fondo.

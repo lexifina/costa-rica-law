@@ -1,1 +1,0 @@
-Articulo 4º—Se establece el fondo de caja chica en la suma de 1.000.000,00, cuya custodia se delega al Tesorero municipal o el funcionario autorizado por este, quien deberá actuar de conformidad con lo que al efecto disponga la normativa vigente y aplicable en materia de liquidez y al presente Reglamento.

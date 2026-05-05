@@ -1,1 +1,0 @@
-Artículo 7º—La Caja Chica trabajará mediante dinero efectivo que se tendrá a disposición exclusivamente para atender los egresos por compra de bienes o servicios autorizados según lo indicado en este reglamento.

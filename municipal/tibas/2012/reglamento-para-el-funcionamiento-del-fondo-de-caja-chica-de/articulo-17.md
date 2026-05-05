@@ -1,6 +1,0 @@
-Artículo 17.—Los comprobantes (facturas o recibidos) de las adquisiciones que se hagan con fondos de la Caja Chica y que son el sustento del egreso, deberán cumplir con los siguientes requisitos los cuales deberá la proveeduría municipal velar por su cumplimiento:
-a. Ser documentos originales, estar timbrados, membretados o dispensados del mismo por la Dirección general de la Tributación del Ministerio de Hacienda y estar emitidos a favor de la Municipalidad.
-b. Especificar forma clara y detallada la adquisición del bien o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale.
-c. Indicar claramente y con detalle la compra o servicio recibido, la cual debe coincidir con lo estipulado en el vale y traer impresos el sello de cancelado de la casa proveedora o tiquete de caja y por ningún motivo, deben contener tachaduras ni borrones.
-d. Si la factura no tiene logotipo debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones.
-e. Las facturas deberán venir firmadas al dorso, por la Jefatura Inmediata, como requisito para la comprobación de la adquisición del bien o servicio correspondiente, quien también será responsable de velar por el cumplimiento de los puntos anteriores.
