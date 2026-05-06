@@ -1,0 +1,2 @@
+Artículo 13°.- Deudas correspondientes a impuestos trasladables, a retenciones o percepciones. No habrá restricción para el otorgamiento de un fraccionamiento de pago sobre las deudas correspondientes a impuestos trasladables o a retenciones o percepciones, si no fueron cobradas, retenidas o percibidas, siempre y cuando cumpla con los requisitos establecidos en el Reglamento de Procedimiento Tributario.
+Lo anterior no es aplicable a la concesión de aplazamientos de pago.

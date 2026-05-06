@@ -1,0 +1,1 @@
+Artículo 15°.- De la homologación judicial del arreglo de pago. Los fraccionamientos que se otorguen sobre adeudos tributarios que hayan sido declarados sumas líquidas y exigibles a favor del IFAM por sentencia judicial, deben homologarse ante la autoridad judicial correspondiente.
