@@ -30,14 +30,15 @@ Transparencia
 Artículo 3
 Resoluciones Anticipadas
 1.Una Parte emitirá una resolución anticipada escrita y vinculante cuando sea solicitada por escrito por un importador en su territorio o por un exportador o productor en el territorio de otra Parte1, antes de la importación de un bien en su territorio, en relación con:
-[1] Para mayor certeza, un importador, exportador o productor podrá presentar una solicitud de una resolución anticipada a través de un representante debidamente autorizado.
+[1][1][1][[1]1] Para mayor certeza, un importador, exportador o productor podrá presentar una solicitud de una resolución anticipada a través de un representante debidamente autorizado.
 (a) la clasificación arancelaria de un producto y la tasa arancelaria aplicada al producto, incluyendo el método utilizado para calcular el monto de los aranceles;
 (b) la valoración aduanera de un producto o, cuando corresponda, el método, y la aplicación del método, que se utilizará para determinar el valor aduanero bajo un conjunto de hechos2;
 2 Suiza aplica aranceles aduaneros basados en el peso o la cantidad y no impuestos ad valorem.
 (c) las reglas de origen que aplicará al producto; y
 (d) otros asuntos que las Partes acuerden.
 2.Las resoluciones anticipadas solamente son vinculantes entre el solicitante y la autoridad competente que la emite3.
-3 Para Costa Rica, Panamá y los Estados AELC, las autoridades competentes son las respectivas autoridades aduaneras.
+3 Para Costa Rica, Panamá y los Estados AELC, las autoridades competentes son las respectivas autoridades aduaneras. Para Guatemala la autoridad competente es la Dirección de Administración del Comercio Exterior del Ministerio de Economía o su successor
+(*)(Así modificada la nota anterior por el punto 16) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 3.Cada Parte dispondrá que las resoluciones anticipadas tengan vigencia a partir de la fecha de su emisión, o en otra fecha especificada en la resolución, siempre que los hechos o circunstancias en los que se basa dicha resolución no hayan cambiado.
 4.Una Parte podrá limitar la validez de las resoluciones anticipadas a un periodo determinado por la legislación doméstica.
 5.Cada Parte se esforzará por hacer que la información acerca de las resoluciones anticipadas, la cual considera de interés significativo para otros comerciantes esté a disposición del público, tomando en cuenta la necesidad de proteger la información confidencial.
@@ -82,14 +83,14 @@ Una Parte no requerirá la legalización u otra autenticación, en particular la
 Artículo 11
 Admisión Temporal de Bienes
 1.Cada parte facilitará la admisión temporal de bienes de conformidad con los estándares internacionales.
-2.Para el propósito de este Artículo, “admisión temporal” se refiere a los procedimientos aduaneros bajo los cuales determinados bienes podrían ser traídos dentro un territorio aduanero con una suspensión condicional parcial o total del pago de derechos. Tales bienes serán importados para un propósito específico, y destinados para la reexportación dentro del plazo que determine la legislación doméstica y sin haber sido sometido a cualquier cambio, excepto la depreciación normal debido al uso que se haga de ellos.
+2.Para el propósito de este Artículo, "admisión temporal" se refiere a los procedimientos aduaneros bajo los cuales determinados bienes podrían ser traídos dentro un territorio aduanero con una suspensión condicional parcial o total del pago de derechos. Tales bienes serán importados para un propósito específico, y destinados para la reexportación dentro del plazo que determine la legislación doméstica y sin haber sido sometido a cualquier cambio, excepto la depreciación normal debido al uso que se haga de ellos.
 3.De conformidad con su legislación doméstica, la autoridad aduanera podrá requerir una garantía para cubrir todas las obligaciones aplicables si la mercancía admitida es importada en el territorio de la Parte.
 Artículo 12
 Perfeccionamiento Activo y Pasivo
 1.Cada Parte facilitará la importación y exportación temporal para el Perfeccionamiento Activo y Pasivo de conformidad con los estándares internacionales.
 2.Para los propósitos de este Artículo:
-(a) “perfeccionamiento activo” significa procedimientos aduaneros bajo los cuales ciertos bienes pueden ser traídos dentro de un territorio aduanero con una suspensión condicional parcial o total de aranceles e impuestos. Tales bienes deben ser destinados para la reexportación dentro del plazo que determine la legislación doméstica después de haber sido sometido a transformación, elaboración o reparación; y
-(b) “perfeccionamiento pasivo” significa procedimientos aduaneros bajo los cuales ciertos bienes, que están en libre circulación en un territorio aduanero, podrán ser temporalmente exportados para su transformación, elaboración o reparación en el extranjero y luego reimportadas con exención total o parcial de los aranceles aduaneros.
+(a) "perfeccionamiento activo" significa procedimientos aduaneros bajo los cuales ciertos bienes pueden ser traídos dentro de un territorio aduanero con una suspensión condicional parcial o total de aranceles e impuestos. Tales bienes deben ser destinados para la reexportación dentro del plazo que determine la legislación doméstica después de haber sido sometido a transformación, elaboración o reparación; y
+(b) "perfeccionamiento pasivo" significa procedimientos aduaneros bajo los cuales ciertos bienes, que están en libre circulación en un territorio aduanero, podrán ser temporalmente exportados para su transformación, elaboración o reparación en el extranjero y luego reimportadas con exención total o parcial de los aranceles aduaneros.
 3.De conformidad con su legislación doméstica, la autoridad aduanera podrá requerir una garantía para cubrir todos los derechos aplicables si la mercancía admitida es importada en el territorio de la Parte.
 Artículo 13
 Cooperación entre Agencias Fronterizas

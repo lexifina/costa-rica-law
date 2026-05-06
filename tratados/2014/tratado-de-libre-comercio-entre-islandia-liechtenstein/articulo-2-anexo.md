@@ -28,9 +28,14 @@ Organización
 1. Las siguientes autoridades serán responsables de la coordinación del intercambio de información:
 (a) por la República de Costa Rica, el Ministerio de Comercio Exterior;
 (b) por la República de Panamá, el Ministerio de Comercio e Industrias;
-(c) por Islandia, The Ministry for Foreign Affairs and External Trade;
-(d) por el Principado de Liechtenstein, The Office for Foreign Affairs;
-(e) por el Reino de Noruega, The Ministry of Trade and Industry; y
-(f) por la Confederación Suiza, The Secrétariat d'Etat à l'économie.
+(c) para la República de Guatemala, El Ministerio de Economía
+(*)(Así adicionado el subpárrafo c) anterior por el punto 13) inciso a) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
+(d) por Islandia, The Ministry for Foreign Affairs and External Trade;
+(*)(Así modificada la numeración del subpárrafo anterior por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos" que lo traspasó del antiguo subpárrafo c) al subpárrafo d))
+(e) por el Principado de Liechtenstein, The Office for Foreign Affairs;
+(*)(Así modificada la numeración del subpárrafo anterior por el punto 13) inciso b) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos” que lo traspasó del antiguo subpárrafo d) al subpárrafo e))
+(f) por el Reino de Noruega, The Ministry of Trade and Industry; y
+(*)(Así modificada la numeración del subpárrafo anterior por el punto 13) inciso b) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos" que lo traspasó del antiguo subpárrafo e) al subpárrafo f))
+(g) por la Confederación Suiza, The Secrétariat d'Etat à l'économie.
+(*)(Así modificada la numeración del subpárrafo anterior por el punto 13) inciso b) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos" que lo traspasó del antiguo subpárrafo f) al subpárrafo g))
 2. Las Partes podrán trabajar conjuntamente en las disposiciones referidas en el Artículo 3, a través de cualquier medio adecuado a su disposición.
-_______________

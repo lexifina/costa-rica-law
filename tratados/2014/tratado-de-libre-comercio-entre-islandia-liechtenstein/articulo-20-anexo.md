@@ -151,6 +151,61 @@ El Capítulo 7 de este Acuerdo no cubre la contratación de mercancías y servic
 447- Armas y municiones, y sus partes y piezas;
 491- Vehículos de motor, remolques y semirremolques y sus partes; piezas y accesorios;
 496- Aeronaves y naves espaciales; sus partes y piezas.
+(*) c. Guatemala
+El Capítulo 7 de este Acuerdo aplica a las entidades a nivel de gobierno central cuando el valor de la contratación sea igual o superior a:
+MERCANCÍAS
+Especificadas en el Apéndice 4
+Umbral 130,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 260,000 DEG.
+SERVICIOS
+Especificados en el Apéndice 5
+Umbral 130,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 260,000 DEG.
+SERVICIOS DE CONSTRUCCIÓN:
+Especificados en el Apéndice 6
+Umbral 5,000,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 6,000,000 DEG.
+Lista de Entidades
+1. Ministerio de Agricultura, Ganadería y Alimentación (Note 1)
+2. Ministerio de la Defensa Nacional (Note 2)
+3. Ministerio de Economía
+4. Ministerio de Educación (Note 3)
+5. Ministerio de Cultura y Deportes
+6. Ministerio de Trabajo y Previsión Social (Note 4)
+7. Ministerio de Finanzas Públicas
+8. Ministerio de Salud Pública y Asistencia Social (Note 4)
+9. Ministerio de Relaciones Exteriores
+10. Ministerio de Gobernación (Note 5)
+11. Ministerio de Comunicaciones, Infraestructura y Vivienda
+12. Ministerio de Energía y Minas
+13. Ministerio de Ambiente y Recursos Naturales
+14. Secretaría General de la Presidencia
+15. Secretaría de Coordinación Ejecutiva de la Presidencia
+16. Secretaría de Planificación y Programación de la Presidencia
+17. Secretaría de Análisis Estratégico de la Presidencia
+18. Secretaría de la Paz de la Presidencia de la República
+19. Secretaría de Asuntos Administrativos y de Seguridad de la Presidencia de la República
+20. Secretaría de Asuntos Agrarios de la Presidencia
+21. Secretaría Presidencial de la Mujer
+22. Secretaría de Bienestar Social de la Presidencia de la República
+23. Secretaría de Comunicación Social de la Presidencia
+24. Secretaría Ejecutiva de la Comisión contra el Consumo, Adicción y Tráfico Ilícito de Drogas
+25. Secretaría de Obras Sociales de la Esposa del Presidente de la República
+26. Comisión Presidencial Coordinadora de la Política del Ejecutivo en materia de Derechos Humanos
+27. Comisión Presidencial para la reforma del Estado, la Descentralización y la Participación Ciudadana
+28. Consejo Nacional de Ciencia y Tecnología
+29. Coordinadora Nacional para la Reducción de Desastres
+30. Junta Nacional del Servicio Civil
+31. Oficina Nacional del Servicio Civil
+32. Fondo de Desarrollo Indígena Guatemalteco
+33. Fondo Nacional de Ciencia y Tecnología
+34. Fondo Nacional para la Paz
+35. Consejo Nacional de la Juventud
+Notas al Apéndice 1
+1. Ministerio de Agricultura, Ganadería y Alimentación: El Capítulo 7 no se aplica a las contrataciones de mercancías agrícolas realizadas en cumplimiento de apoyo a programas de agricultura o en cumplimiento de programas de comedores escolares.
+2. Ministerio de la Defensa Nacional: El Capítulo 7 no se aplica a las contrataciones de las siguientes mercancías y servicios: armas, municiones, equipo, materiales de construcción, aeronaves, embarcaciones y otros vehículos, combustible, lubricantes, provisiones y la contratación de servicios o suministro por o en nombre del Ejército de Guatemala y sus instituciones.
+3. Ministerio de Educación: El Capítulo 7 no se aplica a las contrataciones realizadas para el cumplimiento de programas de comedores escolares.
+4. Ministerio de Trabajo y Previsión Social y Ministerio de Salud Pública y Asistencia Social: El Capítulo 7 no se aplica a las contrataciones de mercancías clasificadas en la Sección 2 (productos alimenticios, bebidas, tabaco; textiles, vestimenta y productos de cuero del CPC, versión 1.0.
+5. Ministerio de Gobernación: El Capítulo 7 no se aplica a las contrataciones de mercancías clasificadas en la Sección 2 (productos alimenticios, bebidas, tabaco; textiles, vestimenta y productos de cuero del CPC, versión 1.0, para la Policía Nacional Civil y Sistema Penitenciario.
+6. Salvo que se especifique lo contrario, el Capítulo 7 cubre a todas las entidades subordinadas a las entidades listadas, siempre y cuando no tengan personalidad jurídica propia.
+(*)(Así adicionado el inciso c) anterior por el punto 22) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 El Capítulo 7 de este Acuerdo aplica a las entidades de nivel central de Gobierno, cuando el valor de las contrataciones sea igual o superior a:
 MERCANCÍAS
@@ -226,7 +281,7 @@ Departementenes servicesenter | Servicios de la Administración Pública
 Det praktisk-teologiske seminar | Seminario Teológico Práctico
 Direktoratet for forvaltning og IKT | La Agencia para la Gestión Pública y la Administración Electrónica
 Fylkesmannsembetene | El Condado de Gobernadores
-Gáldu – Kompetansesenter for urfolks rettigheter | Gáldu - Centro de Recursos para el Derecho de los Pueblos Indígenas
+Gáldu - Kompetansesenter for urfolks rettigheter | Gáldu - Centro de Recursos para el Derecho de los Pueblos Indígenas
 Internasjonalt reindriftssenter | Centro Internacional para la Cría de Renos
 Kirkerådet | Consejo Nacional de la Iglesia de Noruega
 Konkurransetilsynet | Autoridad Noruega de la Competencia
@@ -497,6 +552,65 @@ Veraguas | Atalaya Calobre Cañazas La Mesa Las Palmas Montijo Río De Jesús Sa
 Comarca Emberá | Cémaco Sambú
 |
 Comarca Ngöbe Buglé | Ñürüm Kankintú Besiko Mirono Kusapin Müna Nole Duima
+(*)c. Guatemala
+1. El Capítulo 7 de este Acuerdo aplica a las entidades a nivel de gobierno subcentral cuando el valor de la contratación sea igual o superior a:
+MERCANCÍAS
+Especificadas en el Apéndice 4
+Umbral 355,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 490,000 DEG.
+SERVICIOS
+Especificados en el Apéndice 5
+Umbral 355,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 490,000 DEG.
+SERVICIOS DE CONSTRUCCIÓN:
+Especificados en el Apéndice 6
+Umbral 5,000,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 6,000,000 DEG.
+2. El Capítulo 7 solo aplica a las entidades indicadas en esta Lista.
+Lista de Entidades
+Municipalidades Departamento de Guatemala
+1. Fraijanes
+2. San Juan Sacatepéquez
+3. San Pedro Sacatepéquez
+4. San Raymundo
+5. San Pedro Ayampuc
+6. Chinautla
+7. Santa Catarina Pinula
+8. Guatemala
+9. Mixco
+10. Villa Nueva
+El Capítulo no se aplica a contrataciones de servicios de construcción por entidades del Departamento de Guatemala.
+Municipalidades Departamento de Quetzaltenango
+11. Quetzaltenango
+12. Coatepeque
+Municipalidades Departamento de Escuintla
+13. Chiquimulilla
+14. Santa Lucía Cotzumalguapa
+15. Escuintla
+16. Puerto de San José
+Municipalidades Departamento de Zacapa
+17. Zacapa
+18. Río Hondo
+19. Teculután
+Municipalidades Departamento de Chiquimula
+20. Chiquimula
+Municipalidades Departamento de El Quiché
+21. Santa Cruz del Quiché
+Municipalidades Departamento de El Petén
+22. Flores
+23. San Benito
+Municipalidades Departamento de El Progreso
+24. Guastatoya
+Municipalidades Departamento de Izabal
+25. Puerto Barrios
+Municipalidades Departamento de Huehuetenango
+26. Huehuetenango
+Municipalidades Departamento de Jalapa
+27. Jalapa
+Municipalidades Departamento de Jutiapa
+28. Jutiapa
+Municipalidades Departamento de Alta Verapaz
+29. Cobán
+Municipalidades Departamento de Baja Verapaz
+30. Salamá
+(*)(Así adicionado el inciso c) anterior por el punto 23 del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 El Capítulo 7 de este Acuerdo se aplica a las entidades de nivel subcentral de gobierno cuando el valor de la contratación sea igual o superior a:
 MERCANCÍAS
@@ -602,24 +716,24 @@ Umbral para listas A and B 5,000,000 DEG
 Lista de Entidades
 Lista A:
 1. Junta Administrativa de la Imprenta Nacional
-2. Programa Integral de Mercadeo Agropecuario – PIMA
-3. Banco Hipotecario de la Vivienda – BANHVI
+2. Programa Integral de Mercadeo Agropecuario - PIMA
+3. Banco Hipotecario de la Vivienda - BANHVI
 4. Consejo de Transporte Público
 5. Instituto Costarricense del Deporte y la Recreación
-6. Instituto Nacional de Fomento Cooperativo – INFOCOOP
+6. Instituto Nacional de Fomento Cooperativo - INFOCOOP
 7. Banco Central de Costa Rica (Nota 1)
-8. Instituto Costarricense de Ferrocarriles – INCOFER
-9. Instituto Costarricense de Puertos del Pacífico – INCOP
-10. Autoridad Reguladora de los Servicios Públicos – ARESEP
+8. Instituto Costarricense de Ferrocarriles - INCOFER
+9. Instituto Costarricense de Puertos del Pacífico - INCOP
+10. Autoridad Reguladora de los Servicios Públicos - ARESEP
 11. Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento
 Lista B
-1. Caja Costarricense del Seguro Social – CCSS
+1. Caja Costarricense del Seguro Social - CCSS
 2. Dirección General de Aviación Civil
-3. Instituto Costarricense de Electricidad – ICE (Nota 2)
-4. Refinadora Costarricense de Petróleo – RECOPE
+3. Instituto Costarricense de Electricidad - ICE (Nota 2)
+4. Refinadora Costarricense de Petróleo - RECOPE
 Notas al Apéndice 3
 1. Banco Central de Costa Rica: el Capítulo 7 de este Acuerdo no se aplica a las contrataciones públicas para la emisión de billetes y monedas.
-2. Instituto Costarricense de Electricidad – ICE: los plazos indicados en el Apéndice 8, no se aplicarán al ICE. El ICE otorgará a los proveedores suficiente tiempo para preparar y remitir ofertas adecuadas. No obstante lo establecido en el Artículo 7.25, el ICE otorgará no menos de tres días hábiles para que los proveedores preparen y remitan recursos escritos.
+2. Instituto Costarricense de Electricidad - ICE: los plazos indicados en el Apéndice 8, no se aplicarán al ICE. El ICE otorgará a los proveedores suficiente tiempo para preparar y remitir ofertas adecuadas. No obstante lo establecido en el Artículo 7.25, el ICE otorgará no menos de tres días hábiles para que los proveedores preparen y remitan recursos escritos.
 b. Panamá
 El Capítulo 7 de este Acuerdo se aplica a otras entidades cubiertas, cuando el valor de la contratación sea igual o mayor a:
 MERCANCÍAS
@@ -700,7 +814,46 @@ Lista C
 8. El período mínimo de 40 días establecido en el párrafo 2 del Apéndice 8 no se aplicará a la Autoridad del Canal de Panamá. La Autoridad del Canal de Panamá proporcionará a los proveedores tiempo suficiente para preparar y presentar ofertas adecuadas, teniendo en cuenta la naturaleza y complejidad de la contratación. Sin embargo, la Autoridad del Canal de Panamá, en ningún caso dará menos de cinco días hábiles desde la fecha en que se publique el anuncio de contratación a través de internet a la fecha límite de presentación de ofertas.
 9. El Artículo 7.25, párrafo 6 no aplicará a la Autoridad del Canal de Panamá. No obstante lo dispuesto en el Artículo 7.25, párrafo 3, la Autoridad del Canal de Panamá, en ningún caso, dará menos de cinco días hábiles para que los proveedores puedan preparar y presentar impugnaciones por escrito, en el entendimiento de que el plazo comenzará a partir del primer día hábil siguiente a la publicación del anuncio de la adjudicación del contrato a través de internet.
 10. El Artículo 7.23, párrafo 2 no aplicará a la Autoridad del Canal de Panamá. Sin embargo, en relación con cada contratación cubierta, la Autoridad del Canal de Panamá publicará en papel o en medio electrónico, en un plazo razonable, un aviso que incluya al menos: una descripción de las mercancías o servicios objeto del contrato, el nombre de proveedor ganador, el valor de la oferta ganadora tomada en cuenta para la adjudicación del contrato y la fecha de la adjudicación.
-11. El Apéndice 9, parte A, párrafo 4, no aplicará a la Autoridad del Canal de Panamá.
+10. El Apéndice 9, parte A, párrafo 4, no aplicará a la Autoridad del Canal de Panamá.
+(*)c. Guatemala
+1. El Capítulo 7 de este Acuerdo aplica a las otras entidades cubiertas cuando el valor de la contratación sea igual o superior a:
+MERCANCÍAS
+Especificadas en el Apéndice 4
+Umbral:
+1. Para las entidades de la Lista A: 200,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 274,000 DEG.
+2. Para las entidades de la Lista B: 400,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 550,000 DEG.
+SERVICIOS
+Especificados en el Apéndice 5
+Umbral:
+1. Para las entidades de la Lista A: 200,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 274,000 DEG.
+2. Para las entidades de la Lista B: 400,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 550,000 DEG.
+SERVICIOS DE CONSTRUCCIÓN:
+Especificados en el Apéndice 6
+Umbrales para las listas A y B: 5,000,000 DEG; o para el período de tres años a partir de la fecha de entrada en vigor del Protocolo de Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos, 6,000,000 DEG.
+2. Salvo que se especifique lo contrario, el Capítulo 7 solo aplica a las entidades indicadas en esta Lista.
+Lista de Entidades
+Lista A:
+1. Academia de Lenguas Mayas de Guatemala
+2. Confederación Deportiva Autónoma de Guatemala
+3. Comisión Institucional para el Desarrollo y Fortalecimiento de la Propiedad de la Tierra
+4. Comité Olímpico Guatemalteco
+5. Comité Permanente de Exposiciones
+6. Consejo Nacional para la Protección de la Antigua Guatemala
+7. Escuela Nacional Central de Agricultura
+8. Instituto de Ciencia y Tecnología Agrícolas
+9. Instituto de Fomento Municipal
+10. Instituto Guatemalteco de Turismo
+11. Instituto Nacional de Administración Pública
+12. Instituto Nacional de Bosques
+13. Instituto Nacional de Comercialización Agrícola
+14. Instituto Nacional de Cooperativas
+15. Instituto Nacional de Estadística
+16. Instituto Técnico de Capacitación y Productividad
+17. Superintendencia de Administración Tributaria
+18. Fondo de Tierras
+Lista B:
+1. Empresa Guatemalteca de Telecomunicaciones
+(*)(Así adicionado el inciso c) anterior por el punto 24) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 El Capítulo 7 de este Acuerdo aplica a otras entidades cubiertas cuando el valor de la contratación sea igual o superior a:
 MERCANCÍAS
@@ -876,11 +1029,11 @@ Lista de Entidades
 (d) la explotación de un área geográfica con el propósito de proveer puertos terrestres u otras terminales a los operadores marítimos o de vías navegables (según lo especificado bajo la Lista de Sectores 4);
 (e) La producción de electricidad (según lo especificado bajo la Lista de Sectores 5).
 2.Para efecto de este Apéndice:
-(a) “autoridades públicas” significa autoridades estatales, regionales o locales, entes regidos por el derecho público, o asociaciones formadas por una o más de dichas autoridades o entes regidos por el derecho público. Un ente se considera regido por el derecho público cuando:
+(a) "autoridades públicas" significa autoridades estatales, regionales o locales, entes regidos por el derecho público, o asociaciones formadas por una o más de dichas autoridades o entes regidos por el derecho público. Un ente se considera regido por el derecho público cuando:
 (i) es establecido con el propósito específico de suplir necesidades de interés general, sin ser de naturaleza industrial o comercial;
 (ii) tiene personería jurídica; y
 (iii) es financiado mayoritariamente por el Estado, o autoridades regionales o locales, u otros entes regidos por el derecho público, o está sujeto a gestión supervisada por esos entes, o tiene una junta administrativa, gerencial o supervisora en que la mitad o más de sus miembros son nombrados por el Estado, autoridades regionales o locales, u otros entres regidos por el derecho público.
-(b) “empresa pública” significa cualquier empresa respecto a la cual las autoridades públicas pueden ejercer directa o indirectamente una influencia dominante en virtud de su propiedad, su participación financiera en ella, o las reglas que la rigen. Una influencia dominante de parte de las autoridades públicas se asume cuando estas autoridades, directa o indirectamente, en relación con una empresa:
+(b) "empresa pública" significa cualquier empresa respecto a la cual las autoridades públicas pueden ejercer directa o indirectamente una influencia dominante en virtud de su propiedad, su participación financiera en ella, o las reglas que la rigen. Una influencia dominante de parte de las autoridades públicas se asume cuando estas autoridades, directa o indirectamente, en relación con una empresa:
 (i) mantengan la mayoría del capital suscrito por la empresa;
 (ii) controlan la mayoría de los votos correspondientes a las acciones emitidas por la empresa; o
 (iii) pueden escoger más de la mitad de la junta administrativa, gerencial o supervisora del ente.
@@ -930,6 +1083,9 @@ El Capítulo 7 de este Acuerdo se aplica a todas las mercancías adquiridas por 
 b.Panamá
 El Capítulo 7 de este Acuerdo se aplica a todas las mercancías adquiridas por las entidades listadas en los Apéndices 1 al 3 de este Anexo sujeto a las Notas a los respectivos Apéndices y a las Notas Generales a menos que se especifique lo contrario en este Acuerdo.
 Al identificar un producto, el CCP ver. 2.0 se refiere a la Clasificación Central de Productos según lo establecido por la oficina de Estadística de las Naciones Unidas, Informes Estadísticos, finalizado el 31 de diciembre de 2008.
+c. Guatemala
+El Capítulo 7 de este Acuerdo se aplica a todas las mercancías adquiridas por las entidades listadas en los Apéndices del 1 al 3 de este Anexo, sujetos a las Notas de los respectivos Apéndices y a las Notas Generales salvo que se especifique lo contrario en este Acuerdo.
+(*)(Así adicionado el inciso c) anterior por el punto 25) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 a.Islandia
 1. El Capítulo 7 de este Acuerdo cubre la contratación de todas las mercancías contratadas por las entidades listadas en los Apéndices 1 al 3, a menos que se especifique lo contrario en este Anexo.
@@ -971,7 +1127,7 @@ Capítulo 30: Productos farmacéuticos
 Capítulo 31: Fertilizantes
 Capítulo 32: Extractos de taninos y tintura, taninos y sus derivados, tintes, colores, pinturas y barnices, masillas, rellenos y demás, tintas
 Capítulo 33: Aceites esenciales y resinoides, preparaciones de perfumería, de tocador o de cosmética
-Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y “ceras para odontología”
+Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y "ceras para odontología"
 Capítulo 35: Materias albuminoides, gomas, enzimas
 Capítulo 37: Mercancías fotográficas y cinematográficas
 Capítulo 38: Productos químicos diversos
@@ -1101,7 +1257,7 @@ Capítulo 30: Productos farmacéuticos
 Capítulo 31: Fertilizantes
 Capítulo 32: Extractos de taninos y tintura, taninos y sus derivados, tintes, colores, pinturas y barnices, masillas, rellenos y demás, tintas
 Capítulo 33: Aceites esenciales y resinoides, preparaciones de perfumería, de tocador o de cosmética
-Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y “ceras para odontología”
+Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y "ceras para odontología"
 Capítulo 35: Materias albuminoides; gomas; enzimas
 Capítulo 37: Mercancías fotográficas y cinematográficas
 Capítulo 38: Productos químicos diversos, excepto:
@@ -1224,7 +1380,7 @@ Capítulo 30: Productos farmacéuticos
 Capítulo 31: Fertilizantes
 Capítulo 32: Extractos de taninos y tintura, taninos y sus derivados, tintes, colores, pinturas y barnices, masillas, rellenos y demás, tintas
 Capítulo 33: Aceites esenciales y resinoides, preparaciones de perfumería, de tocador o de cosmética
-Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y “ceras para odontología”
+Capítulo 34: Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, preparaciones para pulir y de limpieza, velas y artículos similares, pastas para moldear y "ceras para odontología"
 Capítulo 35: Materias albuminoides, gomas, enzimas
 Capítulo 36: Explosivos, productos pirotécnicos, fósforos, aleaciones pirofóricas, materias inflamables;
 excepto:
@@ -1348,6 +1504,19 @@ Código | CCP versión 2.0. Descripción
 93 | Servicios de Salud y Seguridad
 9692 | Servicios de juegos de azar y apuestas
 84 | Servicios de telecomunicaciones; servicios de radiodifusión y suministro de información
+(*)c. Guatemala
+1. El Capítulo 7 de este Acuerdo aplica a todos los servicios contratados por las entidades listadas en los Apéndices 1, 2 y 3 de este Anexo, sujeto a las Notas de los respectivos Apéndices y al Apéndice 11, excepto para los servicios excluidos en este Apéndice. Todos los servicios cubiertos por este Apéndice están sujetos a las Listas de Compromisos Específicos (Apéndices 1 al 7 del Anexo XV).
+2. El Capítulo 7 de este Acuerdo no cubre la contratación de los siguientes servicios, como se clasifica en la Clasificación Central de Productos de las Naciones Unidas (CPC versión 1.0):
+(a) Servicios Públicos
+División 69 | Servicios de distribución de electricidad; servicios de distribución de gas y agua por tuberías principales.
+División 91 | Servicios de Administración pública y otros servicios para la comunidad en general; servicios de seguridad social de afiliación obligatoria.
+División 92 | Servicios de Educación (educación pública).
+División 93 | Servicios sociales y de salud
+División 94 | Servicios de alcantarillado y eliminación de residuos, saneamiento y otros servicios ambientales.
+(b) Servicios Profesionales Individuales (El Capítulo no se aplica a la contrataciones de personas, por períodos definidos, que provean un servicio profesional, siempre que dichas contrataciones no sean usadas para evadir las obligaciones de este Capítulo).
+Notas del Apéndice 5
+El Capítulo 7 sólo aplica a un proveedor de servicios de una Parte en particular en la medida que dicha parte haya cubierto ese servicio de acuerdo al Apéndice 5
+(*)(Así adicionado el punto c) anterior por el punto 26) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 a. Islandia
 El Capítulo 7 de este Acuerdo cubre los siguientes servicios, identificados de conformidad con la Clasificación Central Provisional de Productos de las Naciones Unidas (CCP), establecido en el documento MTN.GNS/W/120, con las excepciones establecidas en las Notas de este Anexo (Nota 1):
@@ -1435,7 +1604,7 @@ Servicios de mercadeo y encuestas de opinión pública | 864
 Servicios de consultoría de gestión y servicios relacionados | 865, 86622 22Excepto servicios de arbitraje y conciliación.
 Servicios de arquitectura; servicios de ingeniería y servicios de ingeniería integrada, servicios de urbanismo y paisaje arquitectónico; servicios científicos y de consultoría técnica relacionados, servicios de consultoría técnica; servicios de ensayo técnico y análisis | 867
 Servicios de publicidad | 871
-Servicios de limpieza de edificios y servicios de gestión de propiedad | 874, 82201 – 82206
+Servicios de limpieza de edificios y servicios de gestión de propiedad | 874, 82201 - 82206
 Servicios de publicación e impresión en base a honorarios o contrato | 88442
 Servicios de alcantarillado y eliminación de residuos; saneamiento y servicios similares | 94
 Notas al Apéndice 5
@@ -1454,6 +1623,9 @@ a.Costa Rica
 El Capítulo 7 de este Acuerdo aplica a todos los servicios de construcción contratados por las entidades listadas en los Apéndices 1, 2 y 3 de este Anexo, sujeto a las Notas Generales. Todos los servicios de construcción cubiertos por este Apéndice están sujetos a las Listas de Compromisos Específicos (Apéndices 1 al 6 del Anexo XV).
 b.Panamá
 El Capítulo 7 de este Acuerdo aplica a todos los servicios de construcción contratados por las entidades listadas en los Apéndices 1, 2 y 3, sujeto a las Notas de los respectivos Apéndices y al Apéndice 11. Todos los servicios de construcción cubiertos por este Apéndice están sujetos a las Listas de Compromisos Específicos (Apéndices 1 al 6 del Anexo XV).
+c. Guatemala
+El Capítulo 7 de este Acuerdo se aplica a todos los servicios de construcción adquiridos por las entidades listadas en los Apéndices del 1 al 3 de este Anexo, sujetos a las Notas de los respectivos Apéndices y a las Notas Generales. El Capítulo no cubre la contratación de los servicios de construcción excluidos por la otra Parte. Todos los servicios de construcción cubiertos por este Apéndice están sujetos a las Listas de Compromisos Específicos (Apéndices del 1 al 7 del Anexo XV)."
+(*)(Así adicionado el inciso c) anterior por el punto 27) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 a.Islandia
 Lista de la División 51, CCP:
@@ -1512,6 +1684,16 @@ Página web de la Corte Suprema:
 http://www.organojudicial.gob.pa
 Avisos de contratación:
 http://www.panamacompra.gob.pa
+(*) Guatemala
+Legislación: Leyes, disposiciones administrativas y procedimientos:
+1. Diario de Centroamérica (Órgano oficial de publicación);
+2. Congreso de la República de Guatemala www.congreso.gob.gt. Jurisprudencia:
+Corte de Constitucionalidad
+Sitio Web: www.cc.gob.gt
+Avisos de Contratación:
+1. Diario de Centroamérica, (Órgano oficial de publicación)
+2. Sistema de Información de Contrataciones y Adquisiciones del Estado de Guatemala GUATECOMPRAS (www.guatecompras.gt)
+(*)(Así adicionado el párrafo anterior por el punto 28) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 Islandia
 Legislación: Stjórnartíðindi (La Gaceta del Gobierno)
@@ -1538,7 +1720,7 @@ http://ted.europe.eu
 Noruega
 Legislación y Jurisprudencia: Norsk Lovtidend (Gaceta de Ley Noruega) www.lovdata.no
 Avisos de contratación:
-1. Doffin – Database for offentlige innkjøp (Base de datos de contratación)
+1. Doffin - Database for offentlige innkjøp (Base de datos de contratación)
 http://www.doffin.no/
 2. Todas las contrataciones noruegas bajo ACP y AEE son también publicadas en inglés en la web del Diario Electrónico de Contrataciones: http://ted.europe.eu
 Suiza
@@ -1572,8 +1754,10 @@ APÉNDICE 9 AL ANEXO XX
 VALOR DE UMBRALES Y VALORACIÓN
 PARTE A: ESTADOS CENTROAMERICANOS
 Umbrales
-1. Cada país centroamericano convertirá los umbrales de este Anexo a su respectiva moneda nacional en intervalos de dos años. Cada ajuste tendrá efecto el 1 de enero, iniciando en enero del 2014. En Costa Rica, la conversión se basará en la tasa oficial de cambio de su Banco Central, utilizando el promedio de conversión del dólar americano. Panamá calculará el ajuste de los umbrales, basándose en un promedio de las tasas de conversión diarias del dólar americano, en términos de derechos especiales de giro, publicado por el FMI en sus “Estadísticas Financieras Internacionales” mensuales, para el período de dos años previos al 1 de octubre o 1 de noviembre del año anterior a aquel en que los umbrales ajustados tendrán efecto. Dicho procedimiento tendrá lugar dentro del período de dos años que finaliza el 30 de setiembre del año anterior a aquel en que será efectivo el ajuste hecho por cada Estado Centroamericano.
-2.El valor de los nuevos umbrales calculados se pondrá a disposición en las respectivas monedas por Costa Rica y Panamá, antes de que el respectivo umbral tenga efecto.
+1. Cada país centroamericano convertirá los umbrales de este Anexo a su respectiva moneda nacional en intervalos de dos años. Cada ajuste tendrá efecto el 1 de enero, iniciando en enero del 2014. En Costa Rica y Guatemala(*), la conversión se basará en la tasa oficial de cambio de su Banco Central, utilizando el promedio de conversión del dólar americano. Panamá calculará el ajuste de los umbrales, basándose en un promedio de las tasas de conversión diarias del dólar americano, en términos de derechos especiales de giro, publicado por el FMI en sus "Estadísticas Financieras Internacionales" mensuales, para el período de dos años previos al 1 de octubre o 1 de noviembre del año anterior a aquel en que los umbrales ajustados tendrán efecto. Dicho procedimiento tendrá lugar dentro del período de dos años que finaliza el 30 de setiembre del año anterior a aquel en que será efectivo el ajuste hecho por cada Estado Centroamericano.
+(*)(Así modificado el párrafo anterior por el punto 29) inciso a) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
+2.El valor de los nuevos umbrales calculados se pondrá a disposición en las respectivas monedas por Costa Rica, Guatemala(*) y Panamá, antes de que el respectivo umbral tenga efecto.
+(*)(Así modificado el párrafo anterior por el punto 29) inciso b) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 Valoración
 3.Al estimar el valor de una contratación para efectos de determinar si está cubierta por el Capítulo 7 de este Acuerdo, una entidad contratante:
 (a) no dividirá una contratación en contrataciones individuales o seleccionará o utilizará un método particular de valoración para estimar el valor de una contratación con la intención de excluirla total o parcialmente de la aplicación del Capítulo 7 de este Acuerdo;
@@ -1590,7 +1774,7 @@ Valoración
 3.Al estimar el valor de una contratación para efectos de determinar si es una contratación cubierta, una entidad contratante:
 (a) no dividirá una contratación en contrataciones separadas ni utilizar un método en particular para estimar el valor de una contratación con la intención de excluirla total o parcialmente de la aplicación del Capítulo 7 de este Acuerdo;
 (b) incluirá el máximo estimado total del valor de la contratación durante toda su duración, tomando en consideración todas las formas de remuneración, incluyendo cualquier prima, honorarios, comisiones, intereses y, cuando la contratación disponga la posibilidad de cláusulas de opción, el valor total de dichas opciones;
-(c) cuando la contratación sea conducida en múltiples partes (en lo sucesivo denominado como “contratos recurrentes”), con los contratos que se adjudiquen al mismo tiempo o en un período dado a uno o más proveedores, basar su cálculo del valor máximo total de la contratación durante un período de 12 meses; y
+(c) cuando la contratación sea conducida en múltiples partes (en lo sucesivo denominado como "contratos recurrentes"), con los contratos que se adjudiquen al mismo tiempo o en un período dado a uno o más proveedores, basar su cálculo del valor máximo total de la contratación durante un período de 12 meses; y
 (d) cuando la legislación nacional permita la celebración de contratos por tiempo indefinido y no se especifica un precio total, la base para la valoración de este tipo de contratos se basará en la cuota mensual estimada multiplicada por 48.
 APÉNDICE 10 AL ANEXO XX
 AVISOS, DOCUMENTOS DE CONTRATACIÓN Y LISTA DE PROVEEDORES
@@ -1656,6 +1840,21 @@ El Capítulo 7 de este Acuerdo no aplica a:
 (d) contratación hecha por una entidad panameña para otra entidad panameña; y
 (e) contratación de servicios de transporte que forman parte de, o sean conexos a un contrato de compra.
 2.Las disposiciones del Capítulo 7 de este Acuerdo no limitarán a Panamá para desarrollar nueva contratación, políticas, procedimientos o medios contractuales, siempre y cuando dichas medidas sean compatibles con lo dispuesto en el Capítulo 7 de este Acuerdo.
+(*) c. Guatemala
+1. Salvo que se especifique lo contrario, las siguientes Notas Generales aplican sin ninguna excepción al Capítulo 7 de este Acuerdo, incluyendo a todos los Apéndices de este Anexo.
+2. Nada en el Capítulo 7 de este Acuerdo, deberá ser considerado a evitar que una Parte tome cualquier acción o no divulgue cualquier información que considere necesaria para la protección de sus intereses esenciales de seguridad relacionados a las contrataciones de armas y municiones, materiales de guerra, o a la contratación indispensable para la seguridad nacional o para los propósitos de defensa nacional.
+3. El Capítulo 7 de este Acuerdo no aplica a la contratación por parte de una entidad guatemalteca de una mercancía o servicio, obtenido o adquirido de otra entidad guatemalteca.
+4. El Capítulo 7 de este Acuerdo no aplica a la contratación de bancos de materiales destinados a la construcción de obras públicas.
+5. El Capítulo 7 de este Acuerdo no se aplica a las excepciones establecidas en el Artículo 44 de la Ley de Contrataciones del Estado, Decreto No. 57-92 del Congreso de la República de Guatemala y sus reformas.
+6. Las entidades contratantes listadas en los Apéndices 1, 2 y 3 de este Anexo podrán adjudicar contratos mediante procedimientos de licitación restringidos si estos contratos se celebran para obtener urgentemente asesoría legal en determinados procesos jurídicos o si se refieren a servicios de conciliación y arbitraje.
+7. Las entidades contratantes listadas en los Apéndices 1, 2 y 3 de este anexo podrán utilizar la lista de proveedores.
+8. Si la legislación nacional lo permite, una entidad contratante listada en los Apéndices 1, 2 y 3 podrá aplicar al párrafo 4 del Artículo 7.10.
+9. El Capítulo 7 de este Acuerdo no aplica a los programas de contratación pública para pequeñas, medianas y micro empresas.
+10. Para mayor certeza, Guatemala deberá aplicar solamente el Artículo 7.16 antes que las ofertas sean abiertas.
+11. Las notificaciones, publicaciones y obligaciones impuestas a las entidades contratantes en el Artículo 7.13 deberán ser ejecutadas por los operadores de los registros correspondientes y no por las entidades contratantes.
+12. Para poder ofrecer mercancías y servicios en Guatemala, es obligatorio registrarse en el registro correspondiente.
+13. Para mayor certeza, Guatemala comprende que el subpárrafo 1 (d) del Artículo 7.18 deberá aplicarse en casos de urgencia.
+(*)(Así adicionado el inciso c) anterior por el punto 30) inciso a) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 PARTE B: ESTADOS AELC
 1.Ninguna disposición del Capítulo 7 de este Acuerdo, se interpretará para impedir a una Parte a adoptar cualquier medida o abstenerse de revelar información que considere necesaria para la protección de sus intereses esenciales de seguridad relativos a la adquisición de armas, municiones o material de guerra o cualquier otra contratación indispensable para la seguridad nacional o para fines de defensa nacional.
 a.Islandia

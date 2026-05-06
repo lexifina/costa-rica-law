@@ -32,3 +32,7 @@ articulo-18-anexo.md
 articulo-19-anexo.md
 articulo-20-anexo.md
 articulo-21-anexo.md
+articulo-22-anexo.md
+articulo-23-anexo.md
+articulo-24-anexo.md
+articulo-25-anexo.md

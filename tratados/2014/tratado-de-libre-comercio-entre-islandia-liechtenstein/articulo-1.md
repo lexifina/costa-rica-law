@@ -11,7 +11,8 @@ LOS ESTADOS AELC
 Y
 LOS ESTADOS CENTROAMERICANOS
 PREÁMBULO
-Islandia, el Principado de Liechtenstein, el Reino de Noruega y la Confederación Suiza (en lo sucesivo denominados como los "Estados AELC") por un lado, y la República de Costa Rica, y la República de Panamá (en lo sucesivo denominados como los "Estados Centroamericanos"), por el otro, en lo sucesivo denominados individualmente como una "Parte" o colectivamente como las "Partes",
+Islandia, el Principado de Liechtenstein, el Reino de Noruega y la Confederación Suiza (en lo sucesivo denominados como los "Estados AELC") por un lado, la República de Costa Rica, y la República de Panamá y la República de Guatemala(*) (en lo sucesivo denominados como los "Estados Centroamericanos"), por el otro, en lo sucesivo denominados individualmente como una "Parte" o colectivamente como las "Partes",
+(*)(Así modificado el párrafo anterior por el punto 1) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 RECONOCIENDO el deseo común de fortalecer los lazos entre los Estados AELC por un lado y los Estados Centroamericanos por el otro mediante el establecimiento relaciones cercanas y duraderas;
 REAFIRMANDO su compromiso con la democracia, el estado de derecho, los derechos humanos y las libertades fundamentales de conformidad con sus obligaciones bajo el derecho internacional, incluyendo lo dispuesto en la Carta de las Naciones Unidas y la Declaración Universal de los Derechos Humanos;
 REAFIRMANDO su compromiso de perseguir el objetivo de desarrollo sostenible y reconociendo la importancia de la coherencia y el apoyo mutuo del comercio, el medio ambiente y las políticas laborales en este sentido;
@@ -29,7 +30,7 @@ CAPÍTULO 1
 DISPOSICIONES GENERALES
 Artículo 1.1
 Establecimiento de una Zona de Libre Comercio
-Las Partes, de conformidad con el Artículo XXIV del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994 (en lo sucesivo denominado como “GATT 1994”) y el Artículo V del Acuerdo General sobre el Comercio de Servicios (en lo sucesivo denominado como “AGCS”), establecen una zona de libre comercio, basados en el respeto de los principios democráticos y los derechos humanos, por medio de este Acuerdo.
+Las Partes, de conformidad con el Artículo XXIV del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994 (en lo sucesivo denominado como "GATT 1994") y el Artículo V del Acuerdo General sobre el Comercio de Servicios (en lo sucesivo denominado como "AGCS"), establecen una zona de libre comercio, basados en el respeto de los principios democráticos y los derechos humanos, por medio de este Acuerdo.
 Artículo 1.2
 Objetivos
 Los objetivos de este Acuerdo son:
@@ -62,7 +63,7 @@ Tributación
 3.No obstante lo dispuesto en los párrafos 1 y 2:
 (a) el Artículo 2.8 y aquellas otras disposiciones de este Acuerdo que sean necesarias para darle efecto a ese Artículo aplicarán a las medidas tributarias en el mismo grado que el Artículo III del GATT de 1994; y
 (b) el Artículo 2.4 aplicará a las medidas tributarias.
-4. Para los efectos de este Artículo, medidas tributarias no incluyen un “arancel aduanero” como se define en el Artículo 2.3.
+4. Para los efectos de este Artículo, medidas tributarias no incluyen un "arancel aduanero" como se define en el Artículo 2.3.
 Artículo 1.7
 Transparencia
 1. Las Partes publicarán, o de otra manera pondrán a disposición del público, sus leyes, reglamentos, decisiones judiciales y decisiones administrativas de aplicación general, así como sus respectivos tratados internacionales, que pudieran afectar el funcionamiento de este Acuerdo.
@@ -74,4 +75,4 @@ Comercio Electrónico
 Las Partes reconocen el creciente rol del comercio electrónico para el comercio entre ellas. Con el fin de apoyar las disposiciones de este Acuerdo relacionadas con el comercio de mercancías y servicios, las Partes se comprometen a intensificar su cooperación sobre comercio electrónico para su beneficio mutuo. Para ese efecto, las Partes han establecido el marco contenido en el Anexo II.
 Artículo 1.9
 Definiciones de Aplicación General
-Salvo que se disponga lo contrario en este Acuerdo, “días” significa días calendario.
+Salvo que se disponga lo contrario en este Acuerdo, "días" significa días calendario.

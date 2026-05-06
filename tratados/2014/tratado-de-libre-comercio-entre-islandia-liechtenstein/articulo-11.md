@@ -2,7 +2,7 @@ CAPÍTULO 11
 DISPOSICIONES INSTITUCIONALES
 Artículo 11.1
 Comité Conjunto
-1. Las Partes establecen el Comité Conjunto AELC-CENTROAMÉRICA (en lo sucesivo denominado como “el Comité Conjunto”) integrado por representantes de cada Parte a nivel Ministerial con responsabilidad en cuestiones relacionadas con comercio, de conformidad con los respectivos marcos legales de las Partes, sus designados o a nivel de altos funcionarios seleccionados para este propósito.
+1. Las Partes establecen el Comité Conjunto AELC-CENTROAMÉRICA (en lo sucesivo denominado como "el Comité Conjunto") integrado por representantes de cada Parte a nivel Ministerial con responsabilidad en cuestiones relacionadas con comercio, de conformidad con los respectivos marcos legales de las Partes, sus designados o a nivel de altos funcionarios seleccionados para este propósito.
 2.El Comité Conjunto:
 (a)supervisará y examinará la implementación de este Acuerdo;
 (b)mantendrá bajo examen la posibilidad de una ulterior eliminación de barreras al comercio y otras medidas restrictivas relativas al comercio entre los Estados AELC y los Estados Centroamericanos;
@@ -12,10 +12,11 @@ Comité Conjunto
 (f)establecerá sus propias reglas de procedimiento; y
 (g)considerará cualquier otro asunto que pudiese afectar la operación de este Acuerdo.
 3.El Comité Conjunto podrá:
-(a)modificar, en cumplimiento de los objetivos del Acuerdo: Apéndices 1-5 al Anexo I, Anexos III, IV, V, IX, X, XI, XII, XIII, XIV, Anexos XV, XVI, XVIII, and Anexo XX;
+(a)modificar, en cumplimiento de los objetivos del Acuerdo: Apéndices 1-5 al Anexo I, Anexos III, IV, V, IX, X, XI, XII, XIII, XIV, XXII, XXIII, XXIV, XXV(*), Anexos XV, XVI, XVIII, and Anexo XX;
+(*)(Así modificado el párrafo anterior por el punto 4) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 (b)modificar los Anexos I, VII y VIII sujeto al cumplimiento de los requisitos legales internos de cada Parte; y
 (c)excepto que se disponga lo contrario en este Artículo, considerar y proponer a las Partes cualquier enmienda a los derechos y obligaciones bajo este Acuerdo, incluidos nuevos Anexos y Apéndices a todos los Capítulos de este Acuerdo, y sujeto al cumplimiento de los requisitos legales internos de cada Parte.
-4.Cada Parte implementará, de conformidad con sus procedimientos legales aplicables, cualquier modificación referida en el párrafo 3(a), dentro del periodo que decida el Comité Conjunto.[1]
+4.Cada Parte implementará, de conformidad con sus procedimientos legales aplicables, cualquier modificación referida en el párrafo 3(a), dentro del periodo que decida el Comité Conjunto.[1][1]
 1En el caso de Costa Rica, aplica el Anexo XXI.
 5. El Comité Conjunto podrá decidir establecer subcomités y grupos de trabajo en la medida en que lo considere necesario para que lo asistan en el cumplimiento de sus labores. Excepto que se disponga lo contrario en este Acuerdo, los subcomités y grupos de trabajo trabajarán bajo un mandato establecido por el Comité Conjunto.
 6. El Comité Conjunto podrá tomar decisiones conforme a lo dispuesto en este Acuerdo. En otros asuntos el Comité Conjunto podrá hacer recomendaciones.

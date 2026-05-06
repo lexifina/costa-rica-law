@@ -1,7 +1,8 @@
 ANEXO VIII
 MANDATO DEL SUBCOMITÉ DE COMERCIO DE MERCANCÍAS
 1.Las Partes establecen un Subcomité de Comercio de Mercancías (en lo sucesivo denominado como "Subcomité") compuesto por representantes de todas las Partes.
-2.El Subcomité podrá examinar cualquier asunto que surja bajo el Capítulo 2 de este Acuerdo, incluyendo los Anexos I, III, IV, V, VI y VII.
+2.El Subcomité podrá examinar cualquier asunto que surja bajo el Capítulo 2 de este Acuerdo, incluyendo los Anexos I, III, IV, V, VI, VII and XXII(*).
+(*)(Así modificado el párrafo anterior por el punto 17) del protocolo aprobado por el artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 3.En temas relacionados con el párrafo 2, las funciones del Subcomité incluirán:
 (a) monitoreo y revisión de las medidas tomadas y aplicación de compromisos;
 (b) intercambio de información y revisión del desarrollo;
