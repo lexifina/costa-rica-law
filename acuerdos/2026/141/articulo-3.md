@@ -1,0 +1,1 @@
+Artículo 3º-En dichos procesos de arbitraje la Administración interesada, (Poder Ejecutivo Ministerio de Justicia y Paz) deberá colaborar con la Procuraduría General de la República en todo lo que requiera y cubrir oportunamente todos los montos necesarios para la interposición del arbitraje, así como todos sus gastos, según corresponda.

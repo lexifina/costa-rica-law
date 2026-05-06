@@ -1,0 +1,1 @@
+Artículo 4º-En caso de que el resultado del arbitraje sea favorable para el Estado, las costas procesales deberán serle reintegradas. En lo que respecta a las costas personales, estas deberán depositarse en el fondo de costas del Estado, que administra la jurisdicción contenciosa administrativa.
