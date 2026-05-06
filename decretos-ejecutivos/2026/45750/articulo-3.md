@@ -1,0 +1,5 @@
+Artículo 3.- Modifíquense los incisos a) y f) del artículo 2 del Decreto Ejecutivo N° 39081 del 16 de junio de 2015, para que en adelante se lean de la siguiente manera:
+"a) Beneficiario: empresas que pertenecen al Régimen de Zonas Francas o empresas vinculadas con el Sector Comercio Exterior que postulen a sus empleados o a aspirantes a empleados."
+(...)
+"f) Entrenamiento: Todo conjunto de acciones formativas para la especialización, certificación de conocimientos, competencias y habilidades; así como las subsecuentes readecuaciones o actualizaciones que requiera una persona para su desempeño laboral.
+Entre tales acciones se contemplan las relacionadas con el desarrollo de entrenamientos prácticos o pasantías dirigidas a generar conocimientos, competencias y habilidades a personas que aspiren a obtener empleo en empresas del Régimen de Zonas Francas o en empresas vinculadas con el Sector Comercio Exterior. Los programas de entrenamiento que se desarrollen podrán contar o no con un subsidio económico."
