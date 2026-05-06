@@ -814,7 +814,7 @@ Lista C
 8. El período mínimo de 40 días establecido en el párrafo 2 del Apéndice 8 no se aplicará a la Autoridad del Canal de Panamá. La Autoridad del Canal de Panamá proporcionará a los proveedores tiempo suficiente para preparar y presentar ofertas adecuadas, teniendo en cuenta la naturaleza y complejidad de la contratación. Sin embargo, la Autoridad del Canal de Panamá, en ningún caso dará menos de cinco días hábiles desde la fecha en que se publique el anuncio de contratación a través de internet a la fecha límite de presentación de ofertas.
 9. El Artículo 7.25, párrafo 6 no aplicará a la Autoridad del Canal de Panamá. No obstante lo dispuesto en el Artículo 7.25, párrafo 3, la Autoridad del Canal de Panamá, en ningún caso, dará menos de cinco días hábiles para que los proveedores puedan preparar y presentar impugnaciones por escrito, en el entendimiento de que el plazo comenzará a partir del primer día hábil siguiente a la publicación del anuncio de la adjudicación del contrato a través de internet.
 10. El Artículo 7.23, párrafo 2 no aplicará a la Autoridad del Canal de Panamá. Sin embargo, en relación con cada contratación cubierta, la Autoridad del Canal de Panamá publicará en papel o en medio electrónico, en un plazo razonable, un aviso que incluya al menos: una descripción de las mercancías o servicios objeto del contrato, el nombre de proveedor ganador, el valor de la oferta ganadora tomada en cuenta para la adjudicación del contrato y la fecha de la adjudicación.
-10. El Apéndice 9, parte A, párrafo 4, no aplicará a la Autoridad del Canal de Panamá.
+11. El Apéndice 9, parte A, párrafo 4, no aplicará a la Autoridad del Canal de Panamá.
 (*)c. Guatemala
 1. El Capítulo 7 de este Acuerdo aplica a las otras entidades cubiertas cuando el valor de la contratación sea igual o superior a:
 MERCANCÍAS
@@ -1754,9 +1754,9 @@ APÉNDICE 9 AL ANEXO XX
 VALOR DE UMBRALES Y VALORACIÓN
 PARTE A: ESTADOS CENTROAMERICANOS
 Umbrales
-1. Cada país centroamericano convertirá los umbrales de este Anexo a su respectiva moneda nacional en intervalos de dos años. Cada ajuste tendrá efecto el 1 de enero, iniciando en enero del 2014. En Costa Rica y Guatemala(*), la conversión se basará en la tasa oficial de cambio de su Banco Central, utilizando el promedio de conversión del dólar americano. Panamá calculará el ajuste de los umbrales, basándose en un promedio de las tasas de conversión diarias del dólar americano, en términos de derechos especiales de giro, publicado por el FMI en sus "Estadísticas Financieras Internacionales" mensuales, para el período de dos años previos al 1 de octubre o 1 de noviembre del año anterior a aquel en que los umbrales ajustados tendrán efecto. Dicho procedimiento tendrá lugar dentro del período de dos años que finaliza el 30 de setiembre del año anterior a aquel en que será efectivo el ajuste hecho por cada Estado Centroamericano.
+1. Cada país centroamericano convertirá los umbrales de este Anexo a su respectiva moneda nacional en intervalos de dos años. Cada ajuste tendrá efecto el 1 de enero, iniciando en enero del 2014. En Costa Rica y Guatemala (*), la conversión se basará en la tasa oficial de cambio de su Banco Central, utilizando el promedio de conversión del dólar americano. Panamá calculará el ajuste de los umbrales, basándose en un promedio de las tasas de conversión diarias del dólar americano, en términos de derechos especiales de giro, publicado por el FMI en sus "Estadísticas Financieras Internacionales" mensuales, para el período de dos años previos al 1 de octubre o 1 de noviembre del año anterior a aquel en que los umbrales ajustados tendrán efecto. Dicho procedimiento tendrá lugar dentro del período de dos años que finaliza el 30 de setiembre del año anterior a aquel en que será efectivo el ajuste hecho por cada Estado Centroamericano.
 (*)(Así modificado el párrafo anterior por el punto 29) inciso a) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
-2.El valor de los nuevos umbrales calculados se pondrá a disposición en las respectivas monedas por Costa Rica, Guatemala(*) y Panamá, antes de que el respectivo umbral tenga efecto.
+2.El valor de los nuevos umbrales calculados se pondrá a disposición en las respectivas monedas por Costa Rica, Guatemala (*) y Panamá, antes de que el respectivo umbral tenga efecto.
 (*)(Así modificado el párrafo anterior por el punto 29) inciso b) del protocolo aprobado por artículo 1° del decreto ejecutivo N° 45767 del 23 de enero del 2026 "Publicación de la Decisión N° 1 de 2015 del Comité Conjunto del Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos de fecha 22 de junio de 2015 y el "Protocolo Adhesión de la República de Guatemala al Tratado de Libre Comercio entre los Estados AELC y Los Estados Centroamericanos")
 Valoración
 3.Al estimar el valor de una contratación para efectos de determinar si está cubierta por el Capítulo 7 de este Acuerdo, una entidad contratante:
@@ -1776,6 +1776,20 @@ Valoración
 (b) incluirá el máximo estimado total del valor de la contratación durante toda su duración, tomando en consideración todas las formas de remuneración, incluyendo cualquier prima, honorarios, comisiones, intereses y, cuando la contratación disponga la posibilidad de cláusulas de opción, el valor total de dichas opciones;
 (c) cuando la contratación sea conducida en múltiples partes (en lo sucesivo denominado como "contratos recurrentes"), con los contratos que se adjudiquen al mismo tiempo o en un período dado a uno o más proveedores, basar su cálculo del valor máximo total de la contratación durante un período de 12 meses; y
 (d) cuando la legislación nacional permita la celebración de contratos por tiempo indefinido y no se especifica un precio total, la base para la valoración de este tipo de contratos se basará en la cuota mensual estimada multiplicada por 48.
+(Nota de Sinalevi: Mediante el artículo 8 del decreto ejecutivo N° 45761 del 8 de abril de 2026, se estableció que el valor de los umbrales, tomando para tales efectos la suma de un dólar con treinta y siete centavos (USD 1,37) por Derechos Especiales de Giro (DEG) y quinientos dieciséis colones con cuarenta y tres céntimos (¢516,43) por dólar estadounidense será:
+b) Para el Acuerdo que establece una asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro; el Tratado de Libre Comercio entre los Estados AELC y los Estados Centroamericanos; y el Acuerdo por el que se establece una asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica:
+Tipo de contratación | Derechos especiales de giro | Equivalente en Colones
+Instituciones de gobierno central
+Mercancías y Servicios. | 130.000 | 89.432.214,49
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Instituciones de sector subcentral
+Mercancías y Servicios. | 355.000 | 244.218.739,58
+Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+Otras instituciones
+Lista A: Mercancías y Servicios. | 200.000 | 137.588.022,30
+Lista B: Mercancías y Servicios. | 400.000 | 275.176.044,60
+Lista A y Lista B: Servicios de construcción. | 5.000.000 | 3.439.700.557,49
+“)
 APÉNDICE 10 AL ANEXO XX
 AVISOS, DOCUMENTOS DE CONTRATACIÓN Y LISTA DE PROVEEDORES
 Avisos
