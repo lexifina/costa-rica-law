@@ -11,3 +11,4 @@ INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
 DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2026 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 159 a La Gaceta N° 233 del 11 de diciembre de 2025)
+(Modificado el inciso b) anterior por el artículo1° del decreto ejecutivo N° 45788 del 28 de abril de 2026)
