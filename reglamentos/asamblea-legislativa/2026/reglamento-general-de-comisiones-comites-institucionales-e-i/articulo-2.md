@@ -1,0 +1,7 @@
+Artículo 2.- Las comisiones, comités y equipos de trabajo.
+Se crearán las comisiones, comités y los equipos de trabajo administrativos que se consideren pertinentes, para hacer más eficiente el servicio que se presta o para mejorar los procesos internos de gestión. Ninguna comisión o comité podrá subrogar las funciones y responsabilidades del jerarca ni de los titulares subordinados.
+Las comisiones, comités y equipos se clasifican de la siguiente manera:
+1. Comisiones interinstitucionales: todas aquellas comisiones administrativas que tengan fundamento legal o reglamentario y en las que la Asamblea Legislativa deba participar en su condición de institución pública.
+2. Comisiones o comités institucionales: integrados exclusivamente por funcionarios legislativos que tengan labores de coordinación o de decisión ejecutiva conjunta que requieran el concurso de varias dependencias organizacionales, o que, por razones de control interno o mandato legal, se requiera su conformación. Pueden ser temporales o permanentes, y solo pueden ser creadas por el Directorio Legislativo o por la Gerencia General, atendiendo, según corresponda, a los requerimientos normativos.
+3. Equipos de trabajo: aquellos grupos de funcionarios de varias dependencias que requieran conformarse como equipo para la atención de asuntos institucionales de carácter temporal.
+Su accionar se enmarca en un enfoque de gestión para resultados, contribuyendo a la generación de valor público mediante la planificación, ejecución, seguimiento y evaluación de sus acciones.

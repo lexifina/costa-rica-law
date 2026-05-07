@@ -1,0 +1,5 @@
+Artículo 8.- Las minutas, acuerdos y documentación.
+Las comisiones, comités y equipos de trabajo deberán elaborar minutas de sus sesiones o reuniones, donde se consignen los acuerdos tomados y las votaciones realizadas, las cuales deberán ser elaboradas bajo el formato estandarizado definido por la Gerencia General para este fin.
+Quien coordine la comisión, comité o equipo de trabajo será el responsable de las minutas y dar seguimiento a los acuerdos tomados.
+Para la elaboración de las minutas, podrán disponer del recurso humano del Departamento de Comisiones Legislativas o el Departamento de Servicios Parlamentarios, previa coordinación, a fin de que no interfiera con las labores sustantivas de esos departamentos.
+Las minutas, con sus respectivos acuerdos, así como la documentación oficial respectiva, deberán estar en la Intranet institucional, de acceso libre y abierto a los funcionarios de la institución, con las excepciones que, según la ley, estén establecidas. La persona que coordine la comisión, comité o el equipo de trabajo, o a quien este designe, deberá mantener actualizado dicho repositorio de documentación.
