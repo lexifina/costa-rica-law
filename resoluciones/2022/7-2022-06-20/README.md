@@ -14,3 +14,4 @@ Comunica emisión de resolución de la Dirección General de Servicio Civil ( DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-24 | la propia norma |
+| 2 | 2026-05-07 | Resolución 148 (2026-05-07) |
