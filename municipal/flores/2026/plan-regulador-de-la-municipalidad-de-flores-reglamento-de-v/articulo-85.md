@@ -1,0 +1,1 @@
+Artículo 85. Adicionalmente a lo indicado, los estacionamientos subterráneos deberán cumplir con los requisitos que establece el Reglamento de Construcciones de este Plan Regulador, para construcciones subterráneas.

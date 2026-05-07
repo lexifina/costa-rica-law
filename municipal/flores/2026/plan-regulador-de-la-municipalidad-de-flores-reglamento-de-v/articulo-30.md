@@ -1,0 +1,1 @@
+Artículo 30. Accesos. Toda terminal deberá tener al menos un ingreso y una salida claramente diferenciados entre sí, preferiblemente desde calles distintas. Cada acceso deberá tener ancho mínimo de 6,5 metros y estar diseñados para un radio de giro interno de al menos 8 metros. Deberán mantenerse libre de cualquier tipo de obstáculo.

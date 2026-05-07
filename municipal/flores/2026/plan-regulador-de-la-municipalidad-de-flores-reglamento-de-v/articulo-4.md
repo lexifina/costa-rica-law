@@ -1,0 +1,1 @@
+Artículo 4. La interconexión entre calles y vías de acceso restringido será determinada por el MOPT de acuerdo con el Reglamento de carreteras de acceso restringido Decreto No.35586-MOPT y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 100. No se permite la colocación temporal de desechos sólidos sobre las aceras, las propiedades privadas podrán tener una canasta para recolección de basura dentro del predio con acceso directo desde el espacio público o en su defecto una canasta pequeña en la franja verde que no sobrepase en ancho de este espacio.

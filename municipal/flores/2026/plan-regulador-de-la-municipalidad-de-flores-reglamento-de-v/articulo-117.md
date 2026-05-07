@@ -1,0 +1,1 @@
+Artículo 117. Cuando se implemente una senda para bicicletas, deberá estar correctamente señalizada y contar con una superficie demarcada y acondicionada para permitir el tránsito seguro de los ciclistas, de manera que la senda sea fácil de identificar tanto por los ciclistas como por peatones y conductores de vehículos motorizados.

@@ -1,0 +1,1 @@
+Artículo 41. Para aspectos de requisitos constructivos con los que debe cumplir la terminal, se deberá referir al Capítulo 32. Terminales de transporte público, del Reglamento de Construcciones de este Plan Regulador.

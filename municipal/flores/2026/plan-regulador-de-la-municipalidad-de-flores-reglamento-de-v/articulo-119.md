@@ -1,0 +1,1 @@
+Artículo 119. Tanto en el diseño de las sendas como en los espacios de estacionamiento y demás componentes asociados a la infraestructura necesaria para la circulación de bicicletas, se deberán tomar como referencia las siguientes dimensiones para una bicicleta: 1,90m de largo, 0,60m de ancho y una altura de 1,10m

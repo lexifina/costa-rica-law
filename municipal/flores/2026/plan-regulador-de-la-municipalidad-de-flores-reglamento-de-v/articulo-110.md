@@ -1,0 +1,1 @@
+Artículo 110. Los pasos peatonales contarán con rampas con pasamanos, señalizaciones visuales, auditivas y táctiles, para garantizar que sean utilizadas sin riesgo por personas con alguna discapacidad física o con movilidad reducida.

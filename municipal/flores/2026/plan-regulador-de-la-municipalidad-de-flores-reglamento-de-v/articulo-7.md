@@ -1,0 +1,1 @@
+Artículo 7. A partir de la entrada en vigor del presente Plan Regulador, el trazado de las vías principales de las urbanizaciones debe ajustarse a los trazados viales definidos en este Reglamento y designados como Vialidad proyectada, en el mapa 1 de este Reglamento.

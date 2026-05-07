@@ -1,0 +1,1 @@
+Artículo 16. La Municipalidad deberá realizar las acciones referentes a la recuperación del derecho de vía de las vías existentes, para lo cual se tomará en cuenta la clasificación de las carreteras refiriéndose al mapa 1 de este Reglamento y la información del catastro del cantón.

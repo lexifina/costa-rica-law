@@ -1,0 +1,1 @@
+Artículo 49. En el supuesto de que el paso de vehículos privados en la vía pública no sea permitido, como es el caso de bulevares o vías de acceso exclusivo para transporte público, será prohibido crear zonas de estacionamiento con salida directa o accesos hacia dicha vía.

@@ -1,0 +1,1 @@
+Artículo 79. En los estacionamientos se deben garantizar radios de giro para vehículos pesados de al menos 13,7 metros y un radio de 5,2 metros para la trayectoria de la saliente trasera del vehículo.

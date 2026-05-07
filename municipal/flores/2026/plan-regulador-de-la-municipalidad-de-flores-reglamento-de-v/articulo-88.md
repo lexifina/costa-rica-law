@@ -1,0 +1,1 @@
+Artículo 88. En caso de que exista ventanilla de pago, frente a ella debe construirse una acera con un ancho mínimo de 1 metro y con una elevación mínima de 15 centímetros. Si se deben poner varios escalones la contrahuella no será mayor a 15 centímetros.

@@ -1,0 +1,1 @@
+Artículo 114. Si la colocación de la parada es sobre una acera existente, deberá dejarse al menos 1,2 metros de ancho para la circulación peatonal. El escampadero o cualquier elemento de este, tendrá una altura mínima de 2,10 metros.

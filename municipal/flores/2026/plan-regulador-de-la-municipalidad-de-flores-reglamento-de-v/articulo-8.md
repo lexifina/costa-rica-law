@@ -1,0 +1,1 @@
+Artículo 8. Las vías que aparecen en el Mapa 1 de Vialidad proyectada, marcadas como vías locales Tipo 1, Tipo 2 y Tipo 3, deberán cumplir con las características de ancho de derecho de vía, calzada, aceras y franja verde que se definen en el Artículo 13 y el Artículo 14 de este reglamento.

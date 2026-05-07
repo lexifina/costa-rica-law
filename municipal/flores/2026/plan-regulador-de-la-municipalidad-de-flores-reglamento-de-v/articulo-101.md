@@ -1,0 +1,1 @@
+Artículo 101. El mobiliario urbano, ya sea publicidad, paradas de bus u otros debe ser ubicado en una franja contigua a la acera, y no debe interrumpir el paso peatonal ni reducir el espacio efectivo de circulación.

@@ -1,0 +1,1 @@
+Artículo 99. Es prohibido dejar escombros, hacer excavaciones o poner obstáculos al tránsito sobre las aceras y ciclovías. Si los trabajos son sobre la acera, se deben colocar banderas y letreros durante el día y señales claramente visibles durante la noche a una distancia de quince metros de los obstáculos, de manera que prevenga que se transite por dicha vía.

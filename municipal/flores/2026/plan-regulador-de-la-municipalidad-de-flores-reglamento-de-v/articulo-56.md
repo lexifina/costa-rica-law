@@ -1,0 +1,1 @@
+Artículo 56. Con excepción de las zonas Industrial y de Almacenamiento y logística, según el Reglamento de Zonificación de este Plan Regulador, se podrán impermeabilizar totalmente los retiros laterales, frontales y posteriores siempre que se utilicen como accesos o patios de maniobras y se cumpla con el porcentaje de cobertura máximo establecido para la zona.

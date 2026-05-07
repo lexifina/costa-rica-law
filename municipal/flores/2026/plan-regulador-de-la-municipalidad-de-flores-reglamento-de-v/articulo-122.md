@@ -1,0 +1,1 @@
+Artículo 122. Para la creación de ciclovías, se establece una distancia mínima 1,75 metros cuando es unidireccional y de 2,75 metros cuando es bidireccional. Este ancho no podrá descontarse del ancho establecido para las aceras.

@@ -1,0 +1,1 @@
+Artículo 121. En todos los espacios destinados al estacionamiento de bicicletas deberá contarse con las indicaciones respecto a la manera correcta y más eficaz de estacionar con seguridad los vehículos. Esta información debe ser expresada al usuario por medio de señalización clara, visible y acorde con el tipo de soporte utilizado.

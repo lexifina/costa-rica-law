@@ -1,0 +1,1 @@
+Artículo 74. En las rampas de acceso de los vehículos desde la calle, el desnivel debe salvarse con desniveles construidos en la franja verde o una longitud máxima de 50 centímetros esto en el supuesto de que la franja verde no exista. Los desniveles que se generan en los costados también deben resolverse con rampas, de pendiente no mayor a un 30% de la pendiente de la acera.

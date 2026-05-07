@@ -1,0 +1,4 @@
+Artículo 104. Franjas verdes. En las áreas correspondientes a franjas verdes, se deben acatar las siguientes disposiciones:
+a. Debe estar reservada siempre para vegetación, no podrá ser pavimentada ni impermeabilizada de ninguna forma, excepto para el acceso vehicular a los predios y paradas oficiales de transporte público. En las zonas comerciales se puede impermeabilizar la franja verde, si se colocan maceteras
+en su lugar y siempre que no obstaculicen el paso de peatones.
+b. Las franjas verdes serán interrumpidas 8 metros antes del inicio del arco de curvatura de la esquina mientras que la arborización debe ser interrumpida 14 metros antes del arco de curvatura. En la longitud entre la interrupción de la arborización y la franja verde, se podrá colocar vegetación arbustiva, setos, amapolas, mobiliario urbano, barreras de seguridad u otros elementos cuya altura no supere los 60 centímetros.

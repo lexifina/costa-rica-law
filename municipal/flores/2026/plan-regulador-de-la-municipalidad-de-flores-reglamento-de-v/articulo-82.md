@@ -1,0 +1,1 @@
+Artículo 82. El espacio destinado para las maniobras de entrada y salida de vehículos entre la vía pública y el estacionamiento no podrá ser utilizado como espacio de estacionamiento bajo ningún supuesto. Deberá estar libre de construcciones y vegetación que impidan las maniobras de los vehículos.

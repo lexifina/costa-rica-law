@@ -1,0 +1,2 @@
+Artículo 108. En el caso de acceso vehicular a los predios, el desnivel entre la calle y acera debe salvarse con rampas construidas en la franja verde, en ninguna circunstancia se permiten estas rampas en el
+ancho destinado a aceras, excepto que no exista franja verde, en este caso dicha rampa no podrá sobrepasar los 50 centímetros de longitud. En caso de existir un desnivel entre la acera y la propiedad, dicha diferencia debe ser asumida por el propietario, de modo que la rampa será construida dentro de la propiedad.

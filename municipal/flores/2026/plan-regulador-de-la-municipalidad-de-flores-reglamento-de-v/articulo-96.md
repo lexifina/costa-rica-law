@@ -1,0 +1,1 @@
+Artículo 96. Construcción y mantenimiento de aceras de vías existentes. Todos los trabajos de adecuación de aceras existentes, franjas verdes y sus elementos deben respetarse las dimensiones mínimas señaladas en el Artículo 95. Deberá crearse una franja verde solo si el derecho de vía lo permite y respetando el alineamiento municipal o del MOPT

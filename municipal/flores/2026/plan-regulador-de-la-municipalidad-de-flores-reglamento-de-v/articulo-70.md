@@ -1,0 +1,1 @@
+Artículo 70. Accesos. Cuando un estacionamiento tenga un solo acceso, este deberá tener como mínimo dos carriles, uno de ingreso y otro de salida, de 3 metros de ancho cada uno. Cuando haya dos accesos, al menos uno debe tener 5 metros de ancho para permitir el acceso de vehículos de emergencias, el otro acceso debe cumplir con el ancho mínimo de 3 metros.

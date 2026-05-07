@@ -1,0 +1,1 @@
+Artículo 47. Para efectos de lo establecido en el artículo anterior, deberá existir un espacio de estacionamiento de bicicletas por cada 10 que se tengan para vehículos, pero en todo caso habrá tres espacios como mínimo. Se debe colocar un dispositivo adecuado para el estacionamiento de las bicicletas

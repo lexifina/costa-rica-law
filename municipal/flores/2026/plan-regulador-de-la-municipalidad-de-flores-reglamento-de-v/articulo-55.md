@@ -1,0 +1,1 @@
+Artículo 55. De los retiros frontales se podrá impermeabilizar hasta un 50% para ser utilizados en los accesos a las zonas de parqueos o las rampas de acceso de los estacionamientos con acceso directo desde vía pública, siempre y cuando se respeten los retiros y el porcentaje de cobertura máximo.

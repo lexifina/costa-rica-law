@@ -1,0 +1,1 @@
+Artículo 23. Para el diseño geométrico de infraestructura vial, se deberán aplicar los criterios del Manual Centroamericano de Normas para el diseño Geométrico Carreteras, de SIECA y lo estipulado en este reglamento.

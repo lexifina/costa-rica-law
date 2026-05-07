@@ -1,0 +1,17 @@
+TITULO IV. ACERAS Y CICLOVÍAS
+Consideraciones generales
+. El mejoramiento de la infraestructura peatonal y las ciclovías es parte del manejo integral de la movilidad dentro de la ciudad, la vivencia del espacio público y sus dinámicas.
+. El cantón de Flores es un lugar que se caracteriza por los agradables recorridos peatonales que son
+posibles en los centros de distrito gracias a la vegetación, paisaje arquitectónico y seguridad. Es importante preservar esta condición y fomentar en el resto del cantón recorridos peatonales de igual o mejor calidad mejorando las condiciones para el desplazamiento a pie de las personas.
+. Asimismo, las cualidades paisajísticas y condiciones topográficas de Flores favorecen la práctica del ciclismo ya sea deportivo, recreativo o como medio de transporte, sin embargo, ante el aumento en la motorización, el desarrollo seguro y equilibrado de esta actividad requiere de algunas mejoras básicas en la red vial.
+CAPITULO 8. ACERAS, FRANJAS VERDES Y ARBORIZACIÓN
+Consideraciones específicas
+. La acera es un bien colectivo que permite a los peatones moverse con libertad y cómodamente. Para ello, el sistema de aceras debe contar con el ancho suficiente para un tránsito fluido, mobiliario urbano necesario, con una franja verde o bien espacios libres para la siembra de árboles, superficies antideslizantes y, en general, las condiciones mínimas para que el desplazamiento por la ciudad sea una experiencia placentera.
+. El éxito de un sistema de aceras está relacionado a su continuidad, por lo que deben eliminarse las interrupciones o discontinuidades en ellas.
+. Un aspecto preocupante, es que existen sectores donde la infraestructura peatonal es deficiente o inexistente. Esta situación reduce el aprovechamiento del espacio público, al tiempo que deja al peatón en una situación de inseguridad al verse obligado a caminar por la calle poniendo en riesgo su vida.
+. Con la finalidad de que no se genere una percepción de inseguridad en el espacio público, las regulaciones estarán dirigidas a garantizar que cada frente de cuadra posea iluminación adecuada (ubicada a una altura acorde al peatón y con separaciones entre sí que no generen segmentos de oscuridad).
+. Las franjas verdes de las aceras permiten crear un ambiente más agradable para el peatón, sirven al urbanizador para colocar rótulos de señalización, teléfonos públicos y trabajar el sistema de alcantarillado y electricidad sin necesidad de romper el pavimento. Además, por cuestiones de seguridad entre la calle y la acera, evita que el peatón circule al borde del tráfico rodado.
+. Incorporar zonas verdes en las vías implica una menor impermeabilización del terreno y una reducción de la temperatura en comparación con calles totalmente asfaltadas.
+. Las normas que regulan las aceras aplican para la creación de nuevas aceras, así como la reparación y mantenimiento de las aceras existentes. Pues la consolidación del sistema de aceras requiere la intervención de todos los tramos donde haya un faltante de aceras.
+Regulaciones
+Artículo 93. Será responsabilidad de la municipalidad la construcción, reconstrucción, rehabilitación y mantenimiento de las aceras respetando los lineamientos señalados en este título. La municipalidad trasladará los costos de estas actividades a los contribuyentes del distrito según lo establezcan los procedimientos de cobro municipales. A los costos anteriormente mencionados se adicionará un 10% del valor por concepto de utilidad en favor de la municipalidad.
