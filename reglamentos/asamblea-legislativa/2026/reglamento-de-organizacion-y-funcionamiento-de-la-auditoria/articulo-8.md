@@ -1,0 +1,2 @@
+Artículo 8. Manifestación de impedimento. Toda persona funcionaria de la Auditoría Interna deberá informar por escrito al auditor interno cualquier circunstancia que pueda afectar su independencia de criterio y objetividad. En caso de que la situación involucre al auditor interno, este deberá comunicarlo al jerarca institucional.
+El auditor interno deberá establecer medidas formales para identificar, gestionar y controlar situaciones de impedimento que puedan comprometer la objetividad e independencia de la Auditoría Interna, asegurando su debida documentación y seguimiento.

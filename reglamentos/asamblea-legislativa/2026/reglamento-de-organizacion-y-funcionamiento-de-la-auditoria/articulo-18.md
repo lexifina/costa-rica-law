@@ -1,0 +1,1 @@
+Artículo 18. Requisitos del personal de la Auditoría Interna. Para garantizar la especialización del personal de la Auditoría Interna, la Gerencia de Recursos Humanos en coordinación con la Auditoría Interna establecerán, en los manuales de cargos y clases, la descripción de las funciones y los requisitos correspondientes para cada uno de los puestos de la Auditoría Interna.

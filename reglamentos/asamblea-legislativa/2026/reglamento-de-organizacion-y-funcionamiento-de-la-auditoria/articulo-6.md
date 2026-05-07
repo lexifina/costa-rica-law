@@ -1,0 +1,1 @@
+Artículo 6. Objetividad individual. Es obligación de las personas funcionarias de la Auditoría Interna mantener una actitud imparcial y neutral, así como evitar conflictos de intereses, a cuyo propósito deben atenerse a lo dispuesto sobre el particular en este reglamento y en las demás disposiciones aplicables.

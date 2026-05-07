@@ -1,0 +1,3 @@
+45. Informes de auditoría dirigidos al jerarca. Cuando los informes sean dirigidos al jerarca, se llevará a cabo mediante una conferencia con la Primera Secretaría del Directorio, así como, con los responsables de tomar las acciones con respecto a los resultados, conclusiones y recomendaciones contenidos en el informe preliminar.
+En casos excepcionales, debidamente justificados por el auditor interno, la comunicación de los resultados podrá realizarse por correo electrónico institucional, garantizando la trazabilidad del proceso.
+La oficialización de los resultados se hará mediante una comunicación formal por escrito, según corresponda.

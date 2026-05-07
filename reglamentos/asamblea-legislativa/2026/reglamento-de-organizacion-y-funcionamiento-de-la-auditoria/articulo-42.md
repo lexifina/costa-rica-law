@@ -1,0 +1,1 @@
+Artículo 42. Requisitos de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en las Normas Generales de Auditoría para el sector público y en las Normas para el ejercicio de la Auditoría Interna en el sector público, emitidas por la Contraloría General de la República.

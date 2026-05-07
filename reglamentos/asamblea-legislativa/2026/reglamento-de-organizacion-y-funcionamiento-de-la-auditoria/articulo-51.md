@@ -1,0 +1,1 @@
+Artículo 51. Acceso a informes. Los informes de auditoría y documentos de servicios preventivos, una vez comunicados a la Administración Activa, serán de acceso público, salvo aquellos que contengan información sujeta a restricciones de confidencialidad conforme a la normativa vigente en materia de acceso a la información y protección de datos personales.

@@ -1,0 +1,3 @@
+SECCIÓN VII
+Otros aspectos relativos a los servicios de la Auditoría
+Artículo 61. Acceso a los registros de trabajo. El auditor interno deberá controlar el acceso de personas ajenas a la Auditoría Interna, a los registros de trabajo de los estudios que se realicen, velar por el resguardo de estos y establecerlo en sus manuales internos, en los que se indique que se requerirá de su autorización o la de quien designe para su acceso. Además, deberá establecer requisitos de custodia consistentes con las regulaciones pertinentes. Para tales efectos, deberá considerarse lo estipulado en la Ley N.º 8968, Ley Protección de la Persona frente al tratamiento de sus datos personales.

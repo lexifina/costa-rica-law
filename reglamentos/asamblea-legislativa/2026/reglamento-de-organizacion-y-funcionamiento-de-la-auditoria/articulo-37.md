@@ -1,0 +1,5 @@
+SECCIÓN III
+Servicios de la Auditoría Interna
+Artículo 37. Servicios de la Auditoría Interna. Los servicios que presta la Auditoría Interna se clasifican en servicios de auditoría y servicios preventivos. Los servicios de auditoría comprenden los distintos tipos de auditoría según sus objetivos:
+a) Auditoría Financiera, Auditoría de Carácter Especial o de Cumplimiento y Auditoría Operativa.
+b) Los servicios preventivos incluyen la asesoría, la advertencia y la autorización de libros. Adicionalmente a estos servicios de auditoría, se realiza la investigación de presuntos hechos irregulares en ejercicio de la competencia otorgada por la Ley N.º 8292 y la Ley N.º 8422. La Auditoría Interna deberá garantizar que todas las auditorías y servicios preventivos se realicen conforme a los procedimientos normativos aplicables, asegurando su trazabilidad y documentando su ejecución. Asimismo, la investigación de presuntos hechos irregulares deberá realizarse en estricto cumplimiento de los Lineamientos Generales para el análisis de presuntos hechos irregulares emitidos por la CGR, respetando los plazos y procedimientos establecidos en estos lineamientos.

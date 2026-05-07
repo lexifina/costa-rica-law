@@ -1,0 +1,1 @@
+Artículo 21. Delegación de los deberes y funciones al subauditor interno. El auditor interno podrá delegar sus funciones al subauditor interno cuando así lo estime conveniente y oportuno, utilizando criterios de idoneidad y conforme lo establecen los artículos 89 al 92 de la sección tercera "De la Delegación", capítulo tercero, de la Ley General de la Administración Pública.

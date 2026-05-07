@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de Acción. El ámbito de acción de la Auditoría Interna está conformado por la Asamblea Legislativa y los entes públicos o privados, que custodien, administren y/o reciban beneficios patrimoniales de la institución.

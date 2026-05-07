@@ -1,0 +1,2 @@
+Artículo 64. Aplicación del régimen disciplinario ante el incumplimiento de recomendaciones. Cuando la Auditoría Interna establezca que, sin justificación razonable, existen recomendaciones que no fueron debidamente implementadas se solicitará a la Administración la aplicación del régimen disciplinario sobre las personas funcionarias responsables, de conformidad con el artículo 39 de la Ley N.º 8292.
+El auditor interno deberá documentar los casos de incumplimiento antes de solicitar la aplicación de sanciones, detallando los intentos previos de seguimiento y corrección.

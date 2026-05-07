@@ -1,0 +1,2 @@
+Artículo 67. Confidencialidad respecto de los informes finales de diversos asuntos de control interno. Estos informes una vez comunicados a la Administración Activa, son de libre acceso por parte de cualquier persona pública o privada, sea o no sujeto pasivo de evaluación, no existiendo ninguna restricción ulterior en cuanto a su acceso. Para ello, se deberá cumplir lo establecido en la Ley N.º 8968.
+El auditor interno deberá implementar controles internos adecuados para evitar accesos no autorizados y garantizar la protección de los datos recopilados.

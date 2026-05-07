@@ -1,0 +1,3 @@
+SECCIÓN II
+Planificación
+Artículo 34. Planificación estratégica. La Auditoría Interna contará con un proceso de planificación estratégica, congruente con el análisis de aspectos tales como: competencia de la Auditoría, deberes, universo auditable, valoración del riesgo y los objetivos de la organización, además, factores claves de éxito, aporte a las ideas rectoras y objetivos estratégicos institucionales (misión, visión, valores, indicadores y otros) y los resultados esperados de su gestión con los indicadores aplicables en correspondencia con los lineamientos que emita el auditor interno y deberá ser presentada a conocimiento del Directorio legislativo.

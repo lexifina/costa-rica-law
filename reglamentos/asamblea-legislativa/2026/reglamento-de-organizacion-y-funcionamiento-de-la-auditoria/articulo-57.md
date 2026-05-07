@@ -1,0 +1,1 @@
+Artículo 57. Protección de la identidad del denunciante. En todo papel de trabajo, razón de archivo o comunicación a terceros generado por la Auditoría Interna relacionado con la denuncia que se recibiera, no se debe consignar la identidad de la persona denunciante.

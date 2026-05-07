@@ -1,0 +1,1 @@
+Artículo 29. Registro presupuestario. La Auditoría Interna, en colaboración con la unidad responsable del control del presupuesto institucional, mantendrá un registro separado de la asignación presupuestaria anual de la Auditoría Interna, detallado para el control de su ejecución y el suministro periódico de información al Auditor Interno.

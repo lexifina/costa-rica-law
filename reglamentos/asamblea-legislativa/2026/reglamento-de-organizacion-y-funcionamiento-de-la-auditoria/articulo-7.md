@@ -1,0 +1,1 @@
+Artículo 7. Prohibiciones del personal de Auditoría Interna. El auditor interno, el subauditor interno y las demás personas funcionarias de la Auditoría Interna deberán respetar el régimen de prohibiciones contemplado en el ordenamiento jurídico vigente, laborando con apego al principio de legalidad, a la normativa técnica, jurídica y ética que rige su competencia.

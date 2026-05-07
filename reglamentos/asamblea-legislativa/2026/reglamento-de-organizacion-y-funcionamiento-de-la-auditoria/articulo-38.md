@@ -1,0 +1,10 @@
+Artículo 38. Tipos de auditoría según sus objetivos. La Auditoría Interna en el sector público, según sus objetivos, comprende los siguientes tipos:
+a) Auditoría financiera.
+b) Auditoría de carácter especial o de cumplimiento.
+c) Auditoría operativa.
+a) Auditoría financiera: se enfoca en determinar si la información financiera de una entidad se presenta en conformidad con el marco de referencia de emisión de información financiera, y regulatoria aplicable. Esto se logra obteniendo evidencia de auditoría suficiente y apropiada que le permita al auditor expresar una opinión acerca de la razonabilidad de la información financiera. Otros objetivos de las auditorías financieras pueden incluir la revisión de informes especiales para elementos, cuentas o partidas específicas de un estado financiero y la revisión de información financiera intermedia.
+b) Auditoría de carácter especial o de cumplimiento: se enfoca en determinar si un asunto en particular cumple con las regulaciones o mandatos identificados como criterios, contenidos en leyes, reglamentos y otras regulaciones aplicables. Estas auditorías pueden abarcar aspectos financieros, presupuestarios, administrativos, jurídicos, tecnologías de información, control interno y detección de fraude o corrupción.
+c) Auditoría operativa: evalúa la eficacia, eficiencia y economía (o al menos uno de estos aspectos) con los recursos públicos, incluyendo los recursos tecnológicos y sistemas de información, para el desempeño de sus cometidos, esto con el propósito de mejorar la gestión del sujeto auditado.
+El desempeño se examina contra los criterios que lo rigen, por ende, conlleva el análisis de las causas de las desviaciones de estos criterios u otros problemas.
+Las organizaciones de auditoría deben seleccionar los temas de auditoría operativa por medio de su proceso de planificación estratégica, táctica y operativa, mediante el análisis de temas potenciales y la identificación de riesgos y/o problemas.
+Todas las auditorías deberán realizarse conforme a las Normas Generales de Auditoría para el Sector Público y otra normativa conexa.

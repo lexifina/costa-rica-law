@@ -1,0 +1,2 @@
+Artículo 52. Solicitud de información adicional por parte de la Administración. El jerarca o el titular subordinado podrán solicitar a la Auditoría Interna las aclaraciones u otra información adicional sobre el contenido del informe, para resolver lo que proceda y la Auditoría Interna, en la medida de sus posibilidades, deberá proporcionarla.
+Sin embargo, la solicitud de nueva información no suspenderá los plazos improrrogables para la implementación de las recomendaciones, lo cual deberá advertirse en la Introducción del informe.
