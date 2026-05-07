@@ -93,6 +93,8 @@ Total Especies Consumo | 69
 Insumo para cultivos | Anélidos | 1 | Alitta virens
 2 | Hediste diversicolor
 3 | Perinereis brevicirris
+| Perinereis nuntia (Así adicionado el párrafo anterior mediante acuerdo N° AJDIP/093-2026 del 7 de mayo de 2026)
+| Perinereis Seridentata (Así adicionado el párrafo anterior mediante acuerdo N° AJDIP/093-2026 del 7 de mayo de 2026)
 4 | Tubifex tubifex
 | | 4
 Microalgas | 1 | Chaetoceros gracilis

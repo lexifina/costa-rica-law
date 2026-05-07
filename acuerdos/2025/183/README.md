@@ -14,3 +14,4 @@ Reforma Lista de especies de interés pesquero y acuícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-18 | la propia norma |
+| 2 | 2026-05-07 | Acuerdo 93 (2026-05-07) |
