@@ -1,0 +1,5 @@
+ARTÍCULO 42.- Reintegro de recursos por cese de la relación laboral
+Cuando una persona servidora haya sido beneficiaria de facilidades, licencias o programas de capacitación al amparo del presente reglamento y su relación laboral con la institución cese su relación laboral por renuncia voluntaria o despido sin responsabilidad patronal, deberá reintegrar a la Asamblea Legislativa los recursos públicos invertidos en su capacitación conforme a las condiciones establecidas en el contrato respectivo.
+El reintegro se calculará de manera proporcional al beneficio recibido o al período pendiente de retribución, incluyendo, cuando corresponda, el salario devengado durante la licencia, así como los costos de matrícula, honorarios, viáticos y cualquier otro gasto asumido por la institución con motivo de la capacitación.
+El cobro se realizará mediante el procedimiento administrativo correspondiente.
+Cuando la extinción de la relación laboral ocurra con responsabilidad patronal, la persona servidora quedará exenta de esta obligación.

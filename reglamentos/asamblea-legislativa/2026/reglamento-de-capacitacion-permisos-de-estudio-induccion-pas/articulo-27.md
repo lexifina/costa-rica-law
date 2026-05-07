@@ -1,0 +1,3 @@
+ARTÍCULO 27.-Prórroga de la licencia o actividades formativas
+En caso de que, por razones justificadas, se requiera prorrogar el beneficio de capacitación o actividades formativas, la persona beneficiaria deberá presentar la solicitud ante el Área de Capacitación Institucional del Instituto de Formación e Investigación Legislativa, la cual analizara el caso y elevará su recomendación a la Gerencia General, quien resolverá de manera definitiva.
+La solicitud de prórroga deberá presentarse con un mínimo de quince (15) días hábiles antes del vencimiento de la licencia vigente, salvo que medien circunstancias sobrevenidas debidamente justificadas.

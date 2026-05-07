@@ -1,0 +1,4 @@
+ARTÍCULO 17. -Capacitaciones extraordinarias
+La Gerencia General en coordinación con la Gerencia del departamento correspondiente, podrá autorizar la realización de capacitaciones; permisos, licencias o facilidades de estudio no previstas en el Plan Anual de Capacitación, cuando se encuentren debidamente justificadas y resulten necesarias para el adecuado funcionamiento del servicio público o respondan al interés institucional.
+Para ello, deberá contarse previamente con el criterio técnico del Área de Capacitación Institucional, el cual verificará el cumplimiento de los requisitos establecidos en este reglamento, la pertinencia institucional de la actividad, su alineación con el perfil del puesto y la disponibilidad presupuestaria correspondiente.
+Estas actividades podrán desarrollarse o impartirse dentro del territorio nacional o en el exterior, siempre que se cuente con la disponibilidad de recursos institucionales para su ejecución.

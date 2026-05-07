@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Principio de igualdad, equidad e inclusión
+En la asignación de capacitaciones, permisos y facilidades de estudio, la institución deberá garantizar la observancia de los principios de igualdad, equidad e inclusión. Para tales efectos, se procurará una participación igualitaria y equitativa entre mujeres y hombres, así como la inclusión efectiva de personas en condición de discapacidad.

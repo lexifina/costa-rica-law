@@ -1,0 +1,5 @@
+ARTÍCULO 20.- Evaluación, seguimiento y fiscalización de las actividades de capacitación
+Toda actividad de capacitación o facilidad de estudio deberá ser objeto de evaluación, seguimiento y fiscalización por parte del Área de Capacitación Institucional del Instituto de Formación e Investigación Legislativa.
+Dicha evaluación constituirá un proceso continuo, sistemático y de naturaleza cualitativa y cuantitativa, mediante el cual se verificará y valorará la calidad, pertinencia y eficacia de las actividades de capacitación. Para tales efectos, considerando, entre otros aspectos, su diseño, contenidos, metodología, aprendizaje alcanzado y la transferencia de conocimientos.
+El Área de Capacitación Institucional deberá utilizar los resultados obtenidos para la mejora continua de los programas de formación, así como para la planificación y priorización de futuras actividades en el Plan Anual de Capacitación.
+Asimismo, podrá establecer los instrumentos, indicadores y mecanismos necesarios para la evaluación de las actividades formativas, conforme a los lineamientos institucionales aplicables.

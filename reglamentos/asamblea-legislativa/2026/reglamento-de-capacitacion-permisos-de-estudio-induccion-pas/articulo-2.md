@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Alcance
+Las disposiciones del presente reglamento son de acatamiento obligatorio para el personal de la Asamblea Legislativa y las diputaciones. Asimismo, serán aplicables en lo que resulte pertinente según la naturaleza de su participación a estudiantes universitarios de instituciones públicas o privadas y personas funcionarias de otras instituciones que participen en programas de pasantías o prácticas profesionales o supervisadas en la institución.

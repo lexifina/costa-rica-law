@@ -1,0 +1,6 @@
+ARTÍCULO 47.- Formalización de pasantías
+Toda pasantía, ya sea entrante o saliente, deberá formalizarse previo a su inicio mediante el instrumento correspondiente.
+En el caso de pasantías entrantes, la formalización se realizará mediante convenio interinstitucional y, cuando corresponda, mediante contrato suscrito por la Gerencia General y la persona pasante o su institución de origen.
+En el caso de pasantías salientes, la formalización se realizará mediante contrato suscrito por la persona servidora y la Gerencia General.
+El instrumento correspondiente deberá establecer, según la naturaleza de la pasantía, al menos los objetivos, el plan de trabajo o actividades, la duración y jornada, el cronograma, las dependencias anfitrionas, los productos esperados, los mecanismos de evaluación, las obligaciones de reporte, las condiciones de uso del tiempo laboral, el financiamiento, las reglas de confidencialidad, el tratamiento de la información y la propiedad intelectual, así como, cuando proceda, el período de retribución proporcional a los beneficios recibidos.
+La formalización, modificación y registro de estos instrumentos se regirá por lo dispuesto en el capítulo de contratos del presente reglamento.

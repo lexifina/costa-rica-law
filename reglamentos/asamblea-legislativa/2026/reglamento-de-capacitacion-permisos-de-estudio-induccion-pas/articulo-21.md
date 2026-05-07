@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Certificados de participación y aprovechamiento en actividades de capacitación impartidas por personal legislativo
+Los certificados de aprovechamiento o participación en actividades de capacitación o formativas impartidas por el personal legislativo serán emitidos por el Área de Capacitación Institucional y serán suscritos por la Gerencia General o Gerencia Administrativa y la Gerencia del Instituto de Formación e Investigación Legislativa.

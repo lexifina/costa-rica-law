@@ -1,0 +1,3 @@
+ARTÍCULO 38.- Incumplimiento de contratos
+La Gerencia del Instituto de Formación e Investigación Legislativa deberá informar a la Gerencia General sobre cualquier incumplimiento de los contratos de capacitación por parte de las personas servidoras, a fin de que se adopten las medidas administrativas, disciplinarias y de recuperación de recursos que correspondan.
+Acreditado el incumplimiento contractual, previo al debido procedimiento administrativo, la institución podrá dar por concluido el contrato y exigir la restitución de los salarios y demás gastos incurridos, así como la indemnización por los daños y perjuicios ocasionados hasta la fecha en que se identifiquen los hechos que dieron lugar al incumplimiento.

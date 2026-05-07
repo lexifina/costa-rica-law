@@ -1,0 +1,2 @@
+ARTÍCULO 60.- Cierre y constancia
+Concluida la Práctica Profesional o Supervisada, el Área de Capacitación Institucional, a solicitud de la persona practicante, emitirá la constancia de finalización correspondiente, en la que se hará constar el número de horas efectivas cumplidas, la unidad receptora y la valoración final obtenida. Asimismo, procederá al archivo del expediente completo de la práctica, de conformidad con las disposiciones institucionales aplicables.

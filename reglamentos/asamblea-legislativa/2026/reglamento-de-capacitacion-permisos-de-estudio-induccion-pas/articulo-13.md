@@ -1,0 +1,13 @@
+ARTÍCULO 13- Funciones de la Gerencia General
+Son funciones de la Gerencia General las siguientes:
+1) Aprobar el Plan Anual de Capacitación presentado por el Instituto de Formación e Investigación Legislativa, incluyendo su contenido presupuestario.
+2) Avalar y aprobar cursos de capacitación o facilidades de estudio no contemplados en el Plan Anual de Capacitación, siempre que estén debidamente justificados por la Gerencia correspondiente, o respondan al interés institucional; siempre que exista disponibilidad presupuestaria.
+3) Autorizar la adecuación horaria para que las personas servidoras puedan realizar estudios durante su jornada laboral.
+4) Autorizar la adecuación horaria para que las personas servidoras puedan impartir cursos en centros de educación superior o en la institución, dentro de la jornada laboral; siempre que dichas actividades estén vinculadas con sus funciones, respondan al interés institucional y no afecten la prestación del servicio público.
+5) Autorizar la participación de personas servidoras en actividades de capacitación durante la jornada laboral y garantizar el apoyo de los recursos institucionales necesarios, conforme a este reglamento, siempre que exista interés institucional, vinculación con las funciones del puesto, disponibilidad presupuestaria y no se afecte el servicio público.
+6) Aplicar las sanciones correspondientes a las personas servidoras por incumplimiento de las obligaciones derivadas de la participación en actividades de capacitación, licencias de estudio u otras facilidades, previo procedimiento administrativo.
+7) Vigilar la aplicación de las políticas de equidad de género, inclusión de personas en condición de discapacidad y de otros instrumentos aprobados por la Asamblea Legislativa en materia de derechos humanos, a fin de garantizar el acceso efectivo a las actividades de capacitación.
+8) Aprobar y suscribir, conjuntamente con las personas beneficiarias, los instrumentos contractuales relacionados con estudios, capacitación, pasantías y prácticas profesionales o supervisadas universitarias.
+9) Ordenar la apertura del procedimiento administrativo que corresponda, en caso de incumplimiento de las disposiciones de este reglamento por parte de la persona beneficiaria.
+10) La Gerencia General queda facultada para autorizar la finalización anticipada de las actividades o facilidades de capacitación, cuando existan razones debidamente justificadas y motivadas, las cuales deberán constar por escrito y fundamentarse en criterios objetivos, técnicos, administrativos o de interés institucional.
+11) Ejercer las demás funciones afines que le sean asignadas por el Directorio Legislativo, de conformidad con la normativa vigente.

@@ -1,0 +1,2 @@
+ARTÍCULO 52.- Evaluación, cierre y reincorporación de pasantías salientes
+Concluida la pasantía, la persona servidora se reincorporará a sus labores en el plazo establecido y presentará el informe final respectivo. El Área de Capacitación Institucional del Instituto de Formación e Investigación Legislativa registrará la actividad y sus resultados para efectos de seguimiento y evaluación institucional.

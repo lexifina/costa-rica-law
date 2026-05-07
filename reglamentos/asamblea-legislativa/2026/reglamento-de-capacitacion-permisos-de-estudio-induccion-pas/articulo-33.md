@@ -1,0 +1,2 @@
+ARTÍCULO 33: Obligación de suscripción de contratos en permisos de estudio fuera del país
+Cuando se otorguen permisos de estudio fuera del país, la persona beneficiaria deberá suscribir el contrato respectivo con la Gerencia General, con el aval del Área de Capacitación del Instituto de Formación e Investigación Legislativa. Este contrato se regirá por lo dispuesto en el Capítulo IX, denominado "Contratos de Capacitación".

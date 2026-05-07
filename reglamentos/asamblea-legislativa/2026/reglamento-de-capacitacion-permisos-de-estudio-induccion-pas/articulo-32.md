@@ -1,0 +1,5 @@
+Artículo 32. Evaluación técnica del Área de Capacitación
+Para el otorgamiento de permisos de estudio dentro o fuera del territorio Nacional, el Área de Capacitación del Instituto de Formación e Investigación Legislativa deberá realizar una evaluación técnica previa, a fin de determinar si la actividad de capacitación se encuentra vinculada con el perfil del puesto que ocupa la persona funcionaria y contribuye al fortalecimiento de la gestión institucional.
+Asimismo, deberá verificarse que la actividad formativa guarde relación con el Plan Estratégico Institucional, Plan Anual Operativo, el Plan Anual de Capacitación o, en su defecto, que responda a un interés público institucional debidamente justificado
+De igual forma, el Área de Capacitación deberá constatar que la persona solicitante se encuentre inscrita en el registro disciplinario positivo de capacitaciones y que no mantenga obligaciones pendientes derivadas de procesos de capacitación en los registros institucionales.
+El resultado de la Evaluación técnica deberá ser remitido a la Gerencia General, para la resolución correspondiente sobre la aprobación o denegación del permiso de estudio.
