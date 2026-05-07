@@ -1,0 +1,1 @@
+Artículo 2º.-Modifíquese los artículos 2°, 3°, 4° 5° y 6° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2026, Ley No. 10.836 y sus reformas antes citada, con el fin de realizar el traslado de partidas en los Órganos del Gobierno de la República aquí incluidos.
