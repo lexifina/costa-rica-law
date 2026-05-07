@@ -1,0 +1,1 @@
+Artículo 382. Para todos los aspectos no previstos en este capítulo, se deberá cumplir con los requisitos establecidos en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

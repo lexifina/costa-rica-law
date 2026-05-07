@@ -1,0 +1,1 @@
+Artículo 494. Pasillos longitudinales. La anchura mínima libre de los pasillos longitudinales cuando hay asientos en ambos lados será de 1,2 metros y con asientos en un solo lado, 90 centímetros. En caso de desniveles, deberán contar con rampas cuya pendiente no sea mayor de 10%, y su superficie deberá ser antideslizante.

@@ -1,0 +1,1 @@
+Artículo 71. Caminos vecinales. Estos caminos se sujetarán a los requerimientos establecidos en el Reglamento de Vialidad del presente Plan Regulador y cumplirán con todo lo establecido en la Ley N° 5060, Ley General de Caminos Públicos, y sus reformas.

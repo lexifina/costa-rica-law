@@ -1,0 +1,1 @@
+Artículo 385. Se proveerá un espacio de garaje o cochera que se comunique con la residencia directamente y sin gradas, con una anchura mínima de 3,5 metros y cerrojo de accionar si existe portón eléctrico.

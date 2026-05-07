@@ -1,0 +1,1 @@
+Artículo 213. Diseño y dimensiones de las instalaciones sanitarias. Para efectos de diseño y dimensionamiento de las instalaciones sanitarias, debe cumplirse con lo que se establece en el CAPÍTULO 15 de Instalaciones sanitarias de uso público, del presente Reglamento.

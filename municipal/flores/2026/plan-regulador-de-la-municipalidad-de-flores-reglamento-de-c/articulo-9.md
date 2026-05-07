@@ -1,0 +1,1 @@
+Artículo 9. Cobertura máxima del lote. En cuanto a la cobertura máxima de un lote, deberán cumplirse las disposiciones establecidas en el Reglamento de Zonificación y Usos del Suelo del Plan Regulador del cantón de Flores.

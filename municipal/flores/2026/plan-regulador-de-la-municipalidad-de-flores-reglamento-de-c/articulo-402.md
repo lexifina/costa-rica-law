@@ -1,0 +1,1 @@
+Artículo 402. Escaleras, pasillos y salidas. Todas las edificaciones dedicadas al hospedaje acatarán las regulaciones referentes a escaleras, pasillos y salidas establecidas en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

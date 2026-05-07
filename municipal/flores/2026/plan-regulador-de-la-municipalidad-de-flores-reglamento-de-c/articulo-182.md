@@ -1,0 +1,1 @@
+Artículo 182. Evacuación de las aguas pluviales o de infiltración. En toda construcción de sótanos o semisótanos, deberá existir un sistema de recolección y evacuación de las aguas que se acumulen en el interior de manera que no interfieran en el adecuado funcionamiento del sitio, de conformidad con la normativa vigente en el tema.

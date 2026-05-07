@@ -1,0 +1,8 @@
+CAPÍTULO 29. SUPERMERCADOS
+Consideraciones Específicas
+. Las regulaciones que se encuentran es este capítulo, se aplican obligatoriamente para supermercados de tamaño mayor a 1000 metros cuadrados. Sin embargo, son medidas de acatamiento facultativo para supermercados de menor tamaño, incluyendo los minisúper.
+. Los supermercados son sitios que tienen la capacidad de albergan a gran cantidad de personas al mismo tiempo, por lo que se requieren que tanto las entradas como las salidas cuenten con dimensiones adecuadas según su capacidad de ocupación.
+. Los visitantes de los supermercados necesitan amplios espacios en pasillos, para poder trasladarse de un lugar a otro, llevando consigo las compras (comúnmente en carritos de compras), por lo que es importante establecer los anchos mínimos en pasillos dependiendo de la distribución de estantes en ellos.
+. En los supermercados, al comercializarse variedad de productos, lo óptimo es que se establezcan sitios separados para el almacenamiento de productos alimenticios y para el resto de la mercadería, así se evita la contaminación de alimentos con otros productos que podrían ser tóxicos.
+Regulaciones
+Artículo 434. Las regulaciones de este capítulo se aplicarán de manera obligatoria para los supermercados con áreas de construcción mayores a 1000 metros cuadrados, sin incluir el área de parqueo. Para los supermercados pequeños, supermercados medianos y minisúper, el acatamiento de las regulaciones contenidas en el presente capítulo será facultativo; sin embargo, deberán regirse las establecidas en el CAPÍTULO 7 Edificios para comercios y oficinas, del presente Reglamento.

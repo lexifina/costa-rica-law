@@ -1,0 +1,1 @@
+Artículo 285. Escaleras y escaleras de emergencia. Será aplicable lo establecido al respecto en el Artículo 95 y el Artículo 1 del CAPÍTULO 6 de Disposiciones generales para edificios, de este reglamento.

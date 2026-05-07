@@ -1,0 +1,1 @@
+Artículo 172. Altura máxima de edificios construidos con contenedores. La altura permitida para edificios construidos con contenedores debe cumplir las disposiciones establecidas para el tema de la altura en el Reglamento de Zonificación y Usos del Suelo del presente Plan Regulador.

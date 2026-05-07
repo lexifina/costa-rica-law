@@ -1,0 +1,1 @@
+Artículo 121. Generalidades de instalaciones sanitarias. Toda instalación sanitaria por colocar en edificios de comercios y/u oficinas, deberá cumplir con lo establecido en el CAPÍTULO 15 de Instalaciones sanitarias de uso público, del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 174. Superficies libres. Los proyectos destinados a habitación que utilicen este sistema constructivo deberán cumplir lo establecido en el Artículo 135 del presente Reglamento respecto a las superficies libres.

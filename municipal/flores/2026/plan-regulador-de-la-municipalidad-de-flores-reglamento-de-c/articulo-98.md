@@ -1,0 +1,1 @@
+Artículo 98. La determinación del número, tamaño, velocidad, localización óptima y operación de ascensores en cualquier tipo de edificio debe tomarse en forma responsable y profesional, consultando la literatura especializada y a los técnicos adecuados.

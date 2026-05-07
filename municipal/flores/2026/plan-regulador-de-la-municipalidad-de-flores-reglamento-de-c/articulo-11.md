@@ -1,0 +1,1 @@
+Artículo 11. Retiros. Con respecto a los retiros requeridos en un determinado terreno, se debe cumplir con lo establecido en el Reglamento de Zonificación y Usos del Suelo del presente Plan Regulador.

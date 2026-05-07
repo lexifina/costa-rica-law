@@ -1,0 +1,3 @@
+Artículo 539. Habilitación de infraestructura en caso no existir disponibilidad de agua. En caso de no existir disponibilidad de agua el desarrollador tiene la posibilidad de colaborar con la Municipalidad o la ASADA correspondiente, en la construcción de la infraestructura necesaria para brindar el servicio, negociación que debe cumplir con los siguientes requerimientos:
+a- La infraestructura habilitada para brindar el servicio no podrá tener como único objetivo dotar de agua al proyecto desarrollado por el colaborador, sino que debe servir como base para la futura prestación de un servicio más amplio en la zona.
+b- La inversión realizada por el desarrollador debe ser donada al Acueducto Municipal o a la ASADA correspondiente.

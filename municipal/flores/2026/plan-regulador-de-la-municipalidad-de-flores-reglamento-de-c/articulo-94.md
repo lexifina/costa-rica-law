@@ -1,0 +1,1 @@
+Artículo 94. La Municipalidad de Flores deberá controlar y fiscalizar que las disposiciones establecidas en la Ley 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, su Reglamento y sus reformas, se cumplan cuando éstas sean pertinentes.

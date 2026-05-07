@@ -1,0 +1,1 @@
+Artículo 503. Sitios de expendio, preparación y/o consumo de alimentos. En caso de que dentro de la terminal se cuente con locales comerciales donde se expenden, preparan y/o consuman alimentos, se deberá cumplir con lo que corresponda a estos sitios, según el CAPÍTULO 28 de Sitios de expendio, preparación y/o consumo de alimentos del presente Reglamento.

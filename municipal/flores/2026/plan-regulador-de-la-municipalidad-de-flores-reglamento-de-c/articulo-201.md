@@ -1,0 +1,1 @@
+Artículo 201. Salidas. Todas las edificaciones dedicadas para Sitios de Reunión Pública acatarán las regulaciones referentes a salidas y salidas de emergencia establecidas en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

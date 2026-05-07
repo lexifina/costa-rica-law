@@ -1,0 +1,1 @@
+Artículo 504. En los locales comerciales donde sirven y expenden comidas, no se exigirá la construcción de servicios sanitarios independientes a los de la terminal, si la capacidad del local no supera las 40 personas incluyendo personal.

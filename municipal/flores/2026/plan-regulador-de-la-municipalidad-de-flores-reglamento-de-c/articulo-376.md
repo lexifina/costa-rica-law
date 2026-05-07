@@ -1,0 +1,1 @@
+Artículo 376. Salas de operación y recuperación. Las salas de operación y de recuperación deberán contar con anexos para médicos, instrumental, ropas y servicios higiénicos y estar aislados de los demás departamentos.

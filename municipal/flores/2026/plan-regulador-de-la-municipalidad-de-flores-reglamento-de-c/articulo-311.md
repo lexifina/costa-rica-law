@@ -1,0 +1,1 @@
+Artículo 311. Ventilación. En todos los locales de trabajo se debe proveer un sistema de ventilación natural o mecánico, que asegure la renovación del aire y mantenga una temperatura que no sea molesta a la salud de quienes trabajen, salvo en el caso de frigoríficas, hornos y calderas.

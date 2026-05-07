@@ -1,0 +1,1 @@
+Artículo 69. Estructura, obra temporal o facilidad provisional en vía pública. Para colocar estructuras de cualquier tipo, obras temporales o facilidades provisionales en las vías públicas cantonales, la persona interesada debe obtener la previa autorización municipal.

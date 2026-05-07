@@ -1,0 +1,1 @@
+Artículo 556. Para la aplicación de sanciones, a falta de proceso específico previamente establecido, se debe efectuar el procedimiento ordinario señalado en la Ley N° 6227, Ley General de la Administración Pública y sus reformas.

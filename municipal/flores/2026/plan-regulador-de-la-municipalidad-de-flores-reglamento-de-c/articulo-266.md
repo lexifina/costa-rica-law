@@ -1,0 +1,3 @@
+Artículo 266. Seguridad en obras temporales. Los puestos instalados temporalmente en ferias y turnos deberán cumplir con todos los siguientes requerimientos de seguridad:
+a- Los puestos que manejen llamas abiertas, instalaciones de gas LP, así como aquellos construidos o decorados con cantidades significantes de materiales de fácil combustión, deberán ubicarse alejados de edificaciones, instalaciones o cualquier otra estructura fija que pudiera resultar afectada en caso de incendio del puesto.
+b- Las instalaciones eléctricas deberán ser manejadas de forma segura, con calibres y materiales de conductores de los que señale la norma oficial vigente.

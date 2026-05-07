@@ -1,0 +1,1 @@
+Artículo 323. Protección contra luz. En las edificaciones en los cuales sus luces generen molestias, el área de trabajo deberá ser cerrada y en el caso de que existan vanos de iluminación, éstos deberán estar cubiertos por vidrios translúcidos, separados del vano.

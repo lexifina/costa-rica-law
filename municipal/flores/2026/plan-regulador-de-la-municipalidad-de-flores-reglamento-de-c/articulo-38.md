@@ -1,0 +1,1 @@
+Artículo 38. Uso del área de protección. En el área de protección del cauce se permitirá únicamente los usos que sean acordes con la infraestructura permitida en el Artículo 33 bis- Infraestructura civil en áreas de protección urbanas y rurales de la Ley N° 7575, Ley Forestal, su reglamento y reformas o normativa que lo sustituya.

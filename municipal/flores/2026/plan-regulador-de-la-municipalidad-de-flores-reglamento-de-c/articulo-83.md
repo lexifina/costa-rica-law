@@ -1,0 +1,1 @@
+Artículo 83. Instalaciones eléctricas. Todas las instalaciones eléctricas de una edificación deberán cumplir con lo fijado en el Decreto Ejecutivo N° 36979-MEIC, Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, y sus reformas.

@@ -1,0 +1,2 @@
+Artículo 185. Señalización luminosa. Todos los espacios de entrada y salida, tanto peatonales como vehiculares, a niveles de sótano o semisótano, deben contar con adecuada señalización desde el exterior y el interior, indicando correctamente mediante señales luminosas la entrada, y salida de emergencia.
+Además, los sitios habilitados para desplazamiento de peatones o vehículos deben estar debidamente diferenciados y señalizados. Lo anterior a excepción de las viviendas individuales.

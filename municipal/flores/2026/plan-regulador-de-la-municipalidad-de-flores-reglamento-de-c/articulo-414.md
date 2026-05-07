@@ -1,0 +1,3 @@
+Artículo 414. Áreas mínimas en hostales. Para el caso de los hostales, se deberá calcular el área de las habitaciones realizando la suma de todas las áreas generales de todos los aposentos donde se colocarán las camas, sin distinción de sexo, excluyendo el área de baños. Esta área se utilizará como base para las áreas mínimas de los siguientes requerimientos:
+a- Área de cocina: se calculará a razón de 1 metro cuadrado por cada 6 metros cuadrados de área de habitaciones.
+b- Área de lavandería y secado: se calculará a razón de 1 metro cuadrado por cada 12 metros cuadrados de área de habitaciones.

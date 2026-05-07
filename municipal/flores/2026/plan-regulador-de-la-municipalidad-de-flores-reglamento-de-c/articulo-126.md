@@ -1,0 +1,1 @@
+Artículo 126. Ventilación e iluminación. La ventilación e iluminación de los edificios para comercio y oficinas deberá cumplir lo establecido en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

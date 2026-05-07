@@ -1,0 +1,1 @@
+Artículo 75. Límites de niveles de ruido durante la realización de construcciones. Los límites de niveles de ruido quedarán regulados por el Reglamento para el Control del Ruido Ambiental y sus reformas o normativa que lo sustituya, tanto para horario nocturno como para horario diurno.

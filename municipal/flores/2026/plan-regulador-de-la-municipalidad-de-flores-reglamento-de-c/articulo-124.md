@@ -1,0 +1,3 @@
+Artículo 124. Ubicación de instalaciones sanitarias. Las instalaciones sanitarias en edificios para oficinas y/o comercios deberán cumplir con lo siguiente:
+a- En caso de que se requiera más de una batería de sanitarios por piso, deberán disponerse de tal manera que la separación entre los mismos no sea mayor a 75 metros.
+b- Para el caso de locales comerciales u oficinas, que se ubiquen dentro de centros comerciales, cualquier punto interno del local u oficina, deberá estar distanciado máximo 75 metros de cualquier instalación sanitaria, ya sean las que corresponden al centro comercial, o a otras particulares del local u oficina.

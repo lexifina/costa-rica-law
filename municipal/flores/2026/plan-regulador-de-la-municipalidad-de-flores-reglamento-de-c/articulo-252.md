@@ -1,0 +1,2 @@
+Artículo 252. Enfermería. Toda plaza de toros tendrá un local destinado a enfermería que contará como mínimo con una instalación sanitaria equipada con inodoro, lavatorio con agua potable y electricidad.
+Debe existir ventilación natural y los pisos y paredes serán impermeables hasta una altura mínima de 1,60 metros.

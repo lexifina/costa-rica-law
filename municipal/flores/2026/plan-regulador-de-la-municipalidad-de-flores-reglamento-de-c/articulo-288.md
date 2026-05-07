@@ -1,0 +1,1 @@
+Artículo 288. En el CAPÍTULO 14 de Disposiciones generales para sitios de reunión pública, del presente Reglamento, están normados aspectos que tienen la misma aplicación para gimnasios deportivos o estadios, tales como: accesibilidad, taquillas, vallas para hacer fila, butacas, gradas, circulaciones en edificios deportivos, entre otros.

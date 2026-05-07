@@ -1,0 +1,1 @@
+Artículo 272. Gimnasios para acondicionamiento físico. Todo gimnasio de acondicionamiento físico deberá cumplir con lo estipulado en el Decreto Nº 33532, Manual de Normas para la Habilitación de Centros de Acondicionamiento Físico.

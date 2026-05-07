@@ -1,0 +1,1 @@
+Artículo 485. Áreas de servicio. Todo estacionamiento o sitio de lavado de vehículos debe tener un espacio acondicionado para la preparación y consumo de alimentos de sus trabajadores, acatando las regulaciones establecidas en el CAPÍTULO 28.

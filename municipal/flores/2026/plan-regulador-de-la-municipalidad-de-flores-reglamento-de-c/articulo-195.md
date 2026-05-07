@@ -1,0 +1,1 @@
+Artículo 195. Capacidad. La capacidad de los sitios de reunión pública se calculará de acuerdo con las actividades a realizar, cumpliendo con lo indicado en el Cuadro 10, el Cuadro 11 y el Cuadro 12 del del presente Reglamento.

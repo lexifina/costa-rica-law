@@ -1,0 +1,7 @@
+Artículo 267. Seguridad de los aparatos mecánicos. En la instalación y el funcionamiento de aparatos mecánicos en atracciones de diversión, se deberá cumplir con los siguientes requisitos:
+a- Todos los aparatos mecánicos, que por su funcionamiento y velocidad puedan causar lesiones a los usuarios, deberán contar con dispositivos para asegurar firmemente a la persona, como cinturones, barras de seguridad y similares. Este requisito incluye todos los aparatos mecánicos para uso infantil.
+b- Los aparatos mecánicos para uso infantil deberán indicar, en letrero colocado en la entrada, la altura mínima permitida que deben tener los niños para utilizar el aparato sin peligro.
+c- Los aparatos mecánicos que por su funcionamiento y velocidad pudieran afectar a personas con padecimientos del corazón, cuello y columna, así como a mujeres embarazadas, deberán contar con un letrero advertencia visible para quienes usen las instalaciones.
+d- Los aparatos mecánicos, plantas eléctricas y cajas de distribución eléctricas deberán encontrarse mercados con barandales que impidan el paso libre de personas hacia zonas de riesgo, además de contar con la señalización de seguridad requerida.
+e- El cableado eléctrico para alimentación de aparatos mecánicos, instalado en el suelo y en zonas de circulación de personas, deberán ser para uso rudo o encontrarse debidamente canalizado.
+f- Los aparatos mecánicos instalados cercanos a líneas aéreas de distribución eléctrica deberán mantener una distancia de seguridad no menor a tres metros lineales entre aparato y línea eléctrica.

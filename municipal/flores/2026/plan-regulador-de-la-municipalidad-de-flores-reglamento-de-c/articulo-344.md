@@ -1,0 +1,1 @@
+Artículo 344. Acuicultura. En cuanto a las instalaciones para propósitos de acuicultura, tales como estanques o lagunas impermeabilizadas, son considerados dentro del P.A.I. y contabilizados para tales efectos como área constructiva del proyecto, por lo que deberán respetar los retiros reglamentarios correspondientes en caso de colindar con cualquier cuerpo de agua.

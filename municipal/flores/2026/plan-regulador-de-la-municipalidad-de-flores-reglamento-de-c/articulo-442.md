@@ -1,0 +1,1 @@
+Artículo 442. Instalaciones sanitarias para uso público. Deberá cumplirse con la cantidad de instalaciones sanitarias establecidas en el CAPÍTULO 7 de Edificios para comercios y oficinas, del presente Reglamento.

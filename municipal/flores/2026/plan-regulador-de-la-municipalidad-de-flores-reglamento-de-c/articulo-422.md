@@ -1,0 +1,1 @@
+Artículo 422. Tubos colgantes. Cualquier tubo colgante de instalación, deberá protegerse para evitar que por condensación puedan caer líquidos sobre los alimentos o dentro de cualquier recipiente o aparato utilizado para almacenarlos, servirlos o prepararlos.

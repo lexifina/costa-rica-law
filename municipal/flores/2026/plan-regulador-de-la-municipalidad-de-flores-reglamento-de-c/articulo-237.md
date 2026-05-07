@@ -1,0 +1,1 @@
+Artículo 237. Características de las instalaciones sanitarias. Para efectos de diseño y dimensiones de las instalaciones sanitarias, deberá cumplirse con lo establecido en el CAPÍTULO 15 de Instalaciones sanitarias de uso público.

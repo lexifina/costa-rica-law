@@ -1,0 +1,4 @@
+Artículo 338. Granja. Se considera como granja todo edificio, local o instalación cubierta, en los que se tienen animales en forma permanente o transitoria; ya sea para su reproducción, crianza, engorde, venta, aprovechamiento o cuido, en las cuales se presente al menos una de las siguientes características:
+a- Se alberga una cantidad de animales mayor a los listados en el Cuadro 16 del presente Reglamento.
+b- Cuente con un área de construcción mayor a 400 metros cuadrados.
+Así mismo, este espacio no incluye la siguiente infraestructura: bodegas de almacenamiento de productos alimenticios para los animales, almacenaje de productos químicos utilizados para la limpieza y mantenimiento del lugar, almacenaje de productos veterinarios, sistemas sanitarios y cualquier otro local necesario para satisfacer las necesidades de toda actividad que allí se realice.

@@ -1,0 +1,1 @@
+Artículo 141. En edificios de apartamentos que contengan ocho o más unidades habitacionales, se deberá mezclar mínimo dos tipos de los descritos en el Artículo 146, y el número mínimo de cualquier tipo no podrá ser en ningún caso inferior al 30% del total de unidades habitacionales del edificio.

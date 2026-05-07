@@ -1,0 +1,1 @@
+Artículo 530. Archivos en digital. Para el caso de aquellas construcciones mayores a 100 metros cuadrados, debe ser entregada la Planta Arquitectónica en forma de archivo digital, como mínimo, en formato PDF, sin ningún tipo de protección. Dicha planta estará montada sobre el plano catastrado.

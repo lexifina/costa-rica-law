@@ -1,0 +1,1 @@
+Artículo 336. Excepción de solicitud de permiso de construcción en establos. Únicamente los establos pequeños no necesitarán solicitar permiso de construcción. Los establos con un área mayor a 50 metros cuadrados y cualquier otra infraestructura agropecuaria, deberá tramitar el respectivo permiso de construcción cumpliendo con lo correspondiente según el presente Reglamento.

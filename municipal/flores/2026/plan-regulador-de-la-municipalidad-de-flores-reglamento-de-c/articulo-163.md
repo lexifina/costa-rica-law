@@ -1,0 +1,1 @@
+Artículo 163. Los estudios solicitados deben estar acompañados con sus respectivas memorias de cálculo que demuestren que la edificación está correctamente diseñada y adaptada para soportar un segundo nivel.

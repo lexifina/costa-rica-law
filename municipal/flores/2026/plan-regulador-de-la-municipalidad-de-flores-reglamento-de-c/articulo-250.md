@@ -1,0 +1,1 @@
+Artículo 250. La barrera estará provista al menos de cuatro burladeros, con tronera al callejón y su distribución será simétrica. Los cuatro burladeros tendrán sus orillas pintadas de blanco. El callejón tendrá una anchura mínima de 1,50 metros y no excederá de 2,50 metros.

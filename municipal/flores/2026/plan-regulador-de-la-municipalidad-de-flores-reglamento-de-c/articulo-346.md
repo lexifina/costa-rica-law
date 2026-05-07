@@ -1,0 +1,1 @@
+Artículo 346. En relación con las granjas porcinas y avícolas, deberá acatarse lo establecido en la normativa específica, ya sea respectivamente: el Decreto N°37155-MAG, Reglamento sobre granjas porcinas, y sus reformas y Decreto N°31088-S, Reglamento sobre granjas avícolas, y sus reformas.

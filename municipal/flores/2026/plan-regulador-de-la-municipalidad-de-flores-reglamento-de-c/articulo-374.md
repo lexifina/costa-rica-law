@@ -1,0 +1,8 @@
+Artículo 374. Condiciones de confort y temperatura. Para todos los espacios internos de un centro médico, se deberán cumplir las siguientes medidas:
+a- Los cuartos de pacientes deberán proporcionar un ambiente confortable a los enfermos, asegurando las condiciones de temperatura, ventilación, circulación de aire y evacuación de gases adecuada. Se debe aprovechar la ventilación natural cruzada al máximo.
+b- Los ambientes que requieren condiciones especiales de humedad y temperatura como bodega de
+farmacia y salas de cómputo, deben asegurar una temperatura mínima interna de 18ºC y máxima de
+24ºC. Cuando por las características climáticas del sitio se requiera acondicionamiento activo, se debe contar con aislamiento térmico tanto en techo como en paredes.
+c- Los casos de laboratorio, rayos X, salas de cirugía y partos, además de asegurar una temperatura
+mínima de 18ºC y máximo de 24ºC, deberán mantener condiciones de humedad relativa entre el 40% y 60%. Además, las salas de cirugía y partos deberán tener una renovación total del volumen de aire
+mínimo cada quince minutos.

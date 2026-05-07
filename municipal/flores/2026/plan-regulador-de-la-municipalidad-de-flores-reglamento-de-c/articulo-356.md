@@ -1,0 +1,1 @@
+Artículo 356. Entradas en hospitales. Las entradas a cualquier hospital deberán contar con un carril especial que facilite la entrada de vehículos de emergencia, a fin de minimizar los impactos sobre los flujos vehiculares.

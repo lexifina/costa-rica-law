@@ -1,0 +1,1 @@
+Artículo 23. Almacenamiento temporal de agua pluvial. Toda obra nueva o ampliación deberá incluir en su diseño un sistema para regular la escorrentía pluvial de conformidad con los requisitos establecidos en el Reglamento de Política de Agua para el Cantón de Flores y sus reformas o normativa que los sustituya.

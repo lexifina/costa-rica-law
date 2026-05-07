@@ -1,0 +1,1 @@
+Artículo 352. Comedor. Todo comedor o sitio de preparación y/o consumo de alimentos que se encuentre dentro de las instalaciones del edificio para educación, deberá cumplir con la regulación establecida en el CAPÍTULO 28 Sitios de expendio, preparación y/o consumo de alimentos, del presente Reglamento.

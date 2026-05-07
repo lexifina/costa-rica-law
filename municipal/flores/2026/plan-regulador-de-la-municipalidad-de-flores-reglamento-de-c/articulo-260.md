@@ -1,0 +1,1 @@
+Artículo 260. Espacios de circulación. Los espacios de circulación de las actividades que se realicen en obras temporales tendrán anchuras no menores de 3,0 metros. Así mismo, se debe considerar en entradas, salidas y pasillos principales una anchura mínima de 5,0 metros, suficiente para la circulación de vehículos de emergencia.

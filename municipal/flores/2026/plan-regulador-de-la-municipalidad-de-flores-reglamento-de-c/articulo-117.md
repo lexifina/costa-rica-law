@@ -1,0 +1,9 @@
+CAPÍTULO 7. EDIFICIOS PARA COMERCIOS Y OFICINAS
+Consideraciones Específicas
+. Este capítulo está basado en las regulaciones del Reglamento de Construcciones del INVU, con algunas modificaciones y actualizaciones de algunos artículos.
+. Cada vez en nuestro país se construyen más edificios de altura destinados a la prestación de servicios de comercios y oficinas, por lo que el tema de seguridad de las edificaciones ante emergencias es muy importante. Algunos elementos primordiales son las escaleras e iluminación de emergencia, cuya función es facilitar la evacuación segura de los usuarios de estas edificaciones en caso de requerirse.
+. En aspectos de accesibilidad para personas con alguna discapacidad física, es importante que cada piso de un edificio de comercios u oficinas cuente con una instalación sanitaria adaptada para personas con discapacidad física, permitiendo así, que los utilicen sin necesidad de trasladarse de piso.
+. Los edificios destinados a comercios y oficinas deben contar con la debida ventilación e iluminación natural, cumpliendo con las condiciones que se mencionan en el Capítulo 7 del presente Reglamento.
+. Debido a la gran cantidad de residuos sólidos que se generan es edificaciones de comercios y oficinas, es importante que cuenten con depósitos de residuos sólidos, con la capacidad de recibir la cantidad de residuos que se generan, y con separaciones para aquellos que son reciclables. De esta manera se da un mejor manejo de los residuos sólidos.
+Regulaciones
+Artículo 117. Patios. Los patios que sirvan para dar iluminación y ventilación a edificios para comercios y oficinas tendrán las mismas dimensiones mínimas que en los edificios destinados a habitación según se señala en el Cuadro 4 del presente Reglamento, considerándose como piezas habitables las oficinas y áreas de expendio.

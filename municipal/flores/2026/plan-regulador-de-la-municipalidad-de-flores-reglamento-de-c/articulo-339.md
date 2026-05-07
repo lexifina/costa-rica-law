@@ -1,0 +1,1 @@
+Artículo 339. Granja diversa. Aquella granja en la que se albergan animales diversos simultáneamente, en cantidades mayores a los listados en el Cuadro 16 del presente Reglamento. Estas instalaciones tendrán un tamaño máximo de 1000 metros cuadrados.

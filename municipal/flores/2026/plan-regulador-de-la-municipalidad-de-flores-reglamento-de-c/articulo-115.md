@@ -1,0 +1,1 @@
+Artículo 115. Calderas. Las instalaciones de calderas, calentadores de agua y aparatos similares, se harán de manera que no pongan en peligro a los habitantes de la edificación, ni causen molestias a sus vecinos. Se deberán seguir las normas establecidas por él, Decreto Nº 26789-MTSS, Reglamento de Calderas, y sus reformas.

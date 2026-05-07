@@ -1,0 +1,9 @@
+Artículo 531. Alineamientos. Dependiendo de la situación en la que se encuentre el inmueble, así se debe presentar los siguientes alineamientos:
+a- Carreteras nacionales y calles locales. En caso de que el inmueble se encuentre frente a carretera nacional, deberá presentar el correspondiente alineamiento del MOPT. En caso de que sea frente a vía local o vía propuesta en el Reglamento de Vialidad del presente Plan Regulador, debe presentar el correspondiente alineamiento por parte de la Municipalidad.
+b- Línea férrea. En caso de que el inmueble se encuentre afecto por una servidumbre de línea de ferrocarril, deberá presentar el correspondiente alineamiento emitido por el INCOFER.
+c- Poliducto. Para cualquier tipo de construcción que se encuentre a 50 metros o menos de distancia horizontal a ambos lados de la línea del poliducto, se debe presentar el alineamiento de línea de aproximación con la correspondiente ubicación de la servidumbre, emitida por RECOPE. De acuerdo
+con el Procedimiento que establezca RECOPE para ello.
+d- Línea de transmisión eléctrica. En caso de que la propiedad se encuentre afecta por una servidumbre de línea de transmisión eléctrica de alta tensión, se debe presentar la autorización correspondiente, extendida por el ICE para realizar la obra solicitada.
+e- Aeropuerto. En caso de que el inmueble se encuentre dentro de las zonas de proximidad del Aeropuerto Internacional Juan Santamaría, deberá solicitar autorización a la DGAC, para la ejecución de la construcción.
+f- Servidumbre de aguas. Cuando el inmueble se vea afecto por una servidumbre de aguas, debe presentar el alineamiento emitido por el A Y A o por el ente administrador del servicio.
+g- Nacientes, pozos, zona de protección de ríos y obras en el cauce. Cuando el inmueble se encuentre afectado por una de las áreas de protección establecidas en el Artículo 33 de la Ley N° 7575, Ley Forestal y sus reformas debe contar con el alineamiento emitido por el INVU.

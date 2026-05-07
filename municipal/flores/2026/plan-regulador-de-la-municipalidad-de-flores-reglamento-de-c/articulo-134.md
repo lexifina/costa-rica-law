@@ -1,0 +1,1 @@
+Artículo 134. Escaleras de uso común. Los edificios para vivienda de más de un piso, tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores las mismas deberán construirse bajo las características establecidas en el CAPÍTULO 7 del presente reglamento

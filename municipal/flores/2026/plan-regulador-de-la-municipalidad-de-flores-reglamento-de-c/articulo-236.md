@@ -1,0 +1,1 @@
+Artículo 236. Gradería. En el caso de la gradería para salones donde se realizan actividades deportivas, se recomienda que aunque no se construya la misma en primera instancia, se deje previsto el espacio a un sólo lado del salón para la misma.

@@ -1,0 +1,1 @@
+Artículo 452. Sitio para alimentación. Toda estación de expendio de combustible debe tener un espacio acondicionado para la preparación y consumo de alimentos de sus trabajadores, acatando las regulaciones establecidas en el CAPÍTULO 28.

@@ -1,0 +1,1 @@
+Artículo 359. Salas de espera y de consulta. Los edificios de asistencia hospitalaria y clínicas de consulta deberán tener cuando menos salas de espera para el público en las áreas de: consulta externa, farmacia, laboratorio, radiología y emergencias, así como consultorios de atención individualizada y privada, salas para médicos y para practicantes.

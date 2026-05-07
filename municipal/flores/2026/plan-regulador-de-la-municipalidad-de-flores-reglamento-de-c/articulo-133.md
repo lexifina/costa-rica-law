@@ -1,0 +1,1 @@
+Artículo 133. Iluminación. Los edificios para vivienda deberán cumplir con los aspectos de iluminación establecidos en el CAPÍTULO 6 de Disposiciones generales para edificios, del presente Reglamento.

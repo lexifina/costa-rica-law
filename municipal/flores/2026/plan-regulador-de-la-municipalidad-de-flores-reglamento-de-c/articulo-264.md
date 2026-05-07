@@ -1,0 +1,1 @@
+Artículo 264. Estacionamientos para obras temporales. Toda obra temporal destinada a cualquier uso o actividad deberá contemplar la cantidad de espacios de estacionamiento, según lo indicado en el Reglamento de Vialidad del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 506. Ventilación. La ventilación deberá ser preferiblemente natural, para esto se deberá utilizar amplias aberturas en espacios cerrados. En las salas de espera la acumulación de monóxido de carbono no debe ser mayor a 50 partes por millón (ppm), cumpliendo con lo establecido en el presente Reglamento.

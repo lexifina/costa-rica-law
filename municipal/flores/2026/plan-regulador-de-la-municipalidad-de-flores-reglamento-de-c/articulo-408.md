@@ -1,0 +1,2 @@
+capítulo.
+Artículo 408. Instalaciones sanitarias para el personal del establecimiento. Las instalaciones sanitarias para el personal deberán ser independientes a las utilizadas por el público que concurre al establecimiento, y exclusivas para cada sexo. La cantidad de piezas sanitarias será de acuerdo con la proporción de trabajadores en turno simultáneo, cada 15 mujeres se colocará un inodoro y un lavatorio, y cada 20 hombres se colocará un inodoro, un mingitorio y un lavatorio.

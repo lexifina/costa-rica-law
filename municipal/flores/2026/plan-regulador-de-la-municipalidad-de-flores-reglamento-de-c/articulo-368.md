@@ -1,0 +1,1 @@
+Artículo 368. Cocinas. Las áreas destinadas a preparación de alimentos tendrán las dimensiones mínimas establecidas para el caso de las cocinas en hoteles establecidas en el CAPÍTULO 27 de Edificios para hospedaje, del presente Reglamento.

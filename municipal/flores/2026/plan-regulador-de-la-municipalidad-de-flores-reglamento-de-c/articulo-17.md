@@ -1,0 +1,1 @@
+Artículo 17. Pruebas de infiltración. Deberán realizarse las pruebas de infiltración de conformidad con lo dispuesto en el Reglamento de Política de Agua para el Cantón de Flores y sus reformas o normativa que los sustituya.

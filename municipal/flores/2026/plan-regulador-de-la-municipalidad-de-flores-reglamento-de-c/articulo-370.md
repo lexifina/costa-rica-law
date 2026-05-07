@@ -1,0 +1,1 @@
+Artículo 370. Acabados de instalaciones sanitarias y cocinas. Tanto las instalaciones sanitarias como los sitios de cocinas deben tener pisos de material impermeable y antideslizante. Las paredes deben contar con recubrimiento de azulejo u otro material similar, hasta una altura mínima de 1,60 metros.

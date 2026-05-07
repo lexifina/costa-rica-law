@@ -1,0 +1,1 @@
+Artículo 74. Horarios de trabajo para construcciones. En cuanto a la luminosidad y el ruido que se genere en las construcciones, regirá el horario nocturno entre establecido en el Reglamento para el Control del Ruido Ambiental y sus reformas o normativa que lo sustituya

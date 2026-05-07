@@ -1,0 +1,1 @@
+Artículo 138. Desagües pluviales. Las aguas pluviales de techos, terrazas y patios deberán ser conducidas a sistemas de amortiguamiento de agua pluvial antes de ser entregadas a la red de alcantarillado pluvial o a cursos de aguas naturales.

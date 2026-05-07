@@ -1,0 +1,1 @@
+Artículo 426. Manejo y disposición de aguas residuales. En el tema de manejo y disposición de aguas residuales, deberá acatarse lo indicado en CAPÍTULO 3 Aspectos hidrogeológicos, hidrológicos y manejo de aguas residuales del presente Reglamento.

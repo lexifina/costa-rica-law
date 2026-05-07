@@ -1,0 +1,1 @@
+Artículo 111. La persona diseñadora estará en libertad de innovar las estrategias de diseño bioclimático distintas a las descritas en los artículos 114 y 115, siempre que demuestre a la Municipalidad la efectividad del sistema propuesto.

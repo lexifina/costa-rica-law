@@ -1,0 +1,1 @@
+Artículo 529. Modificación de requisitos para solicitar la licencia de construcción. La Municipalidad tiene la potestad, a través de su Consejo Municipal, de modificar, agregar, eliminar o actualizar los requisitos solicitados en el Artículo 554.

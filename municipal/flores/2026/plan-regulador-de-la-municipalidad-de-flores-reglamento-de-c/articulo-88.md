@@ -1,0 +1,1 @@
+Artículo 88. Los gastos de rotura de calle, acera o camellones, así como su reparación o reconstrucción correrán por cuenta de quien los hubiere provocado, sea una persona física o jurídica, o el Estado.

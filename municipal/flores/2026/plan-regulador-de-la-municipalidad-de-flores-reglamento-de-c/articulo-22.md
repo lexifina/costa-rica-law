@@ -1,0 +1,1 @@
+Artículo 22. Política sobre alcantarillado sanitario y planta de tratamiento. La Municipalidad de Flores promoverá la construcción de alcantarillado sanitario y planta de tratamiento en el cantón, priorizando los principales centros de población.

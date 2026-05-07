@@ -1,0 +1,1 @@
+Artículo 409. Calderas. Las instalaciones de calderas, calentadores de agua y aparatos similares, se harán de manera que no causen molestias ni pongan en peligro a los habitantes, de acuerdo con las normas establecidas por el Decreto Ejecutivo Nº 26789-MTSS, Reglamento de Calderas, y sus reformas.

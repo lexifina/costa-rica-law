@@ -1,0 +1,1 @@
+Artículo 56. Se permitirá el vertido de escombros en suelos conformados como un relleno a menos únicamente en el supuesto de que asegure la estabilidad geotécnica y protección ante procesos erosivos a largo plazo mediante un estudio de estabilidad realizado por un profesional en la materia y aprobado por la Municipalidad de Flores.

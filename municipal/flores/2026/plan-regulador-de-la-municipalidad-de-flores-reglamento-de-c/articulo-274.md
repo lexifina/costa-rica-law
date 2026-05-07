@@ -1,0 +1,1 @@
+Artículo 274. Características de las instalaciones sanitarias. Toda instalación deportiva deberá contar con instalaciones sanitarias de uso público, cumpliendo con las características y todas las normas establecidas en el CAPÍTULO 15 de Instalaciones sanitarias de uso público del presente Reglamento.

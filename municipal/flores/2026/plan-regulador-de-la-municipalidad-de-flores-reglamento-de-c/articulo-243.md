@@ -1,0 +1,1 @@
+Artículo 243. Cocina y/o área para consumo de alimentos. En caso de que exista dentro del salón multiuso o comunal una cocina o área para consumo de alimentos, debe acatar los requerimientos que se dan en el CAPÍTULO 28 de Sitios de expendio, preparación y/o consumo de alimentos, del presente Reglamento.

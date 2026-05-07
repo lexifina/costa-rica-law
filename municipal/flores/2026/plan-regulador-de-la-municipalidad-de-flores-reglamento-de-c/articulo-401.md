@@ -1,0 +1,1 @@
+Artículo 401. Puertas en general. Ninguna puerta en este tipo de establecimiento podrá tener menos de 90 centímetros en los locales utilizados por el público y 80 centímetros en los locales de servicio.

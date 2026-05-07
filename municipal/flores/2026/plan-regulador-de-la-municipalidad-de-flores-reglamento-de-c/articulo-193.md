@@ -1,0 +1,1 @@
+Artículo 193. Accesibilidad para personas con alguna discapacidad. Todo edificio en donde se desarrollen actividades culturales, deportivas o recreativas deberá ser accesible para todas las personas, de conformidad con la Ley N° 7600, Ley de Igualdad de Oportunidades para Personas con Discapacidad, su Reglamento y reformas.

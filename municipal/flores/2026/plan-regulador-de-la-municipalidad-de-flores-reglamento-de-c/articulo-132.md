@@ -1,0 +1,1 @@
+Artículo 132. Ventilación. Los edificios para vivienda deberán cumplir con los aspectos de ventilación establecidos en el CAPÍTULO 6 de Disposiciones generales para edificios, del presente Reglamento.

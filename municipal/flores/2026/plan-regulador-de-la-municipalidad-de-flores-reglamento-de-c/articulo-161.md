@@ -1,0 +1,1 @@
+Artículo 161. Al momento de construir el primer piso de la vivienda de interés social, deben mantenerse las previstas constructivas necesarias para incluir un segundo piso, especialmente en aspectos de tuberías y conducciones eléctricos.

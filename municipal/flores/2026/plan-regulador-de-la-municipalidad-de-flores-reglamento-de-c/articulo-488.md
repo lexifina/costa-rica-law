@@ -1,0 +1,1 @@
+Artículo 488. Escaleras, pasillos y salidas. Todas las terminales acatarán las regulaciones referentes a escaleras, pasillos y salidas establecidas en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

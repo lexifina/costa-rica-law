@@ -1,0 +1,1 @@
+Artículo 511. Obligaciones municipales. Para el otorgamiento de cualquier tipo de permiso de construcción, de los indicados en este capítulo, el solicitante deberá tener pago lo correspondiente por servicios municipales e impuesto de bienes inmuebles.

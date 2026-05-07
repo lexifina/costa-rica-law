@@ -1,0 +1,1 @@
+Artículo 162. Colocación de techos. Independientemente del número de pisos, la vivienda progresiva y de interés social siempre debe contar con una estructura de techos y un correcto sistema de canoas y bajantes.

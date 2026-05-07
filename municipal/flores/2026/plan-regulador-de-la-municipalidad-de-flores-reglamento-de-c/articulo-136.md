@@ -1,0 +1,1 @@
+Artículo 136. Tanques de almacenamiento de agua. Los tanques de almacenamiento de agua deberán ser construidos de tal forma que se evite la contaminación y el derrame de agua. Debe poder accederse a ellos con facilidad para su limpieza interior.

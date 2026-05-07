@@ -1,0 +1,1 @@
+Artículo 169. Para todo lo demás, deberán acatarse las normas estipuladas para vivienda progresiva, o de interés social, contenidas en el Reglamento de Fraccionamiento, Urbanizaciones y Condominios del Plan Regulador Cantonal de Flores.

@@ -1,0 +1,1 @@
+Artículo 342. No se permitirá la construcción de ningún tipo de granja en pendientes naturales mayores al 30%. Todo talud que resulte del movimiento de tierras realizado para construir se deberá estabilizar mediante medios mecánicos o bioestabilización.

@@ -1,0 +1,1 @@
+Artículo 40. Cuando la urbanización esté cruzada por un cauce de agua de carácter intermitente, río o quebrada, no se permitirá hacer ningún trabajo de entubamiento y dicha zona deberá destinarse para área verde. Tampoco se permitirá la construcción sobre ningún entubamiento.

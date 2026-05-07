@@ -1,0 +1,1 @@
+Artículo 52. Ejecución de rellenos. Para los proyectos que requieran realizar un relleno, se debe eliminar la capa vegetal y conformar la superficie en terrazas antes de la colocación de las capas propias del relleno.

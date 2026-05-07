@@ -1,0 +1,4 @@
+Artículo 351. Para el Uso Educacional Avanzado, deberán cumplirse con los siguientes requisitos:
+a- No deben ser colindantes con edificios vecinos, con la excepción de aquellos que provean un estudio que demuestre la capacidad de implementar aislamiento acústico con respecto a sus estructuras vecinas.
+b- Para los casos asociados a accesos de trasporte público, se deben acondicionar áreas especiales para el abordaje de los autobuses, de manera que no se invada el derecho de vía ni el espacio para el paso peatonal en las aceras a partir de los criterios técnicos establecidos en el Reglamento de Vialidad del presente Plan Regulador.
+c- Aceras amplias. Si el lote ocupa frentes de cuadra completos deben proveerse anchos de acera de al menos 2,4 metros más un metro de franja verde o utilizando arborización. Para estas obras deberá consultarse el Reglamento de Vialidad del presente Plan Regulador.

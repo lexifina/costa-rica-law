@@ -1,0 +1,1 @@
+Artículo 265. Iluminación en obras temporales. Si el sitio donde se realice la actividad temporal funcionará en horas de la noche, deberá estar adecuadamente iluminado, ya sea mediante alumbrado público o uso de obras temporales creadas para tal fin.

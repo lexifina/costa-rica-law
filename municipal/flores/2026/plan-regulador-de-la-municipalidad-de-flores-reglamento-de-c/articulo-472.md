@@ -1,0 +1,1 @@
+Artículo 472. Bordillos en columnas y muros. Las columnas y muros de los estacionamientos para vehículos deben tener un bordillo con ángulos redondeados, iniciando en el nivel de piso hasta una altura de 15 centímetros. Adicionalmente, toda columna o muro deberá estar separado 30 centímetros del espacio de estacionamiento.

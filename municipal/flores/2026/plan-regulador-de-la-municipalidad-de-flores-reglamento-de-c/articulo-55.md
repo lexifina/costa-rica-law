@@ -1,0 +1,1 @@
+Artículo 55. Cuando una edificación se rodea de taludes o rellenos que la pueden afectar o que son resultado del movimiento de tierras, dichos taludes y su estabilización serán responsabilidad del profesional encargado de la obra.

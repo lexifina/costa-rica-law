@@ -1,0 +1,1 @@
+Artículo 242. Relación con sitios de reunión pública. Deberá cumplirse lo establecido en el CAPÍTULO 14 de Disposiciones generales para sitios de reunión pública de este Reglamento, en donde se regulen aspectos que tienen la misma aplicación para salones comunales y multiuso.

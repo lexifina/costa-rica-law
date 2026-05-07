@@ -1,0 +1,1 @@
+Artículo 410. Servicios de alimentación. Cuando se cuenta con cocinas, éstas se construirán de acuerdo con el CAPÍTULO 28 de Sitios de expendio, preparación y/o consumo de alimentos, de este Reglamento.

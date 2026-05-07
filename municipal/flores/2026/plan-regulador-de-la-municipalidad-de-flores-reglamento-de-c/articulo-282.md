@@ -1,0 +1,1 @@
+Artículo 282. En caso de que las instalaciones deportivas también se utilicen para espectáculos o eventos deportivos, deberán cumplir con las disposiciones establecidas en el CAPÍTULO 14 de Disposiciones generales para sitios de reunión pública del presente Reglamento, en donde se regulen aspectos que tienen la misma aplicación para eventos o espectáculos públicos.

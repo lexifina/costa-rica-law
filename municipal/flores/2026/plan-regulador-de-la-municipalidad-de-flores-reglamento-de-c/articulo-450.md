@@ -1,0 +1,1 @@
+Artículo 450. Instalaciones sanitarias para uso público. Las estaciones de expendio de combustible deberán tener mínimo dos cubículos de instalaciones sanitarias, uno para cada sexo. Estará cada uno equipado con un inodoro y un lavatorio.

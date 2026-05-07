@@ -1,0 +1,1 @@
+Artículo 289. Distancia mínima a gradería. La distancia mínima que debe dejarse entre la línea de borde de la zona de juego y el inicio de la gradería, en caso de no haber desnivel entre ambas, será de 5 metros. En el caso de Estadios, además de esta distancia, deberá existir una separación física entre el campo de juego y las graderías.

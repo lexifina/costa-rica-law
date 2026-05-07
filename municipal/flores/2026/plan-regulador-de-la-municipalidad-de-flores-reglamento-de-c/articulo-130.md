@@ -1,0 +1,1 @@
+Artículo 130. Piezas habitables y no habitables. Además de las definidas como piezas habitables y no habitables en el Artículo 6 del presente Reglamento, el Municipio podrá considerar piezas habitables, aquellas cuyo uso por ubicación y dimensiones, pueda presumirse razonablemente, aun cuando no aparezca así declarado en los planos.

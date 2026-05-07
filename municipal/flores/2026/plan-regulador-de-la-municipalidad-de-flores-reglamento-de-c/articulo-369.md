@@ -1,0 +1,2 @@
+Artículo 369. Instalaciones sanitarias. Todas las instalaciones sanitarias deben ser independientes para el personal y para los enfermos. Las secciones destinadas a hospitalizar enfermos deberán estar dotadas
+de instalaciones sanitarias, separadas por sexo, a razón de un lavatorio, un inodoro, un mingitorio y una ducha, por cada 5 personas enfermas y una pila de aseo por cada 10 personas enfermas o fracción de 10.

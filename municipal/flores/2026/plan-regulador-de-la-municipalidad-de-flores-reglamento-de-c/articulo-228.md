@@ -1,0 +1,1 @@
+Artículo 228. Estación para cambio de pañal. En el caso de que una edificación brinde servicios al público, las instalaciones sanitarias de uso público deberán contar con una estación de cambio de pañal, al menos uno por cada sexo, o bien, deberá contar con una instalación sanitaria de tipo Familiar, donde se incluya la estación para cambio de pañal.

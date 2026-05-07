@@ -1,0 +1,1 @@
+Artículo 5. Edificios públicos. Los edificios de propiedad pública, pertenecientes al Gobierno Central o Instituciones descentralizadas, quedan también sujetos a las normas que establece este Reglamento, con excepción de lo establecido por otros cuerpos normativos de mayor rango.

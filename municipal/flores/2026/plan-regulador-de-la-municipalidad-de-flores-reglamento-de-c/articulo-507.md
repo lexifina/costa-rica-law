@@ -1,0 +1,1 @@
+Artículo 507. Iluminación. La iluminación natural o artificial de los edificios de terminales deberá acatar lo establecido en el presente Reglamento. En caso de que la iluminación artificial deba permanecer encendida por más de 6 horas diarias se deberán utilizar bombillos fluorescentes.

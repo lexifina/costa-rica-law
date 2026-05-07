@@ -1,0 +1,2 @@
+Artículo 308. Agua potable y agua para el proceso industrial. Toda edificación industrial deberá tener servicio de agua potable permanente y con una presión mínima de 1 kg/cm² en los puntos de uso. El agua para uso industrial deberá ser potable cuando la naturaleza de la industria lo requiera; cuando no lo sea, deberá distribuirse por una tubería independiente, pintando cada sistema con colores diferentes.
+Las tuberías de agua potable no podrán ser de asbesto cemento.

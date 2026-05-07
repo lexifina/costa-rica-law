@@ -1,0 +1,1 @@
+Artículo 495. Las butacas deberán estar fijadas al piso; no podrán ponerse más de siete butacas seguidas si solo hay un pasillo lateral de ingreso a ellas. Las filas de butacas que tengan dos pasillos laterales de ingreso no tendrán más de catorce butacas.

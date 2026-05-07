@@ -1,0 +1,1 @@
+Artículo 554. En caso de ejecución de construcciones sin licencia constructiva, previamente emitida por la Municipalidad de Flores, se aplicará lo establecido en el Artículo 93, Artículo 94, Artículo 95 y Artículo 96 de la Ley N°833, Ley de Construcciones y sus reformas.

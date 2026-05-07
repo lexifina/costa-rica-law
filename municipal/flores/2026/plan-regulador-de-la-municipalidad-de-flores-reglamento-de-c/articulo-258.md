@@ -1,0 +1,1 @@
+Artículo 258. Ubicación. Las obras temporales y los aparatos mecánicos para ferias sólo podrán ubicarse donde lo permita la Municipalidad. Deben estar en sitios donde no se obstruya el libre tránsito de vehículos, o en su defecto, que éstos tengan posibilidad de circular por rutas alternas.

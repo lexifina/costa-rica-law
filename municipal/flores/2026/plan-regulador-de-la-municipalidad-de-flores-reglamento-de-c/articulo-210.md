@@ -1,0 +1,1 @@
+Artículo 210. Salidas de servicio. Cuando se trate de salas de espectáculos, los escenarios, vestidores, bodegas, talleres, cuartos de máquinas y casetas de proyección, deberán tener salida independiente de las salas o espacios de reunión pública.

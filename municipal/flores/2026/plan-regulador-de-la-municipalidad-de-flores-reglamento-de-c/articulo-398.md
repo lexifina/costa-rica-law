@@ -1,0 +1,1 @@
+Artículo 398. Calentadores de agua. Todos los edificios de hospedaje, que cuente con sistemas de calentamiento de agua, deberán cumplir con las normas nacionales sobre ahorro energético emitidas por el MINAE o cualquier otra entidad competente en la materia. Se sugiere la utilización de calentadores solares de agua o cualquier otra tecnología de uso eficiente de la energía.

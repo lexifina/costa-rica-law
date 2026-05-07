@@ -1,0 +1,1 @@
+Artículo 255. Estacionamientos. Todo redondel deberá contemplar la cantidad de espacios de estacionamiento, según lo indicado el Reglamento de Vialidad para la categoría de uso de suelo de Entretenimiento Familiar del presente Plan Regulador.

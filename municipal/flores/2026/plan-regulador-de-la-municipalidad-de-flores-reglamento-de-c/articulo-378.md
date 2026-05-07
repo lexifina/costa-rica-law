@@ -1,0 +1,1 @@
+Artículo 378. Lavado de ropa. Los establecimientos médicos deben manejar adecuadamente la ropa sucia para su lavado y desinfección, cumpliendo con la normativa nacional vigente aplicable a la materia, ya sea que este proceso se realice en el mismo centro médico o mediante contrataciones externas.

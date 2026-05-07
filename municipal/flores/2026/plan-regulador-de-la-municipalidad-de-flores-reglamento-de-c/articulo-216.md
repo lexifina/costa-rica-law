@@ -1,0 +1,1 @@
+Artículo 216. Templos o locales de culto. Deberán cumplir lo establecido en el Reglamento para el Funcionamiento Sanitario de Templos o Locales de Culto, Decreto N°43610 y sus reformas o normativa que lo sustituya.

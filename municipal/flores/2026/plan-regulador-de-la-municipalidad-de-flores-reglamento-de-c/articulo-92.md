@@ -1,0 +1,2 @@
+Artículo 92. Accesibilidad aplicada a un cambio en el uso de la edificación. En el supuesto de que una edificación modifique su uso a uno que implique concurrencia de personas y atención al público, será responsabilidad del particular garantizar la debida accesibilidad para personas con discapacidad.
+Corresponderá al Departamento de Ingeniería de la Municipalidad de Flores, fiscalizar que se realicen las adecuaciones necesarias.

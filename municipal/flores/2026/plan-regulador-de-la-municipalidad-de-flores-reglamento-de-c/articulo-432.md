@@ -1,0 +1,1 @@
+Artículo 432. Carnicerías y pescaderías. Los locales en donde se venda o procese carne, de animales terrestres o marinos, tendrán un mínimo de 16 metros cuadrados de superficie y una altura mínima de 3 metros.

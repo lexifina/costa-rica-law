@@ -1,0 +1,1 @@
+Artículo 41. Los urbanizadores no pueden hacer uso de la franja de protección de ríos que les corresponde, excepto para su recuperación y reforestación, por lo que deberán corregir y prevenir problemas de erosión.

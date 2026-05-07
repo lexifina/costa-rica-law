@@ -1,0 +1,1 @@
+Artículo 116. Calentadores de agua. Todo calentador de agua que se utilice en una edificación debe cumplir con las normas vigentes sobre ahorro energético que sean emitidas por el MINAE o cualquier otra entidad competente en la materia. Se sugiere la utilización de calentadores solares de agua o cualquier otra tecnología eficiente.

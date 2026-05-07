@@ -1,0 +1,1 @@
+Artículo 492. Anchos para evacuación. La anchura de las puertas y pasillos deberá permitir la evacuación de la sala en 3 minutos. El ancho se calculará tomando como base que cada persona necesita al menos 60 centímetros para salir en un segundo. La anchura siempre será múltiplo de 60 centímetros y la mínima será de 1,8 metros.

@@ -1,0 +1,1 @@
+Artículo 183. Toda construcción de sótanos o semisótanos que cuenten con condiciones habitables y donde se generen aguas residuales, éstas deberán ser debidamente tratadas para su correspondiente disposición, de conformidad con la normativa vigente en el tema.

@@ -1,0 +1,1 @@
+Artículo 487. Facilidades. Toda terminal debe contar con: instalaciones sanitarias públicas, iluminación, señalización, espacios de espera o sala de estar, información de los horarios de las rutas y áreas para servicios administrativos.

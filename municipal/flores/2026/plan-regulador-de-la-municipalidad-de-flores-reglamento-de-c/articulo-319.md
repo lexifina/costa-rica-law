@@ -1,0 +1,1 @@
+Artículo 319. Pasillos y escaleras. En lo referente a pasillos y escaleras, los edificios industriales deberán cumplir con los requisitos indicados en el CAPÍTULO 6 de Disposiciones generales para edificios, de este Reglamento.

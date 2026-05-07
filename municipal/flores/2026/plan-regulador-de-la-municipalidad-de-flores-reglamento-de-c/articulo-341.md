@@ -1,0 +1,1 @@
+Artículo 341. Distancias mínimas entre colindancias y vías públicas. Todo establo grande y toda granja, deberá ubicarse con 35 metros de retiro de colindancias y vías públicas. Lo anterior, a excepción de cualquier establo o granja que albergue cerdos, los cuales deberán cumplir con un retiro de 50 metros a colindancias y vías públicas.

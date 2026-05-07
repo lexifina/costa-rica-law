@@ -1,0 +1,1 @@
+Artículo 500. Instalaciones sanitarias. Las instalaciones sanitarias serán separadas para cada sexo. Estas instalaciones podrán contar con un vestíbulo común o individual para cada sexo. Se deberá cumplir con lo establecido en el Artículo 124, así como con los requerimientos del CAPÍTULO 15 de Instalaciones sanitarias de uso público del presente Reglamento.

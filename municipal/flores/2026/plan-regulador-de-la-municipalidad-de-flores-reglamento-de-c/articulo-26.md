@@ -1,0 +1,1 @@
+Artículo 26. Diseño de los sistemas de retención. El diseño de los sistemas de retención o amortiguamiento de agua pluvial se realizará conforme las características señaladas en el artículo 14 del Reglamento de Política de Agua para el Cantón de Flores y sus reformas o normativa que los sustituya.

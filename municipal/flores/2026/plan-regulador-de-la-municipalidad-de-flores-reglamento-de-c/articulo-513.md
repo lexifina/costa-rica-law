@@ -1,0 +1,1 @@
+Artículo 513. Solicitud del trámite en la plataforma APC del CFIA. Para el caso de nuevas obras de construcción, se solicitará el trámite ante la plataforma digital APC. En caso de obras de mantenimiento, no debe realizarse el trámite ante la plataforma digital APC, pero deben presentarse los planos en físico al departamento municipal correspondiente como uno de los requisitos.

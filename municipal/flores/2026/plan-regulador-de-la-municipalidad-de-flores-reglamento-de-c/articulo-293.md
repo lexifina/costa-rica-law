@@ -1,0 +1,1 @@
+Artículo 293. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para gimnasios deberá acatarse lo establecido en el Reglamento de Vialidad del presente Plan Regulador.

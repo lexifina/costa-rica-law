@@ -1,0 +1,1 @@
+Artículo 310. Iluminación artificial. Cuando no sea posible iluminar satisfactoriamente todas las salas con luz natural, se empleará iluminación artificial cumpliendo con lo establecido en el presente Reglamento.

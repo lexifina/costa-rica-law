@@ -1,0 +1,1 @@
+Artículo 396. Para los aspectos que no han sido normados en este capítulo, se deberá acatar lo establecido en la Ley 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, y su Reglamento o cualquier otra normativa vigente en la materia.

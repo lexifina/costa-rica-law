@@ -1,0 +1,1 @@
+Artículo 21. Alcantarillado sanitario y planta de tratamiento. Todos los proyectos constructivos podrán construir alcantarillado sanitario y su respectiva planta de tratamiento, y será obligatorio en aquellos casos determinados por la normativa nacional vigente.

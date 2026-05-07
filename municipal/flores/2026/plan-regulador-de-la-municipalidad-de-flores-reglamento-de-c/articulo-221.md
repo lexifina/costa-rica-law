@@ -1,0 +1,6 @@
+CAPÍTULO 15. INSTALACIONES SANITARIAS DE USO PÚBLICO
+Consideraciones Específicas
+. En este capítulo se establecen medidas específicas para instalaciones sanitarias públicas, considerando aspectos de dimensiones y accesorios para permitir la accesibilidad de las personas con alguna discapacidad, cumpliendo con la Ley N° 7600, Ley de Igualdad de Oportunidades para las personas con Discapacidad y su Reglamento.
+. Las aguas residuales generadas en las instalaciones sanitarias deben estar conectadas por medio de tuberías al alcantarillado sanitario. En caso de que no exista conexión con el alcantarillado sanitario, se debe buscar el mejor tratamiento según la cantidad de aguas residuales y el tipo de suelo que exista en el sitio, cumpliendo siempre con la normativa vigente del Ministerio de Salud o cualquier otra entidad competente.
+Regulaciones
+Artículo 221. La ubicación de toda instalación sanitaria debe darse en un sitio donde se puedan disponer adecuadamente las aguas residuales, mediante el uso de alcantarillado sanitario y su respectiva planta de tratamiento o un sistema individual que se ajuste a las condiciones físicas del sitio, cumpliendo con el Decreto N°33601-MINAE-S, Reglamento de Vertido y Reúso de Aguas Residuales, y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 386. Gaveta para depósito de paquetes. En la puerta principal o junto a ella, se proveerá una gaveta pequeña accesible tanto del interior como del exterior para el depósito de paquetes, con una altura mínima de 90 centímetros y máxima de 1 metro.

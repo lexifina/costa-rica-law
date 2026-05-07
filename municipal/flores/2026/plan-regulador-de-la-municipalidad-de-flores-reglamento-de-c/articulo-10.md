@@ -1,0 +1,1 @@
+Artículo 10. Alturas de edificación. Las alturas máximas de edificaciones serán las permitidas por el Reglamento de Zonificación y Usos del Suelo del Plan Regulador del cantón de Flores. En el caso de las alturas de los espacios internos en las edificaciones, deberá cumplirse con lo indicado en el presente Reglamento.

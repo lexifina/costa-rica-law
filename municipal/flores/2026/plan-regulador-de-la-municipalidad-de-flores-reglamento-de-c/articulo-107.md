@@ -1,0 +1,1 @@
+Artículo 107. Según las características climáticas a lo largo del cantón de Flores, éste se clasifica en una zona cálida por su temperatura promedio anual que oscila entre los 20°C, a partir de las cuales se distinguirán particularidades de estrategias de diseño bioclimático.

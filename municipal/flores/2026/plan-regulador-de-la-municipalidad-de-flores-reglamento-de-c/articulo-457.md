@@ -1,0 +1,1 @@
+Artículo 457. Configuración geométrica de accesos. Además de lo indicado sobre cantidad de carriles de la entrada expresado en el Cuadro 22, su configuración geométrica se debe ajustar a las condiciones geométricas de la vía pública en la cual desemboca dicho acceso.

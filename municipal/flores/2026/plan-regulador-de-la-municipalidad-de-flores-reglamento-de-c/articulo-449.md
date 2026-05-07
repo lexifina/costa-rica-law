@@ -1,0 +1,1 @@
+Artículo 449. Instalaciones sanitarias para el personal del establecimiento. Las estaciones de expendio de combustible deberán tener mínimo una instalación sanitaria para el personal, equipada con un inodoro y un lavatorio, y deberá ser independiente de las del público. Además, deberá proveerse una ducha para el personal del establecimiento ubicada en un cubículo independiente.

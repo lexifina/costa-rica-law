@@ -1,0 +1,1 @@
+Artículo 273. Aislamiento acústico. Los gimnasios para acondicionamiento físico deberán contar con aislamiento acústico de forma tal que se cumpla con el Reglamento para el Control del Ruido Ambiental y sus reformas o normativa que lo sustituya,

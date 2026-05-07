@@ -1,0 +1,1 @@
+Artículo 327. Áreas de alimentación. Todo establecimiento industrial debe tener un espacio acondicionado para la preparación y consumo de alimentos de sus trabajadores, acatando las regulaciones establecidas en el CAPÍTULO 28.

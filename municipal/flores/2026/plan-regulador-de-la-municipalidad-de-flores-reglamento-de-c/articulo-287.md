@@ -1,0 +1,1 @@
+Artículo 287. Regulación de instalaciones deportivas. En caso de que aplique, deberá contemplarse la regulación incluida en el CAPÍTULO 19 Disposiciones generales para instalaciones deportivas del presente Reglamento.

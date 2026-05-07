@@ -1,0 +1,5 @@
+Artículo 187. Ventilación en sótanos y semisótanos. La ventilación en sótanos y semisótanos deberá cumplir con lo siguiente:
+a- Para los sitios que requieran el uso de sistemas de ventilación forzada, los puntos de inyección de aire RC-45
+deberán ubicarse de manera que se asegure la mínima entrada de aire contaminado, que no contenga insectos o residuos sólidos. Los puntos de extracción de aire deberán estar ubicados a no menos de 3 metros de distancia de la zona de tránsito de peatones.
+b- Para todo sótano o semisótano donde se utilice ventilación natural y/o ventilación forzada, ningún punto de la superficie ventilada estará situado a más de 25 metros de distancia de la entrada de aire ni del punto de extracción del aire.
+c- Para toda construcción con niveles de sótano o semisótano, que requieran el uso de sistemas de ventilación forzada, se deberá contar con un sistema auxiliar de suministro complementario de energía, capaz de mantener en funcionamiento al menos al 50% de los ventiladores durante mínimo dos horas.

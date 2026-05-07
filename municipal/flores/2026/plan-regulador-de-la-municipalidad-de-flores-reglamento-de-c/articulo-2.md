@@ -1,0 +1,1 @@
+Artículo 2. La persona profesional responsable de la obra deberá ser garante de que esta cumpla con lo indicado por el CFIA y toda la regulación vigente, actualizada y especializada emitida por los organismos competentes en la materia.

@@ -1,0 +1,4 @@
+Artículo 186. Renovación mínima de aire. En todo nivel de sótano o semisótano, según la actividad o actividades que se desarrollen, se debe realizar la mínima renovación de aire por hora y metro cuadrado de superficie que pertenezca al piso, cumpliendo con las normas ASHRAE y otras vigentes sobre de temas afines. El sistema de ventilación a utilizar debe cumplir lo siguiente:
+a- Para cualquier semisótano, se deberá proveer un sistema de ventilación natural o natural-mecánico, de manera que se permita tener una ventilación adecuada en todo momento.
+b- Para cualquier sótano, en todo momento se deberá contar con ventilación mecánica permanente mediante impulsión y extracción forzada de aire, con interruptores independientes por nivel.
+c- Tanto para semisótanos como sótanos, deberán cumplir con lo establecido para ventilación en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 364. Clínicas y casas de salud. Todos los locales que se destinen a consultorios o a tratamiento de enfermos, deberán cumplir en todo momento con los requisitos fijados en el presente capítulo.

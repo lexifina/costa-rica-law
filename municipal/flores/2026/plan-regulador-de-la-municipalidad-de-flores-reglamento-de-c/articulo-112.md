@@ -1,0 +1,1 @@
+Artículo 112. La persona diseñadora podrá utilizar sistemas de ventilación por medios mecánicos para generar mayor movimiento del aire por medio de chimeneas, aspiración estática, entre otros. Adicionalmente, estos sistemas deben contar con la respectiva protección contra el ruido exterior de conformidad con las normas vigentes en la materia.

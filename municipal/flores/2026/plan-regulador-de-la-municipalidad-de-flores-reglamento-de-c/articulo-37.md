@@ -1,0 +1,1 @@
+Artículo 37. Determinación del área de protección. Para la determinación de la franja de protección de ríos, quebradas y acequias, sean éstas intermitentes o no, se deberán seguir las reglas establecidas en los Artículos 33 y 34 de la Ley N°7575, Ley Forestal, su reglamento y reformas.

@@ -1,0 +1,1 @@
+Artículo 270. Disposición final del terreno. Al abandonar el sitio donde se llevaron a cabo las actividades, quienes sean las personas propietarias de cada puesto o de las actividades, deben encargarse de dejar el sitio en buenas condiciones, sin residuos sólidos, charcos ni desniveles o huecos en el suelo.

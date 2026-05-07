@@ -1,0 +1,1 @@
+Artículo 357. Escaleras, pasillos y salidas. Todas las edificaciones dedicadas a la asistencia hospitalaria acatarán las regulaciones referentes a escaleras, pasillos y salidas establecidas en el CAPÍTULO 6 de Disposiciones generales para edificios del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 433. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para restaurantes, sodas o similares, regirá lo establecido en el Reglamento de Vialidad de este Plan
+Regulador.

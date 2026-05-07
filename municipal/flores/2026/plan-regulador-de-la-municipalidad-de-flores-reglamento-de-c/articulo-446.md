@@ -1,0 +1,1 @@
+Artículo 446. Áreas de servicio. Todo supermercado debe tener un espacio acondicionado para la preparación y consumo de alimentos de sus trabajadores, acatando las regulaciones establecidas en el CAPÍTULO 28.

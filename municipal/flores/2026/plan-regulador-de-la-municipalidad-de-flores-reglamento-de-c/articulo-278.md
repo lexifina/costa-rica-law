@@ -1,0 +1,1 @@
+Artículo 278. Drenaje pluvial. Los terrenos destinados a complejos deportivos o polideportivos deben contar con un sistema adecuado de drenaje pluvial, tal y como se establece en el CAPÍTULO 3 Aspectos hidrogeológicos, hidrológicos y manejo de aguas residuales del presente Reglamento.

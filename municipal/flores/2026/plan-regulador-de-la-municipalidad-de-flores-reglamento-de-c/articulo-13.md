@@ -1,0 +1,1 @@
+Artículo 13. Áreas comunes no cubiertas. Cuando dos o más propietarios establezcan servidumbre recíproca para formar patios de luz o de ventilación comunes, deberán cumplir individualmente con los requerimientos mínimos para el P.A.I especificados en el Reglamento de Zonificación y Usos del Suelo de este Plan Regulador.

@@ -1,0 +1,11 @@
+TÍTULO II. VÍAS PÚBLICAS
+Consideraciones Generales
+. En general, el sistema vial del cantón de Flores se compone de vías, vehículos y protocolos de interacción. La oferta es diversa, incluye taxis, transporte público y vehículos particulares, además de vehículos de empresas y de carga. Su funcionamiento depende del buen comportamiento de todos los conductores. Las demandas de transporte están directamente relacionadas al uso del suelo de las zonas cruzadas por las vías y las rutas de transporte público. La supervivencia de estas últimas depende también de tener suficientes clientes que van y vienen de las actividades que se desarrollan cerca de sus paradas.
+. Un buen sistema de transporte es esencial para la eficiencia de la ciudad y la calidad de vida de sus habitantes.
+. El diseño sistemático de las redes viales permite la planificación e integración de diferentes factores que a mediano o largo plazo tienen gran importancia sobre el funcionamiento de las redes y el sistema de transporte.
+CAPÍTULO 5. VÍAS PÚBLICAS URBANAS, RURALES O CAMINOS VECINALES
+Consideraciones específicas
+. Es importante que las vías públicas y aceras se encuentren siempre libres de obstáculos para permitir el libre paso de vehículos y peatones. Es por esto que cuando se esté realizando cualquier tipo de construcción o rehabilitación en una propiedad, el material de construcción y escombros se colocarán en un sitio dentro de la propiedad u otro terreno cercano con la autorización de la persona propietaria, de manera que no se obstruyan las vías públicas ni las aceras.
+. Para todo lo referente a vías públicas urbanas, rurales, locales o vecinales, en el Reglamento de Vialidad del presente Plan Regulador se amplía la regulación. Además de considerar lo establecido en la Ley General de Caminos Públicos N°5060 y sus reformas.
+Regulaciones
+Artículo 61. Generalidades. Para la definición, pertenencia e inalienabilidad de las vías públicas urbanas, los derechos de quienes sean personas usuarias y colindantes y la temporalidad de los derechos o concesiones que se otorguen para su uso, se deberá recurrir a la Ley N° 5060, Ley General de Caminos Públicos, y sus reformas, así como también a la Ley N° 833, Ley de Construcciones, y sus reformas.

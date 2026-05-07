@@ -1,0 +1,1 @@
+Artículo 57. La capa vegetal que se remueva durante los movimientos de tierra debe colocarse provisionalmente en lugares apropiados que no obstruyan la circulación peatonal y vehicular, a fin de utilizarla después en el tratamiento final de las áreas. No se permite su uso para la conformación de rellenos donde se pretenda urbanizar en el futuro.

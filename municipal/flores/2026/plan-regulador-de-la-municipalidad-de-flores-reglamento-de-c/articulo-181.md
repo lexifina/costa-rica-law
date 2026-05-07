@@ -1,0 +1,1 @@
+Artículo 181. Para la determinación de la cantidad de niveles de sótano o semisótano y su altura, deberá seguirse los lineamientos establecidos en el Capítulo 14 Restricciones urbanísticas para construcciones subterráneas del Reglamento de Zonificación y Usos del Suelo del presente Plan Regulador.

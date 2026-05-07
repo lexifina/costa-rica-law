@@ -1,0 +1,1 @@
+Artículo 80. Dimensiones de estacionamientos para usos habitacionales. En viviendas individuales y demás usos habitacionales, las dimensiones mínimas para un espacio de estacionamiento, deberá cumplirse lo establecido en el Capítulo 5 Regulaciones por zonificación y vialidad del Reglamento de Vialidad del presente Plan Regulador.

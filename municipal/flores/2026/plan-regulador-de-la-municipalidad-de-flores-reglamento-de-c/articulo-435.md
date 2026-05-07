@@ -1,0 +1,1 @@
+Artículo 435. Además de las regulaciones establecidas en este capítulo, deberá cumplirse complementariamente con las determinadas en los artículos del CAPÍTULO 22 de Establecimientos industriales, del presente Reglamento, en aquello que no se contradiga.

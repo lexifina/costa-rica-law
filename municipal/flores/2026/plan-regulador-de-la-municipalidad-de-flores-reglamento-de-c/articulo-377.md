@@ -1,0 +1,1 @@
+Artículo 377. Ascensores. Para todo edificio de asistencia hospitalaria que cuente con más de un piso de altura, deberá contar al menos con un ascensor para el traslado de pacientes en sus camas o de una rampa con una pendiente máxima de 1 en 16.

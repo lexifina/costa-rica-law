@@ -1,0 +1,1 @@
+Artículo 365. Área mínima. Las secciones destinadas a hospitalizar enfermos tendrán un área mínima de piso de 8,0 metros cuadrados por enfermo en salas generales y de 12,0 metros cuadrados en cuartos individuales.

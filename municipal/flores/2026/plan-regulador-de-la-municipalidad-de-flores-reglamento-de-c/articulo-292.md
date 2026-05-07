@@ -1,0 +1,1 @@
+Artículo 292. Instalaciones sanitarias. Para efectos de diseño y construcción las dimensiones mínimas serán las estipuladas en el CAPÍTULO 15 de Instalaciones sanitarias de uso público, del presente Reglamento. En cuanto a las características y número de instalaciones sanitarias, debe acatarse lo establecido en el Cuadro 10 del presente Reglamento.

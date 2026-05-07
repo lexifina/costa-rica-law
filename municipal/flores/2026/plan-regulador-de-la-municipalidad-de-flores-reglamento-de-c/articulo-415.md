@@ -1,0 +1,8 @@
+Artículo 415. Instalaciones sanitarias en hostales. Con respecto a la cantidad de instalaciones sanitarias en hostales, deberá cumplir como mínimo con:
+a- Instalaciones sanitarias para mujeres: 1 inodoro por cada 36 metros cuadrados de área de habitaciones, en ningún caso podrán existir menos de 2 inodoros para mujeres en el hostal.
+b- Duchas para mujeres: 1 ducha por cada 36 metros cuadrados de área de habitación, en ningún caso podrán existir menos de 2 duchas para mujeres en el hostal.
+c- Instalaciones sanitarias para hombres: 1 inodoro por cada 48 metros cuadrados de área de habitaciones, en ningún caso podrá existir sólo 1 inodoro para hombres en el hostal.
+d- Mingitorio: 1 mingitorio por cada 60 metros cuadrados de área de habitación, en ningún caso podrá existir menos de 2 mingitorios para hombres en el hostal.
+e- Duchas para hombres: 1 ducha por cada 36 metros cuadrados de área de habitación, en ningún caso podrán existir menos de 2 duchas para hombres en el hostal.
+f- Lavatorios: 1 por cada dos inodoros y un mingitorio.
+g- Cubículos para personas con alguna discapacidad: un inodoro, lavatorio y ducha, para cada sexo, acondicionado para personas con problemas de discapacidad, cumpliendo con las dimensiones mínimas y características físicas establecidas en el presente Reglamento. Para el diseño de las instalaciones sanitarias deben acatar las normas del presente Reglamento dadas en el CAPÍTULO 15 de Instalaciones sanitarias de uso público. Sobre instalaciones sanitarias para personas con alguna discapacidad se acatará lo dispuesto en la Ley 7600, Ley de Igualdad de Oportunidades para Personas con discapacidad y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 254. Varios. Para los temas de diseño del redondel, vestidores, guardarropa, sodas y restaurantes, deberá cumplirse con lo dispuesto en la categoría "A3: Gimnasio deportivo/ redondel" del Cuadro 10 del Artículo 220, del presente Reglamento.

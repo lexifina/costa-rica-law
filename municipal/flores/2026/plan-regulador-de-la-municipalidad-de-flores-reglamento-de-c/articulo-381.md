@@ -1,0 +1,1 @@
+Artículo 381. Estacionamientos. La cantidad de espacios de estacionamientos en edificios de asistencia hospitalaria y consulta externa se establecen Reglamento de Vialidad del presente Plan Regulador.

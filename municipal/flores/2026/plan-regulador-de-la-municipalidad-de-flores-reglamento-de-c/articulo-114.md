@@ -1,0 +1,1 @@
+Artículo 114. Desagües pluviales. El manejo de aguas pluviales deberá realizarse según se dispone en el CAPÍTULO 3 de Aspectos hidrogeológicos, hidrológicos y manejo de aguas residuales, del presente Reglamento.
