@@ -1,0 +1,10 @@
+CAPÍTULO 15. Condiciones funcionales generales de los condominios
+Consideraciones específicas
+. El plan regulador da medidas para el funcionamiento de los condominios, con base en Artículo 42 del Reglamento a la Ley Reguladora de la Propiedad en Condominio, el cual establece lo siguiente:
+. "En el diseño y construcción de condominios verticales, horizontales, mixtos y combinados de edificaciones, deberán observarse en lo conducente, de acuerdo con la naturaleza de la propiedad en condominio, las disposiciones del Plan Regulador de la Municipalidad respectiva, cuando exista, las del Plan Regional Metropolitano (GAM), la Ley de Construcciones y su Reglamento, la Ley General de Salud, la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, la Ley Orgánica del Ambiente, la Ley de Aguas, la Ley Forestal y cualesquiera otra normativa sobre la materia"
+. Así las cosas, con fundamento en el artículo anterior es posible crear en el Plan Regulador una serie de normas referentes a estos aspectos siempre que las mismas no contradigan lo establecido de manera específica en la Ley y su respectivo reglamento (esto por ser regulaciones que ostentan un mayor rango normativo).
+. En los condominios es importante contar con entrada y salida independientes y separadas, esto sirve para proteger la seguridad y comodidad de los condóminos pues en caso de que una de las salidas no pueda utilizarse debido, por ejemplo, a una emergencia o por reparaciones ya sea en la salida o en la calle pública, existe una salida alternativa. Asimismo, la cantidad de salidas debe ser proporcional a la cantidad de filiales para garantizar la fluidez y movilidad a quienes entran y salen del condominio y reducir el impacto sobre la vía pública.
+. Con la finalidad de favorecer un mejor aprovechamiento del espacio, cuando un condominio residencial o condominio combinado residencial-comercial se encuentra dentro de cuadra, se permite que los
+espacios de estacionamiento sean provistos por un local comercial a las horas en que este local no está en funcionamiento.
+Regulaciones
+Artículo 99. Todo condominio debe tener acceso directo a través de una vía pública.

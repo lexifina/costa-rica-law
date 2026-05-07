@@ -1,0 +1,1 @@
+Artículo 24. Casos para la obligación de cesión de área y sus excepciones. Corresponderá a la Municipalidad de Flores la determinación de aquellos fraccionamientos obligados a ceder área para uso público en el cantón de Flores, así como sus respectivas excepciones, de acuerdo con la normativa del presente reglamento.

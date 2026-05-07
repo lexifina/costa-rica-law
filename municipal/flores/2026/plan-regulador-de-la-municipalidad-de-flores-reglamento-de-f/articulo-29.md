@@ -1,0 +1,1 @@
+Artículo 29. Toda zona que posterior a la publicación del mapa haya cumplido con la debida cesión de área para uso público se considera como zona previamente urbanizada. Esto incluye fraccionamientos, urbanizaciones y condominios que hayan cedido.

@@ -1,0 +1,2 @@
+Artículo 130. Todo condominio industrial para construirse dentro de una finca original mayor a 2000
+metros cuadrados deberá ceder a la Municipalidad un 9% del área de la finca original, para parques o facilidades comunales. Dicha cesión podrá realizarse únicamente fuera de la finca original. Lo anterior no exime a ningún condominio de la obligación de contar con área común destinada a zona verde, juegos infantiles, parques y áreas recreativas.

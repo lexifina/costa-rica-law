@@ -1,0 +1,1 @@
+Artículo 81. El nombre propuesto para una urbanización y sus calles no debe ser igual ni parecido al de otro desarrollo dentro de la circunscripción cantonal en donde esté localizada. La municipalidad determinará la admisibilidad de los nombres de los desarrollos inmobiliarios y calles según la Ley General de Caminos Públicos y el Código Municipal.

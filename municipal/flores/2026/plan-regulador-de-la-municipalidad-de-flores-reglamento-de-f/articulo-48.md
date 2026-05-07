@@ -1,0 +1,1 @@
+Artículo 48. Para movimientos de tierra, excavaciones, cortes, rellenos en el terreno o cualquier actividad que modifique las condiciones del terreno o su topografía original se deben seguir las disposiciones del Reglamento de construcciones del Plan Regulador respecto de Protección de cauces de río y movimientos de tierra.

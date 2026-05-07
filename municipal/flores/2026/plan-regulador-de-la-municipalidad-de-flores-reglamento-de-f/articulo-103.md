@@ -1,0 +1,2 @@
+Artículo 103. El diseño de las vías internas, el cálculo de espacios de estacionamiento y los demás requisitos de diseño, debe cumplir con los lineamientos del Reglamento de Vialidad del Plan Regulador.
+Se exceptúan de esta norma los condominios dentro de cuadra, los cuales se regirán de acuerdo con lo estipulado en el artículo siguiente.

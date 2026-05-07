@@ -1,0 +1,1 @@
+Artículo 128. El retiro posterior de la finca matriz debe ser igual al retiro lateral mayor establecido en el Artículo 125 para aquellas ubicadas en condominios industriales muy pequeños, pequeños y medianos, e igual a lo indicado en el Artículo 127 para aquellas construidas en condominios industriales grandes.

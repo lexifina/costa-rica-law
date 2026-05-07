@@ -1,0 +1,1 @@
+Artículo 135. Las vías que se construyan como parte del desarrollo de un condominio industrial, deben ajustarse a las propuestas de vialidad incluidas en el Título II Sistema de Transportes y Vialidad del Reglamento de Vialidad de este Plan Regulador.

@@ -1,0 +1,1 @@
+Artículo 51. Se permite desarrollar una combinación de parques y facilidades comunales estos espacios de manera tal que en un solo lugar se tenga juegos infantiles, parque y facilidades comunales. Lo anterior con la condición de que se conserven las áreas mínimas de cesión para cada destino y sus disposiciones.

@@ -1,0 +1,1 @@
+Artículo 197. El área a destinar para la categoría de juegos infantiles se calcula a razón de 10 m2 por lote o casa que forme parte de la urbanización a desarrollar, según lo indicado en la ley 4240 y sus reformas.

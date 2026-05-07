@@ -1,0 +1,1 @@
+Artículo 34. Para efectos de dimensiones mínimas de lote, las nuevas urbanizaciones deberán cumplir los tamaños de lote para fraccionamiento establecidas para cada zona, en el CAPÍTULO 2 del presente Reglamento.

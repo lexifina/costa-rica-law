@@ -1,0 +1,1 @@
+Artículo 204. El área de cesión para uso público, puede ser ubicada en el área frontal del condominio como un boulevard, área verde o parque lineal. El área cedida será de un ancho igual o mayor a los 3 metros.

@@ -1,0 +1,1 @@
+Artículo 40. Toda urbanización debe brindar libre ingreso a todos los ciudadanos mediante redes viales continuas, se debe respetar los establecido en la Ley N° 8892. Regulación de mecanismos de vigilancia del acceso a barrios residenciales con el fin de garantizar el derecho fundamental a la libertad de tránsito y sus modificaciones.

@@ -1,0 +1,1 @@
+Artículo 149. Al menos el 40% del área para los usos señalados en el artículo 54 del Reglamento a la Ley de Condominios, Decreto Ejecutivo 32303, debe mantenerse sin impermeabilizar. En el caso de condominios verticales el restante 60% que puede estar impermeabilizado podrá localizarse en uno de los pisos del edificio.

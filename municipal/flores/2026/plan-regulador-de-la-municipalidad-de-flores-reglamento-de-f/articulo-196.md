@@ -1,0 +1,1 @@
+Artículo 196. Según la Cuadro 4, las áreas de parque y facilidades comunales se componen de las distintas categorías dispuestas en el CAPÍTULO 23 del presente documento, dentro de las cuales se deben acatar los porcentajes de cobertura según sea el destino y categoría.

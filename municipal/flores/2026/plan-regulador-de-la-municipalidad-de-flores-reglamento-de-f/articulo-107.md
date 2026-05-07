@@ -1,0 +1,2 @@
+Artículo 107. En condominios de uso exclusivo comercial, la zona verde correspondiente al antejardín puede sustituirse por algún adoquinado con maceteras, mobiliario urbano, y árboles separados 3 metros como
+máximo entre sí, siempre y cuando se prescinda de cualquier muro divisorio entre la acera y la línea de propiedad del establecimiento, además debe colocarse de tal forma que obstaculice cualquier intención de estacionamiento en dicho retiro frontal.

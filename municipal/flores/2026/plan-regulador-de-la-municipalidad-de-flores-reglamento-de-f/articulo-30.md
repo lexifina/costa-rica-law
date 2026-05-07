@@ -1,0 +1,1 @@
+Artículo 30. El Concejo Municipal emitirá un acuerdo en el cual hace constar la transferencia de las áreas de cesión y obras públicas al Gobierno Local, por medio de ese la Municipalidad controla y fiscaliza que el proyecto urbanizador correspondiente cumplió adecuadamente con todas las disposiciones urbanísticas requeridas sobre cesión de área para uso público.

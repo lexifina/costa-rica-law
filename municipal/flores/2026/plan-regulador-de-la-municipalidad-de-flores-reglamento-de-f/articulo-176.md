@@ -1,0 +1,12 @@
+TÍTULO V. ÁREAS DE CESIÓN PARA USO PÚBLICO DESTINADAS A PARQUES Y FACILIDADES
+COMUNALES
+CAPÍTULO 21. Generalidades de Parques y Facilidades Comunales
+Consideraciones específicas
+. Los parques y facilidades comunales tienen distintos niveles de incidencia y relevancia en el proceso de construcción y usos del suelo de las ciudades. Sus beneficios son múltiples y variados y están en función de las necesidades de los pobladores; ya que son sitios de encuentro e interacción social, para distintos grupos ya sea por edad, género u otros.
+. En dichas áreas las personas pueden hacer ejercicio, conversar, leer, caminar, lo cual contribuye a su estado de salud. Otro factor generado por parques y facilidades comunales es que funcionan como espacios para la protección de zonas especiales, en las cuales no es posible desarrollar construcciones o impermeabilizar los suelos, por lo que también resulta una alternativa para poder aprovechar estas áreas.
+. Como parte de la administración de los intereses y servicios locales en su cantón, la Municipalidad de Flores se constituye como el ente competente para fomentar y fiscalizar el adecuado desarrollo de parques y facilidades comunales dentro del cantón de Flores.
+. Con la finalidad de garantizar un aprovechamiento integral de parques y facilidades comunales, en el presente título se regulan tanto los componentes como los tratamientos que deben brindarse a dichas áreas a efectos de que sean óptimas para el uso de la comunidad.
+. Es importante que en el desarrollo de nuevos parques y facilidades comunales, se incorporen el uso y requerimientos de "Ley de Igualdad de Oportunidades para las Personas con Discapacidad" (ley No 7600) y sus reformas, debido a que muchas de las áreas existentes no están acondicionadas para la accesibilidad universal.
+. Uno de los principales propósitos del presente título es brindarle a la Municipalidad de Flores, una variedad de herramientas legales que permitan el control y el desarrollo de infraestructura referente a parques y facilidades comunales, a través de las cuales se incorporen las categorías a desarrollar, la infraestructura, dimensiones y/o necesidades.
+Regulaciones Generales para Parques y Facilidades Comunales
+Artículo 176. En el presente título se emiten las normas necesarias para controlar y regular todo lo referente a parques y facilidades comunales en el cantón de Flores, para el desarrollo ordenado y racional en el entorno urbano existente.

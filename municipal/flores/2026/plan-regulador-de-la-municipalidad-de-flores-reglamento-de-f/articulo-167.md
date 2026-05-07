@@ -1,0 +1,2 @@
+Artículo 167. Sobre el valor de las obras que el desarrollador proyecta ejecutar, debe pagarse el impuesto establecido por la Municipalidad, con base en la facultad conferida en el Artículo 70 de la Ley No.4240, o bien en sus disposiciones actualizadas al respecto. Para esos efectos, el profesional que firma la
+solicitud de permiso debe presentar un presupuesto del valor de las obras para la verificación municipal, éste no puede ser menor al tasado por el Colegio Federado de Ingenieros y Arquitectos (CFIA).

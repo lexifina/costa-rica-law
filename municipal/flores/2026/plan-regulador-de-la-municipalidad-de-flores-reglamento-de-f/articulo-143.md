@@ -1,0 +1,1 @@
+Artículo 143. Todo condominio industrial tendrá un área común, dentro de la cual deberá contarse con espacios destinados a áreas recreativas y de esparcimiento para los trabajadores. Dicha área tendrá una sección libre y otra construida, y deberá cumplir con las disposiciones incluidas del Artículo 145 al Artículo 147 del presente Reglamento.

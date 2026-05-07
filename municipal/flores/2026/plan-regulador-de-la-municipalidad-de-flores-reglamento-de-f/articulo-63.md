@@ -1,0 +1,1 @@
+Artículo 63. Con respecto a la instalación del alumbrado público, el urbanizador debe acatar las disposiciones en cuanto a las luminarias que dictamine el Instituto Costarricense de Electricidad (ICE) o cualquier otra autoridad competente, así como los materiales, tipo de lámparas y diseño, entre otras.

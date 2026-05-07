@@ -1,0 +1,1 @@
+Artículo 20. Cesión de área públicas en fraccionamiento simple. Cuando se realice un fraccionamiento simple, no se exige la cesión de área pública, debido a que se ubica en cuadrante urbano o el área de cesión resultante es muy pequeña para ser funcional como área recreativa. Lo anterior se conoce bajo el término de Excepción de cesión de áreas públicas en fraccionamiento simple

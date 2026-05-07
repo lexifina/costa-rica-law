@@ -1,0 +1,1 @@
+Artículo 38. El desarrollador debe hacer todas las mejoras que determine la Municipalidad sobre la calle frente a la finca por urbanizar, incluida su ampliación. Deben hacerse las obras necesarias para proteger el pavimento y la calle en las entradas de la urbanización.

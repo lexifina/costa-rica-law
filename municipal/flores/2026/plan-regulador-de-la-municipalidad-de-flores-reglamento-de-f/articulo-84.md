@@ -1,0 +1,1 @@
+Artículo 84. Se establece la obligación de que todo terreno que se desarrolle como condominio deberá alinearse a las vías proyectadas que afecten la propiedad. El derecho de vía de este alineamiento corresponde al establecido en el Reglamento de Vialidad.

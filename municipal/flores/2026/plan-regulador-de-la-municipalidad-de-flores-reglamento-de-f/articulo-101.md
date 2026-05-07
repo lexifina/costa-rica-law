@@ -1,0 +1,1 @@
+Artículo 101. Cuando la finca a desarrollar en condominio sea de gran extensión, el propietario del terreno deberá fraccionar la finca en varios condominios respetando el tamaño máximo permitido y deberá presentar a la municipalidad de Flores el diseño de sitio para fraccionamiento de la finca.

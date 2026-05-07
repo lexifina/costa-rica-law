@@ -1,0 +1,1 @@
+Artículo 134. La construcción de las vías públicas producto de la cesión de área para uso público será obligación del desarrollador del condominio industrial. Para este efecto, deberá cumplir con todos los lineamientos establecidos en el Reglamento de Vialidad del presente Plan Regulador.

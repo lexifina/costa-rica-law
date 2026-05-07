@@ -1,0 +1,1 @@
+Artículo 147. Al menos un 50% de las especies arbóreas utilizadas en el área común deben ser nativas de la zona indicadas en el Anexo de Especies Arbóreas recomendadas del Reglamento de Construcciones del presente Plan Regulador.

@@ -1,0 +1,1 @@
+Artículo 191. El desarrollador debe entregar las áreas verdes y recreativas con el equipamiento y las condiciones mínimas que son establecidas en este Reglamento. A su vez, debe dejar el área enzacatada, arborizada y con los tratamientos y acabados finales de todas las superficies y pisos.

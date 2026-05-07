@@ -1,0 +1,1 @@
+Artículo 138. Si en la configuración del condominio industrial, se tienen lotes a ambos lados de la vía, debe existir un espacio a ambos lados de la vía con un ancho mínimo de 1,5 m cada uno. Este espacio se debe destinar únicamente a acera y franja verde.

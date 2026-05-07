@@ -1,0 +1,1 @@
+Artículo 139. Si en la configuración del condominio industrial se tienen lotes solo de un lado de la vía; el espacio de 1,5 m se dejará del lado donde existan lotes. Este espacio se debe destinar únicamente a acera y franja verde.

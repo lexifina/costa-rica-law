@@ -1,0 +1,1 @@
+Artículo 122. En el tema de alturas, los condominios industriales deberán cumplir con lo establecido en el Mapa 2: Alturas máximas para el cantón de Flores del Reglamento de Zonificación y Uso del Suelo del presente Plan Regulador.

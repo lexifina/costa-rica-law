@@ -1,0 +1,6 @@
+Artículo 7. El desarrollo de terrenos mediante su fraccionamiento o urbanización será permitido siempre que los lotes resultantes reúnan las siguientes condiciones:
+a. El tamaño del lote debe tomar en consideración la disponibilidad, en el sector, de red de alcantarillado sanitario para la recolección de aguas residuales o planta de tratamiento propia; debido a que de no existir los anteriores, el tratamiento debe hacerse de manera individual y el lote va a requerir de un área no impermeabilizada.
+b. Cuando se da la vecindad con urbanizaciones, es obligatorio que la calle del fraccionamiento permita continuidad de la infraestructura mediante una adecuada integración física y funcional.
+c. Los terrenos deberán estar libres de afectaciones, limitaciones u obstáculos físicos; si las tienen, éstas deberán poder conciliarse con el desarrollo propuesto. Caso contrario no será posible el fraccionamiento.
+d. Los lotes afectados por zonas de renovación, establecidas en el Reglamento de Renovación Urbana, deberán sujetarse a las restricciones correspondientes de acuerdo con el propósito de la zona y el plan de renovación.
+e. En una misma finca podrán darse proyectos combinados, tanto fraccionamientos como proyectos de urbanizadores o condominios, aplicando para cada caso lo pertinente y siempre que los usos sean compatibles con la zona en la que se ubican.

@@ -1,0 +1,1 @@
+Artículo 33. Para la determinación de los usos permitidos en una urbanización prevalece la zonificación señalada en el Plan Regulador. El desarrollador podrá indicar en los planos los lotes sugeridos para uso comercial, sin que esto represente un impedimento para que en los demás lotes se den actividades no residenciales autorizadas en el plan regulador.

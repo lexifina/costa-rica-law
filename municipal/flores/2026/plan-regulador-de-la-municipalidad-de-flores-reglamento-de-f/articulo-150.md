@@ -1,0 +1,1 @@
+Artículo 150. Si el condominio posee más de 50 unidades habitacionales se podrá distribuir el área común recreativa en varios puntos, considerando una zona verde por cada 25 viviendas, cada una de estas partes tendrá 12 metros de ancho mínimo.

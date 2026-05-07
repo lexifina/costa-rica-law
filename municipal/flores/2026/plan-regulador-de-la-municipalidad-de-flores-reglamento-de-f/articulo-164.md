@@ -1,0 +1,1 @@
+Artículo 164. El desarrollador entregará a la Municipalidad este documento que lo compromete a velar por la entrega satisfactoria de las obras. El Incumplimiento de dicha garantía conlleva a la ejecución de sanciones por parte de la Municipalidad.

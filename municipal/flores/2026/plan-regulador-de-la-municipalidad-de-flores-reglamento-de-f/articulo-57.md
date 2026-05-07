@@ -1,0 +1,10 @@
+CAPÍTULO 9. Aceras, Franjas Verdes y Arborización
+Consideraciones específicas
+. La prioridad dentro del desarrollo vial de una urbanización residencial debe ser el peatón, y por tanto dicha preferencia ha de verse reflejada en el diseño, mediante la implementación de aceras que cuenten con el ancho suficiente para un tránsito fluido y cómodo para las personas. Es importante crear condiciones que estimulen la circulación peatonal y que le concedan prioridad en la jerarquía espacial y funcional, eliminando cualquier tipo de usurpación de la vía pública y respetando la acera como un bien colectivo.
+. Los árboles en entornos urbanos cumplen diversas funciones que abarcan los aspectos ambiental, social y estético entre otros. Si bien es cierto, los árboles no son un elemento construido, desde el punto de vista visual y funcional pueden considerarse un componente del mobiliario urbano. Los árboles desempeñan un papel muy importante en el aumento de la calidad de los espacios públicos, sirven para el ornato y dan sombra, un elemento muy buscado en zonas cálidas.
+. Tanto la localización de un árbol como el tipo de especie que se coloca son de interés para la regulación en materia de ordenamiento territorial, pues estos aspectos inciden indiscutiblemente en la habitabilidad y calidad de los espacios públicos.
+. Se debe poner especial atención al tipo de especie elegida para determinada localización, evitar, por ejemplo, especies que por su tamaño o falta de mantenimiento dificulten el acceso de los vehículos de emergencia. Es importante también considerar especies que no generen impactos negativos, como la destrucción de las aceras por efecto de las raíces o la caída excesiva de hojas y frutos, entre otros.
+. Es importante que al menos un 50% de las especies elegidas sean nativas, pues esto favorece la vida de la flora y fauna urbanas.
+. La presencia de árboles en la ciudad favorece también a las especies migratorias de aves.
+Regulaciones
+Artículo 57. Las regulaciones referentes a aceras, franja verde y arborización para las urbanizaciones serán las contenidas en el Capítulo 8 aceras, franjas verdes y arborización, del Reglamento de Vialidad.

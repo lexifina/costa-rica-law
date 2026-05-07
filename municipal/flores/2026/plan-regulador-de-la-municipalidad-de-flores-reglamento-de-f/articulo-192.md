@@ -1,0 +1,1 @@
+Artículo 192. Para las áreas a ceder, el desarrollador deberá contemplar la posibilidad de incluir en el diseño del área verde y recreativa a ceder los usos preestablecidos por los usuarios de la zona tales como senderos, accesos y usos deportivos o recreativos. Dichos usos pueden ser incluidos tomando en cuenta la categoría escogida según el CAPÍTULO 23 del presente documento.

@@ -1,0 +1,5 @@
+Artículo 124. Todos los condominios industriales muy pequeños, pequeños y medianos deberán cumplir con los siguientes lineamientos de retiro lateral mínimo para la finca matriz:
+a- Edificaciones de únicamente un piso con altura menor o igual a los 18 m: En uno de los lados de la edificación se exige un retiro mínimo de 1,5 m, independientemente de la existencia de ventanas. Del otro lado de la edificación: si existen ventanas el retiro será de 1,5 m; y si no existen ventanas no es necesario retirarse.
+b- Edificaciones de más de un piso o edificaciones de un solo piso con más de 18 m de altura:
+b.1. Para el primer piso: En uno de los lados de la edificación se exige un retiro mínimo de 1,5 m, independientemente de la existencia de ventanas. Del otro lado de la edificación: si existen ventanas el retiro será de 1,5 m; y si no existen ventanas no es necesario retirarse.
+b.2. Para el segundo piso y superiores: En uno de los lados de la edificación se exige un retiro mínimo de 2 m si existe ventana; y un retiro de 1,5 m si no la hay. Del otro lado de la edificación: si existen ventanas el retiro será de 2 m; y si no existen ventanas no es necesario retirarse.

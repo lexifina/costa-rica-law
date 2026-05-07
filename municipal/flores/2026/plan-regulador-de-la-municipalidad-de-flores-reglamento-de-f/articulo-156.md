@@ -1,0 +1,1 @@
+Artículo 156. La Dirección de Planificación Urbana y Control Constructivo trasladará al Consejo el informe de recomendación para la aprobación de los planos constructivos en un plazo no mayor a un mes. La misma regla regirá para el caso de variaciones o correcciones que se desee introducir al proyecto original.

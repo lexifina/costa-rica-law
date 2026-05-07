@@ -1,0 +1,1 @@
+Artículo 178. El equipamiento e infraestructura en parques y facilidades comunales deben estar hechos con materiales duraderos, seguros y resistentes. No deben incluir objetos punzantes, cristales, astillas rotas, metales oxidados u otros materiales que produzcan heridas.

@@ -1,0 +1,1 @@
+Artículo 4. Todos los lotes que se generen a partir de un fraccionamiento deberán tener un acceso adecuado a la vía pública o acceso excepcional de uso residencial, para acceso excepcional de uso residencial se debe acatar lo establecido en el CAPÍTULO 3 del presente Reglamento.

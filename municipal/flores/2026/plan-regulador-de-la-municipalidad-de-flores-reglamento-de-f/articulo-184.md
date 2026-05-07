@@ -1,0 +1,1 @@
+Artículo 184. Los parques y facilidades comunales tendrán un frente a calle cuya medida mínima será de 12 metros, su área mínima será de 130 m2 y sus líneas de propiedad no formarán ángulos agudos inferiores a 60 grados, ni tener zonas de difícil vigilancia por parte de los vecinos.

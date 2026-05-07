@@ -1,0 +1,1 @@
+Artículo 79. El urbanizador y el profesional responsable que firman la solicitud de visado de los planos de construcción de la urbanización, son garantes de la estricta conformidad de las obras con los requisitos reglamentarios jurídicamente exigibles.

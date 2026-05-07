@@ -1,0 +1,1 @@
+Artículo 121. El porcentaje máximo de cobertura de un condominio industrial depende si se encuentra dentro de la Zona Industrial o Zona de Almacenamiento y Logística. Los porcentajes máximos se incluyen en el Capítulo 13 Restricciones Urbanísticas en Zona Industrial y Zona de Almacenamiento y Logística, del Reglamento de Zonificación y Uso de Suelo del presente Plan Regulador.

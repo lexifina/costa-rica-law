@@ -1,0 +1,1 @@
+Artículo 188. En el caso que sea necesario implementar un cambio en la propuesta original del diseño de parques y facilidades comunales presentada a la Municipalidad, se debe entregar una nueva propuesta con los cambios a realizar para su respectiva aprobación.

@@ -1,0 +1,1 @@
+Artículo 132. Para todo condominio donde se requiera la cesión de área para parque o facilidades comunales, el desarrollador deberá dotar del equipamiento necesario para dichas áreas, para lo cual debe acatar las disposiciones sobre equipamiento contenidas en el TÍTULO V Áreas de cesión para uso público destinadas a parques y facilidades comunales, del presente Reglamento.

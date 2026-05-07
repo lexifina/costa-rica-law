@@ -1,0 +1,1 @@
+Artículo 200. Para determinar las condiciones del área cedida para parque y facilidades comunales se deben acatar las disposiciones específicas contenidas en el Reglamento de Fraccionamiento, Urbanización y Condominios del presente Plan Regulador.

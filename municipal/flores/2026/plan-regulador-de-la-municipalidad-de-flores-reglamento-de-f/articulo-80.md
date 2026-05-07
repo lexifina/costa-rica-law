@@ -1,0 +1,1 @@
+Artículo 80. La inspección y la aceptación de las obras no relevan al urbanizador de realizar por su cuenta, la reparación de los defectos de construcción descubiertos posterior al recibo municipal de las obras, de conformidad con lo establecido en la legislación y acorde con la responsabilidad de la persona profesional encargada de dichas obras.

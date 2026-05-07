@@ -1,0 +1,3 @@
+Artículo 118. El desarrollo de condominios muy pequeños y pequeños se permitirá únicamente en los siguientes casos:
+a- Zona Industrial: Los condominios industriales ubicados en Zona Industrial, cuya finca original tenga un área menor a 5000 metros cuadrados serán permitidos únicamente en aquellos lotes segregados debidamente inscritos antes de la entrada en vigencia de este Plan Regulador.
+b- Zona de Almacenamiento y Logística: Los condominios industriales ubicados en Zona de Almacenamiento y Logística, cuya finca original tenga un área menor a 2000 metros cuadrados, serán permitidos únicamente en aquellos lotes segregados debidamente inscritos antes de la entrada en vigencia de este Plan Regulador.

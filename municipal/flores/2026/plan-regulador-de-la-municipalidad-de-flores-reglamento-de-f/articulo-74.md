@@ -1,0 +1,1 @@
+Artículo 74. El visado municipal de planos constructivos para la urbanización tendrá vigencia por un año natural contado a partir de su emisión formal por parte de la Municipalidad de Flores. Si no se han ejecutado las obras respectivas dentro de ese plazo, el urbanizador debe solicitar la renovación del mismo, en el curso del último trimestre de su vigencia.

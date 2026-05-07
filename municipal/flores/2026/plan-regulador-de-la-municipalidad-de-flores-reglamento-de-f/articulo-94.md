@@ -1,0 +1,1 @@
+Artículo 94. Todo condominio que pueda comprobar que en un fraccionamiento previo a la constitución de la finca matriz se dieron correctamente las áreas de cesión debe ceder únicamente el 5% de la finca original para parques y facilidades comunales.

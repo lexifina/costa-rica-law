@@ -1,0 +1,1 @@
+Artículo 131. En caso de que dentro de la finca original se encuentre una fuente de agua para abastecimiento público o una Zona de Protección de Ríos, podrá ceder el área correspondiente a la zona de protección y debe dejarse un acceso a esta porción del lote ya mediante vía pública o servidumbre.

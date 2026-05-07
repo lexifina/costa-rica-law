@@ -1,0 +1,1 @@
+Artículo 66. Las regulaciones en cuanto a acueductos, alcantarillados sanitarios y drenaje pluvial se regirán por las normas que fije el Instituto Costarricense de Acueductos y Alcantarillados o la entidad competente.

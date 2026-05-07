@@ -1,0 +1,1 @@
+Artículo 45. Toda urbanización residencial con más de 45 unidades habitacionales debe contar, como mínimo, con dos accesos vehiculares claramente diferenciados entre sí, con una separación de al menos 60 metros uno del otro. Cada acceso debe tener al menos dos carriles, uno de entrada y uno de salida.

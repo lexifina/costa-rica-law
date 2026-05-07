@@ -1,0 +1,1 @@
+Artículo 78. Ninguna omisión de detalles en los planos aprobados libera al urbanizador y al profesional responsable de las obligaciones que les conciernen en cuanto a la total y satisfactoria entrega de las obras, de acuerdo a lo establecido en este reglamento.

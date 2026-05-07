@@ -1,0 +1,1 @@
+Artículo 129. Todas las paredes perimetrales y todas las paredes externas de un condominio industrial deben ser construidas con materiales incombustibles que eviten la propagación del fuego en caso de incendio.

@@ -1,0 +1,1 @@
+Artículo 177. Todos los accesos, infraestructura y equipamiento parte de los componentes para parques y facilidades comunales del cantón de Flores deben acatar los lineamientos de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, ley número 7600 y sus reformas.

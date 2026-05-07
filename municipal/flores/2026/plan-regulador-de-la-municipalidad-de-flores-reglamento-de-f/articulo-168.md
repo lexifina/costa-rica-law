@@ -1,0 +1,1 @@
+Artículo 168. Los funcionarios de la Municipalidad que intervienen en la tramitación de consulta y visado de planos serán responsables ante los órganos superiores de la institución cuando falten al cumplimiento de sus funciones.

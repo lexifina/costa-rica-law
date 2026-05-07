@@ -1,0 +1,1 @@
+Artículo 166. El nombre propuesto para el condominio no debe ser igual ni parecido al de otro desarrollo dentro de la circunscripción cantonal en donde esté localizada. La Municipalidad respetará lo dispuesto en la Ley de Creación de la Comisión Nacional de Nomenclatura N°3535, su reglamento y reformas.

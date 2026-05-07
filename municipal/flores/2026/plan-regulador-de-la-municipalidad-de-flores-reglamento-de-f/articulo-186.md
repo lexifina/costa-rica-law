@@ -1,0 +1,1 @@
+Artículo 186. Para la construcción de urbanizaciones y condominios, el desarrollador debe presentar la propuesta de diseño y las especificaciones del conjunto de parques y facilidades comunales que cederá a la Municipalidad de Flores.

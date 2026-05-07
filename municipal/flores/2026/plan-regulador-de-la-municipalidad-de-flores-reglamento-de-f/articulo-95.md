@@ -1,0 +1,1 @@
+Artículo 95. Cuando se fraccione o segregue un terreno para la posterior constitución de fincas matrices para desarrollo en condominio, deberá proveerse de las calles necesarias para habilitar las parcelas resultantes con los tamaños máximos permitidos por el Plan Regulador.

@@ -1,0 +1,1 @@
+Artículo 160. La aceptación de las obras y de las áreas públicas se debe efectuar conforme a las disposiciones vigentes de la municipalidad y los demás organismos públicos que al respecto ejerzan funciones de control.

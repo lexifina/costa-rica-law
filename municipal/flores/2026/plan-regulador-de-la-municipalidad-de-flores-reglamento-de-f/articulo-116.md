@@ -1,0 +1,3 @@
+Artículo 116. Los usos que se permite desarrollar dentro de un condominio industrial estarán condicionados a la zona en la cual se ubiquen, de la siguiente manera:
+e- Zona Industrial: únicamente los usos industriales y los usos especiales o su combinación, definidos de acuerdo con lo establecido para dicha zona en el Reglamento de Zonificación y Uso de Suelo del presente Plan Regulador.
+f- Zona de Almacenamiento y Logística: usos no industriales, usos industriales y los usos especiales o la combinación de éstos, definidos de acuerdo con lo establecido para dicha zona en el Reglamento de Zonificación y Uso de Suelo del presente Plan Regulador.

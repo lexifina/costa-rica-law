@@ -1,0 +1,2 @@
+Artículo 62. El diseño de la construcción de la red telefónica principal será aprobado por el Instituto Costarricense de Electricidad (ICE) o las empresas que presten el servicio en la zona; el diseño será acorde con las disposiciones de la Superintendencia de Telecomunicaciones (SUTEL).
+En el proyecto deben estar contemplados los armarios de distribución telefónica, cuya ubicación debe ser consultada al Instituto Costarricense de Electricidad (ICE) o a cualquier otra entidad competente a nivel de anteproyecto, a fin de que se reserven los espacios necesarios.

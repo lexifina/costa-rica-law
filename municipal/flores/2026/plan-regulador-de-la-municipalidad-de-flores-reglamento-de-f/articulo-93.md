@@ -1,0 +1,1 @@
+Artículo 93. Todo condominio puede ceder fuera de su finca original, dicha cesión externa será ubicada en una de las zonas de renovación por potencial recreativo y atención especial, según el Reglamento de Renovación y el Mapa 1 de dicho documento.

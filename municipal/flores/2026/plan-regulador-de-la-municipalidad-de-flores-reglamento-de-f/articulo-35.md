@@ -1,0 +1,1 @@
+Artículo 35. Para efectos de restricciones urbanísticas correspondientes a: alturas, cobertura y retiros, se debe acatar lo establecido en el Reglamento de Zonificación y uso del suelo. De acuerdo con la ubicación de la urbanización.

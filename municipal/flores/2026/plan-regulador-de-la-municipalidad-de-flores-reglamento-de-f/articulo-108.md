@@ -1,0 +1,3 @@
+Artículo 108. Cobertura. La cobertura máxima de la finca matriz se establece de acuerdo con el tratamiento de las aguas servidas.
+a. En caso de que el desarrollo del condominio disponga de alcantarillado sanitario con planta de tratamiento la cobertura máxima permitida a la finca matriz es de 85%. Dentro de este porcentaje estarán incluidos parqueos y las calles internas con sus respectivas aceras.
+b. Si el desarrollo del condominio dispone un tratamiento individual de aguas servidas se permite una cobertura máxima de 75%. Dentro de este porcentaje estarán incluidos parqueos y las calles internas con sus respectivas aceras.
