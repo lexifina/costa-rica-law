@@ -1,0 +1,1 @@
+Artículo 24. Entretenimiento: Uso que incluye la realización de actividades para el esparcimiento y la recreación personal tales como: cines, centros de juegos, salones de fiestas, salones de bailes y boliches, entre otros.

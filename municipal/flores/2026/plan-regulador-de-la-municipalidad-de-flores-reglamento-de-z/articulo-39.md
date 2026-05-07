@@ -1,0 +1,1 @@
+Artículo 39. Planta de tratamiento de aguas residuales públicas: Para la obtención del certificado de uso de suelo de plantas de tratamiento públicas, o sea, aquellas que sean destinadas a tratar las aguas residuales de un sistema de alcantarillado público, deberá seguirse el procedimiento de consulta a la JEPT, contemplado en el Reglamento de Generalidades y Mapa Oficial.

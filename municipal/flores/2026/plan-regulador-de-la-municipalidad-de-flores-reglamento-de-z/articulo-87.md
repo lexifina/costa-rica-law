@@ -1,0 +1,1 @@
+Artículo 87. Tamaño usos industriales menores. Para usos industriales menores únicamente se permitirán usos industriales menores, cuya área de construcción sea menor a los 2 000 metros cuadrados (m2).

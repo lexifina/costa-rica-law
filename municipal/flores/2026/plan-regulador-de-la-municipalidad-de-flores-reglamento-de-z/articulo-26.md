@@ -1,0 +1,1 @@
+Artículo 26. Granjas de animales domésticos de subsistencia: Uso que contempla aquellos recintos dedicados al albergo de animales domésticos de subsistencia según lo establece el Servicio de Salud Animal (SENASA) para los siguientes tipos de ganado: ovino, caprino, vacuno, equino, cunícula, avícola y porcina.

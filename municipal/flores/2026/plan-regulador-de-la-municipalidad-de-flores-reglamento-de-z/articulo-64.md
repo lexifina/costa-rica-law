@@ -1,0 +1,1 @@
+Artículo 64. En los artículos siguientes se definen los usos especiales permitidos en la Zona Industrial, los cuales rigen de forma específica para este Plan Regulador y se sintetizan en el Cuadro 3 del presente Reglamento.

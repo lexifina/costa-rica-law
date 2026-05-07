@@ -1,0 +1,3 @@
+Artículo 122. Alturas máximas en Zona Industrial. Las construcciones a realizarse dentro de la Zona Industrial deberán cumplir con las siguientes indicaciones:
+a- Para el caso de establecimientos industriales, definidos de esta forma en el Reglamento de Construcciones del presente Plan Regulador, se permiten hasta 3 pisos para edificios o una altura máxima de 23 metros para otras estructuras.
+b- Para cualquier construcción diferente de un establecimiento industrial, se deberá cumplir con lo establecido en el Mapa 2. Alturas máximas para el cantón de Flores del presente Reglamento.

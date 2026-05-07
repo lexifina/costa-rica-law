@@ -1,0 +1,1 @@
+Artículo 129. Retiro lateral mínimo en Zona Industrial. Para toda edificación a construir en Zona Industrial el retiro lateral mínimo permitido es de 6 m. Este retiro se respetará a ambos lados de la construcción.

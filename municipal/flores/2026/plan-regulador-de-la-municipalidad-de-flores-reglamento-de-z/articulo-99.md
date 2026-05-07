@@ -1,0 +1,1 @@
+Artículo 99. En el cantón de Flores, la altura máxima permitida, está sujeta a la zona en la cual se encuentre la edificación de acuerdo con lo establecido en el mapa 2 de este reglamento. Para construir más de 2 pisos o 8 m, se deberá contar como requisito indispensable, con el estudio y aprobación de la Dirección General de Aviación Civil.

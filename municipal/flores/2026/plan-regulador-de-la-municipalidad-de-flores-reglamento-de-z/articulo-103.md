@@ -1,0 +1,5 @@
+Artículo 103. Disposiciones generales para retiro frontal. Independientemente de la zona en la cual se ubica el lote a desarrollar, el retiro frontal deberá cumplir con las siguientes disposiciones:
+a- Deberá ser un área verde libre, por lo que la superficie no puede ser cubierta o impermeabilizada. Lo anterior con las excepciones establecidas en el inciso b de este artículo.
+b- En áreas de antejardín se permite únicamente la construcción de espacios de estacionamiento abiertos, transformadores, elementos de conexión y módulos de medidores de servicios públicos, basureros y accesos.
+c- Retiro frontal para el uso comercial y servicios: en locales comerciales ubicados en Zona Comercial, Zona Mixta y Zona San Joaquín Centro, el área de antejardín en retiro frontal deberá estar equipada con mobiliario urbano, arborizada y estar accesible al peatón, adicionalmente deben realizarse las mejoras y ampliación de acera que sean necesarias.
+d- Toda área del retiro frontal que sea impermeabilizada se contabilizará como parte de la cobertura.

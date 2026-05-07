@@ -1,0 +1,1 @@
+Artículo 44. En esta zona, se permiten tanto usos industriales como algunos usos especiales, todos los cuales agrupan diversas actividades, según el tipo de uso. Se sintetizan en el Cuadro 2 del presente Reglamento.

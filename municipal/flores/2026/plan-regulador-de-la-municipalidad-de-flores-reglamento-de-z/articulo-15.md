@@ -1,0 +1,1 @@
+Artículo 15. Centros de llamadas: Uso que corresponde a espacios en donde en donde trabajan personas como operadores de llamadas que dan distintos tipos de servicio a los clientes de la empresa involucrada.

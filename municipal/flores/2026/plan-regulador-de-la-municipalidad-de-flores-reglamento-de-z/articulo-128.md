@@ -1,0 +1,1 @@
+Artículo 128. Retiro Lateral. Tanto para Zona Industrial como para la Zona de Almacenamiento y Logística, uno de los retiros laterales se debe impermeabilizar de manera que pueda soportar el peso de una escalera de rescate, el cual para efectos de esta norma se considera de 35 toneladas.

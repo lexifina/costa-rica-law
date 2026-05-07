@@ -1,0 +1,1 @@
+Artículo 89. Para el supuesto de que un lote se ubique en 2 zonas, cada parte del lote deberá cumplir con los usos permitidos y las restricciones urbanísticas de la zona en la que se ubique, de acuerdo con el mapa de zonificación.

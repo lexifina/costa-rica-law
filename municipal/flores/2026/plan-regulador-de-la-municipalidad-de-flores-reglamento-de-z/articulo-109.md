@@ -1,0 +1,1 @@
+Artículo 109. Dimensión de ochava o chaflán. La dimensión mínima de la ochava corresponde al promedio de las dos aceras frontales a la propiedad, pero en ningún caso será menor a 1.5 m medidos desde la esquina.

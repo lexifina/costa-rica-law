@@ -1,0 +1,1 @@
+Artículo 27. Habitacional: Uso para habitación permanente, con instalaciones mínimas para su utilización como tal. Estos incluyen las viviendas individuales, apartamentos, edificios, viviendas para alquiler y barracas para trabajadores.

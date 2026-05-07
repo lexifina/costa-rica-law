@@ -1,0 +1,1 @@
+Artículo 73. Los usos no industriales permitidos en la Zona de Almacenamiento y Logística, son los que establecen el Cuadro 1 del Capítulo 3 del presente Reglamento, regulación en la cual se detalla los distintos usos como los tamaños definidos para cada actividad.

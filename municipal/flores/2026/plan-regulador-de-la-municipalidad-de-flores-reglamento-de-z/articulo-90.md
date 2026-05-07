@@ -1,0 +1,1 @@
+Artículo 90. Todos aquellos lotes segregados y debidamente inscritos antes de la entrada en vigencia de este reglamento, que no cuenten con el área o frente de lote mínimo para fraccionar, podrán ser desarrollados de acuerdo con las restricciones establecidas al efecto en el Capítulo 13.

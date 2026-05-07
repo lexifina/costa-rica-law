@@ -1,0 +1,1 @@
+Artículo 4. Las actividades industriales se pueden ubicar en los siguientes dos tipos de zonas: 1) Zona Industrial y 2) Zona de Almacenamiento y Logística. Los límites de cada una de estas zonas se encuentran en el Mapa 1. Zonificación del cantón de Flores.

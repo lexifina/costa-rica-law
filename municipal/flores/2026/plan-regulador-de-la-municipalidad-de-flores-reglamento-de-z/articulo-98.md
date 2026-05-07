@@ -1,0 +1,1 @@
+Artículo 98. Toda edificación con una altura mayor o igual a 6 pisos o 24 m deberá tener frente a una calle con derecho de vía mínimo de 20 m y que desemboque a una calle con derecho de vía mínimo de 14 m.

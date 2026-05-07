@@ -1,0 +1,1 @@
+Artículo 20. Deportivo: Uso que contempla todos aquellos recintos destinados a la práctica de actividad deportivas. Bajo esta categoría se encuentran: canchas deportivas, estadios, polideportivos, complejos deportivos, pistas para ciclismo, gimnasios de acondicionamiento físico y gimnasios deportivos.

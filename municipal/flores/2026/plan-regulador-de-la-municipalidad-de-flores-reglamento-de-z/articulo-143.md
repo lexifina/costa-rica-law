@@ -1,0 +1,1 @@
+Artículo 143. Profundidad máxima. Para cualquier construcción, la profundidad máxima permitida será de 10 metros medidos desde el nivel oficial de piso hasta el nivel de piso terminado del último nivel subterráneo.

@@ -1,0 +1,1 @@
+Artículo 13. Balnearios: Uso que contempla los complejos recreativos que contienen piscinas y todas las instalaciones relacionadas y necesarias para brindar este servicio de entretenimiento, por medio de cobro de entrada.

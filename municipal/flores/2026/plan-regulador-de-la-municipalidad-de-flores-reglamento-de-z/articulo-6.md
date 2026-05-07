@@ -1,0 +1,1 @@
+Artículo 6. Zona de Almacenamiento y Logística. Se ubica alrededor de la Zona Industrial, es una zona orientada a la prestación de servicios de aduana, logística, bodegas y demás usos complementarios a la actividad industrial. También corresponde a un área destinada para el desarrollo de servicios tales como centros de oficinas y otros servicios complementarios.

@@ -1,0 +1,1 @@
+Artículo 142. Cantidad de niveles subterráneos. Para cualquier construcción, el límite máximo permitido de niveles subterráneos será de tres, medidos desde el nivel oficial de piso hasta el nivel de piso terminado del último nivel subterráneo.

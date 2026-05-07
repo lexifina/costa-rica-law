@@ -1,0 +1,1 @@
+Artículo 36. Telecomunicaciones: Uso que incluye aquella infraestructura que se utiliza para el campo de las telecomunicaciones. Bajo esta categoría se encuentran centrales telefónicas, estaciones de radio y televisión, repetidoras de radio, torres de telefonía celular, radio o afines.

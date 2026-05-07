@@ -1,0 +1,1 @@
+Artículo 10. Agropecuario urbano: aquel uso que permite actividades relacionadas con tareas agropecuarias que se pueden ubicar en centros urbanos, algunos ejemplos son las clínicas veterinarias, venta de insumos agropecuarios, venta de plantas y subastas ganaderas.

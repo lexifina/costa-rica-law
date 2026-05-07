@@ -1,0 +1,1 @@
+Artículo 76. Fabricación de artículos varios. Uso industrial que incluye únicamente la actividad de fabricación de calzado, la cual será permitida con la excepción de los casos en que el calzado es fabricado con plástico moldeado.

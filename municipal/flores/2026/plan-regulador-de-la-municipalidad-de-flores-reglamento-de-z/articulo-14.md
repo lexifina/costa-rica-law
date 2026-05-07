@@ -1,0 +1,1 @@
+Artículo 14. Cementerios: Uso referente a los sitios o terrenos destinados al entierro de cadáveres humanos o animales, también para la conservación y custodia de cenizas producto de la cremación de cadáveres o restos humanos. Estos pueden ser de manejo privado o municipal.

@@ -1,0 +1,1 @@
+Artículo 34. Servicios de salud: Uso que incluye todas las actividades relacionadas con la atención de la salud de las personas. Bajo esta categoría se encuentran: EBAIS, centro gerontológico, clínicas de una o varias especialidades, laboratorios clínicos y radiológicos, centros de rehabilitación y centros de estética.

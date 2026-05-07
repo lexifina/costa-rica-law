@@ -1,0 +1,1 @@
+Artículo 42. Autorización de comercio al aire libre De acuerdo con lo establecido en el inciso h del Artículo 16 de la Ley de Planificación Urbana N°4240 y la Ley de Comercio al aire Libre N° 10126 y sus reformas, se podrá solicitar ante la municipalidad la autorización de comercio al aire libre en las zonas: San Joaquín Centro, Comercial y Mixta.

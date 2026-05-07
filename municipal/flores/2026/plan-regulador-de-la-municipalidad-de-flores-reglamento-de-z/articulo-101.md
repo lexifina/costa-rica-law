@@ -1,0 +1,1 @@
+Artículo 101. Para alturas en lotes ubicados en Zona Industrial o Zona de Almacenamiento y Logística, se debe aplicar lo establecido en el Capítulo 12 de Restricciones Urbanísticas en Zona Industrial y Zona de Almacenamiento y Logística del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 134. Aquellos lotes cuya área oscile entre los 80m² y menos de 120m² y que se encuentren conectados a un sistema de alcantarillado sanitario con planta de tratamiento, deberán dejar un área de 15m² libre de construcción e impermeabilización.

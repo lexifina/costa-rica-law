@@ -1,0 +1,3 @@
+Artículo 105. Disposiciones generales para retiro posterior. Independientemente de la zona en la cual se ubica el lote a desarrollar, los retiros laterales y posteriores, deberán cumplir con las siguientes disposiciones:
+a- Puede ser una franja paralela a la colindancia o ser sustituido por jardines internos que provean de suficiente ventilación e iluminación natural a los distintos espacios. Todo jardín interno correspondiente al retiro posterior debe tener una dimensión mínima de 3 m por 3 m.
+b- Puede intercambiar la relación numérica con el retiro frontal en caso de que por condiciones topográficas de pendiente la colocación de sistema de tratamiento de aguas así lo requiera.

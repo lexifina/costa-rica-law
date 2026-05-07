@@ -1,0 +1,1 @@
+Artículo 80. Ventas al por mayor o al detalle. Uso especial que incluye las actividades de venta al por mayor o al detalle únicamente de aquellos productos manufacturados por la misma industria. Su área de construcción deberá tener un máximo de 100 metros cuadrados.
