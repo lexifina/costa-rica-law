@@ -1,0 +1,1 @@
+Artículo 14. La Municipalidad de Flores está obligada a poner en conocimiento de las autoridades judiciales a los infractores que incurran en sanciones civiles y penales contempladas en el ordenamiento jurídico costarricense.

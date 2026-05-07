@@ -1,0 +1,1 @@
+Artículo 42. Solicitud de asesoría. Los integrantes de la Junta tienen la potestad de consultar con expertos, cuando sus miembros no sean versados en una materia en concreto y se encuentre resolviendo sobre ella.

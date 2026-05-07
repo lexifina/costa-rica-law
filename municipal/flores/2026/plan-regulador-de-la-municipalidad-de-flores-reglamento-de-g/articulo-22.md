@@ -1,0 +1,1 @@
+Artículo 22. Recursos para el funcionamiento de la Junta. Para el funcionamiento administrativo la Junta tendrá apoyo de la Dirección de Desarrollo Urbano y de los recursos que el Concejo Municipal le asigne, para los gastos de operación, papelería, artículos y equipos de oficina.

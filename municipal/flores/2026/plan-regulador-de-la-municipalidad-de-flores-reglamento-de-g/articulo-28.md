@@ -1,0 +1,1 @@
+Artículo 28. Remoción de Miembros. Los miembros de la Junta podrán ser removidos de sus puestos por el Concejo Municipal, cuando exista una falta comprobada a la ética, a las funciones otorgadas por el presente Reglamento, o por la inasistencia a tres de las sesiones de la JEPT.

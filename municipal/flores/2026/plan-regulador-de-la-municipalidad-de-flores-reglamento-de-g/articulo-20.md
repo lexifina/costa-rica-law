@@ -1,0 +1,1 @@
+Artículo 20. Coadministración. Las funciones otorgadas a la Junta no implicarán la delegación o sustitución de las obligaciones ni competencias legales de los funcionarios municipales y del Gobierno Local como un todo.

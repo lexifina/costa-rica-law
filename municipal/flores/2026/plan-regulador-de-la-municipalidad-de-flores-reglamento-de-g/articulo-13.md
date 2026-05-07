@@ -1,0 +1,1 @@
+Artículo 13. La Municipalidad de Flores deberá comunicar a las instituciones públicas competentes en las áreas de tránsito, salud, ambiente, u otras, los incumplimientos a las regulaciones cometidas en estas materias, a efectos de coordinar la aplicación de las respectivas sanciones administrativas a que se hagan acreedores los particulares.

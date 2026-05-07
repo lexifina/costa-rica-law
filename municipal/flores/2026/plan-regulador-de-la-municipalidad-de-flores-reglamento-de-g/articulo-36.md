@@ -1,0 +1,3 @@
+Artículo 36. Quórum. Será requisito que el Presidente realice dos convocatorias con una media hora de diferencia, de tal manera que la fecha y el lugar de ambas sean los mismos:
+a. En la primera convocatoria: La presencia de la mitad más uno de los miembros de la Junta, para lo cual el presidente contactará a cada miembro de la Junta a través del medio que se acuerde para ello.
+b. En la segunda convocatoria: Se realizará este llamado en caso de no presentarse la totalidad de los miembros requeridos para sesionar en la primera convocatoria. Se realizará la sesión con los miembros de la Junta que se encuentren presentes en ese momento, siempre que al menos tres de los miembros hayan asistido.

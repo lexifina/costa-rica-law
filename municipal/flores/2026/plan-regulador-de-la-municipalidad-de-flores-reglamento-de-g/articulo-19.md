@@ -1,0 +1,1 @@
+Artículo 19. Creación y Principios. La Junta será un canal de comunicación entre la población del cantón y la Municipalidad, con la cual se busca promover la participación ciudadana en temas de ordenamiento territorial, a través de la formulación de recomendaciones no vinculantes en los supuestos autorizados en el presente reglamento.

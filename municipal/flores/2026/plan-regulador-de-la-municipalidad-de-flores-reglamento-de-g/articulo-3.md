@@ -1,0 +1,1 @@
+Artículo 3. Todas las disposiciones del Plan Regulador Urbano del cantón de Flores, son de acatamiento obligatorio para todas las personas físicas y jurídicas, públicas y privadas, con las excepciones que prevé el ordenamiento jurídico costarricense.

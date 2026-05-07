@@ -1,0 +1,1 @@
+Artículo 6. La responsabilidad administrativa, penal y civil de la aplicación e interpretación del presente Plan Regulador recae en el funcionario que cuente con la investidura y competencia legal para hacerlo.

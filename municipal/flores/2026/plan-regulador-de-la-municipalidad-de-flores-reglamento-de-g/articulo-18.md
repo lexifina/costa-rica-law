@@ -1,0 +1,18 @@
+TÍTULO II. JUNTA ESTRATÉGICA DE PLANIFICACIÓN TERRITORIAL
+Consideraciones generales
+. La creciente necesidad de incluir a los pobladores del cantón en las actividades de los gobiernos locales se ha plasmado tanto en la normativa como en la práctica, a través de la conformación de diversos mecanismos de participación ciudadana.
+. Como parte del proceso de actualización del Plan Regulador, se detectó que la figura de la Junta de Planificación Cantonal (JUPLACA) de Flores no realiza un verdadero aporte a las necesidades sobre participación ciudadana y transparencia requerida en la aplicación de las regulaciones de ordenamiento territorial.
+. Por esta razón, a través de la materialización del Principio de Legalidad, se crea en las normas del Plan Regulador, la figura de la Junta Estratégica de Planificación Territorial (JEPT), la cual sustituye directamente a la JUPLACA.
+. La JEPT tiene el objetivo de potenciar la participación ciudadana en la fiscalización, cumplimiento y aplicación de la normativa local referente al ordenamiento territorial; como parte de las obligaciones establecidas en el Código Municipal, número 7794, sobre la necesaria promoción de un desarrollo local participativo e inclusivo, que contemple la diversidad de necesidades e intereses de la población.
+. La jurisprudencia de la Sala Constitucional es consecuente con el ordenamiento jurídico costarricense, en donde los artículos 1, 9, 26, 27 y 169 de la Constitución Política de la República de Costa Rica de 1949, 113 y 114 de La Ley General de Administración Pública N° 6227, 1, 4 y 5 del Código Municipal N° 7794 y el Reglamento de Creación, Organización y Funcionamiento del Sistema Nacional de Contralorías de Servicio Nº 34587-PLAN, dan sustento firme a la participación ciudadana a través de la observancia de la ejecución de la función pública.
+. La Ley de Planificación Urbana, número 4240, establece la posibilidad de crear juntas o comisiones para integrar a la comunidad en la aplicación del Plan Regulador.
+. En el desarrollo de su labor, la Junta funcionará en apego a las competencias que le serán asignadas, respetando para ello, las competencias legales tanto de la Municipalidad de Flores, como de otros entes u organizaciones.
+. Con la creación de esta Junta se busca principalmente reforzar los mecanismos de participación ciudadana ya existentes, determinando un medio por el cual los habitantes del cantón pueden manifestar su opinión antes de la toma de decisiones por parte del Gobierno Municipal en relación con el desarrollo urbano de Flores.
+CAPÍTULO 3. CONFORMACIÓN Y FUNCIONAMIENTO
+Consideraciones específicas
+. Al proponer un sistema a través del cual se permita una interacción entre la ciudadanía y el gobierno ocal, la JEPT busca acortar las distancias entre los pobladores y los funcionarios municipales, a través de la cooperación en la toma de decisiones atinentes a la aplicación del Plan Regulador.
+. La Junta está conformada tanto por representantes de la comunidad de Flores como por funcionarios municipales, quienes darán recomendaciones no vinculantes a los encargados de aplicar el Plan Regulador.
+. Para evitar que los regidores adelanten en las sesiones de la JEPT los criterios que posteriormente expondrán en las sesiones del Concejo Municipal, en la conformación de la Junta se excluye a los miembros del Concejo.
+. Las recomendaciones no vinculantes de la Junta son documentos a través de los cuales se expresan los argumentos referentes a una consulta concreta.
+Regulaciones
+Artículo 18. Sustitución. La Junta Estratégica de Planificación Territorial sustituye para todos los efectos a la Junta de Planificación Cantonal, figura que queda derogada por el presente Plan Regulador.

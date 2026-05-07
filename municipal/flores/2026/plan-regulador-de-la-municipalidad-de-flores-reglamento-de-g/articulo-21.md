@@ -1,0 +1,1 @@
+Artículo 21. Conocimientos. Para llevar a cabo su función, todos los miembros de la Junta deberán tener conocimiento del Plan Regulador: sus reglamentos, mapas y anexos. Será obligación de los funcionarios municipales designados como miembros permanentes de la Junta, capacitar a los integrantes de la Asamblea de Fiscales Territoriales

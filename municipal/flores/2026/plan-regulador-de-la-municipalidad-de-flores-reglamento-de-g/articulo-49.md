@@ -1,0 +1,1 @@
+Artículo 49. Remoción de los Fiscales Territoriales. La Junta deberá destituir de su cargo a los Fiscales Territoriales, en caso de ser comprobada la realización de una falta grave contra la moral y las buenas costumbres o actos de mala fe.

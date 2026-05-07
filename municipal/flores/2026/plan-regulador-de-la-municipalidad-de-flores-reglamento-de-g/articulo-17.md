@@ -1,0 +1,1 @@
+Artículo 17. Toda resolución que dicten las dependencias de la Municipalidad de Flores en lo relativo a los reglamentos contenidos en el presente Plan Regulador, tendrá los recursos que regula el Código Municipal, número 7794, y sus reformas, todos los cuales deberán ser interpuestos con las formalidades y plazos que ahí se indican.

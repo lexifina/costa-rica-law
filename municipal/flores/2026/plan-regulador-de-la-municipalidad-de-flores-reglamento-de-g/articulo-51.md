@@ -1,0 +1,1 @@
+Artículo 51. Registro de los Fiscales Territoriales. La JEPT deberá llevar un registro y certificación de los Fiscales Territoriales. Este registro debe contener los datos personales de los fiscales, así como la información necesaria para determinar en cual distrito en específico habita cada fiscal.

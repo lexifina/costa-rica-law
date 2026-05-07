@@ -1,0 +1,1 @@
+Artículo 15. Los funcionarios a quienes, previa realización del proceso administrativo correspondiente, se les acredite la responsabilidad por el incumplimiento de las normas contenidas en el presente Plan Regulador, serán merecedores de todas las sanciones administrativas, disciplinarias, civiles y penales contemplados en el ordenamiento jurídico costarricense.

@@ -1,0 +1,1 @@
+Artículo 16. En el momento que la Municipalidad de Flores tenga conocimiento de la existencia de una infracción a las normas establecidas en los Reglamentos del presente Plan Regulador, u otras normas vigentes y aplicables en la materia, deberá dar curso al proceso administrativo respectivo.
