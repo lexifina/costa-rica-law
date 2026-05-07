@@ -1,0 +1,1 @@
+Artículo 19. Para la selección de los componentes en las áreas de renovación por potencial recreativo y comunal, según las categorías seleccionadas se sugiere revisar el Titulo V del Reglamento de Fraccionamiento, Urbanizaciones y Condominios, en donde se especifican los componentes para Parques y Facilidades Comunales.

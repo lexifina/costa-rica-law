@@ -1,0 +1,1 @@
+Artículo 25. Las zonas de renovación tendrán restricciones y limitaciones para fraccionar o construir durante un período de cinco años. Luego de este periodo aplicarán las regulaciones según el Reglamento de Zonificación para cada zona.

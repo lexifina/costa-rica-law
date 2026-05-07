@@ -1,0 +1,1 @@
+Artículo 45. Respecto a las excepciones en las Zonas de Atención Especial sólo se permitirán casas de habitación y los mismos usos del suelo que se estipulan para la zona Residencial Tipo 2, en el Reglamento de Zonificación.

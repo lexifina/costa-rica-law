@@ -1,0 +1,1 @@
+Artículo 43. Para todos los lotes ubicados en los barrios definidos como ZAE con áreas comprendidas entre los 70 m2 y los 120 m2 se permitirán hasta 2 pisos de altura; siempre que se cumplan las áreas mínimas de superficie no impermeabilizada, y frente de lote establecidas en los Artículo 38 y Artículo 40.

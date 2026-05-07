@@ -1,0 +1,1 @@
+Artículo 39. Los predios ubicados dentro de las ZAE: Barrio Cristo Rey, Barrio Santísima Trinidad, Urbanización el Rosario, Urbanización Siglo XXI, Barrio La Managüita, Urbanización Villa Lico, Barrio Santa Marta; deberán tener un área superior a los 120 m2, cobertura máxima del 70% o un área mínima sin impermeabilizar de 30 m2.

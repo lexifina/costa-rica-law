@@ -1,0 +1,1 @@
+Artículo 5. Ubicación de las Zonas de Renovación Urbana en Flores. Las zonas definidas como de renovación urbana para las cuales aplicarán las normas aquí establecidas están ubicadas en los mapas 1 y 2 contenidos en el presente Reglamento y en el Mapa 1. Zonificación del cantón de Flores.

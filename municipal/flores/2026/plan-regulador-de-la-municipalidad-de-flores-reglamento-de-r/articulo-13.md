@@ -1,0 +1,1 @@
+Artículo 13. Cobro potencial por uso de instalaciones recreativas. La Municipalidad se encuentra facultada para cobrar una cuota por el uso de las instalaciones recreativas que haya adquirido, previa emisión de la reglamentación respectiva.

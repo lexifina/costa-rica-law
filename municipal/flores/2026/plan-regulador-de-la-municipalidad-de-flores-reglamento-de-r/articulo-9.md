@@ -1,0 +1,1 @@
+Artículo 9. Para la creación, aprobación, ejecución y fiscalización de los Planes y Proyectos de Renovación Urbana se debe acatar lo establecido en el Capítulo III y IV del Reglamento de Renovación Urbana del Instituto Nacional de Vivienda y Urbanismo.

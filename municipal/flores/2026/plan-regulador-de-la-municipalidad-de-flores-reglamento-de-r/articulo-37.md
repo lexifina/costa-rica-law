@@ -1,0 +1,1 @@
+Artículo 37. Una vez cumplido el plazo de cinco años para las Zonas de Atención Especial, y en caso de que no se haya realizado la inversión necesaria para la rehabilitación del sitio, sobre el mismo pesaran las restricciones que demanden los restantes reglamentos, tales como el reglamento de zonificación y el reglamento de construcciones.

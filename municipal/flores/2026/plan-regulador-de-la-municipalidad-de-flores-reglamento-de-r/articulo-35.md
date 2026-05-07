@@ -1,0 +1,1 @@
+Artículo 35. La construcción y financiamiento de la infraestructura necesaria en zonas de atención especial pueden ser cubiertas por cualquier entidad pública o privada. Corresponde a la Municipalidad coordinar y colaborar en el proceso de implementación de la infraestructura. Así como definir los requerimientos técnicos para dicha infraestructura.

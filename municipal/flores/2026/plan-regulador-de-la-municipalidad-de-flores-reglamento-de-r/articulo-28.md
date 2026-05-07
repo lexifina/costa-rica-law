@@ -1,0 +1,1 @@
+Artículo 28. A partir de la aprobación de cada programa, plan y/o proyecto de renovación urbana y por el término de cinco años, pesarán sobre las Zonas de Atención Especial restricciones para fraccionar o construir. Una vez vencido el plazo de los 5 años, regirá lo establecido en el Reglamento de Zonificación y los restantes reglamentos de este Plan Regulador.

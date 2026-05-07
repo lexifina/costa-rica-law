@@ -1,0 +1,3 @@
+Artículo 31. Reconfiguración Predial o Reajuste de tierras. La Municipalidad deberá realizar investigaciones que permitan establecer las condiciones de desarrollo urbano necesarias para utilizar el mecanismo de la reconfiguración predial para la renovación urbana en los asentamientos que así lo permitan. Para esto considerar la Guía básica para la Implementación de Procesos de Reajuste de Terrenos-Reparcelamiento-con Reparto de Cargas y Beneficios del Ministerio de Vivienda y Asentamientos Humanos,
+Instituto Nacional de Vivienda y Urbanismo, Instituto de Fomento y Asesoría Municipal y Ministerio de Obras
+Públicas y Transporte.

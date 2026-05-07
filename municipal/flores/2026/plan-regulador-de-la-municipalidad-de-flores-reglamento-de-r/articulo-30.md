@@ -1,0 +1,1 @@
+Artículo 30. Se permitirá la Reconfiguración Predial Pública o Reajuste de Terrenos únicamente para las Zonas de Atención Especial definidas para el cantón de Flores y ubicadas en el Mapa 2. Zonas de Atención Especial del presente reglamento y en el Mapa 1. Zonificación del cantón de Flores del presente Plan Regulador.

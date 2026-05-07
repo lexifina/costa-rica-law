@@ -1,0 +1,2 @@
+Artículo 14. Es responsabilidad del Municipio fomentar la adquisición de nuevos espacios para ser destinados al uso público, ya sean áreas de parque o facilidades comunales. Dichos espacios se encuentran
+identificados debidamente con la prioridad 1 y 3 en el Mapa 1. Potencial Recreativo, comunal y prioridad de desarrollo del Reglamento de Renovación Urbana y en el Mapa 1. Zonificación del cantón de Flores del presente Plan Regulador.

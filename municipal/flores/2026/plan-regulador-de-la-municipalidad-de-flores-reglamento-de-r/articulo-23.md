@@ -1,0 +1,1 @@
+Artículo 23. Los componentes de parques y facilidades comunales que deben ser utilizados según las categorías para las áreas adquiridas por la Municipalidad, en términos de potencial recreativo y comunal se especifican en el capítulo 23 del Reglamento de Fraccionamiento, Urbanizaciones y Condominios.

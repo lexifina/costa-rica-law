@@ -1,0 +1,1 @@
+Artículo 42. Para todos los lotes ubicados en los barrios definidos como ZAE, se permiten hasta 3 pisos siempre que el área del mismo sea superior a los 120 m2; y cumpla los requisitos de cobertura estipulados para la zona Residencial Tipo 2.

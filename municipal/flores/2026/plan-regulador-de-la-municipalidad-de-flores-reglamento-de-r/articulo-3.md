@@ -1,0 +1,1 @@
+Artículo 3. Alcance. Las intervenciones en las zonas de renovación urbana pueden conservar áreas urbanas, rehabilitar, remodelar o regenerar áreas urbanas disfuncionales, así como contribuir a la erradicación de tugurios.

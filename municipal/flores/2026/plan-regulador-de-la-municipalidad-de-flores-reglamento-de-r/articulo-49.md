@@ -1,0 +1,3 @@
+Artículo 49. La construcción o reparación de infraestructura pública para las Zonas de Atención Especial no debe atentar contra la vida y seguridad de la población. Para tal efecto las obras deberán contar con las medidas de seguridad necesarias para garantizar la integridad de trabajadores y ciudadanos.
+[imagen]
+[imagen]
