@@ -1,0 +1,1 @@
+Artículo 2º- Los jerarcas deberán garantizar que no se vean afectados los servicios públicos considerados esenciales dentro de la institución respectiva y que por su naturaleza exigen continuidad en la prestación del servicio.

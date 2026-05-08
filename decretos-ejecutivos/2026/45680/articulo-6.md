@@ -1,0 +1,1 @@
+Artículo 6º- Se insta a las instituciones descentralizadas a adoptar las disposiciones necesarias en el marco de su autonomía administrativa, procurando la debida coordinación y el respaldo institucional a esta trascendental actividad nacional.
