@@ -16,3 +16,4 @@ Reglamento del Sistema Penitenciario Nacional
 | 1 | 2018-01-23 | la propia norma |
 | 2 | 2018-05-29 | Decreto Ejecutivo 41211 (2018-05-29) |
 | 3 | 2025-08-27 | Decreto Ejecutivo 45174 (2025-08-27) |
+| 4 | 2026-05-08 | Decreto Ejecutivo 45796 (2026-05-08) |

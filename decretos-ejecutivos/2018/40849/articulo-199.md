@@ -1,11 +1,13 @@
-Artículo 199.- Sobre las actividades. Se entenderán por actividades de formación, ocupación y capacitación, las que realicen las personas privadas de libertad dentro o fuera del centro o unidad, en las siguientes modalidades:
-a) Formación profesional o técnica;
-b) Estudio y formación académica;
-c) Las prestaciones en servicios auxiliares comunes del centro o unidad;
-d) Las artesanales, de producción intelectual, literaria, artística y autogestionaria;
-e) Las de dirigencia u organización permanente de actividades orientadas a la población penal;
-f) La prestación de actividades remuneradas a empresas o instituciones públicas; y
-g) La prestación de actividades remuneradas a empresas u organizaciones privadas, en el marco de convenios con el sistema penitenciario nacional.
-Su cumplimiento autoriza un día de descanso semanal y diez días hábiles de descanso anual, sin perjudicar el descuento correspondiente.
-El período de vacaciones de personas dedicadas a estudios de educación general básica, secundaria o universitaria, forma parte de esa actividad.
-El desarrollo de estas modalidades se aplicará a los efectos del descuento de la pena conforme al Código Penal.
+Artículo 199.- Sobre las actividades computables. Para los efectos del presente Reglamento y del beneficio previsto en el artículo 55 del Código Penal, se entenderán como actividades computables aquellas que realicen las personas privadas de libertad dentro o fuera del centro, ámbito, unidad u oficina, siempre que constituyan trabajo penitenciario o actividades laborales, ocupacionales productivas, de formación para el trabajo o de capacitación laboral, debidamente autorizadas, verificables, registradas y sujetas a control institucional.
+Dichas actividades podrán desarrollarse en las siguientes modalidades:
+a) Formación profesional, técnica o capacitación laboral;
+b) Actividades educativas, académicas o técnicas vinculadas directamente con la formación para el trabajo, la capacitación laboral o el desarrollo de competencias laborales verificables;
+c) Prestaciones en servicios auxiliares comunes del centro, ámbito, unidad u oficina;
+d) Prestación de actividades remuneradas a favor de instituciones públicas; y
+e) Prestación de actividades remuneradas a favor de empresas u organizaciones privadas, en el marco de convenios con el Sistema Penitenciario Nacional.
+Las actividades deberán contar con mecanismos objetivos de control de asistencia, jornada, participación, producto o resultado, según corresponda, y deberán constar en el expediente físico o electrónico de la persona privada de libertad.
+Su cumplimiento autoriza un día de descanso semanal y diez días hábiles de descanso anual, sin perjudicar el registro administrativo correspondiente para los efectos del beneficio previsto en el artículo 55 del Código Penal.
+El período de vacaciones de las personas incorporadas a programas de educación general básica, secundaria, técnica o universitaria formará parte de la respectiva actividad únicamente cuando dicha actividad haya sido autorizada como computable por estar vinculada directamente con formación para el trabajo, capacitación laboral o desarrollo de competencias laborales.
+Las actividades educativas, recreativas, culturales, espirituales, deportivas o terapéuticas que no reúnan las condiciones de actividad laboral, ocupacional productiva, de formación para el trabajo o capacitación laboral podrán ser valoradas dentro del proceso de atención técnica penitenciaria, pero no generarán por sí mismas efectos para el descuento de pena previsto en el artículo 55 del Código Penal, salvo que hayan sido formalmente autorizadas por el Instituto Nacional de Criminología como actividad computable.
+La Administración Penitenciaria valorará, registrará e informará las actividades computables, sin que ello implique sustituir la competencia de la autoridad jurisdiccional para aprobar, modificar o controlar la liquidación de la pena.
+(Así reformado por el artículo 5° del Reglamento sobre el cómputo de las penas privativas de libertad y los beneficios penitenciarios, aprobado mediante decreto ejecutivo N° 45796 del 8 de mayo de 2026)
