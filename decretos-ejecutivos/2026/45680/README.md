@@ -14,3 +14,4 @@ Concede asueto a las oficinas y establecimientos públicos de todo el territorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-08 | la propia norma |
+| 2 | 2026-05-08 | Decreto Ejecutivo 45774 (2026-04-28) |

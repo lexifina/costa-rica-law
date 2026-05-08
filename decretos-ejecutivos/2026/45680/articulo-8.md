@@ -1,0 +1,2 @@
+Artículo 8°- Se insta a las instituciones descentralizadas a adoptar las disposiciones necesarias en el marco de su autonomía administrativa, procurando la debida coordinación y el respaldo institucional a esta trascendental actividad nacional.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 45774 del 28 de abril de 2026, que lo traspaso del antiguo artículo 6 al artículo 8)

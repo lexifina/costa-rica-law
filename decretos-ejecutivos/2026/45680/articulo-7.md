@@ -1,2 +1,2 @@
-Artículo 7º- Rige el día 08 de mayo de 2026.
-Dado en la Presidencia de la República, San José, a las 13:00 horas del 24 de marzo del dos mil veintiséis.
+Artículo 7 - Se excepciona de la aplicación del decreto a todos los funcionarios públicos o trabajadores del sector público que deban desempeñar funciones relacionadas con el Traspaso de Poderes y durante éste.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45774 del 28 de abril de 2026)
