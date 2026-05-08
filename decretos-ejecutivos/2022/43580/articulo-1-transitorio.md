@@ -1,1 +1,0 @@
-Transitorio Único. Los Ministros rectores señalados en el artículo 11° del Decreto Ejecutivo Nº41187-MP-MIDEPLAN del 20 de junio del 2018, continuarán a cargo de velar por la ejecución y el seguimiento del Plan Nacional de Desarrollo y de Inversión Pública 2019-2022.
