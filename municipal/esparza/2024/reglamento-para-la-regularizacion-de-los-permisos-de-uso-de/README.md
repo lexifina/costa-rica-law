@@ -14,3 +14,4 @@ Reglamento para la regularización de los permisos de uso de suelo en la zona li
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-31 | la propia norma |
+| 2 | 2026-05-11 | Reglamento municipal 159 (2026-05-11) |
