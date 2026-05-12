@@ -13,3 +13,4 @@ Obligatoriedad uso del módulo de pase a fallo por tareas en el Tribunal Agrario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-26 | la propia norma |
+| 2 | 2026-05-12 | Circular 80 (2026-05-12) |
