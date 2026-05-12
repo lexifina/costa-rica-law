@@ -1,1 +1,2 @@
-Artículo 11° -Coordinación de la CNEA. La CNEA estará coordinada por el Ministro o la Ministra de Comunicación, quien presidirá la CNEA y facilitará la adecuada gestión de la Comisión y sus equipos de trabajo.
+Artículo 11°.- Coordinación de la CNEA. La CNEA será presidida y coordinada por el Ministro o la Ministra de Planificación Nacional y Política Económica, o por la persona que ocupe el cargo de Viceministro o Viceministra que se designe para tal efecto, quien facilitará la adecuada gestión de la Comisión y de sus equipos de trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45808 del 12 de mayo de 2026)

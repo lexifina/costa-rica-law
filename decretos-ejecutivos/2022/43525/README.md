@@ -14,3 +14,4 @@ Fomento del Gobierno abierto en la administración pública y creación de la Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-06 | la propia norma |
+| 2 | 2026-05-12 | Decreto Ejecutivo 45808 (2026-05-12) |
