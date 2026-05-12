@@ -14,3 +14,4 @@ Procedimiento para la entrega de premios especiales, a través de la Quiniela de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-03-27 | la propia norma |
+| 2 | 2026-05-12 | Reglamento 0 (2026-05-12) |
