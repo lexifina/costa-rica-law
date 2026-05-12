@@ -3,12 +3,12 @@ Artículo 8. Comisión Nacional de Datos Abiertos. La Comisión Nacional de Dato
 ● Apoyar activamente la publicación y uso de los datos abiertos con los distintos actores del ecosistema.
 ● Definir las prioridades de los Planes de Acción Nacional de Apertura de Datos Públicos.
 ● Supervisar el trabajo de la Secretaria Técnica de la Política Nacional de Apertura de Datos Públicos.
-La Comisión será presidida por el Ministerio de Comunicación en su función de rector de Gobierno Abierto y tendrá una conformación multisectorial.
+La Comisión será presidida por el Ministerio de Planificación Nacional y Política Económica (*) en su función de rector de Gobierno Abierto y tendrá una conformación multisectorial.
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41190 del 26 de junio del 2018)
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 45808 del 12 de mayo de 2026. Anteriormente se indicaba: "Ministerio de Comunicación")
 La representación tendrá un propietario y un único suplente, ambos capacitados y con conocimiento acreditado en materia de datos abiertos, de cada una de las siguientes entidades y organizaciones:
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41190 del 26 de junio del 2018)
-1. Ministerio de Comunicación.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41190 del 26 de junio del 2018)
+1. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 45808 del 12 de mayo de 2026. Anteriormente por el numeral 2° del decreto ejecutivo antes mencionado se le había cambiado su denominación de Ministerio de Comunicación por el Ministerio de Planificación Nacional y Política Económica)
 - Ministerio de Ciencia, Tecnología y Telecomunicaciones.
 - Ministerio de Planificación Nacional y política Económica.
 - Instituto Nacional de Estadísticas y Censos.
