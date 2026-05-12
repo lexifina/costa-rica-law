@@ -6,4 +6,6 @@ b) Que ha cambiado el giro de su actividad de modo que le cause perjuicio. En es
 Para efectos del ejercicio del derecho de receso, las acciones del recedente deben ser depositadas en una entidad financiera o bancaria, o en una central para el depósito de valores, desde la notificación establecida en el párrafo segundo de este artículo.
 El valor de sus acciones le será reembolsado al recedente en un plazo máximo de sesenta días, contados a partir de la notificación a la sociedad, en dinero efectivo.
 Es nulo cualquier pacto que tienda a entorpecer, limitar o excluir el derecho de receso.
+Ejercido el derecho de receso o de separación, una vez depositadas las acciones se pierde la condición de socios y no se readquiere tal condición.
+(Así adicionado el párrafo anterior por el artículo único de la ley N° 10902 del 12 de mayo de 2026)
 (Así adicionado por el artículo 6º de la ley 7201 de 10 de octubre de 1990)
