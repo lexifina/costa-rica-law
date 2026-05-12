@@ -1,2 +1,0 @@
-Artículo 83.—De la sanciones y responsabilidades para las personas funcionarias que incurran en actos discriminatorios. La discriminación en razón de la orientación sexual e identidad de género será considerada falta grave. A cualquier persona funcionaria que labore en la Dirección General de Servicio Civil y se le compruebe haber incurrido en estas conductas, podrá ser despedida sin responsabilidad para el Estado, de conformidad con la normativa vigente para estos efectos.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 39478 del 11 de noviembre de 2015)

@@ -1,2 +1,0 @@
-Del abandono de labores
-Artículo 34.—Del concepto de abandono de labores: Se considera abandono de labores el hacer dejación sin causa justificada, dentro de la jornada de trabajo la labor objeto de la relación de servicio. Para efectos de calificar el abandono de labores, no es preciso que el servidor salga del lugar donde presta sus servicios, sino que, de modo evidente, abandone la labor que le ha sido encomendada.

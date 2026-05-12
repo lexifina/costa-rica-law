@@ -1,1 +1,0 @@
-Artículo 16.—De la distribución de los turnos de descanso: Los Jefes inmediatos, dispondrán los turnos y la distribución del personal a su cargo, a fin de que durante los descansos previstos en este Reglamento, se mantenga la continuidad y la prestación del servicio.

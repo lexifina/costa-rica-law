@@ -1,1 +1,0 @@
-Artículo 74.—Del trámite. Recibida la denuncia, y según la investigación preliminar, el Director General evidencia que la denuncia de manera clara y evidente es infundada, podrá rechazarse, para lo cual deberá dictarse una resolución debidamente motivada que deberá ser notificada al denunciante.

@@ -1,1 +1,0 @@
-Artículo 40.—De las vacaciones proporcionales: Se tendrá derecho a vacaciones proporcionales únicamente cuando deviene la terminación de la relación de servicios, o ante vacaciones colectivas que deba otorgar la Dirección General, por mandato del Poder Ejecutivo.

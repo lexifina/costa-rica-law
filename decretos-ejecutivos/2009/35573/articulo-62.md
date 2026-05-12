@@ -1,1 +1,0 @@
-Artículo 62.—Del servicio médico de empresa: Los servidores, funcionarios pensionados de esta Dirección General y familiares debidamente autorizados por el Sistema de Atención Integral y Medicina de Empresa, tendrán derecho a contar con los servicios médicos asistenciales dentro de la Institución.

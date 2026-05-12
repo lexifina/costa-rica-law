@@ -1,1 +1,0 @@
-Artículo 30.—De la deducción del salario por ausencias: Las ausencias injustificadas, aparte de la sanción disciplinaria que conlleva para el servidor, implican la deducción obligada de su salario en la proporción correspondiente a dichas ausencias, si se trataré de ausencias comprobables por mera constatación.
