@@ -1,10 +1,1 @@
-Artículo 50.- Las sanciones disciplinarias imponibles a los
-servidores del Organismo serán las siguientes:
-1) apercibimiento;
-2) reprensión;
-3) suspensión hasta por un mes;
-4) descenso en el escalafón respectivo; y
-5) revocatoria del nombramiento.
-La imposición de cualquiera de estas sanciones, conlleva la pérdida
-de la respectiva bonificación por méritos que señala la ley de salarios
-del Poder Judicial.
+Artículo 50.- (Derogado por el artículo 235 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)

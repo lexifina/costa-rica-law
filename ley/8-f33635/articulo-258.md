@@ -1,0 +1,4 @@
+Artículo 258- Capacitación de servidores en materia familiar. A fin de asegurar que las personas con discapacidad tengan acceso efectivo a la justicia, el Poder Judicial promoverá la capacitación adecuada de los que trabajan en la administración de justicia.
+(Así adicionado por el artículo 3° punto III) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 252 al artículo 257)
+(Así modificada su numeración por el artículo 232 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026, que lo traspaso del antiguo artículo 257 al artículo 258)

@@ -1,7 +1,14 @@
 CAPITULO II
 DE LAS COMPETENCIAS DISCIPLINARIAS
-Artículo 187.- Corresponde a la Corte, en votación secreta, aplicar el régimen disciplinario sobre sus miembros, de conformidad con la presente Ley. Las correcciones de advertencia y amonestación se adoptarán por mayoría simple del total de los Magistrados. Para decretar la suspensión, el acuerdo habrá de tomarse por dos tercios del total de sus miembros. Si esa misma cantidad de Magistrados considerare que lo procedente es la revocatoria de nombramiento, la Corte lo comunicará así a la Asamblea Legislativa para que resuelva lo que corresponda. Para sustanciar las diligencias seguidas contra un Magistrado, la Corte designará a uno de sus miembros como órgano instructor.
-También corresponde a la Corte ejercer el régimen disciplinario respecto del Fiscal General, el Fiscal General Adjunto, el Director y Subdirector del Organismo de Investigación Judicial. En tal caso, la Inspección Judicial actuará como órgano instructor.
-Sin perjuicio de lo dispuesto en este Título sobre el régimen disciplinario, el Presidente de la Corte podrá apercibir y reprender y aun suspender preventivamente del ejercicio de sus funciones o empleo, hasta por un mes, con goce de salario, a los funcionarios y empleados judiciales, en los casos en que pueden ser corregidos disciplinariamente, previo a dar cuenta a la Corte Plena, al Consejo o al Tribunal de la Inspección Judicial, para que, siguiendo el debido proceso, se pronuncien acerca de la corrección o de la revocatoria del nombramiento.
-Corresponde igualmente al Presidente la facultad de gestionar permutas o traslados de empleados o funcionarios para el mejor servicio; deberá dar cuenta, en su oportunidad, a la Corte Plena, al Consejo o al Tribunal de la Inspección Judicial para que se resuelva lo que se considere conveniente.
+Artículo 187.- Existirán los siguientes órganos con potestad de aplicar el régimen sancionador en el Poder Judicial:
+1- Corte Plena.
+2- Quien presida la Corte.
+3- Tribunal Administrativo Sancionador.
+4- Direcciones de los órganos auxiliares de justicia. Se consideran direcciones con competencia para aplicar el régimen sancionador las siguientes:
+a) Fiscalía General de la República, en cuyo caso podrá ser ejercida por la persona fiscal general, fiscal general adjunta o fiscal subrogante.
+b) Dirección de la Defensa Pública, en cuyo caso podrá ser ejercida por la persona directora o subdirectora.
+c) Dirección del Organismo de Investigación Judicial, en cuyo caso podrá ser ejercida por la persona directora o subdirectora.
+5- Tribunal Administrativo Sancionador de Apelación.
+Estos órganos tendrán las potestades que define la Ley de Régimen Sancionador de Personas Servidoras e Integrantes de Listas de Suplentes, Elegibles y Meritorias del Poder Judicial.
 (Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 182 al artículo 187)
+(Así reformado por el artículo 232 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026. Se hace constar que el artículo 232 de la Ley N° 10905 antes mencionada, indica modificar el numeral 182, presenta un error de referencia numérica. Debido a la reestructuración numérica dispuesta por el artículo 1° de la Ley N° 10866 del 4 de marzo de 2026, el antiguo artículo 182 fue renombrado como artículo 187. En consecuencia, la reforma del artículo 182 debe entenderse aplicada correctamente al artículo 187.)

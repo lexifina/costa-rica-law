@@ -1,3 +1,1 @@
-Artículo 80.- El Jefe del Departamento de Personal puede ejercer el
-régimen disciplinario sobre los subalternos de esa dependencia, de
-acuerdo con la Ley Orgánica del Poder Judicial.
+Artículo 80.- (Derogado por el artículo 233 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)
