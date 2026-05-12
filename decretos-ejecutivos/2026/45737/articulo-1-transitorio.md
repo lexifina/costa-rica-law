@@ -1,0 +1,1 @@
+Transitorio único. - Para el cumplimiento de las reformas de los subincisos 1.1.1. y 1.1.2., citados en el artículo 1, se otorgará un plazo de 4 años calendario, para su cumplimiento, contados a partir de la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta.
