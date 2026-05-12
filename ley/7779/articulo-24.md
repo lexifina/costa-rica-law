@@ -1,5 +1,15 @@
-ARTÍCULO 24.- Para practicar quemas en terrenos de aptitud agrícola,
-deberán seguirse las indicaciones del Ministerio de Agricultura y
-Ganadería conforme al permiso extendido para los efectos, según el
-Reglamento de quemas agrícolas controladas vigente, así como lo que
-disponen para el efecto la Ley Orgánica del Ambiente y el Código Penal.
+Artículo 24- Para realizar quemas en terrenos de aptitud agrícola y pecuaria deberán seguirse las indicaciones del Ministerio de Agricultura y Ganadería (MAG), conforme al permiso extendido para los efectos, según el reglamento de quemas agrícolas controladas vigente, así como lo que disponen para el efecto la Ley 7554, Ley Orgánica del Ambiente, del 4 de octubre de 1998, y la Ley 4573, Código Penal, del 4 de mayo de 1970.
+El Ministerio de Agricultura y Ganadería conformará un Comité Interinstitucional Permanente de Control y Supervisión de Quemas, como órgano asesor en materia de política pública y regulatoria de quemas agrícolas, garantizando que estas se ejecuten en armonía con la protección del medio ambiente y la salud pública.
+Este Comité Interinstitucional Permanente estará conformado de la siguiente manera:
+a) Un representante titular y uno suplente del Ministerio de Agricultura y Ganadería (MAG), quien presidirá.
+b) Un representante titular y uno suplente del Ministerio de Salud.
+c) Un representante titular y uno suplente del Sistema Nacional de Áreas de Conservación (Sinac) del Ministerio del Ambiente y Energía (Minae).
+d) Dos representantes titulares y dos suplentes de la Cámara Nacional de Agricultura y Agroindustria.
+Dichos representantes serán elegidos por el jerarca de cada una de las instituciones y de la Cámara respectivamente.
+El Comité Interinstitucional Permanente promoverá la creación de comités locales para la consecución de sus fines, en las regiones del país que lo estime conveniente, conformado por los representantes locales de las instituciones y organizaciones que integran el mismo Comité Interinstitucional Permanente. No obstante, en dichos comités locales también podrán integrarse:
+a) Un representante de la municipalidad del cantón en que tenga su sede el comité local. La municipalidad respectiva podrá delegar su representación en cualquier organización distrital o cantonal existente representativa de intereses colectivos o difusos, debidamente conformada según la ley correspondiente.
+b) Un representante del Benemérito Cuerpo de Bomberos de Costa Rica.
+c) Un representante del Ministerio de Seguridad Pública. Reglamentariamente se definirán las funciones y esquema organizacional y operativo del Comité Interinstitucional Permanente, así como de los comités locales.
+El Ministerio de Agricultura y Ganadería (MAG) pondrá a disposición del público, para consulta, la información relativa a los permisos de quemas agrícolas controladas que se hayan otorgado, garantizando el acceso a la información pública. Reglamentariamente se definirá el tipo de información que estará disponible, los medios de consulta y el procedimiento para tener acceso a ella.
+(Así reformado por el artículo 7° de la Ley para el cumplimiento, control y penalización de las quemas en terrenos de aptitud agrícola y pecuaria, N° 10942 del 12 de mayo de 2026)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 023502 del 24 de junio de 2026, se indicó que, por mayoría, se declara sin lugar la acción, siempre y cuando las normas cuestionadas se interpreten de manera armónica con las disposiciones convencionales, constitucionales y legales que protegen el derecho al disfrute de un ambiente sano y ecológicamente equilibrado, en los términos señalados en esta sentencia.)
