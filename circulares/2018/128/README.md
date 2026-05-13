@@ -13,3 +13,4 @@ Reitera circular 48-2018 sobre deber de usuarios de rotular los escritos dirigid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-25 | la propia norma |
+| 2 | 2026-05-13 | Circular 79 (2026-05-13) |
