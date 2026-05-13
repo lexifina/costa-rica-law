@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Del patrimonio documental. La Dirección de Gestión Sociocultural, en conjunto con el Archivo Central del Ministerio de Cultura y Juventud, procederá a valorar el patrimonio documental vinculado a la Casa de la Cultura de Puntarenas y a aplicar los lineamientos vigentes para su conservación, organización y resguardo, conforme a la normativa archivística aplicable.

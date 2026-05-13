@@ -1,0 +1,1 @@
+ARTÍCULO 10.- De los bienes patrimoniales. La Dirección de Gestión Sociocultural, en coordinación con la Unidad de Administración de Bienes Institucionales (UABI), deberá realizar el traslado correspondiente de los bienes patrimoniales en un plazo máximo de un mes calendario contado a partir de la publicación del presente Decreto.
