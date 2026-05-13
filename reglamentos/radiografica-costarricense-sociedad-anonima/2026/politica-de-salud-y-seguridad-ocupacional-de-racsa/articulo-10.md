@@ -1,0 +1,1 @@
+Artículo 10. Revisión. La Política de Salud y Seguridad Ocupacional debe ser revisada al menos cada dos años por la Alta Gerencia de RACSA y en caso de que sea necesario actualizarla y someterla a conocimiento y aprobación de la Junta Directiva.

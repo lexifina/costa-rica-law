@@ -1,0 +1,1 @@
+Artículo 6. Eficiencia. Es la mejor utilización de los recursos disponibles, en forma oportuna, adecuada y suficiente, para garantizar la ejecución de programas y proyectos en materia de Salud Ocupacional.

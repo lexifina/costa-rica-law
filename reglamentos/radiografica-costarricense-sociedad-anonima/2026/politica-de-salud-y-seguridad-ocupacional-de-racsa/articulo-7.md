@@ -1,0 +1,1 @@
+Artículo 7. Inclusión. La Salud Ocupacional inclusiva supone la promoción de un modelo de empresa o institución en el que el colaborador, el empleador y la comunidad participan y desarrollan un sentido de cooperación entre todos, sin ningún tipo de discriminación.

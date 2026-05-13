@@ -1,0 +1,1 @@
+Artículo 5. Solidaridad. Es la búsqueda de la protección a la vida, la salud de todos los colaboradores, con fundamento en el aporte coordinado y comprometido de todos los actores sociales que conforman el Sistema Nacional de Salud Ocupacional.

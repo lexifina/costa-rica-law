@@ -1,0 +1,1 @@
+Artículo 4. Equidad. Toda acción en materia de Salud Ocupacional debe asegurar el acceso de los colaboradores y un trato equitativo, sin ser objeto de ningún tipo de discriminación o violencia, en relación con sus características personales, culturales, sus convicciones, su orientación sexual o de cualquier otra índole.
