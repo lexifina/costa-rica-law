@@ -1,0 +1,26 @@
+N° 45751- C
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 25, inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley General de la Administración Pública, N° 6227 de 2 de mayo de 1978; Ley de Creación del Ministerio de Cultura, Juventud y Deportes, N° 4788 de 5 de julio de 1971(ahora de Cultura y Juventud), la Ley General de la Persona Joven, N° 8261 del 2 de mayo del 2002, la Ley N.° 9025 que aprueba el Contrato de Préstamo N° 2526/OC-CR suscrito entre la República de Costa Rica y el Banco Interamericano de Desarrollo para financiar el Programa para la Prevención de la Violencia y Promoción de la Inclusión Social y el Decreto Ejecutivo 40876-JP-MCJ, Reglamento rector para la organización y funcionamiento de los Centros Cívicos por la Paz y,
+CONSIDERANDO:
+I. Que la estructura organizacional del Ministerio de Cultura y Juventud vigente fue aprobada según estudio de estructura organizacional por MIDEPLAN, mediante los oficios DM-013-02 del 22 de enero del 2002 y DM-049-02 del 15 de mayo del 2002.
+II. Que el Viceministerio de Juventud lidera la formulación, implementación, seguimiento y evaluación de las políticas públicas, planes, programas y proyectos orientadas a promoverlos derechos de la juventud.
+III. Que el Viceministerio de Juventud representa la figura política del Sistema Nacional de Juventud que está conformado por el Viceministerio de Juventud, el Consejo Nacional de la Persona Joven, los Comités de la Persona Joven y la Red Nacional Consultiva de la Persona Joven.
+IV. Que el Sistema Nacional de Juventud tiene la particularidad de contener la oferta institucional y la participación de la sociedad civil, con la acción propia de las personas jóvenes.
+V. Que el Viceministerio de Juventud se fundamenta principalmente en la Ley General de la Persona Joven, No. 8261 del 2 de mayo del 2002, la cual, posiciona a la persona joven como actor estratégico.
+VI. Que el Viceministerio de Juventud visibiliza a las personas jóvenes e impulsa la Política Pública de la Persona Joven.
+VII. Que el Viceministerio de Juventud respalda y acompaña a su brazo operativo, el Consejo Nacional de la Persona Joven, entidad que se rige por una Junta Directiva, presidida por el viceministro de Juventud.
+VIII. Que mediante oficio número MCJ-DM-774-2025 del 30 de setiembre de 2025, se remitió a MIDEPLAN el estudio técnico de reorganización administrativa parcial del Ministerio de Cultura y Juventud.
+IX. Que el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), mediante Informe Técnico de reorganización administrativa número MIDEPLAN-AME-URIT-IT-0002-2026 de fecha 08 de enero de 2026, comunicado mediante oficio CARTA-MIDEPLAN-DM-OF-0031-2026 del 16 de enero del 2026, avaló la reorganización administrativa parcial presentada por el Ministerio de Cultura y Juventud y aprobó la creación de la Unidad de Promoción Cultural para las Juventudes en el Viceministerio de Juventud.
+X. Que la creación de esta unidad, subordinada al Viceministerio de Juventud de esta Cartera Ministerial, fortalecerá la planificación institucional, la eficiencia administrativa y la calidad de los servicios culturales y educativos que ofrece a la ciudadanía.
+XI. Que de conformidad con lo establecido en el Decreto Ejecutivo No. 41162-H Limitación a las reestructuraciones establece que, únicamente serán aprobadas las reestructuraciones cuyo propósito sea hacer más eficiente la gestión del Estado, siempre que el resultado final de su aplicación, entre los nuevos gastos y los ahorros generados por su implementación, no genere un gasto institucional adicional.
+XII. Que conforme lo anterior, en el estudio técnico de la propuesta se indica que lo solicitado a crear no constituye "una expansión orgánica que suponga nuevas plazas o carga presupuestaria adicional".
+XIII. Que de conformidad con el artículo 12 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos (Decreto Ejecutivo Nº 37045-MP-MEIC del 22 de febrero de 2012), cuando la institución proponente determine que la regulación no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir ante la Administración Central, no deberá realizar este control previo y así deberá indicarlo en la parte considerativa de la regulación propuesta.
+XIV. Que, al utilizar como referencia el cuestionario establecido en la Sección I Formulario de Evaluación Costo Beneficio en la Sección I denominada Control Previo de Mejora Regulatoria del Ministerio de Economía Industria y Comercio, se verifica que la presente norma no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir ante el Ministerio de Cultura y Juventud, por lo que no se realiza el control previo.
+POR TANTO,
+DECRETAN:
+"MODIFICACIÓN PARCIAL DE LA ESTRUCTURA ORGANIZATIVA DEL MINISTERIO DE CULTURA Y JUVENTUD Y
+CREACIÓN DE LA UNIDAD DE PROMOCIÓN CULTURAL PARA LAS JUVENTUDES"
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1. Créase la Unidad de Promoción Cultural para las Juventudes dependiente jerárquicamente del Viceministerio de Juventud del Ministerio de Cultura y Juventud.

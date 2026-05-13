@@ -1,0 +1,3 @@
+Artículo 7. Conformación: La Unidad de Promoción Cultural para las Juventudes (UPJ) estará conformada por una estructura ocupacional integrada por una jefatura técnica, responsable de la coordinación técnica y administrativa de la Unidad, así como de la supervisión del personal profesional y técnico destacado en los Centros Cívicos por la Paz.
+Asimismo, contará con el apoyo de un puesto técnico clasificado en el nivel de Técnico de Servicio Civil 2, para la ejecución de las labores operativas y de apoyo a la gestión de la Unidad.
+Por su adscripción al Viceministerio de Juventud, la UPJ dispondrá además del apoyo del personal administrativo del Despacho, conforme a las necesidades de gestión y funcionamiento de la Unidad.
