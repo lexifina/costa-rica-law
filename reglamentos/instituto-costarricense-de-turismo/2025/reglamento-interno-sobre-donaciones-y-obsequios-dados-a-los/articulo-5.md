@@ -1,0 +1,1 @@
+Artículo 5º-Duda sobre el valor del bien. En caso de que exista duda por parte de la persona funcionaria, de la Auditoría Interna, o del Superior Jerárquico con respecto al valor del bien, el jerarca deberá solicitar dentro de los diez días hábiles siguientes a que se le ha reportado la recepción del bien, el criterio técnico de la Dirección General de Tributación Directa.
