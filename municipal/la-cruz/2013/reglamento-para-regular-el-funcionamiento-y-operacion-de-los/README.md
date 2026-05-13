@@ -16,3 +16,4 @@ Reglamento para regular el funcionamiento y operación de los Centro de Cuido y 
 | 1 | 2014-02-15 | la propia norma |
 | 2 | 2016-03-01 | Reglamento municipal 32 (2016-03-01) |
 | 3 | 2024-11-25 | Reglamento municipal 46 (2024-11-25) |
+| 4 | 2026-05-13 | Reglamento municipal 159 (2026-05-13) |
