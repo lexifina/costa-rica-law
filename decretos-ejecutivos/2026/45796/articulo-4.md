@@ -1,0 +1,1 @@
+Artículo 4.- Instrucción a la administración penitenciaria. La Dirección General de Adaptación Social y el Instituto Nacional de Criminología, dentro de los treinta días hábiles siguientes a la entrada en vigor del presente decreto, emitirán las circulares y directrices necesarias para su debida implementación.
