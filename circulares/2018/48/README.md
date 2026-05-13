@@ -13,3 +13,4 @@ Deber de los usuarios de rotular los escritos dirigidos a los despachos indicado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-23 | la propia norma |
+| 2 | 2026-05-13 | Circular 79 (2026-05-13) |
