@@ -19,3 +19,4 @@ Reglamento operativo del Fondo de la Micro, Pequeña y Mediana Empresa (FODEMIPY
 | 4 | 2020-01-22 | Reglamento 5702 (2020-01-22) |
 | 5 | 2021-03-01 | Reglamento 5808 (2021-03-01) |
 | 6 | 2021-09-20 | Reglamento 5858 (2021-09-20) |
+| 7 | 2026-05-13 | Reglamento 6307 (2026-05-13) |
