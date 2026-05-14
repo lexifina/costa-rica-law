@@ -1,2 +1,3 @@
 CAPÍTULO VI. RECURSOS
-Artículo 54. Impugnación. Las resoluciones de la CCA pueden ser impugnadas ante la misma dependencia que emitió el acto mediante un recurso de revocatoria. Estas deben ser presentadas en un plazo máximo de ocho días hábiles a partir del momento en que se reciba la comunicación oficial. Una vez presentado, la CCA debe brindar respuesta en un plazo de diez días hábiles para su resolución.
+Artículo 54. Impugnación. Las resoluciones de la CCA pueden ser impugnadas ante la misma dependencia que emitió el acto mediante un recurso de revocatoria.
+Estas deben ser presentadas en un plazo máximo de ocho días hábiles a partir del momento en que se reciba la comunicación oficial. Una vez presentado, la CCA debe brindar respuesta en un plazo de diez días hábiles para su resolución.

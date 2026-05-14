@@ -1,3 +1,4 @@
+Sección IX. Lenguas y lenguajes computacionales
 Artículo 48. Dominio, conocimiento o manejo instrumental de lenguas y lenguajes computacionales. el dominio, conocimiento o manejo de lenguas y lenguajes, suma puntaje conforme a los siguientes criterios:
 1. Dominio de una lengua (conocimiento que no sea inherente a la especialidad de la persona profesora) en el nivel avanzado.
 2. Dominio de una lengua muerta (conocimiento que no sea inherente a la especialidad de la persona profesora) en nivel avanzado.

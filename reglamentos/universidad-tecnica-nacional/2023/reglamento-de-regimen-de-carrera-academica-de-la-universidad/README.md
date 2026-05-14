@@ -14,3 +14,4 @@ Reglamento de régimen de carrera académica de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-25 | la propia norma |
+| 2 | 2026-05-14 | Reglamento 10 (2026-05-14) |

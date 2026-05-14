@@ -6,13 +6,11 @@ I. La modificación de Atinencias para los puestos de Asistencia Administrativa 
 II. La aprobación del "Reglamento de Régimen de Carrera Académica de la Universidad Técnica Nacional", mediante Acuerdo N° 9-11-2023 de la Sesión Ordinaria N° 11-2023, Artículo 12, celebrada el jueves 11 de mayo de 2023.
 Las reformas anteriores rigen a partir de su publicación.
 Tanto el Manual de Atinencias y Especialidades Profesionales del Sector Administrativo de la Universidad Técnica Nacional como el Reglamento de Régimen de Carrera Académica de la Universidad Técnica Nacional en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección "Normativa Universitaria".
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria Nº 10-202 del 14 de mayo de 2026, publicada en La Gaceta N° 128 del 10 de julio del 2026 y se transcribe a continuación)
 REGLAMENTO DE RÉGIMEN DE CARRERA ACADÉMICA DE LA
 UNIVERSIDAD TÉCNICA NACIONAL
-(Aprobado por el Consejo Universitario mediante Acuerdo 9 tomado por el Consejo
-Universitario en la Sesión Ordinaria No. 11-2023, celebrada el jueves 23 de marzo
-del 2023, a las nueve horas, según el Artículo 12 del Capítulo VII. Comisión de
-Reglamentos Internos. Publicado en el diario oficial La Gaceta No. 92 del 25 de
-mayo del 2022, sección Reglamentos).
-CAPÍTULO I.
-DISPOSICIONES GENERALES
+(Aprobado por el Consejo Universitario mediante Acuerdo 9 tomado por el Consejo Universitario en la Sesión Ordinaria No. 11-2023, celebrada el jueves 23 de marzo del 2023, a las nueve horas, según el Artículo 12 del Capítulo VII. Comisión de Reglamentos Internos. Publicado en el diario oficial La Gaceta No. 92 del 25 de mayo del 2023, sección Reglamentos).
+(Reformado mediante Acuerdo 5 tomado por el Consejo Universitario en la Sesión Ordinaria No. 10-2026, celebrada el jueves 14 de mayo de 2026, a las nueve horas, según el Artículo 12 del Capítulo IV. Rectoría. Publicado en el diario oficial La Gaceta No. 128 del 10 de julio del 2026,
+sección Reglamentos).
+CAPÍTULO I. DISPOSICIONES GENERALES
 Artículo 1. Propósito. El presente cuerpo normativo establece las disposiciones que regulan lo referente a la carrera académica de las personas académicas de la UTN, en concordancias con la normativa institucional.
