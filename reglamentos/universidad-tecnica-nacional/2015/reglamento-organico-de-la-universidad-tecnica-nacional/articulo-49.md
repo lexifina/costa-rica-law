@@ -1,5 +1,4 @@
-Artículo 49. Son funciones de la Vicerrectoría de Extensión:
-Además de las funciones generales establecidas en el artículo 33 le corresponde específicamente a la Vicerrectoría de Extensión, las siguientes:
+Artículo 49. Son funciones de la Vicerrectoría de Extensión: Además de las funciones generales establecidas en el artículo 33 le corresponde específicamente a la Vicerrectoría de Extensión, las siguientes:
 1. Coordinar el desarrollo de programas de educación continua para la inserción laboral, el emprendedurismo y el mejoramiento del desempeño profesional y ocupacional mediante la actualización de conocimientos
 2. Desarrollar investigaciones en forma permanente para identificar nuevos requerimientos sociales y productivos que garanticen la pertinencia de los programas ofertados.
 3. Impulsar el desarrollo de proyectos específicos con un enfoque de innovación y de multiculturalidad y transdisciplinariedad.

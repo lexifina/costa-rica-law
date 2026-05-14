@@ -1,4 +1,4 @@
-Artículo 53. Son funciones de la Dirección de Control de Bienes e Inventarios.
+Artículo 53. Son funciones de la Dirección de Control de Bienes e Inventarios:
 1. Proponer la normativa que se debe aplicar para el registro y control de los activos universitarios e inventarios y velar porque se cumpla la normativa aprobada en esta materia.
 2. Proponer la normativa que se debe aplicar para el control de los inventarios de materiales y suministros.
 3. Velar por el uso eficiente y eficaz de los bienes de la UTN.

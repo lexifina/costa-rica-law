@@ -9,7 +9,8 @@ Artículo 18. Son funciones y atribuciones del Rector:
 8. Ejercer en última instancia la potestad disciplinaria respecto de los funcionarios que corresponda conforme a los reglamentos aplicables.
 9. Nombrar y remover a los Vicerrectores y los otros cargos de confianza.
 10. Dirigir y ejecutar la política y los planes generales que en materia de docencia, investigación, extensión y vida estudiantil, haya aprobado el Consejo Universitario.
-11. Fijar el cupo de ingreso de estudiantes por cada ciclo lectivo con base en la propuesta que presenten los órganos correspondientes. 12. Rendir un informe anual de su gestión ante el Consejo Universitario.
+11. Fijar el cupo de ingreso de estudiantes por cada ciclo lectivo con base en la propuesta que presenten los órganos correspondientes.
+12. Rendir un informe anual de su gestión ante el Consejo Universitario.
 13. Ejecutar los acuerdos firmes del Consejo Universitario y promulgar los acuerdos y reglamentos que éste dicte.
 14. Firmar los títulos, diplomas, y distinciones honoríficas.
 15. Suscribir los convenios de cooperación con instituciones públicas o privadas. En caso que no hayan sido aprobados de previo por el Consejo Universitario, podrán ser suscritos ad referéndum del Consejo Universitario.

@@ -25,3 +25,4 @@ Reglamento Orgánico de la Universidad Técnica Nacional
 | 10 | 2024-02-08 | Reglamento 5 (2024-02-08) |
 | 11 | 2024-06-06 | Reglamento 18 (2024-06-06) |
 | 12 | 2025-03-13 | Reglamento 6 (2025-03-13) |
+| 13 | 2026-05-14 | Reglamento 10 (2026-05-14) |

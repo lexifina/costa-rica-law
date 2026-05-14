@@ -1,6 +1,6 @@
 Artículo 41. Son funciones del Director Ejecutivo del Centro de Formación Pedagógica y Tecnología Educativa:
 1. Ejercer la representación del Centro de Formación Pedagógica, presidir el Consejo del Centro y fungir como superior jerárquico y administrador general del Centro.
-2. Adoptar las medidas que se requieran para la ejecución de las resoluciones o acuerdos del Consejo Universitario o del Rector, y del Consejo Página | 23 Técnico en el área de su competencia.
+2. Adoptar las medidas que se requieran para la ejecución de las resoluciones o acuerdos del Consejo Universitario o del Rector, y del Consejo Técnico en el área de su competencia.
 3. Supervisar el funcionamiento del Centro y adoptar las medidas necesarias para su buena marcha.
 4. Ejecutar, coordinar, dirigir, controlar y supervisar los planes y las actividades de docencia, vida estudiantil, investigación y extensión del Centro, garantizando en todo momento el cumplimiento de las políticas y directrices emitidas por el Consejo Universitario y el Rector, y el acatamiento de los lineamientos políticos y técnicos emitidos por las Vicerrectorías correspondientes.
 5. Celebrar contratos de prestación de servicios de conformidad con la reglamentación correspondiente, y siempre que haya sido específicamente autorizado por el Rector para ese efecto.

@@ -1,1 +1,1 @@
-Artículo 103. En lo referido a los plazos de resolución de cualquier gestión que debe resolver un funcionario de la Universidad Técnica Nacional, en caso de omisión por parte del presente reglamento, se estará a lo dispuesto en el artículo 6 de la Ley No. 8220, del 19 de febrero 2002
+Artículo 103. En lo referido a los plazos de resolución de cualquier gestión que debe resolver un funcionario de la Universidad Técnica Nacional, en caso de omisión por parte del presente reglamento, se estará a lo dispuesto en el artículo 6 de la Ley No. 8220, del 19 de febrero 2002.

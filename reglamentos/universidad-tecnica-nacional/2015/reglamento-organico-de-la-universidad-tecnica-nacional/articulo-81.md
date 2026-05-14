@@ -1,4 +1,4 @@
-Artículo 81. El Área conjunta de Comunicación y Mercadeo dependerá directamente de los Decanos de Sede, y sus funciones son: Ejecutar, coordinar, controlar y dar seguimiento a las actividades de comunicación e información y, mercadeo y ventas, con base en los lineamientos emitidos por la Dirección de Comunicación y Mercadeo.
-(Reformado mediante Acuerdo 5-29-2020, tomado por el Consejo Universitario en la Sesión
-Ordinaria No. 29-2020, celebrada el viernes 4 de diciembre de 2020, a las nueve horas, según el Artículo 9 y publicado en el Diario Oficial la Gaceta No. 12 del 19 de enero del 2021)
+Artículo 81. El Área conjunta de Comunicación y Mercadeo dependerá directamente de los Decanos de Sede, y sus funciones son: Ejecutar, coordinar, controlar y dar seguimiento a las actividades de comunicación e información y, mercadeo y ventas, con base en los lineamientos emitidos por la Dirección de
+Comunicación y Mercadeo.
+(Reformado mediante Acuerdo 5-29-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 29-2020, celebrada el viernes 4 de diciembre de 2020, a las nueve horas, según el Artículo 9 y publicado en el Diario Oficial la Gaceta No. 12 del 19 de enero del 2021)
 (Reformado mediante Acuerdo 3 tomado por el Consejo Universitario en la Sesión Ordinaria No. 5-2023, celebrada el jueves 23 de febrero de 2023, a las nueve horas, según el Artículo 8 del Capítulo IV. Rectoría. Publicado en el diario oficial La Gaceta No. 53 del 22 de marzo del 2023, sección Reglamentos).

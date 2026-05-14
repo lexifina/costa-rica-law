@@ -5,7 +5,7 @@ La normativa arriba indicada se encuentra en su versión completa y actualizada 
 Rige a partir de su publicación.
 (Nota de Sinalevi: El texto del Reglamento Orgánico de la Universidad Técnica Nacional, se extrajo del sitio Web Universidad Técnica Nacional, y se transcribe a continuación:)
 REGLAMENTO ORGÁNICO DE LA UNIVERSIDAD TÉCNICA NACIONAL
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y publicado íntegramente mediante sesión ordinaria N° 6-2025 del 13 de marzo de 2025 y publicado en La Gaceta N° 64 del 3 de abril del 2025 y se transcribe a continuación:)
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y publicado íntegramente mediante sesión ordinaria Nº 10- 2026 del 14 de mayo de 2026 y publicado en La Gaceta N° 128 del 10 de julio del 2026 y se transcribe a continuación:)
 TÍTULO I
 CAPÍTULO ÚNICO
 NATURALEZA, PRINCIPIOS, FINES Y FUNCIONES DE LA

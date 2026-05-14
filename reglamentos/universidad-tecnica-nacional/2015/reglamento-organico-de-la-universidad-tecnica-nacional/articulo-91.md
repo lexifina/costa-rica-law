@@ -1,8 +1,9 @@
 SECCIÓN IV
 DE LOS ÓRGANOS COLEGIADOS DE LA UNIVERSIDAD Y SU
 FUNCIONAMIENTO
-Artículo 91. Le corresponde al Consejo Universitario o a la Rectoría, la creación de comisiones u órganos colegiados, conforme a la normativa que los regule. Cada órgano colegiado tendrá un Presidente nombrado en la forma prescrita por el reglamento respectivo o en su defecto por lo aquí dispuesto.
-Salvo norma contraria, el Presidente será nombrado por el Consejo Universitario Página o por el Rector en su caso, y durará en su cargo por el plazo que este mismo defina o bien cuando fenezca la funcionalidad del órgano creado.
+Artículo 91. Le corresponde al Consejo Universitario o a la Rectoría, la creación de comisiones u órganos colegiados, conforme a la normativa que los regule.
+Cada órgano colegiado tendrá un Presidente nombrado en la forma prescrita por el reglamento respectivo o en su defecto por lo aquí dispuesto.
+Salvo norma contraria, el Presidente será nombrado por el Consejo Universitario o por el Rector en su caso, y durará en su cargo por el plazo que este mismo defina o bien cuando fenezca la funcionalidad del órgano creado.
 El Presidente tendrá las siguientes facultades y atribuciones:
 1. Presidir, con todas las facultades necesarias para ello, las reuniones del órgano, las que podrá suspender en cualquier momento por causa justificada;
 2. Velar porque el órgano colegiado cumpla las leyes y reglamentos relativos a su función.

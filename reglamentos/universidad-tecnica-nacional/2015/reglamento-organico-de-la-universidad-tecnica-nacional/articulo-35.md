@@ -1,5 +1,4 @@
-Artículo 35. Son funciones de la Vicerrectoría de Docencia:
-Además de las funciones generales establecidas en el artículo 33 le corresponde específicamente a la Vicerrectoría de Docencia, las siguientes:
+Artículo 35. Son funciones de la Vicerrectoría de Docencia: Además de las funciones generales establecidas en el artículo 33 le corresponde específicamente a la Vicerrectoría de Docencia, las siguientes:
 1. Asistir y asesorar al Rector en el proceso en la toma de decisiones estratégicas y la formulación de directrices, correspondientes a las actividades docentes desarrolladas en la Institución.
 2. Supervisar el cumplimiento de la reglamentación y normativa vigente, así como de la ejecución de los acuerdos y directrices emitidos por el Consejo Universitario y la Rectoría en materia de docencia.
 3. Evaluar y analizar el nivel de desempeño alcanzado por la Universidad en el desarrollo de la docencia y proponer los ajustes necesarios para el logro de los objetivos institucionales.
@@ -11,7 +10,7 @@ Además de las funciones generales establecidas en el artículo 33 le correspond
 9. Dirigir, coordinar, supervisar y evaluar la oferta académica de los cursos: Actividad Cultural y Actividad Deportiva de los planes de estudio de la universidad.
 10. Supervisar y evaluar los diversos planes de estudio de la Universidad, con el propósito de coordinarlos y adaptarlos a las necesidades de la sociedad.
 11. Orientar el quehacer de las unidades de la docencia.
-12. Facilitar el trabajo docente para el mejoramiento académico continuo mediante el análisis, investigación y desarrollo de Página | 20 prácticas pedagógicas innovadoras.
+12. Facilitar el trabajo docente para el mejoramiento académico continuo mediante el análisis, investigación y desarrollo de prácticas pedagógicas innovadoras.
 13. Avalar las propuestas relativas a: cupos, apertura de nuevas carreras, diseño, rediseño, suspensión, cierre y evaluación de carreras y planes de estudio así como la oferta académica.
 14. Atender la actividad interdisciplinaria en el campo académico.
 15. Dirigir política y estratégicamente sus Programas y Centros adscritos.
