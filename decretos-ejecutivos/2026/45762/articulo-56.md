@@ -1,0 +1,7 @@
+SECCIÓN II
+FONDO DE FINANCIAMIENTO DEL FONADE
+Artículo 56: Operación del fondo de financiamiento del FONADE. El fondo de financiamiento del FONADE servirá para impulsar programas orientados al apoyo financiero de beneficiarios del SBD. Funcionará bajo un esquema de banca de segundo piso, para el financiamiento de operaciones crediticias, factoraje financiero, arrendamiento financiero y operativo, microcréditos y proyectos del sector agropecuario; así como otras operaciones activas que los usos, las prácticas y las técnicas nacionales o internacionales admitan como propias de la actividad financiera y bancaria, según las disposiciones que para estos efectos emita el Consejo Rector.
+Estos fondos se utilizarán también para apoyo de proyectos de capital semilla y de riesgo, para lo cual se destinará un fondo especial separado con el monto que establezca el Consejo Rector, según el apetito de riesgo.
+Este fondo también podrá complementar el financiamiento de los programas de los operadores financieros aprobados por el Consejo Rector, bajo la modalidad de crédito sindicado.
+La cobertura para acceso a crédito en las diferentes regiones del país, la ejecutarán los operadores financieros acreditados por el Consejo Rector.
+Para apoyar con el proceso de inclusión financiera y económica, el Consejo Rector podrá establecer mecanismos alternos para canalizar los recursos en caso de ser estrictamente necesario.

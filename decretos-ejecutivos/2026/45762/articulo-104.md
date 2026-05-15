@@ -1,0 +1,3 @@
+CAPÍTULO XII
+REGIONALIZACIÓN Y DESARROLLO PRODUCTIVO
+Artículo 104: De la operatividad para la regionalización de los recursos. El Consejo Rector, considerando las disposiciones que tanto el MEIC como ente rector de las PYME y los emprendimientos, y el MAG de las PYMPA formulen en materia de políticas públicas dirigidas al fomento de estos sectores, definirá las lineamientos y directrices del SBD con plazos e indicadores que permitan gradualmente que los recursos destinados a las regiones fuera de la Región Central, según definición del Ministerio de Planificación Nacional y Política Económica, para que sean al menos el 40% de los recursos totales del SBD.

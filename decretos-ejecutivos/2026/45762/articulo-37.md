@@ -1,0 +1,6 @@
+Artículo 37: De la remoción del director ejecutivo. El director ejecutivo o la directora ejecutiva, podrá ser removido de su cargo en cualquier momento por justa causa por los siguientes motivos:
+a) Cuando técnicamente se justifique y acredite que no ha cumplido adecuadamente las labores encomendadas en la Ley N.º 8634 y su reglamento, o bien incumple las labores, tareas y funciones encomendadas por el Consejo Rector.
+b) Por dolo o culpa grave.
+Las causales anteriores, se acreditarán siguiendo el procedimiento administrativo establecido en el Libro Segundo de la Ley General de Administración Pública, en estricto apego a los elementos constitutivos del debido proceso establecidos por la Sala Constitucional, y no acarrearán indemnizaciones pecuniarias salvo lo establecido por la legislación laboral como derechos adquiridos.
+También podrá ser removido, cuando su permanencia en el cargo distorsione, imposibilite o ponga en riesgo el cumplimiento de los objetivos y programas establecidos en la Ley N.º 8634 y su reglamento, así como las disposiciones dictadas por el Consejo Rector, según consideraciones de oportunidad y conveniencia definidas y debidamente acreditadas por este órgano colegiado.
+Para la remoción del director ejecutivo o directora ejecutiva se requerirá de un acuerdo adoptado por mayoría calificada del total de los miembros del Consejo Rector.

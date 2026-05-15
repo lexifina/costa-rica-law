@@ -1,0 +1,1 @@
+Artículo 67: Del control de los avales y garantías. El FONADE deberá mantener un control sobre los avales y garantías y las delimitaciones que la Ley N.º 8634, este Reglamento y la política que el Consejo Rector aprueba y establezcan para estos efectos.

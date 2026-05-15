@@ -1,0 +1,2 @@
+Artículo 16: Del nombramiento de presidente y vicepresidente. La presidencia y la vicepresidencia del Consejo Rector las ocuparán los ministros con cartera, así como el Presidente Ejecutivo del ICT por un periodo de un año; estos cargos los definirá la mayoría simple de los miembros del Consejo Rector.
+En caso de ausencia del presidente, cuando concurra alguna causa justa, lo sustituirá el vicepresidente del Consejo Rector y, en estos eventos, tendrá las mismas funciones y gozará de las mismas atribuciones indicadas en la Ley N.º 8634 y el presente Reglamento.

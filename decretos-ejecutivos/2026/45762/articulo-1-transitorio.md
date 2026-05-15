@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I: El Consejo Rector y la Secretaría Técnica del Sistema de Banca para el Desarrollo deberán actualizar su normativa interna correspondientes a las funciones de cada área, a efecto de ajustarlas a las reformas introducidas a la Ley N.º 8634, considerando, además lo dispuesto en el presente Reglamento. A tal efecto deberán presentar ante el Consejo Rector un plan de acción para la implementación de lo indicado anteriormente en un plazo no mayor de tres meses contados a partir de la vigencia del presente reglamento.

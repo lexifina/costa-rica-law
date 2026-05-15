@@ -1,0 +1,8 @@
+CAPÍTULO V
+AUDITORÍA INTERNA
+Artículo 38: Del concepto funcional y competencia de la Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al Consejo Rector, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, asegurar el cumplimiento de las políticas y acuerdos del Consejo Rector, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, el control y los procesos de dirección.
+Además de las funciones establecidas en la Ley General de Control Interno N.º 8292, a la Auditoría Interna le compete primordialmente, lo siguiente:
+a) Auditar la Secretaría Técnica del Consejo Rector del SBD.
+b) Ejercer las demás funciones y facultades que le correspondan, según la Ley N.º 8634, los reglamentos del SBD, los lineamientos del Consejo Rector y demás disposiciones pertinentes. La Auditoría Interna ejercerá sus atribuciones con total independencia funcional y de criterio respecto del jerarca y las demás instancias.
+c) Ejecutar el plan de trabajo, el cual deberá ser presentado al Consejo Rector para su revisión, de previo a su aprobación.
+La Auditoría Interna deberá regirse por las disposiciones, normas técnicas, lineamientos y guías emitidas por la Contraloría General de la República (CGR), en cumplimiento de lo establecido en la Ley Orgánica de la CGR, N.º 7428 y la Ley General de Control Interno, N.º 8292. Será responsabilidad del Auditor Interno velar por la actualización permanente de los procedimientos, metodologías y herramientas de auditoría, conforme a las disposiciones emitidas por la Contraloría General de la República.

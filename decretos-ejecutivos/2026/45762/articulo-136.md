@@ -1,0 +1,1 @@
+Artículo 136: Disposiciones generales de los participantes del SBD. Los participantes del SBD deberán informar a las personas beneficiarias sobre los programas y herramientas del SBD, las cuales se han puesto a disposición por medio de la Ley N.º 8634. Además, deberán hacerlo explícito en los instrumentos informativos, divulgación y publicitarios a su alcance.

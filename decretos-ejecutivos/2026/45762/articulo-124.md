@@ -1,0 +1,1 @@
+Artículo 124: De la organización (INA). Para la adecuada administración de estos recursos y en procura de lograr eficiencia, eficacia e impacto, el INA establecerá dentro de su estructura organizacional, una unidad especializada en SBD, de conformidad con el artículo 41 de la Ley N.º 8634.

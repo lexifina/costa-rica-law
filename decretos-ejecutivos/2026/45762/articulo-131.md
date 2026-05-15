@@ -1,0 +1,1 @@
+Artículo 131: Del MIDEPLAN. El MIDEPLAN establecerá de forma anual un plan de apoyo internacional para el SBD. Los recursos donados por la ayuda internacional se depositarán en el FONADE y toda cooperación será coordinada en su ejecución por la Secretaría Técnica del Consejo Rector.

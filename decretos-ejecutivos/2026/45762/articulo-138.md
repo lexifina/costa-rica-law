@@ -1,0 +1,1 @@
+Artículo 138: Derecho subjetivo. Se mantiene invariable cualquier derecho subjetivo que haya surgido a partir de los Decretos Ejecutivos N° 38906-MEIC-MAG-MH-MIDEPLAN y N° 43980 MAG-MEIC-TUR, respectivamente.

@@ -1,0 +1,6 @@
+SECCIÓN V
+FONDO SERVICIOS NO FINANCIEROS Y DESARROLLO EMPRESARIAL
+Artículo 80: De la naturaleza del fondo de servicios no financieros. El Consejo Rector deberá aprobar dentro de sus planes y estrategias el uso de estos recursos fundamentado en el apoyo a las personas beneficiarias de la Ley, para lo cual podrá promover aplicaciones tecnológicas y modelos de acompañamiento que apoyen las estructuras organizativas simples de los negocios ubicados en la base de la pirámide empresarial, tales como: emprendimientos, microempresa y micro productor agropecuario; asimismo, definirá las condiciones para que los recursos de este fondo para el Desarrollo Empresarial sean utilizados para beneficiar los sectores o áreas estratégicas que determine necesario.
+El Consejo Rector definirá la política para que gradualmente, al menos el 60% de los recursos de este Fondo para el Desarrollo Empresarial, sean utilizados para beneficiar los sectores prioritarios.
+Este fondo se destinará a financiar servicios de desarrollo empresarial que requieran las personas beneficiarias definidos en la Ley N.º 8634, en las formas indicadas en su artículo 15.
+El Consejo Rector dentro de su actividad ordinaria definirá las condiciones para la colocación de servicios no financieros del FONADE.

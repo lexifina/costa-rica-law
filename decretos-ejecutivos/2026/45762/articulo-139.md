@@ -1,0 +1,1 @@
+Artículo 139: Derogatoria. Deróguese los Decretos Ejecutivos N° 43980-MEIC-MAG-TUR del 27 de marzo de 2023, publicado en el Alcance N.º 71 del Diario Oficial La Gaceta N.º 71 del 25 de abril de 2023; y N° 44757-MEIC-MAG-TUR del 04 de octubre de 2024, publicado en el Alcance N.º 193 del Diario Oficial La Gaceta N.º 225 del 29 de noviembre de 2024.
