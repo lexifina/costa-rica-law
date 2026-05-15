@@ -1,0 +1,4 @@
+ARTÍCULO 14. - Asignación y uso de equipo tecnológico institucional.
+La persona teletrabajadora deberá utilizar, de manera exclusiva, el equipo tecnológico móvil que le sea asignado y autorizado por el IAFA para la ejecución de sus funciones bajo la modalidad de teletrabajo.
+Para tales efectos, el IAFA facilitará dicho equipo en calidad de préstamo, el cual comprenderá únicamente la computadora portátil y los siguientes accesorios: cargador, teclado y mouse, conforme a los lineamientos técnicos y de seguridad institucionales.
+La autorización para la asignación y salida del equipo tecnológico será emitida formalmente por la instancia competente en materia de tecnologías de la información, mediante el acto administrativo correspondiente, dejando constancia del inventario, condiciones de uso y responsabilidades asociadas.

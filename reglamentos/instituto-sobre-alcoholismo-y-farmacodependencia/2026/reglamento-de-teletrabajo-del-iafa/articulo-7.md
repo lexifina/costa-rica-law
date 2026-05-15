@@ -1,0 +1,2 @@
+ARTÍCULO 7. - Apoyo institucional al teletrabajo.
+Todas las personas funcionarias del IAFA que, de forma directa o indirecta, interactúen con personas que se desempeñen bajo la modalidad de teletrabajo deberán colaborar y coordinar, en el ámbito de sus competencias, para facilitar su adecuada implementación, seguimiento y evaluación, a fin de asegurar el cumplimiento de los objetivos institucionales y de la normativa aplicable, sin menoscabo de la continuidad, calidad y eficiencia del servicio público.

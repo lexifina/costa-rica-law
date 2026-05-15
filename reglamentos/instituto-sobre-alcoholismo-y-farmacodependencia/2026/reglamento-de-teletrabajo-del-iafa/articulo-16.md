@@ -1,0 +1,2 @@
+ARTÍCULO 16. - Uso de la plataforma tecnológica.
+Para el acceso y uso de sistemas y plataformas institucionales, la persona teletrabajadora tendrá la obligación de utilizar los mecanismos y herramientas que la Institución proporcione para garantizar la seguridad de la información, tales como redes seguras (VPN) y uso de credenciales con factor de autenticación, a fin de garantizar la confidencialidad, integridad y disponibilidad de la información, tales como el uso de redes seguras, mecanismos de acceso controlado y factores de autenticación definidos por la Institución.

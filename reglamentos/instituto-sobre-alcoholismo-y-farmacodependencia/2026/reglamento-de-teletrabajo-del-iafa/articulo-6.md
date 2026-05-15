@@ -1,0 +1,2 @@
+ARTÍCULO 6. - Derechos y Obligaciones.
+Las personas teletrabajadoras conservarán íntegramente los derechos, deberes y responsabilidades inherentes a su cargo, en igualdad de condiciones respecto de la modalidad presencial, sin que la aplicación del teletrabajo implique modificación, restricción o menoscabo alguno de sus condiciones laborales, salariales, de jornada, de protección social o de régimen disciplinario, de conformidad con la Ley N° 9738, su Reglamento y la normativa institucional vigente.

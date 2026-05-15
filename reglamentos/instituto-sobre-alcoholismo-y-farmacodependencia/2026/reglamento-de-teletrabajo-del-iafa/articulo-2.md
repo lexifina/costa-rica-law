@@ -1,0 +1,2 @@
+ARTÍCULO 2. - Ámbito de aplicación.
+El presente reglamento será aplicable a las personas funcionarias del Instituto sobre Alcoholismo y Farmacodependencia que, conforme a la naturaleza de sus funciones y a los criterios técnicos y operativos establecidos en este reglamento y en la normativa vigente, puedan desempeñar sus labores bajo la modalidad de teletrabajo, sin que ello implique afectación alguna de sus derechos, deberes, jornada laboral ni condiciones de empleo.
