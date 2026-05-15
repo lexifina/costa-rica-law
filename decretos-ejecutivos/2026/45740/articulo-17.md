@@ -1,0 +1,1 @@
+Artículo 17. Devolución del Impuesto. En aquellos supuestos en que no se perfeccione el hecho generador del impuesto por el no ingreso al país por parte del pasajero, el reembolso de éste deberá gestionarse por el pasajero o por la persona pagadora del impuesto ante la línea aérea correspondiente de forma directa.

@@ -1,0 +1,1 @@
+Artículo 11. Plazo para presentar las declaraciones y cancelar el impuesto. La presentación de las declaraciones y el pago del impuesto respectivo, deberá llevarse a cabo de manera simultánea dentro de los primeros quince días naturales del mes siguiente a aquel en que se produce el ingreso al país de la persona usuaria del pasaje internacional.
