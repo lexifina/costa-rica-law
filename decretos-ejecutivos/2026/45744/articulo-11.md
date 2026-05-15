@@ -1,0 +1,2 @@
+Artículo 11. Autorización de medios electrónicos.
+La persona física autorizada o representante legal podrá presentar la documentación en forma electrónica acompañada con una certificación notarial con firma digital, en cumplimiento con lo establecido en la Ley N°8454 Ley de certificaciones, firmas digitales y documentos electrónicos del 30 de agosto del 2005, articulado 1, 2 incisos a), b), c) y d), 3, 4, 5 inciso c) y d); Ley N°7764, Código Notarial del 17 de abril de 1998 artículos 30, 31, 80, 108, 110, 120 y 121.

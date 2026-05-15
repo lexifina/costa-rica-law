@@ -1,0 +1,2 @@
+Artículo 44.- Derogatoria.
+Deróguense el Decreto Ejecutivo N°37023-MINAET "Reglamento de Uso Público del Parque Nacional Isla del Coco y Derogatoria del Decreto Ejecutivo N° 29537-MINAE del 20 de abril del 2001 denominado "Reglamento para Uso Público del Parque Nacional Isla del Coco" y del Decreto Ejecutivo N° 30838-MINAE del 21 de noviembre del 2002 denominado "Prohibición para el ingreso y estadía de las embarcaciones y vertido de sustancias o desechos contaminantes dentro de los límites marinos protegidos del Parque Nacional Isla del Coco" del 23 de enero del 2012.

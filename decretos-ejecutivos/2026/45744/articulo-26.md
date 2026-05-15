@@ -1,0 +1,2 @@
+Artículo 26.- Permisos de investigación de patrimonio histórico-arquitectónico y subacuático.
+Estos permisos deberán tramitarse ante la Comisión Arqueológica Nacional, según lo establecido en los artículos 8, 9 y 12, del Decreto Ejecutivo N° 43216-MCJ-MINAE-RREE del 10 de setiembre de 2021, "Reglamento para la gestión, protección y conservación del Patrimonio Cultural Subacuático". El interesado deberá adjuntar a su solicitud de ingreso al PNIC copia del permiso otorgado y presentar el original a los funcionarios del PNIC a su arribo.

@@ -1,0 +1,6 @@
+Artículo 6.- Requisitos para la reserva de fechas para los operadores regulares.
+El ACMC realizará una apertura pública a través de sus plataformas digitales del periodo de recepción de documentación para la reserva de fechas de ingreso, donde se indicará el año calendario a ser reservado, el interesado deberá cumplir con los siguientes requisitos de forma individual para cada embarcación:
+1. Contar con la Declaratoria Turística de Transporte Acuático, otorgada por el Instituto Costarricense de Turismo a la empresa o a la nave acuática de conformidad con lo establecido en los artículos 4, 5 y 6 del Decreto Ejecutivo N° 41370-MEIC-TUR del 19 de julio de 2018, Reglamento de Empresas y Actividades Turísticas.
+2. Solicitud con los siguientes datos: nombre de la embarcación, matrícula, número de identificación asignado por la Organización Marítima Internacional o MMSI, bandera, eslora, manga, actividad inscrita del barco, motivo del viaje, medio de notificación.
+3. Número del documento de identidad del solicitante. Si la persona solicitante es distinta a la persona física o jurídica propietaria de la embarcación, deberá aportar un Poder Especial para realizar el trámite.
+Propuesta de calendario de fechas de cada viaje y cantidad de turistas que se pretende ingresar en cada viaje.

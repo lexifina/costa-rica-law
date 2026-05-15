@@ -1,0 +1,3 @@
+Artículo 23.- Permisos de operación de submarinos.
+La operación de submarinos, mini-submarinos, y ROUV se permitirá con los fines establecidos en el artículo 36 inciso i) del Decreto Ejecutivo N° 38295-MINAE denominado "Tarifas por derechos de ingreso y otros servicios ofrecidos en las Áreas Silvestres Protegidas bajo la administración del Sistema Nacional de Áreas de Conservación y derogatoria del Decreto Ejecutivo N° 34164-MINAE" del 15 de enero del 2014 o el que se encuentre vigente.
+Se deberá solicitar y contar con el permiso de ingreso y operación de submarinos extendido por la Dirección Regional del ACMC.

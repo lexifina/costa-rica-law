@@ -1,0 +1,9 @@
+Artículo 14. Condiciones de las embarcaciones que ingresan al PNIC.
+Toda embarcación que esté autorizada para ingresar al Parque Nacional Isla del Coco deberá:
+1. Reportar su arribo al PNIC, 30 millas antes de la llegada a bahía. Dicho reporte deberá realizarse por medio de la radio, haciendo uso de la frecuencia de canal 16 o 25 que opera en la banda marina VHF, en la HF en la frecuencia 8325.0 SSB o cualquier otro medio disponible.
+2. Antes de cualquier actividad, deberán esperar la visita de los funcionarios del PNIC en un horario de atención de 08:00 a 16:00 horas.
+3. Todo el personal a bordo de la embarcación (tripulantes y pasajeros) deberá estar presente en la charla de bienvenida para visitantes al PNIC, misma que se hará en coordinación con los funcionarios del PNIC. El capitán de la embarcación facilitará la presencia de todas las personas a bordo y los medios audiovisuales disponibles.
+4. Ubicarse en el sitio de fondeo o lugar de anclaje asignado por la administración del parque.
+5. Una vez la embarcación ingresa al PNIC queda prohibida su salida del área protegida hasta su fecha de salida establecida. Salvo autorización de la administración del Parque.
+6. El canal 16 y 25 que operan en la banda marina VHF y HF o la frecuencia 8325.0 SSB, deben estar disponibles para transmitir o atender cualquier mensaje urgente o necesario de la Administración del PNIC a las embarcaciones presentes en la zona, por tanto, deben utilizarse por el tiempo que sea estrictamente necesario.
+7. Se definen las Bahías de Chatham y Wafer como sitios de fondeo a utilizar por las diferentes embarcaciones. La Administración del PNIC, podrá autorizar el fondeo/anclaje, durante el día en Bahía Yglesias, en casos especiales, siempre y cuando medie una solicitud previa con su debida justificación. Para todos los casos, siempre deben retornar en horas de la tarde a las Bahías de Chatham y Wafer.
