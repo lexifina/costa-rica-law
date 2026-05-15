@@ -1,0 +1,1 @@
+Artículo 15. Pago efectuado fuera del plazo. El pago del impuesto efectuado fuera de plazo producirá la obligación por parte del contribuyente de pagar junto con el tributo adeudado, los intereses establecidos en el artículo 57 del Código, sin perjuicio de las sanciones definidas en el artículo 80 bis del citado Código.

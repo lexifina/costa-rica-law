@@ -1,0 +1,1 @@
+Transitorio II. Por el plazo de hasta cuatro años a partir de la entrada en vigencia de este reglamento, continuará vigente la presentación y trámite de solicitudes de exoneración del impuesto por medio del correo electrónico ICTEXONERA_5AYB@ict.go.cr.

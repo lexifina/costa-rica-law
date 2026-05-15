@@ -1,0 +1,21 @@
+ANEXO N° 5
+TRÁMITES Y REQUISITOS DECLARACIÓN JURADA OCASIONAL, DEL IMPUESTO DEL 5% SOBRE EL VALOR DE LOS PASAJES VENDIDOS EN COSTA RICA, PARA VIAJES INTERNACIONALES POR VÍA TERRESTRE SEGÚN ARTÍCULO 46, INCISO A) DE LA LEY ORGÁNICA DEL INSTITUTO COSTARRICENSE DE TURISMO, LEY N° 1917 DEL 30 DE JULIO DE 1955 Y SUS REFORMAS.
+Fundamento jurídico para la obligación a efectuar ante el ICT una declaración jurada por el servicio de transporte terrestre ocasional: Ley N° 1917 del 30 de julio de 1955, Ley Orgánica del Instituto Costarricense de Turismo, y en este Reglamento en el artículo 12. Los artículos 18 y 128 inciso a) iii del Código de Normas y Procedimientos Tributarios establece el deber de cumplir las obligaciones formales que solicite la Administración Tributaria.
+El incumplimiento de la obligación del agente de percepción de efectuar ante el ICT una declaración jurada por el servicio de transporte terrestre ocasional, conlleva a las sanciones dispuestas en el artículo 79 del Título III del Código de Normas y Procedimientos Tributarios, y el artículo 12 del presente reglamento.
+Acceso al formulario por parte de los sujetos pasivos:
+El ICT dispondrá en su página electrónica institucional, en la dirección electrónica www.ict.go.cr, los requisitos para trámite de transporte terrestre ocasional y el procedimiento para completar la declaración jurada del impuesto para las personas físicas o jurídicas que ocasionalmente brinden el servicio de transporte internacional, modalidad excursión.
+Realizar el proceso de declaración a través de la página Web Institucional, en el módulo ICT Contribuyente:
+Se deberá completar en línea en la página Web Institucional la declaración jurada de chárter terrestre, debidamente, firmado, así como toda la documentación requerida, sea firmado de forma manual o preferiblemente con firma digital.
+Información a declarar: La declaración jurada, deberá contener la placa del vehículo que realiza la excursión, nombre del propietario, número de documento de identificación, fechas del viaje, destino, cantidad de pasajeros que viajan, el valor total de la excursión y el del impuesto a pagar.
+El impuesto deberá ser declarado y liquidado al tipo de cambio de venta establecido por el Banco Central, correspondiente al día en que se vende el pasaje internacional o documento de viaje.
+La declaración deberá ser firmada física o digitalmente por el representante legal o cualquier otro autorizado para el trámite.
+Plazos para resolución del trámite: El plazo máximo para resolver el trámite es de 24 horas, contadas a partir de recibida la solicitud , revisada y confirmada que toda la documentación presentada es la correcta, así como que se encuentra al día con las obligaciones establecidas en los requisitos.
+Forma y medios de pago: Según se establece en el artículo 14 del presente reglamento, el impuesto deberá ser cancelado en su totalidad, en moneda de curso legal ante la Tesorería del ICT o cualquier entidad bancaria legalmente autorizada, mediante depósito, transferencia electrónica u otro medio de pago legalmente aceptado.
+Vigencia del trámite: Trámite vigente en forma permanente, una vez aprobado.
+Requisitos:
+Personas físicas o jurídicas que ocasionalmente brinden el servicio de transporte internacional, modalidad excursión.
+Presentar requisitos ante la Administración Tributaria, por los medios habilitados:
+a) Declaración jurada del impuesto DO-03, de acuerdo con lo que establece el artículo 130 del Código de Normas y Procedimientos Tributarios, firmada por el propietario registral del vehículo (Si el propietario es persona física, debe ser firmada por el propietario (a) del vehículo. Si es persona jurídica, debe ser firmada por el representante legal o la persona que el representante autorice para dicho acto).
+b) Tanto el propietario como arrendatario (en caso que exista contrato) deberán estar al día con las verificaciones generales de oficio del Anexo 9 de este reglamento.
+c) Lista de pasajeros (con nombre completo, Nº cédula identidad o Nº pasaporte).
+En estos casos el impuesto debe ser pagado al momento de realizar el trámite ante el ICT, el Departamento de Administración Tributaria emitirá un oficio haciendo constar que la excursión tipo chárter ha cumplido con los requisitos y pagado el impuesto del 5% sobre pasajes internacionales.
