@@ -1,0 +1,1 @@
+Artículo 114.- En caso de posibles eventualidades como, por ejemplo, pérdida de energía eléctrica oavería del equipo, el establecimiento debe disponer de un plan de contingencia, a fin de garantizarla temperatura de los alimentos o equipos.

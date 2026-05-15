@@ -1,0 +1,1 @@
+Artículo 81.- Los alimentos que vayan a ser congelados deben estibarse en el congelador de tal forma que permita la circulación del frío entre las cajas, recipientes, bolsas o cualquier otra forma de empaque y sobre las tarimas o estanterías, de forma que garantice una congelación efectiva.

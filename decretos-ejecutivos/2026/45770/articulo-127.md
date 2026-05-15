@@ -1,0 +1,1 @@
+Artículo 127.- Los agujeros, desagües y otros lugares por los que puedan ingresar plagas, deben mantenerse cerrados o protegidos mediante rejillas, redes o cedazos. Cuando se utilicen cortinas de aire y de plástico, estas deben ser efectivas, ambas deben abarcar todo el ancho de la puerta y las cortinas de plástico deben contar con un traslape suficiente entre cada tira.

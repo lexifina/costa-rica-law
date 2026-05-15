@@ -1,0 +1,1 @@
+Artículo 7.- Para vigilar la inocuidad de los alimentos regulados en este reglamento, los establecimientos se someterán a exámenes organolépticos, a pruebas físicas, químicas y microbiológicas realizadas in situ o en laboratorios oficiales o bien laboratorios debidamente autorizados o reconocidos por el SENASA para dicho fin.

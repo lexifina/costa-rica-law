@@ -1,0 +1,1 @@
+Artículo 224.- El desangrado de los animales se debe realizar según se establece en el Capítulo 7.5 del Código Sanitario de los Animales Terrestres de la Organización Mundial de Sanidad Animal (OMSA).

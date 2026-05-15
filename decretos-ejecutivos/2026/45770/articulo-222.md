@@ -1,0 +1,1 @@
+Artículo 222.- El desangrado de los animales se debe realizar inmediatamente posterior a la insensibilización, manteniéndose la pérdida de la conciencia y la sensibilidad hasta la muerte del animal. En animales que no se realice desangrado, posterior a la insensibilización se debe tener especial cuidado de mantener la pérdida de la conciencia y sensibilidad hasta la muerte.

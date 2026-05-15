@@ -1,0 +1,2 @@
+Artículo 216.- Todo equipamiento utilizado para la insensibilización de los animales debe ser mantenido y verificado periódicamente, de manera que su función no se vea comprometida. Para dichos efectos, el establecimiento debe mantener un registro interno del mantenimiento o reparaciones realizadas, el cual podrá ser requerido por el SENASA en cualquier momento.
+En caso de fallas en el equipo de insensibilización utilizado, se deberá disponer de un equipo auxiliar odetener el proceso hasta solucionar el problema.

@@ -1,0 +1,1 @@
+Artículo 12.- Para los aspectos técnicos no contemplados en este Reglamento, se adoptarán las normas y convenios internacionales ratificados por el país, tales como Codex Alimentarius o la Organización Mundial de Sanidad Animal.

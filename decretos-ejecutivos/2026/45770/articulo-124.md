@@ -1,0 +1,4 @@
+Capítulo XIX
+Del programa de control de plagas
+Artículo 124.- De conformidad con lo dispuesto en el punto 6.3 del Decreto N° 37057-COMEX-MEIC-MAG, "Publicación de la Resolución N° 276-2011 (COMIECO-LXI) de fecha 02 de diciembre de 2011 y su Anexo: Reglamento Técnico Centroamericano RTCA 67.06.55:09 Buenas Prácticas de Higiene Para Alimentos No Procesados y Semiprocesados y su Guía de Verificación", los establecimientos deben poseer un programa de control de plagas por escrito, respaldado con registros y en funcionamiento, que incluya medidas de prevención, exclusión, control y eliminación.
+En caso de incumplimiento de este requisito por parte del establecimiento, conllevará por parte del SENASA, a emitir medidas sanitarias de conformidad con lo dispuesto en el artículo 89 de la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal.

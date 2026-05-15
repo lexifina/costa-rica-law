@@ -1,0 +1,1 @@
+Artículo 2.- El presente Reglamento tiene como objetivo establecer las disposiciones generales sobre los requisitos físicos, sanitarios y las prácticas de higiene en productos y subproductos de origen animal, procesados en los establecimientos antes mencionados.

@@ -1,0 +1,1 @@
+Artículo 157.- Durante la manipulación de los alimentos se debe evitar prácticas que puedan contaminar los alimentos, por ejemplo, fumar, vapear, escupir, masticar chicle, comer, beber, estornudar, toser. Además, se debe evitar el uso de joyas, celulares u otros objetos que afecten la inocuidad.

@@ -1,0 +1,1 @@
+Artículo 36.- Las ventanas del establecimiento deben ser fáciles de limpiar, estar construidas de modo que se reduzca al mínimo la acumulación de suciedad, la entrada de agua, que no genere riesgos en caso de ruptura y, cuando sea necesario, deben estar provistas de malla o cedazo contra insectos, que sea fácil de desmontar y limpiar.

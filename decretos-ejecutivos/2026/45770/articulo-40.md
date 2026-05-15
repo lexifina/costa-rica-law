@@ -1,0 +1,1 @@
+Artículo 40.- Las áreas de sacrificio y procesamiento deben tener un flujo unidireccional de operaciones, con accesos separados para el ingreso de animales o materias primas y para la salida de los alimentos. El acceso del personal a las áreas de sacrificio o de proceso, será a través de puertas independientes, distintas de las anteriores.

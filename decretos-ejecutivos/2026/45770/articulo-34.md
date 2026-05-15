@@ -1,0 +1,4 @@
+Artículo 34.- Los techos y estructuras superiores del establecimiento deben cumplir con los siguientes requisitos:
+a)Los techos y estructuras superiores deben estar construidos y acabados de forma que reduzcanal mínimo la acumulación de suciedad y de condensación, así como la formación de mohos, eldesprendimiento de partículas y el ingreso de plagas. Se debe minimizar el goteo de condensacióndesde los accesorios fijos, conductos y tuberías hacia los alimentos, superficies de contacto omaterial de empaque para alimentos.
+b)Cuando se utilicen cielos falsos o rasos, deben ser lisos, sin espacios entre uniones y fáciles delimpiar.
+c)Las áreas de recepción de materia prima y las áreas del despacho del producto terminado debenestar techadas de forma tal que se cubran las áreas de carga y descarga de los alimentos.

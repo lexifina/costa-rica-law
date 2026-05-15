@@ -1,0 +1,1 @@
+Artículo 197.- Las puertas de guillotina en los lugares de tránsito de los animales, incluidos sus bordes inferiores deben estar protegidos para no causarles lesiones en el dorso. Además, deberán contar con mecanismos de seguridad que eviten su caída brusca sobre los animales.

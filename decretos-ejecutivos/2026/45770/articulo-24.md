@@ -1,0 +1,1 @@
+Artículo 24.- El Médico Veterinario Inspector Oficial es el responsable de la emisión, revisión y firma de los certificados sanitarios oficiales, así como de denegar las certificaciones para la exportación, cuando se infrinjan las disposiciones de este reglamento.

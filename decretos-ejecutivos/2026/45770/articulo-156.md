@@ -1,0 +1,1 @@
+Artículo 156.- El personal de transporte que manipule los alimentos debe contar con zapatos cerrados y ropa limpia, y debe cumplir con las buenas prácticas de higiene. No debe presentar enfermedades que puedan transmitirse a través de los alimentos, ni lesiones en piel visiblemente infectadas o expuestas.

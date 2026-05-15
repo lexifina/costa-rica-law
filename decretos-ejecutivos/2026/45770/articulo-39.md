@@ -1,0 +1,1 @@
+Artículo 39.- Se debe contar con un lugar independiente y con instalaciones, para la limpieza, lavado y desinfección de los medios de transporte de animales vivos. Dichos lugares e instalaciones pueden localizarse fuera del establecimiento.

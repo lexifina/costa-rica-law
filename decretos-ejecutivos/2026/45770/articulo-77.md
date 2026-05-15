@@ -1,0 +1,1 @@
+Artículo 77.- El establecimiento debe contar con cámaras refrigeradas, cuya temperatura no debe exceder los 5 grados Celsius, de manera que garantice la temperatura de los alimentos. Los subproductos no deben exceder los cinco grados Celsius (? 5°C) y la carne no debe exceder los siete grados Celsius (? 7°C).

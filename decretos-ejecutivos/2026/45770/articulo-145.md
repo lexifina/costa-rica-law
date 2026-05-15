@@ -1,0 +1,2 @@
+Artículo 145.- El establecimiento debe dotar a los visitantes de indumentaria para el ingreso a las áreas de manipulación de alimentos y asegurarse de que estos sigan las normas de comportamiento y disposiciones que rigen en el establecimiento, con el fin de evitar la contaminación de los alimentos.
+El establecimiento debe garantizar que todo el personal ajeno al proceso cumpla con las prácticas sanitarias para el ingreso y que no constituye una fuente de contaminación ni alteración al producto ni del proceso.

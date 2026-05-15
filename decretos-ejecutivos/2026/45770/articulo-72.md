@@ -1,0 +1,1 @@
+Artículo 72.- En las instalaciones de almacenamiento de los alimentos, el material de empaque y los productos químicos deben utilizarse tarimas que permitan mantenerlos a una distancia que facilite las operaciones de inspección y limpieza, permita la circulación adecuada del aire y evite la contaminación cruzada.

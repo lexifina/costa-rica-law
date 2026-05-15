@@ -1,0 +1,1 @@
+Artículo 204.- El personal responsable del manejo de los animales debe mantenerlos tranquilos, evitando gritos o ruidos que los alteren y nunca deben ser movilizados por medio de golpes, jalones, piquetes o torcedura de la cola.

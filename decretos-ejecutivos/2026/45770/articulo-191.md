@@ -1,0 +1,1 @@
+Artículo 191.- El establecimiento es responsable de contar con las instalaciones necesarias para brindar condiciones adecuadas de manejo relativas a espacio en corrales, sombra y ventilación a los animales que van a ser sacrificados.

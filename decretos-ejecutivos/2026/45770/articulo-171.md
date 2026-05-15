@@ -1,0 +1,1 @@
+Artículo 171.- Cuando los animales presenten signos evidentes de enfermedad, infección generalizada, intoxicación, condición anormal, o que estén moribundos deben ser identificados como condenados, procediendo a su destrucción o aprovechamiento industrial para la elaboración de harina para la alimentación animal, salvo que exista razones sanitarias que lo impidan.

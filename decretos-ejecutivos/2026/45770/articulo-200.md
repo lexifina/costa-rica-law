@@ -1,0 +1,3 @@
+Artículo 200.- Para evitar el estrés debido al calor, los animales expuestos a altas temperaturas, en particular los cerdos, deben ser refrescados a la llegada al establecimiento. Se debe tomar en consideración el riesgo de exposición de los animales a temperaturas muy bajas o a cambios bruscos de temperatura.
+El área donde se mantengan los animales debe estar bien iluminada, de forma que los animales puedan ver claramente sin ser deslumbrados y de manera tal que faciliten una buena inspección ante mortem.
+Aquellos animales susceptibles de lesionarse o de lesionar a otros deben ser estabulados en forma separada.

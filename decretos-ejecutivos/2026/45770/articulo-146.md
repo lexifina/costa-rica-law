@@ -1,0 +1,4 @@
+Capítulo XXII
+Del transporte de animales
+Artículo 146.- Los animales destinados al matadero se deben transportar evitando al máximo los traumatismos o posibles muertes. Los medios de transporte deben contar con Certificado Veterinario de Operación (CVO) y registro actualizado.
+Para la recepción de los animales en el matadero, se requiere presentar al encargado de recibir los animales la Guía Oficial de Movilización debidamente completada. En caso de no presentarse dicho documento de movilización, los animales no podrán ser sacrificados, hasta que la Guía sea entregada, o bien por disposición de la autoridad judicial, cuando se detecte la posible comisión de un delito, según los artículos 6, 9, 13 y 15 la Ley N° 8799, Ley de Control de Ganado Bovino, prevención y sanción de su Robo, Hurto y Receptación.

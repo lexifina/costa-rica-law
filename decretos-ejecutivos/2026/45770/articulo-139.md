@@ -1,0 +1,1 @@
+Artículo 139.- El establecimiento debe de revisar y mantener actualizado el programa de capacitación. Debe realizarse evaluaciones sobre la eficacia del programa y realizar los ajustes correspondientes.

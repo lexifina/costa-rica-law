@@ -1,0 +1,1 @@
+Artículo 135.- Los establecimientos que no cuenten con instalaciones para el tratamiento de desechos sólidos, podrán contratar servicios externos siempre y cuando se garantice la adecuada separación, manejo, almacenamiento y disposición de los mismos.

@@ -1,0 +1,4 @@
+Artículo 33.- Los pisos del establecimiento deben cumplir con los siguientes requisitos:
+a)Los pisos deben ser de material impermeable, sin grietas y lavables, que no tengan efectos tóxicoshacia los alimentos; además, deben estar construidos de manera que faciliten su limpieza ydesinfección.
+b)Los pisos, canaletas y desagües deben estar diseñados y construidos con una pendiente demanera que faciliten el desagüe, la limpieza, y prevenga la acumulación de líquidos, así como estardiseñados para soportar descargas máximas y estar protegidos con rejillas que permitan el flujo delíquidos, pero no el ingreso de plagas.
+c)Según la actividad desarrollada en el establecimiento, los pisos deben construirse con materialesresistentes al deterioro por contacto con sustancias químicas, peso de equipo y maquinaria, tránsitode personal, carros de transporte y montacargas.

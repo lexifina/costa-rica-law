@@ -1,0 +1,1 @@
+Artículo 144.- El establecimiento debe tomar las medidas adecuadas para evitar la contaminación de los alimentos por las actividades de mantenimiento, como el aislamiento de áreas, la protección oretiro de alimentos y asegurarse que el personal de mantenimiento cumpla las reglas de higieneestablecidas.

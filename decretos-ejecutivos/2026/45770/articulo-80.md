@@ -1,0 +1,1 @@
+Artículo 80.- Los establecimientos deben designar un área refrigerada específica para el almacenamiento de las vísceras rojas y verdes, recortes u otras partes que cumplan con los principios de inocuidad y que se encuentre respaldado en el Plan APPCC.

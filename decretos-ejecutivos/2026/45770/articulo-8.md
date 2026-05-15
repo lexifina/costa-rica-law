@@ -1,0 +1,1 @@
+Artículo 8.- Los costos de los muestreos y análisis de laboratorio oficiales deben ser cubiertos por los establecimientos, salvo los casos en que expresamente el SENASA haya exonerado el cobro de tarifas de análisis realizados en el LANASEVE.

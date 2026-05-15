@@ -1,0 +1,1 @@
+Artículo 133.- Los recipientes de residuos deben ser lisos, de material resistente, no absorbente y con tapa para evitar que atraigan plagas, de fácil limpieza y desinfección, estar debidamente identificados y mantenerse en buen estado para evitar derrames.

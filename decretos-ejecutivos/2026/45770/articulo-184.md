@@ -1,0 +1,2 @@
+Artículo 184.- Las canales, los cortes, la cabeza y las vísceras inspeccionadas y aprobadas de las especies bovina, bubalina, porcina, caprina y ovina deben ser identificadas mediante una marca circular con la leyenda "INSP Y APROB" en mayúscula en la circunferencia, en el centro se debe identificar el número del establecimiento y se debe colocar la abreviatura C.R., esta información debe ser legible.
+Cuando se trate de carne de equino, aplicará lo anterior y se debe agregar la leyenda "Carne de equino".

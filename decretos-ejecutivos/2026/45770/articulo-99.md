@@ -1,0 +1,1 @@
+Artículo 99.- El establecimiento debe mantener registros apropiados de la elaboración, producción y distribución de cada lote, que permita la verificación eficiente de la ejecución de los manuales o procedimientos.

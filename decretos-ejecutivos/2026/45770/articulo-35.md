@@ -1,0 +1,1 @@
+Artículo 35.- Los pasillos o espacios de trabajo deben ser lo suficientemente amplios para facilitar la limpieza y el desplazamiento o tránsito de personal y equipos. Para evitar la contaminación cruzada los pasillos o espacios de trabajo deben estar claramente demarcados para identificar las rutas de circulación de alimentos y personal.

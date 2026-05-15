@@ -1,0 +1,5 @@
+Capítulo XVII
+Programa Mantenimiento
+Artículo 112.- De conformidad con lo dispuesto en el punto 6.1 del Decreto N° 37057-COMEX-MEIC-MAG, "Publicación de la Resolución N° 276-2011 (COMIECO-LXI) de fecha 02 de diciembre de 2011 y su Anexo: Reglamento Técnico Centroamericano RTCA 67.06.55:09 Buenas Prácticas de Higiene Para Alimentos No Procesados y Semiprocesados y su Guía de Verificación", los establecimientos deben poseer un programa escrito e implementado de mantenimiento preventivo de instalaciones, equipos y utensilios para asegurar su funcionamiento, incluyendo el mantenimiento de las superficies de contacto.
+Este programa debe incluir las especificaciones de los equipos, los registros de las reparaciones y el estado de funcionamiento. Estos registros deben estar actualizados y a disposición para el control oficial.
+En caso de incumplimiento de este requisito por parte del establecimiento, conllevará por parte del SENASA, a emitir medidas sanitarias de conformidad con lo dispuesto en el artículo 89 de la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal.

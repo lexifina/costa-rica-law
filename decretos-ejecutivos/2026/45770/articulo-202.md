@@ -1,0 +1,1 @@
+Artículo 202.- Queda prohibido patear o golpear a los animales con tubos, palos, varas con puntas de acero, látigos, correas, instrumentos punzocortantes o cualquier objeto que los lastime. No se obligará a los animales destinados a sacrificio a pasar por encima de otros animales.

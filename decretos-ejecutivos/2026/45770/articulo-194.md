@@ -1,0 +1,2 @@
+Artículo 194.- Las personas encargadas del manejo y sacrificio de animales deben demostrar que se encuentran capacitados en aspectos de manejo y bienestar animal, cuentan con experiencia o que es profesional o técnico con experiencia en el área agropecuaria, para llevar a cabo estos cometidos de forma eficaz, evitando el dolor y sufrimiento innecesario a los animales.
+El desembarque y arreo de los animales debe hacerlo el personal capacitado para ese fin.

@@ -1,0 +1,1 @@
+Artículo 154.- Cuando los alimentos se destinen a exportación, durante el transporte deben ir acompañados por el Resumen de Embarque de Exportación y/o por un Certificado Sanitario de Exportación cuando éste sea requerido en el mercado meta, así como cualquier otro documento que las autoridades sanitarias de los países destino requieran.

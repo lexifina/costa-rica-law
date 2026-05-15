@@ -1,0 +1,1 @@
+Artículo 64.- Las tuberías de agua deben estar identificadas y ubicadas de manera que no sean fuente de contaminación de los alimentos, las superficies de contacto y material de empaque. Se debe contar con mecanismos y dispositivos que impidan el reflujo o conexión cruzada del agua potable con el agua no potable o de descarga de los residuos líquidos.

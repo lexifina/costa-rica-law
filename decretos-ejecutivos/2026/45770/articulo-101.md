@@ -1,0 +1,1 @@
+Artículo 101.- Los establecimientos deben fijar una única fecha de vencimiento, la cual estará asociada a las instrucciones de conservación (refrigerado o congelado) y a la naturaleza mediante la cual se decida comercializar el producto.

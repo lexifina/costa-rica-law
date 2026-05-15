@@ -1,0 +1,1 @@
+Artículo 100.- Cada envase con alimentos y las canales de animales deben estar marcados de forma legible y permanente, de manera que identifiquen el establecimiento, lote, fecha de producción, en el caso de las canales se debe incluir la fecha de sacrificio del animal, y fecha de expiración. Esta información nunca deberá inducir a engaño al consumidor.

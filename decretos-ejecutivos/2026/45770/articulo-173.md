@@ -1,0 +1,1 @@
+Artículo 173.- Los bovinos y otros rumiantes que lleguen a un establecimiento postrados, en condición no ambulatoria, o que en la inspección ante mortem presenten signos clínicos de enfermedades nerviosas, serán considerados como animales condenados y serán declarados como Materiales Específicos de Riesgo (MER).

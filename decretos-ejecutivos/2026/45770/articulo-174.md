@@ -1,0 +1,1 @@
+Artículo 174.- Se prohíbe la utilización de partes de rumiantes procedentes de animales postrados, en condición no ambulatorio, o que en las inspecciones ante mortem presenten signos clínicos de enfermedades nerviosas, en la elaboración de harinas de carne y hueso.

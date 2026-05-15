@@ -1,0 +1,1 @@
+Artículo 164.- La inspección ante mortem debe efectuarse a la totalidad de los animales presentados al sacrificio. Si los animales permanecen más de 24 horas en el establecimiento, se debe repetir la inspección ante mortem.

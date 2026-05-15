@@ -1,0 +1,1 @@
+Artículo 227.- Los instrumentos, material, fármacos y equipo para la matanza de emergencia deben estar siempre disponibles para su uso con mantenimiento preventivo constante, en el caso de no contar con éstos, podrán utilizarse armas de fuego para provocar muerte inmediata, según el animal de que se trate y aplicando el disparo en la cabeza asegurando que dañe el cerebro.

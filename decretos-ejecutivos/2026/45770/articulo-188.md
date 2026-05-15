@@ -1,0 +1,1 @@
+Artículo 188.- Las canales, partes de canales, cabeza, órganos, vísceras, que como resultado de la inspección post mortem hayan sido declarados no aptos para el consumo humano, deben identificarse como decomisado, los que deben ser retirados de la sala de sacrificio, desnaturalizados odestruidos de modo que queden excluidos de la cadena de alimentación humana.

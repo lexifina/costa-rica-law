@@ -1,0 +1,1 @@
+Artículo 126.- El establecimiento debe implementar medidas para impedir el acceso de plagas, mantener limpias y en buenas condiciones las zonas interiores y exteriores de las instalaciones. Para evitar las infestaciones por plagas se debe eliminar lugares de reproducción y fuentes de alimento.

@@ -1,0 +1,1 @@
+Artículo 15.- Los establecimientos dedicados al sacrificio de equinos serán autorizados exclusivamente para esa especie, no pudiendo en ningún caso tener líneas de sacrificio para otros animales. Dichas áreas, deben estar separadas físicamente de aquellas en las que se sacrifiquen otras especies animales y donde se manipulen sus carnes y subproductos.

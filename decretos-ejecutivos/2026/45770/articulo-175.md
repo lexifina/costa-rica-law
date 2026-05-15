@@ -1,0 +1,1 @@
+Artículo 175.- El establecimiento está obligado a adoptar medidas para evitar el maltrato a los animales e implementar acciones para la protección y el bienestar animal, desde la llegada al establecimiento hasta el momento del sacrificio.

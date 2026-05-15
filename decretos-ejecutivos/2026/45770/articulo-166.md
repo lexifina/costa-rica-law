@@ -1,0 +1,2 @@
+Artículo 166.- Los animales que lleguen al matadero deberán haberse sometido a un periodo de ayuno. El tiempo de reposo posterior a la descarga de los animales en los corrales deberá ser mínimo, sujeto al criterio técnico del Médico Veterinario Inspector Oficial y no superar las 24 horas.
+Si los animales no van a ser sacrificados en ese plazo, se pondrán a su disposición los alimentos necesarios a su llegada y, posteriormente, se les alimentará en cantidad e intervalos apropiados según las especies.

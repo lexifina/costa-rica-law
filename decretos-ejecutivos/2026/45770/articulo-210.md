@@ -1,0 +1,1 @@
+Artículo 210.- Los animales con evidente compromiso del estado general que afecten su bienestar deben ser apartados para la posterior inspección por parte del Médico Veterinario Inspector Oficial del establecimiento.

@@ -1,0 +1,1 @@
+Artículo 18.- Los establecimientos deben establecer y aplicar procedimientos documentados para el seguimiento y evaluación de sus proveedores. Deberán, además, comunicar al SENASA toda no conformidad o incumplimiento detectado en los animales destinados a sacrificio que tenga incidencia en la sanidad animal, el bienestar animal, la inocuidad alimentaria o la trazabilidad.

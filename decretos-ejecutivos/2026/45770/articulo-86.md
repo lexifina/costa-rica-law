@@ -1,0 +1,1 @@
+Artículo 86.- El establecimiento debe contar con las condiciones necesarias para garantizar la retención, custodia o inspección de las canales o alimentos. Éstas deben ser de tal número y localización que puedan satisfacer las necesidades que la inspección requiera.

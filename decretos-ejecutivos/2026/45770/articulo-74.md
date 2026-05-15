@@ -1,0 +1,1 @@
+Artículo 74.- En las áreas de almacenamiento se permite el uso de tarimas de madera, siempre y cuando no existan condiciones que favorezcan que dichas tarimas se puedan humedecer, se deben mantener de manera que no comprometan la inocuidad de los alimentos y la integridad de los alimentos y materiales almacenados.

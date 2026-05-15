@@ -1,0 +1,1 @@
+Artículo 113.- El establecimiento debe asegurar que las tareas de mantenimiento se realicen de manera que se evite la contaminación cruzada de los alimentos, materias primas y/o materiales de empaque.

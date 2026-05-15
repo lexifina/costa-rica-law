@@ -1,0 +1,1 @@
+Artículo 66.- El agua que no cumpla con los criterios de potabilidad, no debe ser utilizada en áreas donde se procesen alimentos o en actividades que puedan propiciar la adulteración de los alimentos ocrear condiciones insalubres en las áreas.

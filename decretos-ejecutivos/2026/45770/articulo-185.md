@@ -1,0 +1,1 @@
+Artículo 185.- Para las especies animales distintas de bovinos, bubalinos, porcinos, ovinos, caprinos y equinos, comprendidas dentro del ámbito del presente Reglamento, el SENASA determinará, mediante resolución que deberá ser publicada en el Diario Oficial La Gaceta, la forma de identificación oficial de las canales, cortes y vísceras que hayan sido inspeccionados y aprobados.

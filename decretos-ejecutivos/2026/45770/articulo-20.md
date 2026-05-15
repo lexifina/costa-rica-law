@@ -1,0 +1,1 @@
+Artículo 20.- Queda expresamente prohibido eliminar o la ruptura de dispositivos oficiales (ejemplo: marchamos, cintas) sin la presencia o autorización por escrito del Médico Veterinario Inspector Oficial odel inspector de inocuidad oficial.

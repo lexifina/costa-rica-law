@@ -1,0 +1,1 @@
+Artículo 121.- Los productos químicos utilizados para la limpieza y desinfección deben contar con registro para uso en la industria alimentaria. No deben utilizarse productos para la limpieza y desinfección aromatizados en áreas de proceso, almacenamiento y distribución.

@@ -1,0 +1,1 @@
+Artículo 14.- Los establecimientos deben contar con un sistema de tratamiento de aguas residuales, aprobado por el Ministerio de Salud. Asimismo, deberán contar con un Programa de Manejo Integral de Residuos desarrollado e implementado, y cuando proceda, cumplir con las regulaciones sobre emisión de contaminantes atmosféricos.

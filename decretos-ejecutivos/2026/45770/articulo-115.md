@@ -1,0 +1,4 @@
+Capítulo XVIII
+Programa de Limpieza y Desinfección
+Artículo 115.- De conformidad con lo dispuesto en el punto 6.2 del Decreto N° 37057-COMEX-MEIC-MAG, "Publicación de la Resolución N° 276-2011 (COMIECO-LXI) de fecha 02 de diciembre de 2011 y su Anexo: Reglamento Técnico Centroamericano RTCA 67.06.55:09 Buenas Prácticas de Higiene Para Alimentos No Procesados y Semiprocesados y su Guía de Verificación", los establecimientos deben poseer un programa por escrito de limpieza y desinfección respaldado con registros y en funcionamiento, que asegure que las instalaciones, los equipos y los utensilios se mantengan debidamente limpios, y desinfectados.
+En caso de incumplimiento de este requisito por parte del establecimiento, conllevará por parte del SENASA, a emitir medidas sanitarias de conformidad con lo dispuesto en el artículo 89 de la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal.

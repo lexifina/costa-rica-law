@@ -1,0 +1,1 @@
+Artículo 6.- Ningún establecimiento puede exceder la capacidad de sus instalaciones y equipos. El establecimiento debe comunicar por escrito al SENASA cualquier modificación o ampliación de sus instalaciones que afecte los procesos y/o flujos productivos, lo cual debe realizarse de previo a que haga efectiva esa modificación o ampliación.

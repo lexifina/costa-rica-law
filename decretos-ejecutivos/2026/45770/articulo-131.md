@@ -1,0 +1,5 @@
+Artículo 131.-. Los productos químicos utilizados para el control de plagas, dentro y fuera del establecimiento, deben estar registrados y, además, deben de cumplir los siguientes requisitos:
+a)Deben manipularse y utilizarse de acuerdo con las instrucciones del fabricante y lasespecificaciones establecidas en la etiqueta.
+b)La preparación de diluciones y mezclas de productos químicos o biológicos para el control deplagas debe ser realizada en un área específica, separada de las áreas de proceso yalmacenamiento de alimentos y mantenerse bajo control.
+c)Deben ser almacenados de forma segura en lugares específicos, rotulados, ventilados,separados de los alimentos y de los aditivos alimentarios, materiales de empaque, yproductos de limpieza y desinfección, en recipientes claramente identificados con su etiquetaoriginal, a fin de evitar el riesgo de contaminación de los alimentos, en concordancia con lasnormativas nacionales. Deben mantenerse bajo un sistema de seguridad y accesorestringido.
+d)Los envases para alimentos no deben ser utilizados para contener productos químicos parael control de plagas.

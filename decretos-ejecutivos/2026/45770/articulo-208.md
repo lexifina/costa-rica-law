@@ -1,0 +1,1 @@
+Artículo 208.- El tiempo de espera de los animales en los corrales debe ser mínimo acorde con la especie. En aquellos casos que superen las 24 horas, los animales deben tener libre acceso a agua limpia y fresca para beber y ser alimentados de acuerdo a su especie.

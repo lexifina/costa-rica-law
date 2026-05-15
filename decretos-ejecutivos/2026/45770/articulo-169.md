@@ -1,0 +1,1 @@
+Artículo 169.- Si durante la inspección ante mortem se observan en los animales, signos o síntomas de enfermedades, intoxicaciones, tratamientos u otras anormalidades, estos son considerados sospechosos e identificados como tales, y deben ser enviados al corral de aislamiento para efectuarles un examen clínico minucioso para emitir un dictamen.

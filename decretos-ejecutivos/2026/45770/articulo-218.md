@@ -1,0 +1,1 @@
+Artículo 218.- La correcta insensibilización se debe verificar mediante la respuesta a reflejos u otros indicadores, según la especie y categoría animal, así como del método de insensibilización utilizado, lo cual debe quedar registrado y a disposición del SENASA cuando éste lo requiera.

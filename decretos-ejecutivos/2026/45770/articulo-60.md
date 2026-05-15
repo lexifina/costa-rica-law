@@ -1,0 +1,2 @@
+Artículo 60.- Los establecimientos deben contar con áreas designadas y acondicionadas para que el personal mantenga y consuma sus alimentos.
+Así mismo, se debe contar con áreas de lavandería para la vestimenta del personal. De no contar con área de lavandería, se debe tener un área para el almacenamiento de la ropa protectora y el establecimiento mediante procedimientos internos debe garantizar que la indumentaria se encuentre limpia.

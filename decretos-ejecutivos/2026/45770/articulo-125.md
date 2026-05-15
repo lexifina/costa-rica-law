@@ -1,0 +1,1 @@
+Artículo 125.- Cuando el programa de control de plagas es ejecutado por terceros, el establecimiento se asegurará de controlar y supervisar las actividades para verificar el cumplimiento y la eficacia del programa y, cuando corresponda, debe exigir los ajustes necesarios.

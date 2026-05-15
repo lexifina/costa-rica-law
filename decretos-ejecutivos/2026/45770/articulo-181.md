@@ -1,0 +1,2 @@
+Artículo 181.- El personal de inspección debe garantizar que se realice la inspección post mortem de acuerdo a los criterios técnicos, científicos y profesionales, así mismo deberá atender y cumplir de manera eficiente y oportuna los procedimientos, órdenes, recomendaciones, directrices y lineamientos técnicos sanitarios establecidos por la Dependencia Técnica Responsable del SENASA según corresponda.
+Los establecimientos deberán brindar las facilidades y condiciones para garantizar que la inspección post mortem se realice a todos los animales.

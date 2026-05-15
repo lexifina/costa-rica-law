@@ -1,0 +1,1 @@
+Artículo 62.- Los establecimientos deben contar con agua caliente para los procesos de limpieza y desinfección, la temperatura del agua caliente para la esterilización de equipos y utensilios (cuchillos, chairas, ganchos u otros), debe ser igual o mayor a ochenta y dos grados Celsius (82°C).

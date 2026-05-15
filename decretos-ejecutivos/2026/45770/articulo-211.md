@@ -1,0 +1,1 @@
+Artículo 211.- Los animales sólo deben ser trasladados desde los corrales de espera al lugar de aturdimiento y sacrificio cuando este proceso vaya a ser realizado de inmediato, de lo contrario se deben mantener en los corrales de espera.

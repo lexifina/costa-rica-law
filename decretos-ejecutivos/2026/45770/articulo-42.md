@@ -1,0 +1,1 @@
+Artículo 42.- Los establecimientos que procesan subproductos deben contar con áreas para el procesamiento de subproductos aptos para consumo humano. El traslado de los subproductos aptos para el consumo humano, desde el área de sacrifico hacia las salas de proceso, debe ser de tal forma que eviten cualquier riesgo de contaminación.

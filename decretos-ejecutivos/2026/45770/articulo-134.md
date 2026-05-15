@@ -1,0 +1,1 @@
+Artículo 134.- El área de almacenamiento de residuos debe estar aislada y separada de las áreas de procesamiento y almacenamiento de alimentos, bajo techo o debidamente cubierta, el área debe estar limpia y contar con piso lavable que facilite la recolección de lixiviados.

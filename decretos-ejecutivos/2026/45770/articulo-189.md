@@ -1,0 +1,1 @@
+Artículo 189.- En caso de utilizarse, sellos que lleven el distintivo de la inspección deben mantenerse limpios y desinfectados. Deben guardarse bajo el control del Médico Veterinario Inspector Oficial o del Inspector de Inocuidad Oficial y utilizarse únicamente bajo supervisión de éstos.

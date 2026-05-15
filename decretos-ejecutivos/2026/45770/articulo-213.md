@@ -1,0 +1,1 @@
+Artículo 213.- Los animales se sujetarán de acuerdo con las recomendaciones entregadas en el artículo 7.5.15 del Código Sanitario de los Animales Terrestres de la Organización Mundial de Sanidad Animal (OMSA). Si no existe información disponible de métodos de manipulación y sujeción en las normas de la OMSA señaladas, el método a utilizar debe evitar el dolor innecesario.

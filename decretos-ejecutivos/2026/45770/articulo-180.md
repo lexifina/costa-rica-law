@@ -1,0 +1,1 @@
+Artículo 180.- Queda prohibido retirar de las áreas de inspección de un matadero alguna parte de la canal o las vísceras, mientras el personal de inspección no haya finalizado la inspección y se determine el dictamen final.

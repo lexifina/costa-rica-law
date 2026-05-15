@@ -1,0 +1,1 @@
+Artículo 79.- Las cámaras de refrigeración y congelación deben contar con dispositivos para evitar que los alimentos entren en contacto con el piso y almacenarse de tal manera que se deje espacio para la circulación de aire frío a lo largo de los techos, paredes y del piso.

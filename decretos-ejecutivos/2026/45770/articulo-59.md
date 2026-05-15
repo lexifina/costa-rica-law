@@ -1,0 +1,1 @@
+Artículo 59.- Las instalaciones eléctricas deben ser empotradas o exteriores, en este último caso deben estar totalmente recubiertas o adosadas a paredes y techos, no permitiéndose cables colgantes sobre las zonas de manipulación, procesamiento y almacenamiento de alimentos.

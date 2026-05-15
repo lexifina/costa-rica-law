@@ -1,0 +1,1 @@
+Artículo 129.- Sólo deben emplearse productos químicos para el control de plagas cuando no sea posible controlarlas eficazmente con otras medidas sanitarias. Antes de aplicar los productos químicos se debe tener cuidado de proteger todos los alimentos, material de empaque, equipos y utensilios para evitar la contaminación.

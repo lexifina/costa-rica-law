@@ -1,0 +1,1 @@
+Artículo 109.- El establecimiento debe mantener bajo custodia los alimentos retirados hasta que SENASA autorice y supervise su disposición final. Se debe mantener evidencia documentada de las acciones tomadas.

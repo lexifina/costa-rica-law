@@ -1,0 +1,1 @@
+Artículo 168.- Los animales deben inspeccionarse de manera que el Médico Veterinario Inspector Oficial pueda reconocer las desviaciones con respecto a la condición normal, ya sea en el porte, conducta u otros signos clínicos capaces de indicar una enfermedad, condición o defecto que exijan una manipulación especial o un examen más detenido.

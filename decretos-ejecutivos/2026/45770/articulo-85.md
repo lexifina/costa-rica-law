@@ -1,0 +1,1 @@
+Artículo 85.- Los establecimientos deben estar diseñados y equipados de tal forma que las áreas de inspección y la inspección misma no se vean obstaculizadas por el tránsito de personal o equipo. Deben contar con lavamanos y esterilizadores, además de estar iluminados.

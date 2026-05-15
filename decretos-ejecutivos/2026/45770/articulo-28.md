@@ -1,0 +1,1 @@
+Artículo 28.- Los establecimientos contemplados en este capítulo podrán recibir alimentos de establecimientos no aprobados para exportar, únicamente con el fin de comercialización en el territorio nacional. Todos los establecimientos regulados en este Reglamento, deberán garantizar la rastreabilidad de los alimentos bajo su tutela.

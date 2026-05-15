@@ -1,0 +1,1 @@
+Artículo 138.- El personal involucrado en los procesos de supervisión debe tener conocimientos suficientes sobre los principios y prácticas de higiene de los alimentos para poder evaluar los posibles riesgos, adoptar medidas preventivas y correctivas apropiadas, y asegurar que se lleven a cabo una vigilancia y una supervisión eficaz.

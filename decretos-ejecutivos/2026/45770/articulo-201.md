@@ -1,0 +1,1 @@
+Artículo 201.- El desplazamiento de los animales hacia o desde los corrales de espera se debe realizar con calma y sin hostigamiento, respetando el ritmo natural de los animales y evitando manejos que puedan lesionarlos.

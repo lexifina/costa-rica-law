@@ -1,0 +1,4 @@
+Capítulo V
+De los establecimientos autorizados para exportar
+Artículo 22.- Los establecimientos autorizados para la exportación, estarán bajo el control, la supervisión y aprobación de la dependencia encargada de la inocuidad Dirección de Inocuidad de Alimentos del Servicio Nacional de Salud Animal. Dichos establecimientos deben cumplir con lo establecido en el presente reglamento y con los requisitos solicitados por las autoridades sanitarias de los países donde se desea exportar, para asegurar el cumplimiento de los principios de equivalencia.
+En caso de requerirse un Médico Veterinario Inspector Oficial o inspector de inocuidad oficial por requerimiento de la autoridad competente de un socio comercial debe realizarse a través de un ente contratante cumpliéndose con lo establecido en el artículo 25 del Decreto Ejecutivo Nº 44393-MAG, "Regulación de la oficialización de personas y ensayos de laboratorio".

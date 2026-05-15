@@ -1,0 +1,1 @@
+Artículo 70.- El almacenamiento de los alimentos (incluyendo materias primas), material de empaque y los productos químicos utilizados en el proceso, la limpieza y desinfección y el control de plagas deben mantenerse en áreas separadas y debidamente identificadas.

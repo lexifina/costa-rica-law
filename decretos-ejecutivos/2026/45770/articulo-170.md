@@ -1,0 +1,1 @@
+Artículo 170.- Los animales identificados como sospechosos son excluidos de la matanza normal y se deben sacrificar al final del proceso, previa autorización del Médico Veterinario Inspector Oficial. Se debe llevar a cabo una detallada inspección post mortem, después de la cual, se emitirá un dictamen final.

@@ -1,0 +1,1 @@
+Artículo 159.- El personal encargado del transporte debe brindar al SENASA cualquier información sobre los alimentos que transporte, aportando los documentos que demuestren la rastreabilidad de los alimentos. Además, debe facilitar la inspección y la recolección de muestras, en caso de ser necesario. Capítulo XXIV De la inspección ante mortem

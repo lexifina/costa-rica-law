@@ -1,0 +1,2 @@
+Artículo 26.- Los establecimientos deben garantizar que el producto a exportar cumple con la legislación nacional y con lo establecido por la autoridad sanitaria competente del país donde se desea exportar, lo cual podrá ser verificado por un Médico Veterinario Inspector Oficial o un Inspector de Inocuidad Oficial.
+El SENASA realizará los controles necesarios sobre el etiquetado y los materiales de empaque que utilicen los establecimientos para cumplir con los requisitos solicitados por las autoridades sanitarias de los países donde se desea exportar.

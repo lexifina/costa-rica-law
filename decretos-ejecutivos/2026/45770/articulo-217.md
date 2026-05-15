@@ -1,0 +1,1 @@
+Artículo 217.- El equipo utilizado para la insensibilización con método eléctrico deberá alcanzar los niveles mínimos de corrientes señalados en el Capítulo 7.5 del Código Sanitario de los Animales Terrestres de la Organización Mundial de Sanidad Animal (OMSA).

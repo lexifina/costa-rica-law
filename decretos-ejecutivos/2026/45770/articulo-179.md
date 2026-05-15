@@ -1,0 +1,1 @@
+Artículo 179.- Hasta que haya concluido la inspección post mortem y se emita un dictamen final, el establecimiento debe garantizar la identificación o vinculación completa del animal (incluida la cabeza, vísceras, canal, o partes). La numeración asignada a las canales debe ser consecutiva.

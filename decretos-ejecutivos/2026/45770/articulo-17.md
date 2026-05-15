@@ -1,0 +1,1 @@
+Artículo 17.- Los establecimientos que sacrifiquen distintas especies, deben garantizar la separación de los procesos en el tiempo, siempre que las instalaciones del establecimiento permitan llevar a cabo el procesamiento.
