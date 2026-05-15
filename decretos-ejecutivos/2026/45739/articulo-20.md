@@ -1,0 +1,5 @@
+Artículo 20. Aplicación y declaración del impuesto sobre boletos revisados.
+Al emitir un boleto aéreo en contra de otro o de la porción de un boleto que cuyo origen de ruta sea Costa Rica, que deriva en la revisión del boleto, la base imponible del nuevo boleto está compuesta por la nueva tarifa aérea.
+Si entre la tarifa del boleto original y el nuevo boleto surge una diferencia de más, se debe cobrar el impuesto correspondiente sobre esta diferencia, consignar en el nuevo boleto aéreo y así declararlo y cancelarlo.
+Si entre la tarifa del boleto original y el nuevo boleto resulta una diferencia a favor del pasajero en el impuesto pagado y la aerolínea reembolsa la porción de la tarifa aérea e impuesto al pasajero, aplica lo dispuesto en el artículo 19 de este reglamento según corresponda, mediante acreditación en la declaración jurada del impuesto.
+En todos los casos anteriores, sea que resulte o no diferencias producto de la revisión de un boleto, deberán anotarse los cambios que haya tenido el boleto original, en la declaración del impuesto.

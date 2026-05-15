@@ -1,0 +1,1 @@
+Artículo 32. Anexos. Los procedimientos, requisitos, plazos de resolución y de cumplimiento de los trámites y obligaciones establecidos en este reglamento, se definen en sus anexos numerados del 1 al 8, que para todo efecto son parte integral de esta regulación.

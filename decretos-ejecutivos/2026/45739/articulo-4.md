@@ -1,0 +1,1 @@
+Artículo 4. Hecho generador. La obligación de pagar el impuesto, nace en el momento de la venta del boleto, tiquete o pasaje internacional, definido en el artículo 2 inciso c) del presente reglamento.
