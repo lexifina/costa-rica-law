@@ -1,0 +1,1 @@
+ARTICULO 144.- El procedimiento disciplinario se verificará con celeridad y eficiencia, con respeto del ordenamiento jurídico y de los derechos de las personas funcionarias de Incop y conforme a una sana y correcta administración. La persona funcionaria de Incop que por dolo o culpa grave ocasione cualquier retardo injustificado incurrirá en responsabilidad disciplinaria.

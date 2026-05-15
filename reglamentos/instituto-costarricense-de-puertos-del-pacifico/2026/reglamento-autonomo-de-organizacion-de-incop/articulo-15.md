@@ -1,0 +1,1 @@
+ARTICULO 15.- En caso de traslados y ascensos regirá un período de prueba de tres meses, dentro del cual la jefatura inmediata evaluará el desempeño; si este no fuere satisfactorio, el Incop podrá ordenar que la persona funcionaria de Incop vuelva a su anterior ocupación; con el mismo salario que tenía antes del ascenso o el traslado.

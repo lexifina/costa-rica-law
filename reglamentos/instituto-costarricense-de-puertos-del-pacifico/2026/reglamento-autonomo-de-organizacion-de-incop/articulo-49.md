@@ -1,0 +1,5 @@
+ARTICULO 49.- Aquellos funcionarios que luego de haber sido analizado su caso obtengan una calificación inferior a "muy bueno" en un período, no podrán ser considerados para ascensos, ni se les otorgará ninguna clase de permisos de naturaleza facultativa, restricción sujeta a la evaluación del desempeño del siguiente año.
+Los funcionarios calificados de Excelente" tendrán preferencia para futuros ascensos.
+El resultado de la evaluación del desempeño será el único parámetro para el otorgamiento del incentivo por anualidad a cada funcionario, la cual será un monto nominal fijo para cada escala salarial, el cual permanecerá invariable.
+Para la aplicación del incentivo por anualidad, se concederá únicamente a los servidores que hayan obtenido una calificación mínima de "Muy Bueno" o su equivalente numérico, según la escala definida, en la evaluación del desempeño que se efectuará anualmente a los funcionarios de la Institución.
+La Evaluación del Desempeño estará integrada en un 80% por el cumplimiento de objetivos y metas y el 20% restantes será evaluado con los criterios previamente establecidos institucionalmente y serán aplicados por la jefatura.

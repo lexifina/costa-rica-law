@@ -1,0 +1,2 @@
+ARTICULO 66.- Sin excepción, las personas funcionarias de Incop deben disfrutar de sus vacaciones íntegramente.
+Las Jefaturas remitirán a la Unidad de Capital Humano el plan de vacaciones de las personas funcionarias de Incop bajo su supervisión y control y serán los responsables de controlar el cumplimiento o ajustes al plan de vacaciones según acuerdo entre las partes; velando que no se de acumulación de vacaciones, salvo casos excepcionales los cuales deberán ser justificados.

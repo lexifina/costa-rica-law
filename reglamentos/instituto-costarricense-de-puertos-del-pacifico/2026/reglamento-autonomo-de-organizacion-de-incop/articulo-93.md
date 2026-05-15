@@ -1,0 +1,1 @@
+ARTICULO 93.- Es prohibido a las personas funcionarias de Incop hacer uso del cargo que desempeñe para obtener ventajas de carácter personal, provenientes de compañeros de trabajo o de terceros, cualquiera que sea su naturaleza. La persona funcionaria de Incop que infrinja esta prohibición será sancionado, según la gravedad de la falta, previa observancia al debido proceso.

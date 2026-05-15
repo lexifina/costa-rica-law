@@ -1,0 +1,1 @@
+ARTICULO 20.- La persona funcionaria de Incop prestará sus servicios en cualquiera de las oficinas, instalaciones o centros de trabajo que el Incop opere en el país, sin perjuicio de lo que al respecto disponga el Código de Trabajo.

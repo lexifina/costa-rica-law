@@ -1,0 +1,2 @@
+ARTICULO 121.- A fin de garantizar la probidad, la corrección, la eficacia y la eficiencia en la prestación de los servicios públicos encomendados a Incop, el régimen de sanciones de Incop se regirá por lo regulado en el Código de Trabajo, la Ley General de Administración Pública, Ley Marco de Empleo Público; la Ley de Control Interno; Ley contra la Corrupción y el Enriquecimiento Ilícito; y demás nomas supletorias que resulten vinculantes.
+Mismas que se definirán en apego al debido proceso, según lo establecido en este Reglamento.

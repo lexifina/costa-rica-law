@@ -1,0 +1,1 @@
+ARTICULO 24.- Las reasignaciones entrarán en vigencia a partir del primer día del mes siguiente en que fue aprobado por la Junta Directiva de Incop salvo disposición en contrario emitida por el ente regulador o autoridad competente.

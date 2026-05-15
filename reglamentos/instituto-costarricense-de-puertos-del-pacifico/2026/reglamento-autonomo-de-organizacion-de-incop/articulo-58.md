@@ -1,0 +1,1 @@
+ARTICULO 58.- Cuando se declare de asueto en los diferentes cantones del país en donde presten servicios personas funcionarias del Incop y encontrándose éstos en vacaciones, podrá solicitar a la Unidad de Capital Humano, el reconocimiento de ese hecho a efecto de que los días de asueto le sean acumulados al correspondiente período.

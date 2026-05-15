@@ -1,0 +1,1 @@
+ARTICULO 23.- Las cargas de trabajo de un puesto podrán ser examinadas y ajustadas para adecuarlo a la necesidad institucional, debiendo Incop tutelar los derechos de las personas funcionarias de Incop, de conformidad con las regulaciones vigentes

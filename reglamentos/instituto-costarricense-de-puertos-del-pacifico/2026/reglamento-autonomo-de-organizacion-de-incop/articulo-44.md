@@ -1,0 +1,1 @@
+ARTICULO 44.- Las calificaciones de la evaluación del desempeño serán determinantes para la concesión de ascensos, traslados, concesión de permisos y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación de servicio.

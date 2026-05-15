@@ -1,0 +1,1 @@
+ARTICULO 18.- Cuando el Incop necesite reclutar personas para ocupar plazas por servicios especiales, deberá contar con la aprobación previa de la Autoridad Presupuestaria, para ello; el Incop deberá contar con el contenido económico para realizar los pagos y se deberá suscribir contratos especiales de trabajo que estarán regulados por lo que disponga la normativa vigente.

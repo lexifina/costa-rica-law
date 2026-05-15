@@ -1,0 +1,1 @@
+ARTICULO 143.- El fin primordial del procedimiento disciplinario, es la verificación real de los hechos, por todos los medios de prueba admisibles, garantía procesal, que deberá garantizar la administración superior y las personas funcionarias de Incop que sean nombradas órganos director para la investigación preliminar u órgano director en un determinado procedimiento.

@@ -1,0 +1,1 @@
+ARTICULO 11.- Persona funcionaria de Incop, estará amparada por lo dispuesto en La Ley Marco de Empleo Público, el Código de Trabajo, este Reglamento y por los otros reglamentos y normativa externa aplicable y la normativa interna que el Incop establezca.

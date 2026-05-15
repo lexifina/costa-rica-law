@@ -1,0 +1,1 @@
+ARTICULO 197.- Incompatibilidades para la contratación pública. Las autoridades a cargo de los procesos de contratación pública deberán adoptar las medidas de verificación necesarias para evitar violaciones al régimen de prohibiciones establecido en la Ley de General de Contratación Pública, en relación al Régimen de Prohibiciones.

@@ -1,0 +1,1 @@
+ARTICULO 163.- El o los días de teletrabajo y el horario podrá variarse por parte del patrono. Lo anterior, no se refiere a una variación en el horario de trabajo que por interés institucional deba ser modificado a una unidad o a una persona funcionaria de Incop, para atender labores ordinarias que se requieran realizar de manera presencial.

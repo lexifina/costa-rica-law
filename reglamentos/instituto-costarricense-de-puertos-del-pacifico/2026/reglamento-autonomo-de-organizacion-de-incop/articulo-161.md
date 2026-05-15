@@ -1,0 +1,4 @@
+CAPITULO XXVI
+Teletrabajo
+ARTICULO 161.- Se establece la Modalidad de Teletrabajo para las personas funcionarias de Incop, según lo establece la Ley N° 9738 y su reglamento, el Decreto Ejecutivo N°42083-MP-MIDEPLAN-MICITT y demás normativa que resulte vinculante y que tienen como objeto, promover, regular e implementar el teletrabajo como un instrumento para la generación de empleo y modernización de las organizaciones públicas y privadas, a través de la utilización de tecnologías de la información y comunicación; por lo que, para la aplicación del mecanismo del teletrabajo en Incop aplican las condiciones establecidas por las citadas normas.
+La jefatura de cada unidad deberá organizar al personal a lo interno, velando porque en las oficinas durante la jornada laboral se mantenga al menos el 50% de las personas funcionarias de la unidad.

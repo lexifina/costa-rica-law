@@ -1,0 +1,1 @@
+ARTICULO 101.- Será suspendido el subsidio a la persona funcionaria de Incop que, disfrutando del mismo, se ocupen en alguna labor remunerada, sin perjuicio de que tal circunstancia sea considerada falta grave y la persona funcionaria será sancionada previa observancia del debido proceso

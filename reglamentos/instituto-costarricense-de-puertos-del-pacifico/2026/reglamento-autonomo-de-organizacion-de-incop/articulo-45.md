@@ -1,0 +1,1 @@
+ARTICULO 45.- Corresponderá a cada jefatura evaluar el desempeño de las personas funcionarias de Incop bajo su supervisión y control, así como enviar en tiempo y forma los resultados a la Unidad de Capital Humano.

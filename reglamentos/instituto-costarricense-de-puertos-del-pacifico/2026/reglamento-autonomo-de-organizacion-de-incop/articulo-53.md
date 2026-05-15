@@ -1,0 +1,2 @@
+ARTICULO 53.- Con sujeción a las disposiciones legales, el Incop se reserva el derecho de variar en forma temporal las horas de iniciación y finalización de la jornada de las personas funcionarias de Incop, según las necesidades del trabajo y el interés público, respetando lo dispuesto en el artículo 51 de este Reglamento.
+En caso de modificación definitiva a los horarios establecidos en este Reglamento, se hará de conformidad con las normas establecidas.

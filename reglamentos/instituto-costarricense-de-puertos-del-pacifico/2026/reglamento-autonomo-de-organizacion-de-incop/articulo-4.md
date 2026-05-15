@@ -1,0 +1,1 @@
+ARTICULO 4.- Por la índole de las labores que corresponde al Incop, el presente Reglamento se aplicará a todas las personas funcionarias de Incop a los actuales centros de trabajo y de todos aquellos lugares donde, por razones de servicio y ordenamiento administrativo, disponga el Incop establecerlos.

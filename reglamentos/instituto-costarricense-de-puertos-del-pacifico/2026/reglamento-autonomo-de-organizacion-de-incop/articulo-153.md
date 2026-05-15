@@ -1,0 +1,1 @@
+ARTICULO 153.- La Jefatura de la Unidad Capital Humano, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado, la reubicación temporal en el Instituto de la persona funcionaria de Incop denunciante o del denunciado. El Gerente General definirá en última instancia.

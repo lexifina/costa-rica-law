@@ -1,0 +1,3 @@
+ARTICULO 14.- Del Período de prueba:
+En los contratos de trabajo por tiempo indeterminado o a plazo, las personas funcionarias de Incop se considerarán en período de prueba durante los primeros tres meses. Las partes tendrán la facultad dentro de dicho plazo de dar por terminada la relación laboral en cualquier tiempo dentro de ese período de tres meses.
+En caso de concursos internos por oposición, cuando la persona funcionaria de Incop haya ocupado ese mismo puesto por tres meses o más y resulte ganadora en el proceso de concurso Interno; quedará la jefatura inmediata facultada para recomendar el nombramiento en propiedad sin que medie

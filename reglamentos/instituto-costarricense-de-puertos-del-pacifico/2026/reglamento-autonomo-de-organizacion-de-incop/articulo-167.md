@@ -1,0 +1,2 @@
+ARTICULO 167.- La jornada laboral ordinaria total de las personas funcionarias de Incop bajo la modalidad de Teletrabajo, será de ocho horas por día, igual que la jornada presencial cuando se encuentra en funciones de oficina.
+Sea en modalidad presencial o en teletrabajo, por acuerdo entre la persona funcionaria de Incop y la jefatura inmediata, podrá convenirse un cambio en la hora de inicio y fin de labores, siempre que se cumpla con la jornada de las ocho horas de labores y no afecte el quehacer institucional.

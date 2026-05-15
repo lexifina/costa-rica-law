@@ -1,0 +1,2 @@
+ARTICULO 57.- Son hábiles para el trabajo todos los días del año, excepto los feriados indicados en el Código de Trabajo y los días de asueto. No obstante, lo anterior, las personas funcionarias de Incop están obligadas a trabajar en cualquier día feriado o de asueto de conformidad con lo establecido por el Código de Trabajo.
+Cualquier día feriado que se trabaje se pagará con base a lo establecido en el ordenamiento jurídico.

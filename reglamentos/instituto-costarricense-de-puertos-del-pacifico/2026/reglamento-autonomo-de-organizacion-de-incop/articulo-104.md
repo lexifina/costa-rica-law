@@ -1,0 +1,1 @@
+ARTICULO 104.- No procederá o se suspenderá el pago de subsidio cuando para obtener la incapacidad la persona funcionaria de Incop incurra en fraude, adultere documentos o haya inducido a engaño para obtenerlo y será sancionado o destituido de acuerdo con a la gravedad de la falta.

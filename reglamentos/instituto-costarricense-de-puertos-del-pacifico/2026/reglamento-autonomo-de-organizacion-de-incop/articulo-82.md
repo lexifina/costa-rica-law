@@ -1,0 +1,1 @@
+ARTICULO 82.- Es obligación de las personas funcionarias de Incop prestar sin remuneración adicional o especial, los auxilios necesarios en caso de siniestro o riesgo inminente cuando las personas o intereses del Incop estén en peligro.

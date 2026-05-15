@@ -1,0 +1,1 @@
+ARTICULO 192.- Participación política y uso indebido del cargo para beneficio de agrupaciones políticas. Ninguna persona funcionaria de Incop podrá utilizar el cargo, sus funciones, la autoridad o influencia que pueda derivarse de ella, para beneficiar a un partido político o candidato a puesto de elección popular, así como cualquier otro recurso público asociado a su ejercicio.

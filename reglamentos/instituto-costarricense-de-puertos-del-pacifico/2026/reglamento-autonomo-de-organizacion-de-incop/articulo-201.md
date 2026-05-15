@@ -1,0 +1,1 @@
+ARTICULO 201.- Que en cumplimiento al artículo 13, inciso a) de la Ley General de Control Interno, Ley Nº8292, todas las personas funcionarias de Incop, entendidos como jerarcas y titulares subordinados, tienen el deber de tomar acciones para promover la integridad y el cumplimiento de los valores éticos de la función pública a nivel institucional.

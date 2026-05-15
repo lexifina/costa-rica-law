@@ -1,0 +1,4 @@
+ARTICULO 13.- El contrato individual de trabajo puede estipularse, de acuerdo con las necesidades del Incop, en cualquiera de las siguientes formas y las que más convengan de acuerdo con la modalidad del trabajo:
+a) Por tiempo indeterminado: Cuando la persona funcionaria de Incop preste sus servicios en labores permanentes de las que forman el objetivo de Incop, este será el tipo de contrato general por excelencia.
+b) Por tiempo determinado: Cuando la persona funcionaria de Incop convenga en prestar sus servicios por un período determinado de tiempo, cuya iniciación y finalización se conocen previamente.
+Este tipo de trabajo se usará en los casos de sustituciones, por suspensiones del contrato de trabajo del titular del puesto, nombramientos en puestos de confianza o para la realización de trabajos que aunque puedan considerarse dentro del objetivo propio del Incop, son eventuales desde el punto de vista de la urgencia con que tienen que ser realizados.

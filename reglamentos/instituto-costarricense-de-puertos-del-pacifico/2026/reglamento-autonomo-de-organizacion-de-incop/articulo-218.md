@@ -1,0 +1,4 @@
+ARTICULO 218.- Este reglamento se interpretará y aplicará de manera tal, que no contradiga las disposiciones legales y de jurisprudencia obligatoria que regulan determinadas materias o aspectos. En defecto de disposiciones propias de este reglamento, se tendrán como supletorias el Código de Trabajo, y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia en el país.
+Este reglamento deroga el aprobado por Acuerdo 1 tomado en Sesión No. 3590 celebrada el 14 de julio de 2015.
+Comuníquese a la Autoridad Presupuestaria el Acuerdo No xxx firme aprobado por unanimidad, tomado por la junta directiva del Incop en la sesión No. xxxx celebrada en fecha xxxxxx, comunicado mediante oficio CR-INCOP-JD-2026xxx del xx/xx/2026.
+Una vez publíquese en el diario oficial La Gaceta para efectos de terceros.

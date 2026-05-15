@@ -1,0 +1,1 @@
+ARTICULO 151.- El procedimiento deberá ser llevado a cabo resguardando la intimidad de las partes y la confidencialidad de los hechos, so pena de incurrir en falta grave los funcionarios que intervinieron.

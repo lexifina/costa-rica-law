@@ -1,0 +1,1 @@
+ARTICULO 29.- Las plazas susceptibles de nombramientos por tiempo indefinido podrán ser cubiertas mediante ascenso, traslado, concurso interno por oposición o concurso externo. Tratándose de concursos internos, la persona funcionaria de Incop deberá tener tres meses o más de laborar para la institución de manera ininterrumpida.

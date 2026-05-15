@@ -1,0 +1,1 @@
+ARTICULO 166.- Las jefaturas inmediatas de las personas funcionarias de Incop, serán las responsables de evaluar y determinar de manera razonada de acuerdo con las funciones que realiza la persona, si el puesto es o no teletrabajable y la cantidad de días que se recomienda la aplicación del teletrabajo.

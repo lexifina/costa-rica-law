@@ -1,0 +1,1 @@
+ARTICULO 214.- En ausencia temporal o permanente del Gerente General, la persona que ocupe el puesto de Sub Gerente, asumirá todas las prerrogativas, deberes y obligaciones del Gerente General, hasta su regreso o que la Junta Directiva nombre un nuevo Gerente General.

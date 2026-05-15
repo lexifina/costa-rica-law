@@ -1,0 +1,1 @@
+ARTICULO 100.- La enfermedad o accidente que incapaciten a la persona funcionaria de Incop, será demostrada mediante el documento oficial o reporte que emita el Instituto Nacional de Seguros o la Caja Costarricense de Seguro Social.

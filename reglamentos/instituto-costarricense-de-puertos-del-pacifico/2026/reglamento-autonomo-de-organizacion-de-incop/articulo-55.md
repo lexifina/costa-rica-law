@@ -1,0 +1,3 @@
+ARTICULO 55.- El pago de horas extras, debe ser excepcional y será aprobado por la jefatura inmediata. La jefatura para autorizar el que una persona bajo su supervisión y control labore tiempo extraordinario, de manera previa deberá verificar que se cuente con el contenido presupuestario.
+Las condiciones anteriormente expuestas, serán de acatamiento obligatorio sin perjuicio de lo establecido en el Procedimiento para el Pago de Jornada Extraordinaria para funcionarios de Incop.
+No se considerarán horas extraordinarias de trabajo las que la persona funcionaria de Incop ocupe en subsanar los errores imputables solo a él, cometidos durante la jornada ordinaria de trabajo.

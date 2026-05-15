@@ -1,0 +1,4 @@
+ARTICULO 30.- Se podrán realizar permutas temporales o definitivas dentro de la Institución, a clases comprendidas dentro de un mismo grupo ocupacional cuando medie un interés institucional. o a solicitud de dos personas funcionarias de Incop interesadas, siempre que una vez valorado por Incop, no cause afectación al interés institucional.
+Asimismo, Incop podrá realizar traslados temporales o definitivos internos dentro de la Institución, cuando medie un interés institucional; siempre que no cause un perjuicio al interés público ni se afecten las condiciones laborales de la persona funcionaria.
+Para las permutas o traslados se requiere que las personas funcionarias de Incop interesadas cumplan con las condiciones señaladas en el artículo 26 de este reglamento.
+Tratándose de traslados horizontales, se requiere la aprobación de la Secretaría Técnica de la Autoridad Presupuestaria y el cumplimiento de los requisitos regulados para este tipo de movimiento.

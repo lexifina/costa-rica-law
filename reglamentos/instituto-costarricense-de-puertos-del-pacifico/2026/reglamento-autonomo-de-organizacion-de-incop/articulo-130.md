@@ -1,0 +1,1 @@
+ARTICULO 130.- La persona funcionaria de Incop que se considere inconforme con la resolución de suspensión o despido, podrá interponer los recursos establecidos en la Ley Marco Empleo Público y leyes supletorias.

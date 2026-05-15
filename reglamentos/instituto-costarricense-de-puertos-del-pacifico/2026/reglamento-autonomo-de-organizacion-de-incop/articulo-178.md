@@ -1,0 +1,1 @@
+ARTICULO 178.- Prestación de servicios a terceros. Ninguna persona funcionaria de Incop deberá patrocinar, representar o prestar servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a éstos o cualquier otro tipo de asunto.

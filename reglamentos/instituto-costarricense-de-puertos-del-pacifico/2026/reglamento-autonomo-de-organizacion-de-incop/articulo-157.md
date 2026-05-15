@@ -1,0 +1,1 @@
+ARTICULO 157.- La o las personas que integran el órgano director para atender una determinada denuncia sobre acoso laboral: tienen la responsabilidad de garantizar en todo momento, los derechos fundamentales, el debido proceso a las partes, la determinación objetiva de la verdad real de los hechos y guardar la confidencialidad del asunto.

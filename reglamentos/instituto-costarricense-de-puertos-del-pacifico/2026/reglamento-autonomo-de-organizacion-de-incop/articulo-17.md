@@ -1,0 +1,1 @@
+ARTICULO 17.- A todas las personas funcionarias de Incop que celebren un contrato de trabajo con Incop, se les garantizará todos los derechos y garantías que reconoce el Código de Trabajo, La Ley Marco de Empleo Público y el Reglamento a la Ley Marco de Empleo Público y Leyes Especiales Conexas que resulten vinculantes.

@@ -1,0 +1,1 @@
+ARTICULO 169.- Las personas funcionarias de Incop serán responsables del cuido, protección y buen uso del equipo informático institucional que se le asigne para realizar el Teletrabajo. Las personas funcionarias de Incop deberán mantenerse localizables durante la jornada laboral destinada para el Teletrabajo.

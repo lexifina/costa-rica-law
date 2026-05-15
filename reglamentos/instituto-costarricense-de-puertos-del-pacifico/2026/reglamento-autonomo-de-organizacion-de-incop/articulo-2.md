@@ -1,0 +1,1 @@
+ARTICULO 2.- En ausencia de disposiciones específicas para casos determinados, debe tenerse como complementarias de este Reglamento, el Código de Trabajo, La Ley Marco de Empleo Público, el Reglamento a la Ley Marco de Empleo Público, Ley General de Administración Pública y demás leyes y reglamentos vigentes aplicables a Incop.

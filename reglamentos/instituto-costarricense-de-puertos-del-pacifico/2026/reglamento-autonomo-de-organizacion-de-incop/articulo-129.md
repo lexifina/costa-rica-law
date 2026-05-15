@@ -1,0 +1,1 @@
+ARTICULO 129.- Todas las sanciones disciplinarias correspondientes a llegadas tardías, ausencias y abandono de trabajo, se tramitarán mediante procedimiento administrativo disciplinario, en apego al debido proceso.

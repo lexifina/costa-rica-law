@@ -1,0 +1,1 @@
+ARTICULO 154.- Al acogerse la denuncia, la Gerencia General nombrará órgano director que deberá estar conformado de conformidad con el artículo 20 de la Ley de Hostigamiento Sexual en el Empleo y la Docencia.
