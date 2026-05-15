@@ -1,0 +1,1 @@
+Artículo 6º.- De las Unidades Asesoras y la Unidad de Oficialización. - Estas unidades tienen la función de apoyar, complementar, guiar o asesorar a los directores, jefes o los encargados de tomar las decisiones, de forma tal que se incremente la eficacia y eficiencia en el logro de los objetivosinstitucionales.

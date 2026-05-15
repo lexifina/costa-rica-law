@@ -1,0 +1,4 @@
+Artículo 24. - Funciones de la Direccion Nacional de Operaciones. - Las funciones de la Dirección Nacional de Operaciones son las siguientes:
+1.Ejecutar las acciones que emanan de la Dirección General y las diferentes dependenciastécnicas del SENASA en los procesos de salud animal, salud pública veterinaria,inocuidad, trazabilidad/rastreabilidad, bienestar animal, ambiente para los establecimientos según el artículo 56 de la Ley SENASA, N.°8495.
+2.Proponer, integrar y aplicar los requisitos para la elaboración de los reglamentos,procedimientos e instructivos relacionados con el registro de los establecimientos segúnel artículo 56 de la Ley SENASA, N.°8495, certificaciones sanitarias, oficialización y el Certificado Veterinario de Operación (CVO).
+3.Generar los espacios de coordinación intra e interinstitucional para el desempeño de susfunciones y las dependencias a su cargo.

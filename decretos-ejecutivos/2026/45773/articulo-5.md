@@ -1,0 +1,13 @@
+Artículo 5°. - Funciones de la Direccion General. - Son funciones de la Dirección General las siguientes:
+1.Velar por la ejecución de las acciones que conlleven al cumplimiento de la política,programas y proyectos en el ámbito de su competencia tanto nacional e internacional.
+2.Planificar, dirigir, conducir, coordinar, integrar, investigar, vigilar, asesorar y controlar lasacciones desarrolladas por las direcciones técnicas, científicas y administrativas de lainstitución, además de las relaciones, representaciones de planes, programas, proyectos, negociaciones, seguimientos y acuerdos nacionales e internacionales.
+3.Administrar y evaluar el cumplimiento de los objetivos institucionales, en temas de SaludAnimal y Salud Pública Veterinaria, orientados tanto a nivel central, como regional y local.
+4.Direccionar y orientar los proyectos, programas, investigaciones, planes, campañas yservicios en materia de prevención, control y erradicación de plagas que afecten a losanimales, enfermedades de los animales, inocuidad de productos de origen animal.
+5.Emitir políticas técnicas, planes y programas de salud animal, los servicios de salud animaly la salud pública veterinaria, así como su divulgación a los diferentes niveles jerárquicos.
+6.Participar en la armonización y estandarización de normas y procedimientos sanitarios en elámbito nacional e internacional en los programas de salud animal, salud públicaveterinaria, políticas de apertura comercial y globalización, así como en reuniones y redes colaborativas.
+7.Emitir medidas veterinarias o sanitarias de carácter general pertinentes sobre la saludpública veterinaria, la salud animal, el bienestar animal, y el control de la seguridad einocuidad de los productos y subproductos de origen animal, en sus distintas etapas.
+8.Ejecutar labores administrativas inherentes al cargo que desempeña.
+9.Gestionar los recursos requeridos para el cumplimiento de las funciones de su Dirección ydependencias organizacionales.
+10.Realizar la rendición de cuentas referentes al cumplimiento de metas, y presupuesto, desu Dirección y de sus respectivas dependencias, de acuerdo con los instrumentos deplanificación establecidos.
+11.Las funciones y atribuciones que el Ministro de Agricultura y Ganadería le señale.
+Al Subdirector General le corresponde suplir las ausencias temporales del Director(a) General, asumiendo de manera automática la Dirección del SENASA, con todas sus funciones y responsabilidades, a su vez tendrá las funciones que le señale el Director (a) General. La Dirección General contará con dependencias asesoras, técnicas, administrativas, auxiliares y de apoyo, que se consignan en el siguiente artículo.

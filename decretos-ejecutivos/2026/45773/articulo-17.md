@@ -1,0 +1,4 @@
+CAPÍTULO III De la Dirección de Vigilancia Epidemiológica y Salud Animal
+SECCION I
+Del Objetivo, las Funciones y las Unidades y Departamentos de la Dirección de Vigilancia Epidemiológica y Salud Animal
+Artículo 17°. - Objetivo de la Direccion de Vigilancia Epidemiológica y Salud Animal. El objetivo de la Dirección de Vigilancia Epidemiológica y Salud Animal es planificar, coordinar, organizar, dirigir, supervisar y evaluar las labores técnicas y administrativas que se desarrollan en la dirección, conforme con las políticas y lineamientos nacionales en salud pública veterinaria y salud animal en temas epidemiológicos, de medicamentos veterinarios, de alimentos para animales y cuarentenarios. A su vez, coordinará con la Unidad de Oficialización del SENASA a fin de cooperar técnicamente con dicha instancia, para la oficialización de personas cuando corresponda. Mantiene dependencia jerárquica directa de la Dirección General.

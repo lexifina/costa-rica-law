@@ -1,0 +1,1 @@
+Transitorio I.- Las Direcciones, Departamentos y Unidades tendrán un año a partir de le fecha de publicación de este reglamento en la Gaceta, para crear o actualizar los procedimientos y los sistemas de tecnología de la información conforme sus funciones en coordinación y con el apoyo de Tecnologías de Información del Ministerio de Agricultura y Ganadería.
