@@ -1,0 +1,8 @@
+CIRCULAR N° 83-2026
+Asunto: Elaboración de informes periódicos al Consejo Superior, sobre el seguimiento de los planes de disfrute de vacaciones, que deben ejercer los Presidentes de sala, Magistrados a cargo de dependencias del programa 926 (Secretarías Institucionales), Jefaturas del Ministerio Público, Defensa Pública, Organismo de Investigación Judicial, Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional, titulares de cada oficina del sector administrativo y dependencias no incluidas.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER:
+El Consejo Superior del Poder Judicial, en sesión N° 15-2026 celebrada el 24 de febrero de 2026, artículo XXII, a solicitud de la Auditoría Judicial, dispuso la elaboración de informes periódicos dirigidos al Consejo Superior, con copia a la Dirección de Gestión Humana y Oficina de Control Interno como oficinas de apoyo, sobre el seguimiento de los planes de disfrute de vacaciones, que deben ejercer los Presidentes de sala, Magistrados a cargo de dependencias del programa 926 (Secretarías Institucionales), Jefaturas del Ministerio Público, Defensa Pública, Organismo de Investigación Judicial, Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional, titulares de cada oficina del sector administrativo y dependencias no incluidas en los apartados anteriores, con el propósito de promover la efectividad de ese control y gestionar oportunamente los riesgos financieros, legales y reputacionales asociados.
+Publíquese una vez en el Boletín Judicial.
+San José, 15 de mayo de 2026
+<span style='font-family:"Arial",sans-serif; </body>
