@@ -1,0 +1,1 @@
+Artículo 15º- Vigencia. Las certificaciones tendrán la vigencia de un año a partir de la fecha de su emisión. Los visados no poseen fecha de vigencia ya que se emiten para un acto concreto y se encuentran asociados a las citas de presentación catastral que consigna la Subdirección Catastral.

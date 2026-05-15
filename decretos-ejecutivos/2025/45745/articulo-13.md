@@ -1,0 +1,4 @@
+Artículo 13º- Plazos de la Administración. La administración contará con los siguientes plazos:
+Certificaciones. La administración contará con quince días naturales para emitir y notificar el acto al administrado, dicha certificación será firmada únicamente por el Director Regional del Área de Conservación.
+Visados. En el caso de las solicitudes de visados, cuando se otorguen de manera positiva serán resueltas de manera formal mediante un oficio firmado únicamente por el Director Regional del Área de Conservación correspondiente, en caso de que el visado sea rechazado dicho acto será emitido por dicho jerarca mediante una resolución administrativa, todo lo anterior en el plazo de 30 días naturales.
+Las certificaciones y los actos que otorgan o rechazan el visado serán notificados al correo electrónico indicado por el solicitante.

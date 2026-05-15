@@ -1,0 +1,1 @@
+Artículo 7º- Cómputo de los plazos. Respecto al cómputo de los plazos en relación a las notificaciones efectuadas por medio de correo electrónico, se deberá acatar lo dispuesto en la Ley de Notificaciones Judiciales, Ley Nº 8687.

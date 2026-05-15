@@ -1,0 +1,1 @@
+Artículo 16º- Expediente. Se deberá abrir un expediente administrativo por cada solicitud presentada al SINAC, de acuerdo con los lineamientos institucionales y nacionales de archivo. Cada documento que sea agregado al expediente deberá estar numerado y ordenado cronológicamente.

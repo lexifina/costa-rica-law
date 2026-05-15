@@ -1,0 +1,1 @@
+Artículo 6º- Medio para recepción de notificaciones. Las solicitudes de subsanes, las certificaciones y visados emitidos y otro tipo de comunicaciones serán notificadas al correo electrónico que el usuario haya dispuesto para tal fin en el formulario de solicitud.

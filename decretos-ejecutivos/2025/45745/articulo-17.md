@@ -1,0 +1,3 @@
+Artículo 17º- Solicitante
+a) La solicitud de visado la puede presentar el presunto poseedor (en los casos donde el visado sea requerido para trámites de información posesoria), el propietario registral o un apoderado de estos debidamente facultado. En caso de ser una finca en copropiedad, la solicitud debe ser firmada por todos los propietarios registrales, salvo cuando se trate de un plano para localización de derechos indivisos.
+b) La solicitud de certificación la puede efectuar cualquier persona interesada siempre y cuando dicho trámite esté amparado a alguno de los supuestos contemplados en la normativa señalada en el considerando cuarto de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 5º- Uso de firma digital. Todas las solicitudes de visados y certificaciones que se presenten por medio de correo electrónico al SINAC deberán tramitarse mediante el uso de la firma digital. Las solicitudes que se presenten mediante formato impreso podrán ser firmadas mediante puño y letra.

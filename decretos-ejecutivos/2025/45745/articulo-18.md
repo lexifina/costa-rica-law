@@ -1,0 +1,1 @@
+Artículo 18°- Fase recursiva. Contra las resoluciones administrativas que rechazan el otorgamiento de los visados, se podrán interponer los recursos ordinarios y extraordinarios establecidos en el artículo 343° de la Ley General de la Administración Pública N°6227. La fase recursiva se regirá por las reglas dispuestas en los artículos 342° al 356° de dicha ley.
