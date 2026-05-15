@@ -1,0 +1,4 @@
+Artículo 19. Solicitud de Auditorías. Las organizaciones turísticas e instituciones podrán solicitar auditorías a través de la Plataforma CST, siguiendo los pasos establecidos en ella y en los siguientes casos:
+a) Auditoría (primera vez, para solicitantes que aún no cuentan con la CST): La solicitud debe presentarse 90 días después del registro en la Plataforma CST al concluir el proceso de inclusión de evidencias.
+b) Auditoría para mejorar el nivel de la CST obtenido: Si una empresa certificada desea mejorar el nivel obtenido, podrá hacerlo una vez hayan transcurridos 6 meses calendario desde la fecha de otorgamiento del nivel mínimo. En caso de no alcanzar un nivel mayor, mantendrá el nivel de la certificación vigente.
+c) Auditoría para Recertificación: La solicitud debe presentarse al menos 90 días antes del vencimiento de la certificación vigente.

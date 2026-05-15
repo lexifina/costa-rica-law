@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de Aplicación. Las disposiciones contenidas en este Reglamento son de cumplimiento exclusivo para las organizaciones turísticas e instituciones solicitantes de un Certificado de Sostenibilidad Turística, el cual es gratuito y de naturaleza estrictamente voluntaria, sin que su obtención sea necesaria para su funcionamiento.

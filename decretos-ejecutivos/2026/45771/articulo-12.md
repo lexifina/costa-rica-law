@@ -1,0 +1,8 @@
+Artículo 12. Integración. La Comisión Técnica de Verificación del Programa CST (CTV-CST), estará integrada por una representación titular y una suplencia de cada una de las siguientes entidades:
+a) Una persona representante del ICT, nombrada por acto administrativo de su Gerencia General, representante que presidirá la CTV-CST y tendrá voto de calidad en caso de empate.
+b) Una persona representante del Ministerio del Ambiente y Energía (MINAE), nombrada por acto administrativo de su jerarca ministerial.
+c) Una persona representante del Ministerio de Cultura y Juventud (MCJ), nombrada por acto administrativo de su jerarca ministerial.
+d) Una persona representante designada en forma conjunta y por acuerdo de las Juntas Directivas de la Cámara Nacional de Turismo (CANATUR) y de la Cámara Nacional de Ecoturismo y Turismo Sostenible (CANAECO).
+e) Una persona representante designada en forma conjunta y por nombramiento de las rectorías de la Universidad de Costa Rica (UCR) y del Instituto Centroamericano de Administración de Empresas (INCAE).
+f) Una persona representante designada en forma conjunta por nombramiento de la Dirección General del Instituto Nacional de Biodiversidad (lNBIO) y de la Dirección Regional de la Unión Internacional para la Conservación de la Naturaleza (UICN).
+Las personas integrantes de la Comisión Técnica de Verificación del CST (CTV-CST) desempeñarán sus funciones ad honorem y se entenderán nombradas por un plazo de dos años a partir de su juramentación por parte del ICT, los cuales podrán ser prorrogables por períodos iguales. Entre sus representantes se designará una vicepresidencia quién presidirá las sesiones en ausencia de la presidencia.

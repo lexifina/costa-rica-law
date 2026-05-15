@@ -1,0 +1,1 @@
+Artículo 28. Derogatoria. Deróguese el Reglamento del Programa de Sostenibilidad Turística, Decreto Ejecutivo N° 41415-MINAE-MCJ-MEIC-TUR del 17 de setiembre del 2018, publicado en el Alcance N° 203 al Diario Oficial La Gaceta Nº 228 del 7 de diciembre de 2018.

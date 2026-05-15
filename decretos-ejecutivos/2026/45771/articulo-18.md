@@ -1,0 +1,3 @@
+Artículo 18. Niveles del Programa CST. A la solicitante que cumpla con el estándar CST y su trámite, según lo indicado en el artículo 17 de este Reglamento, se le otorgará el Certificado CST, el cual tendrá los siguientes niveles:
+a) Mínimo: requiere el cumplimiento por parte de la solicitante del cien por ciento de los criterios e indicadores obligatorios estipulados en el Estándar del CST.
+b) Máximo: requiere que la solicitante demuestre la mejora y continuidad del proceso de gestión en un mínimo de cincuenta por ciento y un impacto externo en un setenta por ciento en los criterios e indicadores del Estándar del CST.

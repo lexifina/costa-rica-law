@@ -1,0 +1,1 @@
+Artículo 27. Vencimiento del CST. Para volver a optar por la certificación CST una vez vencida ésta, se deberá cumplir nuevamente con el proceso de Auditoría, para optar por la recertificación. La CST tendrá una vigencia de un plazo de tres años calendario a partir de la fecha de la notificación de su otorgamiento.

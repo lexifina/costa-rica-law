@@ -1,0 +1,5 @@
+Artículo 17. Requisitos generales del trámite de inscripción para la participación en el Programa CST. Las solicitantes de la CST deberán:
+a) Registrarse en el formulario de la plataforma del CST cuyo acceso se facilitará en la dirección electrónica: https://cst.turismo-sostenible.co.cr . Esta solicitud en línea deberá ser llenada por la representación legal de la solicitante, tendrá carácter de declaración jurada e incluirá su compromiso ante el ICT de estar al día con los aspectos legales aplicables a su categoría y actividad.
+b) Estar al día con las verificaciones de oficio a realizar por el ICT según el detalle del Anexo 6 de este Reglamento, que es parte integral del mismo.
+c) Cumplir desde la Plataforma del CST con los requisitos y el procedimiento de obtención de la CST, según lo detallado en los anexos 2, 3 y 5 de este Reglamento, que son parte integral del mismo.
+d) Cumplir con lo señalado por el Estándar CST correspondiente a su actividad, según lo que se detalla en el Anexo 1, que es parte integral de este Reglamento.
