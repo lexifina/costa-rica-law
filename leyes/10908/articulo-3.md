@@ -1,0 +1,1 @@
+ARTÍCULO 3- Fin de la donación. El fin de esta donación es dotar de titularidad al Benemérito Cuerpo de Bomberos de Costa Rica, cédula jurídica número tres-cero cero siete-cinco cuatro siete cero seis cero (n.° 3-007-547060), sobre lo segregado en el plano número siete-uno seis cero cero cinco nueve seis-dos cero uno dos (n.° 7-1600596-2012).
