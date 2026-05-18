@@ -1,0 +1,4 @@
+CAPÍTULO III
+NORMAS Y PROHIBICIONES
+Artículo 20.- Regalos y otros beneficios. La persona servidora policial no debe solicitar ni aceptar, directa o indirectamente, regalos, dádivas, comisiones, premios, donaciones, favores, propinas o beneficios de cualquier tipo, con motivo u ocasión del desempeño de sus funciones. Se entiende que, si con ocasión de la prestación de los servicios, y según las circunstancias especiales del caso, se ofrece apoyar a la persona servidora policial con alimentación, o implementos para que se pueda realizar el trabajo o se proteja la integridad y salud de las personas servidoras, se puede aceptar, procurando haya claridad sobre la fuente de origen de lo que se pretende dar. Si se conoce o se tiene indicios de una dudosa procedencia que puede comprometer la probidad debe rechazarse.
+Se excepciona, el supuesto previsto en el artículo 20 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

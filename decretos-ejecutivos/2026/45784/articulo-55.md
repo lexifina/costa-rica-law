@@ -1,0 +1,1 @@
+Artículo 55.- Proceso de formación de la Academia Nacional de Policía. Dentro de la malla curricular del proceso de formación policial, deberá contener un apartado que se refiera a los conflictos de interés que puedan presentarse durante el ejercicio de la función policial.

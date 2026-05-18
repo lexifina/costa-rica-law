@@ -1,0 +1,1 @@
+Artículo 50.- Amonestación escrita. La amonestación escrita corresponderá cuando la persona servidora policial incurra en falta alguna, por infracción de cualquiera de las obligaciones o prohibiciones estipuladas en el ordenamiento jurídico, siempre y cuando no diera méritos para una sanción por falta grave.

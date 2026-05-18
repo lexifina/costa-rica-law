@@ -1,0 +1,1 @@
+Artículo 52.- Reincidencia. Se tendrá como reincidente la persona servidora policial, que en un periodo de tres meses posteriores a que haya recibido una sanción disciplinaria en firme y que diere mérito a ser sancionado por cualquier otra falta leve o grave, que diere para el despido sin responsabilidad patronal.

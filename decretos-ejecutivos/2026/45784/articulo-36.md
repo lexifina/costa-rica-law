@@ -1,0 +1,5 @@
+Artículo 36.- Participación política y uso indebido del cargo para beneficio de agrupaciones políticas. Se prohíbe a la persona servidora policial dedicarse a trabajos o discusiones de carácter político - electoral, durante y fuera de las horas laborales y usar su cargo para beneficiar a un partido político.
+Los titulares subordinados inmediatos de dicho personal serán los responsables de vigilar el cumplimiento de esta disposición.
+Toda persona servidora policial está en el deber de denunciar cualquier conducta de este tipo, como las demás dispuestas en este Reglamento o de aquellas que sean testigos.
+Ninguna persona jerarca o titular subordinado podrán participar en las actividades de los partidos políticos, asistir a clubes ni reuniones de carácter político, utilizar la autoridad o influencia de sus cargos en beneficio de los partidos políticos, colocar distintivos en sus viviendas o automotores.
+En general, toda persona servidora policial debe ser y mostrarse con su conducta, imparcial, neutra, objetiva, en lo relacionado con partidos políticos.

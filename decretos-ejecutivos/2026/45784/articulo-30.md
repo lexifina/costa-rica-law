@@ -1,0 +1,1 @@
+Artículo 30.- Solicitud de colaboración para el cuerpo policial. Podrá realizar cualquier tipo de recolecta voluntaria entre el personal, cuando exista previa autorización de la persona superior inmediata, quedando prohibido solicitar la colaboración a personas ajenas al cuerpo policial.

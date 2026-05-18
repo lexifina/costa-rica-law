@@ -1,0 +1,1 @@
+Artículo 7.- Gestión adecuada de los conflictos de interés. Los conflictos de interés deben administrarse desde el momento en que se tiene conocimiento de la situación, de modo que puedan tomarse las medidas preventivas tendientes a solucionar o minimizar los riesgos que puedan llegar a potenciarse.

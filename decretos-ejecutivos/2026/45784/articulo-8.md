@@ -1,0 +1,1 @@
+Artículo 8.- Identificación y sanción de los conflictos de interés. En caso de no lograr prevenirlos, la conducta derivada del conflicto de interés podrá sancionarse, ya que coloca en una posición de riesgo el buen funcionamiento de la gestión pública, el principio de probidad e integridad del ejercicio de la función policial.

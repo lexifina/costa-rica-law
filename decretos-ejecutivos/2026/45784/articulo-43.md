@@ -1,0 +1,2 @@
+Artículo 43.- Superposición horaria. Para evitar el abuso en el manejo de fondos públicos, se determina la imposibilidad de desempeñar dos cargos públicos en forma simultánea.
+El desempeño simultáneo de los cargos hace referencia a la existencia de una superposición horaria en los distintos puestos, es decir, la prohibición no incluye aquellas situaciones en que los puestos ocupados no se traslapen en el tiempo.

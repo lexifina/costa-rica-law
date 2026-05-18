@@ -1,0 +1,2 @@
+Artículo 13.- Deber de denunciar. Toda persona servidora policial que tenga conocimiento de un posible conflicto de interés, ya sea propio o de otra persona servidora pública, deberá ponerlo en conocimiento de su jefatura inmediata o ante el Departamento Disciplinario Legal.
+En caso de considerarse que existe presunción de la comisión de un delito, la persona servidora policial deberá denunciarlo en la vía judicial correspondiente.

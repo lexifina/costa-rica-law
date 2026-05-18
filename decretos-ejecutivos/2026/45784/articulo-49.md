@@ -1,0 +1,6 @@
+Artículo 49.- Tipos de sanciones. Las faltas en que incurra la persona servidora policial relacionada con la regulación de conflictos de interés, serán sancionadas con las siguientes medidas disciplinarias, según la gravedad de la falta, conforme al artículo 39 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública:
+a) Amonestación escrita publicada en el Diario Oficial.
+b) Suspensión sin goce de salario de quince a treinta días.
+c) Despido sin responsabilidad patronal
+Las amonestaciones escritas deberán imponerse dentro del mes posterior a aquel en que se cometió la falta o que las jefaturas policiales inmediatas la conocieran, siguiendo el procedimiento previsto en el Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio, y las suspensiones sin goce de salario o despidos por causa justa, en el transcurso de dos o cinco años, según sea el caso, posteriores al día en que se cometió la falta o que fue conocida por la instancia competente para su eventual sanción.
+La persona servidora policial despedida sin responsabilidad patronal, queda inhabilitada para reingresar a cualquier otro cuerpo de policía, durante un periodo de diez años al tenor de lo dispuesto en el artículo 93 de la Ley General de Policía.

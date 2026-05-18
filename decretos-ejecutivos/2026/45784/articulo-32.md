@@ -1,0 +1,1 @@
+Artículo 32.- Uso de los bienes, materiales y útiles del cuerpo policial. La persona servidora policial no debe utilizar las instalaciones físicas, el equipo de oficina, automotores o demás bienes públicos a los que tenga acceso, para propósitos ajenos al fin para el que están destinados.

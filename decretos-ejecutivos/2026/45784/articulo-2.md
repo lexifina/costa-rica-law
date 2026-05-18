@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación. El presente Reglamento será de alcance para los siguientes cuerpos policiales: Dirección General de la Fuerza Pública, Policía de Fronteras, Policía de Control de Drogas, Servicio Nacional de Guardacostas y Dirección del Servicio de Vigilancia Aérea.
+Así mismo tendrá alcance sobre la Reserva de las Fuerzas de Policía adscritas al Ministerio y a la Academia Nacional de Policía.

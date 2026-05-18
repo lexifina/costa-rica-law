@@ -1,0 +1,1 @@
+Artículo 21.- Obsequios dirigidos a familiares o allegados. La persona servidora policial debe adoptar todas las medidas que, razonablemente sean necesarias para garantizar que su círculo familiar, ligado por parentesco en los términos del presente Reglamento o afectivo inmediato, no reciba ningún regalo o beneficio, entregado con motivo u ocasión del desempeño de sus funciones.

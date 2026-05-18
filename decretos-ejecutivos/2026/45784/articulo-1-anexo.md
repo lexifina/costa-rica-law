@@ -1,0 +1,81 @@
+ANEXO
+FORMULARIO PARA LA GESTIÓN DE CONFLICTOS DE LOS CUERPOS POLICIALES
+ADSCRITOS AL MINISTERIO DE SEGURIDAD PÚBLICA
+Fecha: ______/______/______
+1. Datos de la persona funcionaria policial que presenta la gestión de conflictos de intereses.
+Nombre y apellidos: ______________________________________________________________ Nº de identificación: ______________________________________________________________ Cargo que ocupa: ________________________________________________________________ Dependencia policial: ____________________________________________________________ Teléfono: _________________________________ Correo electrónico: _______________________________________________________________
+2. Datos de la persona jefatura policial ante la cual se presenta la gestión de Conflictos de intereses.
+Nombre de la jefatura ante la cual se presenta la gestión: ____________________________ Cargo o puesto que desempeña: ________________________________________________ Nombre de la delegación o unidad policial en la que labora: __________________________
+3. Definiciones relevantes
+[imagen]
+4. Alcance de la gestión:
+De conformidad con lo establecido en el artículo 9 del Reglamento para la Prevención, Identificación y Gestión de los Conflictos de Interés de los Cuerpos Policiales Adscritos Al Ministerio de Seguridad Pública, declaro que he identificado un interés privado, potencialmente generador de un conflicto de interés en el ejercicio de mi función policial, mismo que hago de conocimiento de forma transparente, preventiva y oficiosa; con el fin de realizar la gestión adecuada.
+5. Causales de abstención:
+Indicar el motivo de abstención que considera se presenta De acuerdo al Artículo 12 del Reglamento para la Prevención, Identificación y Gestión de los Conflictos de Interés de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública.
+____ Interés directo en el asunto que debo tramitar.
+____ Asunto que interesan a mis familiares hasta el tercer grado de consanguinidad o tercer grado de afinidad, madrastras, padrastros, hijastras, hijastros, o persona con quien tenga hijas o hijos.
+____ Interés directo con personas jurídicas con las cuales se ha tenido participación accionaria, en los últimos doce meses.
+____ Tener o haber tenido la condición de tutor, curador, apoderado, representante o administrador (a) de alguna de las personas interesadas en el asunto.
+____ Amistad íntima o enemistad manifiesta con alguna de las personas interesadas en el asunto que debo tramitar.
+____ Soy o fui, en los doce meses anteriores, socio (a), jefe o compañero (a) de trabajo de alguna de las personas interesadas directas en el asunto que debo actuar.
+____ Tengo la condición de acreedor (a), deudor (a), fiador (a), de alguna de las personas interesadas directas en un asunto que debo actuar.
+____ Previo a ingresar a las Fuerzas de Policía intervine a favor o en contra de una o varias personas interesadas directas en un asunto que debo tramitar o actuar.
+____ Se me impuso una sanción en virtud de una queja interpuesta en el mismo proceso o con anterioridad, por alguna de las personas interesadas directas en un asunto que debo tramitar.
+____ Las personas interesadas son o fueron parte contraria en un procedimiento administrativo o proceso jurisdiccional, en mi contra o de mis familiares en los dos años precedentes a la iniciación del trámite.
+____ Existen circunstancias que dan lugar a dudas justificadas respecto de mi imparcialidad u objetividad.
+6. Breve descripción de los hechos denunciados:
+De acuerdo con el tipo de conflicto señalado anteriormente, describa brevemente la posible situación de conflicto de intereses personales, familiares, económicos o de otra índole que podrían afectar la imparcialidad con que desempeña las funciones (revise la normativa sobre causales de abstención en el artículo 12, siguientes y concordantes de la Regulación para la prevención, identificación y la gestión adecuada de los conflictos de intereses, así como el artículo 3 y 4 de la Ley 8422 contra la corrupción y el enriquecimiento ilícito en la función pública):
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+____________
+7. Solicitud. Solicito se estudie la situación fáctica planteada y se comunique la decisión que se adopte. Me comprometo a aportar la documentación adicional que sea precisa relacionada con la gestión, y doy mi consentimiento para su uso con el único propósito de determinar si existe o no una situación de conflicto de interés.
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+_______________________________________________________________
+8. Medios probatorios: Sustentar los hechos y el motivo de abstención o cite la prueba que apoye la gestión.
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+Medio para atender notificaciones:
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+Firma y número de identificación de la persona funcionaria policial:
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________
+______________________________________________________________________________

@@ -1,0 +1,1 @@
+Artículo 35.- Información confidencial. La persona servidora policial no debe participar, directa o indirectamente, en transacciones comerciales o financieras, aprovechándose de información confidencial de la cual tengan conocimiento debido a su cargo, de forma tal que ello les confiera una situación de privilegio de cualquier carácter, para sí, o para terceras personas.

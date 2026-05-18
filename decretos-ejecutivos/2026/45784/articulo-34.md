@@ -1,0 +1,1 @@
+Artículo 34.- Aceptación de trato preferente. La persona servidora policial no debe aceptar ningún trato de favor o situación que implique privilegio o ventaja injustificada por parte de personas físicas, entidades públicas o privadas.

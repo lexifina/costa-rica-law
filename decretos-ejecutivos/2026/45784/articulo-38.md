@@ -1,0 +1,2 @@
+Artículo 38.- Prohibición de lobby para acceder a cargos. La persona servidora policial tiene prohibido hacer lobby, recomendar, promover o censurar a terceros ante las áreas y personas, directa o indirectamente, para la selección y designación de cargos.
+La misma prohibición existe respecto de promover o censurar a terceros para cualquier cargo público o privado, salvo cuando que sean constancias por el trabajo desempeñado.

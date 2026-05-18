@@ -1,0 +1,2 @@
+Artículo 17.- Incompatibilidades para la contratación pública. La persona servidora policial no podrá participar, directa o indirectamente, en procedimientos de contratación pública del Ministerio, cuando concurran situaciones de conflicto de interés, ya sea por vínculos personales, familiares, laborales, comerciales o financieros.
+De comprobarse la infracción a lo dispuesto en este artículo, podrá repercutir en el resultado de la contratación pública y generar a la persona servidora policial responsabilidad administrativa, civil y penal.
