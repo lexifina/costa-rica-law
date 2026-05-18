@@ -13,3 +13,4 @@ Obligatoriedad uso del módulo de pase a fallo por tareas en materia Agraria, ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-17 | la propia norma |
+| 2 | 2026-05-18 | Circular 84 (2026-05-18) |
