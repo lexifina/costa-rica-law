@@ -1,0 +1,4 @@
+Artículo 35.- Actividades de control: Durante la aplicación del teletrabajo, la Municipalidad de Alvarado mantendrá su potestad de dirección, fiscalización (monitoreo y control) y disciplinario respecto de la persona teletrabajadora. Por lo tanto, la Municipalidad medirá, evaluará y controlará el desempeño, eficiencia y efectividad del funcionario por sus labores en modalidad de teletrabajo, por mecanismos tales como:
+a) Reporte de asistencia completando un formulario digital, este registro sustituirá la marca en el reloj marcador del edificio municipal.
+b) Evaluación mensual mediante la presentación de un informe de labores a inicios de cada mes, esto como mecanismo para fiscalizar las funciones llevadas a cabo por el funcionario en el mes anterior.
+La Municipalidad de Alvarado podrá implementar otros mecanismos de fiscalización y evaluación en el futuro, para lo cual dará aviso a la persona teletrabajadora oportunamente, previo a su implementación y vigencia.

@@ -1,0 +1,1 @@
+Artículo 4. Condiciones de la relación laboral: Los teletrabajadores están sujetos a los mismos deberes, prohibiciones y responsabilidades de quienes laboran bajo la modalidad tradicional u ordinaria, de acuerdo a la normativa laboral vigente y las disposiciones sobre la materia regulada en el Código Municipal.

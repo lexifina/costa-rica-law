@@ -1,0 +1,1 @@
+Artículo 18. Póliza de riesgos para equipo de cómputo. La municipalidad, pagará una póliza de riesgos para el equipo de cómputo, que saldrá del edificio hacia el lugar de Teletrabajo. Para la salida del equipo, se llevará una bitácora, donde se indique la fecha y hora de salida y entrada del equipo.

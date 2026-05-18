@@ -1,0 +1,7 @@
+Artículo 3. Conceptos: Sin perjuicio de las definiciones contenidas en la Ley N°9738 y el Decreto Ejecutivo N° 42083-MP-MTSS-MIDEPLAN-MICITT, para efectos del presente Reglamento deben tenerse en consideración los siguientes términos:
+a) Actividad teletrabajable: Conjunto de tareas que pueden ser realizadas por medios telemáticos desde el domicilio del trabajador y que no requieren la presencia física del funcionario en su oficina, cuyas labores pueden ser evaluadas o supervisadas de manera remota o indirecta.
+b) Administración Municipal: Alcaldía. Encargado de coordinar y administrar la aplicación de la modalidad de teletrabajo en la Municipalidad de Alvarado.
+c) Contrato de teletrabajo: es el documento donde la Municipalidad de Alvarado y el teletrabajador acuerdan las condiciones en que se desarrollará la modalidad de teletrabajo. d) Empleador: Patrono. Municipalidad de Alvarado
+e) Jornada de teletrabajo: es el tiempo establecido por la institución, dedicado para realizar las actividades teletrabajables.
+f) Teletrabajo: prestación de servicios de carácter no presencial, ejecutado remotamente desde el domicilio del teletrabajador fuera de las instalaciones del empleador, siempre que las necesidades del servicio público lo permitan, en virtud de la cual un trabajador puede desarrollar su jornada laboral de forma parcial o total, mediante el uso de medios telemáticos.
+g) Teletrabajador: trabajador de la institución que realiza sus actividades bajo la modalidad del teletrabajo.

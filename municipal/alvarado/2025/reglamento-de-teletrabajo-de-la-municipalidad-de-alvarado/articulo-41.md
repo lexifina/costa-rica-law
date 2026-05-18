@@ -1,0 +1,2 @@
+Artículo 41.- Sobre las razones de conveniencia institucional: Las razones de conveniencia institucional deberán ser motivadas en criterio escrito del superior inmediato de la persona teletrabajadora y / o del Titular de la Alcaldía Municipal.
+La decisión de reingresar a una persona teletrabajadora a la presencialidad, deberá serle comunicado, con un plazo de antelación de al menos 10 días naturales, pasado el cual deberá reintegrarse al centro de trabajo.

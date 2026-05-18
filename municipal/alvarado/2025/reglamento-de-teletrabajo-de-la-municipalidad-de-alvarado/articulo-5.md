@@ -1,0 +1,1 @@
+Artículo 5. Compromiso de colaboración: Todas las jefaturas y funcionarios municipales relacionados directa o indirectamente, con las personas que ejecuten sus labores bajo la modalidad de teletrabajo están obligados a colaborar en su gestión, para cumplir con los objetivos institucionales en tiempo y forma, sin afectar la calidad de los servicios públicos prestados.

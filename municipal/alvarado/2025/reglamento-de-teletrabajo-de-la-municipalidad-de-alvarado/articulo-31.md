@@ -1,0 +1,2 @@
+Artículo 31.- Póliza de Riesgos del Trabajo: Los teletrabajadores estarán protegidos por la Póliza de Riesgos del Trabajo que tiene la Institución, siempre que se encuentren ejerciendo las labores propias de su función dentro de la jornada de teletrabajo.
+Cuando ocurra un accidente a causa de las labores que desempeña en el lugar en el que realiza el Teletrabajo, la persona teletrabajadora deberá avisar inmediatamente a la Jefatura inmediata y / o al Titular de la Alcaldía.

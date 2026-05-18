@@ -1,0 +1,1 @@
+Artículo 20. Firmantes del contrato: Los contratos que incluyan la modalidad de teletrabajo, deberán ser firmados por el titular de la Alcaldía Municipal; en los casos de funcionarios que dependan del Concejo Municipal, sin excepción se deberá contar con anuencia del Concejo Municipal.

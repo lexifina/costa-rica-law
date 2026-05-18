@@ -1,0 +1,2 @@
+Artículo 43.- Efectos de la terminación de la modalidad de teletrabajo: En los casos en que se presente una causal para culminar la modalidad de teletrabajo, ello no comportará la terminación de la relación laboral estrictamente, para los casos en que la persona servidora institucional haya firmado un contrato.
+En el caso de que el teletrabajo haya sido pactado desde el inicio de la relación laboral, la Municipalidad no podrá requerir bajo voluntad unilateral, el cambio del servidor hacia una modalidad meramente presencial.
