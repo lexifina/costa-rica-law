@@ -5,7 +5,7 @@ Para los siguientes procedimientos las sociedades administradoras deben utilizar
 a) Procedimiento de solicitud de autorización de fondos de inversión, de conformidad con lo establecido en el artículo 3º de este Acuerdo.
 b) Procedimiento de solicitud de modificación de prospectos que requieren autorización previa, de conformidad con lo establecido en el artículo 4 de este Acuerdo.
 c) Procedimiento de solicitud de autorización de fondos de inversión, de conformidad con lo establecido en el artículo 3º de este Acuerdo.
-d) Procedimiento de modificación de prospectos de fondos de inversión a través de hechos relevantes, de conformidad con lo establecido en el artículo 5º de este Acuerdo.
+d) (Derogado por el artículo 1° del acuerdo SGV-A-11-2026 del 18 de mayo del 2026)
 e) Procedimiento para la actualización anual de prospectos de fondos de inversión, de conformidad con lo establecido en el artículo 6º de este Acuerdo.
 Para la presentación por medios electrónicos de los documentos relativos a los procedimientos anteriores, las sociedades administradoras se deberán acoger a lo establecido en el documento de "Políticas y procedimientos para la utilización de la plataforma de Servicios de Ventanilla Virtual", para acceder al sistema de trámites por medios electrónicos a través de la Ventanilla Virtual de SUGEVAL.
 (Así reformado el párrafo anterior por acuerdo SGV-A-192 del 7 de noviembre de 2014)

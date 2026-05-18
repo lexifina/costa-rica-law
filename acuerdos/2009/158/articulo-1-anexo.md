@@ -16,11 +16,21 @@ En la página inicial del prospecto se debe incluir:
 1.8 Leyendas:
 a. "Señor Inversionista: Antes de invertir consulte e investigue sobre el producto en el cual desea participar. Este prospecto contiene información sobre las características fundamentales y riesgos del fondo de inversión, por lo que se requiere su lectura. La información que contiene puede ser modificada en el futuro, para lo cual la sociedad administradora le comunicará de acuerdo a los lineamientos establecidos por la normativa".
 b. "La sociedad administradora del fondo de inversión asume la responsabilidad del contenido de este Prospecto y declara que a su juicio, los datos contenidos en el mismo son conformes a la realidad y que no se omite ningún hecho susceptible de alterar su alcance.
-c. "La Superintendencia General de Valores (SUGEVAL) no emite criterio sobre la veracidad, exactitud o suficiencia de la información contenida en este prospecto y no asume responsabilidad por la situación financiera del fondo de inversión. La autorización para realizar oferta pública no implica una recomendación de inversión sobre el fondo o su sociedad administradora. La gestión financiera y el riesgo de invertir en este fondo de inversión, no tienen relación con las entidades bancarias o financieras de su grupo económico, pues su patrimonio es independiente."
+c. La Superintendencia General de Valores (SUGEVAL) no emite criterio sobre la veracidad, exactitud o suficiencia de la información contenida en este prospecto y no asume responsabilidad por la situación financiera del fondo de inversión. La autorización para realizar oferta pública no implica una recomendación de inversión sobre el fondo de inversión o su sociedad administradora".
+(Así reformado el inciso anterior por el artículo 2° inciso a) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 d. En el caso de fondos no diversificados: "Un fondo no diversificado puede concentrar su inversión en menos de diez emisores diferentes. En este caso las situaciones adversas que enfrente un emisor o sector económico pueden afectar en mayor proporción las inversiones del fondo, por lo que existe una probabilidad más alta de que se incrementen los riesgos asociados a su inversión. Consulte a su asesor de inversiones."
-e. En el caso de fondos garantizados: "El fondo garantizado tiene por objetivo asegurar un porcentaje del capital invertido a su vencimiento, sujeto a las condiciones y restricciones establecidas en el prospecto. No se asegura el rendimiento ni el valor de participación antes del vencimiento del fondo. Este fondo asegura el ___% del capital invertido."
-f. En el caso de fondos de procesos de titularización: "Los fondos de inversión de procesos de titularización tiene características especiales en cuanto a los activos que lo conforman, por lo que se advierte al inversionista sobre la importancia de asesorarse y revisar con detalle el prospecto antes de tomar la decisión de invertir".
-g. En el caso de fondos inmobiliarios o de desarrollo de proyectos[1] con activos fuera del territorio costarricense: "La SUGEVAL le advierte que este fondo de inversión puede tener características especiales en cuanto a la estructura de la propiedad de los activos inmobiliarios objeto de inversión, así como sobre los riesgos asociados, por lo cual se le recomienda revisar con destalle el prospecto y asesorarse antes de tomar su decisión de inversión.
+e. Los fondos de inversión son patrimonios separados pertenecientes a los inversionistas que son administrados por una sociedad administradora de fondos de inversión. Al invertir en este fondo de inversión usted no está invirtiendo en las entidades bancarias, financieras o empresas del grupo económico del que forma parte la sociedad que lo administra.
+(Así adicionado el inciso anterior por el artículo 2° inciso b) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
+f. En el caso de fondos garantizados: "El fondo garantizado tiene por objetivo asegurar un porcentaje del capital invertido a su vencimiento, sujeto a las condiciones y restricciones establecidas en el prospecto. No se asegura el rendimiento ni el valor de participación antes del vencimiento del fondo. Este fondo asegura el ___% del capital invertido."
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso b) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso e) al inciso f))
+g. En el caso de fondos de procesos de titularización: "Los fondos de inversión de procesos de titularización tiene características especiales en cuanto a los activos que lo conforman, por lo que se advierte al inversionista sobre la importancia de asesorarse y revisar con detalle el prospecto antes de tomar la decisión de invertir".
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso b) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso f) al inciso g))
+h. En el caso de fondos inmobiliarios o de desarrollo de proyectos[1] con activos fuera del territorio costarricense: "La SUGEVAL le advierte que este fondo de inversión puede tener características especiales en cuanto a la estructura de la propiedad de los activos inmobiliarios objeto de inversión, así como sobre los riesgos asociados, por lo cual se le recomienda revisar con destalle el prospecto y asesorarse antes de tomar su decisión de inversión.
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso b) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso g) al inciso h))
+i. En el caso de fondos financieros, si como parte de la estrategia de diversificación se establece que el fondo puede invertir un porcentaje igual o superior al treinta y cinco por ciento (35%) del total de activos del fondo en valores emitidos o avalados por un solo emisor, se debe revelar como mínimo la siguiente leyenda con un formato de letra en "negrita" y en color rojo: "Este fondo de inversión podrá invertir hasta [Indicar porcentaje] del total de activos en el emisor, fondo de inversión o fondo de inversión cotizado entiéndase Exchange Traded Funds (ETF) [Indicar los emisores, fondos de inversión o ETF] lo que implica un riesgo por concentración en estos activos".
+(Así adicionado el inciso anterior por el artículo 2° inciso c) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
+j. En el caso de fondos inmobiliarios y de desarrollo de proyectos, si como parte de la estrategia de diversificación se establece que el fondo puede tener una concentración igual o mayor al 25% de los ingresos mensuales provenientes de una misma persona física o jurídica o de personas pertenecientes al mismo grupo financiero o económico se debe revelar la siguiente leyenda con un formato de letra en "negrita" y en color rojo: "Este fondo podrá recibir hasta un [Indicar porcentaje] del total de sus ingresos mensuales provenientes de una misma persona física o jurídica o de personas pertenecientes a un mismo grupo financiero o económico lo que implica un riesgo por concentración de ingresos".
+(Así adicionado el inciso anterior por el artículo 2° inciso c) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 1.9 (Derogado por acuerdo SGV-218 del 19 de agosto de 2016).
 2. TABLA DE CONTENIDO O ÍNDICE
 Incluir una tabla de contenido o índice del prospecto, según los apartados que se indican en este Anexo.
@@ -34,14 +44,20 @@ d. Conocimientos y experiencia previa en el mercado de valores o en los activos 
 INFORMACIÓN SOBRE LA SOCIEDAD ADMINISTRADORA Y SU GRUPO FINANCIERO
 Información sobre la Sociedad Administradora
 Direcciones | (Indicar dirección, teléfono, fax, apartado postal, correo electrónico y página Web.)")
-3.1 Bis. Definición del Modelo de Negocio del Fondo de Inversión, que considere al menos los siguientes aspectos:
-[imagen]
+3.1 Bis. Descripción del Modelo de Negocio del Fondo de Inversión, que considere al menos los siguientes aspectos:
+(Así modificada la denominación del inciso anterior por el artículo 2° inciso d) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026. Anteriormente se indicaba: "Definición del Modelo de Negocio del Fondo de Inversión, que considere al menos los siguientes aspectos")
+Modelo de Negocio del Fondo de Inversión
+Descripción del modelo de negocio del fondo de inversión | Indicar en qué consiste el modelo de negocio y su aplicación en los registros contables que se aplicará en la gestión de los instrumentos financieros que conforman la cartera del fondo. Debe ser consistente con los instrumentos financieros de la política de inversión, con la descripción de la Metodología para la valoración de los activos financieros del fondo de inversión de la sección 6.1 "De los Títulos de Participación del Fondo" de este anexo., así como de los riesgos asociados al modelo de negocio."
+(Así reformada la tabla anterior por el artículo 2° inciso d) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 (Así adicionado el punto 3.1 bis anterior por acuerdo n° SGV-A-236 del 16 de octubre de 2019)
 3.2 Tipo de fondo de conformidad con la siguiente tipología:
+Por su Renta:
+(Así incluía la tipología anterior por el artículo 2° inciso e) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 Tipo de Fondo
-Por su naturaleza | (Abierto o Cerrado) | Por su objetivo | (Mercado de dinero, Crecimiento o Ingreso)
-Por su diversificación1 (1Aplica para fondos de inversión financieros e inmobiliarios) | (Diversificado o No diversificado) | Por el Mercado en que invierte | ( Local, Internacional o No especializado por mercado)
-Moneda para la suscripción o reembolso de participaciones | (Indicar la moneda) | Por la especialidad de su cartera | (Fondos no financieros -Inmobiliario -Desarrollo de proyectos3 (3Concepto modificado por el acuerdo SGV-218 del 19 de agosto de 2016) -Procesos de titularización Fondos financieros - Pública - Privada - Internacional - No especializado por cartera)
+Por su naturaleza | (Abierto o Cerrado) | Por su objetivo | (Mercado de dinero, Corto Plazo, Crecimiento o Ingreso)
+Moneda para la suscripción o reembolso de participaciones | (Indicar la moneda) | Por el Mercado en que invierte | (Local, Internacional o No especializado por mercado)
+Por su renta (aplica para la cartera financiera en todos los tipos de fondos de inversión) | - Fija. - Variable Acciones. - Variable Fondos de inversión. - Variable Acciones, Fondos de inversión y Otros. - No especializado. | Por la especialidad de su cartera | (Fondos no financieros -Inmobiliario -Desarrollo de proyectos -Procesos de titularización Fondos financieros - Pública - Privada - No especializado por cartera)
+(Así reformada la tabla anterior por el artículo 2° inciso e) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 3.3 Nombre del gestor del fondo, entidad de custodia, agente de pago y calificación de riesgo.
 Gestor del Portafolio, Custodia y Calificación de riesgo
 Nombre del Gestor del fondo4 (4En el caso de fondos de desarrollo de proyectos y fondos de procesos de titularización, si la figura del gestor del portafolio se integra como parte de las funciones del comité de inversiones, se debe revelar dicha situación.) | (Indicar el nombre completo)
@@ -57,10 +73,7 @@ Monto de la Emisión | (Indicar el monto total autorizado) | Plazo máximo para 
 Valor nominal de la participación | (Indicar el monto) | Vencimiento del fondo | (Fecha o indicar que no tiene un vencimiento)
 Número de participaciones Autorizadas | (Indicar el número) | Código ISIN | (Código)
 Monto mínimo de participaciones para lograr la política de inversión y cubrir los costos de operación del fondo | (Indicar el monto mínimo, en caso necesario las explicaciones y aclaraciones adicionales que estime la sociedad administradora)
-Monto autorizado
-Monto de la Emisión | (Indicar el monto total autorizado) | Número de participaciones autorizadas | (Indicar el número)
-Valor nominal de la participación | (Indicar el monto) | Vencimiento del fondo | (Fecha o indicar que no tiene un vencimiento)
-Código ISIN | (Código) |
+(Eliminada la tabla segunda del numeral 3.4) anterior por el artículo 2° inciso f) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 3.5 En el caso de los fondos cerrados que posean un programa de colocación de participaciones:8
 (8Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 | Monto autorizado
@@ -80,10 +93,52 @@ Nombre de la entidad garante | (Indicar el nombre completo) | Porcentaje que se 
 Beneficiarios de la garantía | (indicar que los beneficiarios son los inversionistas que participen en el fondo de inversión a la fecha de vencimiento)
 Condiciones de la garantía | (Describir las condiciones)
 Indicación del proceso para su ejecución | (Describir el proceso)
-4. POLÍTICA DE INVERSIÓN
+4. POLÍTICA DE INVERSIÓN Y DISPOSICIONES OPERATIVAS.
+(Así reformado el párrafo anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
+4A Política de inversión
+(Así adicionado el párrafo anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
+"POLÍTICA DE INVERSIÓN DE ACTIVOS FINANCIEROS (Límites definidos sobre la base de activos totales)
+MONEDA DE LOS VALORES EN QUE ESTÁ INVERTIDO EL FONDO
+(Indicar moneda o monedas) | % mínimo | % máximo
+Cartera asociada a emisiones temáticas | Indicar tipo y porcentaje del total de activos. Políticas de gestión de inversiones sostenibles, límites o prohibiciones para las inversiones que fomentan la fabricación de armamento o cualquier producto que pueda afectar negativamente a las personas y su entorno.
+DETALLE DE TIPOS DE ACTIVOS
+Depósitos a la vista o efectivo Aplica para todos los fondos de inversión. | (Detallar el límite mínimo y máximo independientemente del tipo de entidad en que se encuentren los recursos). Atender los límites prudenciales correspondientes. Si el fondo prevé situaciones para posicionarse en altos niveles de efectivo independientemente del tipo de entidad en que se mantenga, se debe indicar el porcentaje previsto sobre el activo total, las situaciones en que se puede presentar dicho nivel y señalar que es una situación temporal. Revelar los límites mínimos y máximos que mantenga por tipo de entidad (incluso cuentas corrientes) según la siguiente clasificación: intermediarios financieros con garantía del Estado, intermediarios financieros creados por ley especial, intermediarios financieros del sector privado, Banco Central de Costa Rica y bancos del exterior.
+(Indicar el tipo de entidad a la cual aplican los límites respectivos) | % mínimo | % máximo
+TIPOS DE VALORES
+Valores de deuda | % mínimo | % máximo
+Participaciones de fondos, esquemas de inversión colectiva, y fondos que emulen índices incluidos los ETF (por sus siglas en inglés Exchange Traded Funds) | % mínimo | % máximo
+Valores accionarios, cuotas mutualistas, otros valores de contenido patrimonial | % mínimo | % máximo
+Productos estructurados | % mínimo | % máximo
+CONDICIONES PARA VALORES DE RENTA FIJA
+Duración de la cartera de renta fija, en días | mínimo | máximo
+Duración promedio de la cartera de renta fija, en días |
+"POLÍTICA DE INVERSIÓN DE ACTIVOS FINANCIEROS (Límites definidos sobre la base de activos totales)
+Calificación de riesgo mínima exigida a los valores de renta fija |
+OTRAS OPERACIONES
+Operaciones diferidas de liquidez BCCR de más de 30 días | % mínimo | % máximo
+Contratos de reporto posición vendedor a plazo [1] | % mínimo | % máximo
+| |
+MERCADO
+Países o zonas geográficas en que invierte: (Detallar cada país o zona en que invierte al que le aplica el respectivo límite) | % mínimo | % máximo
+Sector en que invierte: (Detallar los sectores en que invierte al que le aplica el respectivo límite, por ejemplo: comercio, servicios, industria, agropecuario, inmobiliario, etc. En el caso de inversiones en fondos de inversión, indicar el sector del activo subyacente. Por ejemplo, para fondos que emulen el índice S&P 500, indicar multisectorial.) | % mínimo | % máximo
+RECURSOS NECESARIOS PARA GESTIONAR EL RIESGO DE LIQUIDEZ (Fondos abiertos)
+Especificar los instrumentos y los porcentajes aplicables para cada uno de ellos | % mínimo | % máximo
+OTRAS POLÍTICAS DE INVERSIÓN
+(Describir otras políticas adicionales o ampliar lo indicado en los ítems anteriores)
+Valores cuyo emisor sea una entidad o empresa integrante o vinculada al grupo o conglomerado financiero de la sociedad administradora. (Para el caso de una emisión de un proceso de titularización, dichas condiciones deben determinarse respecto del originador) | % mínimo | % máximo
+Concentración máxima en valores emitidos o avalados por un solo emisor (Para el caso de una emisión de un proceso de titularización, dichas condiciones deben determinarse respecto del originador). Si la concentración máxima es igual o superior al 35% del total de activos del fondo, se debe identificar en cual o cuales emisores se podría presentar la concentración. | (Indicar porcentaje)
+Concentración máxima en una sola emisión o valor como porcentaje de la emisión en circulación. (Para el caso de una emisión de un proceso de titularización, dichas condiciones deben determinarse respecto del originador). | (Indicar porcentaje)
+"POLÍTICA DE INVERSIÓN DE ACTIVOS FINANCIEROS (Límites definidos sobre la base de activos totales)
+ESQUEMA DE FINANCIAMIENTO
+Nivel máximo de endeudamiento del fondo | (Indicar porcentaje)
+Moneda de contratación de las deudas del fondo | (Indicar la moneda)
+|
+[1] Nota: En los cálculos de los límites establecidos en el prospecto se consideran los valores que el fondo tenga derecho de adquirir por la contratación de operaciones de reporto o reporto tripartito según su subyacente."
+(Así adicionada la tabla anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 3.
 4.
-4.1. En el caso de que el fondo invierta en activos financieros:
+4 A.1En el caso de que el fondo invierta en activos financieros:
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso 4.1) a 4A1))
 | Política de Inversión de activos financieros
 | Moneda de los valores en que está invertido el fondo | (Moneda o monedas)
 | Tipos de valores | Detalle | Porcentaje máximo de inversión
@@ -105,8 +160,9 @@ Política para la administración y control de la liquidez | 9 (9 Sección derog
 Límites especiales para fondos del mercado de dinero | (Describir los límites especiales indicados en el artículo 59 del Reglamento. Esta revelación solo aplica en el caso de fondos de inversión del mercado de dinero) |
 Nivel máximo de endeudamiento del fondo | (porcentaje) | Moneda de contratación de las deudas del fondo | (Indicar la moneda) |
 | | | | | | | | | |
-4.2 En el caso de fondos inmobiliarios, adicionalmente se debe revelar: 10
+4A.2 En el caso de fondos inmobiliarios, adicionalmente se debe revelar: 10
 (10Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso 4.2) a 4A.2))
 | Política de Inversión de activos inmobiliarios
 | Tipo de inmuebles | (Comercio, Oficinas, Hoteles, Restaurantes, Bodegas, otros) | Porcentaje mínimo de inversión en activos inmobiliarios | (porcentaje)
 | Países donde se pueden ubicar los inmuebles | (País o países específicos, en el caso de que el fondo pueda adquirir inmuebles fuera del territorio nacional a través del uso de vehículos de estructuración, como figuras societarias o fideicomisos, se debe incluir la siguiente leyenda con un formato de letra en "negrita": "Mediante modificaciones al prospecto se adicionará información sobre aspectos específicos de la estructura legal que se utilizará para la adquisición de bienes inmuebles en el extranjero.")
@@ -119,8 +175,9 @@ Otras políticas de inversión | (Describir las políticas) |
 Esquema de financiamiento |
 Nivel máximo de endeudamiento del fondo | (Porcentaje) | Moneda de contratación de las deudas del fondo | (Indicar la moneda) |
 | | | | | | | |
-4.3 En el caso de fondos de desarrollo de proyectos, adicionalmente se debe revelar:11
+4A3En el caso de fondos de desarrollo de proyectos, adicionalmente se debe revelar:11
 (11Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso 4.3) a 4A.3))
 | Política de Inversión de proyectos de desarrollo
 | Descripción del proyecto | (Descripción del proyecto concreto de modo que se conozca en forma general qué se va a desarrollar, cuándo, cómo, si se desarrollará por etapas y si incluye equipamiento u otros activos y la prestación de servicios complementarios, los cuales son de carácter accesorio. Adicionalmente se debe incluir una leyenda que indique: "En la sección ___ se describen las principales características del proyecto a desarrollar.")
 | Ubicación geográfica | (Descripción)
@@ -146,7 +203,8 @@ Concentración máxima de ingresos provenientes de un inquilino | (porcentaje) |
 Política de arrendamiento de inmuebles a personas o compañías relacionadas a la sociedad administradora | (Indicar la política) |
 Otras políticas de inversión | (Describir las políticas) |
 | | | |
-4.4 En el caso de fondos de procesos de titularización, adicionalmente se debe revelar:
+4A.4 En el caso de fondos de procesos de titularización, adicionalmente se debe revelar:
+(Así modificada la numeración del inciso anterior por el artículo 2° inciso g) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que lo traspaso del antiguo inciso 4.4) a 4A.4))
 | Política de Inversión en paquetes de flujos de ingreso o activos
 | Descripción del mecanismo | (Breve descripción del proceso de titularización y del mecanismo de estructuración)
 | Tipo de flujos de ingreso o activos por titularizar | (Indicar los tipos de flujos o activos que pueden titularizarse pars el fondo )
@@ -158,9 +216,15 @@ Otras políticas de inversión | (Describir las políticas) |
 | Mecanismos de apoyo crediticio
 | Descripción de los mecanismos internos que utilizará el fondo de inversión de inversión | (Indicar los mecanismos internos, los cuales deben encontrarse de conformidad con normativa vigente)
 Descripción de los mecanismos externos que utilizará el fondo de inversión | (Indicar los mecanismos externos, los cuales deben encontrarse de conformidad con normativa vigente) |
-Comité de selección y vigilancia |
-Descripción de principales funciones del comité | (Describir las funciones y responsabilidades del comité) |
+(Mediante el artículo 2° inciso j) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, se acordó trasladar la información de la sección 4.4 relacionada con el comité de selección y vigilancia a un nuevo apartado 4B.4 sobre disposiciones operativas para fondos de inversión de titularización y que se lea de la siguiente forma: "4B.4. En el caso de fondos de titularización) |
+| |
 | | | |
+4A.5. En el caso de fondos temáticos, adicionalmente se debe revelar:
+POLÍTICA DE INVERSIÓN PARA FONDO TEMÁTICOS (fondos con clasificación verde, social o sostenible)
+Uso de los fondos | (Describir el uso que se le dará a los recursos. Identificar la categoría y subcategoría en que se encuentra el proyecto con fines verdes, sociales y sostenibles y la taxonomía o lista de proyectos elegibles utilizada para identificar un proyecto o actividad como tal. Definir si el proyecto se va a financiar totalmente con los fondos captados mediante las emisiones temáticas, o si adicionalmente va a contar con otras fuentes de financiamiento. Detallar de conformidad con el inciso 1 del artículo 8 del acuerdo SGV-A-252).
+Proceso de evaluación y selección de proyectos o actividades | (Indicar los objetivos que se buscan alcanzar con los recursos captados, así como los indicadores de medición sobre la contribución de los proyectos a financiar. Detallar de conformidad con el inciso 2 del artículo 8 del acuerdo SGV-A-252).
+Gestión de los fondos | (Proceso formal que utilizará para administrar y monitorear los recursos captados, distinguiendo entre los recursos invertidos y aquellos que no han sido asignados. Detallar de conformidad con el inciso 3 del artículo 8 del acuerdo SGV-A-252)."
+(Así adicionada la sección 4A.5) anterior por el artículo 2° inciso h) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 4B. DISPOSICIONES OPERATIVAS 12
 (12Sección adicionada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 4B.1 En el caso de fondos abiertos, se debe revelar:
@@ -174,22 +238,16 @@ Lineamientos para la administración y control de la liquidez | (Describir la po
 Políticas y lineamientos sobre reparaciones, remodelaciones, mejoras y ampliaciones de inmuebles | (Indicar los lineamientos) |
 Políticas y lineamientos sobre la creación y uso de reservas | (Indicar los lineamientos para su creación, para su uso, indicar que no constituye un mecanismo que pretenda garantizar al inversionista un rendimiento determinado) |
 | | | |
-(*) 4B.3. En el caso de que se hayan definido objetivos o lineamientos de la entidad en relación con los temas ambientales, sociales y de gobernanza, se debe revelar:
-Disposiciones ambientales, sociales y de gobernanza
-Objetivos o lineamientos | Describir los objetivos o
-de gestión de activos bajo | lineamientos aprobados
-factores ambientales, | para el fondo relacionados
-sociales y de gobernanza. | con los factores
-ambientales, sociales y de
-gobernanza, y describir la
-participación de los órganos
-de administración, dirección
-y supervisión en el
-seguimiento y supervisión
-de las acciones realizadas
-para la consecución de
-dichos objetivos.
+(*) 4B.3. En el caso de fondos temáticos, adicionalmente se debe revelar:
+Responsable a cargo de controlar la evaluación y selección de proyectos. | De conformidad con el inciso c del punto 2. del artículo 8 del Acuerdo SGV- A-252.
+Sitio web: | En esta sección incluir sitio web en el cual se incluye, el informe sobre la utilización de los recursos captados mediante emisiones, programas o fondos de inversión temáticos. De conformidad con el punto 4. del artículo 8 del Acuerdo SGV-A-252.
+Revisión externa | Indicar el nombre del revisor externo, nombre de la metodología o enfoque analítico utilizado para evaluar este tipo de emisiones y fecha de su elaboración. En el caso de que se otorgue una clasificación a la emisión basada en una escala de valoración, se deberá incluir la puntuación y su significado. De conformidad con el punto 5. del artículo 8 del Acuerdo SGV- A-252."
 (*) (Así adicionado el punto 4 B.3) anterior por el artículo 1° del acuerdo N° SGV-A-268 del 21 de julio de 2022)
+(Así reformada la sección 4B.3) anterior por el artículo 2° inciso i) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
+4B.4. En el caso de fondos de titularización
+Comité de selección y vigilancia
+Descripción de principales funciones del comité | (Describir las funciones y responsabilidades del comité)"
+(Así adicionada la sección 4B.4) anterior por el artículo 2° inciso j) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 4C DESCRIPCIÓN DEL PROYECTO13
 (13Sección adicionada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 En el caso de fondos de desarrollo de proyectos, se debe revelar la siguiente información. En los casos en que se haga referencia a anexos, estos deben ser claramente identificados:
@@ -246,6 +304,10 @@ Otros riesgos: (incluir nombre) | (Ídem)
 [imagen]
 [imagen]
 (*) (Así adicionada la tabla anterior por acuerdo N° SGV-A-236 del 16 de octubre de 2019)
+"Riesgo por concentración en valores emitidos o avalados por un solo emisor. | (Ídem) (Según corresponda con la sección de política de inversión).
+Riesgo por concentración en una sola emisión o valor como porcentaje de la emisión en circulación. | (Ídem) (Según corresponda con la sección de política de inversión).
+Riesgos asociados al endeudamiento del fondo de inversión. | Referirse al riesgo inherente para el fondo de inversión asociado por las operaciones de endeudamiento, según el inciso a. del artículo 48 del Reglamento."
+(Así adicionada la tabla anterior por el artículo 2° inciso k) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 5.2.1 En el caso de fondos de desarrollo de proyectos14, adicionalmente se debe revelar:15
 (14Concepto modificado por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 (15Sección modificada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
@@ -279,6 +341,11 @@ Otros riesgos: (incluir nombre) | (Ídem)
 5.3 Administración de riesgos: La sociedad administradora es responsable de revelar en términos generales en el prospecto las medidas que ha implantado para la administración de los riesgos:
 Administración de los riesgos
 (Describir las medidas para administrar los riesgos. Deben referirse a todos y cada uno de los riesgos descritos en el prospecto)
+5.2.4. En el caso de fondos temáticos o fondos que incluyan en sus políticas la inversión en valores relacionados con sostenibilidad (ambientales, sociales, gobernanza), adicionalmente se deben revelar:
+| (Describir el riesgo en un lenguaje simple que permita su fácil comprensión por parte del inversionista al que se dirige el fondo, e indicar para cada riesgo las posibles consecuencias que puede tener en su inversión).
+Riesgos asociados a la inversión en valores en valores o activos que generen beneficios ambientales, sociales o sostenibles | Indicar por ejemplo los riesgos financieros inherentes asociados con los efectos físicos y de transición del cambio climático, riesgo de lavado verde, riesgo de falta de estandarización por la ausencia de criterios uniformes para medir el impacto ASG, entre otros.
+Riesgos asociados a la inversión en un proyecto verde, social o sostenible. | Indicar los riesgos propios de invertir en valores de emisiones temáticas asociadas a un proyecto verde, social o sostenible, por ejemplo: riesgo de que el proyecto a financiar con las emisiones no genere los beneficios esperados, riesgo operativo que no permita garantizar que los fondos se destinen al financiamiento de dichos proyectos, riesgos de pérdida de la etiqueta temática, riesgo por la disponibilidad de valores de oferta pública temáticos, entre otros.
+(Así adicionada la sección 5.2.4) anterior por el artículo 2° inciso l) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 DE LOS TÍTULOS DE PARTICIPACIÓN DEL FONDO
 6.1. Se debe revelar la siguiente información: 16
 (16Sección modificada por el Acuerdo del Superintendente SGV-A-201 del 2 de octubre del 2015.)
@@ -323,7 +390,7 @@ Hora de corte para trámite de suscripciones y reembolsos | (Indicar la hora. Ad
 Trámite de suscripciones y reembolsos | (Describir el trámite, indicar que se atenderán por orden cronológico)
 Lugares para realizar los trámites de suscripciones y reembolsos | (Indicar el o los lugares o medios)
 Plazo para el reembolso de las participaciones | (Indicar los días hábiles)
-Límites máximos de concentración en un solo inversionista | (Indicar la política y el mecanismo previsto para su control y aplicación. En caso de que no se disponga un política deberá indicarse expresamente)
+Límites máximos de participación por inversionista (Así reformado el párrafo anterior por el artículo 2° inciso m) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026) | (Indicar la política y el mecanismo previsto para su control y aplicación. Además, señalar las acciones a realizar para aquellos inversionistas que excedan el límite. Aplica para fondos abiertos únicamente). (Así reformado el párrafo anterior por el artículo 2° inciso m) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026)
 Lineamientos para suspender la suscripción y reembolso de participaciones | (Indicar los lineamientos)
 Otros lineamientos para suscripción y reembolso de participaciones | (Indicar los lineamientos adicionales que la sociedad considere necesarios para la relación con los inversionistas. Los aspectos adicionales que se establezcan deben encontrarse de conformidad con normativa vigente)
 7.2. Inciso derogado por el Tribunal Contencioso Administrativo mediante Resolución No. 0066-2009 (20 de enero 2009) y confirmado por la Sala Primera de la Corte Suprema de Justicia en Voto No. 1000-F-2010 del 26 de agosto 2010.
@@ -375,7 +442,8 @@ Informes de avance de los proyectos | "Trimestral" | (ídem)
 9.2 Se debe revelar el régimen fiscal que le aplica al fondo:
 Régimen fiscal que le aplica al fondo
 (Describir el régimen fiscal que le aplican al fondo. En caso de inversión en emisores o activos extranjeros, incluir literalmente con un formato de letra en "negrita": "El régimen fiscal de las inversiones en activos del extranjero será el que aplique específicamente para cada país en el que se invierte")
-10. INFORMACIÓN SOBRE LA SOCIEDAD ADMINISTRADORA Y SU GRUPO FINANCIERO
+10. 10. INFORMACIÓN SOBRE LA SOCIEDAD ADMINISTRADORA Y SU GRUPO FINANCIERO
+(Así reformado el enunciado del párrafo anterior por el artículo 2° inciso n) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026, que le incluyó el enumerado N° 10))
 Información sobre la Sociedad Administradora |
 Direcciones | (Indicar dirección, teléfono, fax, apartado postal, correo electrónico y página Web.) |
 Grupo financiero al que pertenece | (Nombre completo) |
@@ -389,7 +457,7 @@ Junta directiva | (Nombre completo) | (cargo) |
 (idem) | (cargo) |
 (idem) | (cargo) |
 (idem) | (cargo) |
-Comité de inversión | (Nombre completo e indicar la experiencia en materia de inversiones según el tipo de activos que indique la política de inversión del fondo) | (cargo) |
+Comité de inversión | (Nombre completo e indicar los años de experiencia en materia de inversiones, según el tipo de activos definido en la política de inversión del fondo. Para estos efectos, se entenderá por experiencia la trayectoria práctica y profesional acumulada en cargos anteriores relacionados directamente con la gestión, análisis o toma de decisiones en inversiones. Indicar que el presidente es "Miembro independiente (Así reformado el párrafo anterior por el artículo 2° inciso n) del acuerdo N° SGV-A-11-2026 del 18 de mayo del 2026) | (cargo) |
 | (idem) | (cargo)
 (idem) | (cargo)
 (idem) | (cargo)
