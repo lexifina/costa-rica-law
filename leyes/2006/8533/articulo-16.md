@@ -1,4 +1,4 @@
-Artículo 16.—Serán deberes y atribuciones de la Junta Nacional de Ferias del Agricultor:
+Artículo 16.-Serán deberes y atribuciones de la Junta Nacional de Ferias del Agricultor:
 a) Evaluar la gestión de todos los integrantes del Programa Nacional de Ferias del Agricultor.
 b) Resolver los cuestionamientos, los planteamientos y las apelaciones que le sean elevados por los comités regionales.
 c) Dictar las políticas, las directrices y los lineamientos para administrar y mejorar el Programa Nacional de Ferias del Agricultor, y trasladarles las directrices técnicas emitidas por el CNP a los demás componentes del Programa, así como dar seguimiento a su ejecución.
@@ -10,3 +10,6 @@ h) Velar por que los entes administradores y los comités regionales utilicen ad
 i) Suspender y sustituir temporalmente en el ejercicio de sus funciones, a los comités regionales que en su desempeño incurran en anomalías graves, de conformidad con la presente Ley y su Reglamento, así como el previo seguimiento del debido proceso.
 j) Llevar un registro actualizado, en el ámbito nacional, con las calidades de los entes administradores de las ferias del agricultor y los agricultores participantes.
 k) Convocar la realización de dos asambleas anuales, con la participación de todos los miembros de las juntas directivas de los comités regionales del país y definir la agenda de dichas asambleas, en las que se revisarán las políticas seguidas, a efecto de determinar los planes, los proyectos y los aspectos relevantes para el desarrollo del Programa Nacional de Ferias del Agricultor. Con el objetivo de coadyuvar en la definición de políticas de carácter general para el Programa, en estas asambleas podrán participar, con voz pero sin voto, representantes del Estado, las municipalidades y el CNP.
+I) Rendir informes sobre ingresos, gastos conforme a las políticas, las directrices y los lineamientos de administración y mejora del Programa Nacional de Ferias, así como presentar los estados financieros al cierre de cada ejercicio fiscal ante el CNP, el cual podrá revisarlos o someterlos a auditoría antes de refrendo y publicación para acceso público.
+La Asamblea General, mediante un acuerdo aprobado por mayoría simple de los presentes, podrá contratar una auditoría externa a cargo del presupuesto de la Junta Directiva.
+(Así adicionado el inciso l) anterior por el artículo 2° de la ley N° 10938 del 30 de abril de 2026)
