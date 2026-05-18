@@ -1,0 +1,1 @@
+ARTÍCULO 51° Los Comités Distritales o Comunales deberán reunirse en sesión pública, una vez cada ocho días ordinaria, y extraordinariamente cuando lo requieran. El CCDR a través de sus Subprocesos deben capacitar a los miembros de los Comités Distritales o Comunales en relación con el orden del manejo de correspondencia, actas, proyectos, planes, políticas, entre otros.
