@@ -14,3 +14,4 @@ Reglamento para la administración y funcionamiento de los cementerios municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-01-15 | la propia norma |
+| 2 | 2026-05-18 | Reglamento municipal 107 (2026-05-18) |
