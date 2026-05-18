@@ -1,0 +1,1 @@
+ARTÍCULO 39. Justificación de ausencias por enfermedad. Para justificar ausencias por enfermedad la persona trabajadora deberá presentar el comprobante de incapacidad emitido por un médico autorizado de la Caja Costarricense del Seguro Social médico de empresa o del Instituto Nacional de Seguros.

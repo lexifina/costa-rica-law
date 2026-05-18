@@ -1,0 +1,2 @@
+CAPÍTULO XI. USO DE REDES SOCIALES
+ARTÍCULO 61. Manifiesto sobre el uso de redes sociales. Los valores establecidos en el Banco requieren que sus actividades y procesos operativos se desarrollen dentro de los más altos estándares de calidad, tomando en consideración valores éticos y morales. En virtud de lo anterior, todas las personas trabajadoras que tengan acceso a correo electrónico y/o Internet, a computadoras o equipos similares deberán acatar las disposiciones del presente reglamento y la demás normativa interna sobre la materia.

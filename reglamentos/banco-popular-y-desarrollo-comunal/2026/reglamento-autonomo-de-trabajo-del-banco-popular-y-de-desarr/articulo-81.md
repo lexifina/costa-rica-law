@@ -1,0 +1,1 @@
+ARTÍCULO 81. Amonestación escrita. La amonestación escrita se podrá aplicar cuando la persona trabajadora incurra en una falta que no dé merito para la imposición de una sanción disciplinaria mayor. Dicha sanción se hará dejando constancia por escrito y podrá incluir o no un apercibimiento.

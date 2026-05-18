@@ -1,0 +1,1 @@
+ARTÍCULO 90. Fueros de protección. Las personas trabajadoras que cuenten con fuero de protección, sólo podrán ser despedidas por las faltas disciplinarias en las que incurran, previa autorización del Ministerio de Trabajo y Seguridad Social.

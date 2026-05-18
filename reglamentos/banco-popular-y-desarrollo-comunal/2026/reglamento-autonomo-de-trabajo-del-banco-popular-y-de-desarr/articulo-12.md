@@ -1,0 +1,5 @@
+ARTÍCULO 12. Período de prueba. Salvo que en la normativa interna o externa aplicable se establezcan excepciones, en los contratos de trabajo, durante los primeros tres meses, las personas trabajadoras se considerarán en período de prueba, contado desde su ingreso a la Institución o desde el inicio en un nuevo cargo, según sea el supuesto.
+Para efectos de plazas vacantes con nombramiento en propiedad, superado dicho período con una evaluación satisfactoria por parte de la jefatura inmediata (calificación igual o mayor a 70), se formalizará su designación como colaborador regular o titular en el puesto correspondiente.
+Corresponderá a la División Gestión del Talento Humano, en conjunto con el superior inmediato del colaborador, aplicar los instrumentos técnicos dispuestos para la evaluación, conforme a los lineamientos institucionales vigentes.
+La División Gestión de Talento Humano, custodiará el expediente y la Dirección Corporativa de Capital Humano ejecutará las acciones que correspondan.
+El presente artículo será aplicado atendiendo a la normativa y procedimientos internos del Banco.

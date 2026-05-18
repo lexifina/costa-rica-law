@@ -1,0 +1,2 @@
+ARTÍCULO 16. Funciones. Las personas trabajadoras realizarán aquellas funciones que sean compatibles con el perfil del cargo que ocupan, ya sea en la dependencia en la que formalmente se encuentren nombrados o en cualquier otra que requiera el Banco, atendiendo a la necesidad del servicio y el buen manejo y aprovechamiento de los recursos humanos institucionales.
+Todo lo anterior aplicará respetando la dignidad, integridad y los derechos laborales de las personas trabajadoras.

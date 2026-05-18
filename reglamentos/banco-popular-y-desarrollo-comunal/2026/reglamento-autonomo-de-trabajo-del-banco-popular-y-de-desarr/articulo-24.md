@@ -1,0 +1,1 @@
+ARTÍCULO 24. Categorías de puestos y su respectivo salario. La aprobación de las remuneraciones de las escalas de salarios y del conjunto de categorías de los puestos del Banco estará a cargo de la Junta Directiva Nacional, previa presentación por parte de la Gerencia General Corporativa.

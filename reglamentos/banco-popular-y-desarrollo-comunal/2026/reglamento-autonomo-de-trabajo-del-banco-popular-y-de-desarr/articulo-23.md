@@ -1,0 +1,3 @@
+ARTÍCULO 23. Objetivos del sistema de remuneración salarial. Sin perjuicio de otros posibles, el sistema de remuneración del Banco tendrá como objetivos principales para todas las clases de puestos de la Institución los siguientes:
+a. Retribuir de manera equitativa conforme al puesto desempeñado, atendiendo a los deberes, responsabilidades, competencias y demás factores relevantes, garantizando en todo momento el equilibrio salarial interno.
+b. Motivar un alto desempeño y enfoque del personal hacia la eficiencia y productividad basada en el trabajo en equipo, la calidad y excelencia en el servicio al cliente.

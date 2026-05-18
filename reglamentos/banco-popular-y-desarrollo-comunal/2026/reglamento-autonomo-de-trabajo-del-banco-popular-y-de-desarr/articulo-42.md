@@ -1,0 +1,1 @@
+ARTÍCULO 42. Sobre el no pago de tiempo no laborado. El no pago del salario por faltas contra el deber de asistencia (tardías, abandono de labores u otros) responderá de forma exclusiva a la no remuneración por tiempo no laborado. Lo anterior no excluye el ejercicio de la potestad disciplinaria, conforme al régimen aplicable y las particularidades del caso concreto.

@@ -1,0 +1,2 @@
+ARTÍCULO 32. Deber de colaboración para laborar fuera de jornada ordinaria. Atendiendo al principio de colaboración y buena fe, así como la continuidad en la prestación del servicio público, las personas trabajadoras del Banco deberán laborar jornada extraordinaria cuando así lo requiera la Institución y no se les cause un perjuicio demostrable; la negativa injustificada podrá acarrear responsabilidad disciplinaria, lo que deberá valorarse en cada caso particular.
+La labor en jornada extraordinaria deberá ser excepcional.

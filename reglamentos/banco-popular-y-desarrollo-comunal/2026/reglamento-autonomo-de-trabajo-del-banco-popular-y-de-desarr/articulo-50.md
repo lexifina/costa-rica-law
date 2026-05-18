@@ -1,0 +1,3 @@
+SECCIÓN III. DIAS FERIADOS Y ASUETOS
+ARTÍCULO 50. Feriados y asuetos. En términos generales, se considerarán días hábiles ordinarios para el trabajo todos los días del año, excepto los feriados establecidos en el artículo 148 del Código de Trabajo, los días de descanso semanal y aquellos días que sean declarados como asueto y que resulten aplicables a la Institución a criterio de ésta. Todos los feriados serán de pago obligatorio.
+El pago de labores en días feriados se regirá por lo establecido en el Código de Trabajo y los asuetos serán pagados de la misma manera. Para el pago indicado se deberá considerar que, por tener el Banco una modalidad de pago mensual, el pago doble de jornada ordinaria se cumplirá abonando un salario adicional sencillo.

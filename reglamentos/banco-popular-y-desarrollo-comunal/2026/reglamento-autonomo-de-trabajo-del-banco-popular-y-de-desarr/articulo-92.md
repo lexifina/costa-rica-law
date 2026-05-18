@@ -1,0 +1,3 @@
+ARTÍCULO 92. Trámite general e informe de la investigación preliminar. La investigación preliminar se tramitará con absoluta confidencialidad y atendiendo a los principios de economía y celeridad procesal. Finalizada la investigación preliminar, el informe que resulte de ella será remitido a la brevedad a la instancia competente para ejercer la potestad disciplinaria, la que deberá resolver sobre la procedencia o no de la instauración de un procedimiento disciplinario.
+Lo indicado en el informe de la investigación preliminar tendrá carácter recomendativo.
+En caso de que no haya mérito para la apertura de un procedimiento, la instancia mencionada ordenará el archivo del caso, todo lo cual deberá quedar debidamente documentado.

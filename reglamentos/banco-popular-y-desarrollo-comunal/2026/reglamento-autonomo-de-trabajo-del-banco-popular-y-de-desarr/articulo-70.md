@@ -1,0 +1,1 @@
+ARTÍCULO 70. Regulación. Todo lo referente a las figuras y los procedimientos disciplinarios tendientes a determinar si existe falta por acoso, de naturaleza sexual o laboral, se regulará por los convenios internacionales ratificados por Costa Rica, las leyes aplicables y los reglamentos especiales internos correspondientes.

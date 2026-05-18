@@ -1,0 +1,3 @@
+SECCIÓN III. MEDIDAS ALTERNAS Y TERMINACIÓN ANTICIPADA DE LOS PROCEDIMIENTOS ADMINISTRATIVOS.
+ARTÍCULO 94. Medidas alternas al inicio de los procedimientos administrativos. El Banco podrá adoptar mecanismos anticipados para la resolución de conflictos y disputas laborales (cualquier situación que podría escalar a un proceso disciplinario o a una reclamación económica), con el propósito de evitar la apertura de procedimientos administrativos de carácter disciplinario y/o de responsabilidad patrimonial en los que eventualmente se determine la existencia de dichas responsabilidades.
+La definición, alcance, condiciones y procedimientos aplicables serán establecidos en la normativa interna.

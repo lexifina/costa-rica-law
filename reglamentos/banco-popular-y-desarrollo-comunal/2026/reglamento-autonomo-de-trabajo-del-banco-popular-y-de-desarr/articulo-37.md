@@ -1,0 +1,1 @@
+ARTÍCULO 37. Lineamientos en materia de registro, control de asistencia y reporte de faltas. La Dirección Corporativa de Capital Humano será la competente para dictar los lineamientos a seguir sobre la materia de registro, control de asistencia y reporte de faltas relacionadas.

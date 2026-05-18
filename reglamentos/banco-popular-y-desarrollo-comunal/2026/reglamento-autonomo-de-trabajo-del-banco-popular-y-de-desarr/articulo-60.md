@@ -1,0 +1,13 @@
+ARTÍCULO 60. Prohibiciones de las personas trabajadoras relacionadas al deber de probidad. Sin perjuicio de otras prohibiciones relacionadas al deber de probidad y buena fe, contenidas en el presente reglamento y demás normativa aplicable, las personas trabajadoras del Banco tendrán absolutamente prohibido:
+1) Recibir gratificaciones de cualquier naturaleza por servicios prestados como trabajadores del Banco, o valerse de su puesto para concertar negocios, trabajos o servicios profesionales con terceras personas.
+2) Colocar dinero al interés entre los trabajadores del Banco o recibido en préstamo a título gratuito de un subordinado.
+3) Utilizar los recursos y equipos facilitados por el Banco para el desarrollo de sus funciones para fines ajenos a la realización del trabajo o distintos de aquellos para los que han sido destinados por la Institución.
+4) Valerse de la función o del cargo que desempeñan en la Institución para obtener ventajas o beneficios personales.
+5) Solicitar y/o aceptar, directa o indirectamente, regalos, comisiones, premios, donaciones, dádivas, favores, propinas o beneficios de cualquier tipo o valor económico, ofrecidos o entregados, al margen de la ley, en razón o con ocasión del desempeño de su cargo en el Banco.
+6) Aprovecharse indebidamente de los servicios que presta el Banco, en beneficio propio, de familiares o amigos, sea directa o indirectamente.
+7) Arrogarse la representación del Banco para dirigir felicitaciones o censuras a dependencias o Instituciones públicas o privadas.
+8) Hacer uso del título oficial, los distintivos, la papelería o la influencia del Banco para asuntos de carácter privado.
+9) Poner a su servicio el personal colaborador a su cargo, en beneficio propio, de familiares o amigos. 10) Aceptar o emitir cartas de recomendación, haciendo uso de su cargo, en beneficio de personas o grupos específicos para procurar nombramientos, ascensos u otros beneficios. Lo anterior excluye las solicitudes de evaluación con fines laborales internos, así? como las notas de acreditación de hechos, como las de tipo académico emitidas en ese carácter.
+11) Utilizar indebidamente la información que conozcan en razón o con ocasión del desempeño del cargo, sea esta de carácter confidencial o no.
+12) Utilizar su cargo, sus funciones, la autoridad o influencia que pueda derivarse de él, para beneficiar a un partido político o candidato a puesto de elección popular.
+13) Incurrir en una infracción a las políticas que regulen la gestión de conflictos de interés del Banco. 14) Cualquier otra establecida en la legislación vigente y aplicable al personal del Banco o que se derive del contrato de trabajo y cargo desempeñado.

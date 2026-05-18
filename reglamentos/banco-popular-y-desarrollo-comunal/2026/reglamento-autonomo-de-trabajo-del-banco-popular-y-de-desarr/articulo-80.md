@@ -1,0 +1,1 @@
+ARTÍCULO 80. Amonestación verbal. La amonestación verbal se podrá aplicar cuando la persona trabajadora incurra en una falta muy leve que no amerite una sanción de amonestación escrita. Se dejará constancia escrita.

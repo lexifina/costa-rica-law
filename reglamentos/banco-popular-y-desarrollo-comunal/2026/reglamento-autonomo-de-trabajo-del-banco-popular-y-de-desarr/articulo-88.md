@@ -1,0 +1,1 @@
+ARTÍCULO 88. Forma y momento para contabilizar las ausencias a labores y las llegadas tardías. Para efectos disciplinarios, las ausencias y las llegadas tardías serán contabilizadas al final del mismo mes calendario.

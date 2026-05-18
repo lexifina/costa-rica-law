@@ -1,0 +1,3 @@
+ARTÍCULO 7. Tipos de nombramientos y su duración. De acuerdo con las necesidades del Banco, las condiciones de las labores que deban realizarse así como en función a la estrategia corporativa, operativa y comercial del Banco, el contrato de trabajo podrá convenirse en algunas de las siguientes modalidades, siempre en apego a la legislación de trabajo:
+Se entenderá a tiempo indeterminado el nombramiento a tiempo indefinido.
+Se entenderá a tiempo determinado el nombramiento que se realice para atender necesidades ocasionales del Banco. El contrato por tiempo fijo será susceptible de prórroga, de conformidad con la legislación laboral.

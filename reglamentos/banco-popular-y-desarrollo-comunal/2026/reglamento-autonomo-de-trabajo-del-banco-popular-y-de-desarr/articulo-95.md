@@ -1,0 +1,2 @@
+ARTÍCULO 95. Terminación anticipada de los procedimientos administrativos. El Banco podrá implementar un procedimiento sumario (abreviado) como mecanismo para la terminación anticipada de los procedimientos administrativos ordinarios de carácter disciplinario y/o de responsabilidad patrimonial.
+La definición, alcance, condiciones y procedimientos aplicables a este mecanismo serán establecidos en la normativa interna.

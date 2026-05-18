@@ -1,0 +1,1 @@
+ARTÍCULO 68. Publicidad. La Institución tendrá la obligación de dar a conocer a las personas trabajadoras y terceros interesados, las disposiciones contenidas en el presente Capítulo y aquellas que le resulten conexas, con el fin de informarles sobre la protección que el Banco brinda.
