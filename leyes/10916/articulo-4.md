@@ -1,0 +1,1 @@
+ARTÍCULO 4- Las escrituras e inscripciones registrales se formalizarán ante los notarios institucionales del Instituto de Desarrollo Rural (Inder), que la Presidencia Ejecutiva designe y estarán exentas del pago de impuestos, tasas, timbres y derechos municipales.

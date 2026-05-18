@@ -1,0 +1,1 @@
+ARTÍCULO 3- Las parcelas agrícolas segregadas, donadas y traspasadas, a cada una de las personas beneficiarias o sus sucesores legales o testamentarios, se inscribirán soportando los gravámenes y las anotaciones de la finca.
