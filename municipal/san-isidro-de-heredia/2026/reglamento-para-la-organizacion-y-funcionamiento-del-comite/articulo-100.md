@@ -1,0 +1,4 @@
+Artículo 100. Reglas para el cobro de tarifas. En relación con el cobro de las tarifas por el uso de las instalaciones deportivas y recreativas, se seguirán las siguientes reglas:
+a) Las tarifas son de cobro obligatorio y no pueden ser alteradas sin previa autorización debidamente justificada por el Comité Cantonal.
+b) Las tarifas deberán ser definidas a partir del estudio tarifario que sea realizado por la Administración Municipal con el apoyo de la persona administradora del CCDRSI, y deberán ser aprobadas por el Concejo Municipal siguiendo los procedimientos legales que tenga a lo interno la organización.
+c) Se exceptúa de todo pago a los equipos del Programa de Juegos Deportivos Nacionales del cantón y a las asociaciones deportivas del cantón que cuenten con convenio aprobado para tales efectos. Asimismo, cualquier otro grupo recreativo previo análisis y a discreción del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia.

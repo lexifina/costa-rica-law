@@ -1,0 +1,1 @@
+Artículo 112. Consecuencias de la omisión. En caso de incumplir con la presentación de los informes de ejecución indicados en este apartado, el CCDRSI no conocerá nuevas solicitudes para entrega de fondos. Si la omisión supera los seis meses el CCDRSI podrá valorar iniciar el proceso de desafiliación de la asociación.

@@ -1,0 +1,1 @@
+Artículo 44. Fecha y hora de sesiones. La designación del día y la hora de las sesiones ordinarias, serán acordados en la sesión inaugural de acuerdo con las regulaciones del presente reglamento. Por motivos especiales y del criterio de la mayoría, podrá variarse mediante acuerdo las fechas y horas de las sesiones.

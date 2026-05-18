@@ -1,0 +1,1 @@
+Artículo 18.- Plazo de nombramiento. Los miembros de la Junta Directiva durarán en sus cargos cuatro años, podrán ser reelegidos consecutivamente durante dos periodos. No devengarán dieta ni remuneración alguna proveniente de las arcas municipales.

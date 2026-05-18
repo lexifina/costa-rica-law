@@ -1,0 +1,1 @@
+Artículo 106. Programa de adquisiciones. Será responsabilidad de la Junta Directiva ajustarse a las reglas previstas en la normativa nacional para la elaboración y publicación del programa de adquisiciones del CCDRSI.

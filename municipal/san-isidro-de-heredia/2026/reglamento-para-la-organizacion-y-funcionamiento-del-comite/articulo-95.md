@@ -1,0 +1,3 @@
+SECCIÓN II
+DE LAS INSTALACIONES
+Artículo 95. Administración de instalaciones. El CCDRSI será el responsable y administrador general de las instalaciones que sean de su propiedad, o las dadas en administración por parte de la Municipalidad de San Isidro de Heredia o el ICODER, según lo dispuesto en la normativa aplicable. Además, la Municipalidad en coordinación con el CCDRSI podrá ceder su administración y mantenimiento a los comités comunales, distritales, organizaciones de desarrollo comunal constituidas por la Ley No. 3859, Ley sobre Desarrollo de la Comunidad, de 7 de abril de 1967, y sus reformas, así como a las asociaciones constituidas por la Ley No. 218, Ley de Asociaciones, del 8 de agosto de 1939, y sus reformas, siempre al amparo de convenios establecidos.

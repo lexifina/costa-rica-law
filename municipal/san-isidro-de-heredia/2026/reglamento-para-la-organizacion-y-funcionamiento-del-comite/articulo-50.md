@@ -1,0 +1,1 @@
+Artículo 50. Asistencia de terceros. La exposición de temas durante la sesión por parte de personas ajenas al Comité deberá tener una duración no mayor a la dispuesta por la Junta Directiva para cada caso concreto. Para tales efectos, las personas interesadas deberán solicitar audiencia a la Junta Directiva a través de los medios oficiales, y ser convocada mediante acuerdo.

@@ -1,0 +1,2 @@
+Artículo 31. Representantes del Concejo Municipal. La elección de las personas representantes del Concejo Municipal se llevará a cabo en sesión mediante el procedimiento de votación regular de acuerdos. Serán electas las dos personas candidatas que obtengan la mayor cantidad de votos.
+El Concejo podrá promover por medio de un acuerdo publicado en redes sociales, la presentación de curriculum por parte de personas interesadas en formar parte de la Junta Directiva del Comité, las cuales serán sometidas a valoración del cuerpo edil.

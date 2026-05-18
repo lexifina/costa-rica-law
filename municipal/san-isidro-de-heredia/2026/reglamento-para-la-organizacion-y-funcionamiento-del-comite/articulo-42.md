@@ -1,0 +1,1 @@
+Artículo 42. Justificación de ausencias. Todo miembro deberá, comunicar en forma escrita, las razones de su inasistencia a las sesiones, a más tardar dentro de los tres días hábiles siguientes de celebrada la sesión, en la oficina de la Junta Directiva del Comité Comunal; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

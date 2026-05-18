@@ -1,0 +1,2 @@
+Artículo 8.- Vinculación con la Municipalidad. El CCDRSI es una dependencia municipal en línea directa con el Concejo Municipal y vinculación administrativa con el resto de la institución.
+La Estructura organizativa, con excepción de la persona Administradora, estará bajo la responsabilidad de la Junta Directiva, para cuyo funcionamiento contará con todo el apoyo y ayuda del personal de la Municipalidad de San Isidro.

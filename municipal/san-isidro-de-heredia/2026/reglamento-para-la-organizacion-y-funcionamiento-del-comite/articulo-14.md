@@ -1,0 +1,1 @@
+Artículo 14 Inhibitorias. Están inhibidos para integrar la Junta Directiva del Comité Cantonal de Deportes y Recreación los concejales, el alcalde o alcaldesa, los alcaldes suplentes, el tesorero (a), el auditor y el contador (a), sus cónyuges o parientes en línea directa o colateral hasta tercer grado inclusive.

@@ -1,0 +1,1 @@
+Artículo 48. Mociones. Toda iniciativa de los miembros de la Junta Directiva, debe ser presentada por escrito a modo de moción y debidamente firmada. Los miembros pueden acoger mociones de particulares, que se relacionen con deporte, recreación y estilo de vida saludable para que sean conocidas por la Junta Directiva en las sesiones que se celebren.

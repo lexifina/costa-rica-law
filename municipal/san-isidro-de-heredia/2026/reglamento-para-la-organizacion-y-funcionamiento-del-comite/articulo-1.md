@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SAN ISIDRO
+La Municipalidad de San Isidro informa que mediante acuerdo No. 0660-2026 adoptado por el Concejo Municipal en Sesión Ordinaria No. 0163-2026 celebrada el 20 de abril de 2026, se aprobó el texto final del Reglamento para la Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia, habiéndose superado el proceso de consulta pública previsto en el artículo 43 del Código Municipal. A partir de esta aprobación, se tiene que el texto final del reglamento es el siguiente:
+REGLAMENTO PARA LA ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE SAN ISIDRO DE HEREDIA
+CAPÍTULO I
+DISPOSICIONES GENERALES Y NATURALEZA JURÍDICA
+Artículo 1.- Objeto. El presente reglamento tiene como objeto regular la organización y funcionamiento del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia, estableciendo los principios y normas para el desarrollo de planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable del cantón. Este reglamento busca fomentar la participación ciudadana, promover el bienestar de la comunidad y optimizar los recursos destinados a los programas deportivos y recreativos y de estilo de vida saludable.

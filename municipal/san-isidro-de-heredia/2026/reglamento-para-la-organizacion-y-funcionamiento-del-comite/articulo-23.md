@@ -1,0 +1,16 @@
+SECCIÓN III
+PROCEDIMIENTO DE ELECCIÓN DE LOS MIEMBROS DE JUNTA DIRECTIVA DEL COMITÉ CANTONAL
+Artículo 23.- Partes intervinientes. En el procedimiento de elección participaran de forma activa los siguientes órganos:
+a. Junta Directiva del CCDR, encargada de la convocatoria a las asambleas para el nombramiento de miembros de conformidad con lo dispuesto en el artículo 174 del Código Municipal.
+b. Tribunal Electoral, en condición de órgano encargado de la fiscalización durante el proceso de elección.
+c. Personal administrativo de apoyo, sea aquel designado por la Alcaldía Municipal para dar apoyo al Tribunal Electoral durante el procedimiento de elección.
+Artículo 20. Tribunal electoral. La organización, dirección y vigilancia de los actos relativos a la elección de las personas miembros del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia, designadas específicamente por las organizaciones deportivas y comunales, estarán a cargo de un Tribunal Electoral independiente.
+Artículo 21. Conformación. El Tribunal Electoral estará compuesto por tres personas miembros propietarios y tres personas suplentes. Corresponderá al Concejo Municipal, a la Junta Directiva del Comité Cantonal de Deportes y Recreación y a los Concejos de Distrito, la designación de una persona representante y su suplente en el Tribunal de Elección. Dicha designación se realizará eligiendo a personas que formen parte del órgano respectivo.
+Artículo 22. Requisitos para postularse. Para postularse como miembro del Comité Cantonal de Deportes y Recreación, la persona deberá cumplir los siguientes requisitos:
+a. Ser residente del cantón de San Isidro de Heredia.
+b. Declaración jurada de que no le afectan las incompatibilidades para formar parte de la Junta Directiva del Comité.
+c. No estar inhabilitada por una sentencia judicial firme para ejercer cargos públicos. d. No desempeñar los cargos de concejal, alcalde o alcaldesa, alcaldes suplentes o alcaldesas suplentes, tesorero, auditor y contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.
+e. Acreditar participación de al menos un año como miembro de una organización deportiva, recreativa u organización social del cantón, según corresponda.
+Para lo indicado en inciso e) anterior, deberá aportarse de conformidad con las fases del procedimiento que se dirán, el libro de miembros de la asociación donde conste la incorporación de la persona como miembro dentro del plazo dicho.
+Artículo 23. Convocatoria. La convocatoria para la elección será acordada por la Junta Directiva del Comité Cantonal de Deportes y Recreación con al menos 30 días naturales de anticipación a la celebración de la asamblea. Dicha convocatoria deberá ser comunicada en la página web municipal y sus redes sociales (por ejemplo, Facebook, Twitter, Instagram, entre otros). Asimismo, se remitirá un comunicado oficial a las organizaciones deportivas, recreativas y comunales, a los medios electrónicos que se hayan proporcionado a la Municipalidad. La falta de comunicación de la convocatoria a alguna agrupación mediante estos medios electrónicos no invalida el proceso.
+(Nota: en la publicación de este Reglamento, se consignaron los artículos 20, 21, 22 y 23 después del artículo 23. No obstante, ya existen los artículos 20, 21, 22 y 23 con diferente texto)

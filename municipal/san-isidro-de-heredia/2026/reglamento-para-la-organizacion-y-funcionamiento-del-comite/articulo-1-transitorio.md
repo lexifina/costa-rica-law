@@ -1,0 +1,1 @@
+TRANSITORIO I. La Alcaldía Municipal y el Concejo Municipal contarán con un plazo de un año para llevar a cabo un modelo tarifario para la definición de las tarifas a aplicarse al alquiler de las instalaciones deportivas municipales y la publicidad exterior en estas.

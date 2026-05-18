@@ -1,0 +1,1 @@
+Artículo 108. Control de activos. El CCDRSI deberá ajustarse en lo que le resulte atinente a las regulaciones previstas en la normativa de la Municipalidad de San Isidro para el registro y control de los activos.

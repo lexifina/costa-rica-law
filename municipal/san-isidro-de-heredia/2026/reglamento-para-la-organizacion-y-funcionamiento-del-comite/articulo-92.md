@@ -1,0 +1,1 @@
+Artículo 92. Asignación Presupuestaria. Los recursos del CCDRSI solamente se podrán destinar en programas deportivos, recreativos, de estilos de vida saludable, al mantenimiento y construcción de instalaciones, y en gastos administrativos, siguiendo los límites fijados por el Código Municipal y sus reformas.

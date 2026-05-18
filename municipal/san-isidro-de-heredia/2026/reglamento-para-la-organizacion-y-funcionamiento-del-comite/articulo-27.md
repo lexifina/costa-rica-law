@@ -1,0 +1,1 @@
+Artículo 27. Acto de apertura. La Asamblea dará inicio con la presentación del Tribunal Electoral y las personas colaboradoras de la Municipalidad y con una breve explicación de los cargos a elegir y las implicaciones jurídicas y compromisos derivados de la eventual designación.

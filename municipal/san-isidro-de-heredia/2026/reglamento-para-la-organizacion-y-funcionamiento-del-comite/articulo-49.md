@@ -1,0 +1,4 @@
+Artículo 49. Acuerdos. Las determinaciones o decisiones que tome la Junta Directiva del Comité Cantonal, se denominarán acuerdos. Estos acuerdos serán tramitados y comunicados por la Secretaría y deberán ser ejecutados por la Administración.
+Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento o la Ley señala un mayor número de votos. La aprobación del presupuesto se acordará por mayoría calificada (2/3 partes) de la totalidad de los miembros de la Junta Directiva.
+Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado. Las actas de la Junta Directiva serán aprobadas por simple mayoría.
+Los acuerdos tomados por la Junta Directiva quedarán definitivamente aprobados al existir votación favorable de los dos tercios de la totalidad de sus miembros o al aprobarse el acta respectiva.

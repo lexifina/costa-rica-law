@@ -1,0 +1,4 @@
+Artículo 36. Tesorería. Son funciones de la tesorería las que se anuncian a continuación:
+a) Fiscalizar los ingresos económicos, ordinarios y extraordinarios que ingresen a la cuenta corriente.
+b) Ante ausencia de la persona administradora, le corresponderá elaborar anualmente en conjunto con la presidencia, el informe económico sobre los ingresos y egresos del Comité y remitirlo a la Junta Directiva para que lleve a cabo su aprobación y posterior remisión al Concejo Municipal para su conocimiento, así como elaborar el proyecto de presupuesto anual siguiente.
+c) Colaborar semestralmente con la persona administradora, la elaboración del informe económico sobre los ingresos y egresos del Comité Cantonal para ser presentado al Concejo Municipal. El no cumplimiento de esta disposición faculta al Concejo Municipal a no girar recursos económicos al Comité Cantonal, hasta tanto se dé por satisfecho el informe referido.

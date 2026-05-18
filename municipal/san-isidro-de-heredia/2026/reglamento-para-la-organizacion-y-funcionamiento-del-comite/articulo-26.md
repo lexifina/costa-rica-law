@@ -1,0 +1,1 @@
+Artículo 26. Inicio de las asambleas. En caso de que no se encuentren presentes todas las delegaciones inscritas, la asamblea dará inicio a más tardar quince minutos posteriores a la hora programada. Pasados los quince minutos indicados se iniciará la asamblea con las delegaciones o la delegación presente y en caso de no asistir ninguna, se tendrá por fracasada la misma.

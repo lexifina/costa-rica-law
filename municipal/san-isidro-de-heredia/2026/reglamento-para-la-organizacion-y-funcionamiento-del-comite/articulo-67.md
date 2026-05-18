@@ -1,0 +1,1 @@
+Artículo 67. Programación de torneos. Cuando el comité comunal en coordinación con el área técnica del CCDRSI pretenda la realización de torneos, estará en la obligación de confeccionar la respectiva regulación que deberá ser aprobada previamente por la Junta Directiva del Comité Cantonal.

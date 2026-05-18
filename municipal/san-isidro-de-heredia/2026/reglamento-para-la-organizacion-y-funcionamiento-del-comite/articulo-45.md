@@ -1,0 +1,2 @@
+Artículo 45. De las sesiones extraordinarias. Las sesiones extraordinarias de la Junta Directiva serán convocadas por la presidencia o a solicitud de por lo menos tres miembros, con al menos veinticuatro horas de antelación. La invitación a dicha sesión deberá indicar el día y hora de la sesión y los asuntos por tratar, asimismo el lugar donde se realizará la misma.
+Podrán celebrarse sesiones extraordinarias en otros lugares del cantón, cuando la índole de los asuntos por tratar así lo requiera, especificándose en la convocatoria.

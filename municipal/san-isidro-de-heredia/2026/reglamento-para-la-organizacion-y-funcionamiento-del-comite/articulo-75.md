@@ -1,0 +1,1 @@
+Artículo 75. Segunda convocatoria. En caso de que en la primera asamblea no se haya llevado a cabo el nombramiento de las siete personas que han de integrar el comité comunal o distrital, deberá efectuarse una segunda convocatoria, siguiendo las mismas reglas previstas para la primera.
