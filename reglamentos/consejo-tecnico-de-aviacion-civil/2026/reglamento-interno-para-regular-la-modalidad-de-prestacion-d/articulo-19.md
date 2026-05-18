@@ -1,0 +1,4 @@
+CAPÍTULO III
+DEL TELETRABAJO EN EL CONSEJO TÉCNICO DE AVIACION CIVIL Y LA DIRECCION GENERAL DE AVIACION CIVIL
+Artículo 19. De la colaboración hacia las personas teletrabajadoras.
+Todos los superiores jerárquicos y funcionarios que mantengan relación directa o indirecta con las personas teletrabajadoras, deberán brindar la colaboración necesaria para el adecuado desarrollo de esta modalidad, asegurando que las funciones asignadas se ejecuten conforme a los objetivos institucionales y a los lineamientos del programa de teletrabajo. Asimismo, deberán velar porque las condiciones laborales permitan garantizar la conciliación entre la vida personal, familiar y laboral de las personas teletrabajadoras, manteniendo una supervisión respetuosa, equilibrada y coherente con los principios de bienestar, productividad y cumplimiento normativo aplicables a esta modalidad de prestación de servicios.

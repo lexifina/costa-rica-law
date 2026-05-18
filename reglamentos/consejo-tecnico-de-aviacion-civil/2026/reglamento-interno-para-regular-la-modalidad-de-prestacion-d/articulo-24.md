@@ -1,0 +1,6 @@
+Artículo 24. De las diferentes opciones de prestación de servicios bajo la modalidad de teletrabajo. La modalidad de teletrabajo contempla las siguientes opciones de prestación del servicio, las cuales establecen la cantidad de días en que la persona teletrabajadora deberá laborar de manera presencial en las oficinas del CETAC/DGAC; así como, los días en que podrá desempeñar sus funciones fuera de dichas instalaciones.
+Las opciones de teletrabajo serán las siguientes:
+1) Teletrabajo opción 1: Cuatro (4) días de trabajo presencial en las oficinas institucionales, un (1) día de trabajo fuera de ellas.
+2) Teletrabajo opción 2: Tres (3) días de trabajo presencial en las oficinas institucionales, dos (2) días de trabajo fuera de ellas.
+3) Teletrabajo opción 3: Dos (2) días de trabajo presencial en las oficinas institucionales, tres (3) días de trabajo fuera de ellas.
+Para la definición de la opción de teletrabajo aplicable a cada persona funcionaria, la jefatura inmediata será la competente para determinar la cantidad de días bajo esta modalidad, dentro de las opciones establecidas en el presente reglamento, previo acuerdo con la persona funcionaria, considerando la naturaleza o características de las funciones de la persona trabajadora, analizando las condiciones, capacidades, actitudes y aptitudes del funcionario y las disposiciones del presente reglamento".

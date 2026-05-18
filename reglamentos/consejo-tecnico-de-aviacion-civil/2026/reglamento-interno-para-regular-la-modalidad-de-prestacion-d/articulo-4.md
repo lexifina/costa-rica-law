@@ -1,0 +1,2 @@
+Artículo 4. Del ámbito de aplicación: El presente reglamento rige para todo el personal del CETAC/DGAC, cuyos puestos, funciones y/o actividades permitan la modalidad de teletrabajo, estos últimos, ya sea total o parcialmente.
+Quedarán exceptuados de dicha modalidad, aquellas personas teletrabajadoras que se encuentren en período de prueba, según la Ley Marco de Empleo Público, ley número 10159 de 8 de marzo de 2022.

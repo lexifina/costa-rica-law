@@ -1,0 +1,1 @@
+Artículo 10. Régimen recursivo. Los actos administrativos dictados por la Comisión Institucional de Teletrabajo tendrán recurso de revocatoria, según lo estable el artículo 58 de la Ley General de la Administración Pública.

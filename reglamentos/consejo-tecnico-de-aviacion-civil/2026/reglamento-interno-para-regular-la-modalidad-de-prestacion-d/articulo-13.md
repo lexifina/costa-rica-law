@@ -1,0 +1,9 @@
+Artículo 13. De las competencias de la Unidad de Tecnologías de la Información: Son competencias de la Unidad de Tecnologías de la Información (UTI), en lo que respecta a la modalidad de teletrabajo, las siguientes:
+a) Planificar, coordinar y gestionar en la institución, las necesidades de tecnología de información requeridas para la implementación, operación y continuidad del programa de teletrabajo, asegurando su alineación para cumplir con sus objetivos institucionales.
+b) Asesorar, definir y garantizar la aplicación de los controles y los niveles de seguridad necesarios para la protección de la información institucional, asegurando la confidencialidad, integridad y disponibilidad de los datos.
+c) Establecer los lineamientos y políticas, en materia tecnológica, que regirán para el programa de teletrabajo en el CETAC/DGAC.
+d) Definir las características técnicas del hardware o software institucionales; así como, los requisitos mínimos de conectividad que deban cumplir las personas teletrabajadoras para el adecuado desempeño de sus funciones.
+e) Definir y establecer los mecanismos, canales y procedimientos para la atención, reporte y resolución de incidentes o fallas técnicas que afecten la continuidad del servicio.
+f) Implementar y administrar mecanismos de control de acceso seguro a los sistemas institucionales, incluyendo el uso obligatorio de autenticación multifactor (MFA) u otros métodos de verificación reforzada.
+g) Definir y supervisar las condiciones de seguridad que deben cumplir los dispositivos utilizados en teletrabajo, asegurando la aplicación de controles como cifrado, bloqueo de acceso, gestión segura de contraseñas y actualizaciones permanentes.
+h) Velar por la correcta gestión de accesos, permisos y perfiles de usuarios en los sistemas institucionales.

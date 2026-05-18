@@ -1,0 +1,1 @@
+Artículo 27. De las notificaciones. El medio oficial para la recepción de toda notificación y comunicación formal emitida por la institución será la cuenta de correo electrónico institucional asignada a la persona funcionaria, la cual se considerará válida y eficaz para todos los efectos administrativos y legales.

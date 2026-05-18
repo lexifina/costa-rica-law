@@ -1,0 +1,1 @@
+Artículo 33. Del deber de firmar el contrato de teletrabajo por parte de la persona teletrabajadora. La persona teletrabajadora deberá firmar un contrato de teletrabajo, donde se especificarán las condiciones de esta modalidad laboral, conforme lo dispuesto en el presente reglamento.

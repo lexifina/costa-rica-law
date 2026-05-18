@@ -1,0 +1,10 @@
+Artículo 21. De los requisitos de admisibilidad para la prestación del servicio bajo la modalidad de teletrabajo. Para el programa de teletrabajo, las condiciones esenciales del teletrabajo se encuentran asociadas a objetivos y metas establecidas en el acuerdo de compromiso anual, firmado entre el funcionario y la jefatura, mismas que permitan la planificación, control, seguridad, seguimiento y comunicación, mediante las tecnologías de información y comunicación, sin afectar el normal desempeño de otros cargos y la prestación del servicio que brinda la institución.
+Son condiciones esenciales del teletrabajo, las siguientes:
+a) Que las funciones se ejecuten fuera de las instalaciones de la oficina correspondiente.
+b) Que la modalidad esté sustentada en los objetivos y metas establecidos en el Acuerdo de Compromiso Anual, suscrito entre el funcionario y la jefatura inmediata.
+c) Haber obtenido en el año inmediato anterior una calificación mínima de 90 puntos, equivalente a "Muy Bueno", en la Evaluación Anual de Desempeño.
+d) Que el puesto sea susceptible de teletrabajo, según la calificación emitida por la Unidad de Gestión Institucional de Recursos Humanos.
+e) Que el funcionario reúna las condiciones, capacidades, actitudes y aptitudes necesarias para el teletrabajo, según los criterios definidos por la jefatura inmediata.
+f) Que las actividades asignadas al funcionario sean susceptibles de efectuarse bajo la modalidad de teletrabajo, según los criterios emitidos por la jefatura jerárquica inmediata.
+g) La modalidad de teletrabajo es de carácter voluntario tanto para la persona teletrabajadora, como para la persona empleadora, se regirá en sus detalles por el acuerdo entre las partes.
+h) La modalidad de teletrabajo, únicamente, podrá ser aplicada a aquellos puestos que por la naturaleza de sus funciones, resulten técnica y operativamente viables, según lo determine la Unidad de Gestión Institucional de Recursos Humanos. La asignación temporal de actividades teletrabajables, no podrá utilizarse como justificación para la conversión de un puesto no teletrabajable

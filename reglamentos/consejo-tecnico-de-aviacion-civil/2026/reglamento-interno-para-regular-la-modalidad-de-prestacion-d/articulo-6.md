@@ -1,0 +1,4 @@
+CAPÍTULO II
+DE LAS INSTANCIAS DE COORDINACIÓN Y AUXILIARES DEL PROGRAMA DE TELETRABAJO
+Sección I. De la Comisión Institucional de Teletrabajo (CIT)
+Artículo 6. La Comisión Institucional de Teletrabajo (CIT). Es el equipo interdisciplinario conformado por personas trabajadoras del CETAC/DGAC, con competencias técnica, moral y legalmente demostradas, responsables de planificar, analizar, asesorar y coordinar todas las acciones necesarias para la correcta implementación, operación, seguimiento y mejora continua del programa de teletrabajo en la institución, garantizando que las solicitudes, procesos, normativa, actividades y controles se desarrollen conforme a la legislación nacional y a los objetivos institucionales; mediante el ejercicio de las competencias definidas en el artículo 8 del presente reglamento.
