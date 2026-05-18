@@ -1,0 +1,1 @@
+ARTÍCULO 2- La Municipalidad de Abangares podrá destinar recursos propios para reparaciones, mejoras o construcción, así como establecer convenios de cooperación interinstitucional o internacional para el mejoramiento de esta infraestructura deportiva.
