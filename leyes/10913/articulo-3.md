@@ -1,0 +1,1 @@
+ARTÍCULO 3- Destino del bien desafectado. El bien donado a la Corte Suprema de Justicia se destinará, exclusivamente, a uso institucional, para la construcción de un inmueble que albergue personal del Organismo de Investigación Judicial, para el ejercicio de sus competencias legales en la provincia de Limón.
