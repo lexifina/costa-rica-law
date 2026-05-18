@@ -1,0 +1,2 @@
+Artículo 12°. -Transferencias electrónicas de fondos. El monto autorizado por la Administración Activa en el Fondo Fijo-Caja Chica y los aumentos permanentes o temporales, serán depositados por medio de transferencias electrónicas de fondos destinadas a la respect iva
+Cuenta Presupuestaria de la Caja Chica a nombre del Ministerio en Caja Única, llamada Caja Chica Central del MINAE, según las disposiciones que establezca la Tesorería Nacional.

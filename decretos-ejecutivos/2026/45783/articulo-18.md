@@ -1,0 +1,6 @@
+Artículo 18°. -Condiciones de pago a proveedores. Todo pago realizado a los proveedores por parte del responsable del Fondo Fijo-Caja Chica deberá quedar registrado en el sistema electrónico vigente, contar con el respaldo de un Pedido de Compra por Caja Chica, de una factura electrónica comercial electrónica y cumplir con los siguientes requisitos para su cancelación:
+a) Factura electrónica confeccionada a nombre del Ministerio, indicando los bienes o servicios adquiridos con los respectivos XML y haber sido confirmados con la plataforma del Ministerio de Hacienda para estos afectos.
+b) Toda factura deberá contener la siguiente información: nombre del Ministerio, fecha, número de cédula jurídica, monto, y nombre comercial de la casa proveedora, indicar sólo bienes o servicios de la misma subpartida presupuestaria.
+c) No se admitirán facturas con enmiendas, raspaduras, deterioradas o ilegibles. Las facturas no se pueden modificar o corregir de ningún modo con líquido corrector, tachaduras o borrones
+d) La recepción de conformidad de los bienes o servicios se efectuará con indicación expresa del nombre, la firma y el número de cédula de la persona autorizada que los recibió a satisfacción y debe ser autorizada por el responsable del Fondo Fijo.
+e) Para su liquidación todas las facturas deberán tramitarse en el período presupuestar io correspondiente.

@@ -1,0 +1,2 @@
+Artículo 15°. -Formulario de compras. Para efectuar compras por medio del Fondo Fijo-Caja Chica se utilizará el formulario Pedido de Compra por Fondo Fijo-Caja Chica, el cual deberá estar estandarizado y previamente numerado en forma consecutiva y se regirá por los procedimientos establecidos en el Manual.
+Los documentos se conservarán de manera ordenada en la Dirección Financiero-Contable en la propuesta de pago correspondiente.

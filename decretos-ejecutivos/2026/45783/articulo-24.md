@@ -1,0 +1,5 @@
+Artículo 24°. -Informes de arqueos. El responsable del Fondo Fijo-Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones, conciliaciones bancarias, arqueos internos, para el fondo fijo-caja chica autorizado. Al efecto remitirá al máximo Jerarca (funcionario delegado) del Ministerio, la siguiente información:
+a) Programa de arqueos programados del año siguiente, el cual deberá ser entregado en el mes de diciembre de cada año anterior.
+b) Informe trimestral con arqueos mensuales y los anexos correspondientes, así como los arqueos realizados a la Caja Central, el cual deberá estar firmado por el Jefe de Tesorería de la Dirección Financiero - Contable, el Director (a) o Subdirector (a) Financiero - Contable y el Oficial Mayor del Ministerio.
+c) La información detallada en los documentos elaborados por funcionarios de la Dirección Financiero-Contable para los correspondientes arqueos, deberá contar firma digital donde conste fecha y hora.
+d) Se deberá mantener en custodia en la Dirección Financiero-Contable, el informe equivalente, a fin de que pueda ser revisado por otros entes u órganos de fiscalización y control.

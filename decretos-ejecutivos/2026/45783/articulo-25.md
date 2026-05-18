@@ -1,0 +1,1 @@
+Artículo 25°. -Auditoría del fondo. El Ministro solicitará a la Auditoría Interna, incluir como mínimo la realización de una auditoría anual al Fondo Fijo-Caja Chica autorizado, con el fin de evaluar la suficiencia y la efectividad de estos controles.

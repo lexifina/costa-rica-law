@@ -1,0 +1,1 @@
+Artículo 10º. -Autorización de recursos. En atención a la solicitud del máximo jerarca del Ministerio, el Tesorero Nacional autorizará la asignación de los recursos para el Fondo Fijo-Caja Chica, considerando las necesidades del Ministerio y la disponibilidad de recursos del Tesoro Público, según estudio técnico aportado por la Administración Activa.

@@ -1,0 +1,8 @@
+Artículo 29°. -Procedimiento de cierre del Fondo Fijo-Caja Chica por parte del MINAE. En caso de que el Ministro o su delegado, considere procedente el cierre, procederá de acuerdo con los siguientes lineamientos.
+Para el cierre de una Fondo Fijo Caja Chica - Central deberá atender lo siguiente:
+a) Deberá existir un acuerdo escrito entre el jerarca y el responsable e informar a la Tesorería Nacional.
+b) Realizar un arqueo de cierre por parte de la Dirección Financiero-Contable, con la participación de dos funcionarios externos a la administración del fondo.
+c) Reposición de faltantes por parte del responsable del Fondo Fijo-Caja Chica, según corresponda al momento del arqueo o cuando se determine su responsabilidad. En caso de negativa por parte del responsable se aplicará lo establecido en el artículo 28 de este Reglamento.
+d) Los sobrantes que resulten del arqueo deberán ser depositados inmediatamente por el responsable de la Dirección Financiero-Contable en el Fondo General de la Caja Unica del Estado, según el mecanismo que establezca el Ministerio de Hacienda, de lo contrario se aplicará lo establecido en el artículo 28 de este Reglamento.
+e) El Director (a) o Subdirector (a) de la Dirección Financiero - Contable procederá a realizar pago masivo y depositar los recursos económicos en la cuenta en colones que establezca la Tesorería Nacional para estos efectos.
+f) Tanto el Arqueo de cierre como los demás comprobantes deben archivarse en expediente digital separado y estar a disposición de la Auditoría Interna y fiscalizadores externos autorizados, que ejercen el control y fiscalización.

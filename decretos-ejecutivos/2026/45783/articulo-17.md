@@ -1,0 +1,1 @@
+Artículo 17°. -Usos de medios electrónicos. La ejecución de las operaciones de caja chica y los trámites de reintegro se deben realizar por medio de los Sistemas establecidos por el Ministerio de Hacienda.

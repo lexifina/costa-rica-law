@@ -1,0 +1,9 @@
+Artículo 6º-Responsable. El responsable de la Administración del Fondo Fijo-Caja Chica del Ministerio, que en lo sucesivo en este Reglamento se le denominará como "el Responsable", será el Director(a) Financiero - Contable o en su defecto el Subdirector(a) Financiero - Contable, en el cumplimiento de las funciones atinentes a dicho cargo.
+Compete al Responsable de la administración del Fondo, el ejercicio de las siguientes funciones:
+1. Administrar la Caja Chica que hubiera autorizado el máximo Jerarca, de conformidad con las disposiciones que se establezcan para tal efecto, recibir los fondos autorizados, custodiarlos, efectuar los registros del gasto en el sistema correspondiente, así como pagar con cargo al Fondo los bienes o servicios recibidos a satisfacción, de acuerdo con el procedimiento establecido en este Reglamento, Manual de Procedimientos para la Apertura, Administración y reintegro del Fondo Fijo de la Caja Chica Central del MINAE, denominado en adelante Manual y los lineamientos que emita el Ministerio de Hacienda en calidad de rector.
+2. Crear y mantener actualizado el Manual utilizado para estos efectos.
+3. Solicitar la apertura de la caja chica central del Ministerio o modificación del fondo rotativo, previo estudio técnico correspondiente y a solicitud del Jerarca o quien delegue.
+4. Efectuar las retenciones del impuesto sobre la renta cuando corresponda.
+5. Mantener disponible los documentos electrónicos para los arqueos programados y sorpresivos y a disposición de la Auditoría Interna y fiscalizadores externos.
+6. Custodiar el archivo de los documentos o expedientes electrónicos (SPMA-Sistema de Pago Masivo Automático) relacionados con el Fondo Fijo de Caja Chica y propuestas de reintegros.
+7. Vigilar por el cumplimiento de las disposiciones contenidas en el presente reglamento.

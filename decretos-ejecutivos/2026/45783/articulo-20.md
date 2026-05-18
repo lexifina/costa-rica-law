@@ -1,0 +1,3 @@
+CAPÍTULO IV
+MECANISMOS DE CONTROL
+Artículo 20°. -Responsable del control interno. Corresponderá al responsable del Fondo Fijo-Caja Chica establecer, evaluar y mantener un adecuado sistema de control del fondo autorizado mediante arqueos programados o sorpresivos, chequeos de los estados de cuenta obtenidos del Tesoro Digital, control que se efectuará respaldándose en la Ley General de Control Interno, en las Normas de Control Interno para el Sector Público, en este Reglamento, en el Manual de Procedimientos para la Apertura, Administración y reintegro del Fondo Fijo -Caja Chica Central del MINAE y en los lineamientos que al efecto emita la Tesorería Nacional.

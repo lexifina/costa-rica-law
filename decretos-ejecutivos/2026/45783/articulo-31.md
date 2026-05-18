@@ -1,0 +1,3 @@
+CAPÍTULO V
+DISPOSICIONES FINALES
+Artículo 30°. - Erogaciones con fondos propios. Las erogaciones que realicen las personas funcionarias no autorizadas con su peculio personal, para pagar materiales y suministros del Estado y aquellas erogaciones, que incumplen con las estipulaciones de este Reglamento o con los lineamientos por ente u órgano de control autorizado, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo Fijo-Caja Chica, salvo que excepcionalmente hubieran sido autorizadas previamente por el responsable de la caja chica ante un evento no predecible de fuerza mayor.

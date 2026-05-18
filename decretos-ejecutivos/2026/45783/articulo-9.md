@@ -1,0 +1,1 @@
+Artículo 9º. -Creación y autorización del Fondo Fijo-Caja Chica. En el caso de este Ministerio, la creación del Fondo Fijo-Caja Chica será autorizada por el Ministro o quien delegue, conforme la Ley General de Contratación Pública y su reglamento, directrices de los entes rectores y el estudio previo de necesidades elaborado por la Dirección Financiero - Contable.

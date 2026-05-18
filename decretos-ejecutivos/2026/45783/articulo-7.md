@@ -1,0 +1,1 @@
+Artículo 7º-Comunicación del Fondo Rotativo: Una vez que este reglamento entre en vigencia, el Ministerio de Ambiente y Energía deberá comunicar a la Tesorería Nacional el nombre y el número de cédula de las personas que desempeñan el cargo de Director(a) y Subdirector(a) Financiero - Contable, como responsables del fondo rotativo de la Caja Chica Central del Ministerio.
