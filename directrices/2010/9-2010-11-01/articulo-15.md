@@ -1,1 +1,0 @@
-Artículo 15.—Las guías de de movilización deberán ser convalidadas en los puestos de control establecidos por la autoridades competentes, a los efectos de que se verifique la correspondencia de los datos consignados en la guía y los animales que se movilizan, cuando existiere alguno de ellos ubicado en la ruta de destino de los animales.

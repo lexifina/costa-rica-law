@@ -1,1 +1,0 @@
-Artículo 21.—Cuando se esté frente a la administración de bienes muebles o inmuebles la autoridad judicial necesariamente deberá disponer al respecto en cuanto a su custodia y administración temporal.
