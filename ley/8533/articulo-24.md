@@ -1,4 +1,4 @@
-Artículo 24.—Serán funciones de la junta directiva de los comités regionales:
+Artículo 24.-Serán funciones de la junta directiva de los comités regionales:
 a) Supervisar y controlar, en el ámbito de su competencia, la aplicación de la presente Ley, su Reglamento y las leyes conexas.
 b) Autorizar la apertura de nuevas ferias del agricultor en la región, en coordinación con la Junta Nacional de Ferias.
 c) Solicitar, a los entes administradores de ferias, el reporte de actividades, los informes contables, el plan de presupuesto, los análisis estadísticos, el plan anual de trabajo, así como otras informaciones referentes a la actividad.
@@ -13,3 +13,5 @@ j) Suspenderle o revocarle la autorización para la administración de la feria 
 k) Suspenderle o revocarle la autorización para la emisión de carnés, a la organización que incurra en anomalías en el desempeño de sus funciones.
 l) Nombrar al representante ante la Junta Nacional de Ferias del Agricultor y a su suplente.
 m) Aprobar el reglamento interno de cada feria bajo su jurisdicción.
+n) Rendir informes de ingresos, gastos de acuerdo con su plan de presupuesto y su plan anual de trabajo, así como sus estados financieros al final de cada ejercicio fiscal al CNP, el cual los hará de acceso público.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 10938 del 30 de abril de 2026)

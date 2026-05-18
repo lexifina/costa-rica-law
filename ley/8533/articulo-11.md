@@ -1,2 +1,3 @@
-Artículo 11.—Facúltase al CNP para que asista a las sesiones de la Junta Nacional de Ferias del Agricultor y de los comités regionales, mediante el representante que designe, a efecto de que asesore la labor que se lleva a cabo. En tales casos, tendrá derecho a voz, pero no a voto.
-El CNP podrá solicitar la convocatoria a sesión de cualquiera de las instancias indicadas en el presente artículo.
+Artículo 11- Facúltese al Consejo Nacional de Producción (CNP) para que asista a las sesiones de la Junta Nacional de Ferias del Agricultor y de los comités regionales, mediante el representante que designe, a efecto de que asesore la labor que se lleva a cabo. En tales casos, tendrá derecho a voz y a voto.
+EL CNP podrá solicitar la convocatoria a sesión de cualquiera de las instancias indicadas en el presente artículo. Asimismo, el CNP podrá realizar, mediante licitación pública, las auditorías externas de dichas instancias que valore necesarias para el adecuado funcionamiento del Programa Nacional de Ferias. Para lo cual deberá presupuestar este rubro anualmente.
+(Así reformado por el artículo 1° de la ley N° 10938 del 30 de abril de 2026)
