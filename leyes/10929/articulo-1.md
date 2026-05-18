@@ -1,0 +1,7 @@
+N° 10929
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL ESTADO PARA QUE DESAFECTE Y DONE A LA ASOCIACIÓN DE
+DESARROLLO INTEGRAL DE SAN ISIDRO DE AGUAS CLARAS UPALA,
+UN BIEN INMUEBLE DE SU PROPIEDAD
+ARTÍCULO 1- Autorización. Se autoriza al Estado, con cédula de persona jurídica número dos- cero cero cero - cero cuatro cinco cinco dos dos (n.° 2-000-045522) para que desafecte y done un terreno de su propiedad a la Asociación de Desarrollo Integral de San Isidro de Aguas Claras Upala, con cédula jurídica número tres-cero cero dos-cero seis uno ocho nueve cero (n.° 3-002- 061890), finca inscrita en el Registro Nacional de la Propiedad Inmueble, partido de Alajuela, con matrícula de folio real número dos-dos cero cero ocho ocho dos-cero cero cero (n.° 2-200882-000), que hoy es un terreno de naturaleza para instalaciones de la Escuela de San Isidro de Aguas Claras, ubicado en el distrito 2- Aguas Claras, cantón 13- Upala de la provincia de Alajuela y con los siguientes linderos: norte: quebrada en medio Francisco Arce Picado; sur: Abelino Alvarado Rojas; este: Humberto Porras Luna, y oeste: calle pública con un frente de ciento cincuenta y siete metros cincuenta y dos centímetros lineales (157,52 m). El terreno tiene una medida de trece mil ochocientos quince metros con cuarenta y tres decímetros cuadrados (13.815,43 m²); plano catastrado A-cero siete cero cero ocho dos ocho uno nueve ocho siete (A-0700828-1987).
