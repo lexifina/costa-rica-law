@@ -1,0 +1,5 @@
+CAPÍTULO III
+Mecanismos de control
+Artículo 30.-Respaldo de las Compras. Toda compra realizada con fondos de Caja Chica deberá respaldarse, con un comprobante electrónico de conformidad con lo dispuesto en el artículo 26 del Reglamento General del Fondo Cajas Chicas, Decreto Ejecutivo N° 32874-H, del 10 de noviembre de 2005, ya sea Factura Electrónica, Tiquete Electrónico (cuando proceda) o Factura Electrónica de Compra, emitido y aceptado por el Ministerio de Hacienda.
+Adicionalmente, para fines de control interno, el expediente deberá incluir: solicitud o pedido, cotizaciones o proformas (cuando apliquen), reserva de recursos, vale de caja chica, pedido de compra cuando corresponda, y formulario de liquidación.
+Cuando proceda, el comprobante deberá incorporar los campos y requisitos establecidos en la versión técnica 4.4 de Facturación Electrónica para Costa Rica, emitida por la Dirección General de Tributación, vigente a partir 1 de setiembre de 2025, como son: código de actividad económica del receptor, identificación del sistema emisor, y demás validaciones definidas por la DGT.

@@ -1,0 +1,1 @@
+Artículo 5.- Estimación del Monto del Fondo. El monto del Fondo de Caja Chica, así como sus variaciones, serán estimados por la Contraloría General de la República, de conformidad con lo dispuesto en el artículo 36 de la Ley General de Contratación Pública, Ley N° 9986, del 27 de mayo de 2021.

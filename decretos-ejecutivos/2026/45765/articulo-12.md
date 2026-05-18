@@ -1,0 +1,1 @@
+Artículo 12.- Observancia del presente reglamento. Una vez que entre en vigencia el presente reglamento, la persona que ejerza la jefatura de la Unidad Financiera, velará por la observancia del mismo, de parte de todos los funcionarios y funcionarias de la Dirección Nacional de CEN-CINAI.

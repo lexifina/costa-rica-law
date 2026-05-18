@@ -1,0 +1,1 @@
+Artículo 17.-Prohibición de Fragmentar Compras. De acuerdo con lo que establece el artículo 33 de la Ley General de Contratación Pública y su Reglamento, queda prohibido fragmentar (fraccionar) una compra con el propósito de evadir el procedimiento de contratación pública que corresponda.

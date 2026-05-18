@@ -1,0 +1,1 @@
+Artículo 28.- Reintegros al Fondo. El encargado del Fondo de Caja Chica deberá procurar una adecuada rotación del fondo a fin de que éste no se agote, para lo cual la jefatura de la Unidad Financiera de la Dirección de CEN-CINAI, determinará el monto mínimo que deberá mantenerse para solicitar los reintegros correspondientes.

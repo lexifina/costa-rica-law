@@ -1,0 +1,1 @@
+Artículo 4.- Responsable del Fondo. La responsabilidad sobre la administración del Fondo de Caja Chica corresponde a la persona que ejerza el cargo de jefatura de la Unidad Financiera de la Dirección de CEN-CINAI, quien como tal tiene la responsabilidad de establecer los controles necesarios para asegurar el cumplimiento de las disposiciones contenidas en este Reglamento.

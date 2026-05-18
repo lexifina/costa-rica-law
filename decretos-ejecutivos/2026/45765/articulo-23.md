@@ -1,0 +1,1 @@
+Artículo 23.- Retención sobre el Impuesto Sobre la Renta: La Unidad Financiera y los Directores Regionales efectuarán la retención del Impuesto Sobre la Renta, sobre aquellas transacciones realizadas por Caja Chica que así lo requieran, de conformidad con lo dispuesto en el artículo 23 de la Ley del Impuesto Sobre la Renta, Ley Nº 7092, del 21 de abril de 1988.

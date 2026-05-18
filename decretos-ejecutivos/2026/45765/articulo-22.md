@@ -1,0 +1,1 @@
+Artículo 22.- Firma del Pedido de Compra en las Unidades Organizativas de los Niveles Regionales. Con el fin deque el proceso de Caja Chica se realice de una forma eficaz y eficiente, el Director Regional autorizará a las jefaturas del Área de Gestión Regional, a firmar los PedidosdeCompra, de las compras que se realicen por Caja Chica para los niveles Regional y Local.

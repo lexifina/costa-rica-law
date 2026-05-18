@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 37.-Régimen Sancionatorio. Los funcionarios infractores de las disposiciones contenidas en el presente Reglamento, se harán acreedores a las sanciones que correspondan de conformidad con el Reglamento Autónomo de Servicio de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral, Decreto Ejecutivo Nº 39487-S y su reforma, publicado en el Alcance N° 34 a la Gaceta N° 45, del 04 de marzo de 2016, la Ley Marco de Empleo Público, Ley N ° 10159, publicada en el Alcance N° 50, a la Gaceta N° 46, del 09 de marzo de 2022, el Código de Trabajo, Ley N° 2, del 27 de agosto de 1943.

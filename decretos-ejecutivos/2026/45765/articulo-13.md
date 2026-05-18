@@ -1,0 +1,3 @@
+CAPÍTULO II
+Funcionamiento del Fondo de Caja Chica
+Artículo 13.-Solicitud de Pedido de Compra. Toda adquisición de bienes, obras y Servicios a cancelar a través de Caja Chica se originará por medio de una Solicitud de Pedido de Compra, la cual debe contener una descripción clara de los bienes, obras o servicios a adquirir, justificación del por qué la compra es indispensable e impostergable y por lo tanto se debe tramitar por caja chica, justificación del costo-beneficio para la institución. La solicitud solo podrá incluir bienes, obras o servicios de la misma sub-partida presupuestaria y deberá ser firmada por la persona que ejerza el cargo de director o Jefatura de la Unidad Organizativa que la realiza y autorizada por el Director (a) Nacional de CEN-CINAI.

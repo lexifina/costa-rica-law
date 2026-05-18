@@ -1,0 +1,1 @@
+Artículo 6.-Cajas Chicas Auxiliares. El Fondo de Caja Chica podrá subdividirse en Cajas Chicas Auxiliares, ubicadas en el Nivel Nacional y las distintas regiones (Nivel Regional) de la Dirección Nacional de CEN-CINAI. La apertura de las Cajas Chicas Auxiliares deberá ser autorizada por Tesorería Nacional.

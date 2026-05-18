@@ -1,0 +1,2 @@
+Artículo 18.-Cotizaciones. Para la adquisición de un bien, obra o servicio se deberá adjuntar a la solicitud pedido de compra, las cotizaciones que se establezcan en los Manuales de Procedimientos del Fondo de Caja Chica y de las Cajas Chicas auxiliares, a fin de que la
+persona que ejerza el cargo de director o jefatura de la Unidad Organizativa que solicita la compra, seleccione el proveedor tomando en consideración aspectos como economía, calidad y precio.
