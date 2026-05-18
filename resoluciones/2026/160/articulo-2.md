@@ -1,0 +1,1 @@
+Artículo 2: La delegación que se realiza con este acto estará sujeta al control del Director General, que en cualquier momento podrá auditar lo aquí dispuesto y en caso de constatar anomalías que lo ameriten, revocará sin más trámite la delegación respectiva, esto además de las responsabilidades administrativas, civiles y penales que puedan corresponderle a la persona delegada.
