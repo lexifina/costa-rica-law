@@ -1,0 +1,1 @@
+Artículo 9.- Del quórum. Las sesiones iniciarán a la hora especificada y deberán contar con la participación de al menos tres de sus miembros. Para las sesiones de urgencia, deberá atenderse el artículo 52 de la Ley General de la Administración Pública.

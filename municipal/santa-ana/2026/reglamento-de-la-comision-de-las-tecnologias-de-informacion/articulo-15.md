@@ -1,0 +1,7 @@
+Artículo 15.- Equipos de Trabajo. La comisión en virtud de sus funciones podrá opta por la creación de equipos de trabajo especiales, para atender aquellos asuntos que, por su naturaleza, por la urgencia de conocerlos o resolverlos, por su complejidad técnica, u otras causas justificadas, sean indispensables. Estos equipos serán integrados por personas funcionarias de la Municipalidad de Santa Ana que la comisión estime idóneas y deberán emitir un informe final detallado y fundamentado para conocimiento, en el plazo que se defina. En esta misma línea, la comisión podrá:
+1. Designar las personas que conformarán el equipo de trabajo.
+2. Designar a la persona líder del equipo, quien será responsable del cumplimiento de los objetivos que hayan motivado la conformación del equipo. Esta persona, tendrá que brindar los informes correspondientes, exposiciones, insumos y productos que se le soliciten al equipo.
+3. Definir los objetivos del equipo, funciones, productos esperados y plazos.
+4. Cualquier otro aspecto que se crea conveniente al momento en que se conforme el equipo. 5. Dichos equipos eventualmente podrán contar con apoyo externo, según se observe la conveniencia. MICITT Estrategia de Transformación digital 2023-2027 https://www.micitt.go.cr/sites/default/files/GobernanzaDigital/ETD%202023-2027%20V%20FINAL%2030-08- 2023_v2.pdf
+Rige a partir de su publicación.
+Santa Ana, 23 de abril del 2026. -

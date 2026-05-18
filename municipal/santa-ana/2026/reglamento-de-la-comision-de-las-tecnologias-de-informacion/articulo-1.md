@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE SANTA ANA
+CONCEJO MUNICIPAL
+El Concejo Municipal de Santa Ana en la Sesión Ordinaria N°103, celebrada de 21 de abril de 2026, en el Artículo VI, Iniciativas de la Alcaldía, Acuerdo número 18, aprobó definitivamente con 07 votos lo siguiente:
+REGLAMENTO DE LA COMISIÓN DE TECNOLOGÍAS DE INFORMACIÓN Y COMUNICACIÓN
+I.-Que las Normas de Control Interno para el Sector Público aprobadas por la Contralora General de la República, mediante Resolución N-2-2009-CODFOE establecen los criterios básicos de control que deben observarse en la gestión de esas tecnologías, en virtud de que éstas se han convertido en un instrumento esencial en la prestación de servicios públicos.
+II.-Que estas son de acatamiento obligatorio para las instituciones y órganos sujetos a fiscalización y prevalecen sobre cualquier disposición en contrario que emita la Administración, por lo que su inobservancia será motivo de responsabilidad conforme al marco jurídico aplicable.
+III.-Y establecieron la obligatoriedad de que en cada institución pública exista un Comité de Tecnologías de Información como encargado de establecer los criterios básicos de control en la gestión institucional de dichas tecnologías, planificando las actividades necesarias para la implementación efectiva y controlada de las indicadas Normas.
+POR TANTO
+Con fundamento en las disposiciones de los artículos 11, 169 y 170 de la Constitución Política; 4, 11, 13 y 16 de la Ley General de la Administración Pública, Ley 6227; 4 inciso a, 13 incisos c y d, 43 y 88 del Código Municipal 7794, se plantea el siguiente reglamento.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1.- Fundamento. El reglamento para el funcionamiento de la Comisión de Tecnologías de Información de la Municipalidad de Santa Ana se fundamenta en las Normas Técnicas para el Gobierno y Gestión de las tecnologías de la información por el MICITT (2022), donde se establece que debe:
+"ser una instancia de alto nivel que busca habilitar la gobernanza en torno a las Tecnologías de la Información y Comunicaciones (TIC), estableciendo un espacio de diálogo y coordinación entre las gerencias de la institución y la unidad responsable de las Tecnologías de Información y Comunicaciones (DTIC), con el fin de asegurar el apoyo de las TIC a la gestión y el cumplimiento de la estrategia institucional. Al estar integrado por las máximas autoridades de gobierno y administración de la Institución, junto con la unidad de Tecnologías de la Información y Comunicaciones, y la Dirección de Planificación Institucional asume como cuerpo colegiado, la toma de decisiones sobre temas estratégicos asociados con las TIC que inciden en la prestación de los servicios a los usuarios" (p.9)
