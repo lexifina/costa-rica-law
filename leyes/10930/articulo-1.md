@@ -1,0 +1,8 @@
+N° 10930
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DESAFECTACIÓN DE UN TERRENO PROPIEDAD DE LA MUNICIPALIDAD DEL CANTÓN DE
+DESAMPARADOS Y AUTORIZACIÓN PARA QUE ESTA LO SEGREGUE Y DONE A LAS
+TEMPORALIDADES DE LA ARQUIDIÓCESIS
+DE SAN JOSÉ
+ARTÍCULO 1- Se autoriza a la Municipalidad de Desamparados, cédula jurídica número tres-cero catorce- cero-cuatro-dos-cero-cuatro-ocho (n.° 3-014-042048), para que segregue y done el bien demanial de su propiedad, que se describe de la siguiente manera: finca inscrita en el Registro Inmobiliario del Registro Nacional, bajo el sistema de folio real matrícula número: uno quinientos veintiún mil ochocientos ochenta y cinco cero cero cero (n.° 1-521885-000). EI inmueble está situado en el distrito diez, Damas; cantón tres, Desamparados, de la provincia de San José; mide seis mil ochenta y cuatro metros con cuarenta y ocho decímetros cuadrados (6084,48 m2), descrito por el plano catastrado número SJ-uno- cero-siete-cero-ocho seis-ocho-cuatro- dos mil uno (n.° 1- 0708684-2001). Su naturaleza registral es: terreno para construir en parte obras de facilidades comunales y área para juegos infantiles, y sus linderos son: al norte con alameda dos, tres, cuatro, cinco y seis, lotes 441- 440 -419-418-397-396 y 374; al sur con alameda dos- 3-4-5-6 , lotes 121- 122-146-147-170-171-193-194-212-215-200 y Caja Costarricense de Seguro Social; al este con calle pública, Caja Costarricense de Seguro Social y el ebáis de Fátima; al oeste con calle pública, y cuyo terreno a segregar se describe en el plano catastrado número SJ- uno-siete-nueve-siete-tres-uno cero- dos mil dos (n.°1-797310-2002), con una medida de mil veintisiete metros con sesenta y nueve decímetros cuadrados (1027,69 m2).
