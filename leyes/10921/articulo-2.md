@@ -1,0 +1,1 @@
+ARTÍCULO 2- Contemplaciones. La Municipalidad de Siquirres deberá verificar, mediante el procedimiento administrativo correspondiente, el cumplimiento de los requisitos de ocupación señalados, así como cualquier otro requisito que se considere necesario para formalizar la donación.
