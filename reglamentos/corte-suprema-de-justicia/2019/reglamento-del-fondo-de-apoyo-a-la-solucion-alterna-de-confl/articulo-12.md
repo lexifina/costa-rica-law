@@ -1,1 +1,1 @@
-Artículo 12.—Auditoría Financiera. La Auditoría velará por el cumplimiento de lo dispuesto en este reglamento y comunicará a la Consejo Superior e Inspección Judicial, según corresponda, cualquier anomalía que se detectare con relación al manejo de fondos del FASAC.
+Artículo 12.-Auditoría Financiera. La Auditoría velará por el cumplimiento de lo dispuesto en este reglamento y comunicará al Consejo Superior e Inspección Judicial, según corresponda, cualquier anomalía que se detectare con relación al manejo de fondos del FASAC.

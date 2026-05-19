@@ -13,3 +13,4 @@ Reglamento del Fondo de Apoyo a la Solución Alterna de Conflictos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-13 | la propia norma |
+| 2 | 2026-05-19 | Circular 87 (2026-05-19) |
