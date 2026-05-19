@@ -14,3 +14,4 @@ Manual de funcionamiento de la Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-18 | la propia norma |
+| 2 | 2026-05-19 | Reglamento 9 (2026-05-19) |

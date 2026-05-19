@@ -7,3 +7,5 @@ e) Conocer y aprobar los estados financieros auditados y liquidación del presup
 f) Ejercer conforme al artículo 17 de este reglamento el recurso de revisión de los acuerdos y resoluciones de la Junta Directiva ya sea por razones de oportunidad o bien porque se violan disposiciones legales, siempre y cuando no se afecten situaciones jurídicas consolidadas o derechos adquiridos de buena fe.
 g) Solicitar recesos cuando a su criterio sea necesario, buscar consensos, agilizar, ordenar las sesiones.
 h) Cualquiera otras compatibles con su condición de miembros de la Junta Directiva.
+La Junta Directiva y sus miembros, actuando en forma individual o colectiva, no podrán promover, presentar, respaldar ni gestionar ante la Asamblea Legislativa proyectos de reforma total o parcial a la Ley N° 1038 sin contar previamente con autorización expresa de la Asamblea General del Colegio, convocada específicamente para el conocimiento, análisis y pronunciamiento sobre la conveniencia de la propuesta de reforma.
+(Así adicionado el párrafo anterior en sesión N° 09 del 19 de mayo de 2026)
