@@ -1,3 +1,2 @@
 Artículo 54.- Regente suplente. El Colegio de Terapeutas de Costa Rica, a solicitud de los interesados, autorizará hasta un regente suplente para cada establecimiento audiológico, quienes deben cumplir con los mismos requisitos del regente titular. Los datos del regente suplente se establecerán en el certificado de regencia, en dicha condición.
-El regente titular o el dueño del establecimiento deberán informar al Colegio de Terapeutas de la sustitución y sus motivos, así como si existe algún cambio en el horario de regencia.
-Asimismo, deberán notificar la reincorporación del regente titular a sus funciones.
+El regente titular o el dueño del establecimiento deberán informar al Colegio de Terapeutas de la sustitución y sus motivos, así como si existe algún cambio en el horario de regencia. Asimismo, deberán notificar la reincorporación del regente titular a sus funciones.

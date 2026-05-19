@@ -5,5 +5,4 @@ b. Para propietarios de establecimientos que sean personas físicas, se debe apo
 c. Para propietarios de establecimientos que sean personas jurídicas, personería jurídica con menos de un mes de emitida. Asimismo, deben aportar original y copia de la cédula de identidad del representante legal.
 d. El Audiólogo debe encontrarse al día con sus obligaciones ante el Colegio de Terapeutas de Costa Rica (pago de colegiatura y carné al día).
 e. Comprobante de pago del monto de emisión de la regencia, determinado por la Junta Directiva.
-f. Cualquier otro documento que se considere necesario al momento de la solicitud.
-Una vez cumplidos los requisitos, se brindará un comprobante del trámite.
+f. Cualquier otro documento que se considere necesario al momento de la solicitud. Una vez cumplidos los requisitos, se brindará un comprobante del trámite.

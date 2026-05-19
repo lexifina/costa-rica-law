@@ -1,6 +1,4 @@
-(Derogado)
 COLEGIO DE TERAPEUTAS DE COSTA RICA
-(Esta norma fue derogada por el artículo 29 del Reglamento de regencia del Colegio de Terapeutas, aprobado en sesión N° 0029 del 15 de noviembre de 2023)
 REGLAMENTO DE PRESCRIPCIÓN TERAPÉUTICA Y DESPACHO DE
 PRÓTESIS AUDITIVAS Y REGENCIA DE ESTABLECIMIENTOS
 AUDIOLÓGICOS
@@ -10,5 +8,5 @@ II. Que los riesgos de daño físico y mental grave incluyen, pero no se limitan
 III. Que el proceso de rehabilitación protésica del paciente hipoacústico, incluye la evaluación de la audición, el diagnóstico audiológico, el proceso de la prescripción terapéutica de prótesis auditivas, la adaptación y programación de estas y la obtención de resultados medibles mediante métodos o procesos de verificación y la validación.
 IV. Dicho proceso se encuentra dentro del campo de acción de los profesionales en Audiología, de conformidad con el Perfil Profesional emitido por el Colegio de Terapeutas de Costa Rica.
 Por lo anterior, la Junta Directiva del Colegio de Terapeutas de Costa Rica, considera oportuno emitir el siguiente Reglamento de prescripción terapéutica de prótesis auditivas y regencia de establecimientos audiológicos.
-CAPÍTULO I. DISPOSICIONES GENERALES
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 0013 del 19 de mayo de 2026, y publicado en el Alcance Digital N° 118 a La Gaceta N° 168 del 7 de setiembre de 2026, y se trascribe continuación:)
 Artículo 1. Objetivo. El objetivo del presente reglamento es la regulación y estandarización del proceso de prescripción de prótesis auditivas, su despacho, validación y verificación, así como el establecimiento de estándares mínimos de calidad para la prestación de servicios audiológicos.

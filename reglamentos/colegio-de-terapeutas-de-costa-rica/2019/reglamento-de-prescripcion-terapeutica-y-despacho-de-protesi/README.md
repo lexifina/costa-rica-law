@@ -16,3 +16,4 @@ Reglamento de prescripción terapéutica y despacho de prótesis auditivas y reg
 | 1 | 2019-10-08 | la propia norma |
 | 2 | 2022-12-07 | Reglamento 29 (2022-12-07) |
 | 3 | 2023-11-15 | Reglamento 29 (2023-11-15) |
+| 4 | 2026-05-19 | Reglamento 13 (2026-05-19) |
