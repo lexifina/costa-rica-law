@@ -1,0 +1,1 @@
+Articulo 17.- COMUNICACIÓN AL AGENTE ECONÓMICO. La Gerencia de Regulación procederá a remitir el reporte con el resultado obtenido del análisis de la muestra de café al agente económico exportador para lo que corresponda.

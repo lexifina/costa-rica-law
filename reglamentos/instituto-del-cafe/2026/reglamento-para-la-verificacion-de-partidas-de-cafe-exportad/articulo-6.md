@@ -1,0 +1,6 @@
+Artículo 6.- DE LA TOMA DE MUESTRA. Las muestras de café se tomarán como se indica a continuación:
+a) En los casos de contenedores cargados a granel, serán muestreados directamente de la tolva de descargue o desde los silos, justo antes de cargar los contenedores.
+b) Para los casos de las partidas cargadas en bolsones, la muestra se tomará directamente de las mismas, esto por la abertura que permite la toma de la muestra sin dañar la integridad de este tipo de empaque.
+La persona inspectora debe tener la posibilidad de muestrear de forma aleatoria la mayor cantidad de sacos, con el objetivo de obtener una muestra representativa de toda la partida de exportación.
+c) Para los casos del muestreo en bolsas al vacío: En los casos de partidas de exportación empacadas en sacos de plástico tipo “Grainpro”, o en bolsas al vacío, se solicita al agente económico interesado suscribir declaración jurada denominada “Declaración jurada para partidas de exportación empacadas en sacos de plástico tipo “GRAINPRO, o en bolsas al vacío,” disponible en www.icafe.cr, sección Trámites.
+La persona inspectora solicitará la declaración jurada con el objetivo de garantizar que la muestra corresponde a la partida que se está exportando.

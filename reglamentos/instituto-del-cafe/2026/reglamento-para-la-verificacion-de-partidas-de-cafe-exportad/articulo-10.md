@@ -1,0 +1,1 @@
+Artículo 10.- DE LOS RESULTADOS DE LA PRUEBA NIRS. Los resultados de toda prueba NIRS aplicada quedarán registrados en el sistema SINSPE y será de conocimiento para los usuarios del sistema autorizados.

@@ -1,0 +1,1 @@
+Artículo 8.- DE LA DETERMINACIÓN DEL ORIGEN. La clasificación del origen del café se determinará mediante la aplicación de la prueba de región espectral del infrarrojo cercano (NIRS), la Unidad de Laboratorio Químico del ICAFÉ es la encargada de realizar está prueba en seguimiento al procedimiento ICAFE-IC-19 en su versión vigente.

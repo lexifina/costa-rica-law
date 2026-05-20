@@ -1,0 +1,6 @@
+CAPITULO III
+COMISIÓN INTERDISCIPLINARIA PARA CERTIFICACIÓN DE ORIGEN DE
+EXPORTACIONES DE CAFÉ
+Artículo 32.- DE LA INVESTIGACIÓN DE LA COMISIÓN INTERDISCIPLINARIA PARA CERTIFICACIÓN DE ORIGEN DE EXPORTACIONES DE CAFÉ. La Comisión Interdisciplinaria para certificación de origen de exportaciones de café procederá a revisar los resultados de la aplicación de la prueba NIRS, para lo cual el personal experto de la Sección de Control de Calidad del ICAFÉ, realizará un análisis comparativo de los resultados arrojados por la prueba NIRS con las muestras custodiadas por la Sección de Control de Calidad, basado en un criterio experto, mediante el cual se analizará las características físicas de los granos, con la finalidad de separar los granos que asimilen a café “Importado”, y así mismo se aplicarán las pruebas técnicas correspondientes de calidad con el propósito de determinar si existe una composición irregular de café de Costa Rica mezclado con café Importado.
+Para ello se dejará constancia en un acta -de carácter administrativo- donde se desarrollará la aplicación de cada uno de los procesos seguidos para la obtención del resultado el cual podrá ser café “Importado” o café “Desconocido”.
+En el SINSPE se documentará el resultado final correspondiente a la decisión que tome la Comisión Interdisciplinaria respecto a la muestra de café.

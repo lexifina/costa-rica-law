@@ -1,0 +1,4 @@
+Artículo 12.- DEL RESULTADO DEL INFORME DE LA PRE-MUESTRA DE EMBARQUE. Del resultado que arroje el análisis de la prueba NIRS respecto a la pre muestra de embarque, se categorizará de la siguiente manera:
+a) “Costa Rica”: Se continuará con la gestión para el embarque de la carga.
+b) “Desconocido”: Se continuará con la gestión para el embarque de la carga.
+c) “Importado”: Se procederá activar el protocolo para la aplicación de diez (10) réplicas de la misma muestra establecido en el instructivo ICAFE-IC-19.De mantenerse el resultado importado no se emitirá el visto bueno, como medida preventiva y se convocará de inmediato a la Comisión Interdisciplinaria para certificación de origen de exportaciones de café, con el propósito de que conozca sobre los resultado de las réplicas y el criterio técnico especializado, y se otorgue visto bueno fundamentado para proceder con el embarque de la exportación o se rechace el mismo.

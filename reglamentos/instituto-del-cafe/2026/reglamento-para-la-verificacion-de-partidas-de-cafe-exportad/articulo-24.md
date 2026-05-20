@@ -1,0 +1,2 @@
+Artículo 24.- DENUNCIAS ANÓNIMAS. Sí la persona denunciante es anónima o insiste en conservar el anonimato, la Unidad de Asesoría Jurídica le pedirá contestar una serie de preguntas que puedan surgir a partir de los resultados del análisis preliminar del caso.
+Seguidamente procederá a levantar el expediente administrativo con los indicios recopilados para iniciar con la determinación de la verdad real de los hechos.

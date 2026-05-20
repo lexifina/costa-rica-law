@@ -1,0 +1,2 @@
+Artículo 25.- CONFIDENCIALIDAD. La identidad del denunciante, la información, documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6 de la Ley de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la función pública y sus reformas vigentes y aplicables.
+Las infracciones a la obligación de mantener dicha confidencialidad podrán ser sancionadas según lo previsto en las normas citadas supra.

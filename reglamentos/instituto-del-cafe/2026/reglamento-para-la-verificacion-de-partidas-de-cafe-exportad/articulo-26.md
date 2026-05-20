@@ -1,0 +1,5 @@
+Artículo 26.- REQUISITOS ESENCIALES QUE DEBE REUNIR LAS DENUNCIAS
+a) Los hechos que se denuncien deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar donde ocurrieron los hechos y el agente económico que presuntamente los realizó.
+b) Se deberá apuntar la posible situación y la prueba que se aporta para acreditar el hecho irregular, la cual podrá ser análisis de NIRS, Notas Técnicas, Boletas de Inspección, contratos asociados a la Nota Técnica, guías o recibos de entrada y salida del café de los Beneficios, así como cualquier otra información que se requiera.
+c) De tratarse de una denuncia externa, el denunciante deberá indicar cuál es su pretensión en relación con el hecho denunciado.
+d) El denunciante también deberá brindar información complementaria respecto a la indicación de probables testigos, lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas y cualquier otra información adicional que considere necesaria para complementar la investigación.
