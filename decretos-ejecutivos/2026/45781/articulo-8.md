@@ -1,0 +1,2 @@
+Artículo 8. Objetivo de la Unidad de Gestión de Iniciativas Estratégicas TIC (UGIETIC). La Unidad de Gestión de Iniciativas Estratégicas TIC (UGIETIC), tendrá el siguiente objetivo:
+Coordinar y articular las iniciativas estratégicas de tecnología de información y comunicación, asegurando su alineamiento con los objetivos institucionales, la planificación táctica y la entrega de valor mediante una gestión integral y efectiva de las iniciativas tecnológicas.

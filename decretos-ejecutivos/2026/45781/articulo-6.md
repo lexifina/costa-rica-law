@@ -1,0 +1,2 @@
+Artículo 6. Objetivo de la Unidad de Innovación TIC y Transformación Digital (UITTD). La Unidad de Innovación TIC y Transformación Digital (UITTD), tendrá el siguiente objetivo:
+Impulsar la innovación tecnológica y liderar la transformación digital institucional mediante la identificación, evaluación e implementación de soluciones emergentes que generen valor público, mejoren la experiencia del usuario y fortalezcan la eficiencia operativa del Ministerio.

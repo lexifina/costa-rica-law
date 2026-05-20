@@ -1,0 +1,2 @@
+Artículo 26. Objetivo de la Unidad de Redes y Comunicaciones Digitales (URCD). La Unidad de Redes y Comunicaciones Digitales (URCD), tendrá el siguiente objetivo:
+Diseñar, desplegar y operar infraestructuras de redes, resilientes y adaptativas que habiliten comunicaciones digitales seguras, de alta disponibilidad, baja latencia y alto rendimiento, en apoyo a entornos institucionales hiperconectados y orientados a la transformación digital.

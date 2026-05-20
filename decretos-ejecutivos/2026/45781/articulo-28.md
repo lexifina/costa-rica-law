@@ -1,0 +1,2 @@
+Artículo 28. Objetivo de la Unidad de Infraestructura Tecnológica Híbrida (UITH). La Unidad de Infraestructura Tecnológica Híbrida (UITH) tendrá el siguiente objetivo:
+Orquestar una infraestructura tecnológica híbrida, resiliente y sostenible que combine centros de datos locales, nubes públicas y privadas, para habilitar servicios digitales de próxima generación con alta disponibilidad, eficiencia operativa y seguridad.

@@ -1,0 +1,2 @@
+Artículo 30. Objetivo de la Unidad Monitoreo y Operaciones Digitales (UMOD). La Unidad Monitoreo y Operaciones Digitales (UMOD), tendrá el siguiente objetivo:
+Impulsar operaciones digitales autónomas, resilientes y observables mediante inteligencia artificial, automatización, analítica predictiva y gestión avanzada de respaldos y recuperación, para promover la continuidad operativa, la eficiencia de los servicios y experiencias digitales excepcionales.

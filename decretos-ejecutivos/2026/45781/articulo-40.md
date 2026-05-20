@@ -1,0 +1,2 @@
+Artículo 40. Objetivo del Departamento de Resiliencia Digital y Cumplimiento (DRDC). El Departamento de Resiliencia Digital y Cumplimiento (DRDC), tendrá el siguiente objetivo:
+Coadyuvar a la continuidad tecnológica operativa, seguridad, integridad y cumplimiento de los servicios digitales institucionales mediante la gestión estratégica de riesgos, la protección de activos digitales, la ciberresiliencia y la alineación con marcos normativos nacionales e internacionales.

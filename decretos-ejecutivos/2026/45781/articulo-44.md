@@ -1,0 +1,2 @@
+Artículo 44. Objetivo de la Unidad de Ciberseguridad y Resiliencia Digital (UCRD). La Unidad de Ciberseguridad y Resiliencia Digital (UCRD), tendrá el siguiente objetivo:
+Proteger los activos digitales institucionales mediante la implementación de estrategias de ciberseguridad, continuidad operativa y resiliencia digital, coadyuvando a la integridad, confidencialidad y disponibilidad de la información.

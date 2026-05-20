@@ -1,0 +1,2 @@
+Artículo 4. Objetivo de la Dirección de Tecnología e Innovación Digital (DTID). La Dirección tendrá el siguiente objetivo:
+Liderar la transformación digital institucional mediante la planificación, implementación y evolución de soluciones tecnológicas innovadoras, resilientes y centradas en el usuario, que impulsen la eficiencia operativa, la seguridad digital y el cumplimiento normativo, alineadas con los objetivos estratégicos de la organización.

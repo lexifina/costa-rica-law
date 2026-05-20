@@ -1,0 +1,2 @@
+Artículo 22. Objetivo del Departamento de Infraestructura Digital y Plataformas (DIDP). El Departamento de Infraestructura Digital y Plataformas (DIDP), tendrá el siguiente objetivo:
+Diseñar, implementar, operar y evolucionar la infraestructura tecnológica institucional, fortaleciendo la disponibilidad, seguridad, escalabilidad y alineamiento con los objetivos estratégicos del Ministerio, mediante el uso de plataformas digitales modernas, servicios en la nube y prácticas de ingeniería de infraestructura.

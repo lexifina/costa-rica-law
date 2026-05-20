@@ -1,0 +1,2 @@
+Artículo 46. Objetivo de la Unidad de Gestión Proactiva Digital (UGPD). La Unidad de Gestión Proactiva Digital (UGPD), tendrá el siguiente objetivo:
+Diseñar, implementar y coordinar mecanismos proactivos de análisis, monitoreo y respuesta ante condiciones digitales que puedan afectar la continuidad, seguridad, cumplimiento y eficiencia operativa institucional, mediante el uso de metodologías predictivas, marcos de gobernanza y herramientas de inteligencia digital.

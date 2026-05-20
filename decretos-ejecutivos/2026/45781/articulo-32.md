@@ -1,0 +1,2 @@
+Artículo 32. Objetivo del Departamento de Servicios y Experiencia Digital TIC (DSED-TIC). El Departamento de Servicios y Experiencia Digital TIC (DSED-TIC), tendrá el siguiente objetivo:
+Diseñar, coordinar y optimizar la entrega de servicios digitales centrados en el usuario, mediante plataformas inteligentes, automatización, soporte proactivo y gestión de experiencias, garantizando valor, eficiencia y satisfacción en un entorno tecnológico en constante evolución.

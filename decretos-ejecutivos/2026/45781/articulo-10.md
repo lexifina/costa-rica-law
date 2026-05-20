@@ -1,0 +1,2 @@
+Artículo 10. Objetivo del Departamento de Ingeniería de Productos Digitales (DIPD). El Departamento de Ingeniería de Productos Digitales (DIPD) tendrá el siguiente objetivo:
+Diseñar, desarrollar, mantener y evolucionar soluciones digitales institucionales centradas en el usuario, sostenibles, seguras y alineadas con los objetivos estratégicos del Ministerio, mediante prácticas modernas de ingeniería de software, automatización e inteligencia aplicada.
