@@ -1,0 +1,1 @@
+Artículo 52.- Plazo del examen. El examen deberá concluir dentro de un período de seis (6) meses calendario, salvo circunstancias excepcionales, calificadas por la AI, en cuyo caso concluirá en un plazo máximo de ocho (8) meses calendario, contados a partir de su inicio.

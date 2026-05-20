@@ -1,0 +1,1 @@
+Artículo 34.- Investigación para la aplicación de medidas de salvaguardia globales. Al aplicar una medida de salvaguardia global, se debe tener en cuenta el interés por mantener inalterados los flujos comerciales. Esto es, no debe prohibirlos o bloquearlos totalmente.

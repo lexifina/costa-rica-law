@@ -1,0 +1,1 @@
+Artículo 2.- Del ámbito de aplicación. Las disposiciones establecidas en el presente reglamento serán de aplicación obligatoria en todas las investigaciones que pretendan determinar la procedencia de aplicar o no medidas comerciales correctivas, en el marco de los acuerdos de la OMC y demás acuerdos comerciales suscritos por el país.

@@ -1,0 +1,2 @@
+Artículo 19.- Señalamiento de medio de notificación. Las Partes interesadas, los Miembros interesados y los coadyuvantes, tienen la obligación de señalar un lugar o medio para ser notificado en su primer escrito, en caso contrario, la AI lo prevendrá por una única vez. En ambos casos, la omisión producirá las consecuencias de una notificación automática.
+Podrán señalar hasta dos medios de notificación, no obstante, deberán indicar expresamente cuál se utilizará como principal, caso contrario la AI lo determinará según su criterio.

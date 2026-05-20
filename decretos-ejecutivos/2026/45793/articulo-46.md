@@ -1,0 +1,1 @@
+Artículo 46.- Notificación de resolución final. La resolución final deberá notificarse al exportador dentro de los 10 días calendario siguientes a su emisión. Además, la parte dispositiva de la resolución deberá publicarse en el Diario Oficial La Gaceta, a costa del interesado.

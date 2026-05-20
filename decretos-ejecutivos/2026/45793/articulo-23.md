@@ -1,0 +1,2 @@
+Artículo 23.- De la notificación específica. Cuando no exista un lugar señalado en el expediente llevado al efecto, para atender notificaciones, los actos administrativos se notificarán a las Partes interesadas, y coadyuvantes que estén en el extranjero, por medio del representante diplomático competente o un representante oficial del territorio exportador, domiciliados en el territorio costarricense.
+La notificación se acompañará de todas las copias de los escritos y documentos, salvo disposición legal en contrario; ya sea en formato impreso o en formato digital.

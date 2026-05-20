@@ -1,0 +1,2 @@
+Artículo 32.-Hechos esenciales. Antes de emitir la determinación final, en las medidas antidumping y compensatorias ordinarias, incluidos los exámenes por extinción de medida, la AI emitirá un informe de hechos esenciales que serán considerados como base para la toma de la decisión final.
+Este informe será remitido a las partes para que en un plazo de quince (15) días calendario emitan sus alegatos al respecto, con el objetivo de que las partes puedan defender sus intereses.

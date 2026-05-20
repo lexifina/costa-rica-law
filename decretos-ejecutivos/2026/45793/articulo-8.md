@@ -1,0 +1,4 @@
+Artículo 8.- Período objeto de la investigación (POI). El período de recopilación de datos en las investigaciones antidumping y sobre subvenciones se establecerá conforme se indica:
+i. El POI para determinar la existencia de dumping, deberá ser normalmente de doce (12) meses y no menor de seis (6) meses; y terminará en la fecha más cercana posible a la fecha de la iniciación de la investigación.
+ii. El POI para determinar la existencia de una subvención y su cuantía, normalmente será de un año natural y terminará en la fecha más cercana del inicio de la investigación.
+iii. El período de recopilación de datos para las investigaciones de la existencia de daño, en ambos procesos, deberá ser normalmente de un mínimo de tres años, a menos que la parte respecto de la cual se recopilan datos exista desde hace menos tiempo; y deberá incluir la totalidad del período de recopilación de datos para la investigación de la existencia de dumping y subvenciones respectivamente.

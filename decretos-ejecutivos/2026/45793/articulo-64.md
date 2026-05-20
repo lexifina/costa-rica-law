@@ -1,0 +1,19 @@
+Artículo 64.-Requisitos de la solicitud. La solicitud presentada por la RPN, debidamente firmada por quien corresponda, deberá cumplir con los siguientes requisitos. Los datos presentados deberán estar respaldados con material probatorio, conforme al Ordenamiento Jurídico vigente.
+i. Datos de identificación del solicitante: razón social, actividad económica, fecha de inicio de operaciones, domicilio, teléfono y, en caso de ejercer representación legal, la documentación correspondiente conforme al Ordenamiento Jurídico costarricense.
+ii. Cuando la solicitud se realice en nombre de la RPN, deberá adjuntar una lista de todos los productores nacionales conocidos o de las asociaciones de productores nacionales del producto similar, así como cartas donde se manifieste la anuencia de los productores a la apertura del examen.
+iii. Descripción de la participación en volumen y valor dentro de la producción nacional del producto similar al que es sujeto la medida antidumping o compensatoria que representen dichos productores.
+iv. Una descripción detallada del producto importado y sujeto de los derechos antidumping o compensatorios, con indicación de la fracción arancelaria, el país(es) de origen, nombre de los importadores y exportadores de los que tenga conocimiento.
+v. Descripción detallada del producto nacional idéntico o similar al importado.
+vi. Datos sobre la evolución del volumen (unidades de peso) y precio (en dólares por unidad de peso) de las importaciones totales del producto objeto de examen por país de origen (indicar la fuente). Dicha información debe ser presentada con periodicidad mensual para el POE.
+vii. Información correspondiente al POE sobre la evolución del nivel de producción anual del producto objeto de examen del país(es) exportador(es).
+viii. Evolución mensual del POE sobre volumen y precio de las exportaciones mundiales del país(es) exportador(es) del producto objeto de examen, por país de destino.
+ix. Información sobre las investigaciones tramitadas por terceros países a las exportaciones efectuadas por el país de origen de las importaciones objeto de examen, en las que se haya llegado a una determinación preliminar o definitiva positiva sobre la existencia de dumping o subvenciones. Dichas investigaciones deberán haberse efectuado en el período posterior al año de imposición de los derechos antidumping vigentes.
+x. Elementos que demuestren la capacidad productora y exportadora de los países de origen del producto importado.
+xi. Elementos que demuestren el efecto de la medida antidumping o compensatoria sobre las importaciones del producto importado, desde la fecha de inicio de aplicación del derecho en cuestión y lo más cercano a la solicitud.
+xii. Pruebas sobre la evolución de la situación de la RPN desde la imposición del derecho antidumping o compensatorio.
+xiii. Elementos que demuestren la existencia de investigaciones antidumping o compensatorias en otros países sobre el producto objeto del examen.
+xiv. Pruebas sobre la posible repercusión que cualquier continuación o repetición del dumping o de la subvención pudiera tener en la rama de producción nacional si el derecho se suprimiera al concluir el plazo ordinario.
+xv. Prueba del estado de la RPN en el POE.
+xvi. En el caso de una medida antidumping, el solicitante deberá presentar información sobre el valor normal y el precio de exportación del producto en cuestión, el cual deberá abarcar el POE. Los datos presentados deberán cumplir los requerimientos del AAD.
+xvii. En el caso de una medida compensatoria, el solicitante deberá presentar prueba de la existencia de una subvención o subvenciones sobre el producto objeto de la medida compensatoria y su respectiva cuantía.
+xviii. Si considera que una eventual eliminación de los derechos antidumping o compensatorios vigentes podría generar un incremento de las importaciones del producto objeto de examen, precise las razones por las cuales considera que ello podría ocurrir.

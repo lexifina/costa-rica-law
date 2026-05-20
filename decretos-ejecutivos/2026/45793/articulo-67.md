@@ -1,0 +1,1 @@
+Artículo 67.- Celebración de consultas. En el caso de las medidas compensatorias, una vez admitida la solicitud de apertura de examen y antes de iniciar la investigación, se invitará a los Miembros cuyo producto sea objeto del examen a celebrar consultas con el objeto de dilucidar la situación respecto a las cuestiones a que se refiere el párrafo 2 del artículo 11 del ASMC.

@@ -1,0 +1,1 @@
+Artículo 51.- Pruebas y argumentos. Las partes del proceso tendrán un plazo de treinta (30) días calendario, contado a partir del día siguiente de la notificación para aportar pruebas. A solicitud razonada del interesado la AI podrá prorrogar el plazo anterior por un período no mayor de quince (15) días calendario.

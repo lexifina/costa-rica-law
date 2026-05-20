@@ -1,0 +1,1 @@
+Artículo 77.- Publicación y notificación de la resolución. La resolución final debe publicarse en el Diario Oficial La Gaceta, y se deberá notificar a las Partes interesadas del proceso ordinario y al Comité de Salvaguardia de la OMC, dentro de los diez (10) días calendario siguientes a su publicación.

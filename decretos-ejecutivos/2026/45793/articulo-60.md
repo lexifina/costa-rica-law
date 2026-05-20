@@ -1,0 +1,1 @@
+Artículo 60.-Período objeto de examen (POE). Para los efectos de este procedimiento, se entenderá por período objeto de examen el período desde el inicio de implementación de la medida antidumping o compensatoria, hasta la fecha más cercana a la solicitud del examen por extinción de medidas.

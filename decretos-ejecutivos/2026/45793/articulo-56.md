@@ -1,0 +1,2 @@
+Artículo 56.- Objeto del examen. Conforme a los artículos 11.3 del AAD y 21.3 del ASMC, el MEIC deberá determinar, sobre la base de pruebas positivas, que la expiración del derecho antidumping o compensatorio daría lugar a la continuación o repetición del dumping o de la subvención y el daño importante.
+La autoridad investigadora debe tener una base fáctica suficiente para extraer conclusiones razonadas sobre dicha continuación o recurrencia, siendo las presunciones incompatibles con las obligaciones establecidas en los artículos 11.3 y 21.3 supra indicados.

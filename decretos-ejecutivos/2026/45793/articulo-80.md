@@ -1,0 +1,2 @@
+Artículo 80.- Solicitud de prórroga de la medida de salvaguardia. El proceso de investigación tendiente a comprobar la procedencia de prorrogar la aplicación de unas medidas de salvaguardia podrá ser iniciado a petición de parte o, en casos excepcionales determinados por la autoridad investigadora, de oficio.
+Dicha solicitud debe ser presentada ante la AI, con una antelación de seis (6) meses calendario, a la fecha de vencimiento del plazo de la medida de salvaguardia ordinaria.

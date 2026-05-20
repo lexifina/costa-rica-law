@@ -1,0 +1,1 @@
+Artículo 75.- Emisión de informe técnico final recomendativo. Basado en el análisis, indicado supra, la AI debe emitir un informe técnico final recomen dativo, al ministro (a) del MEIC, en cuanto a si es necesario mantener la medida, o deba revocarse o acelerar el ritmo de la liberalización.

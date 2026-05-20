@@ -1,0 +1,2 @@
+Artículo 59.- Plazo de investigación. Conforme a los artículos 11.4 del AAD y 21.4 del ASMC, los exámenes regulados en este Capítulo terminarán normalmente dentro de los doce meses (12) siguientes a la fecha de su iniciación.
+El derecho antidumping o compensatorio se podrá seguir aplicando hasta la conclusión del examen; en caso de prórroga del derecho, el plazo del examen se contará dentro del período de prórroga.

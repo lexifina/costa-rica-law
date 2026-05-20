@@ -1,0 +1,1 @@
+Artículo 21.- Cómputo de los plazos de actos notificados por medios electrónicos. Cuando se señale un correo electrónico, fax o casillero, las Partes interesadas y demás sujetos del proceso que señalaron el medio, quedarán notificadas conforme lo establece el artículo 38 de la Ley N°8687 indicada supra.

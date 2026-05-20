@@ -1,0 +1,2 @@
+Artículo 54.-. Eliminación de derechos. Si a consecuencia del resultado del examen, se determina que las medidas no están justificadas, deberán suprimirlas de forma inmediata, a través de una resolución razonada, de la cual, se publicará la parte dispositiva, en el Diario Oficial La Gaceta, a costo de interesado.
+Dentro de los diez (10) días calendario posteriores a su publicación, dicha resolución será notificada a las Partes interesadas.

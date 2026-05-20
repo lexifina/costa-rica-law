@@ -1,0 +1,1 @@
+Artículo 12.- Remisión de informe de constataciones. La AI divulgará un informe con las constataciones fácticas resultantes de la investigación in situ; con descripción de los métodos y procedimientos seguidos a tal fin. Un resumen público se pondrá a disposición de todas las Partes interesadas, sin perjuicio de la obligación de proteger la información confidencial.

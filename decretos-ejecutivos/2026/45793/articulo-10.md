@@ -1,0 +1,7 @@
+Artículo 10.- Sobre la presentación de información y pruebas. Toda información y prueba presentada en el marco de los procedimientos regulados en el presente reglamento y demás normativa jurídica que lo fundamenta, deberá cumplir con los siguientes requisitos:
+i. Fundamentación probatoria: Toda información y prueba deberá estar respaldada por material probatorio objetivo y veraz.
+ii. Exactitud y verificabilidad: Los datos y afirmaciones deberán ser precisos, veraces, claros y detallados, evitando generalizaciones o ambigüedades. Además, deberán ser comprobables mediante pruebas independientes.
+iii. Idioma oficial: De conformidad con lo establecido en el artículo 294 de la LGAP, toda evidencia documental deberá presentarse en español o, en su defecto, acompañarse de una traducción oficial.
+iv. Legalización de documentos extranjeros: Si la información o pruebas han sido emitidas en el extranjero, deberán contar con la debida legalización o apostilla, según corresponda.
+Para permitir al MEIC verificar la información suministrada es obligatorio que la parte indique con toda claridad las fuentes empleadas: identificación de los libros de contabilidad, bases de datos, nombre de las publicaciones y toda aquella información relevante que pueda facilitar dicha verificación.
+El MEIC escogerá el medio adecuado para la verificación de la información cuando lo considere necesario y conveniente.

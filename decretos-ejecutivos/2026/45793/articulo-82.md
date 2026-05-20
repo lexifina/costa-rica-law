@@ -1,0 +1,1 @@
+Artículo 82.- Período objeto de investigación. Se entenderá como período objeto de investigación el período que va desde el inicio de la aplicación de la medida de salvaguardia, y hasta la solicitud de prórroga de esta.

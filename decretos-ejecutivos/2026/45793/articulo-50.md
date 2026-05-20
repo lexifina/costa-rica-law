@@ -1,0 +1,2 @@
+Artículo 50.- Apertura del Examen. Una vez verificado el cumplimiento de los requisitos establecidos supra, la AI, emitirá la resolución de apertura del examen, la cual deberá ser notificada a todas las partes en el proceso ordinario, que dio origen a las medidas antidumping o compensatorias examinadas.
+Contra dicha resolución se podrá interponer los recursos administrativos conforme lo establece la Ley General de la Administración Pública.

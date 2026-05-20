@@ -1,0 +1,1 @@
+Artículo 85.- Consultas y compensación. Antes de prorrogar la medida de salvaguardia se debe proceder conforme lo establece los artículos 30 del Reglamento Centroamericano sobre Medidas de Salvaguardia y artículos 8 y 12.3 del ASG.
