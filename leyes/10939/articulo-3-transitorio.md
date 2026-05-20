@@ -1,0 +1,1 @@
+TRANSITORIO III- Para que se homologue el reglamento de la Secretaría Técnica Nacional Ambiental (Setena) a las disposiciones de esta ley, para lo cual tendrán un plazo de doce meses a partir de la publicación de esta ley.

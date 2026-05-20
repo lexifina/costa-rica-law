@@ -1,0 +1,2 @@
+ARTÍCULO 15- Evaluación de riesgo. Cada institución en su ámbito de competencia es responsable, mediante una persona encargada y con conocimiento técnico en la materia, de evaluar la condición de los árboles en los espacios físicos bajo su administración para determinar el nivel del riesgo y, en función de esto, ejecutar, bajo costo propio, el tratamiento para disminuir el riesgo, utilizando mejores prácticas de arboricultura.
+Previo a la remoción de un árbol, se priorizarán las medidas de mitigación que técnicamente permitan su conservación.

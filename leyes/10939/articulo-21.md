@@ -1,0 +1,2 @@
+ARTÍCULO 21- Infracciones y sanciones graves. Se considerarán infracciones graves aquellas que ocasionen un daño irreparable, la tala o muerte de un árbol urbano, lo cual será sancionado con una multa de hasta seis salarios base, según lo establecido en el artículo 2 de la Ley 7337.
+Ello sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, así como de las responsabilidades penales y administrativas de la persona infractora.

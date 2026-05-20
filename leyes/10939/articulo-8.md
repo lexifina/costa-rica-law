@@ -1,0 +1,1 @@
+ARTÍCULO 8- Responsabilidades del Instituto Costarricense de Ferrocarriles. El Instituto Costarricense de Ferrocarriles (Incofer), en coordinación con las municipalidades u otros centros competentes, deberá promover el reverdecimiento del derecho de vía y andenes con las especies apropiadas, acorde a la infraestructura actual y futura del área.

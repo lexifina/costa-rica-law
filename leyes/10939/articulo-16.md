@@ -1,0 +1,1 @@
+ARTÍCULO 16- Atención de emergencias. En declaraciones de emergencia por parte del Poder Ejecutivo o alertas emitidas por la Comisión Nacional de Emergencias (CNE), se ejecutarán labores de mantenimiento para restaurar los daños y obstrucciones ocasionados por los árboles a caminos e infraestructuras, considerando sus ámbitos de acción y la normativa técnica vigente.
