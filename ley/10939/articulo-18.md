@@ -1,0 +1,2 @@
+ARTÍCULO 18- Financiamiento para intervenciones en arbolado urbano. Para la gestión del arbolado urbano, los gobiernos locales podrán destinar recursos de la tasa sobre los servicios de mantenimientos de parques y zonas verdes. Asimismo, podrán crear fondos verdes locales para este fin y acceder a cooperación internacional.
+Las instituciones públicas que administren espacios físicos con áreas verdes destinarán un porcentaje de su presupuesto ordinario y extraordinario para financiar intervenciones dirigidas a la gestión del arbolado urbano.

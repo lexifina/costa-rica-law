@@ -1,0 +1,2 @@
+ARTÍCULO 20- Infracciones y sanciones leves. Se consideran infracciones leves las que causen daños o deterioro del árbol urbano o servicios que este presta, lo cual será sancionado con una multa de hasta tres salarios base, según lo establecido en el artículo 2 de la Ley 7337.
+Ello sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, así como de las responsabilidades penales y administrativas de la persona infractora.

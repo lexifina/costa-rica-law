@@ -1,0 +1,1 @@
+TRANSITORIO II- El Ministerio de Ambiente y Energía (Minae), en coordinación con el Ministerio de Obras Públicas y Transportes (MOPT) y el Ministerio de Vivienda y Asentamientos Humanos (Mivah) tendrá un plazo de doce meses para reglamentar esta ley.

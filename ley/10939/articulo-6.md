@@ -1,0 +1,3 @@
+ARTÍCULO 6- Responsabilidades de los gobiernos locales e intendencias en la gestión del arbolado urbano
+Los gobiernos locales e intendencias serán el ente competente para planificar con criterios técnicos las contrataciones y los procesos internos de gestión del arbolado urbano, asignar presupuesto para su gestión y velar por que se cuente con personal técnico capacitado en arboricultura.
+Las municipalidades emitirán su propio reglamento municipal de arbolado urbano, basado en la reglamentación que establezca el Ministerio de Ambiente y Energía (Minae) de esta ley, para las regulaciones aplicables al arbolado urbano en espacios públicos y privados.
