@@ -31,8 +31,9 @@ Sección 1.02. Inconsistencia con contratos legales ............................
 Sección 1.03. Definiciones .....................................................................................................1
 Sección 1.04. Referencias; Encabezados ...........................................................................1
 ARTÍCULO II Retiros de Fondos .............................................................................................1
-Sección 2.01. Cuenta de préstamo; Retiros de Fondos en general; Moneda del retiro de
+Sección 2.01. Cuenta de financiamiento (*****); Retiros de Fondos en general; Moneda del retiro de
 fondos .........................................................................................................................................1
+(*****)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, N° 10954 del 15 de mayo del 2026. Anteriormente se indicaba " Cuenta de préstamo ")
 Sección 2.02. Compromiso Especial por parte del Banco ................................................2
 Sección 2.03. Solicitud de Retiros de Fondos o de Compromiso Especial ...................2
 Sección 2.04. Cuentas Designadas .....................................................................................2
@@ -42,7 +43,8 @@ Sección 2.07 Refinanciamiento de Anticipo para preparación; Capitalización de
 Comisión Inicial, intereses y otros cargos
 .....................................................................................................................................................
 3
-Sección 2.08. Asignación de los montos del préstamo .....................................................4
+Sección 2.08. Asignación de los montos del financiamiento(******) .....................................................4
+(*****)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, N° 10954 del 15 de mayo del 2026. Anteriormente se indicaba " montos del préstamo ")
 ARTÍCULO III Condiciones del Financiamiento .................................................................4
 Sección 3.01. Comisión Inicial; Comisión de compromiso; Recargo por exposición...4
 Sección 3.02. Intereses ...........................................................................................................5
@@ -68,8 +70,9 @@ Sección 4.05. Tope (cap) de tasas de interés; Banda (Collar) de Tasas de Inter
 Sección 4.06. Terminación anticipada ............................................................................... 12
 ARTÍCULO V Ejecución del Proyecto ................................................................................ 13
 Sección 5.01. Ejecución del Proyecto en General............................................................ 14
-Sección 5.02. Cumplimiento del Contrato de Préstamo, del Contrato del Proyecto y
+Sección 5.02. Cumplimiento del Contrato de Financiamiento (*), del Contrato del Proyecto y
 del Contrato Subsidiario
+(*)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, Ley N° 10954 del 15 de mayo del 2026. Anteriormente indicaba "Contrato de Préstamo")
 ................................................................................................................................................. 14
 Sección 5.03. Provisión de fondos y otros recursos ......................................................... 14
 Sección 5.04. Seguros .......................................................................................................... 14
@@ -119,8 +122,9 @@ Sección 9.05. Terminación de los Contratos Legales al Cumplimiento de Todas la
 Obligaciones ........................................................................................................................... 29
 ARTÍCULO X Disposiciones Varias..................................................................................... 29
 Sección 10.01. Ejecución de los Contratos legales; Notificaciones y solicitudes ....... 29
-Sección 10.02. Actuación en nombre de las Partes del Préstamo y de la Entidad
+Sección 10.02. Actuación en nombre de las Partes del Financiamiento (**) y de la Entidad
 Ejecutora del Proyecto
+(*)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, N° 10954 del 15 de mayo del 2026. Anteriormente se indicaba "Partes del Préstamo")
 ................................................................................................................................................. 30
 Sección 10.03. Evidencia de autoridad .............................................................................. 30
 Sección 10.04. Publicación ................................................................................................. 30
@@ -128,9 +132,11 @@ APÉNDICE Definiciones .........................................................
 ARTÍCULO I
 Disposiciones preliminares
 Sección 1.01. Aplicación de las Condiciones Generales
-Las presentes Condiciones Generales establecen los términos y condiciones generalmente aplicables a los Contratos Legales, en la medida en que los Contratos Legales así lo prevean. Si el Contrato de Préstamo es entre el País Miembro y el Banco, las referencias en estas Condiciones Generales al Garante y al Acuerdo de Garantía no serán tenidas en cuenta. Si no existe un Contrato del Proyecto entre el Banco y una Entidad Ejecutora del Proyecto o un Acuerdo Subsidiario entre el Prestatario y la Entidad Ejecutora del Proyecto , no se tendrán en cuenta las referencias en estas Condiciones Generales a la Entidad Ejecutora del Proyecto , al Contrato del Proyecto o al Contrato Subsidiario.
+Las presentes Condiciones Generales establecen los términos y condiciones generalmente aplicables a los Contratos Legales, en la medida en que los Contratos Legales así lo prevean. Si el Contrato de Financiamiento (*) es entre el País Miembro y el Banco, las referencias en estas Condiciones Generales al Garante y al Acuerdo de Garantía no serán tenidas en cuenta. Si no existe un Contrato del Proyecto entre el Banco y una Entidad Ejecutora del Proyecto o un Acuerdo Subsidiario entre el Prestatario y la Entidad Ejecutora del Proyecto , no se tendrán en cuenta las referencias en estas Condiciones Generales a la Entidad Ejecutora del Proyecto , al Contrato del Proyecto o al Contrato Subsidiario.
+(*)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, Ley N° 10954 del 15 de mayo del 2026. Anteriormente indicaba "Contrato de Préstamo")
 Sección 1.02. Inconsistencia con contratos legales
-Si alguna disposición del Contrato de Préstamo, del Contrato de Garantía o del Contrato del Proyecto es incompatible con una disposición de las presentes Condiciones Generales, prevalecerá la disposición del Contrato de Préstamo, del Contrato de Garantía o del Contrato del Proyecto .
+Si alguna disposición del Contrato de Financiamiento(*), del Contrato de Garantía o del Contrato del Proyecto es incompatible con una disposición de las presentes Condiciones Generales, prevalecerá la disposición del Contrato de Financiamiento (*), del Contrato de Garantía o del Contrato del Proyecto .
+(*)(Así modificada su denominación por el apéndice 1 del Contrato de Financiamiento N.° 9653-CR Se aprueba el Contrato de Financiamiento N.° 9653-CR con el Banco Internacional de Reconstrucción y Fomento (BIRF) para financiar el Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima, Ley N° 10954 del 15 de mayo del 2026. Anteriormente indicaba "Contrato de Préstamo")
 Sección 1.03. Definiciones
 Los términos en mayúsculas utilizados en las presentes Condiciones Generales tienen el significado que se indica en el Apéndice.
 Sección 1.04. Referencias; Encabezados
