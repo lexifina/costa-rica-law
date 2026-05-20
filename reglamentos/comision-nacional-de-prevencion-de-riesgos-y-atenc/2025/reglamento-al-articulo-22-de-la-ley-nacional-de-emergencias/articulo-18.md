@@ -1,0 +1,1 @@
+Artículo 18. De la aprobación del proceso del concurso. Concluido el proceso del concurso, la unidad responsable presentará a la Junta Directiva de la CNE el informe sobre todo lo actuado, el expediente completo y la terna correspondiente para su aprobación o improbación.

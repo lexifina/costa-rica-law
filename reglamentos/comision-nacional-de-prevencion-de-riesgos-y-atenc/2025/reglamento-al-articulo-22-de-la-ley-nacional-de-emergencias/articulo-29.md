@@ -1,0 +1,1 @@
+Artículo 29.- Jornada laboral y plazo de nombramiento. La jornada laboral del Auditor (a) Interno (a) y Subauditor (a) es de tiempo completo (8 horas diarias, de lunes a viernes) de conformidad con el ordenamiento jurídico en la materia.

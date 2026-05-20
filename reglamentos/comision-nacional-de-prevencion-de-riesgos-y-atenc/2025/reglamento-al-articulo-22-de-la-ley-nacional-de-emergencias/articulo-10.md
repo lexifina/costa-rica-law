@@ -1,0 +1,1 @@
+Artículo 10.-Sobre la forma de recepción de ofertas. Las ofertas de servicios podrán ser recibidas vía electrónica o física en la Unidad de Desarrollo Humano o la comisión que la Junta Directiva de la CNE haya dispuesto para tal efecto posterior a la publicación del aviso. En ambos casos, se dará un recibido de la oferta a la persona que presenta la oferta.

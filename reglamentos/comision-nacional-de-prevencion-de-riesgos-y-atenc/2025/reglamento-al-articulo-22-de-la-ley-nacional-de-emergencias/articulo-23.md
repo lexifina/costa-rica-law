@@ -1,0 +1,3 @@
+Artículo 23. Del período de prueba. El nombramiento a plazo indefinido del Auditor (a) Interno (a) estará sujeto al periodo de prueba, el cual será por un período de prueba de entre tres y seis meses. Finalizado este periodo quedará en firme el nombramiento de manera definitiva.
+El nombramiento a plazo indefinido del Subauditor (a) Interno (a) estará sujeto al periodo de prueba, adicionalmente deberá contar con dictamen positivo del Auditor (a) Interno(a).
+Finalizado este periodo quedará en firme el nombramiento de manera definitiva. Concluido ese lapso la Junta Directiva de la CNE informará a la Contraloría General de la República, su conformidad o disconformidad con el desempeño del funcionario nombrado, según la certificación del Auditor (a) Interno (a).

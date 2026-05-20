@@ -1,0 +1,1 @@
+Artículo 22. De la comunicación del nombramiento a la Contraloría. Firme el acuerdo de nombramiento del Auditor (a) o Subauditor (a) Interno (a), la Junta Directiva de la CNE lo comunicará a la Contraloría General de la República, a más tardar el primer día hábil del inicio de funciones.

@@ -1,0 +1,12 @@
+Artículo 6. Documentación requerida para nombramiento de Auditor (a) y Subauditor (a) Interno (a) en forma interina. Para todo nombramiento se deberá cumplir con los siguientes requisitos:
+a) El oficio de solicitud ante la Contraloría General de la República, para la autorización del nombramiento del Auditor (a) y Subauditor (a) Interno (a), interino, deberá dirigirse al gerente del área de fiscalización de la División de Fiscalización Operativa y Evaluativa correspondiente.
+b) La solicitud deberá estar debidamente motivada, sustentada en la actuación de la Administración y suscrita por el órgano colegiado Junta Directiva de la CNE, deberá estar firmada por el presidente, o quien, ostente poder suficiente para esos efectos y acompañarse una certificación del acuerdo que cite la sesión y el acta respectiva.
+c) Debe indicar los siguientes datos en relación con el nombramiento propuesto:
+i. Nombre completo, número de cédula y título académico del candidato seleccionado.
+ii. Dirección de correo electrónico, jornada laboral y horario de trabajo que estaría desempeñando dicho funcionario.
+iii. Tipo de nombramiento por tiempo (interino), fecha a partir de la cual se propone formalizar el nombramiento y plazo por el cual rige la designación.
+vi. Número telefónico, correo electrónico, número de fax, apartado postal y dirección exacta de la oficina de la auditoría interna.
+v. Razones que fundamentan la selección del candidato propuesto.
+d) Adjuntar certificación emitida por Recursos Humanos o el funcionario u órgano responsable, haciendo constar que la respectiva plaza cuenta con el contenido económico suficiente para cubrir la respectiva erogación salarial y que no tiene impedimento alguno para ser ocupada.
+e) Adjuntar certificación donde se indique que el postulante cumple con los requisitos mínimos establecidos en este reglamento y los lineamientos de la Contraloría General de la República.
+f) Adjuntar certificación de que el manual institucional de puestos o denominación similar incluye las funciones y los requisitos para los cargos de auditor (a) y subauditor (a) interno (a), de conformidad con lo dispuesto por la Contraloría General de la República en la normativa correspondiente. Para tales efectos no se requiere la presentación del expediente administrativo a la Contraloría General de la República, sino únicamente la información detallada en estos lineamientos, sin perjuicio del ejercicio de las potestades de fiscalización que competen a ese Órgano Contralor.

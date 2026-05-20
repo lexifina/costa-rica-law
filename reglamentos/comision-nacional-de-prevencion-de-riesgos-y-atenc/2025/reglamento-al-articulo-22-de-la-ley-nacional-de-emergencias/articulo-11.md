@@ -1,0 +1,1 @@
+Artículo 11.-De la declaración jurada. Cada concursante debe aportar con su oferta una declaración jurada en la que se acredite la ausencia de impedimentos legales, administrativos y de incompatibilidad para ocupar el puesto de Auditor (a) o Subauditor (a) Interno (a), así como las declaraciones juradas que al efecto le sean aplicables para laborar para la función pública.

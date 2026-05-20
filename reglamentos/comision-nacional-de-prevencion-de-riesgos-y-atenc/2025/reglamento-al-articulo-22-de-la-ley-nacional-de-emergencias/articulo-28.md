@@ -1,0 +1,1 @@
+Artículo 28.- Capacitaciones. Las capacitaciones, seminarios o congresos a que deba asistir el Auditor (a) Interno (a) y Subauditor (a) deberá informarlo de previo al presidente. Se exceptúan de cualquier trámite, aquellas capacitaciones, seminarios o congresos menores a 3 días hábiles o aquellos que sean convocados por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 25.- Recargos o sustituciones. En caso de recargos o sustitución y no hubiere Subauditor (a) nombrado (a), se debe comunicar sobre quien recaerá y no estarán sujetos a la autorización de la Contraloría General de la República, pero sí a su fiscalización.

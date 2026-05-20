@@ -1,0 +1,3 @@
+Artículo 19. Sobre la remisión de lo actuado a la Contraloría. Una vez que la Junta Directiva de la CNE apruebe el proceso efectuado, remitirá el expediente completo y la terna conformada a la Contraloría General de la República, quien aprobará o vetará lo actuado de acuerdo con lo que establece la Resolución R-CO 83-2018.
+Aprobado el proceso del concurso por parte del ente Contralor, éste trasladará el expediente a la Junta Directiva CNE para que proceda con el nombramiento de uno de los candidatos que integra la terna.
+En caso de que el ente Contralor vete el proceso del concurso, deberá repetirse a partir de la etapa donde se inició la objeción respectiva, tomando en consideración los señalamientos y disposiciones, que realice la Contraloría General de la República.

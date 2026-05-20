@@ -1,0 +1,1 @@
+Artículo 13.-Aprobación de las bases de selección. La unidad responsable del proceso someterá a consideración de la Junta Directiva de la CNE las bases de selección establecidas para su estudio y aprobación.
