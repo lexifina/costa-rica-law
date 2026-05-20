@@ -1,0 +1,3 @@
+ARTÍCULO III - PROGRAMA; PROYECTO DE RESPUESTA CONTINGENTE ANTE
+EMERGENCIAS
+3.01. El Prestatario declara su compromiso con los objetivos del Programa y el Proyecto de Respuesta Contingente ante Emergencias (en lo sucesivo, «PCRE»). Para este fin, el Prestatario, a través del MAG, deberá: (A) ejecutar el Programa y hacer que el Programa se ejecute por parte de las Entidades Implementadoras del Programa, de conformidad con las disposiciones del Artículo V de las Condiciones Generales y el Anexo 2 de este Convenio; y (b) ejecutar el PCRE, o asegurarse de que se ejecute, de conformidad con el Artículo V de las Condiciones Generales del Proyecto.

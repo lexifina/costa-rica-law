@@ -1,0 +1,3 @@
+ARTÍCULO IV - RECURSOS LEGALES DEL BANCO
+4.01. El Acontecimiento Adicional de Suspensión consta de lo siguiente, a saber, que cualquiera de los Convenios de Implementación se haya modificado, suspendido, derogado, revocado o dispensado, de manera que afecte de forma sustancial y adversa, a criterio del Banco, la capacidad de la respectiva Entidad Implementadora del Programa de ejercer cualquiera de sus obligaciones en virtud de los Convenios de Implementación.
+4.02. El Acontecimiento Adicional de Aceleración consta de lo siguiente, a saber, que cualquier situación especificada en la Sección 4.01 de este Convenio ocurra y persista por un período de sesenta (60) días contados a partir de que el Banco haya dado aviso de dicha situación al Prestatario.
