@@ -17,3 +17,4 @@ Normas de control interno para el Sector Público (N-2-2009-CO-DFOE) y reforma R
 | 2 | 2020-03-17 | Resolución 17 (2020-03-17) |
 | 3 | 2023-01-31 | Resolución 10 (2023-01-31) |
 | 4 | 2025-10-30 | Resolución 123 (2025-10-30) |
+| 5 | 2026-05-20 | Resolución 57 (2026-05-20) |
