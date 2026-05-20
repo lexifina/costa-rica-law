@@ -1,1 +1,2 @@
-ARTÍCULO 12- Es responsabilidad de todo ciudadano velar por el cuido y resguardo de la infraestructura pública de las aceras.
+Artículo 12- Es responsabilidad de todo ciudadano velar por el cuido y resguardo de la infraestructura pública de las aceras. Esto incluye procurar la conservación de todas las partes de los árboles, considerando las mejores prácticas de arboricultura, en las actividades de mantenimiento de las aceras.
+(Así reformado por el artículo 23 de la Ley de arbolado urbano, N° 10939 del 30 de abril de 2026)
