@@ -1,0 +1,4 @@
+ARTÍCULO 11- Uso de tecnologías para el control de trazabilidad de los proyectos
+La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE) deberá implementar y utilizar tecnologías avanzadas y controles innovadores automatizados para la gestión, supervisión y control de los proyectos financiados por el crédito. Dichas tecnologías, que deberán incluir sistemas de información geográfica, datos abiertos y plataformas accesibles al público, permitirán el control ciudadano en tiempo real, garantizando una mayor transparencia, acceso a la información y contribuyendo al éxito y eficiencia de los proyectos. La información deberá integrarse o ser interoperable con otras plataformas de transparencia de la CNE.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los quince días del mes de mayo del año dos mil veintiséis.

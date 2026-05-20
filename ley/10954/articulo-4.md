@@ -1,0 +1,3 @@
+ARTÍCULO 4- Incorporación de recursos en el presupuesto ordinario y extraordinario de la República
+Los recursos de este contrato de préstamo se incorporarán al presupuesto de la República, mediante la aprobación de presupuestos extraordinarios autorizados por la Asamblea Legislativa.
+La incorporación de los recursos de la Cooperación Financiera no Reembolsable proveniente del Mecanismo Global de Financiamiento Concesional (GCFF, por sus siglas en inglés) será por una única vez y se revalidarán automáticamente los saldos disponibles al presupuesto del ejercicio económico siguiente. Los recursos serán única y exclusivamente para ser utilizados en la ejecución del Programa de Reconstrucción y Desarrollo Territorial Resiliente al Clima.
