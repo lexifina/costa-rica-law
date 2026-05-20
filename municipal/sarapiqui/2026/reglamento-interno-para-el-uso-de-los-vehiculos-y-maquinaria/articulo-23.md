@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De los accidentes de tránsito con vehículos Municipales
+Artículo 23. Los funcionarios o colaboradores municipales que sufran un accidente de tránsito mientras conducen vehículos institucionales sin importar el tipo o clase, están obligados a llamar a la entidad aseguradora que corresponda y a la oficina de Tránsito para reportar el acontecimiento. Asimismo, informarán a su jefatura inmediata y acatarán las disposiciones e instrucciones que se dispongan para el caso, trasladarán la información que permita identificar a los conductores y vehículos involucrados en el evento, así como los testigos.
+Además, deberán conducirse con el mayor respeto ante las autoridades del país, los funcionarios de la entidad aseguradora respectiva, así como con las personas involucradas en el accidente.

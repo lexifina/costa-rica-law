@@ -1,0 +1,1 @@
+Artículo 29. Para la operación de la maquinaria especial se tendrá un listado de los funcionarios encargados de su uso y se consignará el estado del bien en términos generales para el debido respaldo de la Institución.

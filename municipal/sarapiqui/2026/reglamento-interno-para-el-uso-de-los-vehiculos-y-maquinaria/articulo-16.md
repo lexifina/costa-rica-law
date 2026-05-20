@@ -1,0 +1,2 @@
+Artículo 16. Autorización de manejo como requisito para el ejercicio de funciones.
+Cada jefatura de las diferentes dependencias o unidades será responsable de nombrar a los funcionarios que portarán el distintivo de rigor (carné institucional) para el uso oficial de vehículos y para operar maquinaria (equipo especial) por lo que deberán informar y gestionar ante la Unidad o Departamento correspondiente la confección y emisión de este.

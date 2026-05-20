@@ -1,0 +1,1 @@
+Artículo 11. De la coordinación de actividades. Para un mejor aprovechamiento del recurso de transporte, se procurará agrupar en un solo viaje los requerimientos de transporte que se generen diariamente hacia un mismo destino o las gestiones que deban ser atendidas cerca o dentro de la ruta propuesta.

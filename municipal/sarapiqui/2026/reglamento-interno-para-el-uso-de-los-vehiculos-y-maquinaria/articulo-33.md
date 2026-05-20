@@ -1,0 +1,1 @@
+Artículo 33. En la aplicación del régimen disciplinario, se cumplirán los procedimientos que establezca el Reglamento Autónomo de Servicios de la Municipalidad de Sarapiquí, la Ley General de la Administración Pública y las demás normas conexas aplicables para garantizarle el debido proceso a los funcionarios o colaboradores municipales involucrados.

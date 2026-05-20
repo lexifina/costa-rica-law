@@ -1,0 +1,1 @@
+Artículo 24. Tratándose de accidentes de tránsito, se prohíbe terminantemente a los conductores y/o personas autorizadas, a efectuar cualquier tipo de arreglo extrajudicial. Se deberá coordinar inmediatamente con la jefatura correspondiente para que sea notificada del accidente o colisión a efectos de gestionar los trámites legales y administrativos correspondientes.

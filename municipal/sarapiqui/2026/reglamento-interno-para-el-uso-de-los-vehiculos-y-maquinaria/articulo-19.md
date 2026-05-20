@@ -1,0 +1,1 @@
+Artículo 19. Vigencia de la autorización. La autorización institucional para el manejo de vehículos será indefinida, no obstante, la persona conductora que ocasionare un accidente de tránsito por omisión, imprudencia o falta al deber de cuidado, deberá asumir las consecuencias impuestas producto del respectivo proceso judicial o procedimiento administrativo que se le siga.

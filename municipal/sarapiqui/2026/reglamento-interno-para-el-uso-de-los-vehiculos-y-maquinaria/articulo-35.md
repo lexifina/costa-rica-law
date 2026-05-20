@@ -1,0 +1,1 @@
+Artículo 35. El presente reglamento municipal, rige a partir de su publicación. Deróguese el anterior reglamento interno sobre Uso de Vehículos Municipales, publicado en La Gaceta Nº 183 del día 24 de setiembre de 2001.

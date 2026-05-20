@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Autorización para conducir y operar vehículos y maquinaria de la Municipalidad de Sarapiquí
+Artículo 15. Legitimidad para conducir vehículos institucionales. Los vehículos y maquinaria de la Municipalidad solamente serán conducidos y operados por las personas debidamente autorizadas para ello y cuya identificación sea expedida por la Unidad o Departamento correspondiente. En casos extraordinarios y debidamente fundamentados principalmente en la atención de emergencias se podrá autorizar a funcionarios municipales que no están habituados a utilizar los vehículos de la institución, para lo cual se deberá contar con la debida autorización de la alcaldía.

@@ -1,0 +1,1 @@
+Artículo 17. Conducción de los vehículos de la Municipalidad. Ningún funcionario conducirá vehículos municipales diferentes a los cuales fue autorizado. La asignación se realizará acorde al tipo de licencia vigente que tenga.
