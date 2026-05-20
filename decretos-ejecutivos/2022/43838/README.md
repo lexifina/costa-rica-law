@@ -20,3 +20,4 @@ Reglamento Técnico RTCR 509:2022. Insumos Agrícolas. Plaguicidas Sintéticos F
 | 5 | 2025-01-13 | Decreto Ejecutivo 44878 (2025-01-13) |
 | 6 | 2025-04-24 | Decreto Ejecutivo 45007 (2025-04-24) |
 | 7 | 2026-03-23 | Decreto Ejecutivo 45674 (2026-03-23) |
+| 8 | 2026-05-20 | Decreto Ejecutivo 45811 (2026-05-20) |
