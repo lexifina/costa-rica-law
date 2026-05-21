@@ -1,0 +1,1 @@
+Artículo 9- Decisión inicial. El procedimiento ordinario de contratación se activará ante la unidad de proveeduría con la presentación del formulario de decisión inicial que debe emitir la jefatura de la unidad requirente y conforme se detalla en el artículo 86 del RLGCP.

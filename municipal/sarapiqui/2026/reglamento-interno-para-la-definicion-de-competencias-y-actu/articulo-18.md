@@ -1,0 +1,1 @@
+Artículo 18- Resolución de recursos. Le corresponde a la encargada de la unidad de proveeduría resolver los recursos de objeción que se interpongan contra el pliego de condiciones, en tanto que, los recursos de revocatoria contra el acto final serán conocidos y resueltos por la alcaldía o el concejo municipal, según la competencia asignada en el artículo 17 de este reglamento.

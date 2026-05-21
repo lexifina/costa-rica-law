@@ -1,0 +1,8 @@
+Artículo 5 - Concejo Municipal. Este órgano tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación pública:
+a) Dictar el acto final de las contrataciones según el tipo de procedimiento de contratación pública, al tenor de lo establecido en el artículo 17 de este Reglamento.
+b) Dar el seguimiento debido a los procedimientos de contratación que ha autorizado, mediante la conformación de una comisión especial.
+c) Autorizar las ventas o permutas de bienes inmuebles patrimoniales propiedad de la municipalidad, así como las compras de dichos bienes, todo de conformidad con la LGCP y el RLGCP.
+d) Autorizar las donaciones de bienes muebles e inmuebles cuando la municipalidad figure como sujeto donante o donatario.
+e) Autorizar al administrador del contrato las modificaciones unilaterales de los contratos que haya aprobado, así como la resolución, rescisión o cesión de estos y la ejecución de la garantía de cumplimiento.
+f) Resolver los recursos de revocatoria que se interpongan contra el acto final en los procedimientos de licitación menor y recursos de apelación en procedimientos sancionatorios (multas y cláusulas penales) contra los contratistas y de resolución contractual, así como de ejecución de garantías de cumplimiento en los que hayan fungido como órgano decisor del acto final. Asimismo, resolverá las diligencias de adición o aclaración que se presenten sobre cualquier resolución en los procedimientos antes señalados.
+g) Tramitar en el sistema digital unificado de compras públicas las gestiones que le correspondan através de la secretaria de ese órgano colegiado.

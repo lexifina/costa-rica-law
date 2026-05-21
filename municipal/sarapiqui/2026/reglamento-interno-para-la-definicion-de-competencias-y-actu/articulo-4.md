@@ -1,0 +1,13 @@
+Artículo 4 - Alcaldía. Este órgano tendrá a su cargo las siguientes responsabilidades en relación con los procesos de contratación pública:
+a) Dictar el acto final en las contrataciones según el tipo de procedimiento de contratación pública, al tenor de lo establecido en el artículo 17 de este reglamento.
+b) Autorizar el inicio de un procedimiento de contratación sin disponer de recursos presupuestarios, según lo prevé el artículo 38 de la LGCP.
+c) Suscribir con la unidad requirente la decisión inicial de los contratos de obra pública que deban tramitarse mediante una licitación mayor, según el inciso a) del artículo 172 del RLGCP.
+d) Emitir la decisión administrativa para el inicio de los procedimientos de contratación de las actividades exceptuadas de los procedimientos ordinarios que enumera el artículo 3 de la Ley General de Contratación Pública y dictar el acto final sobre éstos.
+e) Velar por la aplicación del Ordenamiento Jurídico en materia de Contratación Pública.
+f) Una vez al año, cuando se presente el informe de rendición de cuentas descrito en el artículo 17.g del Código Municipal, la alcaldía incorporará a dicho documento un apartado donde se detallen los procedimientos de contratación pública promovidos, incluyendo información sobre el estado al finalizar el período, el monto adjudicado, y el adjudicatario.
+g) Dar en arriendo o préstamo bienes muebles o inmuebles patrimoniales de la municipalidad y otorgar permisos de uso precario sobre estos últimos.
+h) Promover los procedimientos de contratación para la venta de bienes muebles de la municipalidad de Sarapiquí en desuso o de desecho; o bien, presenten un estado de deterioro notorio que impida o dificulte su uso para cumplir con los fines de la municipalidad, según se acredite técnicamente.
+i) Aprobar el programa anual de adquisiciones presentado por la unidad de proveeduría.
+j) Autorizar al administrador del contrato las modificaciones unilaterales de los contratos que haya aprobado, así como la resolución, rescisión o cesión de estos y la ejecución de la garantía de cumplimiento.
+k) Resolver los recursos de revocatoria que se interpongan contra el acto final en los procedimientos de licitación menor y recursos de apelación en procedimientos sancionatorios contra los contratistas (multas y cláusulas penales) y de resolución contractual, así como de ejecución de garantías de cumplimiento en los que hayan fungido como órgano decisor del acto final. Asimismo, resolverá las diligencias de adición o aclaración que se presenten sobre cualquier resolución en los procedimientos antes señalados.
+l) Suscribir los contratos en representación de la municipalidad.

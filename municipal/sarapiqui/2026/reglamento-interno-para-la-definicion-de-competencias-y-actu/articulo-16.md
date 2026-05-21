@@ -1,0 +1,1 @@
+Artículo 16- Función del encargado de Tesorería. Le corresponde la tarea de realizar las transferencias dinerarias para responder al pago de los servicios, bienes u obras contratadas por la municipalidad una vez que le sea remitida la orden de compra y nómina de pago con las autorizaciones respectivas de los funcionarios competentes.

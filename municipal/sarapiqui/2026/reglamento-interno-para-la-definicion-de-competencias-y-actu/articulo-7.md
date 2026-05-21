@@ -1,0 +1,1 @@
+Artículo 7- Prevalencia de la economía de escala. La unidad de proveeduría deberá consolidar los bienes y servicios comunes requeridos por las distintas dependencias municipales a través de contrataciones masivas coordinadas con el objetivo de obtener mejores precios y evitar fraccionamientos de compras a lo largo del año sobre bienes o servicios del mismo tipo.
