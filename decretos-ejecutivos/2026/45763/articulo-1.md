@@ -1,0 +1,32 @@
+N° 45763-H-MIDEPLAN-MICITT
+LA PRIMER VICEPRESIDENTE EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA, EL
+MINISTRO DE HACIENDA, EL MINISTRO DE PLANIFICACIÓN NACIONAL Y POLÍTICA
+ECONÓMICA Y LA MINISTRA DE CIENCIA, INNOVACIÓN, TECNOLOGÍA Y
+TELECOMUNICACIONES
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, y los artículos 25, numeral 1), 27, inciso 1) y 28, numeral 2), acápite b) de la Ley N.º 6227, Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas y 129 inciso b) de la Ley General de Contratación Pública del 27 de mayo de 2021.
+CONSIDERANDO
+I. Que por la Ley Nº 9986 de 27 de mayo de 2021, publicada en el Alcance 109 del Diario Oficial La Gaceta N°103 del 31 de mayo de 2021, se promulgó la Ley General de Contratación Pública y sus reformas, vigente a partir del 1° de diciembre del 2022.
+II. Que el Decreto Ejecutivo Nº 43808 del 22 de noviembre de 2022, Reglamento a la Ley General de Contratación Pública, fue publicado en el Alcance 258 del Diario Oficial la Gaceta N.º 229 del 30 de noviembre de 2022.
+III. Que la Agenda 2030 suscrita por Costa Rica el 9 de setiembre de 2016 para el Desarrollo Sostenible, impulsada por la Organización de las Naciones Unidas, tiene como objetivo fundamental reforzar el compromiso internacional para hacer frente a los retos sociales, económicos y medio ambientales, siendo pilar fundamental las políticas de la investigación, el desarrollo y la innovación.
+IV. Que la Ley General de Contratación Pública, Ley N.º 9986 del 27 de mayo de 2021, en el artículo 22, incorpora dentro de su regulación la compra pública innovadora, permitiendo a las Administraciones la adquisición de bienes, obras o servicios nuevos o significativamente mejorados en aspectos tales como sus procesos de producción, de construcción o nuevos métodos para su realización, que brinden una nueva solución que satisfaga de una mejor forma el interés público.
+V. Que dada la novedad per sé que implica la compra pública innovadora, se debe generar en Costa Rica una política clara y unificada en esta materia, con lineamientos que sirvan de guía a las administraciones públicas y entidades contratantes en la gestión y ejecución de recursos, que permita que su quehacer institucional pueda ser medido, monitoreado y evaluado según su naturaleza generando mayor transparencia en la contratación pública.
+VI. Que en virtud de la naturaleza de este tipo de adquisición existe un riesgo tecnológico, el cual es compartido entre las partes durante su ejecución, por lo que, en la eventual aplicación de las sanciones económicas, debe darse un tratamiento distinto y flexible dadas las posibilidades latentes de no generarse un resultado necesariamente positivo.
+VII. Que con el fin de dar seguridad jurídica y confianza a los operadores de la norma, se pretende acompañar a las instituciones y brindar lineamientos que proporcionen certeza a los involucrados en la compra pública innovadora mediante un modelo de gobernanza que tenga una participación, coordinada entre las instituciones involucradas en el tema, de manera que sea un pilar en el engranaje para la implementación de la compra pública innovadora en Costa Rica.
+VIII. Que mediante la Ley Nº 9971, "Ley de Creación de la Promotora Costarricense de Innovación e Investigación", se crea la Promotora Costarricense de Innovación e Investigación, para la promoción de la innovación y el desarrollo científico y tecnológico como ejes para alcanzar el desarrollo productivo y social del país, a través de la ejecución de instrumentos, programas y lineamientos de política pública dictados por el Poder Ejecutivo a través del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (MICITT).
+IX. Que de conformidad con los artículos 128 y 129 de la Ley General de Contratación Pública, Ley N.º 9986 del 27 de mayo de 2021, le corresponde a la Dirección de Contratación Pública del Ministerio de Hacienda proponer a la Autoridad de Contratación Pública las mejoras regulatorias pertinentes para su aprobación y posterior tramitación.
+X. Que en la sesión ordinaria N.º 03-2024 del 22 de marzo de 2024, la Autoridad de Contratación Pública aprobó la propuesta de elaborar un reglamento específico para la compra pública innovadora .
+XI. Que el anteproyecto del presente Decreto fue divulgado para consulta pública en el Diario Oficial La Gaceta N.º 105, de fecha 19 de agosto de 2025, de conformidad con lo establecido en el artículo 361 inciso 2) de la Ley General de la Administración Pública, lo que enriqueció su contenido.
+XII. Que el 13 de febrero de 2026 en la sesión extraordinaria N°02-25026 la Autoridad de Contratación Pública reitera la aprobación del Reglamento de Compra Pública Innovadora para continuar su formalización y trámite.
+XIII. Que de conformidad con los párrafos segundo y tercero del artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N.º 37045-MP-METC del 22 de febrero de 2012; el presente Decreto no crea ni modifica trámites, requisitos o procedimientos por lo que no requiere del Trámite de Mejora Regulatoria.
+Por tanto,
+DECRETAN:
+REGLAMENTO DE COMPRA PÚBLICA INNOVADORA
+TÍTULO I
+DISPOSICIONES GENERALES
+CAPÍTULO I
+GENERALIDADES
+SECCIÓN I
+Aspectos Generales
+Artículo 1. Objeto del reglamento. Establecer las disposiciones específicas para la gestión de la compra pública innovadora en el marco de la Ley General de Contratación Pública y su reglamento, a fin de fomentar soluciones innovadoras a necesidades públicas, así como mejorar la eficiencia y calidad de los servicios públicos.
+Las contrataciones reguladas en este reglamento se orientan a la adquisición de una solución a la necesidad de la Administración que no existe en el mercado, o bien que implica una mejora o adaptaciones significativas de soluciones disponibles en el mercado, que incorporen elementos innovadores en aspectos tales como: sus procesos de producción, construcción, diseño de productos o nuevos métodos para su realización y que brinden una nueva solución, que satisfaga de una mejor forma el interés público.
+Este tipo de adquisiciones deberán observar lo establecido en el Plan Nacional de Compra Pública (PNCP), las políticas públicas emitidas respectivamente por la Autoridad de Contratación Pública y por el rector del sector de ciencia, innovación, tecnología, telecomunicaciones y gobernanza digital del Gobierno de la República de Costa Rica.

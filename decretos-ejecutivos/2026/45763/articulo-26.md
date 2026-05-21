@@ -1,0 +1,10 @@
+Artículo 26. De los requisitos de admisibilidad. La Administración incorporará, según corresponda al tipo de compra pública innovadora, los requisitos de admisibilidad que considere indispensables para acreditar que los potenciales oferentes poseen las capacidades técnicas, legales y financieras necesarias para la ejecución del contrato. Entre dichos requisitos se incluyen, pero no se limitan a:
+a) Experiencia en proyectos de investigación o innovación similares al requerido por la Administración.
+b) Especialización del equipo de trabajo relacionado con la necesidad a satisfacer con la contratación.
+c) Equipamiento e infraestructura adecuada.
+d) Nivel de madurez tecnológica en que se encuentra.
+e) Plan y cronograma del proyecto.
+f) Pertinencia de la propuesta de solución a las especificaciones funcionales y técnicas demandadas por la Administración para el problema a resolver o la necesidad que requiere de una solución.
+g) Capacidad de transferencia de conocimiento y tecnología a la Administración contratante.
+h) Derechos de propiedad intelectual derivados de la propuesta innovadora, que incluya declaración jurada sobre los derechos propietarios por aportar, de las licencias de terceros por emplear, la concesión, cesión de uso y modificación de las soluciones aportadas a favor de la Administración y la manifestación expresa con el compromiso de cogestionar la extensión de las licencias de terceros a la Administración, de corresponder, en condiciones similares o mejores a las propias.
+i) Plan de riesgos y contingencias que incluya al menos, los riesgos asociados con la implementación de la solución propuesta, viabilidad técnica, disponibilidad de recursos y grado de incertidumbre en cuanto a los resultados esperados, la aceptación de asumir riesgos, así como las medidas de contingencias frente a situaciones que puedan provocar problemas o contratiempos, de acuerdo con los análisis previos realizados por el solucionador y por la Administración que sustentan la compra pública innovadora.

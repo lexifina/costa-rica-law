@@ -1,0 +1,1 @@
+TRANSITORIO I- Los procedimientos de contratación de compra pública innovadora iniciados, antes de la vigencia de este reglamento, se concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del concurso, incluyendo el régimen recursivo aplicable a dicho procedimiento.

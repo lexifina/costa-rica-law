@@ -1,0 +1,5 @@
+Artículo 36. Seguimiento de la ejecución contractual. La Administración deberá establecer desde el pliego de condiciones los mecanismos para el seguimiento y supervisión de la ejecución del contrato por parte del comité técnico, así como la detección y corrección de posibles desviaciones, a efectos de garantizar el cumplimiento de su finalidad.
+El seguimiento deberá incluir, al menos, la supervisión del plan de trabajo y cronograma de ejecución, el cumplimiento de los hitos parciales y de los indicadores claves de desempeño y cumplimiento, así como visitas al sitio.
+La supervisión del contrato deberá comprender, al menos, la administración de los riesgos según el plan de mitigación aprobado por la Administración y el cumplimiento de las cláusulas contractuales, tales como la aplicación de sanciones económicas, garantía de cumplimiento, modificación contractual y terminación del contrato.
+Cada solucionador deberá designar un administrador del contrato responsable de coordinar y gestionar las actividades de seguimiento y supervisión.
+Todo lo anterior, de conformidad con lo previsto en la Ley General de Contratación Pública y su reglamento.

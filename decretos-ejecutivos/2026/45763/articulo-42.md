@@ -1,0 +1,2 @@
+Artículo 42. Reforma. Se reforma el Artículo 60 del Decreto Ejecutivo N.º No. 43808 del 22 de noviembre de 2022 Reglamento a la Ley General de Contratación Pública, de la siguiente manera:
+"Artículo 60. Compra pública innovadora. Para la compra pública innovadora se emitirá una reglamentación especial atendiendo a las disposiciones generales dispuestas en la Ley General de Contratación Pública y en este reglamento."

@@ -1,0 +1,7 @@
+TÍTULO IV
+DISPOSICIONES FINALES
+CAPÍTULO I
+REFORMAS, DEROGATORIAS, TRANSITORIO Y VIGENCIA
+Artículo 41. Adición. Se adiciona el artículo 59 bis del Decreto Ejecutivo N.º No. 43808 del 22 de noviembre de 2022 Reglamento a la Ley General de Contratación Pública para que se lea de la siguiente manera:
+"Artículo 59 bis. Criterios de innovación en Contratación Pública Estratégica. La inclusión de criterios de innovación en la contratación pública estratégica requiere que la Administración establezca mecanismos para que, en su determinación como factores de admisibilidad o de evaluación, se utilicen los últimos criterios de actualización tecnológica o científica. Esta fijación deberá hacerse conforme la mejor consecución de los objetivos definidos en el Plan Nacional de Inversión Pública, el Plan Nacional de Compra Pública y a las políticas de innovación y transformación tecnológica o científica definidas por las entidades públicas competentes.
+Cuando se defina la inclusión de estos criterios tecnológicos, científicos y de innovación, resulta necesario considerar las posibilidades y necesidades de la Administración durante la ejecución contractual. No podrá alegarse como imposibilidad de la Administración la carencia de análisis para la incorporación de estos criterios, en cuyo caso deberá requerir colaboración y la asesoría de las demás unidades administrativas de la institución u otras instituciones externas competentes en el tema."

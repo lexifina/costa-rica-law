@@ -1,0 +1,1 @@
+Artículo 43. Derogatorias. Deróguense los artículos 61, 62, 63, 64, 65, 66, 67, 68, 69,70 y 71 del Decreto Ejecutivo N.º 43808 del 22 de noviembre de 2022, Reglamento a la Ley General de Contratación Pública.

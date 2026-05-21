@@ -1,0 +1,4 @@
+SECCIÓN III
+Desarrollo de la consulta preliminar del mercado
+Artículo 13. Publicación y contenido de la invitación a participar de la consulta preliminar. La convocatoria para participar de la consulta preliminar debe ser pública y abierta a todos los interesados y realizarse por medio del sistema digital unificado, a través de las alertas tempranas previstas en el artículo 31 de la Ley General de Contratación Pública y cualquier otro medio de publicidad que determine la Administración, pudiendo desarrollar actividades de promoción y divulgación de la convocatoria.
+La invitación contendrá al menos la identificación de la Administración solicitante, la hora y fecha límite para la recepción de las propuestas solucionadoras, el correo electrónico, número de teléfono y persona de contacto, la documentación descrita en el artículo 12 de este reglamento, así como, cualquier otra información que resulte pertinente.

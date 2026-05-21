@@ -1,0 +1,1 @@
+Artículo 24. Contenido presupuestario. De acuerdo con lo establecido en el artículo 38 de la Ley General de Contratación Pública y el artículo 87 de su reglamento, de previo a promover el concurso, la Administración deberá acreditar la existencia de contenido presupuestario suficiente para enfrentar la erogación respectiva.

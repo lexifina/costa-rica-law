@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Se aplicará a todos los sujetos cubiertos por el ámbito de aplicación de la Ley General de Contratación Pública para la adquisición de bienes, obras o servicios innovadores.
