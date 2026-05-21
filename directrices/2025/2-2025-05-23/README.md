@@ -14,3 +14,4 @@ Aplicación registral de la Ley N° 10.597: para establecer el correo electróni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-30 | la propia norma |
+| 2 | 2026-05-21 | Directriz 1 (2026-05-21) |
