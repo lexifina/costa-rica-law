@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento aplica a las acciones de la Comisión de Sostenibilidad de Popular SAFI, en su función de apoyo, coordinación y seguimiento de los programas Bandera Azul Ecológica (PBAE) y Plan de Gestión Ambiental Institucional (PGAI).
