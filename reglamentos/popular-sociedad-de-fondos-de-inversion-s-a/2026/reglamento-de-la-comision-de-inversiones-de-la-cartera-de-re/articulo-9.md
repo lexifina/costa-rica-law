@@ -1,0 +1,3 @@
+Artículo 9º-Periodicidad de sesiones y Quórum. La Comisión sesionará de manera ordinaria trimestralmente. En los casos en que sea requerido tratar un asunto particular se convocará a sesiones extraordinarias.
+La solicitud para realizar la convocatoria la realizará el Gestor Financiero a la Presidencia de la Comisión con al menos tres días hábiles de anticipación, siendo ésta quien realice la convocatoria formal a los miembros mediante correo electrónico, la cual puede ser en modalidad presencial o virtual.
+El cuórum para dar validez a sus actuaciones y decisiones será con al menos tres de los integrantes que la conforman.

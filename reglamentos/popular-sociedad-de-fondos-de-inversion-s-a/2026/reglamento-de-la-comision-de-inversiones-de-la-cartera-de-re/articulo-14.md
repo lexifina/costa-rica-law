@@ -1,0 +1,1 @@
+Artículo 14.-Registros y reportes. Los acuerdos y decisiones de la Comisión de Inversiones serán registradas en sesiones grabadas con el respaldo de una minuta que debe ser firmada por los participantes.

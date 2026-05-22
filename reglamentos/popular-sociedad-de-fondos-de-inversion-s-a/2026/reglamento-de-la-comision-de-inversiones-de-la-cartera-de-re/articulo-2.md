@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento regula únicamente la administración de la cartera de recursos propios de Popular SAFI, e involucra a la Comisión de Inversiones, así como a los órganos y funcionarios que participan directa o indirectamente en la toma de decisiones, ejecución, supervisión y control de las inversiones realizadas con dichos recursos.

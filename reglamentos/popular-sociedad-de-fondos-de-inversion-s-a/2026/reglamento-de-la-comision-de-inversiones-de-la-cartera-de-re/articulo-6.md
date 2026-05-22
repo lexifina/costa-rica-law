@@ -1,0 +1,1 @@
+Artículo 6º-Límites de Inversión. Con el fin de mantener una adecuada gestión del riesgo, la cartera de recursos propios de Popular SAFI deberá sujetarse a los límites prudenciales establecidos en la política conglomeral supra indicada.

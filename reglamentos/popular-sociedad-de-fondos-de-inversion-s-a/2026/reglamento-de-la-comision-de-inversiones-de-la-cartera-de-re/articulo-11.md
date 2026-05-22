@@ -1,0 +1,1 @@
+Artículo 11.-Toma de acuerdos. Las decisiones serán tomadas mediante votación afirmativa de la mayoría simple de sus miembros. En caso de presentar se empate, la Gerencia General tendrá el criterio de desempate.

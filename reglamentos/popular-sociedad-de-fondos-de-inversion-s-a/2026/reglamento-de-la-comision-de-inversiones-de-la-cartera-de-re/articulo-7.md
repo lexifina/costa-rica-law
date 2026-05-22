@@ -1,0 +1,1 @@
+Artículo 7º-Comisión de Inversiones. Se reconoce y regula la Comisión de Inversiones como el órgano responsable de evaluar, recomendar y supervisar las decisiones de inversión relacionadas con la cartera de recursos propios de Popular SAFI, en el marco del presente reglamento y la política vigente.
