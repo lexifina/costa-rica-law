@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Aplica a la infraestructura, equipos, y redes de distribución eléctrica y de telecomunicaciones construidas en urbanizaciones, en vías públicas y propiedades privadas que cumplan con los criterios técnicos, legales y administrativos previamente definidos por el ICE.

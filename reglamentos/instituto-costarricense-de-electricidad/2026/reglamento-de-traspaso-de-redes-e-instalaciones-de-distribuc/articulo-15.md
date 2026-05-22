@@ -1,0 +1,1 @@
+Artículo 15.-Derogatoria. Este documento deroga el Reglamento de Traspaso de Redes e Instalaciones de Distribución Eléctrica y de Telecomunicaciones, aprobado por Consejo Directivo en el artículo 7 del Capítulo IV de la Sesión 5781 del 30 de enero del 200,7 código OPN 41.00.001.2006, versión 1"
