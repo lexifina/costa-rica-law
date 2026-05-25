@@ -1,2 +1,0 @@
-Artículo 38. Del Equipo especializado.
-Se entiende como activo especializado, los vehículos, equipo para extinción de incendios, equipo médico-hospitalario, equipo de computación, equipo para impresión y demás equipo que presente características especiales.

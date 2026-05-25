@@ -1,4 +1,0 @@
-Artículo 12. Trámite previo al inicio del procedimiento de contratación.
-El Departamento de Proveeduría procederá, posterior a la solicitud de la unidad usuaria donde concurran todos los elementos de información necesarios, a tramitar la contratación conforme los procedimientos que establece el marco jurídico correspondiente.
-De igual manera, procurará agrupar por afinidad las necesidades de todas las unidades, de forma que se tramiten conjuntamente, para lograr mejores condiciones económicas y evitar el fraccionamiento en las contrataciones.
-El procedimiento de contratación a seguir será de conformidad con los montos de la contratación según se dispongan en la Ley N°9986, Ley General de Contratación Pública y su Reglamento; así como las particularidades del bien o servicio a contratar que permita utilizar procedimientos sin sujeción por su cuantía.
