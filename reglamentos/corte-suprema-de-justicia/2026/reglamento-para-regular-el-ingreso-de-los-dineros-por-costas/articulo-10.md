@@ -1,0 +1,1 @@
+Artículo 10. Requisitos para pago de facturas. Toda factura comercial que respalda el gasto, deberá cumplir con los requisitos exigidos por la Dirección General de Tributación Directa y la normativa institucional vigente sobre este tema.

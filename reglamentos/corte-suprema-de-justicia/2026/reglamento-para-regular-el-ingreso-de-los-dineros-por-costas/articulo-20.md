@@ -1,0 +1,1 @@
+Artículo 20. Titularidad y disposición de bienes. Todos los bienes y servicios adquiridos con los recursos a los que se refiere el presente reglamento serán propiedad del Poder Judicial, destinados para el uso exclusivo de la Sección Especializada de Asistencia Social de la Defensa Pública.

@@ -1,0 +1,2 @@
+Artículo 7. Del informe de Tesorería.En los primeros cinco días hábiles de cada mes, la persona Administradora de la Defensa Pública remitirá a la Auditoría Judicial y al Departamento Financiero Contable, un informe del movimiento de depósitos, giros y ejecución de los recursos, el cual será acompañado del correspondiente estado de conciliación bancaria.
+Estos informes servirán de insumo para futuros estudios efectuados por la Auditoría.

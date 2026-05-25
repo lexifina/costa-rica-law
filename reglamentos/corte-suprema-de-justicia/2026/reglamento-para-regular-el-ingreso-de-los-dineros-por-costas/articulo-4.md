@@ -1,0 +1,5 @@
+Artículo 4. De la gestión de ingresos de la Sección Especializada de Asistencia Social:
+a) La persona obligada mediante acuerdo o resolución firme, deberá realizar el depósito del dinero en las Cuentas Electrónicas del Sistema Automatizado de Depósitos y Pagos que se encuentra ligado al expediente judicial del despacho donde se tramitó el proceso judicial, para liquidar o abonar al monto de la condena por costas.
+b) Las sumas provenientes de los procesos de ejecución.
+c) Luego que la parte obligada deposite el monto de dinero a la cuenta electrónica asignada al expediente, la persona juzgadora mediante orden de giro autorizará que se pague el 50% correspondiente a la Sección Especializada de Asistencia Social.
+d) En virtud del principio de caja única del Estado, los dineros requeridos para la ejecución presupuestaria serán trasladados al fondo general del Gobierno, para ser incorporados vía presupuesto de la República al Poder Judicial, para ser utilizados en los términos regulados por el artículo 454 del Código de Trabajo; sin que se tomen en cuenta para establecerle limitaciones presupuestarias.

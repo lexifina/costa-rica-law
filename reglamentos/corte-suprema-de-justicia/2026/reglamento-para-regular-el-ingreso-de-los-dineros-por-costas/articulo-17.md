@@ -1,0 +1,1 @@
+Artículo 17. Cumplimiento de las disposiciones reglamentarias.Será responsabilidad de la persona Directora de la Defensa Pública, de la persona encargada de la Unidad de Gestión de Apoyo y de la persona Administradora, el velar por el cumplimiento de las disposiciones contempladas en este reglamento.

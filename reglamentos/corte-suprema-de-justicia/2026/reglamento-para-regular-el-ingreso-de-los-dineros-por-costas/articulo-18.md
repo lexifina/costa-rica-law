@@ -1,0 +1,1 @@
+Artículo 18. Sanciones. Los incumplimientos a lo estipulado en este Reglamento serán sancionados de acuerdo con lo dispuesto en la Ley Orgánica del Poder Judicial, la Ley General de la Administración Pública y el resto del ordenamiento jurídico.

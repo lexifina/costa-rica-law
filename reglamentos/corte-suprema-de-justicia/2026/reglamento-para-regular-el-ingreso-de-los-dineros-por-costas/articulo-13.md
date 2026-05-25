@@ -1,0 +1,5 @@
+Artículo 13. Obligaciones de la persona encargada de la Unidad de Gestión de Apoyo de la Defensa Pública.
+a) Revisar los informes del movimiento de depósitos, giros y ejecución de los ingresos de la Sección Especializada de Asistencia Social, verificando el debido cumplimiento de lo dispuesto en el numeral 10 de este Reglamento.
+b) Informar desde el momento en que tenga conocimiento, a la Auditoría Judicial y a la persona Directora de la Defensa Pública cualquier anomalía que se presente en el movimiento de los ingresos de la Sección Especializada de Asistencia Social
+c) Velar porque el personal de la Unidad de Gestión de Apoyo de la Defensa Pública, ejecute los inventarios y las conciliaciones de los ingresos de la Sección Especializada de Asistencia Social.
+d) Realizar otras labores que la normativa institucional, la persona Administradora, la persona Directora de la Defensa Pública, la Corte Plena o el Consejo Superior le encomienden o correspondan según la Ley de Control Interno y las directrices institucionales.

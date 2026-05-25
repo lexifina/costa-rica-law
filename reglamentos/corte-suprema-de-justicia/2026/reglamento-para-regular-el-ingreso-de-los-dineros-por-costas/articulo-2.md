@@ -1,0 +1,8 @@
+Artículo 2. Definición de Ingresos. La Sección Especializada de Asistencia Social de la Defensa Pública percibirá los siguientes ingresos:
+a) El 50% de los dineros que por concepto de costas personales se generen a favor de la parte patrocinada por la asistencia legal (artículo 454 inciso a del Código de Trabajo).
+b) Los honorarios por la asistencia legal que deberá pagar la parte denunciante o acusada en los procesos de juzgamiento de las Infracciones a las leyes de Trabajo y Previsión social (artículo 672 del Código de Trabajo).
+c) Los honorarios que deberá pagar la persona usuaria beneficiaria del servicio de patrocinio letrado de la Sección Especializada de Asistencia Social cuando renuncie a la asistencia social antes de la terminación del proceso, de conformidad con los artículos 158 y 159 de la Ley Orgánica de Poder Judicial. El monto de estos honorarios será determinado por la persona juzgadora en el respectivo proceso judicial.
+d) Las sumas que por concepto de intereses generen los depósitos en las Cuentas Electrónicas del Sistema Automatizado de Depósitos y Pagos, asignados a un número único de expediente judicial, en el Banco de Costa Rica o en la entidad Bancaria Estatal que se asigne.
+e) Recaudo proveniente de las multas por infracciones según el artículo 25 de la Ley de protección de las personas denunciantes y testigos de actos de corrupción contra represalias laborales.
+f) Las sumas por concepto de costas personales obtenidas cuando se haya designado a una persona abogada de asistencia social para la representación en los términos del artículo 445 del Código de Trabajo.
+g) Cualquier otro aporte que señale la ley.
