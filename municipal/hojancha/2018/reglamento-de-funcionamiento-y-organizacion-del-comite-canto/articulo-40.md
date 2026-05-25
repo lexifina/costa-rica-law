@@ -1,1 +1,0 @@
-Artículo 40.—Los Comités Comunales de Deportes y Recreación, son la máxima representación del deporte y la recreación en la comunidad. Deben coordinar con el Comité Cantonal de Deportes diversos aspectos que éste les solicite en el campo de la promoción, administración de instalaciones, etc.

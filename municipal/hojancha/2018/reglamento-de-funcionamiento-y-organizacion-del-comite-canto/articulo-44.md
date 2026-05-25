@@ -1,2 +1,0 @@
-Artículo 44.—Cada Comité Comunal de Deportes y Recreación, deberá llevar un libro de actas, un libro de Tesorería con hojas numeradas, deben ser legalizados por el comité Cantonal de Deportes y Recreación, quien los autorizará sellando cada una de las páginas de los libros.
-El Comité Cantonal de Deportes, podrá en el momento que lo considere conveniente, solicitar los libros para su revisión, si no aportan dichos libros quedarán desinscritos ante el Comité Cantonal.

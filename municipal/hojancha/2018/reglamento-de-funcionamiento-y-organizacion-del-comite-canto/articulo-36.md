@@ -1,1 +1,0 @@
-Artículo 36.—El presupuesto debe contener una estimación de ingresos incluyendo una descripción clara y precisa de lo que persigue hacer durante el año presupuestado, de acuerdo con las exigencias legales y reglamentarias establecidas al efecto, sujeto a las disposiciones de la Contraloría General de la República y presentarlo ante la Municipalidad en la fecha indicada.

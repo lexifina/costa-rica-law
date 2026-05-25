@@ -1,1 +1,0 @@
-Artículo 54.—Las tarifas por el uso de las instalaciones deportivas y recreativas son de cobro obligatorio y serán fijadas anualmente por el Comité Comunal de Deportes y Recreación, de los que tenga bajo su administración, con previo estudio autorizado por el Concejo Municipal.

@@ -1,1 +1,0 @@
-Artículo 35.—Para los efectos del Comité Cantonal de Deportes y Recreación y sus distintos órganos deben elaborarse con los planes propuestos y programas que se ejecutarán en el periodo que este cubre los gastos presupuestarios, no pueden exceder los gastos estimados.

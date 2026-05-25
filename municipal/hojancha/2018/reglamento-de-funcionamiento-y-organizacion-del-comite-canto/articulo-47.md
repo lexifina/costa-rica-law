@@ -1,1 +1,0 @@
-Artículo 47.—Anualmente el comité Cantonal de Deportes y Recreación, convocará a todos los presidentes de los comités Comunales del cantón, a una reunión conjunta. En esta oportunidad, los Comités comunales presentarán un informe, indicando las actividades realizadas y por realizar de su aprobación.

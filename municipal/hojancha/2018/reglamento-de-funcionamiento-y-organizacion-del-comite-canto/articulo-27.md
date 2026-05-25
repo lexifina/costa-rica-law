@@ -1,1 +1,0 @@
-Artículo 27.—Recursos administrativos: revisión sobre acuerdos, puede ser presentado por un miembro directivo, por una sola vez, inmediatamente después de que haya aprobado el acta; si la revisión fuese acogida, el asunto revisado volverá al estado en que se encontraba al momento anterior a su votación.

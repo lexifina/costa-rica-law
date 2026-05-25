@@ -1,1 +1,0 @@
-Artículo 68.—El presente Reglamento lo establece la Municipalidad de Hojancha, de conformidad con lo que establecen los artículos 165 y siguientes del Código Municipal, y deja sin efecto cualquier otro reglamento o reglamentos que hasta la fecha y en ausencia del presente, venían rigiendo el funcionamiento del Comité Cantonal de Deportes y Recreación de Hojancha.

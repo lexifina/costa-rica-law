@@ -1,1 +1,0 @@
-Artículo 37.—El Comité Cantonal de Deportes y Recreación deberá someter su presupuesto a conocimiento del Concejo Municipal, sujeto a las disposiciones de la ley orgánica de la Contraloría General de la República. Debe presentarlo en la fecha indicada.

@@ -1,1 +1,0 @@
-Artículo 60.—Las organizaciones deportivas, los deportistas en general y cualquier persona vinculada al deporte y recreación, aceptan implícitamente el presente Reglamento, el desconocimiento del mismo no les exime de culpa al infringirlo.

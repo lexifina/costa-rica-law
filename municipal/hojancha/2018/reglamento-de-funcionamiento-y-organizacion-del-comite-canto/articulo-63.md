@@ -1,1 +1,0 @@
-Artículo 63.—Los Comités Comunales de Deportes y Recreación serán el órgano de enlace entre el Comité Cantonal de Deportes y Recreación y la comunidad respectiva, estarán integrados por 5 miembros residentes de la misma, los cuales serán nombrados en la Asamblea General convocada para tal efecto por el Comité Cantonal de Deportes y Recreación.
