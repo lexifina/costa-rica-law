@@ -1,3 +1,0 @@
-Artículo 11. Contratación de valuación actuarial externa.
-La Instancia del Fondo debe realizar la contratación de servicios de Auditoría Actuarial Externa, de conformidad con lo estipulado por la SUPEN, para lo cual debe aplicar la Ley N° 9986, Ley General de Contratación Pública.
-Los resultados de estas evaluaciones serán de conocimiento de la Gerencia General y posteriormente informarán a la Junta Directiva del INS sobre aquellos aspectos relevantes que inciden directamente sobre la gestión actual y futura del Fondo. La Instancia del Fondo los remitirá a la SUPEN, según la periodicidad establecida por este regulador.

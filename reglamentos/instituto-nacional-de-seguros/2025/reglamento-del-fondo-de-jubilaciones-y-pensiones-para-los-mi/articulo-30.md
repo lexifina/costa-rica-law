@@ -1,2 +1,0 @@
-Artículo 30. Condiciones.
-Se reconocerá como compañera de hecho a la mujer con aptitud legal para contraer matrimonio, que hubiere convivido con el bombero fallecido, quien también debía contar con aptitud legal para contraer matrimonio, antes de su deceso, y que dicha relación haya cumplido con el plazo dispuesto en el Código de Familia. Para tales efectos, la interesada deberá aportar una declaración jurada que haga constar la convivencia de forma pública, notoria, única y estable, para otorgar el beneficio.
