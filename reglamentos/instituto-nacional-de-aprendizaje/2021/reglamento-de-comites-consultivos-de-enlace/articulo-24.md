@@ -1,4 +1,0 @@
-Artículo 24.-Sesiones de los Comités Consultivos de Enlace. Los Comités Consultivos de Enlace sesionarán en forma ordinaria cuatro veces al año, (al menos una vez por trimestre). Así mismo, podrán sesionar de forma extraordinaria cuando así se requiera.
-Las sesiones de los CCE podrán realizarse de manera presencial o virtual, respetando las disposiciones establecidas con respecto al Quórum, deberes y atribuciones de las personas representantes de los CCE, definidos en este Reglamento.
-Deberán presentarse de manera obligatoria a estas sesiones y en caso de ausencia deberán de justificarla ante quien preside el Comité.
-En caso de ausentarse de manera injustificada más de dos veces de forma consecutiva, se informará a la persona representante del sector productivo, regional o pyme, el cual valorará justificar dichas ausencias por justa causa o bien, proceder con su sustitución en el CCE.

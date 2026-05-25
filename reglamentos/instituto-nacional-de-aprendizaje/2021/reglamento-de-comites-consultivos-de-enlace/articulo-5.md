@@ -1,1 +1,0 @@
-Artículo 5°-Creación de los Comités. La aprobación para la creación de Comités Consultivos de Enlace será atribución de la Junta Directiva, de conformidad con el artículo 7°, inciso f) de la Ley 6868 Ley Orgánica del INA y sus reformas.

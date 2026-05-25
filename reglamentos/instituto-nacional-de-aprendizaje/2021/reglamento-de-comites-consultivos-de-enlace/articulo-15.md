@@ -1,4 +1,0 @@
-Artículo 15.-Integración del Comité. El CCE PYME estará integrado de la siguiente forma:
-a) Un mínimo de tres y un máximo de nueve personas externas al INA, representantes de las Micro, Pequeñas y Medianas Empresas, designadas por las Cámaras de los representen en los diferentes sectores productivos, personas representantes de las instituciones públicas pertinentes y personas representantes del SBD.
-b) La jefatura de la UFODE será quien preside y en caso fortuito, fuerza mayor o por enfermedad, quien presidirá será alguna persona funcionaria de la UFODE designada formalmente por dicha Jefatura.
-Se podrá invitar a alguna persona funcionaria del INA o de organizaciones externas que requiera intervenir en la sesión del CCE, mediante algún medio electrónico, plataforma u oficio, según el artículo 23, inciso a) de este Reglamento, los cuales tendrán voz, pero no voto.

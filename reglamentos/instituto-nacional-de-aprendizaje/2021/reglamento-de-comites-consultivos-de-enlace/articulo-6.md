@@ -1,1 +1,0 @@
-Artículo 6°-Tipos de Comités. El INA cuenta con tres tipos de Comités Consultivos de Enlace, siendo estos los siguientes: Sector Productivo, Regional y Pyme, encontrándose este último en la Unidad para el Fomento y Desarrollo Empresarial.

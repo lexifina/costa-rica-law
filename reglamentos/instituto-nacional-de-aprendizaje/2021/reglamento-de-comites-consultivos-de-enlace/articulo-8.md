@@ -1,2 +1,0 @@
-Artículo 8°-Comités Consultivos de Enlace Sector Productivo. Son órganos consultivos de los Núcleos de Formación y Servicios Tecnológicos. Habrá un CCE por cada Sector Productivo.
-En los casos, en donde el Sector Productivo lo requiera y de acuerdo con su naturaleza, podrá conformarse un Comité Consultivo de Enlace por Subsector, bajo las mismas condiciones que los denominados Comités Consultivos de Enlace del Sector Productivo.

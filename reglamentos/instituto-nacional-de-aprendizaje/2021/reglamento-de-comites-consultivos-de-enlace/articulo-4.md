@@ -1,1 +1,0 @@
-Artículo 4°-Naturaleza. Los Comités Consultivos de Enlace son órganos colegiados, de carácter consultivo, que coadyuvan a la consecución de los fines institucionales, integrados por personas funcionarias del Instituto Nacional de Aprendizaje y personas representantes de entidades externas, estos últimos sin que se generen dietas o estipendio alguno por su participación.
