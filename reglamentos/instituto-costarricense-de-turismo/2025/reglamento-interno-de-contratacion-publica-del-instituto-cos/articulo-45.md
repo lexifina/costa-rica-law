@@ -1,1 +1,0 @@
-Artículo 45- Normativa adicional. La Junta Directiva o la Gerencia General, atendiendo sus competencias, emitirán las normas adicionales y dictarán los trámites administrativos a seguir, para la correcta y eficaz aplicación de este Reglamento.

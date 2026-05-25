@@ -1,1 +1,0 @@
-Artículo 46- Lineamientos. El Departamento de Proveeduría, emitirá los lineamientos, guías, circulares y cualquier otro documento que corresponda en materia de contratación pública, los cuales son de acatamiento obligatorio.

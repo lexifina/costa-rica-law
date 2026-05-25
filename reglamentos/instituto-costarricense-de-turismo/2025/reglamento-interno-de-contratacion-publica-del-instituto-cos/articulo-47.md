@@ -1,1 +1,0 @@
-Artículo 47- Derogatorias. Este Reglamento deja sin efecto el Reglamento Interno de Contratación Pública, publicado en el Diario Oficial La Gaceta No. 127, del 13 de julio 2023 y cualquier norma o procedimiento que se le oponga.
