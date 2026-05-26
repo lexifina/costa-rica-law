@@ -1,0 +1,1 @@
+ARTÍCULO 4. Derogatorias. Deróguese el Decreto Ejecutivo "Reglamento para la utilización del Sistema Integrado de Compras Públicas "SICOP", Nº 41438-H del 12 de octubre de 2018, publicado en el Alcance Nº 13 al Diario Oficial La Gaceta Nº 13 del 18 de enero de 2019.
