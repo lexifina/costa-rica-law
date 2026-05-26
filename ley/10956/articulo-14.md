@@ -1,0 +1,2 @@
+ARTÍCULO 14- Fondos excluidos de la regla f iscal
+Los gastos para el desarrollo de este proyecto estarán excluidos de la aplicación del título IV de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018. Esta exclusión comprende los recursos provenientes de los contratos de préstamo N.° 2241 y FI N.° 97486, los fondos de contrapartida nacional y los costos asociados a la relocalización de servicios públicos.
