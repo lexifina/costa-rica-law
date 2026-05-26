@@ -1,0 +1,1 @@
+Artículo 115. - Errores y omisiones. Si una comunicación contuviera un error u omisión significativa, el Auditor o Auditora Interna deberá comunicar la información corregida a todas las partes que recibieron la comunicación original.

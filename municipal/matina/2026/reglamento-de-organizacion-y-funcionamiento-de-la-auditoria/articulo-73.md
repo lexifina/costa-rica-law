@@ -1,0 +1,5 @@
+Artículo 73. - Etapas del proceso de auditoría.
+a) Planificación: En esta etapa del proceso se debe elaborar un plan por cada trabajo o estudio que se realice.
+b) Examen: Cumpliendo con los objetivos propuestos en cada uno de los estudios o investigaciones, la Auditoría recopila, analiza e interpreta la información obtenida, con el fin de compararla con los criterios establecidos y la normativa aplicable que respalde razonablemente los resultados, conclusiones y recomendaciones, garantizando una labor de alta calidad, de un modo económico, eficiente y eficaz y de manera oportuna (momento) para obtener un conocimiento del asunto auditado.
+c) Comunicación de resultados: Una vez analizados los hallazgos del estudio, se formulan las conclusiones y recomendaciones, estas últimas dirigidas a la Administración Activa, con el propósito de que se corrijan o eliminen las deficiencias e incorporen mejoras a los procesos, controles o procedimientos en el desarrollo de esas actividades.
+d) Seguimiento de recomendaciones: Etapa que nos permite verificar si lo recomendado a la administración activa, se ha cumplido a cabalidad y dentro de los plazos establecidos.

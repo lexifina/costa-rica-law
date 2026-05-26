@@ -1,0 +1,1 @@
+Artículo 79. - Suficiencia del alcance. Al valorar la realización de una asesoría o advertencia que requiera de revisión, deberá asegurarse que el alcance del trabajo sea suficiente para cumplir con el objetivo que se pretende.

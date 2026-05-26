@@ -1,0 +1,1 @@
+Artículo 106. - Monitoreo de resultados. El personal de la Auditoría Interna podrá monitorear las operaciones y programas para verificar que los resultados sean consistentes con los objetivos y metas establecidos, y de que las operaciones, programas y presupuestos estén siendo implantados o desempeñados tal como fueron planeados.

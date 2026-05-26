@@ -1,0 +1,1 @@
+Artículo 88. - Programa de trabajo completo y aprobado. El programa de trabajo deberá contener los procedimientos para identificar, analizar, evaluar y registrar información durante la tarea. El programa de trabajo deberá ser aprobado con anterioridad a su ejecución por el o la responsable dentro de la Auditoría Interna.

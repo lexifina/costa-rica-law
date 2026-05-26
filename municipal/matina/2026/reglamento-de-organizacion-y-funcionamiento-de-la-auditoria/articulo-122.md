@@ -1,0 +1,3 @@
+CAPÍTULO XI
+TRÁMITE DE DENUNCIAS
+Artículo 122. -Atención de denuncias. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten la Hacienda Pública, así como lo conceptuado en la Ley contra la Corrupción y el enriquecimiento ilícito. Las denuncias podrán presentarse en forma física o a través de los correos electrónicos que habilite la Auditoría Interna para ese fin, con el fin de garantizar la participación ciudadana en el control de la gestión pública y la confidencialidad de la identidad del denunciante y los hechos denunciados.

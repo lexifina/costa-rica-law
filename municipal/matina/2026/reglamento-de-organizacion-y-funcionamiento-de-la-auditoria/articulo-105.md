@@ -1,0 +1,1 @@
+Artículo 105. - Inspección de objetivos, metas y programas. El personal de la Auditoría Interna deberá inspeccionar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos y de que éstos sean consistentes con la organización, medibles y de impacto.

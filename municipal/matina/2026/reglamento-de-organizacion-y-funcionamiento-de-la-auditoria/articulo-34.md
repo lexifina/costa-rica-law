@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DEL AUDITOR Y SUBAUDITOR INTERNO
+Artículo 34. -Del Auditor (a) Interno (a) y sub auditor (a) interno (a). El cargo de Auditor corresponde al máximo nivel de competencia, responsabilidad y autoridad de la Auditoría, tienen un carácter estratégico, por ende, quienes lo ocupen deberán desarrollar funciones de planeación, organización, dirección, supervisión, coordinación y de control propios de los procesos técnicos y administrativos de la Auditoría Interna. Igual categoría gozará el sub auditor o sub auditora interna, cuando suplan al titular del puesto, por alguna circunstancia como el disfrute de vacaciones, incapacidades, licencias con o sin goce de salario, entre otras.

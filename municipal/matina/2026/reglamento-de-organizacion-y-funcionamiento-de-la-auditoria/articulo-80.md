@@ -1,0 +1,1 @@
+Artículo 80. - Programas de trabajo de los servicios preventivos. Los programas de trabajo de los servicios preventivos podrán variar en forma y contenido, y hasta obviarse, dependiendo de la naturaleza del trabajo.

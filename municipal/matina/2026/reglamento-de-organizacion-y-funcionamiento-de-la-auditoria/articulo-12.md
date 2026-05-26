@@ -1,0 +1,1 @@
+Artículo 12. -Independencia de criterio. La actividad de auditoría debe estar libre de injerencias del Concejo Municipal, el Alcalde Municipal y los demás órganos de la Administración, al determinar la planificación del trabajo y sus modificaciones, al manejar sus recursos presupuestados y aprobados, al desempeñar su trabajo y al comunicar sus resultados.

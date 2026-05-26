@@ -1,0 +1,3 @@
+Artículo 47. -Recursos Humanos. Para el desarrollo de las actividades, la Municipalidad de Matina deberá dotar a la Auditoría Interna de los recursos humanos necesarios, para el cumplimiento de los trabajos en las distintas áreas de especialización.
+La Auditoría Interna, tiene la potestad de incorporar profesionales o técnicos de diferentes disciplinas, para que lleven a cabo labores de su especialidad en apoyo a los estudios o trabajos que realice la Auditoría Interna, de acuerdo con sus competencias.
+Si la Auditoría Interna no dispone de algún recurso especializado, se podrá contratar en forma externa, por medio de honorarios profesionales y técnicos, siguiendo las disposiciones legales que al respecto existen y le son aplicables.

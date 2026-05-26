@@ -1,0 +1,1 @@
+Artículo 33. - Comunicación de los planes y modificaciones a éstos durante el año. El auditor o Auditora Interna deberá informar al Concejo Municipal sobre el plan anual de trabajo, así como de las modificaciones que se realicen durante el año.

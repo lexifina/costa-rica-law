@@ -1,0 +1,1 @@
+Artículo 101. - Incorporación del conocimiento sobre riesgo. El personal de la Auditoría Interna colaborará con el SERVI mediante la intervención, donde se incluirá el conocimiento del riesgo obtenido en los estudios.

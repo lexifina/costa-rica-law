@@ -1,0 +1,1 @@
+Artículo 102. - Control. La actividad de la Auditoría coadyuvará en el mantenimiento de los controles efectivos, mediante la verificación de la eficacia, eficiencia, economía y legalidad de dichos controles y promoviendo su mejora continua.

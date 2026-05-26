@@ -1,0 +1,1 @@
+Artículo 13. -Objetividad. El personal de la Auditoría debe tener una actitud imparcial, neutral y evitar conflictos de intereses, que afecten la objetividad individual. En caso que existan éstos últimos, deberán resolverlo de conformidad con los lineamientos establecidos por la Contraloría General de la República.

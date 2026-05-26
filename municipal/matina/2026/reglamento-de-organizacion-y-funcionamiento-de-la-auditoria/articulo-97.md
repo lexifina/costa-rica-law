@@ -1,0 +1,1 @@
+Artículo 97. - Riesgo. La actividad de la Auditoría Interna, deberá coadyuvar, conforme a sus competencias en la mejora del Sistema Específico de Valoración del Riesgo Institucional (SERVI) de la Municipalidad, así como de los sistemas de control respectivos. La actividad de la Auditoría Interna deberá validar la efectividad del SERVI, de conformidad con el Plan de Trabajo.

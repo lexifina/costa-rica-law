@@ -1,0 +1,1 @@
+Artículo 92. - Análisis y evaluación. El personal de la Auditoría Interna deberá basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en el adecuado análisis y evaluaciones.

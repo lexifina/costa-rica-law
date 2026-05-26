@@ -1,0 +1,1 @@
+Artículo 125. -Información adicional. El o la denunciante también deberá brindar información complementaria respecto a la estimación del perjuicio económico producido a la Municipalidad de Matina en caso de conocerlo, la indicación de probables testigos y el lugar o medios para citarlos, así como la aportación o sugerencia de otras pruebas.

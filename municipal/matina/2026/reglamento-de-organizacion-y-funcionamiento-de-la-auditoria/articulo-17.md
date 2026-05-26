@@ -1,0 +1,1 @@
+Artículo 17. -Responsabilidad Anterior. El personal de la Auditoría Interna no debe ejecutar sus competencias de asesoría y advertencia en relación con operaciones de las cuales hayan sido previamente responsables o en relación con las que se presenten situaciones que le puedan resultar incompatibles.

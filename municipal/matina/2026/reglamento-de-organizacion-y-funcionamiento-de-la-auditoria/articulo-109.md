@@ -1,0 +1,1 @@
+Artículo 109. - Incorporación del conocimiento sobre controles. El personal de la Auditoría Interna coadyuvará con el SERVI mediante la incorporación de los conocimientos de los controles obtenidos en los estudios, mediante los productos de los servicios de Auditoría.
