@@ -1,1 +1,0 @@
-Artículo 34.—Informes dirigidos a titulares subordinados. Cuando los informes de Auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá de la forma en que indica el artículo 36 de la Ley General de Control Interno.

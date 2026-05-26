@@ -1,3 +1,0 @@
-Artículo 29.—Comunicación de resultados. La Unidad de Auditoría Interna debe comunicar los resultados de sus auditorías o estudios especiales de Auditoría al Concejo Municipal.
-La comunicación de resultados debe hacerse por escrito durante el desarrollo de la Auditoría mediante memorandos, oficios o informes parciales, o al finalizar la misma por medio del informe final.
-Los hechos y otra información pertinente obtenida en el transcurso de la Auditoría o estudio especial de Auditoría debe ser comentada con los funcionarios responsables, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier información adicional, y lograr a la vez, facilitar cualquier acción correctiva que sea necesaria.

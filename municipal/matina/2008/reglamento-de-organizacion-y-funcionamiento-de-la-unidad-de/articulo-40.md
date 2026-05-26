@@ -1,1 +1,0 @@
-Artículo 40.—Derogatorias. El presente Reglamento deroga cualquier otra disposición anterior de carácter reglamentario, que regule la organización y funcionamiento de la Unidad de Auditoría Interna en la Municipalidad de Matina.

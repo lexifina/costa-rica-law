@@ -1,1 +1,0 @@
-Artículo 28.—Supervisión. Al realizarse la supervisión, deberá verificarse que se está cumpliendo, por lo menos, con lo señalado en los puntos anteriores correspondientes a la ejecución de la Auditoría, esto es: el estudio y evaluación del sistema de control interno, el programa de Auditoría, los procedimientos de Auditoría, la evidencia y los papeles de trabajo.

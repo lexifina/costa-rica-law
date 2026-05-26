@@ -1,1 +1,0 @@
-Artículo 8º—Otras disposiciones de acatamiento. La Auditoría Interna estará a cargo de un Auditor Interno, quien deberá conocer las disposiciones legales que rigen el Régimen Municipal y la administración pública, y cumplir con los demás requisitos que establece el manual descriptivo de puestos de la Municipalidad de Matina.
