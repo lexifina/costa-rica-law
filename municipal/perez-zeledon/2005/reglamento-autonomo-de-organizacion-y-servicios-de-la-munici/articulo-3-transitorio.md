@@ -1,2 +1,2 @@
-Transitorio 3.—En relación con el artículo 149 bis de este Reglamento y con la finalidad de adecuar la aplicación de este artículo a la evolución financiera de la Institución, la Municipalidad reconocerá las anualidades a razón de un dos punto cinco por ciento (2.5%), a partir del segundo semestre del año 2006 y el cero punto cinco por ciento restantes (0.5%), hasta completar el tres por ciento definido (3%), a partir del primer semestre del año 2007.
-(Así adicionado mediante sesión ordinaria N° 013-06 del 25 de julio de 2006)
+Transitorio 3º—Las Investigaciones preliminares ordenadas antes de la vigencia de esta reforma, deberán ser concluidas por el Proceso de Recursos Humanos conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial de las mismas.
+(Así adicionado mediante sesión ordinaria N° 126-2026, del 26 de mayo de 2026)
