@@ -1,0 +1,4 @@
+ARTÍCULO 12- Adquisición y gestión de bienes inmuebles
+La adquisición de bienes o derechos inmuebles necesarios para la ejecución del proyecto se realizará conforme lo dispuesto en la legislación vigente en materia de expropiaciones.
+El organismo ejecutor, por medio de la Unidad de Gestión e Implementación del TRP o de las empresas consultoras especializadas contratadas para estos efectos, será responsable de coordinar y ejecutar el Plan de Adquisición Predial, así como las actuaciones preparatorias necesarias para dichos procesos, incluyendo estudios técnicos, levantamientos topográficos, elaboración de planos catastrados, avalúos, estudios socioeconómicos y demás gestiones técnicas requeridas.
+Los procesos de adquisición predial deberán planificarse y ejecutarse de manera coordinada con el cronograma de ejecución de las obras, con el f in de minimizar riesgos de atrasos en el desarrollo del proyecto.

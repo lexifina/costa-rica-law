@@ -1,0 +1,2 @@
+ARTÍCULO 3- Uso de los recursos
+Los recursos provenientes de los contratos de préstamo N.° 2241, suscrito entre la República de Costa Rica y el Banco Centroamericano de Integración Económica (BCIE), y FI N.° 97486, suscrito entre la República de Costa Rica y el Banco Europeo de Inversiones (BEI), se destinarán, exclusivamente, al financiamiento de los componentes del proyecto denominado Construcción, quipamiento y Puesta en Operación de las Líneas 1 y 2 del Sistema de Tren Rápido de Pasajeros (TRP) en la Gran Área Metropolitana.
