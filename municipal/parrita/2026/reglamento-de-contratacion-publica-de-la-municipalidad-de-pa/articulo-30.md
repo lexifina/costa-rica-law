@@ -1,0 +1,1 @@
+Artículo 30.- Del reajuste y revisión de precios. Todo reajuste o revisión de precios a los contratos suscritos por la Administración deberán contener la correspondiente validación del AC, mismo que deberá ser autorizado por la AM, y será puesto en conocimiento del CM, según el monto de licitación correspondiente.

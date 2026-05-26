@@ -1,0 +1,1 @@
+Artículo 56.- Del refrendo interno. En el caso del refrendo interno, el mismo es un acto de aprobación, por lo que funge como un requisito de eficacia del contrato administrativo, y estará a cargo del abogado que asigne el Área Jurídica de la Municipalidad, quién deberá contar con un usuario en el SDU para consignar el refrendo.
