@@ -1,2 +1,0 @@
-Artículo 12.—Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser del 10% de la altura de la torre, medida desde el centro de su base.
-(Así reformado mediante sesión ordinaria N° 154 del 8 de abril del 2019)

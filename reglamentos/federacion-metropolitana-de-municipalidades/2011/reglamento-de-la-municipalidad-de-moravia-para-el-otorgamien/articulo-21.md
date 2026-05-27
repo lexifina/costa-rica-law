@@ -1,4 +1,0 @@
-Artículo 21.—El municipio no otorgará una licencia de construcción en los siguientes casos:
-1. Que la altura de la obra constructiva para telecomunicaciones sea menor a 30 metros, medida desde la base hasta el final de la obra constructiva para telecomunicaciones sin incluir el pararrayo, o que sobrepase la altura máxima establecida por la Dirección General de Aviación Civil.
-2. Que no permita el uso compartido o coubicación. Tanto con respecto a lo dispuesto en el artículo 13 de este Reglamento como en otros supuestos en los que el solicitante alegue razones técnicas para la instalación de obra constructiva para telecomunicaciones con requisitos técnicos distintos a los indicados, la corporación municipal o el interesado podrán solicitar el criterio técnico debidamente motivado por parte de la Superintendencia de Telecomunicaciones.
-(Así reformado mediante sesión ordinaria N° 154 del 8 de abril del 2019)
