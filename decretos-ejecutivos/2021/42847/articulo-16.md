@@ -20,10 +20,13 @@ a. Estar debidamente inscrito como Especialista en Anatomía Patológica, en el 
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Patología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 16.2. Subespecialidades Médicas de Anestesiología y Recuperación
 16.2.1. Anestesiología Cardiovascular y Torácica.
+Se reconoce como sinónimos de esta subespecialidad el siguiente término: Anestesia Cardíaca.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Anestesiología y Recuperación, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Anestesiología Cardiovascular y Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-Este programa de estudios debe contemplar y garantizar la adquisición de conocimientos teórico-prácticos en las áreas de anestesia para cirugía cardiaca, torácica y vascular mayor; recuperación postoperatoria de cirugía cardiaca, torácica y vascular mayor; medicina extracorpórea y ecocardiografía torácica y transesofágica.
+Este programa de estudios debe contemplar y garantizar la adquisición de conocimientos teórico-prácticos en las áreas de anestesia para cirugía cardiaca, torácica y vascular mayor; recuperación postoperatoria de cirugía cardiaca, torácica y vascular mayor; medicina extracorpórea.
+(Corregido los requisitos específicos anteriores mediante Fe de Erratas y publicada en La Gaceta N° 145 del 4 de agosto de 2026, página N° 2)
+(Así reformado la subespecialidad 16.2.1. Anestesiología Cardiovascular y Torácica anterior en sesión ordinaria 2026-05-27, celebrada el 27 de mayo de 2026)
 16.2.2. Anestesiología Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Anestesiología y Recuperación, en el Colegio de Médicos y Cirujanos.
