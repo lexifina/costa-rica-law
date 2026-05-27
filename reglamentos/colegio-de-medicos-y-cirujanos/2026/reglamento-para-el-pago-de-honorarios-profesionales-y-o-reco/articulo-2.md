@@ -1,0 +1,1 @@
+Artículo 2º-Finalidad. Para cada convocatoria del ECOM-CR se realizará un reconocimiento o pago por servicios profesionales a los miembros del Comité de Redactores de preguntas, Comité de Redactores, Comité Técnico Médico y Comisión Ad Hoc de conformidad con las reglas que a continuación se dirán.
