@@ -1,0 +1,1 @@
+Artículo 35.-Mediante acuerdo municipal de aprobación de las tarifas propuestas, se realizará la segunda publicación en el periódico oficial La Gaceta y dichas tarifas empezarán a regir 30 días después de su publicación.

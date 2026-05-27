@@ -1,0 +1,1 @@
+Artículo 32.-Las oposiciones o coadyuvancias deben estar sustentadas en razones de hecho y de derecho, y no en simples juicios de opinión, las que no se ajusten a lo indicado, serán rechazadas de una vez en la audiencia.

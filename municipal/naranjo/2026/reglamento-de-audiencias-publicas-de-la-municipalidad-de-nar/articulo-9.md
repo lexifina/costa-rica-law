@@ -1,0 +1,10 @@
+Artículo 9º-Plazo para llevar a cabo audiencias:
+a) Las audiencias ante el Concejo Municipal y las Comisiones Municipales, que sean de interés de personas o grupos deberán ser solicitadas con al menos una antelación de ocho días naturales a la sesión respectiva, en la Secretaría Municipal o en la Secretaría del Alcalde, por escrito e indicando el asunto en particular, adjuntando la documentación necesaria. El Concejo Municipal definirá la sesión en la que serán atendidos.
+b) Las audiencias se concederán en sesiones extraordinarias. No podrá haber más de dos audiencias por sesión extraordinaria.
+c) Corresponderá a la Secretaria del Concejo o de la Alcaldía, según sea el caso comunicar por escrito del día, lugar y hora, en que la audiencia fue concedida o bien a quién fue trasladada, cuando así fuere.
+d) En casos excepcionales y en razón de la urgencia de un asunto, podrá concederse audiencia extraordinaria a los vecinos. Ello será sometido a la consideración por parte del Presidente y podrá aprobarse por mayoría calificada.
+e) Previo a dicha audiencia debe informarse a la Secretaría del Concejo quien o quienes serán los voceros siendo no más de tres personas.
+l) Las audiencias ante la Alcaldía Municipal podrán solicitarse en la respectiva oficina de forma personal o por escrito. El plazo de atención de las mismas no deberá ser superior a diez días hábiles.
+g) Las audiencias públicas convocadas por el Concejo Municipal o la Alcaldía Municipal, deberán convocarse con quince días hábiles anteriores a su realización, ser adecuadamente promocionadas por diversos medios de comunicación tales como; perifoneo, sitio web municipal, mensajes de texto masivos, entre otros, de acuerdo con las posibilidades económicas de la Municipalidad.
+h) En los casos de audiencias públicas con interés de toda la comunidad, deberá publicarse la convocatoria en La Gaceta o en otro medio de circulación nacional, indicando el día, hora, lugar de realización y asunto a tratar.
+i) Cuando se considere pertinente podrán incluirse los procedimientos reglamentarios aplicables a la misma.

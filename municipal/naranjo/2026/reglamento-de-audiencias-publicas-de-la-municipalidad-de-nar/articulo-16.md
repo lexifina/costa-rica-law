@@ -1,0 +1,1 @@
+Artículo 16.-Estabilidad y desarrollo de los Servicios. Las tasas de los servicios públicos prestados por la Municipalidad, se fijarán de manera que incorporen elementos de carácter técnico y económico, que propicien la inversión, permitan la continuidad, la estabilidad y el desarrollo de esos servicios.

@@ -1,0 +1,1 @@
+Artículo 19.-Una vez aprobado el estudio tarifario por el Concejo Municipal, se acordará girar instrucciones a la Alcaldía Municipal para su publicación en el Diario Oficial La Gaceta, citando el día, lugar y hora de inicio de la audiencia pública.

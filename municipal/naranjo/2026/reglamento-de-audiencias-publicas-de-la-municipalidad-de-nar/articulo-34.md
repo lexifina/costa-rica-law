@@ -1,0 +1,1 @@
+Artículo 34.-Una vez realizada la audiencia, resueltas las ponencias y notificados los interesados, la Administración mediante resolución razonada solicitará al Concejo Municipal, la aprobación definitiva de las tarifas propuestas.

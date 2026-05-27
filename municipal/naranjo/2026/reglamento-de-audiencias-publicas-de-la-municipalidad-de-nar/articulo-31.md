@@ -1,0 +1,1 @@
+Artículo 31.-En caso de personas físicas o jurídicas (esto por medio de su representante legal aportando copia de la personería jurídica vigente), deberán interponer su ponencia en el acto o en el plazo de diez días hábiles posterior a la audiencia, señalando lugar o medio para atender las notificaciones.

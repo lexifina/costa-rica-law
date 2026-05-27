@@ -1,0 +1,1 @@
+Artículo 21.-Para hacer llegar sus argumentaciones escritas a la Oficina indicada, sobre el proyecto de modificación tarifaría, los interesados tendrán un plazo de diez días hábiles antes del día de la celebración de la audiencia.

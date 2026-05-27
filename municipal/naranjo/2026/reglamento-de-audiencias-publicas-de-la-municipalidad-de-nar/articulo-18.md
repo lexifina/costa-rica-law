@@ -1,0 +1,1 @@
+Artículo 18.-La Administración Municipal elaborará, por lo menos una vez al año, para cada uno de los servicios que presta, el estudio técnico, que permita determinar el requerimiento de variaciones en las tasas.

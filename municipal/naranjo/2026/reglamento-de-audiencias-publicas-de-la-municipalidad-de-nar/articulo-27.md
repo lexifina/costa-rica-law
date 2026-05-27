@@ -1,0 +1,1 @@
+Artículo 27.-El director de la audiencia, abrirá la audiencia y explicará el orden en que se llevará a cabo la misma, indicando el tiempo que dispondrá cada administrado para expresar su ponencia, así como el periodo y lugar para la inscripción de los interesados legítimos en presentar oposiciones o coadyuvancias.

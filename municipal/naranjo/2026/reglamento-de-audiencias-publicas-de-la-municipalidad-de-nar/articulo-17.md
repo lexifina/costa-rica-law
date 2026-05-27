@@ -1,0 +1,1 @@
+Artículo 17.-El estudio de recalificación o creación de tasas, se fundamentará en un modelo de costeo, tomando en cuenta los costos directos e indirectos en que se incurren en la prestación eficiente del servicio. Tomando en cuenta un 10% de gastos administrativos y un 10% de utilidad para el desarrollo del servicio.

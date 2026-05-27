@@ -1,0 +1,1 @@
+Artículo 26.-El director de la audiencia podrá solicitar colaboración de la Policía Municipal, para que resguarde el orden de la audiencia. En casos excepcionales se podrá contar con la presencia de la Fuerza Pública.
