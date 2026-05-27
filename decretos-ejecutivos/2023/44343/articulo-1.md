@@ -15,4 +15,5 @@ CREACIÓN DE LA COMISIÓN DE ENLACE INTERINSTITUCIONAL
 PARA LA ATENCIÓN INTEGRAL DE LA ROMERÍA HACIA
 LA BASÍLICA DE LOS ÁNGELES DE LA PROVINCIA
 DE CARTAGO
-Artículo 1º-Créase la Comisión de Enlace Interinstitucional para la Atención Integral de la Romería hacia la Basílica de Los Ángeles de la Provincia de Cartago, la cual estará presidida en la primera sesión de conformación de cada año, por la persona quien ocupe el cargo de Ministro de la Presidencia.
+Artículo 1.-Créase la Comisión de Enlace Interinstitucional para la Atención Integral de la Romería hacia la Basílica de Los Ángeles de la Provincia de Cartago, la cual estará presidida en la primera sesión de conformación de cada año, por la persona quien ocupe el cargo de Ministro de Seguridad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45837 del 27 de mayo del 2026)
