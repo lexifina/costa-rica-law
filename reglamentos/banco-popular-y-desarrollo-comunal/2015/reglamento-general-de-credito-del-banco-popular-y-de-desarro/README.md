@@ -24,3 +24,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | 9 | 2023-01-26 | Reglamento 5972 (2023-01-26) |
 | 10 | 2023-08-16 | Reglamento 6031 (2023-08-16) |
 | 11 | 2025-02-12 | Reglamento 6185 (2025-02-12) |
+| 12 | 2026-05-27 | Reglamento 6311 (2026-05-27) |
