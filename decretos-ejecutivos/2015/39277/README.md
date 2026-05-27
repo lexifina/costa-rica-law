@@ -14,3 +14,4 @@ Crea Comisión de Atención Integral a los Desalojos (CAID) y el Procedimiento e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-01 | la propia norma |
+| 2 | 2026-05-27 | Decreto Ejecutivo 45836 (2026-05-27) |
