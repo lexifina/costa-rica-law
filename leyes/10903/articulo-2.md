@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se modifica la naturaleza registral del bien inmueble donado en el artículo 1 y se afecta a un nuevo uso público de: "Área para el Salón comunal de Naranjo de Platanares". La Asociación de Desarrollo Integral de Naranjo de Platanares deberá desarrollar actividades e infraestructura de interés comunal.
