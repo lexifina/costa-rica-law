@@ -1,0 +1,54 @@
+JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
+REGLAMENTO DE CRÉDITO DE VIVIENDA
+Según el acuerdo adoptado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en la sesión ordinaria: 042-2026 del 14/04/2026, acuerdo G3; se aprueba realizar las siguientes modificaciones al Reglamento de Crédito de Vivienda:
+(...)
+3. DEFINICIONES
+(...)
+- Comportamiento de pago histórico: Antecedentes crediticios del deudor, fiador y/o codeudor en la atención de sus obligaciones financieras durante los últimos cuatro años, independientemente de si éstas se encuentran vigentes o extintas a la fecha de corte. Información brindada por la SUGEF.
+- Domiciliación de Cuenta: Proceso para matrícula de la cuenta iban del afiliado, para rebajos directos de la cuenta bancaria en caso de incumplimiento de pago.
+- Hipoteca: Gravamen inscrito ante el Registro de la Propiedad en primer grado a favor de JUPEMA, se acepta hasta un 80% del valor del inmueble según el avalúo.
+(…)
+4. DESCRIPCIÓN
+(…)
+CAPÍTULO II
+Préstamos para vivienda
+(...)
+Artículo 4º-Destino de los recursos. Vivienda: Dirigida a los cotizantes activos (as) y pensionados (as) de los regímenes de Capitalización Colectiva y Transitorio de Reparto, con el fin de financiar la compra de lote, compra o construcción de soluciones habitacionales, ampliaciones, remodelaciones y cancelación de hipotecas a favor de terceros por deudas contraídas por estos mismos planes de inversión.
+Lo anterior de acuerdo con el artículo 21 inciso a) de la EX-004 Ley N° 7531 y sus reformas.
+Debiendo el deudor, cumplir fielmente con el plan de inversión.
+Artículo 5º-De las condiciones de los créditos. Las condiciones para el financiamiento de los préstamos para vivienda son las siguientes:
+Programa | Plazo máximo | Monto de financiamiento | Tasa de interés
+Línea de vivienda | Hasta 30 años | El monto máximo es de ¢100.000.000,00 (cien millones de colones). Se puede financiar el 100% del crédito considerando lo siguiente: Hipoteca en primer grado sobre el 80% del avalúo y una fianza solidaria para el restante 20% o una hipoteca adicional en primer grado. | La tasa de interés será de 9% fija durante los primeros 10 años del crédito, posterior a ese periodo se aplicará una tasa variable con la siguiente conformación: Tasa básica pasiva publicada en la página del Banco Central de Costa Rica (TBP) o inflación del Banco Central (el más alto de ambos) + Tasa Técnica Actuarial.
+CAPÍTULO III
+Requisitos
+Artículo 6º-De los requisitos de los préstamos para vivienda.
+a) Completar la solicitud de crédito.
+b) El solicitante debe aportar una constancia emitida por su patrono, donde se detallen los salarios nominales y líquidos del último mes, así como el tipo de nombramiento. Solo se considera el ingreso fijo que reporte el patrono como servidor del Magisterio Nacional. Para efectos de análisis de capacidad de pago, no se consideran los "pluses salariales" que no sean permanentes. En el caso de los jubilados y pensionados, la constancia será emitida por JUPEMA, así como en los casos de trabajadores del Ministerio de Educación Pública, cuando se tenga acceso a esa información.
+c) El solicitante debe tener un ingreso líquido estimado, tal que al restarle el 30% de ese monto, pueda cubrir la cuota estresada. En caso de codeudores se tomará como líquido estimado la suma de lo percibido y al total se le resta el 30% a efectos de calcular la liquidez necesaria para cubrir la cuota estresada.
+d) Autorizar la consulta y emisión del Reporte de Calificación Crediticia de la Superintendencia General de Entidades Financieras, con el fin de evaluar el comportamiento de pago histórico del solicitante, codeudores y fiadores. Previo análisis de la Unidad de Crédito, no se aceptan aquellos deudores, codeudores y fiadores que tengan una calificación crediticia en el comportamiento de pago histórico (CPH), igual a 3.
+e) Presentar la cédula de identidad o residencia vigente y en buen estado.
+f) Autorizar la domiciliación de la cuenta a favor de JUPEMA.
+g) Para los casos que lo requieran se debe aportar la cuenta cliente mediante documento idóneo de la institución financiera correspondiente, donde se le puede realizar el depósito del monto otorgado. No aplica para jubilados (as) y pensionados (as).
+h) Presentar una consulta por número de finca (estudio de registro) del Registro Nacional con no más de un mes de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como hipoteca.
+i) Certificación original de la municipalidad respectiva, por número de finca donde se indique estar al día en el pago de Impuestos Municipales e impuesto de bienes inmuebles, mínimo al trimestre inmediato anterior.
+j) Aportar la copia legible del plano catastrado emitido por el Registro Nacional de la Propiedad.
+k) En los casos en los que la garantía es únicamente terreno o en los que JUPEMA lo estime pertinente se debe aportar la certificación de uso de suelos extendida por la Municipalidad con no más de un año de emitido, salvo que ya exista construcción en la propiedad, permiso de construcción, visado Municipal en planos constructivos, adicionalmente aportar los documentos oficiales de disponibilidad de agua y electricidad, emitida por las entidades correspondientes con no más de un año de emitida o en su defecto, el vencimiento que indique la certificación.
+l) Aportar certificación catastral, para fincas en donde la certificación literal, indique que la finca se encuentra en zona catastrada.
+m) Presentar una opción de compraventa original, firmada por ambas partes y autenticada por un abogado, con al menos noventa días naturales de vigencia. En caso de que se deba presentar una modificación a la compraventa original, deberá ser mediante un adendum autenticado por un abogado.
+n) Para los casos de compra de lote, aportar los documentos oficiales de disponibilidad de agua y electricidad, emitida por las entidades correspondientes con no más de un año de emitida o en su defecto, el vencimiento que indique la certificación, adicionalmente aportar la certificación de uso de suelos extendida por la Municipalidad con no más de un año de emitido.
+o) En caso de construcción presentar planos de construcción visados en digital, permiso de construcción extendido por la municipalidad de la localidad y presupuesto de la construcción firmado por el profesional responsable.
+p) Para ampliaciones y remodelaciones en vivienda, debe presentar el permiso de construcción extendido por la municipalidad de la localidad, presupuesto de la construcción y nota con una explicación de los trabajos a realizar.
+q) En el caso de cancelación de hipotecas con terceros, debe aportar una constancia de saldo actualizado, el cual muestre el saldo proyectado al menos a 30 días, así como el plan de inversión. En caso de que el crédito sea formalizado, el afiliado deberá aportar la constancia de cancelación del crédito y facilitarlo al abogado asignado por JUPEMA, para el levantamiento del gravamen hipotecario correspondiente.
+r) En el caso de que el solicitante, codeudor o fiador, tenga condición de residente, sólo se aceptan aquellos cotizantes que posean cédula de residencia vigente y con al menos cinco años de laborar para el mismo patrono.
+s) Las cuotas del crédito, incluyendo amortización, pago de intereses y póliza o cargos, según corresponda, deben ser deducidas por el patrono o institución de los ingresos del deudor, ya sea salario ordinario, pensión o jubilación y reportadas a JUPEMA en los primeros diez días hábiles del mes, junto con el pago de las cuotas obrero-patronales. Para el caso de los pensionados, se deduce del monto de su giro de pensión o jubilación mensual. Es responsabilidad del deudor, estar al día con el pago de las cuotas correspondientes según los compromisos del crédito otorgado.
+t) El solicitante debe aportar documentos probatorios, que demuestren que cuenta con los recursos necesarios para cubrir cualquier diferencia que exista entre el monto desembolsado y el requerido para cumplir con el plan de inversión en caso de que no requiera aportar fiador como, por ejemplo: comprobantes de saldos en cuentas de ahorro o cuentas corrientes, copia de certificados de depósitos a plazo, comprobante de fondos de inversión financiera.
+u) Con el propósito de incrementar el ingreso del deudor, se aceptarán como codeudores, el cónyuge o conviviente de hecho (debidamente comprobado), los padres o hijos o hermanos del deudor, que sean cotizantes al Régimen del Magisterio Nacional, en cuyo caso, la cuota del crédito podrá dividirse entre las partes.
+Los codeudores deben aportar lo dispuesto en los incisos b), c), d) y e) de este artículo, así como cualquier documento adicional, requerido por la Unidad de Crédito, a fin de resolver la solicitud.
+Los codeudores deben contar con nombramiento en propiedad, o interino, con al menos 36 cotizaciones en los últimos cuatro años, ingresadas al Régimen del Magisterio Nacional, deben estar libres de embargos y cuyo nombramiento venza en un periodo posterior a tres meses.
+Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en el Departamento de Crédito y Cobro de JUPEMA o en sus oficinas Sucursales.
+(...)
+CAPÍTULO V
+Proceso de otorgamiento de créditos
+(…)
+Artículo 14.-Comité de Crédito. Le corresponde a este Comité el análisis, aprobación o denegatoria de las solicitudes de crédito de vivienda, o solicitudes de arreglos de pago, segregaciones y cambios sobre la conformación del crédito o las garantías ofrecidas para su otorgamiento. Este comité sesiona cada vez que se estime necesario y está integrado por, el Analista de Vivienda, el jefe del Departamento de Crédito y Cobro, el Encargado de Crédito, el Encargado de Cobro y un miembro externo al Departamento de Crédito y Cobro designado por la Dirección Ejecutiva. Su coordinación estará a cargo del jefe del Departamento de Crédito y Cobro, y en su ausencia por quién sustituya en su puesto.
+(…)
