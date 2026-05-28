@@ -1,1 +1,0 @@
-Artículo 7º—De la desafectación a la base de datos y al Pendiente de Recaudación. Una vez conocido y ratificado el informe técnico, se procederá a desafectar la base de datos y por ende se deducirá del Pendiente de Recaudación.

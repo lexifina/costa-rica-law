@@ -1,1 +1,0 @@
-Artículo 6º—De los informes. Los Depuradores llevarán en forma diaria a través de hoja electrónica de Excel, un registro de los casos que han sido analizados como inconsistentes. Mensualmente se presentará un informe al Alcalde Municipal para su conocimiento y Concejo Municipal.
