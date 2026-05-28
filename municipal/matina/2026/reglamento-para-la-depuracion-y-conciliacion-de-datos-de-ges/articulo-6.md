@@ -1,0 +1,1 @@
+Artículo 6º-Revisión y fiscalización. La Auditoría Interna Municipal y la Contraloría General de la República podrán auditar en cualquier momento los procesos de depuración y conciliación, verificando el cumplimiento del presente reglamento y la adecuada aplicación del principio de legalidad, razonabilidad y rendición de cuentas establecido en la Ley N° 8292.

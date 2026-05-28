@@ -1,0 +1,1 @@
+Artículo 8º-Responsabilidad funcional. El incumplimiento de las disposiciones de este reglamento constituirá falta laboral grave, sancionable según el art. 149 del Código Municipal y la Ley N° 8220 de Protección al Ciudadano del Exceso de Trámites.
