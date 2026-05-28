@@ -1,1 +1,0 @@
-Artículo 9°—Caucionantes del nivel E. En este nivel deben rendir caución quienes desempeñen algunos de los siguientes cargos: Técnico Administrativo, Técnico en Bodega (Bodegas Centrales y Donaciones), Profesional en Desarrollo Humano 1, Técnico en Tesorería, Técnico Administrativo Área Regional, Técnico Financiero Área Regional y Técnico en Administración Tributaria.

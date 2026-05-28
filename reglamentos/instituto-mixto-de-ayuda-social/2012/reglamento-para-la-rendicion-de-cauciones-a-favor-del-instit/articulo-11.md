@@ -1,2 +1,0 @@
-Artículo 11.—Cálculo de la caución. Quienes desempeñen puestos clasificados dentro de los niveles indicados, deberán de rendir una caución equivalente al salario base más bajo de los funcionarios citados en el correspondiente nivel, según lo que se indica en los artículos del 5 al 9 de este reglamento según corresponda y cuyo cálculo y actualización será asignado e informado por Desarrollo Humano.
-(Así reformado mediante acuerdo N° 588 de la sesión 083 del 11 de noviembre de 2013)

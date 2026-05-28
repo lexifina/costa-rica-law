@@ -1,2 +1,0 @@
-Artículo 14.—Actualización del monto. Anualmente, el monto de la garantía será actualizado por Desarrollo Humano, en la misma proporción al incremento salarial decretado por el Gobierno de la República para el último semestre. Es decir para cada año, se tomará el salario base del año anterior, que rige a partir de julio de cada año.
-(Así reformado mediante acuerdo N° 588 de la sesión 083 del 11 de noviembre de 2013)

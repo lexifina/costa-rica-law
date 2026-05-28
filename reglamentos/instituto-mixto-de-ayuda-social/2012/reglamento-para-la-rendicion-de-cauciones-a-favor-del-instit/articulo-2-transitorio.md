@@ -1,1 +1,0 @@
-Transitorio II.—Derogaciones: A partir de la entrada en vigencia del presente Reglamento queda derogado el Reglamento publicado en el Diario Oficial La Gaceta 62 del 31 de marzo del año dos mil ocho, las modificaciones publicadas en La Gaceta 175 del 10 setiembre del dos mil ocho y toda normativa interna igual o de rango inferior que se le contraponga.
