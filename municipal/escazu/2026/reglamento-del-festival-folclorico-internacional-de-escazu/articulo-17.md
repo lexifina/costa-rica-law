@@ -1,0 +1,1 @@
+Artículo 17: Procedimiento de Inscripción: Los grupos interesados en participar deben completar la ficha técnica aprobada por la Comisión Organizadora y proporcionada por la Municipalidad de Escazú dentro de los plazos establecidos en la convocatoria anual. La no entrega o entrega tardía de la ficha técnica causará la descalificación del grupo.

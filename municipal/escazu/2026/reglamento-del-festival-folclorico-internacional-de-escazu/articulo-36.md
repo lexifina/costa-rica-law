@@ -1,0 +1,1 @@
+Artículo 36: Cumplimiento de Normas: Todos los participantes, tanto nacionales como internacionales, deberán cumplir con las normas y requisitos establecidos en este reglamento y por lo señalado por la Comisión Organizadora. La no observancia de las mismas podrá llevar a la descalificación o sanciones durante el evento.

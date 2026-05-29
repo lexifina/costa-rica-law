@@ -1,0 +1,1 @@
+Artículo 19: Excepciones por Criterio de la Comisión Organizadora: La Comisión Organizadora podrá dispensar de algunos requisitos a grupos nacionales o internacionales cuando lo considere necesario para el beneficio del festival, lo cual deberá ser debidamente justificado.

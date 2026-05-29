@@ -1,0 +1,1 @@
+Artículo 23: Estética en los Trajes: Los trajes utilizados por los grupos deben ser apropiados, bien elaborados y fieles a la estética del folklore que representan. Se evaluará la calidad, la elaboración artesanal y la adecuación de los trajes a las danzas y músicas presentadas.

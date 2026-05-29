@@ -1,0 +1,1 @@
+Artículo 10. Lugar de reuniones de la Comisión Organizadora: La Comisión Organizadora se reunirá de forma presencial en las instalaciones de la Municipalidad de Escazú, en la oficina o sala que mejor convenga. Se podrán también realizar sesiones virtuales por mutuo acuerdo. Las reuniones tanto presenciales como virtuales deberán ser públicas.

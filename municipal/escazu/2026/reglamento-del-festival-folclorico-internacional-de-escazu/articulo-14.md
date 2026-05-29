@@ -1,0 +1,1 @@
+Artículo 14: Plazo de la Comisión Organizadora: La Comisión deberá quedar seleccionada y juramentada cada año antes del 31 de enero, y su plazo de vigencia se extenderá hasta el 31 de enero del año siguiente.

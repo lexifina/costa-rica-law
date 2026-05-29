@@ -1,0 +1,1 @@
+Artículo 32: Respeto entre Participantes: Se fomentará un ambiente de respeto mutuo entre los grupos nacionales e internacionales. La competencia debe ser sana y orientada al aprendizaje y al enriquecimiento cultural.

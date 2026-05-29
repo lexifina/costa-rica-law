@@ -1,0 +1,1 @@
+Artículo 29: Ubicación de Grupos Locales en el Programa: Los grupos locales serán ubicados en el programa del festival según la oferta artística disponible, buscando garantizar una diversidad y calidad en los espectáculos presentados.

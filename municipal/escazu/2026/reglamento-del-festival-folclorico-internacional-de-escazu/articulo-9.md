@@ -1,0 +1,1 @@
+Artículo 9. Naturaleza ad honorem del trabajo de la Comisión Organizadora: Las personasintegrantes de la Comisión Organizadora realizan su labor de forma altruista y voluntaria a favor del desarrollo cultural y artístico del cantón de Escazú.

@@ -1,0 +1,1 @@
+Artículo 35: Interpretación del Reglamento: Cualquier duda o ambigüedad en la interpretación del presente reglamento, en el marco de la coordinación y ejecución del Festival, será resuelta por la Comisión Organizadora, cuyo fallo será inapelable.

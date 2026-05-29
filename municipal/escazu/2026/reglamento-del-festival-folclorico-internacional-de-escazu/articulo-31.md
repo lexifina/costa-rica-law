@@ -1,0 +1,1 @@
+Artículo 31: Compromiso Ético: Los participantes del Festival Internacional de Folclore de Escazú se comprometen a mantener una conducta ética, profesional y respetuosa en todo momento, tanto en el escenario como fuera de él. Cualquier conducta inapropiada será motivo de descalificación.

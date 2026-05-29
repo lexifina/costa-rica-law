@@ -1,0 +1,1 @@
+Artículo 20: Reunión de directores: Los grupos nacionales deberán participar obligatoriamente en la reunión de directores, donde se definirán las características del espectáculo y se evitará la repetición de repertorios. Esta reunión tiene como objetivo asegurar la diversidad y calidad artística del evento.

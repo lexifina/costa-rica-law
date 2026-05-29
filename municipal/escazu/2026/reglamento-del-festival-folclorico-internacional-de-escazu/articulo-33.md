@@ -1,0 +1,1 @@
+Artículo 33: Prohibición de Actos Discriminatorios: Queda prohibido cualquier acto de discriminación de género, raza, religión o nacionalidad en cualquier fase del evento. Todos los participantes deben ser tratados con respeto y dignidad.

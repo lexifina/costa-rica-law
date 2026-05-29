@@ -1,0 +1,1 @@
+Artículo 18: Periodo de Convocatoria: Los grupos nacionales e internacionales deberán cumplir estrictamente con los plazos de convocatoria establecidos por la Comisión Organizadora, a menos que, por razones de oportunidad, se disponga de una excepción a criterio de la Comisión.

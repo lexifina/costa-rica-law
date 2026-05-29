@@ -1,0 +1,1 @@
+Artículo 38: Responsabilidad Legal: Los participantes del festival asumen la plena responsabilidad de los riesgos y posibles incidentes que pudieran ocurrir durante su participación, eximiendo a la Municipalidad de Escazú de cualquier tipo de responsabilidad.

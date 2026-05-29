@@ -1,0 +1,1 @@
+Artículo 22: Respeto Histórico y Cultural: Los grupos deben ser respetuosos con el contexto histórico y cultural de las danzas y músicas que presentan. No se permitirá la alteración significativa de las tradiciones folclóricas originales, y se valorará la fidelidad a la cultura representada.

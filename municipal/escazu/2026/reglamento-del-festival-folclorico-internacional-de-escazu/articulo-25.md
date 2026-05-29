@@ -1,0 +1,1 @@
+Artículo 25: Reglas de Presentación: Los grupos deberán seguir las instrucciones del Comité Organizador en cuanto a horarios, equipos y logística. Las presentaciones deben ser puntuales y respetar los tiempos asignados.
