@@ -1,0 +1,1 @@
+Artículo 5º-Plazo de la declaratoria. La declaratoria de interés público mantendrá su vigencia durante todo el plazo que la Procuraduría General de la República de Costa Rica sea parte de la Asociación Latinoamericana de Abogacías y Procuradurías de Estado.
