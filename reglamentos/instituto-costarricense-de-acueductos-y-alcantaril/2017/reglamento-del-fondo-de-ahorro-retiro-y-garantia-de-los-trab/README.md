@@ -17,3 +17,4 @@ Reglamento del fondo de ahorro, retiro y garantía de los trabajadores del Insti
 | 2 | 2021-12-14 | Reglamento 82 (2021-12-14) |
 | 3 | 2022-08-30 | Reglamento 44 (2022-08-30) |
 | 4 | 2023-07-11 | Reglamento 32 (2023-07-11) |
+| 5 | 2026-05-29 | Reglamento 22 (2026-05-29) |
