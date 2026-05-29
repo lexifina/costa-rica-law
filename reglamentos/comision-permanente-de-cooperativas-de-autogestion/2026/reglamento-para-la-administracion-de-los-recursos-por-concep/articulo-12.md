@@ -1,0 +1,4 @@
+Artículo 12. Costos atribuibles al Fondo.
+Para el correcto funcionamiento del Fondo de Promoción y Capacitación, los recursos de la contribución parafiscal (artículo 114 inciso 4, de la Ley No. 4179), deberán utilizarse en los costos directos que se incurran en la promoción, asistencia técnica y capacitación de cooperativas de autogestión, tales como,
+. Remuneración de los funcionarios encargados de forma directa de las labores de Máximo un 50% de los gastos de la Dirección del FNA, por la supervisión directa sobre las áreas operativas responsables de la ejecución de los programas de promoción y capacitación.
+. Contratación de servicios, compra de materiales y suministros y adquisición de bienes duraderos necesarios para la ejecución de las tareas de promoción, asistencia técnica y capacitación y a la gestión del programa.

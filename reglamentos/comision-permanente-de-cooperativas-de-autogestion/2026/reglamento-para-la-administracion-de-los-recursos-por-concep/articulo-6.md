@@ -1,0 +1,2 @@
+Artículo 6. Recaudación.
+Los recursos provenientes de las cargas parafiscales de las cooperativas de autogestión, de acuerdo con la Ley No. 4179 en su artículo 114, inciso 4 y 5, deben administrarse por separado, siendo los del inciso 4 depositados directamente a una cuenta a nombre de la CPCA,, mientras que los del inciso 5 serán depositados en la cuenta del Fondo Nacional de Autogestión a nombre de INFOCOOP, cuyo uso deberá ajustarse estrictamente a lo dispuesto en capítulo III; Fortalecimiento FNA, de este Reglamento.

@@ -1,0 +1,3 @@
+Transitorio Único
+Una vez que entre en vigencia este reglamento, en los casos que cooperativas de autogestión, depositen los recursos correspondientes al inciso 5 del artículo 114 de la Ley No. 4179, en las cuentas bancarias de la Comisión Permanente de Cooperativas de Autogestión (CPCA), dichos fondos deberán ser identificados y trasladados en su totalidad al Instituto Nacional de Fomento Cooperativo (INFOCOOP), específicamente a la cuenta del Fondo Nacional de Autogestión (FNA) designada para el ingreso de estos montos, en un plazo no mayor a diez (10) días hábiles contados a partir de su recepción.
+Este procedimiento se mantendrá vigente hasta por un periodo de 12 meses posterior a la publicación del presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 15. Creación de nuevas cooperativas.
+Para la creación de nuevas cooperativas de autogestión y los requisitos para su formación, se estará a lo regulado en el Decreto Ejecutivo N° 34734-MTSS, donde se detallan los trámites que deben cumplir los grupos pre-cooperativos para su inscripción y la autorización de su personería jurídica ante el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.

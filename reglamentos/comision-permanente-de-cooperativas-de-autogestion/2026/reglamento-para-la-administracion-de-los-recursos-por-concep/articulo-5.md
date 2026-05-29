@@ -1,0 +1,2 @@
+Artículo 5: Responsables.
+Será responsabilidad del Directorio de la CPCA, la aprobación y distribución de los recursos provenientes de las cargas parafiscales de las cooperativas de autogestión (inciso 4, artículo 114, Ley No. 4179), considerando los proyectos definidos y aprobados en el plan anual operativo de la CPCA. A su vez, la Dirección Ejecutiva fiscalizará la correcta administración de los recursos conforme con lo estipulado en el presente reglamento.

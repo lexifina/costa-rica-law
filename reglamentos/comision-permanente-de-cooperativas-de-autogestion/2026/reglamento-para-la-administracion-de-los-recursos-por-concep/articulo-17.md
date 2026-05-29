@@ -1,0 +1,1 @@
+Artículo 17. Coordinación con INFOCOOP para el suministro de información. La Dirección Ejecutiva de la CPCA coordinará con los funcionarios del INFOCOOP, la designación de la unidad del Instituto, que servirá de enlace para brindarle la información que requiera la CPCA, para el cumplimiento de las atribuciones asignadas en los artículos 142 y 143 de la Ley No. 4179.
