@@ -14,3 +14,4 @@ Reglamento general del Registro Inmobiliario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-24 | la propia norma |
+| 2 | 2026-05-29 | Decreto Ejecutivo 45815 (2026-05-29) |
