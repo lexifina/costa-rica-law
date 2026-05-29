@@ -1,0 +1,5 @@
+Artículo 5.- De los requisitos para las solicitudes de inscripción o actualización de empresas auditoras en bioseguridad agrícola. Para realizar el trámite, la persona interesada debe:
+1. Presentar de forma digital la solicitud al POGM, mediante el Anexo I de este reglamento, el cual consiste en el formulario de inscripción o actualización de empresas auditoras en bioseguridad agrícola, aportando, en carácter de declaración jurada, información sobre las calidades, representación jurídica, contacto y atestados de la persona interesada, para los casos de inscripción o actualización de personas jurídicas, la persona interesada deberá aportar la información relativa a las calidades, contacto y atestados de las personas candidatas a auditor en bioseguridad agrícola.
+2. Presentar una copia en formato digital del curriculum vitae del o los candidatos a auditores en bioseguridad agrícola.
+3. Encontrarse al día con el cumplimiento del artículo 74 de la Ley Nº 17: Ley Constitutiva de la Caja Costarricense del Seguro Social, del 22 de octubre de 1943.
+Este requisito será verificado a nivel interno por el SFE a través de los sistemas de la CCSS.

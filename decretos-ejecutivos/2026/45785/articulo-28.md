@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De los informes de Auditoría en Bioseguridad Agrícola
+Sección única
+Artículo 28.- Toda empresa auditora en bioseguridad agrícola deberá elaborar, durante los primeros 10 días hábiles de cada mes, un informe de las labores de auditoría en bioseguridad agrícola realizadas el mes anterior sobre las actividades o proyectos con OVM bajo su auditoría. Dicho informe deberá incluir el detalle de la información relevante relacionada con el manejo de la bioseguridad, el comportamiento de las características del OVM, los eventuales riesgos de bioseguridad detectados durante el desarrollo de las actividades o del proyecto, los hallazgos identificados durante la auditoría y, cuando corresponda, recomendaciones para el fortalecimiento de las medidas de bioseguridad. Los mecanismos físicos o electrónicos para la comunicación de estos informes serán establecidos por el POGM.

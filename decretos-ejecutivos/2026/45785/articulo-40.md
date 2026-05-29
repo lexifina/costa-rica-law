@@ -1,0 +1,1 @@
+Artículo 40.- Deróguese el Decreto Ejecutivo Nº 32486-MAG, denominado Reglamento de Auditorías en Bioseguridad Agrícola del Ministerio de Agricultura y Ganadería, del 20 de junio del 2005, publicado en la Gaceta Nº142 del 22 de julio del 2005.

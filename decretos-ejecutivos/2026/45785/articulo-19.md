@@ -1,0 +1,1 @@
+Artículo 19.- Toda empresa auditora en bioseguridad agrícola, deberá firmar con la entidad sujeta de auditoría en bioseguridad agrícola el formulario denominado Declaración de no conflicto de interés, disponible en el sitio web oficial del SFE: www.sfe.go.cr y en el Anexo 2 de este reglamento del cual se deberá aportar copia al POGM para su custodia.

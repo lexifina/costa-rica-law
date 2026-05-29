@@ -1,0 +1,1 @@
+Artículo 38.- La aplicación de las sanciones administrativas contempladas en los artículos 34 y 35 de este reglamento, no impide la aplicación de lo señalado en el inciso 3 del Artículo 256 del Reglamento a la Ley de Protección Fitosanitaria, Decreto Ejecutivo Nº 26921-MAG.

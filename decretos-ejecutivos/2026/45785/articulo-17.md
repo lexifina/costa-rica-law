@@ -1,0 +1,4 @@
+Artículo 17.- Cuando se trate de las características del OVM de uso agrícola, la empresa auditora en bioseguridad agrícola deberá:
+a) Verificar que los OVM de uso agrícola no presenten características substancialmente diferentes a las enlistadas en la solicitud del CLA, ni presenten efectos no previstos en los organismos que entren en su contacto.
+b) Verificar porque solo se utilicen los OVM de uso agrícola que mantengan las características presentadas por la entidad sujeta de auditoría en bioseguridad en el marco del trámite del CLA correspondiente.
+c) Asegurarse de comunicar de forma inmediata al POGM, dentro de las 24 horas siguientes al imprevisto, la detección de OVM de uso agrícola que no mantengan las características presentadas por la entidad sujeta de auditoria en bioseguridad en el marco del trámite del CLA correspondiente.

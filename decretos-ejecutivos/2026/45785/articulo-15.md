@@ -1,0 +1,2 @@
+Artículo 15.- Cuando se trate de la evaluación de bioseguridad del medio receptor donde se desarrollan proyectos con OVM de uso agrícola, la empresa auditora en bioseguridad agrícola deberá:
+a) Verificar que se cumplan las medidas de bioseguridad en el medio receptor donde se desarrollen actividades con OVM de uso agrícola, establecidas en el CLA, así como las medidas de bioseguridad agrícola dadas para la aprobación de cada proyecto correspondiente y determinadas según la evaluación de riesgos de cada OVM.

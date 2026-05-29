@@ -1,0 +1,1 @@
+Artículo 23.- Las disposiciones emitidas por el POGM en materia de bioseguridad de los OVM de uso en la agricultura serán de acatamiento obligatorio para las entidades sujetas de auditoría en bioseguridad agrícola.

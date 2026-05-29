@@ -1,0 +1,1 @@
+Artículo 10.- Los funcionarios del POGM, debidamente identificados, podrán realizar en cualquier momento visitas de inspección a las entidades sujetas de auditoría en bioseguridad agrícola, pudiendo ser estas coordinadas previamente o sin aviso previo.

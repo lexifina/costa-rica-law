@@ -1,0 +1,1 @@
+Artículo 25.- Las disposiciones emitidas por la empresa auditora en bioseguridad agrícola serán de acatamiento obligatorio para la entidad sujeta de auditoría en bioseguridad agrícola, una vez que hayan sido avaladas por el POGM.
