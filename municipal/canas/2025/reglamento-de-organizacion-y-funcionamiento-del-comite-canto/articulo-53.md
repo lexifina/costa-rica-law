@@ -1,0 +1,1 @@
+ARTÍCULO 53° Cuando el Comité Distrital o Comunal en coordinación con el área técnica del CCDR realice torneos estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la JD del CCDR.

@@ -1,0 +1,1 @@
+ARTÍCULO 66º El Comité Cantonal de Deportes y Recreación de Cañas deberá efectuar cualquier tipo de inspecciones, y solicitar la información que sea pertinente con el fin de fiscalizar el uso adecuado y el mantenimiento del equipo deportivo entregado, el cual debe cumplir con los fines para los cuál fue donado.

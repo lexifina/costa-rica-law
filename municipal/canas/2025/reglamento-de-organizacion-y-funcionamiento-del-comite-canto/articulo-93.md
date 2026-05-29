@@ -1,0 +1,2 @@
+CAPÍTULO XVI PERSONAL
+ARTÍCULO 93° Para todo efecto legal se considerará al personal técnico y administrativo del CCDR como trabajadores, por lo que le resultará aplicable el Código de Trabajo y demás disposiciones jurídicas correspondientes a temas de Derecho laboral común. El personal del Comité dependerá de la Administración y el Administrador dependerá de la Junta Directiva. De igual la Alcaldía debe facilitar el funcionario indicado en el Artículo 179 de la Ley 7794 y sus reformas.

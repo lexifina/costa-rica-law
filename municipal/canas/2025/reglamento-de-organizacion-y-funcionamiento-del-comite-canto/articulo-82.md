@@ -1,0 +1,1 @@
+ARTÍCULO 82° El presupuesto debe contener una estimación de ingresos, incluyendo una descripción clara y precisa de lo que se persigue hacer durante el año presupuestario, de acuerdo con las exigencias legales reglamentarias establecidas al efecto.

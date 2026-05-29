@@ -1,0 +1,1 @@
+ARTÍCULO 77° En caso de comprobarse posteriormente un gasto no permitido, la asociación deportiva, el atleta o cuerpo técnico responsable está en la obligación de reintegrar la totalidad de lo gastado por el CCDR, sin perjuicio de las sanciones a que pueda hacerse acreedor, de conformidad con el artículo 69° de este Reglamento. (AGREGAR POSIBLE PENALIZACIÓN)

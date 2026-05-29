@@ -1,0 +1,10 @@
+ARTÍCULO 21° Son funciones de la tesorería, las que se detallan seguidamente: a) Sustituir a la Presidencia, Vicepresidencia o Secretaría en estricto orden preferente, con los mismos deberes y atribuciones.
+b) Coordinar con el subproceso de contabilidad todo lo correspondiente para mantener al día la contabilidad del CCDR.
+c) Respetar el orden del día para las sesiones.
+d) Participar activa, propositiva y de manera respetuosa en las sesiones y reuniones de Junta Directiva.
+e) Garantizar el respeto mutuo de entre los miembros de la Junta y los trabajadores del Comité, dentro de las reuniones, sesiones o actos públicos.
+f) Velar por el cumplimiento de este reglamento.
+g) Presentar propuestas e iniciativas.
+h) Velar por el cumplimiento de todas las obligaciones, objetivos, contratos, convenios, lineamientos y políticas de la Corporación Municipal y del CCDR.
+i) Firmar el Libro de Actas de Junta Directiva en las Sesiones donde el presidente, vicepresidente y secretario falten y él esté presente.
+j) Cualquier otra función que la Junta le asigne o el ordenamiento jurídico.

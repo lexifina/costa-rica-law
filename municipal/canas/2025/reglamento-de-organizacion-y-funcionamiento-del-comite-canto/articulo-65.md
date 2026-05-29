@@ -1,0 +1,1 @@
+ARTÍCULO 65º Las Juntas de educación de las escuelas públicas y las juntas administrativas de colegios públicos deberán tener su personería jurídica y libros legales al día y en orden. El Comité Cantonal de Deportes emitirá las directrices administrativas y los formularios que se requieran para cumplir con los requisitos administrativos que este control implique.

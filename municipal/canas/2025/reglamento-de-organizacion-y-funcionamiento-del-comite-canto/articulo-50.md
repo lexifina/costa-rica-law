@@ -1,0 +1,4 @@
+ARTÍCULO 50° En caso de renuncia o destitución de una o uno de los miembros del Comité Distrital o Comunal, la sustitución se realizará de la siguiente forma:
+a) El sustituto o sustituta desempeñará el cargo correspondiente, por el tiempo que falte para completar el período en que fue nombrado el o la titular.
+b) Ante la renuncia o destitución deuno a dos miembros la Junta Directiva delComité Distrital o Comunal podrá nombrar los sustitutos directamente, comunicándole a la Junta Directiva del CCDR para su respectiva juramentación ante el órgano competente.
+c) Ante la renuncia o destitución de más de dos miembros, la JD del Comité Cantonal deberá convocar a una asamblea de acuerdo con el artículo 45 de este Reglamento y de la Comunidad correspondiente para conformar la totalidad del nuevo Comité Distrital o Comunal.

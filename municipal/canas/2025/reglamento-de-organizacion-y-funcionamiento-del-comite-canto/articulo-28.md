@@ -1,0 +1,2 @@
+ARTÍCULO 28° Todo miembro deberá, justificar en forma escrita, las razones de su inasistencia a las sesiones, antes de la correspondiente sesión de Junta, en la oficina de la Junta Directiva del CCDR o por correo electrónico; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
+En caso de que la ausencia sea por razones fortuitas o por fuerza mayor se le brindará un plazo de 3 días hábiles posterior a la sesión que se ausentó para justificar el motivo de dicha ausencia bajo los procedimientos descritos en el párrafo anterior.
