@@ -17,3 +17,4 @@ Reglamento a la Ley Reguladora de Investigación Biomédica
 | 2 | 2016-01-11 | Decreto Ejecutivo 39533 (2016-01-11) |
 | 3 | 2022-11-30 | Decreto Ejecutivo 43902 (2022-11-30) |
 | 4 | 2023-04-13 | Decreto Ejecutivo 44033 (2023-04-13) |
+| 5 | 2026-06-01 | Decreto Ejecutivo 45919 (2026-06-01) |

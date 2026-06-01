@@ -1,10 +1,13 @@
 CAPÍTULO VII
 De la investigación con seres humanos
-Artículo 44.- Del sometimiento, aprobaciones y autorizaciones de la investigación biomédica experimental, clínica o intervencional. Previo al inicio de toda investigación
-experimental, clínica o intervencional, la institución o investigador debe someter ante el CEC de su elección un paquete de sometimiento que consistirá en la siguiente documentación:
+Artículo 44.- Del sometimiento, aprobaciones y autorizaciones de la investigación biomédica experimental, clínica o intervencional. Previo al inicio de toda investigación experimental, clínica o intervencional, la institución o investigador debe someter ante el CEC de su elección un paquete de sometimiento que consistirá en la siguiente documentación:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 a)Carta de solicitud por escrito del investigador para la revisión del estudio para su posible aprobación.
-b)Protocolo del estudio en su idioma original y su traducción oficial al español con fecha y versión.
-c)Monografía o manual del investigador en su idioma original y su traducción oficial en español, con fecha y versión.
+b) Protocolo del estudio en idioma español debidamente firmado por el investigador. En el evento de que el protocolo sea presentando en otro idioma, deberá aportarse traducción oficial al español, especificando su versión y la fecha de este.
+Tratándose de enmiendas al Protocolo del estudio emitido en otro idioma diferente al español, se requerirá únicamente la traducción oficial del que hayan sido objeto de modificación.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
+c)Monografía o manual del investigador en su idioma original y su traducción simple al español, especificando su versión y la fecha de la misma.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 d)Consentimiento informado, en español, en lenguaje sencillo y comprensible, con fecha y versión.
 e)Asentimiento informado, en español, en lenguaje sencillo y comprensible, con fecha y versión, si aplica.
 f)Formulario para el reporte de casos en inglés o español (CRF).
@@ -13,7 +16,8 @@ h)IND para vacunas y medicamentos o IDE para equipo y material biomédico o sus 
 i)Para equipo y material biomédico incluir la Clasificación del dispositivo según lo dispuesto en el Reglamento para Registro, Clasificación, Importación y Control de Equipo y Material Biomédico y sus reformas o la normativa que lo sustituya.
 j)Certificados de registro del medicamento o equipo y material biomédico, si ya se encuentran registrados ante el Ministerio de Salud.
 k)Lista de países y centros en donde se realiza el estudio (en caso de estudios multicéntricos) y el número de participantes esperados por centro.
-l)Copia del contrato entre el investigador y el patrocinador o en su defecto el representante del patrocinador.
+l) Copia del contrato entre el investigador y el patrocinador o en su defecto el representante del patrocinador, con su traducción oficial al español, en caso de estar redactado en otro idioma.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 m)Presupuesto del estudio.
 n)Certificación de aprobación del protocolo por un CEC acreditado en el país de origen del patrocinador si existen centros participantes en dicho país (sólo para estudios multicéntricos).
 o)Cantidad total de participantes esperados en Costa Rica y en cada sitio de estudio en Costa Rica (en caso de estudios multicéntricos).
@@ -27,8 +31,11 @@ v)Los métodos de registro y reporte de eventos o reacciones adversas y las medi
 w)Para investigaciones en mujeres embarazadas si corresponde, los procedimientos para supervisar el resultado del embarazo, con especial atención a la salud de la mujer y el niño.
 x)Los procedimientos y personas responsables propuestos para obtener el consentimiento informado.
 y)Los medios para informar a los participantes sobre los resultados del estudio.
-z)Currículum vitae de todos los miembros del equipo de investigación, con fotocopia de documento de identidad, carné profesional vigente o certificado de colegiatura vigente
-del colegio profesional, constancia de curso de Buenas Prácticas Clínicas con menos de tres años de antigüedad avalado por el Conis.
+z) Todos los miembros del equipo de la investigación biomédica deberán contar acreditación vigente como investigadores ante el Conis.
+En el caso de personas investigadoras o personal relacionado con el protocolo de investigación, deberá contar con un CBPCIB, de acuerdo con estándares internacionales. En caso de haber realizado el curso en Costa Rica, debe presentar el certificado vigente otorgado por alguna instancia autorizada por el Conis para impartir este curso, con una duración de 30 horas efectivas.
+Dicho curso deberá renovarse cada cinco años. Esto será verificado por el Conis, dejando constancia de dicha verificación en la carpeta regulatoria de la investigación biomédica. En el caso de personas que hayan realizado el CBPCIB en el extranjero, deberán presentar un documento emitido por la instancia que impartió dicho curso y en caso de venir en un idioma distinto al español, deberá presentarse con traducción simple. Así mismo, deberá cumplir con un módulo sobre la legislación nacional relacionada con investigación biomédica, brindado por alguna instancia autorizada por el Conis para impartir este módulo, con una duración de 8 horas efectivas. Tanto el CBPCIB como el módulo de legislación nacional deberán renovarse cada cinco años.
+La documentación de respaldo respectiva (digital o impresa) debe ser conservada en la carpeta regulatoria de la investigación biomédica correspondiente, también conocido como expediente administrativo de la investigación. Dicha documentación debe incluir lo siguiente: el nombre e información de contacto de la entidad u organización que impartió el curso, la lista de contenidos, la fecha de conclusión y cantidad de horas.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 aa)Copia de la acreditación de investigadores y subinvestigadores.
 bb)Compromiso de todos los miembros del equipo de investigación de cumplir con la Ley Nº 9234, las Normas de las Buenas Prácticas Clínicas y todo el ordenamiento jurídico relacionado con la investigación biomédica.
 cc)Declaración de conflictos de interés de todos los miembros del equipo de investigación.
@@ -51,4 +58,6 @@ ss) Declaración jurada no notarial en la que se indique si en el curso de la in
 tt) Presentación de especificaciones técnicas y médicas del producto que incluyan insertos (documento que incluye las características principales del producto) y manuales de uso.
 uu) Carta de compromiso de que todos los costos asociados a la implantación, reemplazo o cualquier otra modificación requerida en cuanto al equipo y material biomédico propio de la investigación, deben ser responsabilidad del Patrocinador de la Investigación.
 vv)En caso de equipo y material biomédico implantables y/o materiales de curación o restauración se deben establecer cuáles serán los cuidados y el monitoreo periódico a realizarse, así como el entrenamiento que se le hará al participante y a su cuidador, para su adecuado funcionamiento.
+El plazo de resolución de las solicitudes de toda investigación experimental, clínica o intervencional, está establecido en el artículo 42 del presente reglamento. La vigencia de la aprobación será la establecida en cada proyecto.
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 44033 del 13 de abril del 2023)

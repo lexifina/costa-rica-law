@@ -1,7 +1,8 @@
 CAPÍTULO X
 Del procedimiento y sanciones
 Artículo 74.-De las denuncias al incumplimiento de la ley y su reglamento.
-a) Las denuncias por infracción a la Ley Nº 9234 y el presente reglamento podrán ser presentadas por cualquier persona física o jurídica, en forma verbal, escrita en físico o en forma digital ante el Conis, el CEC o ante la Dirección de Atención al Cliente en el nivel central, la Dirección Regional de Rectoría de la salud en el nivel regional y en la Dirección del Área Rectora de Salud en el nivel local, todos del Ministerio de Salud.
+a) Las denuncias por infracción a la Ley Nº 9234 y el presente reglamento podrán ser presentadas por cualquier persona física o jurídica, en forma verbal, escrita en físico o en forma digital ante el Conis, el CEC o ante la Dirección Regional de Rectoría de la salud en el nivel regional y en la Dirección del Área Rectora de Salud en el nivel local, todos del Ministerio de Salud.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 45919 del 1° de junio del 2026)
 b) La denuncia escrita o verbal deberá contener la siguiente información:
 i. Nombre completo de la persona denunciante, número de cédula de identidad o cualquier otro documento de identidad y lugar o medio para atender notificaciones.
 ii. Motivos o fundamentos de hecho: relato detallado de la situación que denuncia.
