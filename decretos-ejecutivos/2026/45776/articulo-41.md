@@ -1,0 +1,3 @@
+Artículo 41.º-Acto final: Concluido el procedimiento administrativo, la persona jerarca dictará el acto final en un plazo máximo de un mes, de conformidad con lo dispuesto en la Ley n. º 6227 "Ley General de la Administración Pública".
+Dicho acto deberá notificarse a las partes de conformidad con lo establecido por la Ley General de la Administración Pública y, supletoriamente, conforme a lo establecido en la Ley n.º 8687 "Ley de Notificaciones Judiciales''.
+Sin perjuicio de los recursos administrativos que correspondan (recursos de reposición o apelación), la parte que no se encuentre conforme con lo resuelto en el acto final podrá acudir a la vía judicial para hacer valer sus derechos.

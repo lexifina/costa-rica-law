@@ -1,0 +1,1 @@
+Artículo 59.º-De la mejora regulatoria. El presente reglamento deberá ser revisado al menos cada doce meses a partir de su entrada en vigor, con la finalidad de identificar oportunidades de mejora regulatoria; para tal fin, la Comisión Permanente Institucional remitirá las respectivas recomendaciones al ministro(a) para lo que corresponda.

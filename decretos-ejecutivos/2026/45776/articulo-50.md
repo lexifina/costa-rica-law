@@ -1,0 +1,1 @@
+Artículo 50.º-Garantía para la persona denunciante y los testigos: Ninguna persona que haya presentado una denuncia por acoso laboral o haya comparecido como testigo en el procedimiento podrá ser objeto de represalias o sufrir perjuicio alguno en su relación laboral a consecuencia de su participación.

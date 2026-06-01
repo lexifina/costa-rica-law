@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. La Comisión Permanente Institucional deberá quedar debidamente conformada en un plazo máximo de 2 meses (sesenta días naturales) contados a partir de la publicación de este reglamento en el Diario Oficial La Gaceta.

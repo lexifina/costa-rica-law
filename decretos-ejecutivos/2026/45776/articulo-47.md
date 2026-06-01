@@ -1,0 +1,1 @@
+Artículo 47.º-Prescripción de la sanción: La acción para sancionar las faltas relacionadas con la violencia o el acoso laboral se regirá por lo dispuesto en el Título Noveno "Prescripciones y caducidad de las sanciones disciplinarias impuestas en procedimiento escrito" del Código de Trabajo.

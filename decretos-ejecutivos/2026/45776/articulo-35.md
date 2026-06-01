@@ -1,0 +1,1 @@
+Artículo 35.º-Instrucción al órgano director del procedimiento administrativo: La persona jerarca, en su condición de órgano decisor, delegará en el órgano director la instrucción formal del procedimiento administrativo de conformidad con lo dispuesto en la Ley n. 0 6227 "Ley General de la Administración Pública", y este reglamento.

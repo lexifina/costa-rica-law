@@ -1,0 +1,2 @@
+Artículo 34. º-Integración del Órgano. El órgano director será colegiado y estará integrado por tres personas funcionarias del ministerio respetando la equidad de género. Al momento de su nombramiento se deberá designar expresamente a la persona que ejercerá la presidencia.
+No podrá ser designada como miembro del órgano director ninguna persona que haya sido denunciada o sancionada por violencia o acoso laboral, ni que se encuentre inmersa en un conflicto de interés conforme a la Ley n. º 8422, "Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública".

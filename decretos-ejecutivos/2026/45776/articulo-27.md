@@ -1,0 +1,1 @@
+Artículo 27.º-Denuncia inadmisible. Cuando la denuncia sea declarada inadmisible, se notificará al denunciante los fundamentos de la inadmisibilidad y la conclusión de la vía administrativa, para que la persona denunciante proceda como legalmente corresponda.

@@ -1,0 +1,1 @@
+Artículo 26.º-De la denuncia falsa, abusiva o temeraria: Quien interponga una denuncia por violencia o acoso laboral de forma temeraria, falsa o abusiva podrá ser sancionado disciplinariamente, previa apertura de procedimiento administrativo disciplinario.

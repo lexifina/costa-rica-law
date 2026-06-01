@@ -1,0 +1,1 @@
+Artículo 55.º-Garantía de protección de datos personales. Las partes y las personas que intervengan en cualquier etapa de la tramitación de la denuncia, y aun después de finalizado el procedimiento administrativo sancionador, están obligadas a aplicar lo dispuesto en la ley n. º 8968, ''Ley de Protección de la Persona frente al tratamiento de sus datos personales".

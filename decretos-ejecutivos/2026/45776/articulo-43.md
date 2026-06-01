@@ -1,0 +1,1 @@
+Artículo 43.º- Posibilidad de mediación. Antes del dictado de la resolución final del procedimiento administrativo sancionador, las partes podrán solicitar la intervención de personas mediadoras del Ministerio de Trabajo y Seguridad Social o de un centro de resolución alterna de conflictos, de conformidad con las disposiciones contenidas en el Código de Trabajo.

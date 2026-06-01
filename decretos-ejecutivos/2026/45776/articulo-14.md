@@ -1,0 +1,8 @@
+Artículo 14.º-Estrategias de asesoría y atención. Cuando la(s) personas servidoras identifiquen la existencia de conductas que, a su consideración, constituyan indicios de violencia o acoso laboral en cualquiera de sus manifestaciones dentro de la dependencia en la que presta servicios, y sin que medie una denuncia formal, podrá acudir al Departamento de Gestión Institucional de Recursos Humanos, con el propósito de recibir asesoría o atención por parte del personal profesional asignado para los efectos.
+El Departamento de Gestión Institucional de Recursos Humanos, a través de sus equipos profesionales, deberá ejecutar las acciones que resulten pertinentes para la atención de la persona o grupo solicitante, entre las cuales se contemplan:
+a) Proporcionar asesoría individual o grupal en materia de violencia y acoso laboral, incluyendo sus manifestaciones, así como estrategias de afrontamiento y autocuidado.
+b) Brindar asesoría técnica a las jefaturas para el desarrollo y fortalecimiento de sus competencias y habilidades directivas.
+c) Informar sobre los servicios de atención psicológica que brinda el Estado, ya sea a través de los Servicios de Salud institucionales o de las instancias competentes, según el ámbito correspondiente.
+d) En aquellos casos en que se presente un conflicto en la oficina o despacho, sin configurarse violencia o acoso laboral, y previo acuerdo de las personas involucradas, facilitar procesos de apoyo para la solución de conflictos.
+e) Coordinar con otras instancias internas o externas al Ministerio, según corresponda, para que coadyuven en la atención del caso.
+f) Implementar cualquier otra acción de carácter profesional que constituya una alternativa de abordaje adecuada a la situación planteada.
