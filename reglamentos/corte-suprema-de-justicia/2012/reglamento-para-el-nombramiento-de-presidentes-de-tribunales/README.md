@@ -13,3 +13,4 @@ Reglamento para el nombramiento de Presidentes de Tribunales Colegiados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-22 | la propia norma |
+| 2 | 2026-06-01 | Reglamento 24 (2026-06-01) |
