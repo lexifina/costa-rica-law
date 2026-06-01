@@ -1,0 +1,1 @@
+Artículo 12.- Derogatoria. Deróguese el Decreto Ejecutivo 43580-MP-PLAN del 01 de junio del 2022 y sus reformas, publicado en el Alcance Nº 117 al Diario Oficial La Gaceta Nº 108 del 10 de junio de 2022.

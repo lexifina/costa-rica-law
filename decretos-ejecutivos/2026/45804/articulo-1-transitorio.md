@@ -1,0 +1,1 @@
+Transitorio Único. Los ministros rectores señalados en el artículo 7° del Decreto Ejecutivo Nº 43580-MP-PLAN del 01 de junio del 2022 y sus reformas, continuarán a cargo de velar por la ejecución y el seguimiento del Plan Nacional de Desarrollo y de Inversión Pública 2023-2026. hasta la finalización de este y la emisión del último informe anual de seguimiento.

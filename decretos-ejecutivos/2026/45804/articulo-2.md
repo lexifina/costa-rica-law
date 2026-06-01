@@ -1,0 +1,8 @@
+Artículo 2.- De las personas ministras de Gobierno. Los jerarcas ministeriales tendrán las siguientes funciones:
+a) Ejecutar y velar por el cumplimiento de las competencias propias del Ministerio a su cargo, según lo establecido por el ordenamiento jurídico vigente.
+b) Asistir con voz y voto a las sesiones ordinarias y extraordinarias del Consejo de Gobierno.
+c) Asumir la rectoría técnica de las competencias que le han sido encomendadas por ley a la cartera ministerial a su cargo. salvo desconcentración operada.
+d) Ejercer el direccionamiento y la correspondiente coordinación política de la Administración Pública Central y Descentralizada.
+e) Las demás que señala la Constitución Política, la Ley General de la Administración Pública y Leyes Especiales.
+Para efectos de lo señalado en el inciso d) del presente artículo, dicha función será ejercida esencialmente mediante la directriz presidencial como el instrumento que pe1mite alcanzar el logro de los objetivos trazados por el Poder Ejecutivo; manteniendo así, la coherencia y la unidad en la dirección de actividad de la Administración.
+Asimismo, toda Directriz Presidencial será de cumplimiento obligatorio por parte de los Jerarcas de la Administración, salvo justificación para su incumplimiento, la que deberá formalizarse ante la persona que ejerce la Presidencia de la República, dentro del plazo de un mes contado a partir de la emisión respectiva. Caso contrario. se procederá de conformidad con lo dispuesto en los artículos 99 y 100 de la Ley General de la Administración Pública, Ley N° 6227. sin perjuicio de lo establecido en el artículo 98 de ese mismo cuerpo normativo cuando resulte aplicable.
