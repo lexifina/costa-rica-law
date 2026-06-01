@@ -1,0 +1,1 @@
+Artículo 38. Herramienta especializada: Los activos clasificados como herramienta especializada, será asegurados a valor de reposición hasta los 5 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición. Posterior a los 5 años, estos activos se considerarán no asegurables

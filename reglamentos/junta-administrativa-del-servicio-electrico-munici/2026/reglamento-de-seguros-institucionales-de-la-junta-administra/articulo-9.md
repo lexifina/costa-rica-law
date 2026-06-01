@@ -1,0 +1,4 @@
+Artículo 9. Asesoría Jurídico Institucional
+a) Corresponderá al notario institucional la realización del acto de autenticación notarial, cuando así le sea requerido por el Departamento de Atención al cliente o en su defecto el Profesional de Seguros
+Corresponderá al Profesional en Derecho designado por la Asesoría Legal Institucional con competencia legal para realizar el trámite de todas las actuaciones legales necesarias ante el Juzgado correspondiente, según sean derivadas de colisiones, denuncias penales entre otras donde estén legalmente facultados para realizar acciones en defensa de JASEC conforme a la normativa vigente y a los procedimientos institucionales aplicables
+b) Elaborar los expedientes de los casos que sean asignados, con la información suministrada por otras dependencias institucionales

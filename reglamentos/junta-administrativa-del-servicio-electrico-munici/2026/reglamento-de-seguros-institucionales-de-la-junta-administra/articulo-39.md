@@ -1,0 +1,1 @@
+Artículo 39. Excepciones de aseguramiento: Cuando un activo se considere no asegurable según las disposiciones de este reglamento, podrá ser asegurado siempre y cuando el área responsable solicite y justifique formalmente el aseguramiento, utilizando como base de aseguramiento valor real efectivo o valor convenido

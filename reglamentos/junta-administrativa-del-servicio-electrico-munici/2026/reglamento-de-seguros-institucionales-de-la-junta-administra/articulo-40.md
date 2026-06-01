@@ -1,0 +1,1 @@
+Artículo 40. Otros activos: Cuando se identifique un activo que requiera ser asegurado, se deberá consultar al Área de Servicios Administrativos, el tipo de póliza en el que debe ser incluido y su base de aseguramiento

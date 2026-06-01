@@ -1,0 +1,1 @@
+Artículo 30. Mobiliario y Equipo: El Mobiliario y Equipo, será asegurado a valor de reposición hasta los 20 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición. Posterior a los 20 años, estos activos se considerarán no asegurables

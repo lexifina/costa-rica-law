@@ -1,0 +1,2 @@
+Artículo 33. Vehículos: Los vehículos, serán asegurados a valor de reposición hasta los 7 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición.
+Posterior a los 7 años, se asegurarán a su valor real efectivo hasta un máximo de 15 años. Después de los 15 años de antigüedad, solamente serán incluidos en una póliza de Responsabilidad Civil, asumiendo JASEC los daños directos al vehículo

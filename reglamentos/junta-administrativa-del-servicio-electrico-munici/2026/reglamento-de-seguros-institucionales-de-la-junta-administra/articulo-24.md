@@ -1,0 +1,1 @@
+Artículo 24. Tipos de Seguros por contratar: Por medio del análisis de riesgos realizado, se contratarán seguros clasificados según los tipos de riesgos encontrados, como; financieros, humanos, materiales, entre otros

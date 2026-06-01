@@ -1,0 +1,1 @@
+Artículo 22. Estudio de Mercado: El Área de Seguros, deberá por medio de la corredora de seguros contratada, realizar estudios de mercado de forma anual, para analizar riesgos, primas, productos disponibles y coberturas de cada una de sus pólizas contratadas

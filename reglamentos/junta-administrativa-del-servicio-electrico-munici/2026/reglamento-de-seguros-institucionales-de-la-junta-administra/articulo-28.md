@@ -1,0 +1,1 @@
+Artículo 28. Equipos Especializados Infocomunicaciones: El equipo especializado del Área Infocomunicaciones, será asegurado a valor de reposición hasta los 10 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición. Posterior a los 10 años, estos activos se considerarán no asegurables

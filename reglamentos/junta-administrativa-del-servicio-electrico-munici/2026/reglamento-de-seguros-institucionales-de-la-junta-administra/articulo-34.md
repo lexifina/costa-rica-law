@@ -1,0 +1,2 @@
+Artículo 34. Motocicletas: Las motocicletas, serán aseguradas a valor de reposición hasta los 3 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición. Posterior a los 3 años, se asegurarán a su valor real efectivo hasta un máximo de 5 años.
+Después de los 5 años de antigüedad, solamente serán incluidos en una póliza de Responsabilidad Civil, asumiendo JASEC los daños directos de la motocicleta

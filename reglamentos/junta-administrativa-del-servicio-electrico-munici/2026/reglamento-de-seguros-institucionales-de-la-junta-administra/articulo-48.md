@@ -1,0 +1,1 @@
+Artículo 48. De las sanciones por responsabilidad: Si por medio de un proceso administrativo, se determina responsabilidad por parte del funcionario por la falta en alguna de las disposiciones de este reglamento, se le sancionará según lo estipulado en el Título X de la Ley de la Administración Financiera de la República

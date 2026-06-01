@@ -1,0 +1,1 @@
+Artículo 19. Del análisis de riesgos: JASEC, a través del Área de Seguros, deberá contar con metodologías de análisis de riesgos, que ayuden a la administración en la toma de decisiones para definir que riesgos se pueden trasladar mediante un seguro

@@ -1,0 +1,1 @@
+Artículo 23. Contratos de Seguros: JASEC contratará sus seguros según lo establecido en las Leyes N°8653 Ley Reguladora del Mercado de Seguros, Ley N°8956 Ley Reguladora del Contrato de Seguros y la Ley N°9986 Ley General de Contratación Pública y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 29. Equipos Electrógenos Infocomunicaciones: El equipo electrógeno del Área Infocomunicaciones, será asegurado a valor de reposición hasta los 15 años de antigüedad, utilizando como base de aseguramiento el valor de adquisición. Posterior a los 15 años, estos activos se considerarán no asegurables

@@ -1,0 +1,1 @@
+Artículo 44. Fidelidad: JASEC deberá mantener vigente y adecuadamente asegurados aquellos puestos que manejen dinero en efectivo o valores, para el desarrollo de sus funciones, siempre que esté beneficio este contemplado en la convención colectiva

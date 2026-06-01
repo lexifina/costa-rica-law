@@ -1,0 +1,1 @@
+Artículo 49. Procedimiento administrativo: El jefe inmediato del funcionario involucrado en la falta de alguna de las disposiciones de este reglamento, deberá elaborar un informe del caso y remitirlo la Administración Superior (Gerencia o Junta Directiva) para que se realice de ser necesario, el debido proceso
