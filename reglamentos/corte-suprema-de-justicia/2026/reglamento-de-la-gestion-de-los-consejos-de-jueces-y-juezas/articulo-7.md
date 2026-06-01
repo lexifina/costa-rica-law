@@ -1,0 +1,2 @@
+Artículo 7. De la integración del Consejo de Jueces y Juezas.
+Serán miembros del Consejo de Jueces y Juezas del respectivo Despacho Judicial, todas las personas juzgadoras, nombradas en propiedad o aquellas que ocupen puestos de judicatura en plaza vacante siempre y cuando se encuentren laborando en dicha dependencia. De no ser así, en sus ausencias participarán las personas juzgadoras interinas o supernumerarias que las sustituyan.

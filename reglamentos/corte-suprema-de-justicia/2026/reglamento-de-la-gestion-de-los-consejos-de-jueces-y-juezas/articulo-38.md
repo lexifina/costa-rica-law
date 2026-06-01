@@ -1,0 +1,5 @@
+Artículo 38.- Modificaciones:
+- Se modifican del Reglamento denominado "Reglamento para el nombramiento de Presidentes y Coordinadores de Tribunales Colegiados", aprobado por Corte Plena, en sesión Nº 4312, celebrada el 10 de diciembre de 2012, artículo V, Circular 10-2013.
+Para que se lea en delante de la siguiente manera: "Reglamento para el nombramiento de Presidentes de Tribunales Colegiados", regulando el proceso de nombramientos de presidente previsto en el artículo 32 de la Ley Orgánica del Poder Judicial.
+- Se modifican del Reglamento denominado "Reglamento del Sistema Integrado de Evaluación del Desempeño del Poder Judicial", aprobado por Corte Plena, en sesión N° el Artículo 9.- Órganos competentes de la aplicación de la evaluación del desempeño, inciso b.
+Para que se lea en delante de la siguiente manera: "b) Los Consejos de Jueces y Juezas del Poder Judicial, evaluaran a la persona juzgadora que asuma la coordinación del despacho, el área o sección, tomando la decisión que corresponda por mayoría simple de los presentes."

@@ -1,0 +1,2 @@
+Artículo 21.- Suspensión en el nombramiento como persona juzgadora Coordinadora.
+El nombramiento como persona juzgadora coordinadora se tendrá por suspendido por ausentarse del ejercicio efectivo del cargo, ya sea por licencia, incapacidad, vacaciones y permiso con goce o sin goce de salario, traslados temporales por medida cautelar y ascensos en un periodo menor de tres meses, recobrando su condición de coordinador una vez finalizado la causal de suspensión.

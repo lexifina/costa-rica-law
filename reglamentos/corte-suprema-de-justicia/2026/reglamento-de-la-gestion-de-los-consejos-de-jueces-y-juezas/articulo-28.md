@@ -1,0 +1,4 @@
+Artículo 28.- De la impugnación de los acuerdos.
+Contra los acuerdos que carezcan firmeza, cualquiera de los integrantes del Consejo de Jueces y Juezas podrá interponer el recurso de revisión, el mismo será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que la persona que preside juzgue urgente, prefiera conocerlo en sesión extraordinaria conforme se establece en el presente reglamento. Dicho recurso deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.
+Los acuerdos firmes podrán ser impugnados por quien tenga interés legítimo o derecho subjetivo que sea afectado, mediante recurso de revocatoria dentro de los tres días hábiles siguientes de su comunicación ante el mismo Consejo de Jueces y Juezas y apelación ante el Consejo Superior

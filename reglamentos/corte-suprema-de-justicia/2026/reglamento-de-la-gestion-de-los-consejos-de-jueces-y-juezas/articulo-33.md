@@ -1,0 +1,2 @@
+Artículo 33.- Dirección de la Tecnología de la Información.
+La Dirección de la Tecnología de la Información, deberá desarrollar o proponer la implementación de una herramienta amigable que se ajuste a las necesidades de las sesiones de los Consejo de Jueces y Juezas, para poder cumplir con los videos de grabaciones de cada sesión, así como las transcripciones; lo anterior con lo establecido en el presente reglamento. Además, deberá las capacitaciones necesarias para el uso de estas herramientas.

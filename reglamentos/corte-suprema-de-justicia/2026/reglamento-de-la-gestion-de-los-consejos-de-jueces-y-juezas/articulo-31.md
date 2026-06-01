@@ -1,0 +1,2 @@
+Artículo 31.- Inhibitorias y recusaciones.
+Los integrantes de los Consejos de Jueces y Juezas deberán abstenerse de conocer los asuntos sobre los cuales tengan una causal o motivo de inhibitoria y/o recusación, debiendo informar al Consejo de Jueces y Juezas, quienes deberán proceder y resolver conforme lo dispuesto en la Ley General de la Administración Pública, el Código Procesal Civil vigente, y la Ley Orgánica del Poder Judicial.
