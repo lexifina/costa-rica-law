@@ -14,3 +14,4 @@ Reglamento del programa de abastecimiento institucional (PAI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-24 | la propia norma |
+| 2 | 2026-06-01 | Reglamento 3206 (2026-06-01) |

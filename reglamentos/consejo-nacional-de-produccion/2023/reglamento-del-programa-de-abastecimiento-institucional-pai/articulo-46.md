@@ -1,1 +1,6 @@
-Artículo N º 46. En caso de que los incumplimientos de las obligaciones de abastecimiento conduzcan a la aplicación de multas por parte de un cliente institucional al CNP, dicha multa será trasladada al suplidor asignado, previo otorgamiento del debido proceso.
+Artículo N º 46. El incumplimiento a los deberes referidos a la relación contractual del suplidor con el CNP podrá generar las siguientes sanciones:
+a) Apercibimiento en casos en que la falta sea de menor gravedad o no haya generado consecuencias lesivas mayores a los intereses e imagen institucional.
+b) Reducción temporal de cuota de mercado o puntos de entrega.
+c) Suspensión del abastecimiento en aquellos casos de incumplimientos que hayan generado consecuencias de gravedad a los intereses institucionales, ya sea del CNP o de las instituciones clientes. La suspensión podrá aplicarse desde tres meses hasta un año.
+d) Sanción Económica. El CNP podrá establecer al suplidor o la agroindustria, el pago de multas por ejecución defectuosa o cláusulas penales, de conformidad con lo que el cliente institucional a su vez disponga, por defectos en la ejecución del contrato..
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 45 al artículo 46)

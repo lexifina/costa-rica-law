@@ -1,1 +1,4 @@
-Artículo N º 42. Queda facultado el CNP para que, en caso de incumplimiento a las obligaciones contraídas por el productor, suplidor o agroindustria, se le reduzca o suspenda la asignación de mercado o compra de producto. En caso de reincidencia en los incumplimientos debidamente comprobados, el productor, el suplidor o la agroindustria podrá ser sujeto de exclusión del programa.
+CAPITULO VI
+DELOS INCU MPLIMIENTOS CONTRACTU ALES
+Artículo N º 42. Las sanciones que podrán ser aplicadas virtud del incumplimiento a las obligaciones establecidas entre partes serán de naturaleza administrativa y civil, correspondiendo lo civil a la posibilidad de exigir responsabilidad por daños y perjuicios ocasionados al CNP.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 41 al artículo 42)

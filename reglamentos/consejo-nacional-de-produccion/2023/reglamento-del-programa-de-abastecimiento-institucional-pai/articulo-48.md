@@ -1,3 +1,4 @@
-Artículo N º 48. La sanción no se extingue por la fusión, transformación o cambio de razón o denominación social del suplidor o la agroindustria, cualquiera que sea su forma de constitución.
-a) En caso de que la fusión dé origen a una nueva denominación social o la empresa sancionada sea absorbida por otra, los efectos de la sanción recaerán sobre la sociedad prevaleciente.
-b) Constituirá fraude de ley la constitución de una nueva sociedad o acudir a una persona física con la finalidad de evadir los efectos de una sanción en firme, en cuyo caso sus efectos recaerán en iguales condiciones sobre la sociedad así constituida o la persona física.
+Artículo 48. Previo al inicio de cualquier procedimiento administrativo ordinario por presuntos incumplimientos a las obligaciones establecidas en el presente Reglamento, la Administración deberá garantizar el respeto del debido proceso.
+Para la atención de eventuales sanciones, deberá seguirse el procedimiento institucional vigente, asegurando el derecho de defensa y las demás garantías que correspondan a las partes involucradas.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 47 al artículo 48)
+(Así reformado mediante sesión ordinaria N° 3206 del 01 de junio del 2026)

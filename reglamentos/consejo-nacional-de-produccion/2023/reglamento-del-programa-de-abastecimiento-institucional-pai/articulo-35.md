@@ -1,3 +1,7 @@
-CAPITULO V
-DE LA FIJACIÓN DE PRECIOS
-Artículo N º 35. Corresponderá a la Dirección de Mercadeo y Agro industria, formular y proponer los cambios a la metodología para la formación de precios y márgenes de operación de cada uno de los actores en la cadena de comercialización del PAI, tanto para la compra como para la venta de los productos. Dicha metodología deberá ser elevada a la Junta Administrativa para su validación y a la Junta Directiva para su aprobación definitiva.
+Artículo 35. El CNP podrá sustituir, dejar de comprar o reducir mercado a cualquier suplidor de acopio y procesamiento, agroindustria u operador logístico al que le haya asignado mercado, en presencia de una o más de las siguientes circunstancias:
+a) Ingreso de nuevos SAP, AI u OL regionales.
+b) Por razones de conveniencia, mérito y oportunidad administrativas debidamente razonadas por la administración
+c) Por incumplimientos señalados en el Artículo 44 del presente Reglamento.
+Para tales efectos, el CNP deberá de realizar el debido proceso y seguir lo indicado en los procedimientos relacionados con los artículos 30, 31 y 32 del presente Reglamento.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 34 al artículo 35)
+(Así reformado mediante sesión ordinaria N° 3206 del 01 de junio del 2026)

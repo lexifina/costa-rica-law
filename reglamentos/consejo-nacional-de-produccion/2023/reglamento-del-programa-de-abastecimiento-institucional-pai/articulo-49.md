@@ -1,3 +1,2 @@
-CAPÍTULO VII
-DISPOSICIONES FINALES
-Artículo N º 49. Los casos no previstos en este Reglamento se resolverán de acuerdo con los principios que se deriven de la aplicación de las Leyes atinentes.
+Artículo 49. En el supuesto de detectarse incumplimientos a las obligaciones que le impone el presente Reglamento al suplidor, la Administración deberá de iniciar un Procedimiento Administrativo Ordinario, con el objetivo de respetar derechos subjetivos e intereses legítimos de las partes, asegurando así el mejor cumplimiento de los fines del Programa. Dicho Procedimiento se regirá por la normativa de la Ley General de la Administración Pública, artículos 214, así como con arreglo al Título Sexto, Capítulo Primero artículos 308 y siguientes de la Ley de cita. Deberá seguirse lo dispuesto en el procedimiento institucional vigente para este fin.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 48 al artículo 49)

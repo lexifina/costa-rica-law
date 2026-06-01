@@ -1,2 +1,2 @@
-Artículo N º 40. Referente a los reajustes de precios de los contratos regionales suscritos con instituciones clientes, corresponderá a los Directores Regionales la administración del contrato, con el fin de que recomiende y fundamente las solicitudes de reajuste de precios, para ser trasladados a la Sub gerencia General.
-En aquellos contratos con impacto o alcance nacional la administración del contrato recaerá en la figura del Subgerente General.
+Artículo N º 40. La Dirección de Mercadeo y Agroindustria en caso de los productos que por su naturaleza no les sea aplicable la metodología de formación de precios citada en los artículos 37° y 38° del presente reglamento, deberá recomendar una metodología especial, que será autorizada por la Junta Administrativa.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 39 al artículo 40)

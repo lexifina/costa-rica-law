@@ -1,1 +1,2 @@
-Artículo N º 39. La Dirección de Mercadeo y Agroindustria en caso de los productos que por su naturaleza no les sea aplicable la metodología de formación de precios citada en los artículos 37° y 38° del presente reglamento, deberá recomendar una metodología especial, que será autorizada por la Junta Administrativa.
+Artículo N º 39. Corresponde a las Direcciones Regionales, recolectar la información y realizar una valoración de la razonabilidad del monitoreo de precios, bien sea de los precios recolectados en los establecimientos comerciales o de las cotizaciones de los suplidores, de igual forma dar apoyo técnico al proceso.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 38 al artículo 39)

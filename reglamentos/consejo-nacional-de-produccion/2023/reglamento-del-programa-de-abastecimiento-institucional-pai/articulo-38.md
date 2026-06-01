@@ -1,1 +1,2 @@
-Artículo N º 38. Corresponde a las Direcciones Regionales, recolectar la información y realizar una valoración de la razonabilidad del monitoreo de precios, bien sea de los precios recolectados en los establecimientos comerciales o de las cotizaciones de los suplidores, de igual forma dar apoyo técnico al proceso.
+Artículo N º 38. El margen de sostenibilidad del PAI deberá ser parte integral del precio de venta, e incorporado en la metodología de fijación de precios, mismo que tendrá una revisión anual para su actualización de manera que permita cubrir los gastos del Programa.
+(Así modificada su numeración mediante sesión ordinaria N° 3206 del 01 de junio del 2026, que lo traspasó del artículo 37 al artículo 38)
