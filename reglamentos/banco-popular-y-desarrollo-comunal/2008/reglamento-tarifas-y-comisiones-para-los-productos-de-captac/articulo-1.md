@@ -1,10 +1,11 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
 Reglamento "Tarifas y Comisiones para los productos de Captación"
 La Junta Directiva Nacional, en sesión Nº 4589 del 7 de julio del 2008, modificó el acuerdo Nº 140 de la sesión Nº 4548 del 4 de febrero del 2008, en el sentido de aprobar el documento 'Tarifas y Comisiones para los productos de Captación', para que se lea así:
-(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión N° 6288 del 3 de marzo de 2026 y publicada en el Alcance Digital N° 32 a La Gaceta N° 60 del 7 de marzo del 2026, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión sesión ordinaria No. 6312 del 2 de junio de 2026 y publicada en el Alcance Digital N° 73 a La Gaceta N° 106 del 11 de junio del 2026, por lo que se reproduce a continuación:)
 Tabla de Tarifas y Comisiones para productos y servicios del
 Banco Popular y de Desarrollo Comunal
 Detalle de Comisiones
-1 Comisiones generales (aplica para diferentes servicios o productos)
+1 Comisiones generales (aplica para diferentes servicios o productos
 1.1 Copias de expedientes y/o documentos administrativos.
 ¢20,00 por cada página fotocopiada (por cada cara).
 ¢15,00 por cada página en formato digital (por cada cara).
@@ -12,8 +13,8 @@ Detalle de Comisiones
 US$1.00 por cada reposición de comprobante (monto individual por cada uno).
 1.3 Generación de históricos impresos mayores a 3 meses vencidos (cualquier producto excepto tarjetas de crédito).
 US$10,00 por solicitud de histórico impreso.
-1.4 Generación de históricos digitales mayores a 3 meses vencidos y cuya remisión es mediante correo electrónico (cualquier producto excepto tarjetas de crédito).
-US$1,00 por solicitud de histórico digital.
+1.4 Generación de históricos digitales mayores a 3 meses vencidos y cuya remisión es mediante correo electrónico.
+US$1,00 por página de histórico digital.
 1.5 Pago de servicios públicos y privados en plataforma.
 ¢350,00 por transacción de pago.
 Se exonera de este cobro de comisión cuando el cliente sea considerado como persona adulta mayor según la Ley Integral para Adulto Mayor No. 7935 y el recibo del servicio se encuentre a su nombre.
@@ -27,7 +28,7 @@ Se exonera de este cobro los depósitos de monedas, previo a la emisión inmedia
 US$10,00 por constancia.
 Se exonera de este cobro la constancia de Cuenta IBAN.
 1.8 Servicio Surcharge
-4,00% sobre el monto con un cargo mínimo de US$5,50 por cada retiro en la red de cajeros propios, con tarjetas de emisores diferentes al Banco Popular emitidas en el extranjero.
+US$4,00 por cada retiro en la red de cajeros propios, con tarjetas de emisores diferentes al Banco Popular emitidas en el extranjero.
 1.9 Quick Pass
 US$1,00 por mantenimiento mensual (mediante débito al producto que el cliente autorice).
 50% del valor del Quick Pass por devolución anticipada.
@@ -45,13 +46,14 @@ US$2,00 por cheque.
 US$10,00 por cheque.
 1.15 Transferencia de fondos en plataforma cuentas BPDC.
 US$3,00 por transferencia a solicitud del cliente
-Se exonera de este cobro cuando la cuenta origen sea de un cliente considerado como persona adulta mayor según la Ley Integral para Adulto Mayor No. 7935 Se exonera de este cobro las transferencias como complemento para creación, apertura y pago de otros productos y servicios.
+Se exonera de este cobro cuando la cuenta origen sea de un cliente considerado como persona adulta mayor según la Ley Integral para Adulto Mayor No. 7935
+Se exonera de este cobro las transferencias como complemento para creación, apertura y pago de otros productos y servicios.
 1.16 Comisión por trámites sucesorios judiciales y notariales
 US$10,00, al solicitar el trámite.
 1.17 Comisión por trámites embargo
 US$10,00, por trámite.
 1.18 Comisión por retiro de efectivo en ventanilla.
-US$1,25 por cada retiro de efectivo.
+US$1,00 por cada retiro de efectivo.
 Se exonera de este cobro clientes que sean considerados como persona adulta mayor según la Ley Integral para Adulto Mayor No. 7935 y clientes identificados como Pensionados.
 1.19 Comisión por retiro de efectivo con desglose de billetes y/o monedas
 0,50 % sobre el monto a retirar con mínimo US$2,00
@@ -111,22 +113,12 @@ Se exonera de este cobro, clientes que sean considerados como persona adultos ma
 2.2.12 Cheques girados por el cuentacorrentista y cobrados por otros bancos mediante el sistema de compensación y liquidación de cheques del BCCR, Cámara de Compensación.
 Por cada cheque, se incrementa US$0,50 en el mes de enero de cada año, a partir del 2019.
 US$2,00, por cada cheque.
-Tipo Condición para cuentas en colones
-Condición para
-cuentas en dólares
-Cuenta Corriente
-Personal
-Saldo promedio menor o igual al equivalente en colones a US$30.00 (al tipo de cambio de venta del último día hábil del mes)
-Saldo promedio menor o igual a US$30.00
-Cuenta Corriente Empresarial
-Saldo promedio menor o igual al equivalente en colones a US$50.00 (al tipo de cambio de venta del último día hábil del mes)
-Saldo promedio menor o igual a US$50.00
-Cuenta Corriente Social
-NO APLICA NO APLICA
 2.2.13 Cierre de cuenta
 US$2,00, por cuenta.
 2.2.14 Comisión por Certificación de cheques
 US$10,00 por cada cheque.
+2.2.15 Comisión por retiro de efectivo en ventanilla por nota de débito
+US$4,00 por cada retiro de efectivo
 2.3 Ahorro a Plazo
 2.3.1 Materializar depósitos a plazo desmaterializados.
 US$5,00 de comisión administrativa adicional a la recuperación de la diferencia de rendimiento otorgado por el desmaterializado, según el diferencial de tasas de interés brutas entre certificados desmaterializados y materializados.
@@ -182,7 +174,7 @@ US$10,00 por cada certificación.
 3.4 Salida del País Vehículos Prendados
 US$15,00 por trámite.
 3.5 Liberación Total de Garantía (cancelación)
-En la oficina dueña no tiene costo, en otra oficina US$50,00.
+US$50,00. por liberación de garantía.
 3.6 Novación de Deudor
 2% sobre el saldo de la operación de crédito. Mínimo $75,00.
 3.7 Eliminación Codeudor
@@ -218,7 +210,7 @@ Se definirá en un rango de 0% a 10% sobre el monto de la compra que se aplique,
 4.1.12 Comisión por conversión de saldo adeudado en tarjeta de crédito de dólares a colones.
 3% sobre el monto de la conversión realizada.
 4.1.13 Adelanto de efectivo en Tarjeta Empresarial.
-4% del monto de la transacción, mínimo US$2,00
+Del 0% a 4% del monto de la transacción. Mínimo ¢300
 4.1.14 Reposición por Robo Tarjeta de Crédito
 US$12,00 VISA y/o MasterCard por cada plástico repuesto, chip, "manilla/pulsera" o cualquier dispositivo de pago electrónico
 4.1.15 Servicio de Visa Direct (Entrante) Tarjeta Crédito
@@ -250,11 +242,23 @@ US$10,00 por tarjeta repuesta.
 Se exonera de este cobro, clientes que sean considerados como persona adultos mayor según la Ley Integral para Adulto Mayor No. 7935.
 4.2.11 Servicio de Visa Direct (Entrante) Tarjeta Débito
 US$5,00 por cada transferencia.
-5 Comisiones de Adquirencias.
-Las comisiones de adquirencias bancaria se rigen por lo establecido en el Reglamento del Sistema de Tarjetas de Pago del BCCR.
-5.1 Comisión por Administración de Cuenta en Conexión BP.
+5 Servicios Internacionales.
+5.1 Comisión por Transferencias Internacionales recibidas
+Monto Transferencia | Comisión
+$2000 | $9
+$2001-$10.000 | $15
+Mayor a $10.000 | $20
+5.2 Comisión por Transferencias Internacionales enviadas
+0,25% del monto de la transferencia, con un mínimo de $10 y un máximo de $80.
+5.3 Comisión por devolución por Transferencias.
+$15 por transferencia
+5.4 Comisión Swift
+$10 por transferencia.
+6 Comisiones de Adquirencia.
+Las comisiones de adquirencia bancaria se rigen por lo establecido en el Reglamento del Sistema de Tarjetas de Pago del BCCR.
+6.1 Comisión por Administración de Cuenta en Conexión BP.
 US$1,00 por mes.
-6 Firma digital.
+7 Firma digital.
 Las comisiones de Firma Digital se encuentran publicadas en el sitio web www.bancopopular.fi.cr, en el apartado: Aspectos Legales y de Seguridad - Tasas y Comisiones - Comisiones y Tarifas - Tarifas de Firma Digital con IVA.
-7 Tipo de cambio:
+8 Tipo de cambio:
 Comisiones cobradas de forma manual: los cobros de comisiones que son aplicadas de manera manual se efectuarán considerando el tipo de cambio de venta anunciado por el Banco Popular al momento de realizar el cobro de la comisión.

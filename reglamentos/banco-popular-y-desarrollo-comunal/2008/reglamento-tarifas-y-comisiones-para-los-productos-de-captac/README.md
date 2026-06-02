@@ -24,3 +24,4 @@ Reglamento "Tarifas y Comisiones para los productos de Captación"
 | 9 | 2025-10-08 | Reglamento 6249 (2025-10-08) |
 | 10 | 2025-12-18 | Reglamento 6271 (2025-12-18) |
 | 11 | 2026-03-03 | Reglamento 6288 (2026-03-03) |
+| 12 | 2026-06-02 | Reglamento 6312 (2026-06-02) |
