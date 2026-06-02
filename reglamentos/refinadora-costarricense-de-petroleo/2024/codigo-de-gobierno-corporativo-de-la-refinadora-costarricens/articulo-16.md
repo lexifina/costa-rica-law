@@ -1,2 +1,0 @@
-Artículo 16. Reuniones de la Asamblea de Accionistas
-Las reuniones de la Asamblea de Accionistas se rigen por lo dispuesto en los Estatutos Sociales y la Ley N°5508, disponibles en la página electrónica de RECOPE S.A.www.recope.com.

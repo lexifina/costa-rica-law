@@ -1,3 +1,0 @@
-Artículo 14. Deber de denunciar
-Las personas incluidas en el alcance de este Código tienen la obligación de denunciar, a través del canal único de denuncias establecido por la Administración, cualquier incumplimiento de los códigos, políticas y reglamentos, así como actos de corrupción y conflictos de interés.
-Deberá tenerse presente el deber de confidencialidad del nombre de la persona denunciante, según la Ley General de Control Interno y la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. También RECOPE S.A. debe establecer los mecanismos de protección contra represalias de las personas denunciantes.

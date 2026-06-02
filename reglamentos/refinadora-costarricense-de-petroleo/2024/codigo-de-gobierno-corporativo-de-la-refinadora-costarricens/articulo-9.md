@@ -1,3 +1,0 @@
-Artículo 9. Marco normativo
-RECOPE S.A. se encuentra normada por el derecho público en materia administrativa para el control de fondos públicos y por el derecho privado en su giro comercial por su condición de sociedad anónima. El marco normativo se puede consultar en la página electrónica www.recope.com
-La Empresa está sujeta a la fiscalización de la Contraloría General de la República, la SUGEVAL, el Ministerio de Planificación, en lo referente al Sistema General de Empleo Público; las directrices de la Autoridad Presupuestaria y está vinculada al Poder Ejecutivo por medio de las disposiciones del Plan Nacional de Desarrollo e Inversión Pública y el Plan Nacional de Energía.
