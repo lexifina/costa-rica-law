@@ -1,0 +1,1 @@
+Artículo 2º.- Modifíquense los artículos 8 y el párrafo primero del artículo 9 del Decreto Ejecutivo N°40199- MP del 27 de abril del 2017, para que donde actualmente dice "Ministerio de Comunicación" en lo sucesivo se lea "Ministerio de Planificación Nacional y Política Económica".
