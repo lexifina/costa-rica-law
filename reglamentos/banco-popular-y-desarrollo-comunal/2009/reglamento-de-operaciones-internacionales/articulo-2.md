@@ -1,1 +1,0 @@
-Artículo 2°-Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Área de Servicios Internacionales del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fijará el Comité indicado en el artículo siete de este Reglamento.

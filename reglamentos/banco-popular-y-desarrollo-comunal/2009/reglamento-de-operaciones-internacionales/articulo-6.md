@@ -1,1 +1,0 @@
-Artículo 6°.- Períodos de congelamiento de cheques internacionales. Los cheques internacionales en dólares de los E.E.U.U u otras mondas, serán congelados dependiendo de la ubicación geográfica del banco girado y los períodos serán definidos por el Comité Internacional.

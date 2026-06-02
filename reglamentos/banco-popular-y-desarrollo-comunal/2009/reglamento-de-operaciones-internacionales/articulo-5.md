@@ -1,1 +1,0 @@
-Artículo 5°.- Límites de aprobación para transacciones internacionales. Los montos y niveles de aprobación en dólares estadounidenses para los servicios de cartas de crédito de exportación, deberá regirse por el Reglamento General de Crédito.
