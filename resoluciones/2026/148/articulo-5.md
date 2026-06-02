@@ -1,0 +1,1 @@
+Artículo 5. Las Oficinas de Servicio Civil del Área de Gestión de Recursos Humanos brindarán a las OGEREH la asesoría y asistencia técnica que estas requieran para la implementación de la Planificación del Empleo Público.

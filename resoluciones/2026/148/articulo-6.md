@@ -1,0 +1,1 @@
+Artículo 6. La Unidad de Análisis e Innovación de la Gestión Pública del Área de Desarrollo Estratégico, realizará el control y seguimiento de la implementación de la Planificación del Empleo Público. Además, atendiendo las necesidades identificadas, facilitará las herramientas técnicas que les permitan a las OGEREH fortalecer los procesos de la gestión de los recursos humanos.

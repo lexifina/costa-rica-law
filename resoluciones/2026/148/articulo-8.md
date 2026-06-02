@@ -1,0 +1,1 @@
+Artículo 8. La tercera semana del mes de febrero de cada año, las OGEREH deberán remitir al Área de Desarrollo Estratégico de esta Dirección General, un informe ejecutivo que contenga la información y los datos obtenidos en el proceso de implementación de la Planificación del Empleo Público en sus instituciones, correspondiente al año precedente.
