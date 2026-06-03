@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del cantón de Acosta de la provincia d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-30 | la propia norma |
+| 2 | 2026-06-03 | Ley 10962 |
