@@ -1,0 +1,14 @@
+SE REPRODUCE POR ERROR EN EL ORIGINAL LO RESALTADO EN NEGRITA
+CIRCULAR N° 179-2024
+Asunto: Gestión de riesgos que afectan la función de administración de justicia a los pueblos indígenas.
+A TODAS LAS JEFATURAS DE DESPACHOS U OFICINAS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 68-2024 celebrada el 01 de agosto de 2024, artículo LIII, dispuso aprobar la propuesta de la Subcomisión de Acceso a la Justicia de Pueblos Indígenas, en forma coordinada con la Oficina de Control Interno y la Unidad de Acceso a la Justicia, a fin de destacar la importancia de gestionar los riesgos vinculados al servicio que se debe prestar a las personas indígenas.
+Por lo anterior, los despachos y oficinas judiciales que tramitan procesos judiciales en los que estén involucrados pueblos indígenas, deberán:
+Cumplir con la Circular 188-19 aprobada por Corte Plena, donde se dispone el deber de "Identificar y analizar los riezgos relevanyes asociados ala logro de los objetivos y las metas institucionales vinculadas con la población indígena, establecidas en el Plan Estratégico Institucional que se encuentre vigente (ejes transversales acceso a la justicia y justicia abierta, entre otros); el efecto posible de tales riesgos, su importancia y la probabilidad de que ocurran, y decidir las acciones que se tomarán para administrarlos a fin de continuar con la adopción de las medidas necesarias para ubicarse por lo menos en un nivel de riesgo organizacional aceptable. Además, establecer los mecanismos operativos que minimicen el riesgo en las acciones por ejecutar en relación con la tramitación y resolución de los procesos judiciales en los que sean parte pueblos indígenas, priorizando aquellos en los que sean parte miembros del pueblo indigena Teribe y Bribri de Salitre".
+Atender el cumplimiento de la Circular 32-2021 que regula los lineamientos para las personas servidoras judiciales en relación con las Medidas Cautelares 321-12 de la Comisión Interamericana de Derechos Humanos contra el Estado, y la aplicación de la normativa internacional de derechos humanos referida a personas indígenas.
+Implementar acciones preventivas y correctivas, para gestionar eficazmente los riesgos asociados a la Medida Cautelar 321-12 establecida por la Comisión Interamericana de Derechos Humanos (CIDH) contra el Estado en beneficio de los pueblos indígenas Bribri de Salitre y Brorán de Térraba.
+Identificar y mitigar riesgos, tales como la desatención de procesos con participación de pueblos indígenas y sus organizaciones, la suspensión de audiencias, la dilación innecesaria de la tramitación y resolución de esos procesos, entre otras acciones que debiliten el sistema de control interno asociado a la priorización de la atención de esos expedientes.
+Se deberá dar el debido seguimiento en el transcurso del tiempo.
+Publíquese una vez en el Boletín Judicial.
+San José, 03 de junio de 2026.
