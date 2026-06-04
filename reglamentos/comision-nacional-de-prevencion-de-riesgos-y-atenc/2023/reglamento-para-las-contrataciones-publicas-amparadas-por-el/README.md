@@ -17,3 +17,4 @@ Reglamento para las contrataciones públicas amparadas por el régimen de excepc
 | 2 | 2024-07-18 | Reglamento 13 (2024-07-18) |
 | 3 | 2025-02-27 | Reglamento 1 (2025-02-27) |
 | 4 | 2026-03-18 | Reglamento 5 (2026-03-18) |
+| 5 | 2026-06-04 | Reglamento 10 (2026-06-04) |

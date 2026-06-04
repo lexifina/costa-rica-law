@@ -195,6 +195,7 @@ articulo-191.md
 articulo-192.md
 articulo-193.md
 articulo-194.md
+articulo-194-bis.md
 articulo-195.md
 articulo-196.md
 articulo-196-bis.md
@@ -219,6 +220,7 @@ articulo-214.md
 articulo-215.md
 articulo-216.md
 articulo-217.md
+articulo-217-bis.md
 articulo-218.md
 articulo-219.md
 articulo-220.md
