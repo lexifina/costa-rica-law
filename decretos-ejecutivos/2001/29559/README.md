@@ -14,3 +14,4 @@ Autorización de la Ruta que seguirá el Cable Submarino de Fibra Optica por ARC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-08 | la propia norma |
+| 2 | 2026-06-04 | Decreto Ejecutivo 45817 (2026-06-04) |
