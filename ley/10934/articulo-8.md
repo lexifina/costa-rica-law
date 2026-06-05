@@ -1,0 +1,1 @@
+ARTÍCULO 8- Los procedimientos establecidos en esta ley para la obtención de la licencia y para cobrar el impuesto, no excluyen actividades sujetas a licencia que por características especiales sean objeto de gravámenes impositivos o exenciones creadas por leyes de alcance general, leyes especiales, o zonas francas que hayan sido establecidas sin consulta de la Municipalidad.

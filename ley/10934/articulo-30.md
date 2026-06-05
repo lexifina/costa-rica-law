@@ -1,0 +1,1 @@
+ARTÍCULO 30- La declaración jurada del impuesto que deban presentar los patentados ante la Municipalidad de Nicoya quedará sujeta a las disposiciones de los artículos 122, 123, 124, 125 y 126 del Código de Normas y Procedimientos Tributarios, así como a otras leyes que regulen esta materia.

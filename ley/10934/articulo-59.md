@@ -1,0 +1,1 @@
+ARTÍCULO 59- La Municipalidad de Nicoya deberá elaborar el reglamento de la presente ley dentro de los seis meses siguientes contados a partir de la publicación de la presente ley en el diario oficial La Gaceta.
