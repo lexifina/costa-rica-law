@@ -1,0 +1,3 @@
+ARTÍCULO 13- Ejercicio de actividades conjuntas
+Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan conjuntamente varias sociedades o personas físicas, el monto del impuesto será determinado por la suma total del impuesto que corresponda a cada una individualmente.
+Cuando en un mismo establecimiento dedicado a actividades lucrativas, varias sociedades o personas físicas ejerzan conjuntamente actividades, el monto del impuesto se determinará individualmente para cada persona. Para ello, cada una de las personas, físicas o jurídicas, deberá cumplir los requisitos y obtener su respectiva licencia.
