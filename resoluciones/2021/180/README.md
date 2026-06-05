@@ -14,3 +14,4 @@ Metodología que determina los precios máximos de referencia para la contrataci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-02 | la propia norma |
+| 2 | 2026-06-05 | Resolución 48 (2026-06-05) |
