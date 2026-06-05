@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE UPALA
+El Concejo Municipal de Upala, en ejercicio de las facultades conferidas por los artículos 169 y 170 de la Constitución Política y los artículos 4, 13 inciso c) y concordantes del Código Municipal, Ley N° 7794, mediante Acuerdo N° 09, adoptado en la sesión N° 0147-2026, celebrada el día 08 de enero de 2026, según consta en el acuerdo MU-CM-SC-ACUE-09-0147-2026 y conforme al dictamen MU-CM-CAJ-DICTA-01-2026, acuerda aprobar las siguientes reformas y adiciones al Reglamento de Sesiones del Concejo Municipal de Upala:
+Artículo 1°-Refórmese el artículo 6 para que en adelante se lea de la siguiente manera:
+"Artículo 6.-Las sesiones extraordinarias deberán celebrarse el día y hora estipulados en la convocatoria. Las sesiones extraordinarias tendrán una duración de tres horas, más una hora extra en casos urgentes."
