@@ -1,0 +1,4 @@
+ARTÍCULO 5- Base imponible o factor determinante de la imposición
+Salvo cuando en esta ley se determine un procedimiento diferente para f ijar el monto del impuesto de patentes, se establecen, como base imponible o factor determinante de la imposición, los ingresos brutos anuales que perciban las personas físicas o jurídicas afectas al impuesto, durante el período f iscal anterior al año que se grava. Los ingresos brutos no incluyen lo recaudado por concepto del impuesto sobre las ventas ni el de valor agregado.
+En caso de declarantes bajo la modalidad del régimen simplificado, su base imponible se determinará sobre las compras declaradas.
+En el caso de los establecimientos financieros y de correduría de bienes muebles e inmuebles, se considerarán ingresos brutos los percibidos por concepto de comisiones e intereses y cualquier otro rubro que genere ingresos por actividad lucrativa, a raíz de negociaciones ajenas a la actividad principal de la entidad.

@@ -1,0 +1,1 @@
+TRANSITORIO II- Los montos de los impuestos determinados con anterioridad regirán a partir del próximo cierre de periodo f iscal, una vez entrada en vigencia esta ley, momento en el cual la Municipalidad procederá a realizar el ajuste correspondiente, de acuerdo con los nuevos factores y los montos de imposición.

@@ -1,0 +1,1 @@
+TRANSITORIO I- La Municipalidad deberá elaborar las disposiciones reglamentarias correspondientes para implementar lo dispuesto en esta ley, en un plazo de seis meses, contado a partir de su publicación en el diario oficial La Gaceta.
