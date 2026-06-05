@@ -1,6 +1,6 @@
 # Ley de Extradición
 
-Ley N° 4795 del 1971-07-16. SINALEVI, ficha 6767: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6767&param2=148585&param3=1>.
+Ley N° 4795 del 1971-07-16. SINALEVI, ficha 6767: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6767&param2=151319&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1994-11-25 | SINALEVI | 1971-07-16 |
 | 3 de 5 | 2023-09-26 | Ley 10373 | 2023-09-20 |
 | 4 de 5 | 2025-11-28 | Ley 10831 | 2025-11-18 |
+| 5 de 5 | 2026-06-05 | Ley 10936 | 2026-05-12 |
