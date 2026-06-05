@@ -1,0 +1,2 @@
+ARTÍCULO 14- Cuando a un establecimiento o actividad se le haya suspendido la licencia por falta
+de pago y se continúe con el desarrollo de esta, se establecerá una sanción de tres salarios base, según lo establecido en el artículo 90 bis del Código Municipal y se deberá iniciar el procedimiento administrativo para sancionar inmediatamente la licencia otorgada, cumpliendo previamente con las disposiciones reglamentarias que se dicten al efecto.

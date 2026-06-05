@@ -1,0 +1,2 @@
+ARTÍCULO 27- Prescribe en cuatro años el derecho para rectificar las declaraciones presentadas por los patentados; el cual contará desde la fecha en que fue presentada a la Municipalidad la declaración respectiva.
+La acción destinada a rectificar declaraciones no exime de las sanciones estipuladas en esta ley, si tal propuesta se ha hecho a raíz de revisión hecha por la Administración Tributaria Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 22- Queda autorizada la Administración Tributaria Municipal para conceder arreglos de pago por el adeudo del principal del impuesto de patentes y sus accesorios, siempre y cuando estos superen los dos o más trimestres de atraso. Para estos efectos, la Municipalidad deberá dictar el reglamento respectivo.

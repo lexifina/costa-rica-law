@@ -1,0 +1,6 @@
+SECCIÓN III
+EL IMPUESTO
+ARTÍCULO 12- El impuesto se pagará durante todo el tiempo en que la actividad económica se lleve a cabo, cuando existan ventas o ingresos brutos, o compras para el caso del Régimen de Tributación Simplificada. Queda establecida una tarifa mínima que deberá pagar todo patentado, según se indica en el artículo 15 de esta ley.
+El patentado, cuando finalice su actividad económica, en un plazo no mayor a 15 días hábiles deberá presentar la renuncia de la licencia que le fue otorgada ante la Municipalidad de Nicoya y proceder al pago de lo adeudado; en caso de no hacerlo o de tener montos pendientes por cancelar, se tramitará la renuncia y se iniciará un proceso de cobro por lo adeudado.
+La Municipalidad procederá a cancelar automáticamente la licencia cuando se autorice una nueva licencia en el local comercial que estaba autorizada, o cuando sea evidente el abandono de la actividad y presente una morosidad de dos trimestres en el pago del impuesto sea esta en local comercial o no.
+Cuando en un mismo establecimiento ejerzan conjuntamente varias sociedades o personas físicas, el monto del impuesto será determinado de manera individual. Para ello, cada una de las personas, físicas o jurídicas, deberá cumplir los requisitos y obtener su respectiva licencia.

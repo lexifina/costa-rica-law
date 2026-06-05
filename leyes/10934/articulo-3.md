@@ -1,0 +1,1 @@
+ARTÍCULO 3- A toda actividad económica con fines de lucro que haya sido previamente autorizada por la Municipalidad de Nicoya, o que haya iniciado sin la respectiva licencia municipal, se le impondrá un impuesto que será establecido de acuerdo con los mecanismos que dicte la presente ley. Quedan a salvo las actividades exentas por disposición de ley.

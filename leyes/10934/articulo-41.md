@@ -1,0 +1,1 @@
+ARTÍCULO 41- Se entenderá que existe liquidación administrativa cuando la obligación tributaria sea determinada por la administración sobre la base de los datos aportados por los patentados, responsables, terceros o los que ella posea.

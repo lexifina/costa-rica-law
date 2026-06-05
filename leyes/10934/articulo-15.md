@@ -1,0 +1,4 @@
+CAPÍTULO II
+SECCIÓN I
+LA TARIFA, PAGO Y EXONERACIÓN DEL IMPUESTO
+ARTÍCULO 15- Con excepción de lo señalado en el artículo 16 de esta ley en cuanto al régimen de tributación simplificada, se establecen como factores determinantes de la imposición, los ingresos brutos, o las ventas brutas anuales que perciban las personas físicas o jurídicas sujetas del impuesto durante el período f iscal anterior al año que se grava. Se entiende por ingresos brutos, o ventas brutas, a los ingresos totales, percibidos o devengados y de cualquier naturaleza, que perciba la persona patentada durante un período f iscal una vez deducido el impuesto que establece la Ley de Impuesto al Valor Agregado (IVA), n.° 6826, y otros ingresos que de manera obligatoria se deban recaudar para el Estado. Para el caso de establecimientos financieros y de correduría de bienes muebles e inmuebles se considerarán ingresos brutos los percibidos por concepto de intereses y comisiones.

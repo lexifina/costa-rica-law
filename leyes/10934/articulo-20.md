@@ -1,0 +1,1 @@
+ARTÍCULO 20- Responderán por las obligaciones tributarias los deudores solidarios, respecto de las cuales se verifique un mismo hecho generador de la obligación tributaria, siendo los efectos de esta solidaridad los que se definen en el Código de Normas y Procedimientos Tributarios.
