@@ -1,0 +1,1 @@
+Artículo 40.-De los recursos contra el acto final. Contra el acto final dictado en un procedimiento administrativo cabrán los recursos ordinarios establecidos en la Ley General de la Administración Pública, de conformidad con los numerales 343, 345 y 346 de dicho cuerpo normativo.

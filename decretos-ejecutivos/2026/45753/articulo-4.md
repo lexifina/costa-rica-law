@@ -1,0 +1,6 @@
+CAPÍTULO II
+ENTIDADES SUSCEPTIBLES DE TRANSFERENCIAS
+Sección I
+Entidades públicas beneficiarias y organismos internacionales
+Artículo 4.-Transferencias a entidades públicas beneficiarias y organismos internacionales. Cuando por ley se disponga la transferencia de recursos a una entidad pública, creada por ley especial o cualquier otra entidad nacional e internacional, la UPE donde se encuentra asignada la transferencia y el Departamento Financiero del MTSS únicamente realizarán los procesos de índole presupuestario que correspondan para la transferencia oportuna de los mismos. Respecto a dichas transferencias no aplican los requisitos exigidos en este reglamento, lo cual no le exime de la presentación de los informes financieros que se exijan a los entes públicos respecto a la· ejecución y liquidación presupuestaria.
+Queda bajo la responsabilidad de la respectiva entidad que reciba los fondos, ejercer el control interno sobre ellos que asegure el debido uso, control y disposición de esos recursos, así como la presentación de los informes de liquidación ante la Contraloría General de la República. La fiscalización de los fondos le corresponderá a la Auditoría Interna de la entidad beneficiaria o a la Contraloría General de la República en uso de sus facultades.

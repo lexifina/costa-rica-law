@@ -1,0 +1,3 @@
+Sección II
+DE LAS RESPONSABILIDADES DE LA UPE DEL MTSS
+Artículo 31. - Jefaturas de las UPE. Son las personas responsables de los resultados de su gestión física y financiera, con la consecuente responsabilidad de formular, accionar y dar seguimiento al programa financiero de ejecución presupuestaria, conforme lo dispuesto en los artículos números 18 y 11 O incisos j) y o) de la Ley Nº 8131, Ley de Administración Financiera de la República y Presupuestos Públicos. Corresponde a las UPE observar que, a través de la programación financiera de la ejecución presupuestaria, se orienten y atiendan los distintos requerimientos para el oportuno giro de recursos con cargo al presupuesto de la República.

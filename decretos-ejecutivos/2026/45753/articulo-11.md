@@ -1,0 +1,1 @@
+Artículo 11. - Sesiones de la comisión. La Comisión realizará una primera sesión en la que deberá establecer un calendario de sesiones ordinarias, sin detrimento que en caso de ser necesario podrán convocar a sesiones extraordinarias.

@@ -1,0 +1,1 @@
+Artículo 27.-De la prohibición de influencias. A las personas cubiertas por el régimen de prohibiciones se les prohíbe intervelúr, directa o indirectamente, ante las personas funcionarias responsables de las etapas del procedimiento de transferencias, en la asignación, giro, ejecución y fiscalización del convenio, en favor propio o de terceros.

@@ -1,0 +1,3 @@
+Artículo 22. - De la obligación de mantener adecuados controles sobre los bienes y servicios. Las entidades beneficiarias estarán en la obligación de mantener adecuados controles de inventario permanente sobre el equipo, mobiliario, activos, así como los servicios profesionales o de mano de obra contratada, materiales y suministros adquiridos con fondos transferidos por el MTSS.
+El control deberá incluir los siguientes detalles: fecha de adquisición, monto, ubicación, responsable, uso, registro, depreciación, desuso, denuncias judiciales en caso de robo o sustracción entre otros posibles delitos.
+Los bienes adquiridos deben ser identificados con una placa colocada en un lugar visible, que indique que fueron adquiridos con fondos provenientes del MTSS.

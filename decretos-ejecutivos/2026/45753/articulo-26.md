@@ -1,0 +1,3 @@
+CAPÍTULO IX
+ALCANCES DE PROHIBICIÓN
+Artículo 26. - De las personas representantes de entidades que se encuentran prohibidas para participar como beneficiarios de las transferencias de recursos públicos. En los procedimientos de suscripción de convenios que promuevan las personas representantes de entidades beneficiarias sometidos al presente reglamento, tendrán prohibido participar como beneficiarios de los recursos transferidos por los programas presupuestarios de esta cartera ministerial contemplados por el presupuesto nacional, las personas a quienes alcance el artículo 22 bis de la Ley contra la Corrupción y el Emiquecimiento Ilícito en la Función Pública, Nº 8422 del 06 de octubre del 2004.

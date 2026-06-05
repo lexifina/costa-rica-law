@@ -1,0 +1,2 @@
+Artículo 7.-De los recursos a transferir. Los recursos que se otorguen serán aquellos que se encuentren autorizados en la respectiva Ley de Presupuesto Ordinario y Extraordinario de la República. Las entidades beneficiarias que requieran la transferencia estarán sujetas al estudio de idoneidad previo, para el aval de las solicitudes iniciales que hayan formulado en tiempo y forma, para financiar sus proyectos o programas.
+Para tal efecto deberán suscribir un convenio anual con el MTSS, como requisito previo e indispensable para la emisión de la orden de giro de recursos.

@@ -1,0 +1,3 @@
+Sección II
+Entidades beneficiarias
+Artículo S.-Transferencias a entidades beneficiarias de derecho privado. Las transferencias de recursos corrientes a favor de entidades de derecho privado o creadas por ley especial, deberán estar incluidas y autorizadas en la Ley de Presupuesto Ordinario y Extraordinario de la República. Para ello se requiere que estén legalmente constituidas y registradas en el registro respectivo, que tengan al menos un año de fundadas, que hayan acreditado haber ejecutado al menos un proyecto relacionado con los fines de su constitución, que demuestren tener la organización apta para manejar fondos públicos y que cumplan con los requisitos establecidos en el presente reglamento.

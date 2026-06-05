@@ -1,0 +1,1 @@
+Artículo 42.-Derogatoria. Deróguese el anterior Decreto Ejecutivo Nº 36559-MTSS, del 15 de abril de 2011, denominado Reglamento para la regulación de las transferencias canalizadas por el Ministerio de Trabajo y Seguridad Social.

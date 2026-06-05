@@ -1,0 +1,1 @@
+Artículo 28. - Efectos del incumplimiento. La violación del régimen de prohibiciones establecido en este capítulo, originará la nulidad absoluta del acto de transferencia de recursos públicos o de la suscripción del convenio de transferencia y podrá acarrear a la parte infractora las sanciones previstas en este reglamento.
