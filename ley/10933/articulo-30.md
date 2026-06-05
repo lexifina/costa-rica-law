@@ -1,0 +1,8 @@
+CAPÍTULO VIII
+Intereses, Multas y Medidas Coercitivas
+ARTÍCULO 30- Intereses corrientes y multas a cargo del sujeto pasivo
+Sin necesidad de actuación alguna de la Administración Tributaria Municipal, el pago efectuado fuera de término produce la obligación de pagar un interés corriente, más la multa que en esta ley se haya establecido junto con el tributo adeudado.
+Mediante resolución, la Administración Tributaria Municipal fijará la tasa del interés, la cual deberá ser equivalente al promedio simple de las tasas activas de los bancos estatales para créditos del sector comercial y, en ningún caso, podrá exceder en más de diez puntos de la tasa básica pasiva f ijada por el Banco Central de Costa Rica. Dicha resolución deberá hacerse, por lo menos, cada seis meses.
+Los intereses corrientes y las multas deberán calcularse tomando como referencia las tasas vigentes desde el momento en que debió cancelarse el tributo hasta su pago efectivo. No procederá condonar l pago de estos intereses corrientes y multas, excepto cuando se demuestre error de la administración. La multa será equivalente al interés corriente.
+En caso de que no se cumpla con la cancelación de dicho impuesto en los meses de enero, abril, julio, octubre definidos, la Municipalidad de Talamanca estará obligada a cobrar el recargo por concepto de intereses, que correrán a partir del primer día de hábil siguiente al vencimiento de cada trimestre.
+La Municipalidad de Talamanca, previa aprobación del Concejo Municipal, podrá otorgar descuentos por el pago adelantado anual del impuesto, siempre que sea cancelado durante el mes de enero de cada año gravado. Este debe ser hasta en un porcentaje equivalente o menor a la tasa básica pasiva del Banco Central en el momento del pago.

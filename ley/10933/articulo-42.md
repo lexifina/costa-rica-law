@@ -1,0 +1,5 @@
+CAPÍTULO XII
+Suspensión de Licencia y Protección Ambiental
+ARTÍCULO 42- Suspensión de licencia
+La licencia para el desarrollo de una actividad económica que haya sido otorgada por la Municipalidad de Talamanca se podrá suspender cuando el pago del impuesto se encuentre atrasado por dos trimestres; es decir, si vencidos dos trimestres no se ha realizado el pago del impuesto se deberá aplicar la sanción prevista en este artículo, la cual se ejecutará mediante la suspensión de la licencia, lo que implica la clausura de la actividad económica que se realice. Previo a la aplicación de este artículo, se deberá prevenir al contribuyente, en su local comercial, de la omisión y se le concederá un plazo de cinco días hábiles para su cancelación. Mientras la licencia se encuentre suspendida no se deberá cobrar el recargo de intereses moratorias durante los días de suspensión, mencionados en el artículo 13 de esta ley.
+De igual manera, el contribuyente de un establecimiento que con licencia suspendida continúe desarrollando la actividad se hará acreedor a la imposición de una multa hasta de diez salarios base, conforme lo dispuesto en la Ley 7337, del 5 de mayo de 1993.

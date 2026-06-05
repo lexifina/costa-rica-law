@@ -1,0 +1,4 @@
+ARTÍCULO 17- Determinación del impuesto anual al inicio de actividades
+Aquellas empresas o sujetos pasivos recientemente establecidos a los que no se les pueda aplicar el procedimiento señalado en los artículos 5 y 6, pagarán el impuesto de patentes como se detalla a continuación:
+Aquellas empresas establecidas en el mercado, ya sea en otros países o en los cantones de Costa Rica, que deseen iniciar en Talamanca su actividad, deberán adjuntar las proyecciones y los estudios para establecerse en el mercado, que ayuden a determinar el impuesto correspondiente.
+Para cualquier empresa clasificada según el CIIU (Clasificación Internacional Uniforme de todas las Actividades Económicas) vigente, se faculta a la Municipalidad de Talamanca para que aplique, de acuerdo con el artículo 6 de esta ley, la actividad económica; asimismo, se tomarán los siguientes factores de zonificación dentro del cantón, según se detallan en el artículo siguiente.
