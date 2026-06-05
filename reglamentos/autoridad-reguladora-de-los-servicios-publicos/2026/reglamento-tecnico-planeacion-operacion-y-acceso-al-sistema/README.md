@@ -14,3 +14,4 @@ Reglamento Técnico Planeación, Operación y Acceso, al Sistema Eléctrico Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-06-05 | la propia norma |
+| 2 | 2026-06-05 | Resolución 44 (2026-05-20) |
