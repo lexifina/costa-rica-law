@@ -1,0 +1,2 @@
+ARTÍCULO 17- Notificación del traslado de cargos
+La determinación de oficio o la recalificación de la obligación tributaria efectuada por la Municipalidad deberán ser notificadas a la persona contribuyente, por medio del Departamento de Licencias Comerciales; para ello, se aplicará lo señalado en el artículo 137 de la Ley 4755, Código de Normas y Procedimientos Tributarios, del 3 de mayo de 1971 y el artículo 19 de la Ley 8687, Ley de Notificaciones Judiciales, del 4 de diciembre del 2008.

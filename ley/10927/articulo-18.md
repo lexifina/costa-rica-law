@@ -1,0 +1,3 @@
+ARTÍCULO 18- Recursos
+Dentro de los cinco días hábiles siguientes a la notificación del auto inicial, la persona contribuyente o el responsable podrá interponer los recursos ordinarios de acuerdo con los ordinales 345 y 346 de la Ley 6227, Ley General de la Administración Pública, del 2 de mayo de 1978.
+Una vez dictado el acto final cabrá recursos de revocatoria ante la unidad que emitió la notificación y apelación ante la persona responsable de la Alcaldía, indicando las normas legales en que motive su reclamo, estableciendo las defensas y ofreciendo las pruebas que considere necesarias, según lo señalado en el artículo 171 de la Ley 7794, Código Municipal, del 30 de abril de 1998.
