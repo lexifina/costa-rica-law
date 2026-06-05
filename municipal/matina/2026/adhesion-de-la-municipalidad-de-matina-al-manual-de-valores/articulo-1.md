@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE MATINA
+COMUNICA:
+De conformidad con lo dispuesto en los artículos 3 y 12 de la Ley de Impuesto sobre Bienes Inmuebles N° 7509 y sus reformas, con la sentencia N° 1073-2010 de la Sección III del Tribunal Contencioso Administrativo y con el voto de la Sala Constitucional N° 2011-003075, así como según la resolución administrativa N° RAM-WCS-021-2026,
+El alcalde de la Municipalidad de Matina acuerda adherirse a la publicación del “Manual de Valores Base Unitarios por Tipología Constructiva 2023”, publicado en el Alcance Digital N° 187 a La Gaceta N° 178 del 28 de setiembre de 2023, emitido por el Órgano de Normalización Técnica del Ministerio de Hacienda, para su aplicación en los procesos de valoración de bienes inmuebles dentro del cantón de Matina, de conformidad con la normativa vigente.
+La presente adhesión se realiza con el fin de implementar las herramientas oficiales de valoración establecidas por el Órgano de Normalización Técnica, en cumplimiento de las disposiciones legales aplicables en materia de valoración de construcciones.
