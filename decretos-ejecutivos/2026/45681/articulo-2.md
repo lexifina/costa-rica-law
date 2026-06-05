@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo N° 45356-H del 09 de diciembre de 2025, publicado en el Alcance número 164 a La Gaceta número 239 del 19 de diciembre de 2025, a partir de la vigencia del presente decreto.
