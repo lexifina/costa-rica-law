@@ -2,107 +2,141 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 Aviso 2023-002.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del documento: ECA-MC-C10 Criterios para la evaluación y acreditación de la Norma INTE ISO IEC 1702917025:2017, pasa de versión 09 a versión 10, ECA-MC-P19 Establecimiento de esquemas de acreditación, pasa de versión 05 a versión 06. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no controlada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
 San José, 04 de abril del 2023
 (Nota de Sinalevi: La presente norma se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen] [imagen]
-[imagen] TABLA DE CONTENIDO
-1 OBJETIVO................................................................................................... 1
-2 ALCANCE.................................................................................................... 1
-3 DEFINICIONES............................................................................................ 1
-4 SOLICITUD DE AMPLIACIÓN DE PROGRAMAS DE ACREDITACIÓN.......... 2
-5 ANÁLISIS PARA EL DESARROLLO O AMPLIACIÓN DE ACTIVIDADES DE ACREDITACIÓN............................................................................................... 5
-6 AMPLIACIONES DE PROGRAMAS DE ACREDITACION NIVEL 3.................. 5
-7 AMPLIACIONES DE PROGRAMAS DE ACREDITACION NIVEL 5.................. 6
-8 IDENTIFICACIÓN DE CAMBIOS................................................................... 7
-1 OBJETIVO
-Establecer los requisitos y criterios, para el desarrollo o adopción de esquemas de acreditación por parte del Ente Costarricense de Acreditación.
-2 ALCANCE
-[imagen] Este procedimiento debe ser aplicado por el personal del ECA, órganos colegiados, grupos de trabajo, cuerpo de evaluadores y expertos técnicos, cuando se requiera ampliar las actividades de acreditación, ya sea para cumplir una ley, un decreto, por petición de una parte interesada u OEC o por interés propio del ECA.
-3 DEFINICIONES
-- Cuerpo de evaluadores y expertos técnicos: personas que han cumplido con el procedimiento de convocatoria, selección, evaluación, calificación e integración del Cuerpo de evaluadores y expertos técnicos, establecido por el ECA.
-- Dueño del esquema de evaluación de la conformidad: Organización identificable que ha establecido y es responsable del diseño de un esquema de evaluación de la conformidad. Ejemplos de dueños de esquema: Entes de normalización, OEC, Organizaciones que utilizan los servicios provistos por OEC, asociaciones de fabricantes, reguladores.
-- Esquema de evaluación de la conformidad: programa de evaluación de la conformidad conjunto de reglas y procedimientos que describe los objetos de evaluación de la conformidad, identifica los requisitos especificados y proporciona la metodología para llevar a cabo la evaluación de la conformidad.
-Nota 1 a la entrada: Un esquema de evaluación de la conformidad puede gestionarse dentro de un sistema de evaluación de la conformidad (4.8).
+(Nota de Sinalevi: El presene procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 103 del 5 de junio del 2026, donde se actualiza la versión 07 y se publica la versión 07 actual)
+[imagen] |
+ESTABLECIMIENTO DE NUEVOS SERVICIOS | Código N? : ECA-MC-P19 | Páginas: 1 de 9
+Fecha de entrada en vigencia: 2026.04.07 | Versión: 07
+1 OBJETIVO......................................................................................................................................... 1
+2 ALCANCE.......................................................................................................................................... 1
+3 DEFINICIONES.................................................................................................................................. 1
+4 ESTRUCTURA DE ESQUEMAS DE ACREDITACIÓN.......................................................................... 2
+5 PROCESO DE APERTURA O AMPLIACIÓN DE NUEVOS SERVICIOS................................................ 3
+6 SEGUIMIENTO DEL DESEMPEÑO DEL ESQUEMA........................................................................... 7
+7 AMPLIACIÓN DE ACTIVIDADES EN LOS FOROS INTERNACIONALES.............................................. 7
+8 CAMBIOS EN EL TIPO DE EVALUACIÓN DE LA CONFORMIDAD O ESQUEMA DE ............................
+ACREDITACIÓN.................................................................................................................................... 8
+9 INTERRUPCIÓN DE LA PRESTACIÓN DEL SERVICIO DE ALGÚN ESQUEMA DE ..............................
+ACREDITACIÓN.................................................................................................................................... 8
+10 IDENTIFICACIÓN DE CAMBIOS........................................................................................................ 9
+1. OBJETIVO
+Establecer los requisitos y criterios, para el desarrollo y establecimiento de nuevos servicios por parte del Ente Costarricense de Acreditación.
+2. ALCANCE
+Este procedimiento debe ser aplicado por el personal del ECA, órganos colegiados, grupos de trabajo, cuerpo de evaluadores y expertos técnicos, cuando se requiera establecer nuevos servicios y ampliar las actividades de acreditación, ya sea para cumplir una ley, un decreto, por petición de una parte interesada u OEC o por interés propio del ECA.
+3. DEFINICIONES
+- Dueño del esquema de evaluación de la conformidad: persona u organización responsable del desarrollo y del mantenimiento de un esquema de evaluación de la conformidad.
+Nota 1 a la entrada: El dueño de un esquema no opera necesariamente el esquema de evaluación de la conformidad.
+Nota 2 a la entrada: El dueño de esquema puede ser un OEC, una autoridad gubernamental incluidos reguladores y otros organismos gubernamentales, una asociación comercial, un grupo de organismos de
+evaluación de la conformidad, un ente de normalización, organizaciones que utilizan los servicios provistos por los OEC, organizaciones que compran o venden productos sujetos a actividades de evaluación de la conformidad; fabricantes y sus asociaciones que han establecido su propio esquema; organizaciones creadas específicamente para ese propósito u otros.
+- Esquema de evaluación de la conformidad / programa de evaluación de la conformidad: conjunto de reglas y procedimientos que describe los objetos de evaluación de la conformidad, identifica los requisitos especificados y proporciona la metodología para llevar a cabo la evaluación de la conformidad.
+Nota 1 a la entrada: Un esquema de evaluación de la conformidad puede gestionarse dentro de un sistema de evaluación de la conformidad.
 Nota 2 a la entrada: Un esquema de evaluación de la conformidad puede operar a nivel internacional, regional, nacional, subnacional, o a nivel del sector industrial.
 Nota 3 a la entrada: Un esquema puede cubrir la totalidad o una parte de las funciones de evaluación de la conformidad.
-Nota 4: Definición tomada de la norma INTE/ISO 17000: 2020
 - Esquemas de acreditación reglas y procesos relativos a la acreditación de organismos de evaluación de la conformidad para los que aplican los mismos requisitos
-Nota 1 a la entrada: Los requisitos del esquema de acreditación incluyen, pero no se limitan a, las Normas INTE/ISO/IEC 17020, INTE/ISO/IEC 17021, INTE/ISO/IEC 17025, INTE/ISO/IEC 17024, ISO 17034, INTE/ISO/IEC 17043, INTE/ISO/IEC 17065, INTE/ISO
-15189 e ISO 17029
-Nota: Definición tomada de la norma ISO 17011: 2017
-4 PREVIO A LA APERTURA DE ESQUEMAS DE ACREDITACIÓN
-4.1 Las solicitudes de apertura de nuevos esquemas pueden recibirse por medio de las Secretarías de Acreditación o del Departamento de Gestión de la Innovación. En ambos casos se debe determinar si lo solicitado corresponde a una ampliación de alcance de acreditación o un nuevo esquema de acreditación. Para el caso de las ampliaciones de alcance la idoneidad del esquema se documenta según lo indicado en el procedimiento ECA-MP-P04 Solicitud de acreditación y análisis de recursos.
-4.2 Las ampliaciones de alcance de acreditación son responsabilidad de las secretarías de acreditación respectiva y la ampliación de nuevos esquemas es responsabilidad del Departamento de Gestión de la Innovación.
-4.3 La solicitud de un nuevo esquema se puede realizar por parte de un regulador, por designación de una ley o decreto, por solicitud de parte del personal del ECA, u órgano colegiado, o las partes interesadas que lo requieran.
-4.4 Antes de realizar la apertura de un nuevo esquema, el ECA debe valorar la viabilidad del lanzamiento del esquema considerando lo siguiente:
-4.4.1 Gestión de la Innovación debe realizar un estudio de factibilidad económica para la apertura del esquema e informará a la secretaría de acreditación respectiva;
-4.4.2 Gestión de la Innovación realiza un estudio de la idoneidad del esquema de evaluación de la conformidad, para lo cual se analizarán las normas, reglamentos, esquemas para determinar si es un esquema acreditable;
-4.4.3 Se debe presentar una solicitud formal en formato libre que demuestre interés de al menos un cliente o entidad pública, la cual debe ser canalizada a través del Departamento de Gestión de la Innovación. La solicitud debe indicar lo siguiente:
-a. Descripción del Programa a desarrollar o esquema de evaluación de la conformidad.
-b. Norma o Guía Internacional que le aplica.
-c. Exposición de Motivos de la solicitud resaltando beneficio para el país y para el ECA
-d. Mercado Potencial, de ser posible, o al menos una identificación de potenciales clientes.
-4.4.4 En el caso que la apertura corresponda a una entidad privada se debe realizar un convenio legalmente ejecutable entre las partes, para lo cual el Departamento legal del ECA debe conformarlo a solicitud de gestión de la innovación.
-4.4.5 Se debe elaborar un oficio donde se indique el monto a cancelar por concepto de la apertura del esquema habiendo realizado los puntos anteriores. Para estimar el monto correspondiente a la apertura del esquema, Gestión de la Innovación debe hacer un estudio del tiempo que considera se debe invertir para la apertura. Este punto no aplica para entidades públicas.
-4.4.6 En el caso que la apertura del esquema sea un requisito país por medio de un reglamento, un esquema propio de una entidad pública o parte de un proyecto internacional financiado, no aplica un convenio legalmente ejecutable.
-4.4.7 ECA brindará un cronograma de actividades al cliente, considerando lo establecido en el apartado 7.1.3 de este procedimiento, para que este lo apruebe, junto con el monto a cancelar, cuando aplique
-4.4.8 Gestión de la Innovación presentará a la gerencia la propuesta de la viabilidad del esquema para aprobación o rechazo.
-4.4.9 Una vez aprobado el esquema por parte de la Gerencia, la secretaría de acreditación respectiva debe indicar a gestión de la innovación, el nombre de la persona profesional que estará apoyando en el cumplimiento operativo de la apertura.
-5 AMPLIACIÓN DE ESQUEMAS DE ACREDITACIÓN
-5.1 La estructura de los esquemas de acreditación que opera el ECA cuenta con cinco niveles que se describen a continuación:
-· Nivel 1: Comprende los requisitos establecidos en la norma INTE-ISO/IEC 17011 y cualquier aplicación adicional definida para un esquema de acreditación que debe cumplir el ECA.
-· Nivel 2: Define de forma general las actividades de acreditación que respaldan las normas del nivel 3
-· Nivel 3: Comprende los documentos normativos respaldados por foros internacionales normativos utilizados por el ECA para evaluar a los organismos de evaluación de la conformidad en cada actividad del nivel 2.
-· Nivel 4: Comprende los documentos normativos específicos del sector, que definen las aplicaciones internacionalmente reconocidas de los documentos normativos genéricos listados en el nivel 3. Estas aplicaciones son utilizadas por el ECA, en combinación con los documentos normativos del nivel 3, para evaluar la competencia de los OEC en el sector relevante.
-· Nivel 5: Documentos normativos de la evaluación de la conformidad respaldada por foros internacionales que son utilizados por los OEC acreditados.
-5.2 Actualmente los esquemas de acreditación que opera el ECA se describen en los cuadros 1 y 2.
-[imagen] Cuadro 1: Estructura de los esquemas de acreditación esquemas de acreditación esquemas de acreditación que opera el ECA para los niveles 1 al 3.
-Nivel 1 | | | | | | ISO/ IEC 17011 | | |
-Nivel 2 | En | sayo | | Calibración | Inspección | Certificación Certificación de Producto de sistemas de gestión | Certificación de Personas | Validación /Verificación de gases de efecto invernadero
-Nivel 3 | ISO/IEC 17025 | ISO 15189 | ISO 17043 | ISO/IEC 17025 | ISO/IEC 17020 | ISO/IEC 17065 | ISO/IEC 17021 | ISO/IEC 17024 | ISO 17029
-[imagen] [imagen] [imagen] Cuadro 2: Ejemplo de estructura de los esquemas de acreditación esquemas de acreditación que podría operar el ECA para los niveles 3 al 5.
-Nivel 3 | ISO/IEC 17025 Ensayos | ISO 15189 | ISO/IEC 17025 calibración | ISO 17043 | ISO/IEC 17020 | ISO/IEC 17065 | ISO/IEC 17021 | ISO/17029
-Nivel 4 | WADA | ISO 22870 | ISO 15195 | | | GLOBAL G.A.P. Integrated Farm Assurance General Regulations | Otros por definir | FSMS ISO 22003 | ISO/IEC TS 17021-3 | ISO/IEC TS 17021-2 | ISO 14066 ISO 14064-3 14065
-| | | | | | | | | | |
-Nivel 5 | | | GLOBAL | Otros | ISO | ISO 9001 | ISO 14001 | ISO
-G.A.P. IFA | por | 14064-1
-Control Points and Compliance | definir | 22000 ISO/TS 22002- | ISO 14064-2 14067
-Criteria | 1 | CORSIA
-PPCN 2.0
-5.3 La ampliación de los esquemas de acreditación se puede dar de dos formas:
-· Ampliación de esquemas de acreditación a nivel 3.
-· Ampliación de esquemas de evaluación de la conformidad a nivel 5.
-6 ANÁLISIS PARA EL DESARROLLO O AMPLIACIÓN DE ESQUEMAS DE ACREDITACIÓN
-6.1 El análisis por parte del personal designado debe iniciar con la definición del nivel del esquema, a nivel 3 o nivel 5 de los esquemas de acreditación que opera el ECA. Si la ampliación es a nivel 3 se sigue lo establecido en el apartado 7 y si es una ampliación correspondiente a un nivel 5, se sigue lo establecido en el apartado 8. Para ambos casos se debe cumplir lo establecido en el documento mandatorio IAF MD 25 Criterios para la evaluación de esquemas de evaluación de la conformidad y dejar evidencia en el ECA-MC- P19-F01, en cumplimiento del requisito 4.6.3. de la norma INTE ISO IEC 17011:2017.
-6.2 El resultado del análisis debe presentarse a la Gerencia del ECA, para la aprobación del plan de trabajo.
-Una vez implementado el plan de trabajo, el resultado debe ser analizado por la Gerencia, quien aprueba o no el inicio del servicio en el nuevo programa de acreditación.
-7 AMPLIACIONES DE ESQUEMAS DE ACREDITACION NIVEL 3.
-7.1 El análisis para el nivel 3 debe comprender:
-7.1.1 Identificar el dueño del esquema
-7.1.2 Definir y justificar técnicamente, la norma contra la cual se evaluará la competencia técnica de los OEC. Es condición para la ampliación que exista un documento normativo, desarrollado y publicado internacionalmente para la acreditación de los OEC.
-7.1.3 Realizar un cronograma de actividades con lo siguiente:
-· Definición de requisitos de competencia y calificación de evaluadores expertos técnicos. Integrantes de Grupos de trabajo, órganos colegiados y personal del ECA responsable del nuevo esquema, cuando aplique.
-· Desarrollo de documentos de aplicación para los OEC o los evaluadores del ECA.
-· Desarrollo de formularios de solicitud y herramientas para la evaluación de los OEC.
-· Programa de capacitación para Grupos de trabajo, Órganos colegiados, y personal del ECA y de requerirse para evaluadores y expertos; este último programa debe ser definido en conjunto con la Gestoría de Calidad.
-· Calificación de evaluadores y expertos técnicos.
-· Presupuesto o financiamiento para atender el área de acreditación a ampliar.
-· Cuando sea necesario se deberá realizar un análisis costo beneficio
-· Cuando sea necesario analizar la creación de un grupo de trabajo técnico que analice el esquema, esto es aplicable cuando el esquema es nacional.
-8 AMPLIACIONES DE ESQUEMAS DE ACREDITACION HASTA NIVEL 5
-8.1 Si la ampliación es para incorporar un nuevo nivel 5 o esquema de evaluación de la conformidad, que no esté cubierto por los esquemas ya existentes o cuando el dueño del esquema haya establecido reglas adicionales a las que el ECA opera, se debe considerar lo siguiente:
-8.1.1 Cumplir lo establecido en el requisito 7 de este documento.
-8.1.2 Los esquemas de evaluación de la conformidad en el campo voluntario, no deben contradecir los requisitos legales aplicables a los objetos de evaluación de la conformidad.
-9 SOCIALIZACIÓN DEL ESQUEMA CON PARTES INTERESADAS
-9.1.1 Se debe definir un programa de trabajo que comprenda las actividades anteriores. Una vez implementadas todas las actividades, se debe socializar el esquema con las partes interesadas identificadas.
-9.1.2 Una vez socializado, se realiza el lanzamiento oficial del esquema en redes sociales y se puede iniciar la recepción de solicitudes de acreditación.
-9.1.3 En caso que ECA decida ampliar el MLA en el esquema que está solicitando debe seguir debe considerar lo que establezca el dueño del esquema y lo indicado por IAAC. En caso de IAF considerar lo establecido en el PL 3.
-10 INTERRUPCIÓN DE LA PRESTACIÓN DEL SERVICIO DE ALGÚN ESQUEMA DE ACREDITACIÓN
-10.1 En el caso que ECA deje de brindar el servicio de algún esquema de acreditación en forma parcial o total debe considerar lo siguiente:
-a) antes de la interrupción del servicio debe considerar la opinión de las partes interesadas;
-b) los deberes contractuales;
-c) los acuerdos de transición;
-d) realizar un comunicado en las redes sociales y en la página web sobre el cese de este servicio.
-e) modificar la documentación de ECA donde se haga referencia a este servicio que se interrumpe.
-11 IDENTIFICACIÓN DE CAMBIOS
-Motivo: | Modificación de Documento.
-Refiérase a la solicitud de elaboración o modificación del documento número 2023-009.
-Revisar lo subrayado: · Se modifica el apartado 4 mejorando el flujo del proceso. Se adecúa apartado 5, 6 y 7. · Se agrega referencia al documento mandatorio de IAF MC 25 Criterios para la evaluación de esquemas de evaluación de la conformidad. · Se incluye la referencia del departamento de Gestión de la Innovación.
+Nota 1 a la entrada: Los requisitos del esquema de acreditación incluyen, pero no se limitan a, las Normas
+INTE/ISO/IEC 17020, INTE/ISO/IEC 17021, INTE/ISO/IEC 17025, INTE/ISO/IEC 17024, ISO 17034, INTE/ISO/IEC 17043, INTE/ISO/IEC 17065, INTE/ISO 15189 e ISO 17029
+Nota 2 a la entrada: Definición tomada de la norma ISO 17011: 2017
+-Nuevos servicios: Nuevos esquemas de acreditación o esquemas, programas de evaluación de la conformidad que se operen como parte de los servicios de acreditación, o bien otros nuevos servicios o líneas de negocio que se operen por el Ente Costarricense de Acreditación, como capacitación, servicios de equivalencia u otros.
+4. ESTRUCTURA DE ESQUEMAS DE ACREDITACIÓN
+4.1 La estructura de los esquemas de acreditación que opera el ECA se basa en lo establecido por los documentos IAF PL 3:2023 e ILAC-R6:11/2023. En el anexo 1 se detalla la estructura del MLA de IAF y en el Anexo 2 se detalla la estructura del MRA de ILAC.
+4.2 Existen 5 niveles en la estructura del MLA/MRA de IAF/ILAC, según se detalla a continuación:
+Nivel 2 | Alcance principal IAF MLA | Actividades de acreditación en las que el OA ha demostrado su competencia para realizar la acreditación, según lo especificado por los documentos normativos de acreditación genéricos aprobados por IAF o ILAC, enumerados en el Nivel 3.
+Nivel 3 | Documento normativo de acreditación genérico, avalado por IAF o ILAC, utilizado
+| | por el OA para evaluar al Organismo de Evaluación de la Conformidad (OEC) en cada actividad de acreditación de Nivel 2.
+Nivel 4 | Sub Alcance IAF MLA | Documentos normativos sectoriales específicos avalados por IAF o ILAC, que especifican las aplicaciones reconocidas internacionalmente del documento normativo de acreditación genérico de Nivel 3. El OA utiliza estos documentos en combinación con el documento normativo genérico de Nivel 3 para evaluar la competencia del OEC en el sector pertinente.
+Nivel 5 | Para el caso de IAF es el documento normativo de evaluación de la conformidad, avalado por IAF y utilizado por los OEC acreditados. Para el caso de ILAC es el alcance de acreditación utilizado por los OEC acreditados.
+Nota 1: En este caso los sectores IAF están fuera de los niveles.
+Nota 2. IAF tiene documentos adicionales a tomar en cuenta llamados MD (de carácter obligatorio) y otros ID (De carácter informativo, pueden tomarse en cuenta para ser incorporados en el nuevo esquema)
+4.3 Para obtener información actualizada sobre los servicios del ECA, se sugiere visitar su sitio web oficial https://eca.or.cr/acreditacion/ o consultar a ECA.
+4.4 La apertura de nuevos servicios se puede dar en los siguientes niveles: ? Esquemas de acreditación a nivel 3.
+? Esquemas de evaluación de la conformidad a nivel 5 (esto puede implicar requisitos adicionales en nivel 3, 4 y 5).
+? Otros casos que se consideren pertinentes.
+5. PROCESO DE APERTURA O AMPLIACIÓN DE NUEVOS SERVICIOS
+5.1 SOLICITUD DE APERTURA
+5.1.1 Las solicitudes de servicios pueden recibirse de cualquier parte interesada o dueño de esquema. La Secretaría de Acreditación (SA) puede requerir que el solicitante complete el ECA-MC-P19-F03 Solicitud de nuevos servicios de acreditación, cuando considere que requiere mayor información sobre el servicio solicitado.
+Nota: la necesidad de un nuevo servicio puede plantearse por; un regulador, designación de una ley o decreto, solicitud de parte del personal del ECA, órgano colegiado o solicitud de un OEC.
+5.1.2 Cuando la solicitud corresponda a un nuevo programa o esquema, sector o subsector de un esquema de acreditación o evaluación de conformidad que ya es brindado por ECA, es responsabilidad de la SA respectiva y se aplica únicamente el apartado 5.2 de Idoneidad del esquema de este documento o bien completar el formulario ECA-MP-P04-F02, así como se indica en el procedimiento ECA-MP-P04.
+5.1.3 Es responsabilidad de quien recibe la solicitud, coordinar las actividades pertinentes a la apertura de nuevos servicios de acreditación con Gestión de la Innovación en caso de que sea requerido.
+5.1.4 Una vez confirmada la recepción de la solicitud (ECA-MC-P19-F00) vía correo, el responsable debe completar el análisis preliminar en el formato ECA-MCP19-F01 Apertura de nuevos servicios, con la información aportada en la solicitud. Esto en un plazo no mayor a 10 días hábiles una vez recibida la solicitud.
+5.1.5 Producto del análisis preliminar se determinarán acciones a seguir para la apertura del servicio, partiendo de la obligatoriedad, importancia país y nivel de precisión del servicio solicitado. Esto puede implicar el no seguimiento con las etapas subsecuentes de este procedimiento.
+5.1.6 La decisión debe ser comunicada al solicitante, justificando las razones de la misma.
+5.1.7 Cada SA debe llevar el registro de los nuevos servicios de acreditación solicitados y su estatus en sus controles de trabajo u otros documentos según considere pertinente.
+5.2 IDONEIDAD DEL ESQUEMA
+5.2.1 Una vez que se posee la decisión producto del análisis preliminar de proceder con la apertura de un nuevo servicio se debe realizar la idoneidad del esquema.
+5.2.2 La idoneidad del esquema tiene el objetivo de cumplir lo establecido en el requisito 4.6.3. de la norma INTE ISO IEC 17011 vigente y en el documento mandatorio IAF MD 25 Criterios para la evaluación de esquemas de evaluación de la conformidad en los casos aplicables.
+5.2.3 Es responsabilidad de la Secretaría de Acreditación correspondiente realizar la idoneidad del esquema, utilizando el formato ECA-MC-P19-F01 o bien el ECAMP-P04-F02. En caso de que algunos aspectos no sean aplicables se debe indicar así en el formato.
+5.2.4 La Secretaría de Acreditación puede conformar un grupo técnico para el desarrollo de la idoneidad del esquema, en el que pueden incluir otras partes interesadas que aporten criterios importantes para las conclusiones requeridas.
+5.2.5 Si la conclusión de la idoneidad del esquema es que este no es idóneo y por consecuente no es posible brindar el servicio, no se procede con las siguientes etapas de este procedimiento y se da la respuesta al solicitante indicando lo concluido.
+5.2.6 Se posee un periodo de 120 días hábiles una vez informado el solicitante sobre la decisión de la solicitud para completar la idoneidad del esquema.
+5.3 VIABILIDAD ECONÓMICA
+5.3.1 Este paso es aplicable cuando la apertura del esquema implique financiamiento ya sea para la apertura o el mantenimiento (por ejemplo, cuotas de afiliación o mantenimiento, reuniones presenciales, capacitaciones, entre otros).
+5.3.2 El Departamento de Gestión de la Innovación debe realizar un estudio de factibilidad económica para la apertura del esquema que considere al menos:
+. Disponibilidad y requerimiento de recursos.
+. Costos de capacitación para el cierre de brechas.
+. Tendencias del mercado y las necesidades de los clientes.
+. Potenciales clientes.
+. Ingresos potenciales por capacitación.
+. Costos por actividades de difusión.
+. Presupuesto o financiamiento para atender el área de acreditación a ampliar.
+. Posibles riesgos financieros y operativos asociados con la apertura del nuevo esquema.
+5.3.3 La viabilidad económica debe documentarse en el ECA-MC-P19-F01.
+5.3.4 Se posee un periodo de 20 días hábiles una vez informado el solicitante sobre la decisión de la solicitud para completar la viabilidad económica.
+5.4 PLAN DE APERTURA
+5.4.1 Esta etapa aplica para casos que requieran la viabilidad económica (paso 5.3 de este procedimiento).
+5.4.2 El Departamento de Gestión de la Innovación en conjunto con la Secretaría de Acreditación deben preparar un plan de apertura, con el fin de determinar un periodo viable en el que puede brindar el servicio. Este plan debe considerar al menos lo siguiente:
+. Registro de ejecución de las etapas anteriores.
+. Actividades de revisión con partes interesadas.
+. Actividades de capacitación o cierre de brechas.
+. Actividades de actualización de documentos y calificación de evaluadores.
+. Fechas de aprobación y evaluación del servicio.
+. Comunicación a partes interesadas.
+. Socialización del esquema.
+. Valoración del servicio de apertura.
+5.4.3 El plan de apertura se documentará en el ECA-MC-P19-F01.
+5.4.4 Se posee un periodo de 10 días hábiles una vez finalizada la idoneidad del esquema y económica para completar el plan de apertura.
+5.5 APROBACIÓN DE LA APERTURA DEL SERVICIO
+5.5.1 Esta etapa aplica para casos que requieran la viabilidad económica (paso 5.3 de este procedimiento).
+5.5.2 El departamento de Gestión de la Innovación presentará a la Gerencia la propuesta de la idoneidad del esquema y viabilidad económica del esquema para aprobación o rechazo de la apertura del nuevo servicio. La Gerencia decidirá si se requiere aprobación de la Junta Directiva.
+5.5.3 Una vez aprobada la apertura del servicio, y cuando el solicitante sea un dueño del esquema se debe realizar un convenio legalmente ejecutable entre las partes solicitantes y el ECA, con el fin de resguardar el compromiso de llevar a cabo la acreditación o bien las actividades requeridas para la apertura y mantenimiento del servicio, y en caso de ser aplicable los acuerdos de transición de la normativa a acreditar, para lo cual. Cuando el solicitante corresponda a un OEC, debe contar con el contrato de acreditación firmado y pago de la solicitud de servicio en conformidad con el procedimiento ECA-MP-P04.
+5.5.4 En caso de que la decisión sea negativa, se debe comunicar mediante oficio al solicitante indicando la justificación.
+5.6 IMPLEMENTACIÓN DEL PLAN DE APERTURA
+5.6.1 Esta etapa aplica para casos que requieran la viabilidad económica (paso 5.3 de este procedimiento).
+5.6.2 Una vez que se cuente con la aprobación de la Gerencia y solicitante, se debe proceder a la implementación del plan de apertura.
+5.6.3 Es responsabilidad de la Secretaría de Acreditación correspondiente, la ejecución de actividades de carácter técnico, en conformidad como se asigne en el plan de apertura.
+5.6.4 Es responsabilidad de Gestión de la Innovación dar seguimiento a la implementación oportuna del plan de apertura.
+5.6.5 Se deben documentar evidencias del proceso de apertura en la carpeta de apertura de cada esquema.
+5.6.6 Una vez finalizadas las actividades del plan es posible recibir solicitudes en el nuevo servicio.
+5.7 SOCIALIZACIÓN DEL ESQUEMA CON PARTES INTERESADAS
+5.7.1 Como parte de la idoneidad del esquema se determinan las necesidades de comunicación a las partes interesadas, las cuales deben identificarse en el plan de apertura en caso de ser aplicable.
+6. SEGUIMIENTO DEL DESEMPEÑO DEL ESQUEMA
+6.1 Esta etapa aplica para casos que requieran la viabilidad económica (paso 5.3 de este procedimiento).
+6.2 Se debe dar continuidad a la efectividad de la apertura del esquema durante el periodo de un año, una vez que se ha aperturado el mismo por parte del Departamento de Gestión de Innovación.
+6.3 En el seguimiento del desempeño, se debe considerar al menos:
+. Cantidad de OEC acreditados.
+. Satisfacción de los OEC con el servicio.
+. Cantidad de OEC retirados.
+. Cambios realizados al esquema desde su apertura.
+. Servicios asociados producto del nuevo esquema.
+6.4 El seguimiento del desempeño se documentará en el ECA-MC-P19-F01.
+7.AMPLIACIÓN DE ACTIVIDADES EN LOS FOROS INTERNACIONALES
+7.1 En caso de que ECA decida ampliar los acuerdos de Reconocimiento Multilateral (MRA/MLA) con los diferentes foros internacionales primero debe cumplir con los requisitos para la extensión del alcance del MLA de IAAC, establecidos en el IAAC MD 002. El requisito obligatorio para solicitar la extensión del alcance es tener como mínimo un OEC acreditado bajo el alcance o subalcance que solicita, de lo contrario no se acepta la solicitud.
+Nota. La estructura del MLA de IAAC está documentada en el procedimiento PR 025 e incluye 5 niveles.
+7.2 El responsable de la gestión de la información de IAAC, debe realizar la coordinación con el responsable de la SA aplicable, para que se complete el formato IAAC FM 001 Solicitud de un organismo de acreditación, para obtener el Acuerdo de Reconocimiento de IAAC.
+7.3 Para la extensión del reconocimiento de la acreditación de subalcances de certificación de sistemas de gestión, se debe presentar al secretariado de IAAC la autodeclaración en el formato IAF MLA MC 28 "MLA Declaration for sub-scope extensions (AB)".
+7.4 Cuando se decida ampliar los acuerdos de Reconocimiento Multilateral (MRA/MLA) con Foros Internacionales de Acreditación, el responsable de la gestión de la información de IAAC hace las consultas correspondientes a IAAC y les indica los requisitos a los responsables de la gestión de la información del foro de acreditación, según corresponda, con el fin de que el responsable del foro correspondiente realice las gestiones de la solicitud.
+8.CAMBIOS EN EL TIPO DE EVALUACIÓN DE LA CONFORMIDAD O ESQUEMA DE ACREDITACIÓN
+8.1 En los casos en los que realicen cambios en el tipo de actividad de acreditación o evaluación de la conformidad de un servicio ya brindado, se debe asegurar que no se interrumpa el servicio por finalizar hasta que se asegure el cumplimiento de este procedimiento. Se debe tener un plan para la transferencia de la información por las áreas correspondientes. Para el caso del área sustituida, debe aplicar el apartado 9 de este documento.
+9.INTERRUPCIÓN DE LA PRESTACIÓN DEL SERVICIO DE ALGÚN ESQUEMA DE
+ACREDITACIÓN
+9.1 En el caso de que el ECA deje de brindar el servicio de algún esquema de acreditación, en forma parcial o total, debe considerar lo siguiente:
+a. Antes de la interrupción del servicio debe considerar la opinión de las partes interesadas;
+b. los deberes contractuales;
+c. los acuerdos de transición;
+d. realizar un comunicado en las redes sociales y en la página web sobre el cese de este servicio;
+e. modificar la documentación de ECA donde se haga referencia a este servicio que se interrumpe; y
+f. aplicar la etapa de toma de decisión correspondiente para la reducción del alcance.
+Se debe documentar la evidencia de cumplimiento con dichos requisitos.
+10. IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Modificación del documento
+Refiérase a la solicitud de elaboración o modificación consecutivo: | 2026-021
+Se actualiza alcance, incluyendo apertura de cualquier tipo de servicio brindado por ECA. Se actualiza referencia a documentos mandatorios aplicables y flujo de proceso, con el fin de asemejar un flujo de desarrollo de proyectos que permita mayor claridad para la gestión, aprobación y seguimiento de servicios. Se añaden tiempos de ejecución de actividades y formatos adicionales para mejorar el registro de información.
+| |

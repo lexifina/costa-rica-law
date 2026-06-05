@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P19 Establecimiento de esquemas de acreditación (V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-16 | la propia norma |
+| 2 | 2026-06-05 | Acuerdo 5 (2026-06-05) |
