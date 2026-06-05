@@ -1,0 +1,1 @@
+Artículo 2. Sujetos facultados. El MEIC como autoridad solicitante podrá requerir información según lo indicado en el artículo 1 del presente Reglamento, ya sea por parte del Jerarca institucional o mediante las Direcciones en cumplimiento de sus competencias.

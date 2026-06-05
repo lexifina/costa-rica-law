@@ -1,0 +1,2 @@
+Artículo 9. Uso de la información. Al procesar y analizar la información recibida, el MEIC garantizará que los resultados de los estudios, fiscalizaciones o verificaciones respeten la confidencialidad individual de sus informantes, divulgando datos de forma agregada para fines estadísticos o de política y se garantice su anonimato.
+Cualquier publicación de resultados o reporte derivado de la información deberá presentar los datos de forma agregada, a menos que la ley autorice la publicación individualizada y el agente económico lo haya consentido explícitamente.

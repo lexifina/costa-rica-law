@@ -1,0 +1,4 @@
+Capítulo III
+Presentación y plazos
+Artículo 6. Plazo de entrega. La solicitud de información deberá otorgar un plazo no mayor de diez (10) días hábiles y un plazo máximo de quince (15) días hábiles para su remisión, salvo que en circunstancias especiales debidamente razonadas el MEIC, según lo dispuesto en el artículo 2 del presente Decreto Ejecutivo, autorice explícitamente el otorgamiento de una prórroga por escrito.
+La solicitud de prórroga deberá realizarse antes del vencimiento del plazo otorgado y se concederá hasta por la mitad del plazo otorgado, si los motivos alegados así lo ameritan, conforme a los dispuesto en el numeral 258 de la Ley General de la Administración Pública. De concederse la prórroga, esta deberá notificarse formalmente, con la indicación del nuevo plazo otorgado.

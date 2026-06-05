@@ -1,0 +1,2 @@
+Artículo 5. De los formularios. Cuando el Ministerio de Economía, Industria y Comercio considere necesario, podrá diseñar formularios o plantillas específicas para la recolección de información, siendo estos tablas, cuestionarios u hojas de cálculo; los cuales serán adjuntos al requerimiento de información.
+Los formularios deberán ser claros, con instrucciones precisas para su llenado, y permitir la entrega en formato electrónico, siempre que el requerido cuente con medios para ello.

@@ -1,0 +1,4 @@
+Artículo 11. Sanciones. La negativa injustificada a entregar la información solicitada según lo dispuesto en el presente Reglamento, así como la falsedad, omisión u ocultamiento de información relevante cuando sea solicitada o el incumplimiento de las formalidades previstas en el requerimiento dará lugar a responsabilidades administrativas, civiles y penales.
+Para tales efectos el Ministerio procederá a:
+a) Plantear una denuncia ante la Comisión Nacional del Consumidor para el establecimiento de las responsabilidades administrativas, de conformidad con el numeral 67 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor.
+b) Testimoniar piezas ante el Ministerio Público por delito de desobediencia a la autoridad, conforme a los establecido en el numeral 314 del Código Penal.

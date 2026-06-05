@@ -1,0 +1,3 @@
+Artículo 7. Forma de presentación. Los informes y documentos deberán presentarse en el formato indicado en la solicitud, a través de reporte estructurado, documentos certificados, declaraciones juradas, formularios predeterminados.
+En caso de entrega física, se presentarán copias legibles, organizadas en forma clara, con índices si fuera necesario. En caso de entrega digital, preferiblemente se usarán medios seguros tales como correo electrónico institucional, plataforma segura, enlace de descarga, , y el documento podrá estar protegido contra alteraciones si así se requiere.
+En caso de acceso en sitio, la persona física o jurídica deberá permitir la revisión de los documentos en el lugar donde estos se encuentran.
