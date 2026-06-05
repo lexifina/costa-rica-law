@@ -1,0 +1,6 @@
+N° 10931
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE DESAMPARADOS PARA QUE DONE TERRENO
+DE SU PROPIEDAD AL MINISTERIO DE EDUCACIÓN PÚBLICA EN LOS GUIDO SECTOR #2
+ARTÍCULO 1- Se autoriza a la Municipalidad de Desamparados, cédula de personería jurídica número tres-cero uno cuatro-cero cuatro dos cero cuatro ocho (n.º 3-014-042048), para que done un inmueble de su propiedad en favor del Ministerio de Educación Pública, cédula ju rídica dos- uno cero cero -cero cuatro dos cero cero dos (n.° 2-100-042002), inscrito en el Registro de la Propiedad, provincia de San José, bajo el sistema de folio real matrícula número seis tres nueve cero dos ocho -cero cero cero (n.º 639028-000), terreno destinado a Escuela Los Guido Sector n.° 2, situado en el distrito sétimo, Patarrá, cantón Desamparados de la provincia de San José, con las siguientes colindancias: norte, calle pública e ICE; sur, otras propiedades del INVU y en parte alamedas; este, alameda e ICE y oeste, alameda pública. Plano catastro SJ -cero dos uno dos seis uno cinco-uno nueve nueve (SJ-0212615-199), con una medida de seis mil novecientos veintitrés metros cuadrados con veintitrés decímetros (6.923,23 m2) sin gravámenes ni anotaciones.
