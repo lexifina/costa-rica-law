@@ -1,0 +1,2 @@
+Artículo 13. Penetración de fuentes de energía renovables y recursos energéticos distribuidos.
+El OS y los agentes del MEN, deben aplicar los procedimientos que establezca la ARESEP para la determinación de los niveles de penetración de la generación a partir de energías renovables, incluyendo los recursos energéticos distribuidos al SEN y cumplir los requisitos técnicos para su integración al SEN, respetando los criterios de calidad, seguridad y desempeño establecidos por las regulaciones nacional y regional en todas las etapas de la industria eléctrica.

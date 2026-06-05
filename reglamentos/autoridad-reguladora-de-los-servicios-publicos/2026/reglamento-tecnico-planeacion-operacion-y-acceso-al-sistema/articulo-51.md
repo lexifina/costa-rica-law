@@ -1,0 +1,2 @@
+Artículo 51. Condiciones de calidad de la energía
+El SEN se debe planear de forma integrada (generación, transmisión y distribución), de tal manera que se garanticen las condiciones de calidad de la energía establecidas en el capítulo II Suministro en alta tensión para prestadores del servicio público de distribución de electricidad, Condiciones técnicas comerciales, de este reglamento y en general en la regulación nacional y regional.

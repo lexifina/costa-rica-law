@@ -1,0 +1,3 @@
+Artículo 49. Expansión de la generación
+En lo que respecta al planeamiento de la expansión de la generación del Sistema Eléctrico Nacional, el OS, con los demás agentes del MEN según corresponda, debe considerar el máximo aprovechamiento de los recursos renovables, mediante una matriz energética diversificada que propicie la satisfacción de la demanda de energía independientemente de la estacionalidad climática, y con el mínimo costo, dentro de un plan con horizontes a corto, mediano y largo plazo. Los estudios serán de carácter público de conformidad con lo establecido en el artículo 165. Principio de transparencia.
+Todos los agentes del MEN deben aportar la información necesaria para realizar esta planificación.

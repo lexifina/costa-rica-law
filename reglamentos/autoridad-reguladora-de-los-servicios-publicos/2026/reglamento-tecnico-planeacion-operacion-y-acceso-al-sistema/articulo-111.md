@@ -1,0 +1,2 @@
+Artículo 111. Equipo de supervisión, control y comunicación
+La empresa generadora deberá equipar su subestación con la infraestructura y los elementos de interrupción, protección, medición, registro, supervisión, control y comunicación necesarios, de acuerdo con los requerimientos nacionales y regionales del ICE-Transmisión, el agente del MEN que corresponda y el OS, y conforme con lo indicado en el Capítulo XIII TOPOLOGÍA Y REQUISITOS TÉCNICOS DE LAS CONEXIONES AL SEN, de este reglamento.

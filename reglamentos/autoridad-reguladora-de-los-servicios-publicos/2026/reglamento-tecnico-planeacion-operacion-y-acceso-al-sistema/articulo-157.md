@@ -1,0 +1,2 @@
+Artículo 157. Información hacia los abonados y usuarios
+Las empresas distribuidoras deben informar por medio de los periódicos de mayor circulación nacional o regional, radio y televisión y redes sociales a sus abonados y usuarios, sobre el inicio, la duración, frecuencia y ubicación de los racionamientos programados en su área de distribución, al menos ocho días naturales de antelación. De igual manera deben informar cuándo finalizará el racionamiento.

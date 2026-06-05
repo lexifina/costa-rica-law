@@ -1,0 +1,3 @@
+Artículo 139. Cálculo de pérdidas en el SEN
+El OS, será responsable de calcular de manera mensual los porcentajes de pérdidas de los sistemas de transmisión y distribución nacional, siguiendo el procedimiento descrito en el Anexo B de este reglamento, con base en la información que suministren los agentes del MEN, siguiendo los requerimientos de análisis de los datos que el OS establezca y oficialice la ARESEP. El OS debe enviar a la Aresep esta información a más tardar el último día hábil del siguiente mes, luego de recibir los reportes de las empresas distribuidoras.
+Los agentes de transmisión tendrán acceso a los datos del sistema de medición comercial necesarios para hacer el cálculo y consolidación de pérdidas de transmisión.

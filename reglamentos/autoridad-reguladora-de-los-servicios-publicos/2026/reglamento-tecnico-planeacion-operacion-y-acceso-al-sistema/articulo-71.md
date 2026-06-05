@@ -1,0 +1,2 @@
+Artículo 71. Adecuaciones de puntos de acceso.
+Cuando por razones técnicas o topológicas sea necesario hacer cambios en la infraestructura del agente del MEN, al cual se le está solicitando un punto de acceso para la conexión y éste no tenga los recursos financieros para realizar la adecuación, podrán convenir que el interesado realice las inversiones y posteriormente se reconozca los costos asociados a las adecuaciones realizadas.

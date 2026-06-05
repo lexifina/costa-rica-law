@@ -1,0 +1,2 @@
+Artículo 141. Responsabilidad
+Es responsabilidad del OS, la elaboración del Plan Nacional de Racionamiento (PNR) para cada año en específico y asegurar la debida participación de los Agentes del MEN y abonados servidos en baja o media tensión para uso final de la energía, en los mantenimientos y racionamientos programados, de acuerdo con las características propias de cada uno de ellos, en cuanto a demanda de potencia y energía y al uso de esta.

@@ -1,0 +1,3 @@
+Artículo 65. Arranque y operación con control de rampas
+Las opciones de control de rampas de la potencia activa de las instalaciones de generación y sistemas de almacenamiento de energía durante la toma de carga por arranque y en operación normal ante variaciones del recurso fuente, deben coordinarse con el OS.
+Durante la fase de puesta en marcha se programarán pruebas funcionales específicas para comprobar el cumplimiento del requisito por parte de la instalación. Si no fuese posible comprobar esta función durante la puesta en marcha, se hará en tiempo real, luego del inicio de la operación comercial utilizando las facilidades que brinda el SCADA/EMS del OS.

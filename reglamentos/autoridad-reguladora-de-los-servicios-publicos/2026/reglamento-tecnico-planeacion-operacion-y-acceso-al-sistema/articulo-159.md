@@ -1,0 +1,2 @@
+Artículo 159. Participación en el PNR
+Para cada bloque de energía se establece una participación por empresa distribuidora, la cual es proporcional a las ventas totales de energía (MWh) que registraron durante el año calendario anterior a la fecha de elaboración del PNR, con base en los datos suministrados por la ARESEP. El OS actualizará la proporcionalidad en las ventas de cada prestador del servicio público y mantendrá esta información disponible el público en general.

@@ -1,0 +1,4 @@
+Artículo 162. Actualización de los perfiles de carga de los circuitos
+Cada prestador del servicio público de distribución debe enviar al OS por medio de los procedimiento y formatos que establezca y oficialice la ARESEP, los perfiles de carga típicos de cada mes de cada circuito o segmento que compone su red de distribución, indicando la prioridad de racionamiento en la cual está ubicado, según lo establecido en el Artículo 160. Escenarios de racionamiento de este reglamento.
+Los perfiles correspondientes al periodo noviembre del año anterior a octubre del año de entrega de información, se deben enviar al OS/OM en los primeros 15 días naturales de noviembre.
+El prestador del servicio público de distribución es responsable de enviar al OS la actualización de esta información cuando se habiliten nuevos circuitos o existan modificaciones importantes en la red de distribución. La actualización debe enviarse como máximo 1 mes después de realizados los cambios.

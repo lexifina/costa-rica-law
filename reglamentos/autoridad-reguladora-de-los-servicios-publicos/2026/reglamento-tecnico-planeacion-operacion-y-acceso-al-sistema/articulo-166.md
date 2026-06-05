@@ -1,0 +1,2 @@
+Artículo 166. Transferencia de información
+Semestralmente, el OS deberá remitir a la Autoridad Reguladora, en las fechas y medios que ésta oportunamente comunique, los valores de los indicadores de desempeño de la red de transmisión nacional y del parque de generación nacional, con el análisis correspondiente en función de los principios de confiabilidad, estabilidad y selectividad, establecidos en el artículo 15 del Reglamento Sectorial de Servicios Eléctricos (Decreto Ejecutivo ? 29847-MP-MINAE-MEIC).

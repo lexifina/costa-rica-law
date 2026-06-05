@@ -1,0 +1,4 @@
+Artículo 59. Sistemas de protección
+Las instalaciones de generación con fuentes renovables variables (tales como, hidroeléctricas, plantas eólicas, solares, entre otros) y sistemas de almacenamiento de energía deben cumplir con
+la implementación de los sistemas de protección definidos por el OS en conjunto con los agentes del MEN.
+Las instalaciones de generación y sistemas de almacenamiento de energía deben contar con protecciones de sobre y baja frecuencia en el punto de conexión con el SEN, así como también los equipos individuales que inyectan potencia activa (generadores síncronos o asíncronos, convertidores, inversores, entre otros). Los ajustes de estas protecciones los definirá el OS y los agentes del MEN los aplicarán en sus sistemas de protección. Los ajustes de las protecciones de sobre y baja frecuencia se comprobarán durante la puesta en marcha de la instalación, por parte del OS y cuando este lo requiera en el ejercicio de sus competencias.

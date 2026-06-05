@@ -1,0 +1,4 @@
+Artículo 74. Plazo para la realización de los estudios de viabilidad técnica
+El agente del MEN debe efectuar y comunicar al interesado, en un plazo máximo de 10 (diez) días naturales la aprobación o rechazo de la información entregada para llevar a cabo el estudio de conexión solicitado. Una vez aprobado, se tendrá un plazo máximo de 70 (setenta) días naturales para desarrollar el estudio de conexión solicitado y el OS tendrá 20 (veinte) días naturales para aprobarlo.
+En caso de que el Operador de Sistema requiera de estudios adicionales se tendrán 10 (diez) días naturales por cada estudio eléctrico solicitado.
+En el caso de conexiones a la red de transmisión regional, el tiempo para los estudios y aprobación de la conexión se ajustará a los requisitos y plazos que establezca la regulación regional.

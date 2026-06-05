@@ -1,0 +1,2 @@
+Artículo 44. Subestaciones
+La configuración de una nueva subestación o de la conexión a una subestación existente, debe ser tal que, como mínimo permita efectuar el mantenimiento al equipo de interrupción de cualquier circuito, módulo o bahía de la subestación, sin interrumpir la continuidad del flujo de energía y que permita la determinación de propiedad entre los agentes del MEN, para efectos de operación, mantenimiento y establecimiento de responsabilidades y la debida contabilización del equipamiento por parte del propietario.

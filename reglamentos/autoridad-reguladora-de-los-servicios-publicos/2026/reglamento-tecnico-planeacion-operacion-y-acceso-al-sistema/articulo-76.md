@@ -1,0 +1,5 @@
+Artículo 76. Procedimiento de la conexión
+El procedimiento de la conexión se inicia con la solicitud de la conexión y termina con la puesta en servicio de esta, mediando la suscripción del "Contrato de Conexión" y del "Contrato Comercial", como requisito indispensable para la puesta en operación de la conexión y la operación comercial.
+La energización y puesta en operación de la conexión deberá ser aprobada por el OS tras la verificación del cumplimiento de los requisitos técnicos de este reglamento e indicados en el contrato de conexión y con el respectivo visto bueno de los agentes del MEN suscriptores del "Contrato Comercial".
+El OS, en coordinación con los agentes del MEN es el responsable de establecer el procedimiento para conexiones al SEN (la solicitud, estudio, aprobación, construcción y puesta en servicio). Dicho procedimiento deberá remitirlo a la Autoridad Reguladora para su revisado y aprobación de conformidad con los mecanismos internos para ese fin.
+Para interesados en conectarse a la Red de Transmisión Regional, se deberá cumplir con los trámites y requisitos tanto de carácter nacional como regional.

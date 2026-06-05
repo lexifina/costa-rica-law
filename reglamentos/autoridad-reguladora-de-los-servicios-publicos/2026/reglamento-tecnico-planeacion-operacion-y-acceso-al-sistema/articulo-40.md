@@ -1,0 +1,2 @@
+Artículo 40. Interpretación y controversias
+Cualquier agente del MEN y los abonados con Recursos Energéticos Distribuidos, disconforme con las condiciones técnicas y procedimentales que el OS establezca y en su aplicación e interpretación, podrá solicitar interpretación en el caso de disposiciones dictadas por la Junta Directiva a dicho órgano y si se trata de otras disposiciones emitidas por otras áreas de la Aresep, a quien las haya emitido, los que resolverán de acuerdo con sus potestades y su criterio será vinculante para las partes.

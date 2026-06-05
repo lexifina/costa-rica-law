@@ -1,0 +1,2 @@
+Artículo 169. Derogación de la norma AR-NT-POASEN
+Se deroga la norma AR-NT-POASEN "Planeación, Operación y Acceso, al SEN" aprobada por la Junta Directiva según el acuerdo 01-10-2014 publicada en La Gaceta N° 69 del 8 de abril de 2014, modificada mediante el acuerdo 04-24-2015 del 4 de junio de 2015 con la resolución RJD-030-2016 de las 15:50 horas del 18 de febrero de 2016, publicada en el Alcance N° 25 a La Gaceta N° 37 del 23 de febrero de 2016.

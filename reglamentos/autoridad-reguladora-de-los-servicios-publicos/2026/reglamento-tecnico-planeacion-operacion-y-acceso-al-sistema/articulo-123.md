@@ -1,0 +1,3 @@
+Artículo 123. Requisitos técnicos para la instalación de sistemas de medición comercial
+Los equipos de un sistema de medición comercial que formen parte del SIMEC deben cumplir con los requisitos técnicos establecidos por OS. Estos requisitos estarán disponibles para acceso y consulta del público en general y sus actualizaciones serán sometidos a consulta pública entre los interesados y comunicados oportunamente a la ARESEP.
+Para la instalación de estos equipos en obras de transmisión y distribución, el agente del MEN debe cumplir con los requisitos definidos por la empresa de transmisión o distribución que establezcan y oficialice la ARESEP y de acuerdo con la regulación nacional y regional.

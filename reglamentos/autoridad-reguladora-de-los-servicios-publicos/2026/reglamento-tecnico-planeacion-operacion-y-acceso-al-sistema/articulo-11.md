@@ -1,0 +1,6 @@
+CAPITULO III
+PLANEAMIENTO DE LA OPERACIÓN DEL SEN
+Artículo 11. Responsabilidad de la operación del Sistema Eléctrico Nacional
+La planeación operativa y operación centralizada del Sistema Eléctrico Nacional es responsabilidad del OS, el cual deberá de ajustarse a los requerimientos de calidad y seguridad operativa establecidos en este reglamento, en las regulaciones nacionales y regionales.
+El OS coordinará la operación del SEN con los Generadores, los Transmisores y Empresas Distribuidoras, los cuales podrían contar con sus propios centros de control para la supervisión, operación y control de sus activos, cumpliendo los criterios, requisitos y procedimientos que el OS establezca y que oficialice la ARESEP.
+Las prestadoras del servicio público de distribución en coordinación con el OS y cumpliendo los criterios y requisitos que este establezca y que oficialice la ARESEP, podrán establecer centros de control focalizados en sus redes de distribución, para la adquisición de datos, monitoreo y control de las condiciones de operación de su infraestructura eléctrica y los Recursos Energéticos Distribuidos, integrados a su red. Para tal efecto, los propietarios de Recursos Energéticos Distribuidos deberán suministrar la información requerida conforme a los formatos, plazos y demás condiciones que formen parte de un procedimiento, que la ARESEP oficialice.

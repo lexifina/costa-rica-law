@@ -1,0 +1,2 @@
+Artículo 134. Salida de servicio o mal funcionamiento de un sistema de medición comercial
+Cuando un agente detecte que un sistema de medición ha salido de servicio o presenta mal funcionamiento, debe informarlo de inmediato al OS y coordinar una intervención para resolver el problema según lo establecido en el presente reglamento. El agente debe realizar el mantenimiento correctivo en un plazo no mayor a 10 días hábiles y una vez finalizado debe solicitar al OS una inspección para su aceptación, quien deberá de realizarla en un plazo no mayor de 5 días hábiles.

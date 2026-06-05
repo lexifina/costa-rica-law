@@ -1,0 +1,3 @@
+Artículo 82. La venta de energía y potencia a abonados en alta tensión
+La venta de energía y potencia al abonado en alta tensión se efectuará mediante un contrato comercial entre los agentes del MEN, a la tarifa que establezca la ARESEP para el servicio de generación del agente vendedor. Las compras de los abonados en alta tensión deberán pagar los peajes de transmisión correspondientes al punto de acceso y al punto comercial.
+El detalle de las condiciones técnicas y comerciales con que se brinda el servicio a los abonados en alta tensión, se detallan en el Capítulo IX Condiciones técnicas y comerciales del suministro para abonados en alta tensión, de este reglamento.

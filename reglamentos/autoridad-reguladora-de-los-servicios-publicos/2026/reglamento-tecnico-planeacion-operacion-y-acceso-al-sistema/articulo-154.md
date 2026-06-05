@@ -1,0 +1,3 @@
+Artículo 154. Responsabilidad de los abonado y usuarios. Medidas propias
+Los abonados serán responsables de tomar las previsiones que consideren pertinentes, en la medida que los racionamientos de energía debidamente programados e informados, les afecten.
+Es responsabilidad de los abonados informar al menos una vez por semestre o cuando se dé el caso, a la empresa distribuidora si el servicio de electricidad es utilizado por personas oxígeno dependientes o con soporte vital, con el fin de que se les informe oportunamente sobre los racionamientos y tomen las medidas preventivas que correspondan, de conformidad con lo dispuesto en el Artículo 149. Responsabilidad y potestad de las empresas distribuidoras, de este reglamento.

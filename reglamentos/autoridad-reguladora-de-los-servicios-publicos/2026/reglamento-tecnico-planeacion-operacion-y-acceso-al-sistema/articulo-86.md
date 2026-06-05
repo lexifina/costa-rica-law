@@ -1,0 +1,2 @@
+Artículo 86. Servidumbre de transmisión- generación
+El abonado en alta tensión dotará a la empresa suministradora del servicio en alta tensión de la servidumbre en su subestación para la instalación de los sistemas de interrupción, protección, medición y registro de energía y supervisión, control y comunicación necesarios para la operación integrada del SEN, conforme con los requerimientos del ICE-Transmisión y del OS.

@@ -1,0 +1,2 @@
+Artículo 70. Alternativas de puntos de conexión al SEN
+El interesado puede proponer puntos de conexión al SEN. Para ello toda la información que utilicen los agentes del MEN para efectuar los estudios de viabilidad técnica y económica de la solicitud de conexión, será de acceso público. En caso de que el interesado esté disconforme con lo resuelto por el OS o el agente del MEN correspondiente, podrá acudir a la Autoridad Reguladora a resolver el diferendo.

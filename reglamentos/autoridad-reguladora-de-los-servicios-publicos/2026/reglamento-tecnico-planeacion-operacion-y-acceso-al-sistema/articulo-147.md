@@ -1,0 +1,2 @@
+Artículo 147. Confiabilidad y estabilidad
+El OS en coordinación con los Agentes del MEN y mediante los estudios pertinentes, programará, coordinará y supervisará los racionamientos eléctricos, y tomará las acciones pertinentes para que la magnitud, frecuencia, duración y distribución topológica de los racionamientos, no sometan la operación del Sistema Eléctrico Nacional, a condiciones que pongan en peligro su seguridad y estabilidad. En ese sentido debe prevalecer el criterio de operación segura y confiable en contraposición a la magnitud del racionamiento.

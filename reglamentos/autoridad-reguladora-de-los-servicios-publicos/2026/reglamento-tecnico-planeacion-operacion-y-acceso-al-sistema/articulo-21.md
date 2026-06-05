@@ -1,0 +1,14 @@
+Artículo 21. Desconexión de carga por baja tensión
+A criterio del OS podrá implementarse un esquema de desconexión de carga por baja tensión. El esquema de desconexión de carga por baja tensión será implementado de acuerdo con los requerimientos y precisiones que determinen los estudios correspondientes elaborados por el OS o solicitados por el EOR, y coordinados con los agentes del MEN y en concordancia con los criterios de calidad, seguridad y desempeño que establecen las regulaciones nacional o regional, prevaleciendo siempre la especificación superior.
+El esquema de desconexión automática de carga por baja tensión del SEN se diseñará con los criterios siguientes:
+a. Se determinará para cada empresa el número de etapas por implementar y su correspondiente temporización.
+b. La tensión no permanezca por debajo del 80 % del valor nominal, por más de 700 milisegundos.
+c. Se debe minimizar el tiempo que la tensión permanezca por debajo de 10% de la tensión nominal.
+d. Después de 50 segundos de ocurrido un evento, la tensión del sistema debe estar por encima del umbral de la primera etapa del esquema de desconexión automática de carga.
+e. Se debe optimizar la cantidad de carga por desconectar en eventos, evitando al máximo la sobre- tensión.
+f. Cada agente distribuidor y los abonados en alta tensión deben habilitar su demanda para ser desconectada por relés de baja tensión y sobre tensión con el fin de que el SEN pueda soportar la salida de las mayores plantas de generación y evitar así, en lo posible, colapsos totales. Se debe considerar también el efecto variable de los generadores con fuentes de energía renovables y Recursos Energéticos Distribuidos en el perfil de demanda de estos circuitos.
+g. Se determinará para cada agente el número de etapas por implementar, el porcentaje de carga por desconectar en cada etapa y su correspondiente temporización.
+h. Siempre que sea técnicamente factible, la selección de la carga por desconectar se efectuará en aras de optimizar la continuidad del suministro eléctrico en el Área Metropolitana y en centros de población con características comerciales, industriales y gubernamentales y en centros hospitalarios.
+i. En el caso de operación del SEN en islas, se deberá considerar la instalación de esquemas suplementarios de protección que permitan su operación con condiciones de calidad en el suministro eléctrico, acordes con este reglamento y otros emitidas por la Autoridad Reguladora.
+j. El ajuste de tensión del esquema debe indicar la tensión mínima y máxima de actuación, el paso de tensión entre las diferentes etapas y el tiempo de actuación en que deberá ejecutarse la apertura del conjunto relevador - interruptor en cada etapa.
+La cantidad de carga que será desconectada debido a la actuación del esquema no deberá reducirse cuando se tengan que efectuar trabajos de mantenimiento preventivo o correctivo, excepto que lo anterior sea debidamente justificado ante el OS.

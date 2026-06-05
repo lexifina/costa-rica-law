@@ -1,0 +1,4 @@
+Artículo 158. Programación de bloques de energía y escenarios probables de racionamiento
+Para la elaboración del PNR el OS define escenarios probables de racionamiento y los bloques respectivos de energía deficitaria, basados en los estudios de planeamiento operativo anuales. Los bloques de energía serán calculados con base en la potencia faltante multiplicada por distintos tractos de tiempo en horas.
+El OS definirá la magnitud de los bloques de energía a racionar, buscando que el racionamiento tenga el menor impacto posible para el Sistema Eléctrico Nacional y los usuarios de este, tomando en consideración las prioridades de racionamiento establecidas en este reglamento.
+El OS actualizará los bloques de energía y los escenarios probables de racionamiento y mantendrá esta información actualizada a disposición de las empresas distribuidoras, de la ARESEP y del público en general.

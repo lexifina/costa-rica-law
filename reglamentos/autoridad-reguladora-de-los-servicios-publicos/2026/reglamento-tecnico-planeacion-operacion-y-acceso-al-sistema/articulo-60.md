@@ -1,0 +1,2 @@
+Artículo 60. Sistemas de comunicación y telecontrol
+Las instalaciones de generación con fuentes renovables variables y sistemas de almacenamiento de energía deben cumplir con la implementación de los sistemas de comunicación, telecontrol y canal de voz que defina el OS. Casos de excepción podrán ser establecidos por el OS en función de la tecnología de la instalación, su capacidad instalada y las características del punto de conexión al SEN.

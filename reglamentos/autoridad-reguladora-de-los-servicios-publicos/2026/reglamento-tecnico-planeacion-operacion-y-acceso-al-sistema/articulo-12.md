@@ -1,0 +1,10 @@
+Artículo 12. Principio de planeación
+La planeación de la operación, tanto centralizada como focalizada, de los recursos del Sistema Eléctrico Nacional se hará con la información técnica que de manera obligatoria deben suministrar los agentes del MEN, ya sea al OS como a las empresas distribuidoras con centros de control focalizados, y tendrá como objetivos fundamentales los siguientes:
+a. Satisfacer la demanda nacional de energía eléctrica mediante un despacho centralizado óptimo, bajo un horizonte de planificación a corto y mediano plazo (de cero a cinco años, con una resolución máxima de un mes), utilizando al máximo los recursos nacionales, sin detrimento de aprovechar las ventajas económicas que pueda ofrecer el Mercado Eléctrico Regional.
+b. Minimizar los costos de operación y mantenimiento de SEN.
+c. Maximizar la generación a partir de fuentes renovables.
+d. Minimizar la generación térmica a partir de derivados del petróleo.
+e. Mantener los niveles de seguridad, confiabilidad y calidad definidos en este reglamento técnico y en otras disposiciones que emita la Autoridad Reguladora para las actividades degeneración y transporte y en concordancia con la regulación del Mercado Eléctrico Regional.
+f. Coadyuvar al cumplimiento de las normas referentes a la calidad, confiabilidad y continuidad del suministro eléctrico en la etapa de distribución.
+g. Establecer el nivel de penetración de las fuentes de energías renovables y de los recursos energéticos distribuidos, que garanticen la operación integrada bajo los criterios de calidad, seguridad y desempeño establecidos por la regulación nacional y regional en todas las etapas de la industria eléctrica. Para tales efectos el OS deberá aplicar el procedimiento aprobado por la Aresep.
+La frecuencia de actualización del planeamiento operativo será anual, pudiéndose actualizar más frecuentemente si las circunstancias lo ameritan. El OS definirá la información y plazos con que los agentes del MEN deben suministrarla para la debida planeación de la operación integrada.

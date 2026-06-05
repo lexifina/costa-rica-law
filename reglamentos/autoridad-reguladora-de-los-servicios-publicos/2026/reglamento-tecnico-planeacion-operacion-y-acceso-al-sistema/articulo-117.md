@@ -1,0 +1,4 @@
+CAPÍTULO XII
+CONTRATO DE CONEXIÓN Y PUESTA EN SERVICIO DE LA CONEXIÓN
+Artículo 117. Contrato o convenio de conexión
+Para el acceso al Sistema Eléctrico Nacional, el interesado deberá firmar un Contrato de Conexión con el agente del MEN según corresponda, en el cual se especificarán las condiciones técnicas, económicas, financieras y jurídicas que no podrán exceder lo dispuesto en la normativa vigente, bajo las cuales se regirá el diseño, adquisición, construcción, la puesta en servicio y operación de la conexión solicitada. El texto del contrato o convenio de conexión deberá ser revisado y avalado por el OS en el plazo que se establezca en los procedimientos y protocolos que se oficialicen por parte de la Autoridad Reguladora, conforme con lo dispuesto en el artículo 45. Protocolos y procedimientos técnicos, de este reglamento técnico.

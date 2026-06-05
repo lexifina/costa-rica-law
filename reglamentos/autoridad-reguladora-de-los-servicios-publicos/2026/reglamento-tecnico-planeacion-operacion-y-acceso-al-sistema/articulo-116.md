@@ -1,0 +1,2 @@
+Artículo 116. Equipo de supervisión y control
+La empresa distribuidora deberá equipar su subestación de la infraestructura y de los elementos de interrupción, protección, medición, registro, supervisión y control y comunicación necesarios, conforme con los requerimientos del ICE-Transmisión y el OS según corresponda, así como con lo indicado en el Capítulo XIII TOPOLOGÍA Y REQUISITOS TÉCNICOS DE LAS CONEXIONES AL SEN, de este reglamento.

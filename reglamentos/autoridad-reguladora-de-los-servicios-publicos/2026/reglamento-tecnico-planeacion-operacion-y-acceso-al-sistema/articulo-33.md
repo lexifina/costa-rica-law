@@ -1,0 +1,4 @@
+Artículo 33. Acatamiento obligatorio del programa de indisponibilidades
+El programa de indisponibilidades anual de la infraestructura del SEN es de acatamiento obligatorio para los agentes del MEN, no obstante, se podrán tramitar cambios ante el OS de acuerdo con el procedimiento que este establezca y con los justificantes del caso. Toda indisponibilidad, que se efectúe sin la debida programación será tratada y registrada para fines estadísticos, de control y supervisión como indisponibilidad forzada.
+Para las labores de mantenimiento correctivo o de emergencia por situaciones imprevistas, el OS ajustará, siguiendo los procedimientos correspondientes, las programaciones semanales y diarias, conforme con la gravedad de la situación.
+Ante conflictos entre los Agentes del MEN y el OS por la formulación y ejecución del programa de indisponibilidades, los interesados podrán recurrir a la Autoridad Reguladora, quien resolverá de conformidad con sus competencias.

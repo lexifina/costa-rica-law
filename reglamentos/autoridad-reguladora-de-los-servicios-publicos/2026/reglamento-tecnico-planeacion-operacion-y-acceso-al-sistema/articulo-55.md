@@ -1,0 +1,3 @@
+Artículo 55. Criterios para la integración de generación con fuentes renovables variables al SEN
+Para integrar al SEN instalaciones de generación que utilizan fuentes renovables variables y sistemas de almacenamiento de energía, el OS debe verificar el cumplimiento de los criterios de calidad, seguridad y desempeño establecidos en las regulaciones nacional y regional comprobando la capacidad de transmisión y la estabilidad transitoria y de tensión del SEN.
+Adicionalmente, el OS debe comprobar mediante estudios técnicos que no se afecte la capacidad de cumplir con la regulación secundaria para mantener continuamente el equilibrio entre la generación y la demanda eléctrica nacional y que se disponga de suficiencia de recursos para brindar el respaldo de generación.

@@ -1,0 +1,2 @@
+Artículo 110. Servidumbre generación- transmisión
+La empresa de transmisión o distribución o la empresa generadora, está en obligación de brindar a su contraparte la servidumbre en su subestación para la instalación de los sistemas de interrupción, protección, medición y registro de energía y supervisión, control y comunicación necesarios para la operación integrada del SEN, conforme con los requerimientos del ICE-Transmisión y del OS"

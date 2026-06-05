@@ -1,0 +1,8 @@
+Artículo 99. Tarifa mal aplicada
+Si se determina que en un servicio se ha estado aplicando una tarifa que no corresponde debido a un error atribuible al prestador del servicio y como resultado de la reclasificación se constata que lo facturado es inferior a lo que realmente corresponde, el prestador del servicio cobrará la diferencia entre lo facturado erróneamente y lo correcto, con base en la información y pruebas que demuestren el error de la aplicación tarifaria incorrecta.
+Si, por el contrario, se constata que lo facturado es superior a lo que corresponde al servicio, deberá reintegrar todo lo cobrado de más, con base en la información en su poder o las pruebas aportadas por el abonado, debidamente analizadas por el prestador. El depósito en garantía se ajustará con base en la tarifa correcta.
+El prestador del servicio realizará el trámite pertinente, siguiendo el debido proceso, mediante facturación aparte del recibo mensual por servicios eléctricos, salvo acuerdo entre partes, para que se le debite o acredite la suma correspondiente en el recibo mensual.
+El prestador del servicio podrá cobrar hasta un máximo de doce meses anteriores a la puesta en cobro de la factura corregida. En caso de cobros demás, tanto en potencia como en energía, el prestador deberá devolver la totalidad de lo cobrado en exceso, sobre la base de sus registros y en
+las pruebas que el abonado aporte.
+En ninguna circunstancia podrá el prestador del servicio público suspender el servicio si el abonado está al día en el pago de la factura por energía eléctrica del último periodo de consumo puesto al cobro.
+El cobro de la energía y potencia consumida y no facturada no será causal de desconexión del servicio por parte del prestador del servicio de electricidad.

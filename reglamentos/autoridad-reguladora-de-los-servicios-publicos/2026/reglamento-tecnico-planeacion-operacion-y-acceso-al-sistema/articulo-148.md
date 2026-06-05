@@ -1,0 +1,5 @@
+Artículo 148. Información técnica de las distribuidoras hacia el OS
+Las empresas distribuidoras, deben brindar al OS, la información sobre sus perfiles de carga, proyecciones de demanda de energía y potencia, así como cualquier otra información técnica necesaria para la debida coordinación de los racionamientos. De igual forma, deben suministrar toda la información que se requiera, en la fase previa, durante y posterior a un período de racionamiento.
+El OS debe tener en forma permanente las estrategias de racionamiento establecidas y para ello las empresas distribuidoras deben actualizar anualmente los programas de racionamiento en los términos y condiciones que el OS lo solicite.
+Es obligación de las empresas distribuidoras cumplir con los formatos y plazos que en este sentido establezca el procedimiento del OS y oficialice la Autoridad Reguladora.
+Durante el periodo en que se ejecute el racionamiento, los centros de despacho individuales de cada central de generación y los centralizados de generación, sistema de transmisión y sistemas de almacenamiento de energía del SEN deben acatar las instrucciones que el OS/OM emita.

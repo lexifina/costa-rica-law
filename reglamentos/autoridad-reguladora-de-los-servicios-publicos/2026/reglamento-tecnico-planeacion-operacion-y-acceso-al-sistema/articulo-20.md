@@ -1,0 +1,4 @@
+Artículo 20. Ajustes de las protecciones de frecuencia
+El OS, especificará los rangos entre los cuales cada generador, recurso energético distribuido y sistema de almacenamiento, debe ajustar sus relés de frecuencia, de acuerdo con los estudios de análisis de estabilidad y será responsable de verificar que lo estén conforme con lo requerido.
+Las empresas distribuidoras deben establecer con sus abonados con recursos energéticos distribuidos, la parametrización de sus relés de frecuencia conforme con los ajustes que el OS establezca en coordinación con los agentes del MEN.
+En el caso de las empresas generadoras, cuando alguno de los rangos propuestos afecte o comprometa la vida útil de alguno de los equipos principales, podrá presentar al Operador de Sistema la solicitud de revisión, aportando toda la información técnica necesaria que lo justifique.
