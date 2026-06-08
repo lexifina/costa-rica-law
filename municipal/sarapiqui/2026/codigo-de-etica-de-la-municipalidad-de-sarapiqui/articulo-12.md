@@ -1,0 +1,1 @@
+Artículo 12. -El incumplimiento de las obligaciones y prohibiciones de los funcionarios municipales que imponen las leyes y reglamentos a éstos, será sancionado conforme a la normativa particular infringida.

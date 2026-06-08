@@ -1,0 +1,8 @@
+Artículo 10. -Responsabilidades de las jefaturas. Los funcionarios que ostentan cargos de jefatura poseen responsabilidades mayores, por lo que, además de los deberes establecidos para los funcionarios en el apartado anterior, se agregan los siguientes:
+a) Inspirar a sus subalternos, al ser ejemplo de integridad, transparencia, disciplina y respeto en el trato cotidiano y fiel observante de la normativa interna de disciplina laboral, sin mostrar favoritismos de ninguna clase.
+b) Ser objetivos y justos en la evaluación del desempeño. Deberán apegarse estrictamente a la realidad de los hechos y lo que indique las normas legales o reglamentarias vigentes, a la vez que ofrecerán a sus subalternos la debida retroalimentación.
+c)Participar activamente dentro de la dinámica institucional. Procurar estar siempre informados, asistir puntualmente a las reuniones a las que se le convoque y ser un eficaz y eficiente canal de comunicación.
+d)Caracterizarse por el trabajo esforzado, honesto y propositivo, con el fin de garantizar el fiel cumplimiento de sus deberes y responsabilidades.
+e) Identificarse con los intereses de la institución, lo que las llevará a mantener una actitud de innovación y creatividad, para procurar así el mejoramiento integral y constante de las tareas asignadas a su unidad.
+f) Promover acciones que permitan mejorar la comunicación interna, que utilizarán como una eficaz herramienta de gestión.
+g) Mantener informados a sus subalternos sobre la marcha general de la municipalidad. h) Promover una cultura organizacional basada en la ética, a la vez que procurarán que la fuerza laboral se adhiera plenamente al cumplimiento de la misión, visión y objetivos institucionales.

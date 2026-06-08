@@ -1,0 +1,1 @@
+Artículo 2º-Obligatoriedad. La observancia de los principios éticos dispuestos es obligatoria durante el ejercicio de las funciones y se extiende a las actuaciones realizadas fuera de la jornada laboral, cuando estas puedan afectar la imagen institucional, la confianza pública o el adecuado desempeño de la función pública municipal.
