@@ -1,0 +1,1 @@
+ARTÍCULO 4- En el cumplimiento de la limitación de interés social del bien donado la beneficiaria no podrá vender, traspasar, enajenar, redestinar, arrendar, gravar o bien variar el uso y destino, de ninguna forma, del terreno donado, dado los fines públicos que esta donación persigue, según lo dispuesto en el artículo 2 de la presente ley.
