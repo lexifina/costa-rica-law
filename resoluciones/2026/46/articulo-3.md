@@ -1,0 +1,1 @@
+Artículo 3º-Instruir a la Unidad de Organización del Trabajo Docente la actualización y emisión de las clases de puestos del Título II de la Carrera Docente, incorporando los componentes estructurales establecidos en la Resolución N° DG-170-2019, atendiendo la metodología competencial debidamente validada.

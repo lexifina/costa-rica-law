@@ -1,0 +1,2 @@
+Artículo 4º-El Área de Carrera Docente dispondrá de un plazo máximo de seis meses contados a partir de la publicación de la presente resolución en el Diario Oficial La Gaceta, para coordinar, completar y publicar en el sitio web institucional www.dgsc.go.cr, sección Manuales, las descripciones de las clases de puestos docentes actualizadas y oficializadas del Título II de la Carrera Docente, conforme a la nueva estructura adoptada.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.-

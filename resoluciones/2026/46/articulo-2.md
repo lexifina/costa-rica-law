@@ -1,0 +1,1 @@
+Artículo 2º-Oficializar el Modelo de Competencias Laborales del Título II del Estatuto de Servicio Civil, el cual comprende el Diccionario de Competencias Laborales Docentes, los niveles de dominio competencial calibrados, así como los componentes estructurales del perfil ocupacional y las clases de puestos docentes asociadas.
