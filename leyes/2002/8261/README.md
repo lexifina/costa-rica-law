@@ -1,6 +1,6 @@
 # Ley General de la Persona Joven
 
-Ley N° 8261 del 2002-05-02. SINALEVI, ficha 48550: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48550&param2=149414&param3=1>.
+Ley N° 8261 del 2002-05-02. SINALEVI, ficha 48550: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48550&param2=151401&param3=1>.
 
 Publicada en La Gaceta N° 95 del 2002-05-20.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 20 | 2025-12-11 | Ley 10797 | 2025-11-12 |
 | 18 de 20 | 2026-01-07 | Ley 10823 | 2025-11-19 |
 | 19 de 20 | 2026-01-21 | Ley 10837 | 2025-12-15 |
+| 20 de 20 | 2026-06-08 | Ley 10896 | 2026-05-12 |
