@@ -1,0 +1,1 @@
+ARTÍCULO 2- Fin. Se establece que, a partir de la publicación de esta ley, el beneficiario de esta donación no podrá traspasar, vender, arrendar o gravar, de ninguna forma, el terreno donado, dado los fines públicos que esta donación persigue en bien de la educación.

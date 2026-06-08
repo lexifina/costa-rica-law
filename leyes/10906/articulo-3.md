@@ -1,0 +1,1 @@
+ARTÍCULO 3- Uso específico. El inmueble donado será utilizado únicamente para la reconstrucción, remodelación, mejoramiento y ampliación de las edificaciones destinadas al funcionamiento del Instituto Nacional de Aprendizaje, conforme a sus fines legales y competencias institucionales.
