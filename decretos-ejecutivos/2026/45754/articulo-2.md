@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. El presente reglamento es de aplicación para las personas propietarias y suplentes que integran la Comisión de Ética Institucional, y demás funcionarios que desempeñen labores en la Dirección Nacional de Notariado de forma permanente o temporal, en el ámbito de sus competencias.

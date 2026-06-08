@@ -1,0 +1,5 @@
+APÍTULO IV
+Disposiciones finales
+Articulo[Sic] 14: De la juramentación. La juramentación de las personas integrantes de la Comisión es un acto solemne que se lleva a cabo en la institución. Será realizada por el jerarca, en presencia de una persona representante de la Junta Directiva o de la Dirección Ejecutiva de la Comisión Nacional de Ética y Valores.
+Al acto de juramentación podrán asistir los titulares subordinados de la institución, como responsables junto con el jerarca, del fortalecimiento de la ética institucional, conforme la Ley de Control Interno y sus Normas, para reafirmar el compromiso de apoyar la Gestión Ética. En ese acto el Jerarca y las personas titulares subordinadas, reafirmarán el compromiso con la conducción de la gestión ética y de apoyo ala[Sic] comisión institucional.
+Los miembros de la Comisión de Ética y Valores prestarán juramento haciendo la declaración de, compromiso asumido expresa y solemnemente en el cumplimiento de los deberes para la conducción técnica de la gestión ética de la Institución.
