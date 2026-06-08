@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DEL SERVICIO CIVIL
+Resolución DGSC-DG-0068-2026.-Dirección General de Servicio Civil, a las quince horas del cuatro de marzo del dos mil veintiséis.
+Considerando:
+1º-Que el 18 de diciembre de 2025, esta Dirección General emitió la Resolución DGSC-DG-0420-2025, publicada en el Diario Oficial La Gaceta N° 33 del 18 de febrero de 2026, para los regular los lineamientos para determinar el carácter salarial en actos de reasignación.
+2º-Que el artículo 131 de la Ley General de la Administración Pública establece que todo acto administrativo tendrá uno o varios fines particulares a los cuales se subordinarán los demás, que en este caso el inciso c) del artículo 2° de la resolución citada, contravenía su fin principal.
+3º-Que, para cumplirlo, el Área de Gestión de Recursos Humanos y el Área de Organización del Trabajo del Área de Organización del Trabajo y Compensaciones, emitieron conjuntamente el informe técnico N° INFORME-DGSC-AGRH-0003-2026 / N° INFORME-DGSC-AOTC-0001-2026 del 26 de febrero del 2026, con el que recomendaron ajustar el inciso c) del artículo 2° de la citada resolución para mantener la coherencia y estandarización de los lineamientos técnicos aplicables a la modalidad de salario compuesto.
+4º-Que la Asesoría Jurídica de esta Dirección General revisó el texto de esta resolución, dictaminando que el mismo se encuentra ajustado a derecho, tal como se consignó en el Oficio N° CARTA DGSC-AJ-0042-2026 del 04 de marzo del 2026. Por tanto,
+El Director General a.í. del Servicio Civil, según el Acuerdo N° 169-P del 23 de diciembre del 2022, publicado en La Gaceta N° 11 del 23 de enero del 2023; y de conformidad con lo dispuesto en el numeral 9 del Estatuto de Servicio Civil, Ley N° 1581 del 30 de mayo de 1953, lo comunicado en el Oficio N° MIDEPLAN-DM-OF-0958-2024 del 27 de noviembre del 2024; en concordancia con las atribuciones conferidas por el Estatuto de Servicio Civil, su reglamento y las normas específicas aplicables.
+RESUELVE:
+Artículo 1º-Ajustar para mantener la coherencia y estandarización de los lineamientos técnicos aplicables a la modalidad de salario compuesto, el inciso c) del artículo 2 de la Resolución N° DGSC-DG-0420-2025, para que se lea como a continuación de cita:
+"c) Cuando el puesto esté ocupado por una persona servidora que devengue salario compuesto, la comparación deberá realizarse, entre el salario base actual devengado y el salario base de la clase propuesta."
+En todo lo demás se mantiene incólume la resolución.
