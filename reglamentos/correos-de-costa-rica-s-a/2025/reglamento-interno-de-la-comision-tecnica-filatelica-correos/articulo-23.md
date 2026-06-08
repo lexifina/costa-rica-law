@@ -1,0 +1,2 @@
+Artículo 23. Libros de Actas
+Los Libros de Actas, y cualquier otro documento que se genere será propiedad de Correos de Costa Rica y será tratado de acuerdo con los reglamentos internos del archivo y documentación institucional. El libro de actas, así como cualquier otro documento que se genere, permanecerá en custodia en las oficinas del Museo Filatélico que será la oficina encargada de brindar apoyo administrativo a la Comisión.

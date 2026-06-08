@@ -1,0 +1,3 @@
+Artículo 6. Sobre los Nombramientos
+Todos los miembros de la Comisión desempeñarán su labor durante 4 años ad-honorem. Los miembros podrán ser reelegidos por las autoridades pertinentes, por medio de una comunicación escrita, dirigida a la Junta Directiva de Correos de Costa Rica, enviada al Museo Filatélico dentro de los últimos 45 días del final del periodo en el que rige el nombramiento.
+Si hay reelección del miembro representante de las asociaciones filatélicas, la solicitud deberá surgir de las mismas asociaciones quienes serán responsables de enviar el nombre del representante reelecto al Poder Ejecutivo, dentro de los últimos 45 días antes de que venza el periodo de nombramiento vigente.

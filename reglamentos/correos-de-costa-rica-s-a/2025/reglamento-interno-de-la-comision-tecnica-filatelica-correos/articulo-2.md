@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación
+Las disposiciones establecidas en el presente Reglamento son de aplicación para la Comisión Técnica Filatélica que fungirá como órgano asesor, no vinculante, para la Junta Directiva de Correos de Costa Rica, en cuanto a la asesoría respecto a la conformación anual del "Plan de Emisiones Postales" en cumplimiento con lo enunciado en el artículo 9 bis de la Ley de Correos de Costa Rica S.A. Asimismo, se deberán aplicar en el tanto no contravengan lo establecido en normativa y leyes vigentes conexas.
