@@ -1,0 +1,1 @@
+Artículo 12°-Emisión de credenciales de incorporación. La fecha oficial de incorporación en la licencia profesional, certificado de incorporación y certificado de doctorado con razón social, será el día de juramentación de la persona profesional.

@@ -1,0 +1,1 @@
+Artículo 11°-Acto de Juramentación. Recibido el acuerdo de aprobación de la solicitud de incorporación, la UDP, procederá a convocar en fecha y hora al solicitante para participar del acto de juramentación para acreditar su incorporación.
