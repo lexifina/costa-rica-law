@@ -1,0 +1,1 @@
+Artículo 31.- De los recursos contra el acto fmal del procedimiento. Contra la resolución final procederán los recursos ordinarios establecidos en los artículos 343 y 345 en la Ley General de la Administración Pública. La resolución indicará el plazo para presentar los recursos y ante quienes deberán ser interpuestos.

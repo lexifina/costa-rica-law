@@ -1,0 +1,1 @@
+Artículo 34.- Plazo para culminar el procedimiento. El plazo máximo para concluir el procedimiento es de dos meses, a partir del momento de la interposición de la denuncia en la instancia respectiva. Ello sin perjuicio de que se amplíe el plazo debidamente motivado.

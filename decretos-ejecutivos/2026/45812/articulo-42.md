@@ -1,0 +1,1 @@
+Artículo 42.- Especialidad normativa. En tomo a la prevención y sanción del acoso laboral, tratándose de funcionarios del Ministerio de Gobernación y Policía, no resultan aplicables otros procedimientos plasmados en diferentes documentos que se contrapongan a las disposiciones del presente Reglamento.

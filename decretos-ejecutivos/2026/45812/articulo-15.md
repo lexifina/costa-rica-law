@@ -1,0 +1,2 @@
+Artículo 15.- De la aclaración de la denuncia.
+De considerar el órgano director que la denuncia planteada no es clara o presenta inconsistencias que podrían dificultar el derecho de defensa de la persona acusada o los derechos de la persona denunciante, podrá solicitarle a esta última que la aclare por escrito, para lo que, le otorgará un plazo de tres días hábiles. Lo anterior también podrá realizarlo la instancia decisora de previo a la conformación del Órgano Director.

@@ -1,0 +1,2 @@
+Artículo 30.- Resolución final del asunto. Concluido el procedimiento, quien se encuentre en el cargo de Ministro y/o Viceministro, según corresponda de conformidad con lo indicado en el artículo anterior; o bien, el Consejo de Personal (en el régimen policial), dictará la resolución final en un plazo máximo de un mes.
+Esta resolución deberá ser notificada a las partes, al medio señalado para tales efectos y que consta dentro del procedimiento administrativo disciplinario respectivo.
