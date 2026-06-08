@@ -1,1 +1,0 @@
-Artículo 8º—Protección a las personas con discapacidad. Los actos de comunicación deberán efectuarse de manera comprensible y accesible para la persona destinataria que presente algún tipo de discapacidad, garantizando el ejercicio de sus derechos y deberes en igualdad de oportunidades, sin ningún tipo de discriminación.

@@ -1,1 +1,0 @@
-Artículo 3º—Plazo de presentación. Para efectos del cómputo de los plazos, los recursos de impugnación presentados por medio de correo electrónico o fax fuera del horario de servicio oficial del Cosevi, se tendrán por ingresados al día siguiente.

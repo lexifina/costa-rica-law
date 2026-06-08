@@ -1,1 +1,0 @@
-Artículo 10.—Otras formas de notificar. Facúltese a las unidades de impugnación de Boletas de Citación del Cosevi, para que además de las formas de notificar previstas en este reglamento, ejecute otras modalidades de notificación, que las nuevas tecnologías permitan, siempre que se garantice la seguridad del acto de comunicación, el debido proceso y no se cause indefensión.
