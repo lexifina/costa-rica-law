@@ -1,0 +1,1 @@
+ARTÍCULO 8- Periodos de gracia. Los bancos podrán otorgar periodos de gracia al pago de créditos de las empresas en rescate, por un plazo que se definirá vía reglamento y previo estudio técnico y financiero.
