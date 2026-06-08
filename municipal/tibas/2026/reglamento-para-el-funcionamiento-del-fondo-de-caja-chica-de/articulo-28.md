@@ -1,0 +1,2 @@
+Artículo 28°-Cada solicitante deberá incluir la información que corresponda en el sistema informático de la municipalidad (si se tiene disponible): las facturas, montos, proveedores, rubros presupuestarios etc., antes de presentarse en la Tesorería para la liquidación de la Caja
+Chica. Si se omite este proceso, no se tomará como justificación por la no liquidación de una Caja Chica en el plazo establecido, y se considerará incumplimiento según el artículo 44 del presente reglamento.

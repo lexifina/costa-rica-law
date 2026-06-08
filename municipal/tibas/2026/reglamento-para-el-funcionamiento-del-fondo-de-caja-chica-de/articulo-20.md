@@ -1,0 +1,1 @@
+Artículo 20° -Una vez aprobado el vale de Caja Chica, se procederá a cargar el dinero en la tarjeta de débito correspondiente por parte del Departamento de Tesorería, por lo que, las solicitudes de Caja Chica serán recibidas hasta las 2:30 pm, posterior a esa hora, se deberán tramitar el día hábil siguiente.

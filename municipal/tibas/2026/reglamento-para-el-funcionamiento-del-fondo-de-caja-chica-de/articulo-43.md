@@ -1,0 +1,1 @@
+Artículo 43°-El encargado o responsable del fondo de Caja Chica, no podrá guardar documentos, efectivo o cheques de su propiedad particular, en los lugares destinados al fondo de caja chica, por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad.

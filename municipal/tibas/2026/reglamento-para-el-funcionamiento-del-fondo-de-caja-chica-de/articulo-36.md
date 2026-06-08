@@ -1,0 +1,1 @@
+Artículo 36°-Se confeccionarán reintegros de Caja Chica cuando se haya gastado hasta el 70% del fondo fijo con el propósito de darle la rotación óptima a los recursos y mantener suficiente liquidez en el fondo.

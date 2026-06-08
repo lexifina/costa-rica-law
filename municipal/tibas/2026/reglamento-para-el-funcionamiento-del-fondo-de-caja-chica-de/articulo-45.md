@@ -1,0 +1,1 @@
+Artículo 45°-Corresponderá a la Proveeduría y Tesorería el cumplimiento de este Reglamento, quienes comunicarán sobre los incumplimientos que se realicen al presente reglamento a los superiores inmediatos, sea la Dirección de Hacienda y el Alcalde o Alcaldesa Municipal según corresponda.

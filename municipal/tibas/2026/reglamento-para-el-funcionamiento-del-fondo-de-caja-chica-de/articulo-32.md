@@ -1,0 +1,1 @@
+Artículo 32°-Si realizado el arqueo, resulta una diferencia en el fondo de Caja Chica; esta debe ser justificada y en su defecto se realizará el procedimiento administrativo corresponde al funcionario responsable.

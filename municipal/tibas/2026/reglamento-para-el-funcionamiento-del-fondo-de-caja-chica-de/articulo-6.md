@@ -1,0 +1,1 @@
+Artículo 6º-Para las diferentes dependencias usuarias municipales, a excepción del Alcalde(sa), el monto máximo para efectuar una compra por cada vale será de un 10% del monto del total de la Caja Chica. Para el caso del Alcalde(sa), éste(a) podrá utilizar hasta la totalidad del fondo de Caja Chica disponible cuando así lo requiera.

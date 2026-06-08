@@ -1,0 +1,1 @@
+Artículo 23°-Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha realizado la solicitud, deberá hacerlo de conocimiento inmediato de forma escrita a la Tesorería, y anular la solicitud de Caja Chica.

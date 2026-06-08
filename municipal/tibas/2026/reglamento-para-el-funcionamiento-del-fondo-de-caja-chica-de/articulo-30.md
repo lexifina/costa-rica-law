@@ -1,0 +1,1 @@
+Artículo 30°-Una vez realizada la liquidación de los vales de Caja Chica, los documentos originales serán remitidos a la Proveeduría Municipal, para que realice los registros de gastos por Caja Chica en el sistema digital unificado y los regrese nuevamente a la Tesorería para su custodia.

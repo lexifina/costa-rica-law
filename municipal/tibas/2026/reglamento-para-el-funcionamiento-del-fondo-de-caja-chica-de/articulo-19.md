@@ -1,0 +1,1 @@
+Artículo 19° -La Caja Chica se realizará con la solicitud de recursos por el monto exacto a cancelar según la información de respaldo sobre el precio presentado por la dependencia usuaria del servicio.

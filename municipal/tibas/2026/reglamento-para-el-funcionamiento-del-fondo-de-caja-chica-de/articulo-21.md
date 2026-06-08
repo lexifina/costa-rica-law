@@ -1,0 +1,6 @@
+CAPÍTULO TERCERO
+De la liquidación
+Artículo 21º - Plazo para la liquidación de la Caja Chica. Los comprobantes de compra correspondientes al vale de Caja Chica deberán presentarse para su liquidación dentro de un plazo máximo de tres días hábiles. La liquidación debe incluir todos los comprobantes originales que sustenten las adquisiciones o servicios adquiridos.
+EXCEPCIONES AL PLAZO DE LIQUIDACIÓN: Se exceptúa del plazo anterior, aquellos casos en los que, al funcionario responsable de liquidar, le sea extendida una incapacidad médica imprevista, para tal efecto debe adjuntar fotocopia de la incapacidad en la liquidación respectiva, por única vez y así informarlo a su jefatura inmediata y al Departamento de Tesorería.
+EXCLUSIÓN A LA EXCEPIÓN ANTERIOR: Se excluyen de la excepción anterior las vacaciones, incapacidades por maternidad, permisos con o sin goce de salario, suspensiones, encontrarse de gira, asistencia a reuniones o actividades similares, siendo necesario la presentación de la liquidación respectiva en plazo y forma señalado.
+RESPONSABILIDAD: Si el funcionario no presenta la liquidación de la Caja Chica dentro del plazo previsto o no adjunta la copia de la incapacidad médica permitida dentro de la liquidación, será responsable de las sanciones establecidas para este tipo de incumplimiento.

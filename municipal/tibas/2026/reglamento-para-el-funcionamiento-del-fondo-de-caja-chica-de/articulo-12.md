@@ -1,0 +1,1 @@
+Artículo 12°-Los formularios con fecha de emisión mayor a 2 días hábiles que no hayan sido gestionados deberán ser debidamente anulados. Por lo tanto, sin excepción alguna el encargado del fondo de Caja Chica después de transcurridos estos 2 días hábiles, no entregará el monto solicitado.

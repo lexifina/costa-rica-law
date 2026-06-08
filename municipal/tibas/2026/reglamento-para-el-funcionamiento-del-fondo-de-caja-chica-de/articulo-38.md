@@ -1,0 +1,1 @@
+Artículo 38°-Por ningún motivo el funcionario podrá variar el objetivo inicial de una compra. Ni se pagarán aquellos bienes y servicios que fueron adquiridos previos a la autorización de un vale de Caja Chica.

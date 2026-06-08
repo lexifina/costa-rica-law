@@ -1,0 +1,1 @@
+Artículo 29°-La liquidación del documento de Caja Chica quedará formalizada cuando el funcionario haga entrega a la Tesorería de los documentos. La responsabilidad de constatar el ingreso de los bienes y servicios adquiridos será de la Jefatura inmediata superior de quien tramita la caja chica. Por lo que la Tesorería registra la cancelación de la Caja Chica.

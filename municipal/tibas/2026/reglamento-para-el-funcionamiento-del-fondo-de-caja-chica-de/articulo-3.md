@@ -1,0 +1,1 @@
+Artículo 3º-Este reglamento tiene por objeto regular la organización y el funcionamiento del fondo de Caja Chica que la Municipalidad de Tibás tenga establecido. Corresponde al despacho del Alcalde(sa) Municipal y la Dirección de Hacienda Municipal fijar los procedimientos de trámite interno que deben seguir los documentos que se emplean para utilizar estos fondos.

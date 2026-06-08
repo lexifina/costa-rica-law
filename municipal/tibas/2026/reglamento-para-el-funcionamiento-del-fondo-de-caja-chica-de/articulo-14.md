@@ -1,0 +1,2 @@
+De las compras de Caja Chica
+Artículo 14º-La Caja Chica trabajará mediante tarjetas de débito que se tendrá a disposición exclusivamente para atender los egresos por compra de bienes o servicios autorizados según lo indicado en este reglamento. Se aplicará la retención del 2% a las compras con montos superiores al salario base de un oficinista del Poder Judicial, según lo establecido en la normativa fiscal vigente. El funcionario solicitante de la Caja Chica tendrá la responsabilidad de informar de antemano al Proveedor la retención indicada.

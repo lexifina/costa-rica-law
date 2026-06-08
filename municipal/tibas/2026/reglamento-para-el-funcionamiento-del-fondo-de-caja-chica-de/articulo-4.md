@@ -1,0 +1,1 @@
+Artículo 4º-El fondo funcionará con un formulario, para la adquisición de bienes y/o servicios, a través de tarjetas de débito que serán entregadas a los funcionarios autorizados de la tramitación de cajas chicas.
