@@ -43,7 +43,8 @@ a. Estados financieros auditados del período económico inmediato anterior de l
 b. Proyecciones financieras anuales de todos los estados financieros de la controladora, individuales y consolidados, con sus respectivos supuestos, para los primeros tres años, de manera trimestral para el primer año y anual para los siguientes dos años de operación.
 c. Cuando proceda, estados financieros consolidados auditados del último periodo económico correspondientes al conglomerado internacional al que pertenecerá la entidad supervisada o el grupo financiero, resultante o prevaleciente.
 d. Identificación de los principales riesgos para el grupo o conglomerado financiero y para la empresa resultante o prevaleciente (mercado, crédito, tasa de interés, cambiario, imagen, liquidez, reputación, concentración, entre otros) aplicando escenarios de sensibilización a las proyecciones financieras, que se asumirían luego del proceso de fusión.
-e. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado para un periodo de doce meses, de conformidad con lo establecido en el Anexo XV del presente reglamento.
+e. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado para un periodo de doce meses, de conformidad con lo establecido en los lineamientos generales que emitan los superintendentes.
+(Así reformado el inciso anterior mediante sesiones N° 2025-2026 y 2026-2026 del 8° de junio de 2026)
 f. Informe sobre el impacto esperado en el perfil de riesgo del grupo o conglomerado financiero, con indicación de las exposiciones de riesgo que se asumen mediante el proceso de fusión, en cuanto a riesgo de crédito o de contraparte, riesgos de concentración, riesgos de mercado, riesgos de tasas de interés, riesgos cambiarios, riesgos operacionales u otros que la controladora considere relevantes.
 g. Descripción de manera detallada de la forma como del proceso de administración de riesgos del grupo o conglomerado financiero se ajustará para la gestión de riesgos de empresa resultante o prevaleciente, posterior a la fusión.
 4. Organización y gobernabilidad
@@ -83,12 +84,9 @@ Plan de fusión aprobado por los órganos de dirección o sus homólogos. Este p
 8. Adquisición y eliminación de activos relevantes (edificios, sistemas, equipos, entre otros).
 9. Movimiento físico de documentos.
 10. Cierre y apertura de oficinas.
-11. Elaboración de los asientos contables para el cierre de los saldos de los participantes, según
-corresponda, a la fecha de la fusión.
-12. Sustitución o revocatoria de los poderes conferidos en las empresas supervisadas
-involucradas.
+11. Elaboración de los asientos contables para el cierre de los saldos de los participantes, según corresponda, a la fecha de la fusión.
+12. Sustitución o revocatoria de los poderes conferidos en las empresas supervisadas involucradas.
 13. Trámite de disolución de una participante, cuando corresponda.
 14. Plan de cese de actividades, cuando corresponda.
 15. Plan de cambio de nombre, cuando corresponda.
-16. Notificación a la Caja Costarricense del Seguro Social en relación con el cambio de patrono
-de los empleados de las participantes.
+16. Notificación a la Caja Costarricense del Seguro Social en relación con el cambio de patrono de los empleados de las participantes.

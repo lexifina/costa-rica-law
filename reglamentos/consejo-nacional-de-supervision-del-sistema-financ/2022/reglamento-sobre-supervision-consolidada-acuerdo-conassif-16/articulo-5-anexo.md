@@ -10,7 +10,8 @@ a. En caso de disminuciones de capital social
 i. Monto de la variación.
 ii. Motivos de la disminución.
 iii. Cálculo y proyección para los primeros 12 meses del impacto en los estados financieros consolidados, aplicando escenarios de sensibilización a las proyecciones financieras del grupo o conglomerado financiero.
-iv. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado para un periodo de doce meses, de conformidad con lo establecido en el Anexo XV del presente reglamento.
+iv. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado para un periodo de doce meses, de conformidad con lo establecido en los lineamientos generales que emitan los superintendentes.
+(Así reformado el punto anterior mediante sesiones N° 2025-2026 y 2026-2026 del 8° de junio de 2026)
 b) En caso de incrementos de capital
 i. Monto del aumento.
 ii. Motivos del incremento.

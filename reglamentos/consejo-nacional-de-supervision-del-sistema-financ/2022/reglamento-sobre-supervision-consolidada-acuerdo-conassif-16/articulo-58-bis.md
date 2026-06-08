@@ -1,0 +1,18 @@
+Artículo 58 bis. Criterios de conformación de un grupo económico La controladora, las entidades y las empresas integrantes del grupo o conglomerado financiero forman parte de un grupo económico cuando se cumpla, al menos, uno de los siguientes criterios:
+1) Criterios para determinar la existencia de unidad de decisión:
+Existe "unidad de decisión" entre personas jurídicas u otras figuras jurídicas, tanto locales como extranjeras, incluso si estas realizan diferentes actividades económicas, cuando una de ellas administra, por decisión de todos o una parte sustancial de los elementos de mando o dirección empresarial, a una entidad o empresa del grupo o conglomerado financiero, respecto de la cual se presente, al menos, uno de los siguientes criterios:
+a) Tiene el control efectivo o posee el 50% o más de los votos en la asamblea de socios o del órgano equivalente, a través de acuerdos formales o informales con otros socios, accionistas o mediante delegación del voto, que le permitan alcanzar al menos el 50% de los votos.
+b) Tiene derecho a nombrar o destituir al 50% o más de los miembros del órgano de dirección.
+c) Más de la mitad de los miembros del órgano de dirección de una entidad o empresa del grupo o conglomerado financiero forman parte, al mismo tiempo, del órgano de dirección de una persona jurídica u otra figura jurídica que ejerce el control, u otra a la que esta última delega dicho control.
+d) Una persona jurídica u otra figura jurídica controla a una entidad o empresa del grupo o conglomerado financiero según los criterios de poder, rendimientos, relación entre poder y rendimientos, establecidos en la NIIF 10 Estados financieros consolidados.
+2) Criterios para determinar la existencia de una actuación en conjunto:
+Existe una actuación en conjunto cuando dos o más personas físicas, jurídicas u otras figuras jurídicas, han acordado, mediante un compromiso o entendimiento, ya sea formal o informal, verbal o escrito, actuar conjuntamente para ejercer influencia, control efectivo o tomar decisiones sobre:
+a) Acciones u otras participaciones de capital de una entidad o empresa de las que sean beneficiarios finales.
+b) Acciones o participaciones de capital de las que sean beneficiarios finales, correspondientes a cualquier entidad o empresa que, a su vez, sea propietaria de acciones o participaciones en una entidad o empresa perteneciente al grupo o conglomerado financiero.
+c) Acciones o participaciones de capital que posean de cualquier empresa que controla a otra empresa que, a su vez, posea acciones de una entidad financiera del grupo o conglomerado financiero.
+En estos casos se considera que dichas personas actúan como una sola persona que adquiere la propiedad efectiva de la entidad financiera del grupo o conglomerado financiero.
+3) Criterios para identificar el control por decisiones estratégicas:
+Una persona jurídica u otra figura jurídica toma las decisiones estratégicas o dirige una o varias entidades o empresas que conforman el grupo o conglomerado financiero.
+4) Criterios para identificar una dependencia económica:
+Una o varias empresas del grupo o conglomerado financiero dependen significativamente de otras entidades o empresas, en aspectos tales como: la obtención de ingresos, suministro de bienes y servicios, acceso a mercados, flujos de efectivo, entre otros, cuando la interrupción o alteración de dichas relaciones afecte la continuidad operativa, la situación financiera o el cumplimiento de los objetivos estratégicos de la entidad. Dicha dependencia debe determinarse de conformidad con la naturaleza, tamaño, complejidad, modelo de negocio y riesgos de las entidades involucradas.
+(Así adicionado mediante sesiones 2025-2026 y 2026-2026 del 8 de junio de 2026)

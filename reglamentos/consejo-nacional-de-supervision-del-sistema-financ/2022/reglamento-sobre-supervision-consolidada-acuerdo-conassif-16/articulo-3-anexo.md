@@ -64,7 +64,8 @@ b. Calificación de riesgo vigente otorgada por una agencia de calificación y s
 c. Identificación de los principales riesgos (mercado, crédito, tasa de interés, cambiario, imagen, liquidez, reputación, concentración, entre otros) aplicando escenarios de sensibilización a las proyecciones financieras.
 d. Proyecciones financieras anuales de todos los estados financieros de la controladora, individuales y consolidados, con sus respectivos supuestos, para los primeros tres años, de manera trimestral para el primer año y anual para los siguientes dos años de operación.
 Así como la estimación del plazo para alcanzar el punto de equilibrio.
-e. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado, de conformidad con lo establecido en el Anexo XV del presente reglamento, para el primer año de manera trimestral.
+e. Informe sobre el cálculo de la suficiencia patrimonial del grupo o conglomerado financiero proyectado, de conformidad con lo establecido en los lineamientos generales que emitan los Superintendentes, para el primer año de manera trimestral.
+(Así reformado el inciso anterior mediante sesiones N° 2025-2026 y 2026-2026 del 8° de junio de 2026)
 f. Cuando proceda, indicación de las exposiciones de riesgo que se asumen mediante las actividades de la empresa extranjera, en cuanto a riesgo de crédito o de contraparte, riesgos de concentración, riesgos de mercado, riesgos de tasas de interés, riesgos cambiarios, riesgos operacionales u otros que la controladora considere relevantes.
 g. Descripción de manera detallada del proceso de administración de riesgos del grupo o conglomerado financiero.
 h. La información de los incisos a) y b) de esta sección no es requerida para entidades supervisadas por alguna de las superintendencias.

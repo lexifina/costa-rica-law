@@ -1,7 +1,5 @@
-Artículo 73. Relación financiera significativa
-Existe una relación financiera significativa entre dos personas cuando se presente cualquiera de las siguientes situaciones:
+Artículo 73. Relación financiera significativa. Existe una relación financiera significativa entre dos personas cuando se presente cualquiera de las siguientes situaciones:
 a) El 40% o más del monto de las ventas o de las compras de productos y servicios de una persona se origina en transacciones con otra persona, monto que se determina sobre una base anual, conformada por los últimos cuatro trimestres calendario;
-b) Una persona jurídica u otra figura jurídica otorga una garantía o un crédito a otra persona por el 10% o más del patrimonio de quien lo otorgó, excepto las garantías y créditos otorgadas por las entidades supervisadas por SUGEF;
-c) Cuando se da una relación de deudor con su codeudor o codeudores, o
-d) El supervisor responsable determina la existencia de una relación financiera significativa entre dos o más deudores que presentan un riesgo correlacionado, con base en una evaluación de los hechos y circunstancias de las relaciones económicas y financieras en particular.
-El supervisor responsable, mediante resolución razonada, debe comunicar a la controladora los motivos por los cuales ha considerado que existe una relación financiera significativa entre determinadas personas, de conformidad con el inciso d) anterior. En dicha resolución, se otorga un plazo máximo de cinco días hábiles para que la controladora ofrezca los argumentos y aporte la prueba que estime pertinente en oposición a lo indicado por el supervisor responsable. De igual manera, el supervisor responsable puede proceder cuando determine la existencia de relaciones administrativas y patrimoniales significativas que se describen en los artículos 74 y 75.
+b) Una persona jurídica u otra figura jurídica otorga una garantía o un crédito a otra persona por el 10% o más del patrimonio de quien lo otorgó, excepto las garantías y créditos otorgadas por las entidades supervisadas por Sugef, o
+c) Cuando se da una relación de deudor con su codeudor o codeudores.
+(Así reformado mediante sesiones N° 2025-2026 y 2026-2026 del 8° de junio de 2026)

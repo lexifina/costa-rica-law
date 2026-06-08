@@ -1,3 +1,3 @@
-Artículo 93. Capital base de una empresa supervisada
-El capital base de una empresa perteneciente a un grupo o conglomerado financiero, se determina como el monto que resulte de la suma del capital nivel 1 más el capital nivel 2 menos las deducciones, definidos en el Capítulo V de este reglamento. El cálculo de este capital se detalla en el Anexo XIV.
+Artículo 93. Capital base de una empresa supervisada. El capital base de una empresa perteneciente a un grupo o conglomerado financiero, se determina como el monto que resulte de la suma del capital nivel 1 más el capital nivel 2 menos las deducciones, definidos en el Capítulo V de este reglamento. El cálculo de este capital se detalla en los lineamientos generales que emitan los superintendentes.
+(Así reformado el párrafo anterior mediante sesiones N° 2025-2026 y 2026-2026 del 8 de junio de 2026)
 Si la empresa extranjera es regulada en su jurisdicción de origen, el capital base corresponde al que se obtenga de la aplicación de las normativas prudenciales sobre suficiencia de capital con base en riesgos, aplicada por el respectivo supervisor de origen, o en su defecto por lo señalado en el artículo anterior.

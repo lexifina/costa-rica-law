@@ -1,4 +1,2 @@
 ANEXOS XIII, XIV Y XV
-Suficiencia Patrimonial
-[imagen]
-Anexos SP GF.xlsx
+ANEXO XIII (Derogado mediante sesiones N° 2025-2026 y 2026-2026 del 8 de junio de 2026)
