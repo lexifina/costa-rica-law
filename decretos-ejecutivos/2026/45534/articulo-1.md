@@ -1,0 +1,14 @@
+Nº 45534-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+El MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública N° 6227 del 1° de diciembre de 1978, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N°218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación de Salud Integral del Cantón de Vásquez de Coronado, cédula jurídica número tres- cero cero dos- cero noventa y dos mil doscientos dos, se inscribió en el Registro de Asociaciones del Registro Público el siete de julio de mil novecientos ochenta y siete, al tomo trescientos sesenta, asiento diez mil doscientos treinta y seis.
+III.-Que el artículo 32 de la Ley de Asociaciones establece: "(.) En cualquier momento, el Ministerio de Justicia y Paz, revocará este beneficio, si desaparecen los motivos por los cuales fue concedido. (.)" . Asimismo, el numeral 33 ter del Reglamento a la Ley de Asociaciones, indica: "En caso de que alguna asociación renuncie a la declaratoria de utilidad pública, deberá presentar la documentación correspondiente ante la Asesoría Jurídica del Ministerio de Justicia y Paz quien, sin más trámite, procederá a realizar la derogatoria."
+IV.-Que la Asociación de Salud Integral del Cantón de Vásquez de Coronado, por medio de su representante legal el señor Harrison Rojas Jiménez, portador de la cédula de residencia número uno uno siete cero cero cero tres siete dos cinco dos dos y la señora Mónica Viviana Piedra Valverde, en calidad de tesorera, portadora de la cédula de identidad número uno - mil trescientos noventa y seis - cero doscientos ochenta y seis, manifestaron la renuncia formal al beneficio de la declaratoria de utilidad pública. Por tanto,
+Decretan:
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+DE LA ASOCIACIÓN DE SALUD INTEGRAL
+DEL CANTÓN DE VÁSQUEZ DE CORONADO
+Artículo 1º-Dejar sin efecto el Decreto Ejecutivo N° 23016-J del veintitrés de febrero de mil novecientos noventa y cuatro, publicado en el Diario Oficial La Gaceta N° 54 del diecisiete de marzo de mil novecientos noventa y cuatro, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación de Salud Integral del Cantón de Vásquez de Coronado, cédula jurídica número tres- cero cero dos- cero noventa y dos mil doscientos dos.
