@@ -17,3 +17,4 @@ Reglamento de Organización y Funciones de la Dirección de la Policía de Contr
 | 2 | 2015-10-06 | Decreto Ejecutivo 39305 (2015-10-06) |
 | 3 | 2018-06-01 | Decreto Ejecutivo 41198 (2018-06-01) |
 | 4 | 2021-03-04 | Decreto Ejecutivo 42920 (2021-03-04) |
+| 5 | 2026-06-09 | Decreto Ejecutivo 45832 (2026-06-09) |
