@@ -1,0 +1,2 @@
+Del Hijo (a) Predilecto (a)
+Artículo 2.º-La Declaratoria de Hijo(a) Predilecto(a), será considerada como el máximo reconocimiento que puede otorgar la Municipalidad a una persona que haya destacado especialmente en la hidalguía y el trabajo altruista en beneficio de los habitantes del cantón. Se otorgará máximo uno al año, el día 27 de julio, en sesión Solemne que se realice en conmemoración del aniversario del Cantonato de Tibás.
