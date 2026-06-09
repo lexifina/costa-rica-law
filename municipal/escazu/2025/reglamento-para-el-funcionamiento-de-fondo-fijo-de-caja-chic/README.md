@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de fondo fijo de caja chica de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-02 | la propia norma |
+| 2 | 2026-06-09 | Reglamento municipal 110 (2026-06-09) |
