@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Palmares, cédula jurídica tres cero uno cuatro cero cuatro dos cero siete uno (3-014-042071), a donar el inmueble descrito en el artículo anterior a la Asociación de Desarrollo Integral de Zaragoza de Palmares, cédula jurídica tres cero cero dos cero cinco doce cero siete (3-002-051207).
