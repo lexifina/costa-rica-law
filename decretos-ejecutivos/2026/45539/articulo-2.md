@@ -1,0 +1,1 @@
+Artículo 2º-Es deber de la Asociación rendir anualmente un informe de gestión ante el Ministerio de Justicia y Paz, de conformidad con lo indicado en los artículos 32 y 32 bis del Reglamento a la Ley de Asociaciones.
