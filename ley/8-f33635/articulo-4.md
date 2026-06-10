@@ -1,2 +1,3 @@
 Artículo 4.- Ningún tribunal puede avocar el conocimiento de causas pendientes ante otro. En casos muy calificados, se puede pedir un expediente ad effectum videndi, por no más de diez días.
-Si el expediente fuere retenido, injustificadamente, por mayor tiempo, se impondrá al omiso, salvo en el caso de fuerza mayor, una de las sanciones establecidas en el artículo 195, la cual será acordada si lo solicita parte interesada.
+Si el expediente fuere retenido injustificadamente por mayor tiempo, la persona responsable podrá ser sujeta del régimen sancionador previsto en la Ley de Régimen Sancionador de Personas Servidoras e Integrantes de Listas de Suplentes, Elegibles y Meritorias del Poder Judicial, cuando así lo solicite parte interesada.
+(Así reformado el párrafo anterior por el artículo 232 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026)

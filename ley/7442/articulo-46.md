@@ -1,4 +1,1 @@
-Artículo 46.- Sanciones de los jefes de oficina. Los jefes de
-oficina también podrán imponer sanciones disciplinarias a sus empleados
-subalternos, siempre que no excedan de quince días de suspensión. En el
-caso de suspensión cabrá recurso de apelación ante el Fiscal General.
+Artículo 46.- (Derogado por el artículo 237 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)

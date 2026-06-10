@@ -1,0 +1,5 @@
+ARTÍCULO 32- Trámite de la inhibitoria del órgano decisor y el Tribunal Administrativo Sancionador de Apelación
+Cuando el motivo de impedimento afectare a un órgano decisor o al Tribunal Administrativo Sancionador de Apelación, se procederá en la forma prevista por el artículo anterior y con los siguientes criterios:
+1- Si se tratare de una persona miembro de una sección o cuerpo colegiado de los órganos referidos, su resolución corresponderá a la restante integración por simple mayoría sin que para tal efecto sean aplicables las reglas del cuórum estructural.
+2- Si la causal comprendiere a todas las personas que integran la sección o cuerpo colegiado, su resolución corresponderá a otra conformación colegiada dentro del mismo órgano o, en su defecto, a las personas suplentes que se designen conforme lo dispone la Ley 8, Ley Orgánica del Poder Judicial, del 29 de noviembre de 1937.
+3- Si se tratare de una dirección de un órgano auxiliar de justicia, lo conocerá el Tribunal Administrativo Sancionador.

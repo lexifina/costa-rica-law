@@ -1,0 +1,3 @@
+TRANSITORIO VI- Eliminación de registros de sanciones
+En el plazo máximo de un año, contado a partir de la publicación en el diario oficial La Gaceta, la Dirección de Gestión Humana del Poder Judicial deberá eliminar de los expedientes del personal judicial los registros de las sanciones cuyo plazo haya transcurrido conforme al artículo 229 de esta ley.
+Las sanciones de advertencias contempladas en el artículo 195 de la Ley 8, Ley Orgánica del Poder Judicial, del 29 de noviembre de 1937, impuestas previo a la entrada en vigencia de esta ley, se mantendrán anotadas en los expedientes de las personas sancionadas durante un año desde que adquirieron firmeza; vencido este plazo, la Dirección de Gestión Humana las eliminará de oficio.

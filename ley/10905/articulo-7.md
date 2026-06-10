@@ -1,0 +1,12 @@
+ARTÍCULO 7- Corrupción
+Para efectos de la aplicación de esta ley, se entenderá por corrupción el abuso o uso indebido del poder, recursos públicos, funciones y atribuciones públicas, para obtener o conceder beneficios particulares, en contravención de las disposiciones legales y la normativa existente. Serán actos de corrupción de las personas servidoras judiciales y de quienes integren las listas de suplentes, elegibles o meritorias para diferentes puestos en el Poder Judicial :
+1- Requerir o aceptar, directa o indirectamente, cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas para sí mismo o para otra persona o entidad, a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones, bajo cualquier modalidad o denominación.
+2- Ofrecer u otorgar, directa o indirectamente, a otra persona servidora pública, cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas para esa persona servidora o para otra persona o entidad a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones, bajo cualquier modalidad o denominación.
+3- Realizar cualquier acción u omisión con el fin de obtener ilícitamente beneficios para sí mismo o para un tercero.
+4- Aprovechar u ocultar, mediando dolo o culpa grave, bienes provenientes de cualesquiera de los actos a los que se refiere el presente artículo.
+5- Conocer, asesorar, auxiliar, opinar, influir de cualquier forma, participar en la discusión o resolver asuntos sometidos a su conocimiento por el ejercicio de sus funciones, ya sea individualmente o integrando un órgano colegiado, encontrándose en un conflicto de interés.
+6- Utilizar o aprovechar cualquier facultad otorgada para el desempeño del cargo público, para obtener o conceder beneficios particulares.
+7- Desviar la gestión de los fondos públicos, ejerciendo las facultades o competencias otorgadas en razón del cargo, con una finalidad distinta a la conferida para el cumplimiento de sus deberes y competencias públicas.
+8- Divulgar información para otorgar una ventaja indebida a personas físicas o jurídicas.
+9- Participar en grado de autoría, coautoría, instigación, complicidad, encubrimiento o en cualquier otra forma en la comisión de cualquiera de los actos descritos en el presente artículo.
+10- Cualquier otra conducta calificada así por el ordenamiento jurídico.

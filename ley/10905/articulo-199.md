@@ -1,0 +1,6 @@
+ARTÍCULO 199- Requisitos formales del acto final
+Además de los requisitos formales propios de todo acto administrativo, el acto final deberá contener
+al menos:
+1- Un encabezamiento que incluirá la mención del órgano, el lugar y fecha en que se dicta, el número del expediente, nombre de quienes integran el órgano, las partes e intervinientes, y la descripción o denominación de la falta atribuida.
+2- Una parte considerativa en la que se resolverán las excepciones o incidencias que no se resolvieron de forma previa; se determinarán de manera clara, precisa y circunstanciada los hechos de importancia para la decisión, que se tuvieron por acreditados y no acreditados; se realizará un análisis y valoración de los hechos atribuidos y acreditados, las cuestiones alegadas por las partes e intervinientes y la prueba, con una debida fundamentación intelectiva, fáctica y jurídica, de manera que queden claramente establecidos los motivos por los que se arribó a la determinación concreta en el procedimiento; cuando proceda, se determinará y fundamentará la calificación de la falta y la sanción impuesta.
+3- Una parte dispositiva que será el contenido concreto de la resolución y establecerá la decisión tomada, así como los recursos que procedan en su contra.

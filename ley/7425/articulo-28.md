@@ -1,2 +1,2 @@
-ARTÍCULO 28.- Uso restringido de la información.
-Los resultados de la intervención de las comunicaciones orales o escritas no podrán ser utilizados para ningún propósito distinto del que motivó la medida.
+Artículo 28- Los resultados de la intervención de las comunicaciones orales o escritas no podrán ser utilizados para ningún propósito distinto del que motivó la medida. Pero dicha prueba podrá ser trasladada y utilizada en los procedimientos sancionatorios por faltas de corrupción regulados en la Ley de Régimen Sancionador de Personas Servidoras e Integrantes de Listas de Suplentes, Elegibles y Meritorias del Poder Judicial.
+(Así reformado por el artículo 240 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)

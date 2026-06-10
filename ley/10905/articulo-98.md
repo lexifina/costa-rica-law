@@ -1,0 +1,3 @@
+ARTÍCULO 98- Actos
+Las conductas administrativas formales que emita el órgano con potestad sancionadora serán de mero trámite con o sin efecto propio; actos finales cuando pongan f in a la fase constitutiva del procedimiento y serán actos definitivos los que resuelvan un recurso interpuesto en contra del acto final dando por agotada la vía administrativa.
+Los actos se podrán emitir por escrito o de manera oral durante la comparecencia, salvo el acto final que deberá ser escrito. Cuando se emitan por escrito, deberán incluir los nombres y firmas de quienes integraron el órgano; siempre deberán señalar el lugar y fecha en que se dictaron.

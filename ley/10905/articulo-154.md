@@ -1,0 +1,4 @@
+ARTÍCULO 154- Trámite
+Solicitada la medida cautelar, el órgano decisor dará audiencia a las partes e intervinientes por tres días, salvo lo previsto en el artículo siguiente. Transcurrido ese plazo resolverá lo procedente.
+Todo acto administrativo emitido por el órgano decisor, en relación con medidas cautelares, deberá ser debidamente fundamentado y comunicarse de forma inmediata, a f in de lograr su pronta y debida ejecución.
+En caso de cuestionarse la competencia al momento en que deba adoptarse una medida cautelar de oficio o a gestión de parte, esta podrá decretarse de previo a la remisión del expediente al órgano que resolverá el conflicto de competencia. En caso de determinarse la incompetencia del órgano que ordenó la medida cautelar, esto no acarreará la nulidad de dicho acto, pero podrá ser revisado oficiosamente por el órgano competente para determinar si mantiene, modifica o revoca lo dispuesto.

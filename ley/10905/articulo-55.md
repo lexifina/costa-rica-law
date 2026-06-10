@@ -1,0 +1,3 @@
+ARTÍCULO 55- Potestad de valoración preliminar
+Corresponderá a quien presida la Corte valorar, de manera preliminar, las denuncias contra las personas servidoras señaladas en el artículo 49 de esta ley y podrá decretar su rechazo de plano, cuando se estuviera ante alguno de los supuestos contemplados en el artículo 166 de esta ley, salvo que se trate de conductas que puedan configurar faltas que constituyan corrupción.
+A estos efectos, podrá hacerse asesorar por las personas servidoras judiciales que estime pertinente, quienes estarán cubiertos por el deber de confidencialidad regulado en el artículo 19 de esta ley.

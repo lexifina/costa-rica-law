@@ -1,0 +1,4 @@
+ARTÍCULO 82- Denunciante cualificado
+Será denunciante cualificado aquella persona, física o jurídica, privada o pública, directamente afectada por la conducta denunciada, que pone en conocimiento del órgano competente el presunto hecho que configura falta, siempre que solicite ostentar tal condición.
+La persona denunciante cualificado tendrá la condición de parte en el procedimiento, le asistirán todos los derechos del debido proceso, de modo que podrá presentar alegatos, ofrecer prueba, participar en la producción de esta, desistir de la denuncia, designar representación técnica, pactar una terminación convencional del asunto por medio de justicia restaurativa y presentar los recursos ordinarios dispuestos en esta ley.
+Corresponde a la persona denunciante demostrar por medios idóneos la afectación directa causada por la conducta denunciada, para constituirse como denunciante cualificado, de lo contrario se reputará como denunciante simple.

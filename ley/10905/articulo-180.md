@@ -1,0 +1,3 @@
+ARTÍCULO 180- Procedimiento contra persona suplente, elegible o meritoria sin nombramiento activo
+En los casos que se dé apertura al procedimiento contra persona suplente, elegible o meritoria que no tiene nombramiento activo en el Poder Judicial, se continuará y podrá finalizar, pero únicamente a f in de determinar la imposición de una de las sanciones de exclusión de la lista de suplentes, elegibles o meritorias contempladas en esta ley.
+Si la persona suplente o elegible se encuentra con un nombramiento activo en el Poder Judicial, se podrá imponer cualquiera de las sanciones previstas en el artículo 26 de esta ley.

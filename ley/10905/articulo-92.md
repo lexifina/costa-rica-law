@@ -1,0 +1,3 @@
+ARTÍCULO 92- Medios tecnológicos
+Los distintos actos del procedimiento, aún la recepción de prueba, se podrán realizar por los medios tecnológicos autorizados por el Poder Judicial, siempre que permitan la comunicación bidireccional y simultánea de imagen y sonido, la interacción visual, auditiva y verbal entre quienes participen.
+Cuando por medios tecnológicos se realicen actos del procedimiento en el que las partes o la fuente de prueba se encontrara en el extranjero, se aplicarán las formalidades establecidas en esta ley y el acto se tendrá como realizado en el territorio nacional para todos sus efectos.

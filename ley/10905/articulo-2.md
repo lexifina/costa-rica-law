@@ -1,0 +1,4 @@
+ARTÍCULO 2- Ámbito de aplicación
+Esta ley se aplicará a toda persona servidora judicial, sin importar su condición de propietaria, interina o meritoria, con nombramiento activo, que presuntamente haya incurrido en una conducta que pudiera configurar una falta y contra quien se siga un procedimiento para determinar su eventual responsabilidad.
+De igual manera, se aplicará a quien disfrute de un permiso con o sin goce de salario, o a quien le haya cesado la relación de servicio, siempre que el procedimiento haya dado inicio previo al cese de la relación, salvo lo dispuesto en el párrafo siguiente.
+Se aplicará además a quien integre las listas de suplentes, elegibles o meritorias para diferentes puestos en el Poder Judicial, sin nombramiento activo, únicamente a efectos de determinar la posible exclusión de las listas que integran, sin que esto constituya una sanción disciplinaria.

@@ -1,0 +1,3 @@
+ARTÍCULO 211- Trámite
+El recurso de revocatoria deberá formularse ante el órgano que dictó la resolución, dentro del término de veinticuatro horas y con indicación, aunque sea sucinta, de los motivos concretos de la impugnación. El órgano competente resolverá de manera fundada dentro de los ocho días posteriores a su presentación, pero podrá reservar su resolución para la audiencia oral o el acto final, según corresponda, lo cual se comunicará a las partes e intervinientes del procedimiento.
+Si el acto objeto de recurso se dicta durante la audiencia oral, la revocatoria deberá interponerse inmediatamente después de su comunicación, en forma oral y de manera fundada; quien dirija la audiencia resolverá en igual forma lo que en derecho corresponda en ese mismo acto.

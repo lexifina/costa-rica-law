@@ -1,5 +1,1 @@
-Artículo 51.- Corresponderá a la Dirección General la imposición de
-las sanciones, excepto la de revocatoria del nombramiento, la cual sólo
-podrá ser aplicada por la Corte Plena. A este tribunal corresponderá
-sancionar la faltas que cometan el Director General, el Subdirector, el
-Secretario General y los Jefes Departamentales.
+Artículo 51.- (Derogado por el artículo 235 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)

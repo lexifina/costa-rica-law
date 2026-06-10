@@ -1,0 +1,2 @@
+ARTÍCULO 172- Duración de la investigación preliminar
+La investigación preliminar deberá realizarse en un plazo de hasta seis meses. Cuando la falta investigada involucre corrupción, será de hasta un año. Si el plazo dispuesto venciera sin que se haya dado apertura al procedimiento, se reanudará el cómputo del plazo establecido en el artículo 124 de esta ley, sin perjuicio de la continuación de la investigación preliminar.

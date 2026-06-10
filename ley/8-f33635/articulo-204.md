@@ -1,6 +1,2 @@
-Artículo 204.- Será rechazada de plano toda queja que se refiera exclusivamente a problemas de interpretación de normas jurídicas.
-Sin embargo, en casos de retardo o errores graves e injustificados en la administración de justicia, el Tribunal de la Inspección Judicial , sin
-más trámite deberá poner el hecho en conocimiento de la Corte Plena , para que esta, una vez hecha la investigación del caso, resuelva sobre la
-permanencia, suspensión o separación del funcionario.
-(Así reformado por el artículo 7° de la Ley N° 7728 de 15 de diciembre de 1997)
+Artículo 204.- (Derogado por el artículo 231 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026. Se hace constar que el artículo 231 de la Ley N° 10905 antes mencionada, indica derogar el numeral 199, presenta un error de referencia numérica. Debido a la reestructuración numérica dispuesta por el artículo 1° de la Ley N° 10866 del 4 de marzo de 2026, el antiguo artículo 199 fue renombrado como artículo 204. En consecuencia, la derogatoria del artículo 199 debe entenderse aplicada correctamente al artículo 204.)
 (Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 199 al artículo 204)

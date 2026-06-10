@@ -1,0 +1,4 @@
+ARTÍCULO 170- Carácter unilateral y confidencial
+La investigación preliminar se realizará unilateralmente por parte del órgano director, tendrá carácter privado y mientras no concluya, la prueba recopilada y dictámenes o informes emitidos, serán confidenciales para cualquier persona, aún para la denunciante y la investigada.
+No se informará a la persona investigada sobre las actuaciones que se están realizando, salvo que sea para solicitarle que rinda un informe, en cuyo caso tendrá derecho a no constituir prueba en su perjuicio.
+Cuando se dé apertura al procedimiento, deberá ponerse toda la información y prueba recabada a disposición de la persona encausada, para que pueda oportunamente ejercer su derecho de defensa; de igual manera, quien constituya denunciante cualificado podrá tener acceso a las actuaciones, a f in de ejercer los derechos del debido proceso que le asisten.

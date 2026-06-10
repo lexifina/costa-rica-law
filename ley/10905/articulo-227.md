@@ -1,0 +1,2 @@
+ARTÍCULO 227- Sanción de exclusión de lista de suplentes, elegibles o meritorias
+A la persona que ha sido sancionada con exclusión temporal de una lista de suplentes, elegibles o meritorias, no se le podrá nombrar durante el plazo que se impuso. Tratándose de la exclusión definitiva, no podrá reingresar por un período de diez años y deberá someterse nuevamente al procedimiento correspondiente para ingresar a las listas de suplentes, elegibles o meritorias, de previo a optar por un nombramiento.

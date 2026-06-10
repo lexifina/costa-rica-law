@@ -1,0 +1,2 @@
+ARTÍCULO 99- Motivación de los actos
+Los actos de mero trámite sin efecto propio no requerirán de una motivación y bastará con la remisión a la norma que las sustenta; los de efecto propio tendrán una motivación sucinta pero suficiente; y los actos que ponen f in a los procedimientos o deciden respecto del fondo de los hechos sujetos al régimen sancionador deberán ser suficientemente fundamentados en las circunstancias de hecho y derecho que llevaron a la decisión del órgano, conforme a las reglas de la sana crítica y a lo planteado por las partes interesadas.

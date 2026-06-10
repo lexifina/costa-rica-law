@@ -1,0 +1,3 @@
+ARTÍCULO 153- Requisitos de valoración
+Para otorgar o denegar una medida cautelar, el órgano decisor deberá valorar el principio de proporcionalidad, ponderando la eventual lesión al interés público, los daños y los perjuicios provocados con la medida a terceras personas, así como los caracteres de instrumentalidad y provisionalidad que debe tener la medida, de modo que no se afecte la gestión sustantiva de la institución, ni se afecte en forma grave la situación jurídica de terceras personas.
+También, deberá valorar las posibilidades y previsiones financieras que la institución deberá efectuar para la ejecución de la medida cautelar.

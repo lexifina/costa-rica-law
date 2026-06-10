@@ -1,0 +1,2 @@
+ARTÍCULO 4- Responsabilidades no excluyentes
+El régimen sancionador regulado en esta ley se entiende sin perjuicio de la responsabilidad civil y penal en la que puedan incurrir las personas servidoras judiciales y quienes integren las listas de suplentes, elegibles o meritorias, así como del ejercicio de las potestades sancionadoras de la Contraloría General de la República, que se harán efectivas en la forma prevista en la normativa que las regulan; todo en resguardo del principio regulado en el artículo 14 de esta ley.
