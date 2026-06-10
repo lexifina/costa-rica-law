@@ -1,4 +1,4 @@
 CAPITULO III
 DE LAS FALTAS Y SANCIONES
-Artículo 195.- Las faltas cometidas por los servidores judiciales en el ejercicio de sus cargos se clasifican en gravísimas, graves y leves.
+Artículo 195.- (Derogado por el artículo 231 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026. Se hace constar que el artículo 231 de la Ley N° 10905 antes mencionada, indica derogar el numeral 190, presenta un error de referencia numérica. Debido a la reestructuración numérica dispuesta por el artículo 1° de la Ley N° 10866 del 4 de marzo de 2026, el antiguo artículo 190 fue renombrado como artículo 195. En consecuencia, la derogatoria del artículo 190 debe entenderse aplicada correctamente al artículo 195.)
 (Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 190 al artículo 195)

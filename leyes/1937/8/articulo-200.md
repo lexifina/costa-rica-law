@@ -1,7 +1,2 @@
-Artículo 200.- Las sanciones que se puedan imponer a los servidores del Poder Judicial por las faltas cometidas en el ejercicio de sus cargos son:
-a) Advertencia.
-b) Amonestación escrita.
-c) Suspensión.
-ch) Revocatoria del nombramiento.
-Las faltas leves sólo podrán sancionarse con advertencia o amonestación escrita; las graves, con amonestación escrita o suspensión hasta por dos meses y las gravísimas, con suspensión o revocatoria de nombramiento.
+Artículo 200.- (Derogado por el artículo 231 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026. Se hace constar que el artículo 231 de la Ley N° 10905 antes mencionada, indica derogar el numeral 195, presenta un error de referencia numérica. Debido a la reestructuración numérica dispuesta por el artículo 1° de la Ley N° 10866 del 4 de marzo de 2026, el antiguo artículo 195 fue renombrado como artículo 200. En consecuencia, la derogatoria del artículo 195 debe entenderse aplicada correctamente al artículo 200.)
 (Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 195 al artículo 200)

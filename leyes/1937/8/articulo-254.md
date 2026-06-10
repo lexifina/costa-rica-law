@@ -1,2 +1,7 @@
-Artículo 254.- Las funciones no jurisdiccionales asignadas a la Corte, mediante leyes promulgadas con anterioridad a ésta, son, en adelante, de competencia del Consejo, con las excepciones que esta Ley establece.
-(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 249 al artículo 254)
+TITULO XI
+DISPOSICIONES FINALES
+CAPITULO UNICO
+Artículo 254.- Los servidores judiciales tendrán derecho a un sueldo adicional en el mes de diciembre de cada año, excepto si han servido menos de un año, en cuyo caso les corresponderá una suma proporcional al tiempo servido.
+Dicho sueldo no puede ser objeto de venta, traspaso o gravamen de ninguna especie, ni puede ser perseguido por acreedores, excepto para el pago de pensiones alimenticias, en el tanto que determina el Código de Trabajo.
+(Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 248 al artículo 253)
+(Así modificada su numeración por el artículo 232 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026, que lo traspaso del antiguo artículo 253 al artículo 254)

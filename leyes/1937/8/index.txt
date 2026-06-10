@@ -8,6 +8,7 @@ articulo-6-bis.md
 articulo-7.md
 articulo-8.md
 articulo-9.md
+articulo-9-bis.md
 articulo-10.md
 articulo-11.md
 articulo-12.md
@@ -88,6 +89,7 @@ articulo-84.md
 articulo-85.md
 articulo-86.md
 articulo-87.md
+articulo-87-bis.md
 articulo-88.md
 articulo-89.md
 articulo-90.md
@@ -275,6 +277,7 @@ articulo-254.md
 articulo-255.md
 articulo-256.md
 articulo-257.md
+articulo-258.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

@@ -8,7 +8,7 @@ Artículo 60.- El Presidente de la Corte lo será también del Poder Judicial y,
 5.- Poner a votación los puntos discutidos, cuando a su juicio esté concluido el debate.
 6.- Autorizar con su firma los informes que deben rendirse a los Poderes del Estado, y los proyectos de ley a los que se refiere el inciso 2) del artículo anterior.
 7.- Presidir cualquier comisión que nombre la Corte o el Consejo, cuando él lo estime pertinente.
-8.- Ejercer el régimen disciplinario sobre los servidores de su Despacho.
+8.- (Derogado por el artículo 231 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026)
 9.- Solicitar el parecer de los demás integrantes de la Corte, para la decisión de asuntos que le corresponda resolver en forma exclusiva a él o al Consejo Superior del Poder Judicial.
 10.- Proponer a la Corte el nombramiento y la remoción del Secretario General de la Corte Suprema de Justicia, del Director y Subdirector Ejecutivos. Por ser estos funcionarios de confianza, podrán ser removidos discrecionalmente.
 11.- Realizar los sorteos para la escogencia de los Magistrados suplentes que deban sustituir a los titulares.

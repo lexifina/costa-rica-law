@@ -1,5 +1,4 @@
 CAPITULO IV
 DEL PROCEDIMIENTO
-Artículo 202.- Las sanciones deben ser impuestas por el procedimiento establecido en esta Ley y, a falta de regla expresa, se aplicará la Ley General de la Administración Pública en lo que fuere compatible con la índole de estos asuntos y su tramitación sumaria.
-Sin embargo, la sanción de advertencia podrá imponerse sin cumplir ese procedimiento; pero, deberá escucharse previamente al interesado.
+Artículo 202.- (Derogado por el artículo 231 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026. Se hace constar que el artículo 231 de la Ley N° 10905 antes mencionada, indica derogar el numeral 197, presenta un error de referencia numérica. Debido a la reestructuración numérica dispuesta por el artículo 1° de la Ley N° 10866 del 4 de marzo de 2026, el antiguo artículo 197 fue renombrado como artículo 202. En consecuencia, la derogatoria del artículo 197 debe entenderse aplicada correctamente al artículo 202.)
 (Así modificada su numeración por el artículo 1° de la Ley para la rendición de cuentas de los Magistrados y Magistradas del Poder Judicial y del Tribunal Supremo de Elecciones, N° 10866 del 4 de marzo de 2026, que lo traspaso del antiguo artículo 197 al artículo 202)
