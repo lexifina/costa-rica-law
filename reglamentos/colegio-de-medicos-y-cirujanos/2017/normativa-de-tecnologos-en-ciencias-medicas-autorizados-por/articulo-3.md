@@ -1,48 +1,30 @@
 Capítulo II
 De la Autorización del Ejercicio de la Profesión
-Artículo 3°-De las tecnologías autorizadas. El Colegio de Médicos y Cirujanos, reconoce las siguientes tecnologías en Ciencias Médicas:
-3.1. Citología. Se reconoce como sinónimo los siguientes términos: Citotecnología.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.2. Disección. Se reconoce como sinónimo, los siguientes términos: disección deautopsias; disección y tanatopraxia.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+Artículo 3º—De las disciplinas Autorizadas: El Colegio de Médicos y Cirujanos, reconoce las siguientes Tecnologías en Ciencias Médicas:
+3.1. Citología. Se reconoce como sinónimo los siguientes términos: Cito tecnología.
+3.2. Disección. Se reconoce como sinónimo, los siguientes términos: disección de autopsias; Disección y tanatopraxia.
 3.3. Electrocardiografía.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.4. Encefalografía.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.5. Emergencias médicas. Se reconocen como sinónimos, los siguientes términos: Emergencias y Rescate; Urgencias Médicas; Atención pre hospitalaria y Atención pre hospitalaria y en emergencias.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+3.5. Se reconocen como sinónimos, los siguientes términos: Emergencias y Rescate; Emergencias Médicas y Rescate; Emergencias Médicas Prehospitalarias y Rescate; Urgencias Médicas; Atención pre Hospitalaria y Atención Prehospitalaria y en Emergencias; Emergencias Médicas Prehospitalarias. (Así reformado el inciso anterior en sesión ordinaria 2022-05-18 del 18 de mayo de 2022)
 3.6. Gastroenterología
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.7. Hemodinamia.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.8. Histología. Se reconoce sinónimo los siguientes términos: Histotecnología.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.9. Imágenes Médicas. Se reconoce como sinónimo los siguientes términos Imagenología diagnóstica; Imagenología diagnóstica y terapéutica; Imagenología médica; Procedimientos radiológicos; Radiología.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+3.9. Imágenes Médicas. Se reconoce como sinónimo los siguientes términos Imagenología diagnóstica; Imagenología diagnóstica y terapéutica; Imagenología médica; Procedimientos radiológicos; Radiología; Radiología y Diagnóstico por Imágenes.
 3.10. Oftalmología.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.11. Ortopedia. Se reconoce como sinónimo los siguientes términos: Ortopedia y rehabilitación; Tecno ortopedia y trauma.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.12. Podología. Se reconoce como sinónimo, las siguientes: Podología clínica.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+3.12. Podología. Se reconoce como sinónimo, las siguientes: Podología clínica; Biomecánica, Neurootopedia, Ortesis Plantares y Podología.
+(Corregido el inciso 3.12) anterior mediante Fe de Erratas y publicada en La Gaceta N° 199 del 21 de octubre de 2026, página N° 2)
 3.13. Prótesis y Órtesis.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.14. Registros Médicos. Se reconoce como sinónimo, los siguientes términos: Administración de sistemas de información en salud; Administración de sistemas de información de salud y registros; Registros médicos y sistemas de información en salud; Registros y estadísticas de la salud; Sistemas de información en salud.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.15. Salud Ambiental (Solicitud de autorización voluntaria).
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.16. Salud ocupacional. Se reconoce como sinónimos: Gestor en Salud Ocupacional y Ambiente.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.17. Saneamiento Ambiental. (Así reformado el inciso anterior en sesión ordinaria 2017-12-13 del 13 de diciembre de 2017)
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
+3.17. Saneamiento Ambiental
 3.18. Urología.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
 3.19. Electrofisiología
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.20. Tecnocardiología y Hemodinamia.
-(Así reformado el inciso anterior mediante sesión N° 2021-06.09 del 9° de junio del 2021)
-3.21) Ortoprótesis y Ortopedia.
-(Así adicionado el inciso anterior mediante sesión ordinaria 2023-05- 17 del 17 de mayo de 2023)
+3.20. Tecno cardiología y Hemodinamia.
+3.21. Embalsamado y otras técnicas de preservación de piezas anatómicas para docencia.
+3.22. Histocitotecnología
+(Así reformado los incisos 3.1) al 3.22) anterior en sesión ordinaria 2026-06-10, celebrada el 10 de junio de 2026)
 Cualquier otra que a futuro aprueba la Junta de Gobierno del Colegio de Médicos y Cirujanos en adelante (Junta de Gobierno).
 En las Tecnologías que se señalan a continuación, no se aceptarán la autorización de nuevos solicitantes. Sin embargo, aquellas personas que ya se encuentran autorizadas previo a la vigencia de esta normativa, mantendrán sus derechos como tales, incluyendo la posibilidad del ejercicio de dicha Tecnología. Lo anterior, mientras se mantenga al menos un tecnólogo autorizado y activo en dicha tecnología, ésta se mantendrá vigente, caso contrario ésta desaparecerá automáticamente de la lista de Tecnologías en Ciencias Médicas reconocidas.
 1)Anestesiología.
