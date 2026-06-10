@@ -1,6 +1,3 @@
-Artículo 6º-Responsabilidades de los miembros: Serán responsabilidades de los miembros de la Comisión
-de Asuntos Jurídicos:
-a) Asistir puntualmente a las sesiones.
-b) Justificar anticipadamente sus ausencias.
-c) Participar activamente en la resolución de los asuntos que le sean encomendados a la Comisión.
-d) Velar porque se conozcan todos los temas incluidos en el orden del día, el control de su cumplimiento en el plazo de los acuerdos adoptados en la Comisión.
+Artículo 6°—De la gestión del proceso normativo.
+Las propuestas de creación, modificación o derogatoria de normativa institucional que requieren de validación por parte de la Junta Directiva Nacional, deben seguir un proceso estructurado que garantice su adecuada revisión técnica y jurídica, así como la trazabilidad de las decisiones adoptadas.
+La Secretaría General de la Junta Directiva Nacional, mediante el Sistema de Gestión Documental debe garantizar la adecuada documentación del proceso, asegurando la trazabilidad de cada una de sus etapas.

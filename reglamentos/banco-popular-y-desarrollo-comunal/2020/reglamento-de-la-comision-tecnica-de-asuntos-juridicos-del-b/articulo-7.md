@@ -1,1 +1,2 @@
-Artículo 7.-Frecuencia de las sesiones: La Comisión sesionará ordinariamente al menos una vez al mes, y extraordinariamente cuando las circunstancias así lo requieran y haya convocatoria expresa del presidente.
+Artículo 7º—Dependencia:
+La Comisión Técnica de Asuntos Jurídicos depende de la Junta Directiva Nacional y se apoya en el personal técnico que estime necesario.

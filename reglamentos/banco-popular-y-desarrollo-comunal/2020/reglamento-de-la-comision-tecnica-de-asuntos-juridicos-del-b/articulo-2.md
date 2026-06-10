@@ -1,2 +1,2 @@
-Artículo 2º-Objeto. La Comisión Técnica de Asuntos Jurídicos tiene por objeto:
-Servir como órgano de apoyo, consulta, opinión, evaluación en asuntos jurídicos, particularmente en la definición de los reglamentos, sus reformas, así como cualquier otro asunto que sea de índole jurídico y que la Junta Directiva Nacional someta para su análisis, dentro del marco de sus competencias.
+Artículo 2º—Objeto.
+La Comisión Técnica de Asuntos Jurídicos tiene por objeto servir como órgano de apoyo, consulta, opinión y asesoría de la Junta Directiva Nacional en su calidad de tal, como asamblea de accionistas y asamblea de cuotistas, en materia jurídica, contribuyendo al fortalecimiento del Sistema de Gobierno Corporativo del Conglomerado, así como a la adecuada gestión normativa dentro del marco legal y regulatorio aplicable.

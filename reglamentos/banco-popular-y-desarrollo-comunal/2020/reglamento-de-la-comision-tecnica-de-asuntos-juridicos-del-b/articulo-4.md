@@ -1,1 +1,3 @@
-Artículo 4º-Dependencia: La Comisión Técnica de Asuntos Jurídicos depende de la Junta Directiva Nacional y se apoya en el personal técnico que estime necesario.
+Artículo 4°—Sobre la delimitación de funciones.
+La Comisión Técnica de Asuntos Jurídicos, en ejercicio de sus funciones, no emite, sustituye ni replica los criterios emitidos por la Dirección Jurídica Corporativa, sino que realiza un análisis colegiado de las propuestas, formulando observaciones y recomendaciones desde una perspectiva integral, considerando los criterios técnicos y jurídicos previamente emitidos.
+La participación de la Dirección Jurídica Corporativa en las sesiones de la Comisión tendrá como finalidad exponer y aclarar los alcances de los criterios jurídicos emitidos, cuando así se requiera.
