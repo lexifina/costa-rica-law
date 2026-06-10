@@ -1,0 +1,1 @@
+ARTÍCULO 2- Permiso de quema. Para realizar quemas controladas en terrenos de aptitud agrícola y pecuaria es necesario contar con la autorización escrita, otorgada por la dependencia local o regional que resulte competente del Ministerio de Agricultura y Ganadería (MAG) conforme a lo establecido en el reglamento de la presente ley.
