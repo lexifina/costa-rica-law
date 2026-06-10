@@ -1,0 +1,1 @@
+ARTÍCULO 20- Representación judicial. Cualquier gestión, diligencia y/o acción tramitada judicialmente, relacionada con el contenido de la presente ley y en lo respectivo al Servicio Fitosanitario del Estado, podrá realizarse a través del respectivo departamento legal del Ministerio de Agricultura y Ganadería (MAG).

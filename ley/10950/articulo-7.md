@@ -1,0 +1,3 @@
+CAPÍTULO III
+FINANCIAMIENTO DE LA ACTIVIDAD
+ARTÍCULO 7- Financiamiento del Sistema de Planta Sana para el combate del HLB. El Ministerio de Agricultura y Ganadería (MAG), como entidad rectora, deberá garantizar la continuidad presupuestaria del Sistema de Planta Sana; para ello, podrá contar con la asistencia técnica y financiera del Instituto de Desarrollo Rural (Inder), en cumplimiento de sus prerrogativas de fomento y fortalecimiento de los sectores productivos, según lo establecido en la Ley 9036, Transformación del Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (Inder), de 11 de mayo de 2012.
