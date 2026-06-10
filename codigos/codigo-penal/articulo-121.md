@@ -1,3 +1,3 @@
 Aborto impune.
 ARTÍCULO 121.-No es punible el aborto practicado con consentimiento de la mujer por un médico o por una obstétrica autorizada, cuando no hubiere sido posible la intervención del primero, si se ha hecho con el fin de evitar un peligro para la vida o la salud de la madre y éste no ha podido ser evitado por otros medios.
-(Nota de Sinalevi: Mediante decreto ejecutivo N° 42113 del 12 de diciembre de 2019, se Oficializa la Norma Técnica para el Procedimiento Médico Vinculado con el artículo 121 del Código Penal, la misma puede ser consulta en la base de datos del Sistema Nacional de Legislación Vigente o en el siguiente link)
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 45233 del 15 de octubre de 2025, se Oficializó la Norma Técnica para protección y cumplimiento de los derechos humanos que asisten a la mujer embarazada en situación de riesgo y la persona por nacer, la misma puede ser consultada en el siguiente Enlace)
