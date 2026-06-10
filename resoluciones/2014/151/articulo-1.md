@@ -1,8 +1,8 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RESOLUCION RJD-151-2014
 San José, a las quince horas del trece de noviembre de dos mil catorce
-“METODOLOGÍA PARA LA APROBACIÓN DE LAS TARIFAS DE PEAJES ADMINISTRADOS
-POR EL CONSEJO NACIONAL DE VIALIDAD (CONAVI)”
+"METODOLOGÍA PARA LA APROBACIÓN DE LAS TARIFAS DE PEAJES ADMINISTRADOS
+POR EL CONSEJO NACIONAL DE VIALIDAD (CONAVI)"
 OT-208-2014
 RESULTANDO:
 I. Que con la promulgación de la Ley de Creación del Consejo de Vialidad (Ley No. 7798), se le faculta a la Autoridad Reguladora de los Servicios Públicos (en adelante Aresep), la regulación del sistema de peajes a que están sometidas las vías y los puentes de la red vial nacional y que se encuentran administrados por el Consejo Nacional de Vialidad (en adelante Conavi).
@@ -11,7 +11,7 @@ III. Que el 10 de setiembre de 2013, el Regulador General crea la Comisión Ad H
 IV. Que mediante oficio 07-CAMTP-2014 del 28 de agosto de 2014, la Comisión Ad Hoc Metodología para tarifas de peaje, remite a la Junta Directiva de la Aresep el documento ―Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)‖ para su respectiva valoración (folios 109 a 147).
 V. Que el 9 de setiembre de 2014, mediante oficio 571-SJD-2014, la Junta Directiva comunica el acuerdo 09-50-2014, del acta de la sesión ordinaria 50-2014, celebrada el 28 de agosto de 2014, y ratificada el 4 de setiembre de 2014, a la Dirección General de Atención al Usuario, al Departamento de Gestión Documental y al Coordinador de Comisiones. Dicho acuerdo resolvió lo siguiente: (Folios 01 al 35).
 "(...)
-“1. Someter al proceso de audiencia pública la siguiente propuesta “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)” remitida mediante oficio CAMPT-07-2014 de fecha 28 de agosto de 2014 y con fundamento en lo señalado por la Dirección General de Asesoría Jurídica y Regulatoria en el oficio 636-DGAJR-20014, del 22 de agosto de 2014, cuyo texto se copia a continuación: (...)
+"1. Someter al proceso de audiencia pública la siguiente propuesta "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)" remitida mediante oficio CAMPT-07-2014 de fecha 28 de agosto de 2014 y con fundamento en lo señalado por la Dirección General de Asesoría Jurídica y Regulatoria en el oficio 636-DGAJR-20014, del 22 de agosto de 2014, cuyo texto se copia a continuación: (...)
 2. Instruir al Departamento de Gestión Documental la apertura del expediente para el trámite respectivo.
 3. Solicitar a la Dirección General de Atención del Usuario que proceda a publicar la convocatoria de audiencia pública en periódicos de circulación nacional y en el diario oficial La Gaceta.
 4. Instruir a la Comisión Ad Hoc Metodología Tarifa de Peaje (CAMTP) para que, una vez realizado el proceso de audiencia pública, proceda a analizar y dar respuesta a todas las posiciones presentadas y remitida a la Junta Directiva la propuesta final de la metodología.
@@ -26,9 +26,9 @@ IX. Que el 27 de octubre de 2014, mediante oficio 03533-DGAU-2014, la Dirección
 X. Que el 7 de noviembre de 2014, mediante oficio 08-CAMTP-2014, la Comisión AD-HOC remitió a la Secretaría de Junta Directiva, el informe final, así como el borrador de acuerdo y el proyecto de resolución relacionados con la presente metodología.
 CONSIDERANDO:
 I. Que en cuanto a las oposiciones y coadyuvancias presentadas en la audiencia pública, del oficio 08-CAMTP-2014 del 7 de noviembre de 2014, que sirve de base para la presente resolución, conviene extraer lo siguiente:
-“(...)
+"(...)
 5.1. Oposición Defensoría de los Habitantes (DH)
-La señora Ana Karina Zeledón Lépiz, en condición de Directora de Asuntos Económicos de la Defensoría de los Habitantes, presentó mediante oficio DAEC- 162-2014 (folios 153 al 157) formal oposición a la propuesta “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)”, argumentando lo siguiente:
+La señora Ana Karina Zeledón Lépiz, en condición de Directora de Asuntos Económicos de la Defensoría de los Habitantes, presentó mediante oficio DAEC- 162-2014 (folios 153 al 157) formal oposición a la propuesta "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)", argumentando lo siguiente:
 5.1.1. Sobre la fiscalización del ente regulador y el no cumplimiento de Conavi de los objetivos para lo cual fue creada.
 Argumento:
 Indica el opositor que resulta de suma importancia que la Aresep ejerza funciones de fiscalización sobre los recursos obtenidos por Conavi en el cobro de los peajes respectivos. Adicionalmente, la DH muestra su preocupación de que la Aresep busque mejorar los niveles de ingreso de una institución que no cumple con sus objetivos.
@@ -39,12 +39,12 @@ El artículo 31 de la Ley No. 7593 indica que No se permitirán fijaciones que a
 Argumento.
 Alega la DH que no se muestran dentro del documento las fórmulas o ecuaciones que permitan hacer simulaciones y comprobar si la metodología funciona correctamente. Esta ausencia de información imposibilita calcular las tarifas y su comparación con el crecimiento del IPC.
 Respuesta:
-En el documento se presentan un total de 5 ecuaciones simples con las fórmulas necesarias para estimar la tarifa. Adicionalmente se presentan las definiciones de todas las variables a utilizarse en lo cálculos correspondientes. Cabe recordarle al opositor que lo sometido a audiencia pública es la “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)” y no el resultado tarifario de la aplicación de esta metodología ya que en este momento procesal no se está calculando una tarifa.
+En el documento se presentan un total de 5 ecuaciones simples con las fórmulas necesarias para estimar la tarifa. Adicionalmente se presentan las definiciones de todas las variables a utilizarse en lo cálculos correspondientes. Cabe recordarle al opositor que lo sometido a audiencia pública es la "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)" y no el resultado tarifario de la aplicación de esta metodología ya que en este momento procesal no se está calculando una tarifa.
 5.1.3. Sobre el traslado al usuario del rezago tarifario.
 Argumento:
 Es importante para la DH que el traslado al usuario del rezago tarifario de 12 años se realiza a través de un esquema de prorrateo a través del tiempo y propuesto por Aresep.
 Respuesta:
-Se le indica nuevamente al opositor que lo sometido a audiencia pública es la “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)” y no el resultado tarifario de la aplicación de esta metodología, ya que en este momento procesal no se está calculando una tarifa. Una vez publicada en el diario oficial La Gaceta, la presente metodología entrará a regir un día después de su publicación, tal y como se indica en el apartado 12 de este informe.
+Se le indica nuevamente al opositor que lo sometido a audiencia pública es la "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (Conavi)" y no el resultado tarifario de la aplicación de esta metodología, ya que en este momento procesal no se está calculando una tarifa. Una vez publicada en el diario oficial La Gaceta, la presente metodología entrará a regir un día después de su publicación, tal y como se indica en el apartado 12 de este informe.
 5.1.4. Sobre la dependencia de la información por parte de Aresep y el caso de modelo tarifario de buses.
 Argumento:
 Indica el opositor que la Aresep sigue dependiendo absolutamente de la información que le suministren los interesados en el aumento de sus tarifas. Argumenta que la metodología propuesta replica los problemas del actual modelo para la fijación de tarifas de autobús. Resulta inaceptable que el ente regulador no haya realizado los estudios de precios y mercado necesarios para proponer la metodología.
@@ -56,19 +56,19 @@ De manera similar, si el Conavi presentara un déficit sobre los recursos proyec
 En cualquiera de las situaciones anteriormente indicadas, la Aresep analizará la posibilidad de realizar de oficio el ajuste tarifario correspondiente.
 5.1.5. Sobre la no incorporación de la hoja electrónica dentro del expediente.
 Argumento:
-Alega la DH que dentro del expediente no se encuentra la hoja electrónica con la cual se pueda “correr” el modelo, de tal forma que éste se pueda sensibilizar.
+Alega la DH que dentro del expediente no se encuentra la hoja electrónica con la cual se pueda "correr" el modelo, de tal forma que éste se pueda sensibilizar.
 Respuesta:
 Sobre este punto, es importante indicar que la Sala Constitucional mediante resolución de 2014-001253 de las 09:05 horas del 31 de enero de 2014, declaro sin lugar un recurso planteado por el señor Olman Bonilla Oconitrillo, señalando luego de un amplio análisis de lo argumentado y en lo que interesa, lo siguiente:
-“Bajo esta perspectiva, se descarta la lesión a derecho fundamental alguno, nótese que los formularios y cambios realizados en el Modelo Digital u hojas electrónicas tipo Excel., que el recurrente echa de menos, no deben ser parte del expediente OT-355-2013, y por ende, del "Modelo para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas modalidad autobús" (El énfasis es nuestro)
+"Bajo esta perspectiva, se descarta la lesión a derecho fundamental alguno, nótese que los formularios y cambios realizados en el Modelo Digital u hojas electrónicas tipo Excel., que el recurrente echa de menos, no deben ser parte del expediente OT-355-2013, y por ende, del "Modelo para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas modalidad autobús" (El énfasis es nuestro)
 Por lo anterior, en concordancia con lo establecido por la Sala Constitucional, las hojas de cálculo electrónicas no deben ser parte del expediente.
 5.1.6. Sobre la aprobación de la propuesta sometida a audiencia pública.
 Argumento:
 La DH recuerda a la Aresep que si decide aprobar la metodología planteada, la misma debe de aprobarse si y solo si, se aprueba tal y como se propuso en la audiencia pública. En caso de realizarse algún cambio, deberá remitirla nuevamente al proceso de audiencia pública.
 Respuesta:
 La metodología aprobada no presenta cambios sustanciales con respecto a lo sometido a audiencia pública el día 23 de octubre de 2014.
-(…)”
+(.)"
 II. Que los anexos a que hace referencia la presente resolución se encuentran incorporados en formato digital en el expediente OT-208-2014.
-III. Que de conformidad con los resultandos y considerandos que preceden y de acuerdo con el mérito de los autos, lo procedente es: 1) Aprobar la “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)” presentada según oficio 08-CAMTP-2014; 2) Tener como respuesta al opositor que participó en la audiencia pública realizada el 23 de octubre del 2014, lo señalado en el considerando I de la resolución que aquí se acuerda y agradecerle por su valiosa participación en este proceso y 3) Instruir a la Secretaría de Junta Directiva para que proceda a realizar la respectiva publicación de en el diario oficial La Gaceta.
+III. Que de conformidad con los resultandos y considerandos que preceden y de acuerdo con el mérito de los autos, lo procedente es: 1) Aprobar la "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)" presentada según oficio 08-CAMTP-2014; 2) Tener como respuesta al opositor que participó en la audiencia pública realizada el 23 de octubre del 2014, lo señalado en el considerando I de la resolución que aquí se acuerda y agradecerle por su valiosa participación en este proceso y 3) Instruir a la Secretaría de Junta Directiva para que proceda a realizar la respectiva publicación de en el diario oficial La Gaceta.
 IV. Que en sesión 66-2014 del 13 de noviembre de 2014, la Junta Directiva de la Autoridad
 Reguladora de los Servicios Públicos, sobre la base de los oficios 08-CAMTP-2014 del 7 de
 noviembre de 2014, así como del oficio 948-DGAJR-2014 del 11 de noviembre de 2014,
@@ -82,25 +82,25 @@ LA JUNTA DIRECTIVA DE LA
 AUTORIDAD REGULADORA DE
 LOS SERVICIOS PÚBLICOS
 RESUELVE
-I. Aprobar la “Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)” presentada según oficio 08-CAMTP-2014, tal y como se detalla a continuación:
-“(…)
+I. Aprobar la "Metodología para la Aprobación de las Tarifas de Peajes Administrados por el Consejo Nacional de Vialidad (CONAVI)" presentada según oficio 08-CAMTP-2014, tal y como se detalla a continuación:
+"(.)
 3. MARCO LEGAL
 Mediante la Ley No.7798 del 27 de abril de 1998, se creó el Consejo Nacional de Vialidad y como parte de las atribuciones establecidas en dicha Ley, el artículo 5 en el inciso f) dispone:
 Artículo 5°
 El Consejo de Administración del Consejo Nacional de Vialidad tendrá las siguientes atribuciones:
 f) Aprobar las vías que integran la red vial nacional y las que operan mediante el sistema de peaje, y someter las tarifas a la aprobación de la Autoridad Reguladora de los Servicios Públicos. El producto de los peajes únicamente podrá ser utilizado en la carretera que generó el monto respectivo.
 Conforme lo anterior y según el oficio 775-DGAJR-2013 del 3 de octubre de 2013, de la Dirección General de Asesoría Jurídica y Regulatoria de la Aresep, se desprende el alcance de lo señalado en el artículo 5 supra citado con respecto a lo dispuesto por la Ley No. 7593 del 9 de agosto de 1996 para aprobar las tarifas del sistema de peajes, de la siguiente manera:
-“...el artículo 2 de la Ley de Creación del Consejo Nacional de Vialidad – CONAVI (en adelante Ley 7798) establece:
+"...el artículo 2 de la Ley de Creación del Consejo Nacional de Vialidad - CONAVI (en adelante Ley 7798) establece:
 ARTÍCULO 2.- Declárase la conservación vial actividad ordinaria de servicio público prioritario e interés nacional.
 Por su parte, el artículo 1 de la misma Ley, define, entre otras cosas-, lo que debe entenderse como conservación vial, de la siguiente manera:
 Conservación vial: Conjunto de actividades destinadas a preservar, en forma continua y sostenida, el buen estado de las vías, de modo que se garantice un servicio óptimo al usuario. La conservación comprende actividades tales como el mantenimiento rutinario y periódico, la rehabilitación y el refuerzo de la superficie de ruedo, así como el mantenimiento y la rehabilitación de las estructuras de puentes. La conservación vial no comprende la construcción de vías nuevas ni partes de ellas; tampoco, la reconstrucción ni el mejoramiento de vías. La restauración de vías provocada por emergencias no forma parte de la conservación vial, salvo lo dispuesto por la presente ley como excepción.
-A partir de las normas transcritas, queda suficientemente claro que el servicio de conservación de la red vial le fue conferido, expresamente por ley, al Consejo Nacional de Vialidad, órgano adscrito del Ministerio de Obras Públicas y Transportes, con lo cual es de titularidad del Estado y, por consiguiente, no cabe la menor duda que se trata de un servicio público (…)
+A partir de las normas transcritas, queda suficientemente claro que el servicio de conservación de la red vial le fue conferido, expresamente por ley, al Consejo Nacional de Vialidad, órgano adscrito del Ministerio de Obras Públicas y Transportes, con lo cual es de titularidad del Estado y, por consiguiente, no cabe la menor duda que se trata de un servicio público (.)
 De conformidad con lo señalado en los párrafos anteriores, el sistema de peajes administrado por el Conavi, es un servicio público de interés nacional y respecto a la aprobación de las tarifas de ese servicio, se indica:
-(…) no existe en la Ley 7798 o en su reglamento, ninguna disposición atributiva de competencia y que otorgue potestades tarifarias al CONAVI para determinar, de previo, las tarifas que cobrará a los usuarios de las rutas en los sistemas de peajes que ella misma determinará mediante los estudios a los que hace alusión el artículo 13 inciso f) de dicha ley. Así las cosas, por el principio de legalidad que rige en la función pública del Estado, ésta sólo puede realizar aquellos actos o funciones (competencia) que el ordenamiento jurídico le permite y en este sentido, no podría el CONAVI fijar las tarifas para luego someterlas a la aprobación de la Autoridad Reguladora (…)
+(.) no existe en la Ley 7798 o en su reglamento, ninguna disposición atributiva de competencia y que otorgue potestades tarifarias al CONAVI para determinar, de previo, las tarifas que cobrará a los usuarios de las rutas en los sistemas de peajes que ella misma determinará mediante los estudios a los que hace alusión el artículo 13 inciso f) de dicha ley. Así las cosas, por el principio de legalidad que rige en la función pública del Estado, ésta sólo puede realizar aquellos actos o funciones (competencia) que el ordenamiento jurídico le permite y en este sentido, no podría el CONAVI fijar las tarifas para luego someterlas a la aprobación de la Autoridad Reguladora (.)
 Asimismo señala:
-(…) le corresponde a la Autoridad Reguladora la fijación de las tarifas de los peajes administrados por el CONAVI, para lo cual, deberá aplicar las reglas establecidas en la Ley 7593 (…)
+(.) le corresponde a la Autoridad Reguladora la fijación de las tarifas de los peajes administrados por el CONAVI, para lo cual, deberá aplicar las reglas establecidas en la Ley 7593 (.)
 En consecuencia y en complemento a lo anterior, el artículo 29 de la Ley No. 7593 dispone:
-La Autoridad Reguladora formulará y promulgará las definiciones, los requisitos y las condiciones a que se someterán los trámites y precios de los servicios públicos (…)
+La Autoridad Reguladora formulará y promulgará las definiciones, los requisitos y las condiciones a que se someterán los trámites y precios de los servicios públicos (.)
 Por lo anterior y de acuerdo con el marco legal establecido, se encuentra sustento para que la Junta Directiva apruebe la metodología a que se someterán los trámites de tarifas para el sistema de peajes administrados por el Conavi.
 4. ALCANCE Y OBJETIVOS
 4.1. Alcance
@@ -118,7 +118,7 @@ La Aresep hará revisiones al menos una vez al año que permitan verificar la ra
 4.2. Objetivos
 Establecer una metodología que permita fijar las tarifas para cada tipo de vehículo sujeto a cobro de peaje en el sistema de cobro de peajes administrados por el Conavi, con el fin de conservar la red vial nacional.
 Definir los elementos y criterios que se utilizarán para fijar las tarifas para cada tipo de vehículo sujeto a cobro de peaje en el sistema de cobro de peajes administrados por el Conavi, con el fin de conservar la red vial nacional.
-(…)
+(.)
 6. PROCEDIMIENTO PARA LA FIJACIÓN DE TARIFAS
 Para la fijación de tarifas de peajes se propone el siguiente procedimiento:
 6.1. Fijación de oficio las tarifas del servicio de peajes
@@ -138,13 +138,13 @@ f) Una vez realizada la audiencia pública, el Intendente de Transporte cuenta c
 El mecanismo de participación ciudadana requerido para aprobar, improbar o modificar las tarifas de los peajes en las carreteras de la red vial nacional es la audiencia pública, según el artículo 36 de la Ley No.7593. Este trámite debe ser realizado por DGAU a solicitud de la Intendencia de Transporte.
 6.4. Estudio tarifario
 Todo estudio tarifario que se realice para el sistema de peajes del Conavi, debe contener como mínimo los siguientes apartados:
- Requisitos administrativos.
- Análisis de flujo vehicular.
- Análisis de ingresos y costos.
- Análisis de estimaciones y proyecciones: flujo vehicular, costos e ingresos del servicio.
- Análisis de fuentes de financiamiento.
- Análisis financiero.
- Análisis de inversiones.
+§ Requisitos administrativos.
+§ Análisis de flujo vehicular.
+§ Análisis de ingresos y costos.
+§ Análisis de estimaciones y proyecciones: flujo vehicular, costos e ingresos del servicio.
+§ Análisis de fuentes de financiamiento.
+§ Análisis financiero.
+§ Análisis de inversiones.
 6.5. Análisis de oposiciones y/o coadyuvancias
 La Intendencia de Transporte procederá con el análisis de las oposiciones y/o coadyuvancias según corresponda, en apego a la normativa vigente.
 6.6. Análisis del estudio y resolución
@@ -232,14 +232,14 @@ Cuadro No. 2
 Factor camión según ruta
 Rutas | Factor Camión
 | Pick up | C2+ | C2 | Bus C2 | C3 | T3-S2
-Ruta 1 – General Cañas (Peaje) | 0.011 | 0.02 | 0.73 | 2.022 | 2.72 | 2.102
-Ruta 1 – Bernardo Soto Naranjo (Peaje) | 0.011 | 0.02 | 0.9 | 3.68 | 1.97 | 3.701
-Ruta 1 – Bernardo Soto Esparza (Peaje) | 0.011 | 0.23 | 0.72 | 2.911 | 2.83 | 4.153
-Ruta 2 – Florencio del Castillo (Peaje) | 0.015 | 0.03 | 0.83 | 1.437 | 3.2 | 3.021
-Ruta 2 – Pérez Zeledón (Tránsito) | 0.012 | 0.01 | 0.45 | 1.858 | 3.33 | 2.08
-Ruta 27 – Próspero Fernández (Peaje) | 0.011 | 0.02 | 0.16 | 1.957 | 3.16 | 2.695
-Ruta 32 – Braulio Carrillo (Peaje) | 0.011 | 0.02 | 0.7 | 3.692 | 2.27 | 4.229
-Ruta 140 – San Carlos (Ciudad Quesada) | 0.012 | 0.01 | 0.52 | 2.107 | 3.77 | 3.861
+Ruta 1 - General Cañas (Peaje) | 0.011 | 0.02 | 0.73 | 2.022 | 2.72 | 2.102
+Ruta 1 - Bernardo Soto Naranjo (Peaje) | 0.011 | 0.02 | 0.9 | 3.68 | 1.97 | 3.701
+Ruta 1 - Bernardo Soto Esparza (Peaje) | 0.011 | 0.23 | 0.72 | 2.911 | 2.83 | 4.153
+Ruta 2 - Florencio del Castillo (Peaje) | 0.015 | 0.03 | 0.83 | 1.437 | 3.2 | 3.021
+Ruta 2 - Pérez Zeledón (Tránsito) | 0.012 | 0.01 | 0.45 | 1.858 | 3.33 | 2.08
+Ruta 27 - Próspero Fernández (Peaje) | 0.011 | 0.02 | 0.16 | 1.957 | 3.16 | 2.695
+Ruta 32 - Braulio Carrillo (Peaje) | 0.011 | 0.02 | 0.7 | 3.692 | 2.27 | 4.229
+Ruta 140 - San Carlos (Ciudad Quesada) | 0.012 | 0.01 | 0.52 | 2.107 | 3.77 | 3.861
 Promedio | 0.012 | 0.05 | 0.75 | 2.458 | 2.91 | 3.23
 Desviación Estándar | 0.001 | 0.08 | 0.22 | 0.861 | 0.59 | 0.878
 Fuente: Lanamme, Proyecto #PI-01-PIIVI-2007
@@ -275,7 +275,7 @@ carga de cero. No obstante lo anterior, dicho valor puede ser modificado cuando 
 estudio actualizado de los factores equivalentes de carga que sea aprobado y oficializado por un
 ente competente. Lo mismo aplicaría para las otras categorías de vehículos.
 8. PROCEDIMIENTO PARA LA ESTIMACION DE LOS FLUJOS VEHICULARES EN LAS ESTACIONES DE COBRO
-A continuación se describe el procedimiento de cálculo para la proyección de los flujos de los tipos de vehículos (definidos en la sección 7.3) que transitan en las carreteras nacionales (ruta “r”): Florencio del Castillo (Ruta No. 2), Braulio Carrillo (Ruta No 32), Bernardo Soto (Ruta No 1A) y General Cañas (Ruta No 1B).
+A continuación se describe el procedimiento de cálculo para la proyección de los flujos de los tipos de vehículos (definidos en la sección 7.3) que transitan en las carreteras nacionales (ruta "r"): Florencio del Castillo (Ruta No. 2), Braulio Carrillo (Ruta No 32), Bernardo Soto (Ruta No 1A) y General Cañas (Ruta No 1B).
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 Inicialmente se definen las fuentes de información, luego el proceso de obtención, depuración y transformación de datos. Posteriormente se realizan las estimaciones y proyecciones de costos y flujo vehicular. Finalmente se calcula una tarifa que se distribuye para cada tipo de vehículo sujeto a cobro de peaje tomando en consideración los Factores Equivalentes de Carga para cada estación de cobro de peaje en las rutas antes descritas.
 A partir de la definición de las franjas horarias, se determina el valor proyectado según la frecuencia ―f‖ (diaria, mensual) del flujo de los tipos de vehículos ―i‖ en cada estación de cobro de peaje ―ecp‖. El periodo de proyección para cada variable en este procedimiento es como máximo cinco años (t = 1, 2, 3, 4, 5), continuos y siguientes a la presentación del estudio de fijación tarifaria o el inicio del trámite de oficio.
@@ -319,7 +319,7 @@ Desde el punto de vista del análisis de las series de tiempo, existe una varied
 Asimismo, algunas de estas técnicas, métodos y algoritmos pueden realizarse y apoyarse en programas de computación de uso cotidiano, como el Excel, o bien, requerir de programas más especializados, como por ejemplo: Eviews, Stata, Matlab & Econometrics Toolbox, Oxmetrics, Gauss, SPSS, SAS, BUGS, LIMDEP & NLOGIT u otro4 . En todo caso, en el documento deberá indicarse el software utilizado, el método de estimación del modelo identificado para estimar y los resultados de aplicar algún modelo de estimación estadística, matemática o econométrica o ingenieril. Deberá presentarse la identificación del modelo de predicción y los resultados de este modelo de predicción. Todos los resultados de las variables proyectadas, independientemente del software, algoritmo y modelo utilizado, deberá presentarse en formato de hoja electrónica de uso común.
 4 Un sitio web especializado que describe una variedad de programas computaciones o software econométrico es el siguiente: http://www.feweb.vu.nl/econometriclinks/software.html (referencia de las 17.50 horas del miércoles 23 de octubre de 2013). Estos forman parte del estado del arte de la técnica y la ciencia utilizada en estudios de modelos de series de tiempo y modelos econométricos, entre otros.
 Como el objetivo en este procedimiento es tener estimaciones que puedan utilizarse para efectos de fijar una tarifa, que conlleva la satisfacción de un servicio público; se establece el siguiente criterio tarifario en relación con las estimaciones y proyecciones de las variables:
-(*)i. De acuerdo con lo indicado en el inciso ii) de la sección 8.2, la estimación y proyección de los flujos vehiculares, corresponderán únicamente a los considerados sin franja horaria, respectivamente denotados por “VEsf” y “VPsf”.
+(*)i. De acuerdo con lo indicado en el inciso ii) de la sección 8.2, la estimación y proyección de los flujos vehiculares, corresponderán únicamente a los considerados sin franja horaria, respectivamente denotados por "VEsf" y "VPsf".
 Para efectos de proyectar la cantidad de vehículos sin franja horaria VPsf se utilizará como insumo, únicamente la cantidad de vehículos estimados VEsf sin franja horaria. Esta estimación y proyección de justificarse según la ciencia, la técnica o principios elementales de justicia, lógica o conveniencia
 (*) (Así reformado el inciso i) anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 ii. En relación con la estimación o ajuste de una curva utilizando los datos históricos y el ajuste de la curva: como mínimo, la justificación estadística de la bondad del ajuste e indicativos del grado de robustez de la estimación, como por ejemplo, el criterio de la minimización de la raíz del error cuadrático medio de la estimación.
@@ -328,7 +328,7 @@ iv. En relación con el inciso ii) y en el caso de utilizar alguna de las técni
 v. Los criterios i), ii) y iii) aplican cuando se identifique y estime un modelo multivariado de la variable objeto de estimación, en el cual se incluyen variables independientes y dependientes (que son objeto de estudio). En este caso, pueden utilizarse los métodos tradicionales de la econometría como por ejemplo los mínimos cuadrados ordinarios, mínimos cuadrados generalizados, función de verosimilitud y estimación de momentos, mínimos cuadrados en dos, tres y más etapas, variables instrumentales, modelos de ecuaciones estructurales y ecuaciones simultáneas. Métodos bayesianos, econometría no lineal y ecuaciones estocásticas en diferencia u otras técnicas de la ingeniería matemática pueden ser objeto de aplicación para la estimación del modelo.
 vi. En el caso de la proyección de las variables objeto de estudio para el periodo futuro de proyección en particular; una vez seleccionado el modelo de estimación utilizando al menos el criterio de minimizar la raíz del error cuadrático medio, se aplicará el siguiente criterio (cuando sea aplicable a los modelos propuestos de estimación): seleccionar el modelo de proyección que indique el menor coeficiente de sesgo de proporción en la desigualdad de Thiel. En el caso de no calcularse dicho coeficiente, se utilizara el modelo que presente en su proyección de las variables, el mínimo de la raíz del error cuadrático medio. Este criterio de selección aplicará para seleccionar el modelo de estimación que se utilice para proyectar las variables, según las técnicas descritas en los incisos i), ii), iii), iv) y v) anteriores.
 8.4. Cantidades estimadas y proyectadas de los flujos vehiculares sin franja horaria
-De acuerdo con lo señalado en el apartado 8.3, utilizando los métodos, técnicas, algoritmos en los modelos seleccionados de estimación y proyección, de conformidad con los criterios de selección establecidos, se van a obtener dos tipos de variables adicionales para cada una de los vehículos “i” en cada estación de cobro de peaje “ecp” según la ruta “r”: las estimadas y proyectas.
+De acuerdo con lo señalado en el apartado 8.3, utilizando los métodos, técnicas, algoritmos en los modelos seleccionados de estimación y proyección, de conformidad con los criterios de selección establecidos, se van a obtener dos tipos de variables adicionales para cada una de los vehículos "i" en cada estación de cobro de peaje "ecp" según la ruta "r": las estimadas y proyectas.
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 El periodo de estimación de las variables corresponde a la fecha inicial de estimación ―to‖ y la fecha final de estimación ―t-1‖. El periodo de proyección de las variables corresponde a la fecha inicial de proyección ―t‖ y la fecha final de proyección ―T‖.
 Las variables se denominarán de la siguiente manera:
@@ -414,7 +414,7 @@ En el mismo orden de ideas, la justificación que se derive de los incisos anter
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 Debe recalcarse que de la justificación que se presente debe contener explícitamente lo siguiente:
 i. Rubro de Costo: definición (unidades), descripción y aplicación a una ruta ―r‖ en particular.
-ii. Cantidad y frecuencia (diaria, mensual o anual) del rubro de costo que aplica a una ruta ―‖r en particular’
+ii. Cantidad y frecuencia (diaria, mensual o anual) del rubro de costo que aplica a una ruta ―‖r en particular'
 iii. Precio unitario de cada uno de los rubros de costos, en colones, dólares o en otras monedas. Todos los rubros de costos deberán presentarse en colones. Cuando los precios unitarios se especifiquen en dólares o en otra moneda, deberá hacerse la conversión respectiva a colones. En el caso que se presenten en dólares, para convertir los valores a colones, se utilizará tipo de cambio de referencia diario de venta del dólar de los Estados Unidos de América, publicado por el Banco Central de Costa Rica (BCCR). En caso de otras monedas deberá hacerse la conversión correspondiente de dicha moneda en relación al dólar de los Estados Unidos de América utilizando para este fin los tipos de cambio que publica el BCCR de otras monedas con respecto al dólar. Una vez expresados los rubros en dólares, deberá hacerse la respectiva conversión a colones.
 iv. En relación con el punto iv anterior, la petición tarifaria deberá presentar todos los cuadros, tablas y respectivas conversiones de moneda realizadas.
 v. La Autoridad Reguladora, para efectos de convertir los valores de los rubros de costo a colones, utilizará el tipo de cambio de referencia diario de venta del dólar de los Estados Unidos de América, publicado por el Banco Central de Costa Rica, al día de celebración de la respectiva audiencia pública. Para lo anterior se actuará según el procedimiento vigente establecido por la Aresep para estos casos.
@@ -501,20 +501,20 @@ fa = año para el cual se fija la tarifa de peaje, desde el año 1 hasta el año
 ecp = estaciones de cobro de peajes .
 10.3 Tarifa de peaje variable anual
 La tarifa de peaje variable anual podrá ser diferente para cada tipo de vehículo ―i‖ sujeto a cobro de peaje, en cada una de las estaciones de cobro de peaje ―ecp‖ de cada ruta ―r‖. Esto por cuanto, los vehículos ―i‖ serán imputados con costos del servicio de conservación vial que son diferentes para todos estos que transitan por estas rutas y estaciones de cobro. Esto se debe a que cada uno de los vehículos sujetos a cobro de peaje, dado su eje y factor equivalente de carga, contribuye de manera diferente al desgaste de una ruta ―r‖. Es decir, los vehículos ―i‖ se van a diferencias por el uso relativo (―fec‖) en que incurran en el servicio de conservación vial.
-Este uso relativo se mide a través del denominado factor equivalente de carga “fec”. Este fue definido en la sección 7.4 para cada tipo de vehículos “i”, factor que es reconocido en esta metodología para las estaciones de peaje, objeto de administración del Conavi. Los valores se presentaron en el Cuadro No. 4.
+Este uso relativo se mide a través del denominado factor equivalente de carga "fec". Este fue definido en la sección 7.4 para cada tipo de vehículos "i", factor que es reconocido en esta metodología para las estaciones de peaje, objeto de administración del Conavi. Los valores se presentaron en el Cuadro No. 4.
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 Se denotará el factor equivalente de carga por tipo de vehículo ―i‖ en cada estación de cobro de peaje ―ecp‖ de cada ruta ―r‖ de la siguiente manera: fec(i,ecp,r). Estos factores equivalentes de carga ―fec‖ pueden cambiar de conformidad con estudios que estén disponibles en la fecha depresentación de la solicitud o estudio de ajuste tarifario. Nótese que estos factores equivalentes de cargas están referidos a cada una de las estaciones de cobro de peaje ―ecp‖ en cada ruta ―r‖.
 Como recordatorio, el factor equivalente de carga para los vehículos livianos que transitan por la ruta 1A General Cañas es de 0,0065 y los la ruta 1B Bernardo Soto es de 0,0065; mientras que dichos valores para los vehículos medianos en esas rutas son 1,1580 y 0,9630, respectivamente.
-De esta manera, el uso relativo que realice un conglomerado de vehículos tipo “i” en una estación de cobro de peaje “ecp” de la ruta “r” (definido como UR(i,fa,t,T,ecp,r)), será la multiplicación del factor equivalente de carga por tipo de vehículo “i” en dicha estación y la totalidad de vehículos tipo “i” sin franja horaria VPsfsp(i,fa,t,T,ecp,r), que transiten por dicha estación de cobro de peaje “ecp” en la frecuencia anual “fa”. Esto es:
+De esta manera, el uso relativo que realice un conglomerado de vehículos tipo "i" en una estación de cobro de peaje "ecp" de la ruta "r" (definido como UR(i,fa,t,T,ecp,r)), será la multiplicación del factor equivalente de carga por tipo de vehículo "i" en dicha estación y la totalidad de vehículos tipo "i" sin franja horaria VPsfsp(i,fa,t,T,ecp,r), que transiten por dicha estación de cobro de peaje "ecp" en la frecuencia anual "fa". Esto es:
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 UR(i,fa,t,T,ecp,r)= fec(i,ecp,r) * VPsfsp(i,fa,t,T,ecp,r)
-Recuérdese que el factor equivalente de carga para los vehículos tipo “motos” es cero, de acuerdo con el estudio del Lanamme (Lanamme Proyecto #PI-01-PIIVI- 2007) que está siendo utilizado en esta metodología. Dicho factor para ese tipo de vehículo puede ser diferente de cero y como tal se consignará en el cálculo tarifario, en el momento en que se encuentre disponible un nuevo estudio de los factores equivalentes de carga, de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la ARESEP.
+Recuérdese que el factor equivalente de carga para los vehículos tipo "motos" es cero, de acuerdo con el estudio del Lanamme (Lanamme Proyecto #PI-01-PIIVI- 2007) que está siendo utilizado en esta metodología. Dicho factor para ese tipo de vehículo puede ser diferente de cero y como tal se consignará en el cálculo tarifario, en el momento en que se encuentre disponible un nuevo estudio de los factores equivalentes de carga, de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la ARESEP.
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 Luego, interesa obtener la distribución porcentual del efecto de esos factores equivalentes de carga para la totalidad de conglomerados de vehículos tipo ―i‖ sujeto a cobro de peaje en cada estación de cobro de peaje. Para ello, se suma el producto de los factores equivalentes de carga y la cantidad de vehículos sin franja horaria sujeto a peaje, obteniéndose así el total de uso relativo de la carretera o desgaste relativo total (DRT) por los vehículos en cada estación de cobro de peaje, a saber:
 DRT(ecp,r,t,T,fa)=Σ (i,k)UR(i,ecp,r,t,T,fa)
 Esta suma es el desgaste relativo total -DRT- que hacen los vehículos sujetos a cobro de peaje ,en la ruta ―r‖ en que está especificada una estación de cobro de peaje ―ecp‖. Después, para obtener la contribución relativa porcentual al desgaste total (cDR) en la ruta ―r‖ en que está especificada una estación de cobro de peaje ―ecp‖ por parte del conglomerado de vehículos de un tipo ―i‖ sujeto a cobro de peaje, se divide lo que contribuye dicho conglomerado al desgaste en la ruta r‖ en la estación de cobro de peaje ―ecp‖, entre el desgaste relativo total que hacen los vehículos sujetos a cobro de peaje, en la ruta ―r‖ en que está especificada una estación de cobro de peaje ―epc‖. Este cociente es:
 cDR(i,ecp,r,t,T,fa)= UR(i,ecp,r,t,T,fa) / DRT(ecp,r,t,T,fa)
-Sigue ahora, determinar el costo de ese desgaste relativo para cada conglomerado de vehículos tipo “i” sujeto a cobro de peaje en cada estación de cobro de peaje “ecp”. El costo imputable variable en cada estación de cobro de peaje “ecp” de cada ruta “r” para la frecuencia del estudio tarifario “fa”, se definió en la sección 10.1 como CPvTot(fa,t,T,ecp,r). Hay que distribuir ese costo de acuerdo con el desgaste relativo que hace cada conglomerado de vehículos tipo “i” sujeto a cobro de peaje en cada estación de cobro de peaje “ecp”. Esto se hace multiplicando el costo total en colones proyectados de imputación variable con frecuencia “fa” durante el periodo de fecha inicial de la proyección “t” y de fecha final de proyección “T” en cada una de las estaciones de cobro de peaje “ecp” de las rutas “r”, CPvTot(fa,t,T,ecp,r), por la contribución relativa porcentual al desgaste - cDR(i,ecp,r,t,T,fa)- que hace cada conglomerado de vehículos tipo “i” sujeto a cobro de peaje en cada estación de cobro de peaje “ecp”.
+Sigue ahora, determinar el costo de ese desgaste relativo para cada conglomerado de vehículos tipo "i" sujeto a cobro de peaje en cada estación de cobro de peaje "ecp". El costo imputable variable en cada estación de cobro de peaje "ecp" de cada ruta "r" para la frecuencia del estudio tarifario "fa", se definió en la sección 10.1 como CPvTot(fa,t,T,ecp,r). Hay que distribuir ese costo de acuerdo con el desgaste relativo que hace cada conglomerado de vehículos tipo "i" sujeto a cobro de peaje en cada estación de cobro de peaje "ecp". Esto se hace multiplicando el costo total en colones proyectados de imputación variable con frecuencia "fa" durante el periodo de fecha inicial de la proyección "t" y de fecha final de proyección "T" en cada una de las estaciones de cobro de peaje "ecp" de las rutas "r", CPvTot(fa,t,T,ecp,r), por la contribución relativa porcentual al desgaste - cDR(i,ecp,r,t,T,fa)- que hace cada conglomerado de vehículos tipo "i" sujeto a cobro de peaje en cada estación de cobro de peaje "ecp".
 (Así reformado el párrafo anterior mediante resolución RJD-204 del 21 de setiembre de 2015)
 Finalmente, esta imputación de costos variables para el conglomerado, se debe distribuir entre la totalidad de los tipos de vehículos ―i‖ sujeto a cobro de peaje en cada estación de cobro de peaje ―ecp‖, con el fin de obtener el precio o tarifa que debe pagar una unidad de vehículo en particular de la clase de los vehículos ―i‖ sujeto a cobro de peaje en cada estación de cobro de peaje ―ecp‖.
 Esta distribución se obtiene de la siguiente división:
@@ -544,6 +544,7 @@ Tpa(i,fa,ecp,r) = Tpua(ecp,r,fa) + Tpva(i,ecp,r,fa) Ecuación 5
 Se establece que para el caso i=Moto la variable Tpva(i,ecp,r,fa) es cero, siempre y cuando el ―fec‖ sea igual a cero para este tipo de vehículos.
 De esta manera, se ha establecido una tarifa para cada tipo de vehículo ―i‖ sujeto a cobro de peaje en cada estación de cobro de peaje ―ecp‖ para cada ruta ―r‖, que se aplicará anualmente, todo de conformidad con la solicitud tarifaria, el estudio tarifario, el procedimiento de participación ciudadana y demás procesos legales que se incurren en el proceso de fijaciones tarifarias en la Aresep.
 La tarifa final correspondiente para un tipo de vehículo ―i‖ sujeto a cobro de peaje que transite por una estación de cobro de peaje ―ecp‖ de una ruta ―r‖, serán redondeadas aplicando el criterio a los cinco colones más cercanos. Como se ha indicado, para esta metodología aplica la Ley No. 7593 y en particular lo estipulado en los artículos 4, 31 y 32, de manera tal que las tarifas finales resultantes mantengan el principio del servicio al costo, armonicen los intereses de los consumidores, usuarios y prestadores de los servicio públicos y se procure el equilibrio entre las necesidades de los usuarios y los intereses de los prestadores de los servicios públicos, entre otras cosas.
+(Nota de Sinalevi: Mediante el Por Tanto III de la resolución N° RE-0050-JD-2026 del 10 de junio del 2026, se acordó suspender de manera parcial y temporal la resolución RJD-151-2014, específicamente, en cuanto al redondeo de la tarifa final, establecida en la sección 10.4 Tarifa por tipo de vehículo en cada estación de cobro de peaje y dimensionar los efectos de la citada suspensión estableciendo una regla supletoria temporal de redondeo que aplique como criterio tarifario el redondeo de las tarifas finales por tipo de vehículo para cada estación de cobro de peaje, conforme a la moneda de menor denominación que se encuentre en circulación de acuerdo con el cono monetario vigente, según lo que establece el Banco Central de Costa Rica, de manera que se aplique al múltiplo más cercano de la moneda de menor denominación que e encuentre vigente. Asimismo, en el Por tanto IV de la resolución antes mencionada se dispone que la suspensión parcial y temporal indicada en el Por Tanto III, será hasta tanto la Junta Directiva, siguiendo el debido proceso, apruebe una modificación de la metodología tarifaria vigente conforme con lo indicado en el oficio OF-0684-IT-2026)
 11. MECANISMO DE REVISIÓN PERIÓDICA
 En relación con la aprobación, improbación y fijación de las tarifas de peajes de conservación vial y de conformidad con el marco legal de la Aresep estipulado en la Ley No. 7593; la Intendencia de Transportes realizará al menos una revisión al año siguiente de las tarifas aprobadas. Dicho proceso lo realizará cada año consecutivo a la vigencia eficaz de un pliego tarifario.
 Para tales efectos la Intendencia de Transportes solicitará toda la información que considere necesaria a las autoridades del Conavi y entes que así disponga. Igualmente, la Intendencia de Transportes podrá realizar todos los cálculos necesarios de estimación y proyección de variables, utilizando la información disponible y la nueva información solicitada. La Aresep velará por mantener el servicio al costo y el equilibrio financiero de acuerdo a la Ley No. 7593.
@@ -553,4 +554,4 @@ Con base en la fiscalización a posteriori de los recursos que realice la Intend
 Si producto del seguimiento tarifario se determina que el Conavi presenta un superávit no programado de los recursos proyectados por medio de las tarifas, éste se podría devolver a los usuarios presentando una solicitud de ajuste tarifario, o bien, posponiendo la entrada en vigencia de las tarifas previamente aprobadas. Si se diera el caso contrario (déficit sobre los recursos proyectados mediante tarifas), se le indicará al operador la conveniencia de presentar un estudio tarifario. En cualquiera de las situaciones indicadas, la Intendencia de Transportes analizará la posibilidad de realizar de oficio el ajuste tarifario correspondiente.
 12. APLICACIÓN DE ESTA METODOLOGÍA
 Una vez publicada en el diario oficial La Gaceta, la presente metodología entrará a regir un día después de su publicación. La Intendencia de Transportes será la responsable de incorporar los cálculos que correspondan en la herramienta utilizada en el cálculo de la fijación tarifaria.
-(…)
+(.)
