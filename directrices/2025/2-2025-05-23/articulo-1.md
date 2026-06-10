@@ -1,4 +1,6 @@
+(Derogado)
 REGISTRO DE PERSONAS JURÍDICAS
+(Esta norma se dejó sin efecto mediante directriz N° DPJ-002-2026 del 10 de julio de 2026,"Aplicación registral de las Leyes N° 10.597 y 10.962.")
 DIRECTRIZ DPJ-002-2025
 DE: Dirección Registro de Personas Jurídicas.
 PARA: Funcionarios Registro de Personas Jurídicas, Notarios, y Público en General.
