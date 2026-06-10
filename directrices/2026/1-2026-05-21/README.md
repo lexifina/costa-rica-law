@@ -14,3 +14,4 @@ Modificación a la Directriz DPJ-002-2025: Prórroga del plazo para la presentac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-28 | la propia norma |
+| 2 | 2026-06-10 | Directriz 2 (2026-07-10) |

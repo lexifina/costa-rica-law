@@ -1,4 +1,6 @@
+(Derogado)
 JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+(Esta norma se dejó sin efecto mediante directriz N° DPJ-002-2026 del 10 de julio de 2026,"Aplicación registral de las Leyes N° 10.597 y 10.962.")
 DIRECCIÓN REGISTRO DE PERSONAS JURÍDICAS
 DIRECTRIZ DPJ-001-2026
 De: Dirección Registro de Personas Jurídicas.
