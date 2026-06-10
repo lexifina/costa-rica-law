@@ -1,0 +1,1 @@
+ARTÍCULO 17- Erradicación. En plantaciones donde los dueños no accedan de forma pasiva a la eliminación de árboles y cuyas fincas se encuentren en abandono, se procederá con la total erradicación de dichos árboles. Queda facultada la autoridad competente al debido cobro de los costos, al propietario registral.
