@@ -1,12 +1,4 @@
 CAPITULO IX
 Derechos y deberes
-Artículo 44.- Los servidores judiciales gozarán del derecho de
-estabilidad, cuando ingresen debidamente al servicio judicial y cuando no
-se trate de funcionarios de período fijo; y sólo podrán ser removidos por
-reducción forzosa de servicios o cuando haya mérito para ordenar su
-traslado o permuta a otro puesto de la misma o inferior clase, o de su
-separación para el mejor servicio público, o cuando incurran en causal de
-despido, de acuerdo con el presente Estatuto, sus reglamentos, la Ley
-Orgánica del Poder Judicial o el Código de Trabajo.
-(Así reformado por el artículo 2º de la Ley Nº 6761 de 31 de mayo de
-1982).
+Artículo 44.- Las personas servidoras judiciales gozarán del derecho de estabilidad, cuando ingresen debidamente al servicio judicial y cuando no se trate de personas funcionarias de período fijo; y solo podrán ser removidas por reducción forzosa de servicios o cuando haya mérito para ordenar su traslado o permuta a otro puesto de la misma o inferior clase, o de su separación para el mejor servicio público, o cuando incurran en causal de despido, de acuerdo con el presente Estatuto, sus reglamentos, la Ley 8, Ley Orgánica del Poder Judicial, del 29 de noviembre de 1937, la Ley de Régimen Sancionador de Personas Servidoras e Integrantes de Listas de Suplentes, Elegibles y Meritorias del Poder Judicial o la Ley 2, Código de Trabajo, del 27 de agosto de 1943.
+(Así reformado por el artículo 234 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)

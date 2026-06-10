@@ -1,6 +1,2 @@
-Artículo 28.- Del régimen disciplinario. Los funcionarios y
-empleados del Ministerio Público estarán sometidos al régimen
-disciplinario y laboral que establece la ley Orgánica del Poder Judicial.
-Sin embargo, corresponde al Fiscal General conocer del recurso de
-apelación de la resolución del Tribunal de la Inspección Judicial que
-revoque el nombramiento a un fiscal adjunto, fiscal o fiscal auxiliar.
+Artículo 28.- Del régimen disciplinario. Los funcionarios y empleados del Ministerio Público estarán sometidos al régimen disciplinario y laboral que establece la ley Orgánica del Poder Judicial.
+(Derogado el párrafo segundo por el artículo 237 de la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo de 2026)
