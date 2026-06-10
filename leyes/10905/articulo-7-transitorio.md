@@ -1,0 +1,1 @@
+TRANSITORIO VII- Creación e implementación del registro público de sanciones de despido En el plazo máximo de un año, contado a partir de la publicación en el diario oficial La Gaceta, el Poder Judicial creará e implementará el registro público que se regula en el artículo 230 de esta ley.

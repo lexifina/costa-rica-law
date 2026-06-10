@@ -1,0 +1,2 @@
+ARTÍCULO 219- Reenvío
+Si el Tribunal Administrativo Sancionador de Apelación ordena retrotraer el expediente al momento en que el vicio fue cometido, lo reenviará para ser tramitado y resuelto por los mismos órganos director y decisor, este último en lo posible integrado por personas distintas; el plazo respectivo se retrotraerá al momento en que el vicio fue cometido y continuará su curso nuevamente a partir de que el órgano director o decisor recibe el expediente.

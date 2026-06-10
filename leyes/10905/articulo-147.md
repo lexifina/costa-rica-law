@@ -1,0 +1,2 @@
+ARTÍCULO 147- Ampliación del acceso a información mediante el trámite de garantía judicial
+Si durante la diligencia surge sospecha razonable de que, en cualesquiera otra oficina o instalación pública o privada, se halla evidencia relevante para el objeto de la diligencia, que pueda servir para verificar la verdad real de los hechos, el órgano decisor podrá solicitar a la autoridad judicial competente una ampliación de la autorización concedida, para que se tenga acceso a la información que exista en dichas oficinas, instalaciones o establecimientos.

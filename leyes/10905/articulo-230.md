@@ -1,0 +1,2 @@
+ARTÍCULO 230- Registro público
+Las sanciones de despido sin responsabilidad patronal por faltas de corrupción, hostigamiento sexual y en los casos que la ley lo establezca, serán anotadas en un registro que el Poder Judicial habilitará en su página web y será de acceso público. Las anotaciones tendrán una vigencia de diez años contados a partir de la firmeza del acto sancionatorio y una vez transcurrido ese lapso serán eliminadas automáticamente y de manera permanente del sistema.

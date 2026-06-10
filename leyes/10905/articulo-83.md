@@ -1,0 +1,3 @@
+ARTÍCULO 83- Denunciante simple
+Será denunciante simple aquella persona, física o jurídica, privada o pública, sin ser afectada directamente por la conducta, que pone en conocimiento del órgano disciplinario el presunto hecho que configura falta.
+La persona denunciante simple no tendrá la condición de parte en el procedimiento, por lo que no le asisten los derechos del debido proceso y únicamente se le deberá informar si su denuncia será tramitada y notificar el resultado, cuando haya aportado un medio para recibir notificaciones; sin embargo, al no ser parte del procedimiento no contará con el derecho de presentar recurso alguno.

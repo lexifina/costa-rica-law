@@ -1,0 +1,2 @@
+ARTÍCULO 39- Perpetuidad de la competencia
+Los cambios en cuanto al puesto o cargo que desempeñe la persona, sean por nombramiento en propiedad o interino, traslado, permuta, reubicación, ascenso o cualquier otro movimiento de personal, no modificarán la competencia que se determine conforme los criterios establecidos en el artículo anterior; salvo que el cambio de puesto o cargo sea hacia uno cuyo régimen sancionador es exclusivo de la Corte Plena, caso en el cual conocerá ese órgano.

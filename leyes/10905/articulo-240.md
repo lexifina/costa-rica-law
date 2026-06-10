@@ -1,0 +1,3 @@
+ARTÍCULO 240- Ley 7425, Ley sobre Registro, Secuestro y Examen de Documentos Privados e Intervención de las Comunicaciones, del 9 de agosto de 1994
+Refórmese el artículo 28 de la Ley 7425, Ley sobre Registro, Secuestro y Examen de Documentos Privados e Intervención de las Comunicaciones, del 9 de agosto de 1994. El texto es el siguiente:
+Artículo 28- Los resultados de la intervención de las comunicaciones orales o escritas no podrán ser utilizados para ningún propósito distinto del que motivó la medida. Pero dicha prueba podrá ser trasladada y utilizada en los procedimientos sancionatorios por faltas de corrupción regulados en la Ley de Régimen Sancionador de Personas Servidoras e Integrantes de Listas de Suplentes, Elegibles y Meritorias del Poder Judicial.

@@ -1,0 +1,2 @@
+ARTÍCULO 204- Condiciones de interposición
+Los recursos se interpondrán ante el órgano que dictó el acto, en las condiciones de tiempo y forma que se determinan en esta ley. Bastará para su correcta formulación que de su texto se infiera claramente la pretensión de revocación o anulación, total o p arcial. Tratándose de recursos de apelación, deberán contener, aunque sea de manera sucinta, los motivos concretos que la fundamentan.

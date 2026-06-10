@@ -1,0 +1,2 @@
+ARTÍCULO 45- Acceso a los registros y base de datos del Poder Judicial
+Los órganos instructores o decisores tendrán acceso a los registros y a las bases de datos que obren en poder de todo órgano del Poder Judicial, salvo disposición legal en contrario. A estos efectos, se realizarán los desarrollos informáticos oportunos con el f in de facilitar el acceso electrónico, de forma que se puedan realizar consultas sobre información contenidas en las bases de datos y registros en condiciones que mantengan la seguridad, confidencialidad e integridad de la información.

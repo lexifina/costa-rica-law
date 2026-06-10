@@ -1,0 +1,2 @@
+ARTÍCULO 96- Reposición del expediente
+Si se llegare a perder, dañar o extraviar el expediente o una de sus piezas, el órgano competente podrá solicitar a la parte la copia del recibido de la información extraviada, dañada o perdida, siempre y cuando no se pueda obtener por el mismo órgano. En todo caso el órgano competente no podrá trasladar a la parte los gastos que implique la reposición de documentos.

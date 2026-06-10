@@ -1,0 +1,4 @@
+ARTÍCULO 218- Examen y resolución
+El recurso deberá resolverse en el plazo de un mes. Al decidirse el recurso de apelación, se resolverá sobre su admisibilidad y, de ser así, se confirmará, modificará o revocará el acto impugnado. Cuando se revoque el acto, enmendará el vicio y resolverá el asunto conforme corresponda; si el vicio fuera de forma de los que originan nulidad, se ordenará que se retrotraiga el expediente al momento en que el vicio fue cometido, salvo posibilidad de saneamiento o ratificación.
+El Tribunal Administrativo Sancionador de Apelación hará uso de los registros que tenga disponibles, reproducirá la prueba oral cuando lo estime necesario, pertinente y útil para la procedencia del reclamo, y hará la valoración integral que corresponda con el resto de las actuaciones y la prueba introducida por escrito.
+La resolución por el fondo del recurso dará por agotada la vía administrativa.

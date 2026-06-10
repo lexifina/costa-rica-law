@@ -1,0 +1,1 @@
+ARTÍCULO 235- Derogatorias a la Ley 5524, Ley Orgánica del Organismo de Investigación Judicial, del 7 de mayo de 1974 Deróguense los artículos 50 y 51 de la Ley 5524, Ley Orgánica del Organismo de Investigación Judicial, del 7 de mayo de 1974.

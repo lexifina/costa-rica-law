@@ -1,0 +1,2 @@
+TRANSITORIO II- Traslados de personal
+Se faculta a la Corte Plena y al Consejo Superior del Poder Judicial para realizar los traslados de personas servidoras judiciales y los puestos que resulten necesarios para el debido funcionamiento de los órganos que se establecen en la presente ley. En ningún caso podrá reducirse el salario que devenga la persona servidora. Se tendrá, para los efectos de la presente disposición, que la asignación de diferentes funciones a las encomendadas hasta el momento a la persona servidora, no afecta la relación de servicio.

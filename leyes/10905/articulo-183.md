@@ -1,0 +1,2 @@
+ARTÍCULO 183- Notificación del acto inicial de traslado de cargos y plazo para apersonarse
+El acto inicial de traslado de cargos deberá notificarse a la persona encausada en las formas dispuestas en el artículo 103 de esta ley; se le concederá un plazo de cinco días hábiles para que se apersone al procedimiento, señale medio para recibir notificaciones y, en caso de que proceda, solicite la designación de Defensa Pública, sin perjuicio del derecho de rendir su contestación en la audiencia oral.

@@ -1,0 +1,3 @@
+ARTÍCULO 115- Requisitos
+Los acuerdos que se pacten con la persona encausada podrán contener compromisos de hacer o dejar de hacer, siempre que no sean contrarios al orden público. No será posible pactar la terminación convencional en los casos en que la ley expresamente lo prohíba, los que constituyan acoso sexual o corrupción. Será requisito para la terminación convencional, que la persona encausada no se haya beneficiado de esta medida por una conducta similar en los últimos tres años.
+Tratándose de faltas que impliquen daños o pérdidas de activos, máquinas, materiales, útiles, muebles, instalaciones o herramientas de la institución y que no haya mediado dolo en su comisión, se podrá pactar el valor patrimonial correspondiente a su reparación o restitución.

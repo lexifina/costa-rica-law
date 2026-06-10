@@ -1,0 +1,2 @@
+ARTÍCULO 163- Informes de la Contraloría General de la República
+La Contraloría General de la República, en el marco de sus competencias, podrá remitir al Tribunal Administrativo Sancionador del Poder Judicial, los informes relacionados con una persona servidora judicial obligada a declarar, por presuntas infracciones asociadas a la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, del 6 de octubre del 2004, con el propósito de que se valore la apertura de las investigaciones o procedimientos correspondientes.

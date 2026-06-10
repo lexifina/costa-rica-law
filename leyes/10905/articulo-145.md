@@ -1,0 +1,2 @@
+ARTÍCULO 145- Potestades adicionales durante la diligencia
+La persona funcionaria a cargo de la diligencia estará autorizada para entrevistar y requerir información, en el acto, a cualquier persona que se encuentre presente durante la visita, con el objeto e indagar sobre la existencia y ubicación de la información y los documentos que sean pertinentes para la investigación. Estas deberán proporcionar cualquier información que sea útil para localizar la información y documentación pertinente, salvo que se trate de la persona funcionaria investigada o encausada.

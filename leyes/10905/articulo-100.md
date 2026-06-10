@@ -1,0 +1,4 @@
+ARTÍCULO 100- Adición y aclaración
+El órgano competente podrá aclarar cualquier pronunciamiento oscuro, ambiguo o contradictorio que contenga un acto, o adicionar sobre algún punto discutido; tratándose del acto final o definitivo, la adición o aclaración solo procederá respecto de la parte dispositiva.
+Las partes y demás intervinientes podrán solicitar la adición o aclaración solamente de los actos de trámite con efecto propio, el acto final y el acto definitivo; cuando se haya dictado de manera escrita deberán hacerlo dentro de los tres días siguientes; si se dictó de manera oral deberán solicitar y justificarlo de forma oral en el mismo momento y se resolverá de inmediato.
+La solicitud de adición o aclaración interrumpirá el término para interponer los recursos que procedan, el cual se reiniciará una vez notificado lo resuelto.

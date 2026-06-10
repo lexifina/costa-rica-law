@@ -1,0 +1,3 @@
+ARTÍCULO 139- Facultades y deberes
+A los fines de la recepción de la prueba, el órgano director tendrá las mismas facultades y deberes que las autoridades judiciales.
+Cuando se requiera la prestación del juramento, se recibirá por las creencias de quien jura, después de haberle instruido sobre las penas con que la ley reprime el falso testimonio o la denuncia calumniosa. Quien declare prometerá decir la verdad en todo cuanto sepa y se le pregunte. Si la persona se niega a prestar juramento en virtud de creencias religiosas o ideológicas, se le exigirá promesa de decir la verdad, con las mismas advertencias y sin perjuicio del derecho de abstención que regula el ordenamiento jurídico.

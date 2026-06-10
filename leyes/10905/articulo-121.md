@@ -1,0 +1,3 @@
+ARTÍCULO 121- Plazo de cumplimiento
+El plazo máximo para el cumplimiento de los compromisos pactados en la terminación convencional será de tres años.
+En caso de cumplimiento de los compromisos pactados, se deberá resolver a favor de la persona encausada archivando el asunto. De no cumplirse, sin justa causa, se reactivará el procedimiento en el estado que se encontraba antes de la suspensión. En caso de incumplimiento por causa justificada, el órgano decisor podrá prorrogar el plazo de acuerdo con las circunstancias particulares; si finalizada la prórroga no se han cumplido los compromisos, se reactivará el procedimiento en el estado que se encontraba antes de haberse acordado la terminación convencional.
