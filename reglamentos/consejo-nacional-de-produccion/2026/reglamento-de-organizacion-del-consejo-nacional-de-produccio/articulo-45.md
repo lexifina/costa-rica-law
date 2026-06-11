@@ -1,0 +1,16 @@
+Artículo 45°-Unidad de Logística y Ventas. Su objetivo es velar por la calidad del servicio brindado a los clientes institucionales a lo largo de la cadena de suministro del Programa de Abastecimiento Institucional (PAI) con base en la gestión eficaz y eficiente de los requerimientos brindados por los productos ofrecidos.
+A efecto de atender sus competencias tendrá las siguientes funciones:
+a. Coordinar y facilitar las relaciones comerciales entre los distintos actores del Programa de Abastecimiento Institucional (PAI) y los clientes institucionales, garantizando un flujo eficiente, transparente y equitativo en la cadena de abastecimiento.
+b. Coordinar la distribución y entrega de productos adquiridos, asegurando la trazabilidad integral de la cadena de abastecimiento desde la producción hasta la venta, permitiendo la reconstrucción completa del proceso y garantizando transparencia en todas las fases logísticas.
+c. Gestionar juntamente con las Direcciones Regionales para que se brinde una adecuada atención a los clientes institucionales de conformidad con los principios de eficiencia y eficacia, calidad e inocuidad de los productos suministrados de acuerdo con los requerimientos establecidos.
+d. Realizar las acciones correspondientes en conjunto con las direcciones regionales para la atención de las ventas entrantes por la plataforma de Sistema Integrado de Compras Públicas (SICOP), con el fin garantizar un servicio pertinente y oportuno para con el cliente institucional.
+e. Llevar el control de los saldos de morosidad o cuentas por cobrar de los clientes institucionales.
+f. Monitorear el flujo de actividades de logística y ventas realizado por las direcciones regionales, con la finalidad de asegurar el correcto abastecimiento de los clientes.
+g. Facilitar la aplicación de instrumentos de comercialización como mesas de negocios, ferias, subastas y otros.
+h. Promover, en coordinación con las instituciones del sector agropecuario, el establecimiento de nuevos mercados y las normas de aprovechamiento, en beneficio de organización cooperativas y organizaciones de desarrollo comunal.
+i. Promover actividades de comercialización al micro, pequeño y mediano productor o sus organizaciones, por medio del Programa de Abastecimiento Institucional, con la finalidad de apoyarles con precios favorables tanto para el productor como al consumidor.
+j. Establecer estrategias de comercialización acorde con la capacidad empresarial y financiera de los grupos de agricultores y actores que participan en el Programa de abastecimiento Institucional.
+k. Las demás funciones que le sean asignadas por sus superiores jerárquicos o el ordenamiento jurídico.
+La Unidad de Logística y Ventas, estará a cargo de un funcionario(a) con un puesto de jefe(a), posee las características de un órgano de apoyo administrativo. Su superior inmediato será la jefatura del Departamento de Abastecimiento Institucional. No tiene dependencias directas a cargo.
+Por la naturaleza de sus funciones, mantendrá relaciones con todas las Dependencias que conforman la Estructura Organizacional del CNP.
+La coordinación con entidades externas se llevará a cabo por medio de la jefatura del Departamento al que está adscrito.

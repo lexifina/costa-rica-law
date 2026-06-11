@@ -1,0 +1,5 @@
+SECCIÓN IV
+DE LAS DIRECCIONES REGIONALES
+Artículo 47°-Direcciones Regionales. Sus compendias serán dirigir y ejecutar las políticas institucionales en su territorio, mediante el acompañamiento técnico, coordinación, supervisión, fiscalización, control de calidad, asignación de mercados y fortalecimiento de capacidades productivas de los micro, pequeños y medianos productores agropecuarios, agroindustriales, pesqueros y acuícolas; que contribuyan al abastecimiento y al desarrollo económico local.
+Las Direcciones Regionales estarán a cargo de una jefatura que tiene un puesto de Jefe(a), posee la característica de órgano ejecutivo y de coordinación. Su superior inmediato será el Gerente(a) General.
+Por la naturaleza de sus funciones, mantendrá relaciones con todas las dependencias de la Estructura Organizacional del CNP, y a nivel externo, por su competencia y funciones tendrá relación con Entidades del Gobierno Central, entidades descentralizadas, entes u órganos de control y fiscalización que están vinculados directamente con sus funciones, además con los micro, pequeños y medianos productores, así como empresas suplidoras de bienes y servicios.

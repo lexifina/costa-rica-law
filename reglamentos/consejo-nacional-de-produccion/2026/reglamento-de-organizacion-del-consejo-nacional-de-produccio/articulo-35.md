@@ -1,0 +1,1 @@
+Artículo 35°-Departamento de Calidad Su competencia será garantizar por que la calidad comercial de los productos agrícolas y agroindustriales que comercialice la institución, el sector privado u otras entidades del Estado, cumplan con los requisitos y criterios establecidos por los diferentes entes nacionales e internacionales en el ámbito de competencia institucional.

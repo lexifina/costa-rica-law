@@ -1,0 +1,2 @@
+CAPITULO III DISPOSICIONES FINALES
+Artículo 52°- Transitorio para la implementación. El Gerente(a) General será responsable del proceso de implementación de las Secciones III y IV del Capítulo II Competencias y Funciones, específicamente de la Dirección de Operaciones y la Regionalización, con el fin de que sea ordenado y de ser necesario contemplar los recursos para su incorporación en la formulación presupuestaria del periodo 2026-2027.

@@ -1,0 +1,1 @@
+Artículo 53°- Vigencia. Este Reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción mediante Acuerdo No. 40606, artículo 6 de la Sesión Ordinaria No. 3206, celebrada el 01 de junio de 2026, y entrará en vigor a partir de su publicación en el Diario Oficial La Gaceta.

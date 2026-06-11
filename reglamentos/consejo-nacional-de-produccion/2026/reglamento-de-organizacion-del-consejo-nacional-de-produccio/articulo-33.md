@@ -1,0 +1,11 @@
+Artículo 33°- Funciones. La Dirección de Operaciones tendrá las siguientes funciones:
+a. Diseñar, promover e implementar intervenciones públicas dirigidas al desarrollo del sector agrícola y agroindustrial del país, tendiente a la reconversión productiva con prioridad en los micro, pequeños y medianos productores, así como sus organizaciones.
+b. Coordinar con otras instituciones públicas programas de investigación, capacitación y transferencia tecnológica de productos agropecuarios, en el campo de la industrialización y comercialización, directamente o por medio de contrataciones con personas físicas o jurídicas, públicas o privadas, nacionales o extranjeras.
+c. Velar por la efectiva ejecución del ciclo comercial para el abastecimiento institucional desde la participación de los micro, pequeños, medianos productores hasta la entrega de los productos institucionales.
+d. Gestionar y rendir cuentas sobre el Programa de Abastecimiento Institucional de acuerdo con las políticas y directrices emanadas de los entes externos de control y fiscalización, así como de la Junta Directiva y de la Presidencia Ejecutiva del CNP.
+e. Asesorar a las jerarquías institucionales sobre la gestión de los macroprocesos de abastecimiento institucional, inteligencia de mercados, verificación de calidad, plantas de proceso, asistencia técnica, producción y disponibilidad de semillas.
+f. Habilitar cuando se requiera la sociedad anónima CNP-VAGRO para la compra y venta de los productos agropecuarios en bolsas de productos agropecuarios o de comercio.
+g. Gestionar los procesos de exportación e importación de los productos agropecuarios, insumos agrícolas y fertilizantes para uso agropecuario de manera directa o por medio de las organizaciones de productores avaladas o respaldadas por el Consejo.
+h. Evaluar el desempeño de las acciones de las dependencias a su cargo y emitir las acciones preventivas o correctivas necesarias para el logro de los objetivos definidos.
+i. Asesorar al Programa de Ferias del Agricultor, a fin de que se cumpla con el objetivo de servicio a los productores y consumidores en la materia que compete al CNP.
+j. Las demás funciones que le sean asignadas por sus superiores jerárquicos o el ordenamiento jurídico.
