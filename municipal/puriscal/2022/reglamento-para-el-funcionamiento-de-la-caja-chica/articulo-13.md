@@ -1,1 +1,1 @@
-Articulo 13.-No se entregará otro vale de Caja Chica a un funcionario que tenga pendiente la liquidación de un vale anterior.
+Articulo 13.- (Eliminado y publicado en el Alcance Digital N° 74 a La Gaceta N° 107 del 11 de junio de 2026)

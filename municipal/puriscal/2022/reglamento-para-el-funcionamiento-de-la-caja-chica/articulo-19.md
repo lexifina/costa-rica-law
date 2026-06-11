@@ -1,1 +1,1 @@
-Articulo 19.-La liquidación del vale quedará formalizada cuando el responsable de la caja chica revise todos los requisitos y estampe su sello de recibido conforme en el documento de vale de caja chica (o firma digital), y será responsabilidad de la jefatura que firma el vale, constar el ingreso de los bienes y servicios adquiridos.
+Articulo 19.-(Eliminado y publicado en el Alcance Digital N° 74 a La Gaceta N° 107 del 11 de junio de 2026)

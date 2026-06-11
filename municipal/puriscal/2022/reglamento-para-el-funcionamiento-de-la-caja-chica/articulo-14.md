@@ -1,1 +1,1 @@
-Articulo 14.-Los vales de caja chica podrán ser tramitados ante la Tesorería Municipal de manera digital o impresa, de acuerdo con las directrices internas emitidas por la Alcaldía Municipal, para cada uno de los casos.
+Articulo 14.- (Así reformado y publicado en el Alcance Digital N° 74 a La Gaceta N° 107 del 11 de junio de 2026)

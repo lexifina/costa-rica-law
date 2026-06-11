@@ -1,1 +1,1 @@
-Artículo 18.-El monto de la compra o adquisición no podrá exceder el monto autorizado en el vale de caja chica, de presentarse esta situación el funcionario a nombre de quien se giró el vale deberá asumir el gasto diferencial resultado.
+Artículo 18.- (Eliminado y publicado en el Alcance Digital N° 74 a La Gaceta N° 107 del 11 de junio de 2026)

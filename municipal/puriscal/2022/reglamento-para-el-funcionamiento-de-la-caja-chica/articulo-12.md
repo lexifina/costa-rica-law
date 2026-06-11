@@ -1,1 +1,2 @@
-Artículo 12.-Se autoriza al Tesorero (a) Municipal (o asistente) para entregar el efectivo del fondo de caja chica, contra la presentación del vale respectivo, de conformidad con el art. 11 de este Reglamento.
+Artículo 12.-Se autoriza al Tesorero(a) Municipal a realizar las transferencias del fondo de Caja Chica, así como a entregar el efectivo del fondo de Caja Chica contra la presentación del respectivo documento de conformidad con los artículos 4, 10 y 11 de este reglamento. En los casos de gestiones en efectivo, la entrega y el recibo de reintegros también podrán ser realizados por el/la Asistente de Tesorería.
+(Así reformado y publicado en el Alcance Digital N° 74 a La Gaceta N° 107 del 11 de junio de 2026)
