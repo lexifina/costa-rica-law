@@ -13,3 +13,4 @@ Sobre los 21 ejes de acción recomendados por Comisión de Acceso a la Justicia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-31 | la propia norma |
+| 2 | 2026-06-11 | Circular 188 (2026-06-11) |
