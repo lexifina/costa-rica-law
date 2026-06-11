@@ -1,0 +1,2 @@
+Artículo 6º-Modifíquese el artículo 12 de la siguiente manera:
+Artículo 12.-Se autoriza al Tesorero(a) Municipal a realizar las transferencias del fondo de Caja Chica, así como a entregar el efectivo del fondo de Caja Chica contra la presentación del respectivo documento de conformidad con los artículos 4, 10 y 11 de este reglamento. En los casos de gestiones en efectivo, la entrega y el recibo de reintegros también podrán ser realizados por el/la Asistente de Tesorería.

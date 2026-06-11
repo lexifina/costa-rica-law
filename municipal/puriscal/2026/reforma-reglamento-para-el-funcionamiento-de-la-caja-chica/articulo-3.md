@@ -1,0 +1,2 @@
+Artículo 3º-Modifíquese el artículo 9 de la siguiente manera:
+Artículo 9.-La Caja Chica recibirá devoluciones de dinero en efectivo o mediante transferencias bancarias según sea el caso. La gestión realizada mediante el fondo de Caja Chica no podrá exceder la suma indicada en la solicitud o Decisión Inicial y autorizada por la Tesorería Municipal. Si el gasto supera el monto autorizado, el funcionario a nombre de quien se giró la transferencia deberá asumir la diferencia.
