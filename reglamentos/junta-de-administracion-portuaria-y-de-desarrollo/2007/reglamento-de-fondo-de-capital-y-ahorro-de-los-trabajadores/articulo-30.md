@@ -1,3 +1,0 @@
-ARTÍCULO 30
-DE LA COMISIÓN DE MICROEMPRESA
-Estará conformada por tres miembros, uno de cada representación, tendrá a su cargo la revisión y tramitación de los préstamos de microempresa, los cuales informarán a la Junta para su recomendación y aprobación, siempre y cuando cumpla con las reglas establecidas en el presente reglamento para los préstamos de microempresa.

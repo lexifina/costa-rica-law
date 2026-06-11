@@ -1,4 +1,0 @@
-ARTÍCULO 31
-DE LA COMISIÓN DE CRÉDITO
-Estará conformada por tres miembros, uno de cada una de las partes representativas, nombrados a través de un acuerdo de la Junta Administradora, cuya función será analizar el crédito, revisando comprobantes de pagos, garantías sólidas, fianzas libres de embargo, capacidad de pago, valor de las propiedades, verificación de fiscalización de obra, y analizar conforme a la lista los créditos asignados para el mes en las diferentes líneas y valorar la aprobación o desaprobación del crédito, para ser elevada a la Junta con toda la documentación entregada por los afiliados (as) con el criterio del responsable o encargado administrativo del análisis y con la firma del administrador del Fondo, para su aprobación o improbación de la Junta.
-La Comisión del Comité de Crédito deberá elaborar un informe trimestral para la Junta Administradora, para garantizar la efectividad de las funciones realizadas.

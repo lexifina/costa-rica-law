@@ -1,3 +1,0 @@
-ARTÍCULO 26
-DE LAS INVERSIONES TRANSITORIAS DE RECURSOS OCIOSOS TEMPORALMENTE SEGÚN EL FLUJO DE CAJA
-De las inversiones transitorias de recursos ociosos temporalmente según el flujo de caja. Con el fin de no desfinanciar la cuenta del Fondo, se creará una reserva mensual que definirá la Junta Administradora, para no suspender los préstamos, la cual se invertirá en las mejoras condiciones de garantía, rentabilidad y liquidez; prefiriendo en igualdad de condiciones las inversiones que produzcan mayor rentabilidad y beneficio de los trabajadores. Obligatoriamente en Títulos de Gobierno o Sistema Bancario Nacional lo cual podrá hacerse a través del Puesto de Bolsa.

@@ -1,4 +1,0 @@
-ARTÍCULO 32
-DE LA COMISIÓN DE ADMINISTRACIÓN Y FINANZAS
-Se crea la Comisión de Administración y Finanzas cuya función es la de revisar y aprobar en primera instancia los estados financieros del Fondo para su ratificación por parte de la Junta Administradora del Fondo y luego por la Asamblea General del Fondo y el análisis de cualquier otro asunto en materia Administrativa y Financiera que le asigne la Junta, o que ella misma decida llevar adelante de oficio. La Comisión estará integrada por un miembro de cada representación que conforma la Junta del Fondo debiendo ser uno de ellos el tesorero. En caso de ausencia de un miembro propietario a sesiones de la Comisión, este puede ser sustituido por el otro miembro de la misma representación o por el suplente.
-La Comisión de Finanzas, deberá elaborar un informe trimestral para la Junta Administradora, para garantizar la efectividad de las funciones realizadas.
