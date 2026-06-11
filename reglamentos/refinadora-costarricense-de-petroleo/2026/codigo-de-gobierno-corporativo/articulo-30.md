@@ -1,0 +1,3 @@
+Artículo 30. Evaluación de desempeño
+La Junta Directiva debe aprobar la normativa interna para evaluar anualmente el desempeño del Órgano de Dirección en su conjunto y de sus integrantes en forma individual, de sus Comités y de quienes conforman la Alta Gerencia. Para ello incluirá parámetros de eficiencia, eficacia, calidad y economía, entre otros. Asimismo, deberá aprobar la evaluación del desempeño del Auditor y Sub Auditor según la normativa interna.
+La Junta Directiva, cuando lo considere necesario, podrá contratar a una persona externa para que se realice todo el proceso de evaluación de desempeño del órgano colegiado, incluyendo los criterios a evaluar.

@@ -1,0 +1,3 @@
+Artículo 35 Funciones y Responsabilidades de la persona en puesto de Gerente(a) General
+La persona en el puesto de Gerente(a) General tiene la misión de ejecutar las directrices y la estrategia corporativa aprobadas por la Junta Directiva. Sus funciones están señaladas en los Estatutos Sociales, en el Reglamento de Organización y en la Guía de perfiles para el nombramiento de Puestos de Confianza.
+La persona en el puesto de Gerente(a) General está sometida al régimen de responsabilidad, establecido en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública Nº 8422, así como lo normado por el Código de Ética y Conducta y las políticas y reglamentos conexos.
