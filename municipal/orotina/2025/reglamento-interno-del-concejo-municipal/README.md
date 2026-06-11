@@ -14,3 +14,4 @@ Reglamento interno del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-31 | la propia norma |
+| 2 | 2026-06-11 | Reglamento municipal 146 (2026-06-11) |
