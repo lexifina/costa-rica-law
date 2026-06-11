@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE PURISCAL
+La Municipalidad de Puriscal una vez sometido a consulta pública las modificaciones al reglamento de estacionamiento de vehículos en las vías públicas del cantón de Puriscal y no habiendo observaciones al mismo, procédase a la publicación por segunda vez y de manera definitiva del mismo conforme al Acuerdo N° 016-133-2026 adoptado por el Concejo Municipal en sesión ordinaria N° 133, celebrada el 27 de febrero de 2026, en el Diario Oficial La Gaceta en los siguientes términos:
+Artículo 1: Modifíquese el artículo 13 del reglamento de estacionamiento de vehículos en las vías públicas del cantón de Puriscal:
+Artículo 13. Horario de operación del sistema de estacionamiento de vehículos en las vías públicas. Diez horas por día de lunes a sábado entre las ocho horas y las dieciocho horas. Sin embargo, dicho horario puede ser variado por la Administración para atender situaciones y eventos especiales.
