@@ -1,0 +1,6 @@
+Artículo 17 - De los requisitos para presentar solicitudes. Las solicitudes deberán ser presentadas ante el Departamento de Relaciones Públicas aportando los siguientes documentos, según lo correspondiente para cada tipo de donación:
+a. Completar el formulario "Perfil para solicitud de donaciones de carácter educativo, deportivo y recreativo" establecido para este tipo de donaciones, debidamente firmado y sellado por el representante legal de la organización o institución. Dicha solicitud deberá presentarse con no menos de 60 días naturales de anticipación al evento o proyecto.
+b. Copia de la cédula de identidad del representante.
+c. Copia del acta del órgano superior (Junta Directiva, Consejo de Administración o Junta Administrativa), en la que se especifiquen claramente el día, número de acta, acuerdo y artículo en firme, aprobando el proyecto o la solicitud de ayuda. El acta debe estar debidamente firmada y sellada por el presidente y el secretario. Además, debe incluir la autorización expresa para que el representante legal suscriba el convenio correspondiente.
+d. Certificación de personería jurídica vigente, que compruebe que la(s) personas firmantes estén debidamente inscritas.
+e. Certificación de idoneidad emitido por la institución correspondiente, en donde se demuestre que son aptos para administrar fondos públicos.

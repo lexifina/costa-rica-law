@@ -1,0 +1,5 @@
+Artículo 12 -Control de retiro de materiales sobrantes en una obra. Para lograr un uso adecuado de los recursos, se deberá retirar los materiales sobrantes, los cuales podrán ser asignados a otros proyectos comunales siempre y cuando cumplan con los requisitos establecidos en el presente Reglamento.
+a. Después de finiquitada la obra, en caso de existir sobrante de materiales, el Inspector de Enlace Comunal deberá realizar el inventario de estos completando el formulario "Notificación por material sobrante en proyecto".
+b. El Inspector de Enlace Comunal deberá realizar la documentación necesaria con el fin de justificar el sobrante de los materiales (inventarios, fotos, etc.), mismos que deberán incluirse en el expediente del proyecto.
+c. El material sobrante deberá ser trasladado al Plantel Municipal con el propósito de resguardar el mismo de forma correcta. En caso de que se done a una organización comunal podrá ser retirado por los interesados, cumpliendo con lo establecido en el Artículo 13.
+d. En caso de existir material perecedero, se podrán realizar los trámites correspondientes para salvaguardar el mismo y evitar pérdida de recursos públicos.

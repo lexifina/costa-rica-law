@@ -1,0 +1,7 @@
+Artículo 36 -Formalización de donaciones o proyectos específicos: Para cada donación o proyecto específico, el Departamento correspondiente deberá presentar al Concejo Municipal el día hábil previo a la realización de la sesión de correspondencia, una lista detallada de las donaciones que se programan realizar. Esta lista incluirá, como mínimo:
+a. La institución destinataria de la donación.
+b. Representante legal de la organización beneficiada.
+c. El detalle del objeto o recursos a donar.
+d. El código presupuestario del cual se genera la donación, en caso de ser procedente. e. La contrapartida por parte de la institución beneficiaria, en caso de existir. f. El plazo de ejecución
+g. Cada Jefatura de Departamento deberá presentar, junto con la lista de donaciones, un documento suscrito bajo fe de juramento en el cual declare que las donaciones indicadas cumplen con todas las formalidades establecidas en el presente Reglamento, que la documentación presentada ha sido verificada y validada, y que no existen impedimentos legales para su aprobación por el Concejo Municipal.
+Para dicha aprobación el Concejo Municipal contará con un plazo improrrogable de quince días naturales. Una vez aprobada la lista de donaciones por el Concejo Municipal, se procederá a formalizar un convenio de cooperación para cada donación específica. Dicho convenio se ajustará al borrador previamente aprobado por el Concejo y será suscrito entre la Municipalidad y la institución beneficiaria.

@@ -1,0 +1,6 @@
+Artículo 32 -Políticas para la formalización y ejecución de proyectos. Para formalizar y ejecutar los proyectos de índoles social "seguridad alimentaria, uniformes y útiles escolares" se seguirán los siguientes lineamientos:
+a. En el caso de las propiedades Municipales, la organización comunal deberá contar con el Convenio de Administración a la Alcaldía Municipal.
+b. El Departamento de Desarrollo Social deberá gestionar el proceso de compra de los insumos requeridos para la ejecución de los proyectos aprobados.
+c. La donación de los uniformes y útiles escolares se realizará a favor de las Juntas de Educación correspondientes, debiendo coordinarse lo relativo a la gestión de las solicitudes de donación y la distribución material a los beneficiarios finales a través de las Juntas de Educación, en coordinación y apoyo de los Concejos de Distrito, los cuales actuarán únicamente como instancias colaboradoras y fiscalizadoras".
+d. La donación de los insumos del programa seguridad alimentaria serán entregados de forma directa a la organización beneficiada.
+e. Para efectos de control de entrega, se realizará mediante una boleta de salida autorizada por el Departamento de Desarrollo Social. Así mismo, deberá firmarse por parte del responsable la "Declaración jurada de custodia de materiales".

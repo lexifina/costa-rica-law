@@ -1,0 +1,4 @@
+Artículo 20 -De los requisitos para donaciones de tipo ambiental. Estas solicitudes deberán ser presentadas ante el Departamento de Gestión Ambiental, con los siguientes requisitos: a. Solicitud formal debidamente firmada por el representante legal de la organización o institución.
+b. Copia de la cédula de identidad del representante.
+c. Copia del acta del órgano superior (Junta Directiva- Consejo de Administración- Junta Administrativa) que indique el día, acta, acuerdo, artículo, en firme, y aprobado del proyecto o solicitud de ayuda debidamente firmada y sellada por el presidente y la secretaria. Además, debe incluir la autorización expresa para que el representante legal suscriba el convenio correspondiente.
+d. Certificación de personería jurídica vigente, que compruebe que la(s) personas firmantes estén debidamente inscritas.

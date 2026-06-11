@@ -1,0 +1,6 @@
+Artículo 23- De los requisitos para donaciones de activos o inventario en desuso, obsoletos y/o en mal estado. La Municipalidad de San Carlos podrá realizar donaciones de bienes en desuso, obsoletos o en mal estado, que hayan sido previamente declarados como tales mediante los procedimientos administrativos correspondientes. Para solicitar una donación, los interesados deberán cumplir con los siguientes requisitos y lineamientos:
+a. Solicitud formal dirigida a la Alcaldía debidamente firmada por el representante legal de la organización o institución, donde se justifique la necesidad o el objetivo que se pretende llevar a cabo con la eventual recepción de activos o inventario.
+b. Copia de la cédula de identidad del representante.
+c. Copia del acta del órgano superior (Junta Directiva- Consejo de Administración- Junta Administrativa) que indique el día, acta, acuerdo, artículo en firme, y aprobado del proyecto o solicitud de ayuda, debidamente firmada y sellada por el presidente y la secretaria. Además, debe incluir la autorización expresa para que el representante legal suscriba el convenio correspondiente.
+d. Certificación de personería jurídica vigente.
+e. En el caso de bienes de tipo tecnológico, la donación deberá contar con la aprobación de la Jefatura de Tecnologías de Información.

@@ -1,0 +1,1 @@
+Artículo 40 -De la compra de materiales, bienes. El Departamento de Proveeduría realizará el proceso de compra de todos los bienes a donar en los plazos establecidos por la Ley de Contratación Pública y su Reglamento.

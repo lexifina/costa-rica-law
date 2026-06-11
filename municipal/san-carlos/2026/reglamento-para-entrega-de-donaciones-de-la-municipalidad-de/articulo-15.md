@@ -1,0 +1,5 @@
+Artículo 15 -Pérdida de materiales en los proyectos. La Municipalidad de San Carlos deberá velar por el adecuado uso y resguardo de los recursos suministrados, para lo cual se establece lo siguiente:
+a. En caso de detectar la pérdida de materiales, el Inspector de Enlace Comunal procederá de inmediato a realizar un informe de situación con notificación preventiva a la Encargada de Enlace Comunal.
+b. El Encargado de Enlace Comunal, deberá informar lo acontecido a la Alcaldía para que se verifiquen los hallazgos detectados y se proceda con los trámites legales pertinentes.
+c. En caso de comprobarse la pérdida de materiales en un proyecto, la Administración Municipal podrá decidir si en futuras solicitudes de aportes colabora o no con la organización comunal en cuestión.
+d. En caso de pérdida de materiales, la organización comunal deberá realizar la reposición de los mismos, con el objetivo de que la obra sea finiquitada; si ésta no realiza dicha reposición, la Municipalidad de San Carlos podrá efectuar el trámite respectivo para el cobro correspondiente equivalente a dichos materiales.

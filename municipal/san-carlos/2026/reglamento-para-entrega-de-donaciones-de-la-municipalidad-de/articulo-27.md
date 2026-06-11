@@ -1,0 +1,5 @@
+Artículo 27 -Informe sobre la venta de chatarra. Cuando los bienes donados sean de naturaleza tipo chatarra con fines de venta, la organización beneficiaria se compromete a entregar un informe detallado a la Alcaldía Municipal, con copia al Encargado del Plantel, dentro de los treinta (30) días calendario siguientes a la fecha en que se realice la venta total o parcial de la chatarra, contados a partir de la última bitácora de retiro de los bienes donados.
+En caso de que no se haya realizado la venta dentro de los primeros seis (6) meses contados desde la última bitácora de retiro, la organización deberá remitir un informe de avance justificando el estado
+del proceso y estimando un cronograma tentativo. El informe deberá incluir: a. Detalle de los proyectos realizados con los recursos obtenidos de la venta de la chatarra. b. Monto total obtenido por la venta de chatarra.
+c. Detalle de los proyectos ejecutados con dichos fondos, incluyendo objetivos, actividades realizadas y resultados.
+d. Documentos de respaldo (facturas, recibos y otros comprobantes) que evidencien la correcta utilización de los recursos.

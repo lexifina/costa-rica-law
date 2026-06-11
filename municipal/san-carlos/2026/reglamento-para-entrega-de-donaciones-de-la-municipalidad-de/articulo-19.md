@@ -1,0 +1,6 @@
+CAPÍTULO IV
+DE LAS DONACIONES DE TIPO AMBIENTAL
+Artículo 19 -Unidad ejecutora de donaciones ambientales. Las donaciones destinadas a proyectos, programas o actividades relacionadas con la protección, conservación y mejora del medio ambiente, serán gestionadas y ejecutadas por el Departamento de Gestión Ambiental, el cual será designado como la unidad ejecutora de donaciones ambientales. Esta Unidad será responsable de coordinar, administrar, implementar, monitorear y supervisar todas las acciones derivadas de las donaciones recibidas con fines ambientales, garantizando su correcta aplicación conforme a los objetivos previstos en cada convenio de donación. El Departamento de Gestión Ambiental tendrá las siguientes funciones:
+a. Supervisar y asegurar que las donaciones sean utilizadas conforme a los fines establecidos en los acuerdos de donación, promoviendo la transparencia en la gestión de los recursos.
+b. Informar periódicamente y rendir cuentas sobre el uso de las donaciones y la ejecución de proyectos ambientales ante las autoridades competentes.
+c. Implementar mecanismos de seguimiento, monitoreo y evaluación de los proyectos ejecutados con donaciones, con el fin de verificar el cumplimiento de metas, impactos ambientales y sostenibilidad de las acciones.
