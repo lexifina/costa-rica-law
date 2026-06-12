@@ -1,0 +1,6 @@
+N° 10928
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARATORIA DEL DÍA 11 DE NOVIEMBRE COMO EL
+"DÍA DE CELEBRACIÓN: HEREDIA CIUDADES CULTURALES"
+ARTÍCULO 1- Declarar el día 11 de noviembre de cada año, como el "Día de Celebración: Heredia Ciudades Culturales".
