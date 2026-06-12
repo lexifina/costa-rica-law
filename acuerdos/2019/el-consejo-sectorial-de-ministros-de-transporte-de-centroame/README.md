@@ -14,3 +14,4 @@ El Consejo Sectorial de Ministros de Transporte de Centroamérica (COMITRAN) apr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-13 | la propia norma |
+| 2 | 2026-06-12 | Decreto Ejecutivo 45854 (2026-06-12) |
