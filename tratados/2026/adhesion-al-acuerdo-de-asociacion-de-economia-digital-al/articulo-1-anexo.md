@@ -1,3 +1,4 @@
+(Mediante el numeral 8 del Protocolo al Acuerdo de Asociación de Economía Digital y a la Decisión del Comité Conjunto del Acuerdo de Asociación de Economía Digital (DEPA), aprobado mediante Tratado Internacional N° 10957 del 14 de mayo de 2026, se indicó que este anexo dejará de estar operativo)
 Anexo I - ENTENDIMIENTO SOBRE ESTE ACUERDO
 Para mayor certeza, las Partes dejan constancia de su entendimiento de que los siguientes Artículos no crean ningún derecho u obligación entre las Partes de conformidad con este Acuerdo:
 (a)Artículo 3.3: Trato No Discriminatorio de Productos Digitales;

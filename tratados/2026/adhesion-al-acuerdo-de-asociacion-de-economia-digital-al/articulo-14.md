@@ -9,9 +9,11 @@ tercera Parte significa una Parte, distinta de una Parte contendiente, que entre
 Artículo 14.2: Objetivo
 1.Las Partes procurarán en todo momento llegar a un acuerdo sobre la interpretación y la aplicación de este Tratado, y realizarán todos los esfuerzos, mediante cooperación y consultas, para alcanzar una solución mutuamente satisfactoria sobre cualquier asunto que pudiese afectar su funcionamiento.
 2.El objetivo de este Módulo es proporcionar un efectivo, eficiente y transparente proceso de consultas y solución de controversias entre las Partes en lo que respecta a sus derechos y obligaciones bajo este Acuerdo.
-Artículo 14.3: Ámbito de Aplicación. Salvo lo dispuesto en el Anexo 14-A, este Módulo y sus Anexos se aplicarán:
-(a)con respecto a la prevención o solución de todas las controversias entre las Partes relativas a la interpretación o aplicación de este Acuerdo; o
-(b)cuando una Parte considere que una medida vigente o en proyecto de otra Parte es o sería incompatible con una obligación de este Acuerdo, o que otra Parte ha incumplido de alguna otra manera una obligación de este Acuerdo.
+"Artículo 14.3: Ámbito de Aplicación
+Este Módulo y sus Anexos se aplicarán:
+(a)con respecto a la prevención o solución de las controversias entre las Partes relativas a la interpretación o aplicación de este Acuerdo; o
+(b)cuando una Parte considere que una medida vigente o en proyecto de otra Parte es o sería incompatible con una obligación de este Acuerdo o que otra Parte ha incumplido de alguna otra manera con una obligación de este Acuerdo.
+(Así reformado el artículo 14.3) anterior por el numeral 7 del Protocolo al Acuerdo de Asociación de Economía Digital y a la Decisión del Comité Conjunto del Acuerdo de Asociación de Economía Digital (DEPA), aprobado mediante Tratado Internacional N° 10957 del 14 de mayo de 2026)
 Artículo 14.4: Buenos Oficios y Conciliación
 1.Las Partes, en cualquier momento, podrán acordar recurrir voluntariamente a un medio alternativo de solución de controversias tales como buenos oficios o conciliación.
 2.Los procedimientos que involucren buenos oficios o conciliación serán confidenciales y sin perjuicio de los derechos de las Partes en cualquier otro procedimiento.

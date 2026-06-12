@@ -1,4 +1,5 @@
 N°10957
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 45956 del 29 de junio del 2026, la República de Costa Rica se adhiere al presente Acuerdo)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 APROBACIÓN DE LA ADHESIÓN DE LA REPÚBLICA DE COSTA RICA AL ACUERDO DE ASOCIACIÓN DE
@@ -26,13 +27,17 @@ REAFIRMAR la importancia de promover la responsabilidad social corporativa, la i
 HAN ACORDADO lo siguiente:
 MÓDULO 1
 DISPOSICIONES INICIALES Y DEFINICIONES GENERALES
-Artículo 1.1: Ámbito de Aplicación
-1.Este Acuerdo se aplicará a las medidas adoptadas o mantenidas por una Parte que afecten al comercio en la economía digital.
+Artículo 1.1: Ámbito de Aplicación y Disposiciones Generales
+1.Este Acuerdo se aplicará a las medidas adoptadas o mantenidas por una Parte que afecten el comercio en la economía digital.
 2.Este Acuerdo no se aplicará:
-(a)un servicio prestado en el ejercicio de la autoridad gubernamental;
+(a)a un servicio prestado en el ejercicio de la autoridad gubernamental;
 (b)con excepción del Artículo 2.7 (Pagos Electrónicos), a los servicios financieros;
 (c)con excepción del Artículo 8.3 (Contratación Pública), a la contratación pública; o
-(d)con excepción del Artículo 9.5 (Datos de Gobierno Abierto), a la información en poder o procesada por una Parte o a nombre suyo, o a las medidas relacionadas con esa información, incluyendo las medidas relacionadas con su recopilación
+(d)con excepción del Artículo 9.5 (Datos de Gobierno Abierto), a la información en poder o procesada por una Parte o a nombre suyo, o a las medidas relacionadas con esa información, incluyendo las medidas relacionadas con su recopilación.
+3.El Artículo 3.3 (Trato No Discriminatorio de Productos Digitales), Artículo 3.4(Productos de Tecnologías de la Información y Comunicación que usan Criptografía),Artículo 4.3 (Transferencia transfronteriza de información por medios electrónicos) y Artículo 4.4 (Ubicación de las Instalaciones Informáticas) no se aplicarán a las medidas adoptadas o mantenidas por una Parte que considere necesarias para la protección o promoción de los derechos, intereses, deberes y responsabilidades indígenas a respecto al comercio en la economía digitalb, siempre que dichas medidas no sean usadas como un medio de discriminación arbitraria o injustificada contra personas de otra Parte o una restricción encubierta al comercio en la economía digital."
+"aPara mayor certeza, para Nueva Zelanda, derechos, intereses, deberes y responsabilidades indígenas incluyen los relacionados a matauranga Maori."
+"bEn el caso de Nueva Zelanda, las medidas referidas en este párrafo incluyen el cumplimiento de las obligaciones de Nueva Zelanda bajo el Te Tiriti o Waitangi/el Tratado de Waitangi. Las Partes acuerdan que la interpretación del Te Tiriti o Waitangi/el Tratado de Waitangi, incluyendo la naturaleza de los derechos y obligaciones derivados del mismo, no estarán sujetas a las disposiciones de solución de diferencias de este Acuerdo."
+(Así reformado el artículo 1.1) anterior por el numeral 1 del Protocolo al Acuerdo de Asociación de Economía Digital y a la Decisión del Comité Conjunto del Acuerdo de Asociación de Economía Digital (DEPA), aprobado mediante Tratado Internacional N° 10957 del 14 de mayo de 2026)
 Artículo 1.2: Relación con Otros Acuerdos Internacionales
 1.Reconociendo la intención de las Partes de que este Acuerdo coexista con sus acuerdos internacionales existentes, cada Parte confirma:
 (a)en relación con los acuerdos internacionales existentes en los que todas las Partes son parte, incluyendo el Acuerdo sobre la OMC, sus derechos y obligaciones existentes con respecto a las otras Partes; y

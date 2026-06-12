@@ -28,15 +28,17 @@ Artículo 4.2: Protección de la Información Personal
 8. Las Partes alentarán la adopción por parte de las empresas de sellos de confianza de protección de datos que ayuden a verificar su conformidad con estándares de protección de datos personales y con mejores prácticas.
 9. Las Partes intercambiarán información y compartirán experiencias sobre el uso de sellos de confianza de protección de datos.
 10. Las Partes procurarán reconocer mutuamente los sellos de confianza de protección de datos de la otras Partes como mecanismos válidos para facilitar las transferencias transfronterizas de información mientras se protege la información personal.
-Artículo 4.3: Transferencia Transfronteriza de Información por Medios Electrónicos. Las Partes afirman su nivel de compromisos en relación con la transferencia transfronteriza de información a través de medios electrónicos, en particular, pero no exclusivamente:
-"1. Las Partes reconocen que cada Parte podrá tener sus propios requisitos regulatorios sobre la transferencia de información por medios electrónicos.
-2.Cada Parte permitirá la transferencia transfronteriza de información por medios electrónicos, incluyendo la información personal, cuando esta actividad sea para la realización de un negocio de una persona cubierta.
-3.Nada de lo dispuesto en este Artículo impedirá que una Parte adopte o mantenga medidas incompatibles con el párrafo 2 para alcanzar un objetivo legítimo de política pública, siempre que la medida:
+Artículo 4.3: Transferencia Transfronteriza de Información por Medios Electrónicos
+1.Las Partes reconocen que cada Parte podrá tener sus propios requisitos regulatorios sobre la transferencia de información por medios electrónicos.
+2.Cada Parte permitirá la transferencia transfronteriza de información por medios electrónicos, incluyendo la información personal, cuando esta actividad sea para la realización de un negocio de una persona de una Parte.
+3.Nada de lo dispuesto en este Artículo impedirá que una Parte adopte o mantenga medidas inconsistentes con el párrafo 2 para alcanzar un objetivo legítimo de política pública, siempre que la medida:
 (a)no se aplique de forma que constituya un medio de discriminación arbitraria o injustificable, o una restricción encubierta al comercio; y
-(b)no imponga restricciones a las transferencias de información mayores a las que se requieren para alcanzar el objetivo."
-Artículo 4.4: Ubicación de las Instalaciones Informáticas. Las Partes afirman su nivel de compromisos en relación con la ubicación de las instalaciones informáticas, en particular, pero no exclusivamente:
-"1. Las Partes reconocen que cada Parte podrá tener sus propios requisitos regulatorios relativos al uso de instalaciones informáticas, incluyendo los requisitos que buscan asegurar la seguridad y confidencialidad de las comunicaciones.
-2.Ninguna Parte podrá exigir a una persona cubierta usar o ubicar las instalaciones informáticas en el territorio de esa Parte, como condición para la realización de negocios en ese territorio.
-3.Nada de lo dispuesto en este Artículo impedirá que una Parte adopte o mantenga medidas incompatibles con el párrafo 2 para alcanzar un objetivo legítimo de política pública, siempre que la medida:
-(a)no se aplique de forma que constituya un medio de discriminación arbitrario o injustificable, o una restricción encubierta al comercio; y
-(b)no imponga restricciones sobre el uso o ubicación de las instalaciones informáticas mayores a las que se requieren para alcanzar el objetivo".
+(b)no imponga restricciones a las transferencias de información mayores a las que se requieren para alcanzar el objetivo.
+(Así reformado el artículo 4.3) anterior por el numeral 5 del Protocolo al Acuerdo de Asociación de Economía Digital y a la Decisión del Comité Conjunto del Acuerdo de Asociación de Economía Digital (DEPA), aprobado mediante Tratado Internacional N° 10957 del 14 de mayo de 2026)
+Artículo 4.4: Ubicación de las Instalaciones Informáticas
+1.Las Partes reconocen que cada Parte podrá tener sus propios requisitos regulatorios relativos al uso de instalaciones informáticas, incluyendo los requisitos que buscan asegurar la seguridad y confidencialidad de las comunicaciones.
+2.Ninguna Parte podrá exigir a una persona de una Parte usar o ubicar las instalaciones informáticas en el territorio de esa Parte, como condición para la realización de negocios en ese territorio.
+3.Nada de lo dispuesto en este Artículo impedirá que una Parte adopte o mantenga medidas inconsistentes con el párrafo 2 para alcanzar un objetivo legítimo de política pública, siempre que la medida:
+(a)no se aplique de forma que constituya un medio de discriminación arbitrario o injustificable, o una restricción en cubierta al comercio; y
+(b)no imponga restricciones sobre el uso o ubicación de las instalaciones informáticas mayores a las que se requieren para alcanzar el objetivo.
+(Así reformado el artículo 4.4) anterior por el numeral 6 del Protocolo al Acuerdo de Asociación de Economía Digital y a la Decisión del Comité Conjunto del Acuerdo de Asociación de Economía Digital (DEPA), aprobado mediante Tratado Internacional N° 10957 del 14 de mayo de 2026)
