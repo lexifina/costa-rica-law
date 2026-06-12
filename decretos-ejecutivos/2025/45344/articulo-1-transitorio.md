@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. El SENASA en un plazo no mayor a un año a partir de la publicación del presente Reglamento, deberá emitir guías de buenas prácticas de manejo de perros y gatos en criaderos, lo cual no inhibirá el cumplimiento de las disposiciones del presente cuerpo normativo.

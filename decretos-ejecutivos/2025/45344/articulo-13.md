@@ -1,0 +1,9 @@
+Artículo 13. Condiciones mínimas de comercialización. Los establecimientos autorizados para la venta de animales de perros y gatos deberán cumplir con los incisos: a, b, c, f, g, i, j y k del artículo 11 del presente reglamento.
+Además, deberán cumplir con lo siguiente:
+a) Se permitirá únicamente el recibo y venta de perros y gatos que provengan de un establecimiento con Certificado Veterinario de Operación para este fin.
+b) La edad mínima de los animales para su comercialización y recibo en el establecimiento deberá ser superior a las 8 semanas de edad.
+c) Cada animal deberá contar con su expediente clínico de manera individual, firmado por un médico veterinario, que incluya: edad estimada, protocolo de vacunación y desparasitación, estado de salud, número de certificado veterinario de operación del criadero correspondiente.
+d) Los encierros para exhibición de perros y gatos deben garantizar la separación entre especies y contar con espacio que permita que el animal se mueva libremente, se recueste, juegue y tenga interacción con humanos y otros animales. Los encierros deben contar con estructuras dispuestas para que el animal pueda esconderse si lo requiere, especialmente para los gatos.
+e) Los animales destinados a la comercialización deberán ser agrupados según su especie, edad, tamaño y comportamiento. En caso de presentarse situaciones de conflicto entre los ejemplares, los encargados deberán tomar las medidas necesarias para garantizar su bienestar durante la estadía. Asimismo, deberán implementar las acciones correspondientes para aquellos animales cuyo comportamiento resulte incompatible con la modalidad de venta mediante exhibición.
+f) Deben contar con acceso al agua las 24 horas del día.
+g) Se debe garantizar la limpieza de los encierros para exhibición de perros y gatos.

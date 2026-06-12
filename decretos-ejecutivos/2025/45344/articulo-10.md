@@ -1,0 +1,1 @@
+Artículo 10. De las hembras reproductoras. Las hembras reproductoras deben ser capaces de parir y cuidar a sus crías de forma natural. Las hembras solo podrán reproducirse una vez al año. Los machos reproductores tendrán un intervalo mínimo de 48 horas entre montas, permitiendo un máximo de dos a tres montas por semana.

@@ -1,0 +1,1 @@
+Artículo 6. Responsabilidades de las clínicas veterinarias que comercialicen perros y gatos. Las clínicas veterinarias que comercialicen perros y gatos deben cumplir con lo indicado en el artículo 5 del presente Reglamento, salvo lo indicado en los incisos e) y k) subinciso v).

@@ -1,0 +1,1 @@
+Artículo 18. Responsabilidad civil y penal. Las sanciones establecidas en este Capítulo podrán aplicarse independientemente de las acciones civiles o penales que puedan establecerse contra quien o quienes hayan incurrido en la falta.
