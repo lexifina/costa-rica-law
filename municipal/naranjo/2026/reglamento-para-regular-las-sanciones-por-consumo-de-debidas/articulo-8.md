@@ -1,0 +1,1 @@
+Artículo 8º-Prueba y valoración. Recibida la defensa o vencido el emplazamiento, el Órgano Director abrirá y practicará la prueba pertinente y útil dentro de diez (10) días hábiles, valorándola conforme a la sana crítica.

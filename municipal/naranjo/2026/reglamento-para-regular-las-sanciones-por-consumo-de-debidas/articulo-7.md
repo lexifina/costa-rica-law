@@ -1,0 +1,1 @@
+Artículo 7º-Inicio, notificación y emplazamiento. Con el parte/acta se iniciará el procedimiento. El presunto infractor será notificado de la relación clara y detallada de hechos y contará con cinco (5) días hábiles para alegar y ofrecer prueba.

@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito y salvedades legales. Queda prohibido el consumo de bebidas con contenido alcohólico en vías públicas y sitios públicos, con las salvedades previstas en el artículo 9 inciso f) y el artículo 26 de la Ley N° 9047, relativas a actividades cívicas, patronales, turnos, ferias y afines debidamente autorizadas y demarcadas por la Municipalidad.

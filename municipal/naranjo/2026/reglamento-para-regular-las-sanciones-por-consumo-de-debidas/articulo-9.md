@@ -1,0 +1,1 @@
+Artículo 9º-Informe y resolución. Concluida la fase probatoria, el Órgano Director elevará informe final de hechos probados a la Alcaldía Municipal, la cual emitirá resolución dentro de diez (10) días hábiles, imponiendo la multa o absolviendo, según corresponda.

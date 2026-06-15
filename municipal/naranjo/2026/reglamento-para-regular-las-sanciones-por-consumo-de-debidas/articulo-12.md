@@ -1,0 +1,1 @@
+Artículo 12.-Judicialización por contravención. Si el infractor no posee patentes, cuentas o bienes municipales a su nombre, la Municipalidad remitirá el expediente al Juzgado Contravencional competente para su judicialización, según los artículos 19 y 20 de la Ley N° 9047, sin perjuicio de continuar la gestión de cobro que proceda.

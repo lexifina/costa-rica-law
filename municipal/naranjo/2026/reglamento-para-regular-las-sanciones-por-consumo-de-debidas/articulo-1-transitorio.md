@@ -1,0 +1,1 @@
+Transitorio Único. La verificación integral del artículo 13 se exigirá inmediatamente para nuevas solicitudes. Para renovaciones que se encuentren en trámite al momento de la publicación, se otorgará un plazo de hasta treinta (30) días naturales para aportar los faltantes no imputables a la Municipalidad, sin perjuicio del cumplimiento de deberes municipales corrientes.

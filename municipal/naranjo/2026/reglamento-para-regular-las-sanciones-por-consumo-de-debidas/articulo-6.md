@@ -1,0 +1,1 @@
+Artículo 6º-Órgano competente. El procedimiento será conocido por Órgano Director unipersonal, designado por la Alcaldía, pudiendo recaer en personal idóneo del Área de Hacienda, Administración Tributaria, Patentes u otro que corresponda. Competencia ejercida con fundamento en el artículo 25 de la Ley N° 9047 y Libro II de la LGAP.
