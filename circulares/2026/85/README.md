@@ -13,3 +13,4 @@ Lineamientos para solicitar persona juzgadora supernumeraria del CACMFJ con espe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-18 | la propia norma |
+| 2 | 2026-06-16 | Circular 105 (2026-06-16) |
