@@ -14,3 +14,4 @@ Reglamento para la Prevención y Atención de las Controversias Internacionales 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-01 | la propia norma |
+| 2 | 2026-06-16 | Decreto Ejecutivo 45838 (2026-06-16) |
