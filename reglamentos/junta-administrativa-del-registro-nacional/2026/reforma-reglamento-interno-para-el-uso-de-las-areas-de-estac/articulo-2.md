@@ -1,0 +1,2 @@
+Artículo 2º-Vigencia. Rige a partir de la publicación en el Diario Oficial La Gaceta. Acuerdo Firme J113-2026, adoptado por la Junta Administrativa del Registro Nacional en la Sesión Ordinaria N°132026, celebrada en fecha 20 de abril del año 2026.
+Este reglamento modifica el Reglamento N°28 de fecha 23 de setiembre del año 2024, denominado Reglamento Interno para el uso de las áreas de Estacionamiento de la Sede Central del Registro Nacional.
