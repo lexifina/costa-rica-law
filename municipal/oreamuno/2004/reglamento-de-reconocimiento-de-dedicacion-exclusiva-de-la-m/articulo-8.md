@@ -1,1 +1,0 @@
-Artículo 8º—Una vez firmado el contrato de marras, el Departamento de Personal o la oficina encargada, procederá a confeccionar la respectiva Acción de Personal y a hacer efectivo dicho reconocimiento en la bisemana siguiente a la firma del contrato, previa verificación del contenido presupuestario.

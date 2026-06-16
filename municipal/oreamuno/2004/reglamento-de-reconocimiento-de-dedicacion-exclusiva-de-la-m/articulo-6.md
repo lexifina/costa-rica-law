@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Del procedimiento para acogerse al Régimen
-de Dedicación Exclusiva
-Artículo 6º—Para acogerse a la Dedicación Exclusiva, el servidor interesado deberá presentar a la Alcaldía la solicitud y aportar la documentación requerida que acredite su grado académico, de ser aceptada su solicitud, el profesional deberá suscribir un contrato con la Municipalidad comprometiéndose a prestar servicios en forma exclusiva para el Municipio y no ejercer de manera particular ninguna profesión que ostente. A cambio de ello, percibirá una compensación económica de acuerdo con los porcentajes establecidos en el artículo anterior.
