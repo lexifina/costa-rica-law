@@ -7,6 +7,6 @@ c. Residencia, lugar o medio electrónico para atender notificaciones
 d. Detalle de la pretensión (motivos o fundamento de hechos)
 e. Fecha y firma de quien suscribe o su apoderado.
 La ausencia de los requisitos indicados en el numeral b, así como la falta de firma producirá necesariamente el rechazo y archivo de la petición.
-En el caso de presentación de denuncias, que sean competencias del Concejo Municipal, se procederá conforme la Sección Primera, del Capítulo III del Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y sus reformas, y para efectos de garantizar los derechos del denunciante, se leerá en sesión plena y se dejará constando en actas de la siguiente forma:
-"Nota SIN NÚMERO, tramitada como denuncia, documento que se le da trato confidencial conforme los numerales 6 de La Ley General de Control Interno, 8 de La Ley N°8422, 10 y 18 del Reglamento de la Ley Contra la Corrupción y Enriquecimiento Ilícito en la Función Pública".
+En el caso de presentación de denuncias, relaciones de hechos o documentos confidenciales, se procederá conforme al artículo 6 de la Ley General de Control Interno y el artículo 8 de la Ley N.º 8422. Estas gestiones se tramitarán conforme el Reglamento específico dictado para tal fin, quedando absolutamente prohibida su lectura pública en sesión plena, y siendo consignadas en actas y en el orden del día única y exclusivamente mediante su número de expediente confidencial.
+(Así reformado el párrafo anterior por el artículo 26 del Reglamento para la tramitación de denuncias y documentos confidenciales ante el Concejo Municipal de Quepos, aprobado en sesión N° 173 del 16 de junio de 2026)
 (Así reformado mediante sesión N° 095-2025 del 25 de junio del 2025)
