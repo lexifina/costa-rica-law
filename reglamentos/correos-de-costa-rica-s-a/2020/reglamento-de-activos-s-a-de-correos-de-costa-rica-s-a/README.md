@@ -14,3 +14,4 @@ Reglamento de activos S.A. de Correos de Costa Rica S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-04 | la propia norma |
+| 2 | 2026-06-16 | Reglamento 1960 (2026-06-16) |
