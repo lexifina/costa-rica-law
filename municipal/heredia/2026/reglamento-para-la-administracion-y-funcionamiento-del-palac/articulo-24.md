@@ -1,0 +1,1 @@
+Artículo 24. - Ingreso de Equipo y Mobiliario. El ingreso de mobiliario o equipo para actividades deberá hacerse por la puerta 7 y 8 ubicadas al costado este del Palacio de los Deportes, las medidas máximas serán de 2.35 metros por 2.75 metros, presentándose primero en la caseta del oficial de seguridad para que éste lo informe a la Administración del Palacio de los Deportes.

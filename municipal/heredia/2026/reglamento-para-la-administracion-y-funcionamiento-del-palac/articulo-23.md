@@ -1,0 +1,2 @@
+Artículo 23. - Ingreso y ubicación de Proveedores. En el caso de que proveedores ingresen para dar servicios al evento, se deberá presentar con al menos una semana de antelación una lista de cada uno de ellos; así como de todo el mobiliario o equipo que ingrese al Palacio de los Deportes.
+Los proveedores deberán ubicarse en el lugar designado por el Palacio de los Deportes. La ubicación de los proveedores deberá ser coordinada previamente con la persona administradora del Palacio de los Deportes.

@@ -1,0 +1,1 @@
+Artículo 14. - Forma de rendir la garantía. La garantía será depositada en la Tesorería Municipal en la cuenta bancaria que disponga para dicho fin. La garantía podrá otorgarse por medio de depósito bancario. En caso de imposibilidad de realizar el depósito bancario, se deberá notificar a la persona Administradora dentro de las 48 horas siguientes.

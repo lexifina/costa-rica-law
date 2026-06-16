@@ -1,0 +1,1 @@
+Artículo 2. - Ámbito de aplicación. Las disposiciones contenidas en el presente reglamento serán aplicables para la administración del "Palacio de los Deportes, Premio Nobel de la Paz", personas arrendatarias, prestatarias y usuarias del inmueble.

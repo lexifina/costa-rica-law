@@ -1,0 +1,2 @@
+CAPÍTULO II. ADMINISTRACIÓN Y FUNCIONAMIENTO.
+Artículo 5. - Administración del Palacio de los Deportes. El Palacio de los Deportes será administrado por la Municipalidad de Heredia a través del personal que para estos fines se nombre, teniendo estos últimos la asignación de coordinar y resolver diligentemente y de acuerdo con sus puestos, los asuntos administrativos que sobre el Palacio de los Deportes versen. Existirá una persona Administradora que fungirá como encargado y primer responsable de la administración del inmueble y sus servicios.

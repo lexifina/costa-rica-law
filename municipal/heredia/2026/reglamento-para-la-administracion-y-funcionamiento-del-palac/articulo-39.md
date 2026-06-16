@@ -1,0 +1,4 @@
+Artículo 39. - Requisitos de ingreso y permanencia como persona usuaria activo o intermitente. Es requerido que todos las personas usuarias:
+Deberá leer detenidamente el reglamento, firmar el consentimiento informado y cuestionario de salud, así como realizar las preguntas que surjan al respecto para su debida aclaración.
+Deberá brindar información verídica y honesta al completar el consentimiento aceptado y el cuestionario de salud, los cuales deberá de estar de acuerdo con las condiciones, firmar ambos documentos y adjuntar la fotocopia por ambos lados de la cédula de identidad.
+Cuando se indique la necesidad y según valoración previa de casos específicos de enfermedades o lesiones, deberá traer dictamen médico original en dónde se indique la necesidad de uso de piscina o gimnasio emitido con un lapso no mayor a 3 meses.

@@ -1,0 +1,2 @@
+CAPÍTULO IV. PRESTAMOS.
+Artículo 30. - En el caso de préstamo de las instalaciones, se prescindirá de todo pago del contrato; sin embargo, sí se realizará el cálculo de los montos pecuniarios del mismo ya que sobre ellos se realiza el depósito de garantía. La Administración emitirá la resolución de gratuidad con las condiciones en que se otorga el préstamo y las medidas que deberá respetar el solicitante. Quedan exentos del pago de garantía los convenios de gratuidad.

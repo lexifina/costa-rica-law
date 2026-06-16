@@ -1,0 +1,1 @@
+Artículo 31. - Carta de Resolución de Gratuidad y compromiso. En todos los casos, el préstamo y uso de los espacios supone la firma de una resolución de gratuidad, entre el responsable de la actividad y la Administración del Palacio de los Deportes.

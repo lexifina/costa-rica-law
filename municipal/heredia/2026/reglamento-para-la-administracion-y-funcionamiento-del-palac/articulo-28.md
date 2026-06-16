@@ -1,0 +1,2 @@
+Artículo 28. - Una vez finalizada la actividad, la persona designada por la Administración como responsable de fiscalizar el evento deberá revisar si el espacio utilizado quedó en las mismas condiciones que la inicio.
+En caso de comprobar alguna irregularidad, deberá comunicarlo en forma inmediata dentro de las 24 horas siguientes a la finalización del evento a la persona Administradora, quien indicará al responsable de evento los daños causados; así como el costo de las reparaciones.

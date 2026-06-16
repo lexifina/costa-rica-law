@@ -1,0 +1,2 @@
+Artículo 12. -Actividades simultáneas. Si dos solicitudes requieren las instalaciones para una misma fecha y hora, la persona administradora determinará si es posible que se realicen en espacios distintos y en caso de no ser procedente, resolverá el conflicto priorizando la fecha de presentación de la petición.
+Al interesado que se le deniegue el arrendamiento o préstamo debido a que el espacio fue previamente solicitado por otra persona, podrá proponer el cambio de hora y fecha a efectos de que la persona administradora valore su solicitud nuevamente.

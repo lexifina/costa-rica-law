@@ -1,0 +1,2 @@
+Artículo 33. - Tarifas de planes de entrenamiento. El precio de las tarifas por los diferentes servicios ofrecidos en el Palacio de los Deportes será autorizado por el Concejo Municipal de acuerdo con el estudio previamente realizado por la Dirección de Servicios y Gestión de Servicios Tributarios.
+Las tarifas deberán ser revisadas anualmente para garantizar su adecuación a los costos operativos y al contexto socioeconómico.

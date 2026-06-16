@@ -1,0 +1,3 @@
+CAPITULO V. PLANES DE ENTRENAMIENTO.
+Artículo 32. - Horario. El Palacio de los Deportes se reserva el derecho de modificar el horario de funcionamiento, agregar, modificar y/o eliminar programas, actividades, clases o servicios ofrecidos, en cualquier momento y de forma unilateral.
+El Palacio de los Deportes es libre de cerrar las instalaciones los feriados de ley y estos días no son objetables para efectos de devoluciones de dinero ni para reposición de clases. Además, el Palacio de los Deportes puede optar por cerrar las instalaciones o una parte de estas para eventos programados o actividades propias de la institución, en estos casos se informará debidamente y con antelación.
