@@ -1,1 +1,0 @@
-Artículo 15.—De la ponderación de los factores. La ponderación de cada uno de los factores anteriormente indicados será determinada por la Oficina de Recursos Humanos o unidad designada al efecto en coordinación con el Alcalde Municipal.
