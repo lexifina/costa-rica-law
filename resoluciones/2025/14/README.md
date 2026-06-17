@@ -14,3 +14,4 @@ Tarifa para la protección del recurso hídrico (TPRH) de la Asociaciones Admini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-30 | la propia norma |
+| 2 | 2026-06-17 | Resolución 9 (2026-06-17) |
