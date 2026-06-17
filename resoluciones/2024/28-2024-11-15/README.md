@@ -15,3 +15,4 @@ Estructura tarifaria del servicio regulado de acueducto en Costa Rica
 | --- | --- | --- |
 | 1 | 2024-11-26 | la propia norma |
 | 2 | 2025-03-05 | Resolución 8 (2025-03-05) |
+| 3 | 2026-06-17 | Resolución 9 (2026-06-17) |
