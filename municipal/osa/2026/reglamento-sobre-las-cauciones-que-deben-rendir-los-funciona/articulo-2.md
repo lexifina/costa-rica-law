@@ -1,0 +1,4 @@
+Artículo 2º-funcionarios que deben rendir garantías.
+Deberán rendir caución todos aquellos funcionarios/as que ostenten cargos con responsabilidad directa en la recaudación, custodia o administración de fondos y valores públicos, ya sea en propiedad o en condición interina. Entre ellos se incluyen, pero no se limitan a:
+a) Alcalde o alcaldesa Municipal y Vicealcalde (sa).
+b) Director (a) Financiero, Tesorero(a) Municipal, Contador(a) Municipal. c) Coordinadores(as) de Presupuesto, Administración Tributaria, Proveeduría y quienes ostenten cargos similares que conlleven manejo directo de fondos o valores; previo análisis técnico de Recursos Humanos y la jefatura a cargo mediante resolución motivada. d) Cualquier otro funcionario que, por la naturaleza de sus funciones, tenga a su cargo fondos o valores públicos, previo análisis técnico de riesgo y mediante previo análisis técnico de Recursos Humanos y la jefatura a cargo mediante resolución motivada."

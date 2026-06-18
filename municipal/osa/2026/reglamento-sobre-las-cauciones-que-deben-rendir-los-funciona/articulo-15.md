@@ -1,0 +1,2 @@
+CAPÍTULO IV
+Artículo 15. -Ejecución de las garantías. La ejecución de la garantía debe ir precedida de un procedimiento administrativo tramitado conforme al Libro Segundo de la Ley General de la Administración Pública No. 6227, en donde se demuestre la falta del caucionado/da y se ordene el resarcimiento de los daños y perjuicios producidos a la hacienda municipal, sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan.

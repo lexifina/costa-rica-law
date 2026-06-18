@@ -1,0 +1,1 @@
+Artículo 3º- Interinatos, suplencias y recargos: Aquellos funcionarios/as que de manera interina o transitoria ocupen puestos que impliquen manejo directo de fondos o valores públicos o cualquiera de los cargos mencionados en el artículo anterior, deberán caucionar. Lo cual deberá cumplir en forma inmediata, entiéndase antes de iniciar funciones en el cargo.

@@ -1,0 +1,1 @@
+Transitorio I.-Una vez entrado en vigor este reglamento, los funcionarios/as aquí obligados a caucionar, contarán con un plazo de quince días hábiles para suscribir la respectiva póliza y acreditar el contrato ante el Proceso de Recursos Humanos.
