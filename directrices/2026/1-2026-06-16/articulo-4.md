@@ -1,0 +1,1 @@
+Artículo 4°. Las instituciones cubiertas por la presente directriz deberán procurar mantener los canales de atención y recepción de trámites en línea, de manera que éstos sean autogestionados por las personas usuarias cuando resulte posible, o bien al momento de la reanudación de labores por parte de las personas funcionarias encargadas.
