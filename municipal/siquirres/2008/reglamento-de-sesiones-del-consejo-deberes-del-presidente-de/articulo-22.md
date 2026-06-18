@@ -1,1 +1,5 @@
-Artículo 22.—Los regidores, éstos presentarán las mociones y proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.
+Artículo 22.-
+Los regidores, éstos presentarán las mociones y proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden. Los regidores, éstos presentarán las mociones y proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.
+Con el fin de garantizar el orden y la duración razonable de las sesiones, se dará lectura y trámite, como regla general, hasta dos mociones por regidor en cada sesión.
+La presentación de mociones no tendrá límite y aquellas que no sean conocidas se trasladarán, en estricto orden de presentación, a la sesión siguiente, salvo que el Concejo acuerde su conocimiento inmediato por razones de urgencia o mediante modificación del orden del día.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

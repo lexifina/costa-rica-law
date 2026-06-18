@@ -1,1 +1,1 @@
-Artículo 93.—Se pagará hospedaje cuando la distancia de desplazamiento entre el lugar de trabajo y el lugar de residencia sea mayor a 20 kilómetros y en ausencia de condiciones adecuadas.
+Artículo 93.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

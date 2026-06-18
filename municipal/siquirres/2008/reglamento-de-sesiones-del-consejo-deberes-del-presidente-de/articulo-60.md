@@ -1,3 +1,3 @@
 CAPÍTULO VI
 Del Secretario del Concejo
-Artículo 60.—El Concejo Municipal contará con un secretario, nombrado por el Concejo Municipal, éste será suspendido o destituido de su cargo, en caso de existir justa causa.
+Artículo 60.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

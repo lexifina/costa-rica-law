@@ -1,1 +1,1 @@
-Artículo 91.—Los gastos de viáticos se pagarán mensualmente a los Regidores que lo ameriten bajo la tabla que para tal efecto emite la Contraloría General de la República y los artículos de este Reglamento.
+Artículo 91.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

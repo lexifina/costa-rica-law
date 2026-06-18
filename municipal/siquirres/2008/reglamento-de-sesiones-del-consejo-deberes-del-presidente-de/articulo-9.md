@@ -1,1 +1,3 @@
-Artículo 9º—Las sesiones extraordinarias podrán celebrarse en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad.
+Artículo 9.-
+Las sesiones extraordinarias podrán celebrarse en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad. El lugar que se disponga para el traslado de la sesión deberá ser apto para la realización de esta y para garantizar la publicidad y la participación ciudadana en las sesiones del concejo. Además, deberá estar avalado por las autoridades competentes y cumplir las directrices que al efecto emita el Ministerio de Salud para garantizar su idoneidad y la seguridad de los miembros, asistentes y funcionarios municipales.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

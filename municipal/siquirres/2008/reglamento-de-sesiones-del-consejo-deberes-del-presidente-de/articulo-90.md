@@ -1,1 +1,1 @@
-Artículo 90.—El control correrá por la cuenta del Alcalde Municipal, o Secretario Municipal, quien informará al Concejo de lo actuado en el pago de los viáticos a los regidores municipales.
+Artículo 90.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

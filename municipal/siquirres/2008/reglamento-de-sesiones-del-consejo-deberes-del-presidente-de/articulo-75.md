@@ -1,1 +1,1 @@
-Artículo 75.—Las dietas de los regidores se pueden aumentar anualmente hasta en un veinte por ciento, en el caso que el presupuesto municipal aumente, con relación al del año anterior, en una proporción igual o superior al porcentaje que se fije.
+Artículo 75.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

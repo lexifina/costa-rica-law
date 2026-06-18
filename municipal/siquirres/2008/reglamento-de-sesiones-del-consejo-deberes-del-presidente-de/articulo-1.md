@@ -4,4 +4,6 @@ El suscrito Secretario del Concejo Municipal hace constar que en la Sesión Extr
 REGLAMENTO DE SESIONES DEL CONCEJO, DEBERES
 DEL PRESIDENTE, DEBERES DEL SECRETARIO,
 DEBERES DE LOS REGIDORES
-Artículo 1º—Díctese el presente Reglamento según lo dispuesto en los artículos 21 al 50, y 53, del Código Municipal.
+Artículo 1.-
+Díctese el presente Reglamento según lo dispuesto en los artículos del 35 al 50, del Código Municipal.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

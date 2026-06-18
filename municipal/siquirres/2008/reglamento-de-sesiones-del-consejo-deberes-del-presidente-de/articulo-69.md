@@ -1,1 +1,1 @@
-Artículo 69.—Los regidores suplentes deberán asistir a todas las sesiones del Concejo Municipal, tendrán derecho a voz y voto cuando sustituyan a un regidor propietario.
+Artículo 69.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

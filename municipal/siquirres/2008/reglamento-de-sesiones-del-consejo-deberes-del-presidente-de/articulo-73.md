@@ -1,1 +1,1 @@
-Artículo 73.—De las dietas: Los montos de las dietas para los regidores propietarios se calcularán por cada sesión, y será pagada por una sesión ordinaria a la semana.
+Artículo 73.-De las dietas: (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

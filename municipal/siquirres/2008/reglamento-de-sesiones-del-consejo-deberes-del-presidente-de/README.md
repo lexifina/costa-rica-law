@@ -17,3 +17,4 @@ Reglamento de sesiones del Consejo, deberes del Presidente, deberes del Secretar
 | 2 | 2017-10-13 | Reglamento municipal 0 (2017-10-13) |
 | 3 | 2020-07-31 | Reglamento municipal 0 (2020-07-31) |
 | 4 | 2021-05-11 | Reglamento municipal 54 (2021-05-11) |
+| 5 | 2026-06-18 | Reglamento municipal 0 (2026-06-18) |

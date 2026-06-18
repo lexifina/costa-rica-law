@@ -1,1 +1,1 @@
-Artículo 79.—Para devengar dieta el regidor suplente debe haber sustituido antes o inmediatamente después de los quince minutos de gracia contemplados en el párrafo anterior y se extienda hasta el final de la sesión.
+Artículo 79.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

@@ -1,1 +1,1 @@
-Artículo 96.—Para el efectivo pago de los viáticos se realizará con base en la fórmula confeccionada al efecto y con visto bueno del Alcalde Municipal.
+Artículo 96.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

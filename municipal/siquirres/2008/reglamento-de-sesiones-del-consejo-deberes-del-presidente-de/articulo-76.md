@@ -1,1 +1,1 @@
-Artículo 76.—No se pagará más de una dieta por regidor, por cada sesión remunerable.
+Artículo 76.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

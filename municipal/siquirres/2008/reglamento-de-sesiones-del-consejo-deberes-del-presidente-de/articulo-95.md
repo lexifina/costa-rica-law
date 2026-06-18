@@ -1,1 +1,1 @@
-Artículo 95.—Los regidores, están en la obligación de ser parte de las Comisiones que se crean en la Municipalidad.
+Artículo 95.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

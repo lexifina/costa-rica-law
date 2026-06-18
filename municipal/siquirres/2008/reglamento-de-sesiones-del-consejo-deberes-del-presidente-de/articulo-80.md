@@ -1,1 +1,1 @@
-Artículo 80.—En caso que los regidores suplentes, no hayan sustituido a los propietarios en una sesión remunerable, pero estén presentes durante toda la sesión, serán acreedores de un cincuenta por ciento de la dieta correspondiente del regidor propietario.
+Artículo 80.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

@@ -1,1 +1,1 @@
-Artículo 71.—Posterior a la juramentación, los regidores propietarios elegirán en votación secreta, al Presidente y Vicepresidente definitivos, escogidos por los regidores propietarios.
+Artículo 71.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

@@ -1,3 +1,3 @@
 CAPÍTULO VI
 De la Presidencia del Concejo
-Artículo 58.—El Presidente del Concejo durará en su cargo dos años y podrá ser reelegido. En sus ausencias temporales será sustituido por el Vicepresidente, designado también por el mismo período que el Presidente, las ausencias temporales del presidente y vicepresidente serán suplidas por el regidor presente de mayor edad.
+Artículo 58.-El Presidente del Concejo durará en su cargo dos años y podrá ser reelegido. (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

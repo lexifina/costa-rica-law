@@ -1,3 +1,6 @@
 CAPÍTULO V
 De la intervención de los particulares
-Artículo 49.—Cuando la índole de algún asunto lo amerite, previo al respecto, podrá el Concejo invitar a personas particulares para que asistan a sesiones. Toda persona particular que tenga interés en los asuntos de la Municipalidad, podrá solicitar ser oído por el Concejo, para tal efecto deberá solicitar en forma escrita la audiencia y el asunto que expondrá ante el Concejo.
+Artículo 49.-
+Cuando la índole de algún asunto lo amerite, el Concejo, mediante acuerdo, podrá invitar a personas particulares para que asistan a las sesiones y expongan su criterio.
+Toda persona podrá solicitar ser oída por el Concejo. Para tal efecto, deberá presentar solicitud escrita indicando el asunto que desea exponer.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

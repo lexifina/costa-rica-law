@@ -1,1 +1,1 @@
-Artículo 81.—En sesiones remunerables, donde asistan los síndicos propietarios, devengarán el cincuenta por ciento de la dieta que devenguen los regidores propietarios.
+Artículo 81.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

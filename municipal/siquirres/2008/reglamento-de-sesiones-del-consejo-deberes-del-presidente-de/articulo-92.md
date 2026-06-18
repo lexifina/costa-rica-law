@@ -1,1 +1,1 @@
-Artículo 92.—Se pagará desayuno cuando por representar a la Municipalidad haya que salir antes de las seis de la mañana, por almuerzo haya que salir antes de las doce de la mañana, cena cuando tenga que regresar después de las dieciocho horas.
+Artículo 92.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

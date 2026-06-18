@@ -1,7 +1,1 @@
-Artículo 67.—Facultades de los regidores:
-a) Pedirle al Presidente Municipal la palabra para emitir el criterio sobre los asuntos en discusión, con los tiempos establecidos en el uso de la palabra en el presente reglamento.
-b) Formular mociones y proposiciones.
-c) Pedir la revisión de acuerdos municipales.
-d) Apelar ante el Concejo las resoluciones del Presidente Municipal.
-e) Llamar al orden al Presidente Municipal, cada vez que en el desempeño de su cargo, se separe de las disposiciones del Código Municipal o los reglamentos internos de la municipalidad.
-f) Solicitar por escrito la convocatoria a sesiones extraordinarias, cuando sea solicitud de al menos la tercera parte de los regidores propietarios.
+Artículo 67.-Facultades de los regidores: (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

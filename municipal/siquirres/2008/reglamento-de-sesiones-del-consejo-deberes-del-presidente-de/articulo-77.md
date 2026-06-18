@@ -1,1 +1,1 @@
-Artículo 77.—Los regidores propietarios perderán las dietas cuando no se presenten dentro de los quince minutos inmediatos posteriores a la hora fijada para el inicio de la sesión o en caso que se retiren antes de la finalización de la sesión.
+Artículo 77.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

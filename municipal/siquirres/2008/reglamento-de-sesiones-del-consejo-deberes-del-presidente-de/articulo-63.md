@@ -1,4 +1,1 @@
-Artículo 63.—Son requisitos para ser regidor:
-a) Ser ciudadano en ejercicio y costarricense
-b) Pertenecer al estado seglar
-c) Estar inscrito electoralmente, por lo menos con dos años de anterioridad, en el cantón en que han de servir el cargo.
+Artículo 63.-Son requisitos para ser regidor: (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

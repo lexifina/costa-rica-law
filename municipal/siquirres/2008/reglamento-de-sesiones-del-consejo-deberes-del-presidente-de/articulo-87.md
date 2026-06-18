@@ -1,1 +1,1 @@
-Artículo 87.—Podrá ser recusado por cualquier interesado el regidor que no se excuse de intervenir en la discusión a la que se refiere el inciso a) anterior. El Concejo decidirá si la recusación procede, y buscará más datos para resolver.
+Artículo 87.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)
