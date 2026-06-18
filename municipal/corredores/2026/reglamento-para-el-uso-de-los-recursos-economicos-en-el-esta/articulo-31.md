@@ -1,0 +1,2 @@
+Artículo 31. -Reposición del fondo. La reposición del fondo de caja chica se realizará mediante la presentación de comprobantes válidos por el total gastado, debidamente justificados y aprobados por la administración o la persona responsable designada.
+La reposición se gestionará al consumirse el 80% del monto del fondo, con el objeto de poder cubrir con el 20% restante aquellos gastos necesarios en tanto se recibe el monto presentado a reintegro.

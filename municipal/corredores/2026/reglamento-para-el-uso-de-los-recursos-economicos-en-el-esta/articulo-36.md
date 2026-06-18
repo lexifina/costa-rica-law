@@ -1,0 +1,1 @@
+Artículo 36. -Custodia del efectivo. El efectivo de caja chica debe ser guardado en un lugar seguro, preferiblemente una caja de seguridad. Su acceso será restringido únicamente a la persona responsable.

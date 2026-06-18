@@ -1,0 +1,1 @@
+Artículo 14. -Ejecución. Toda inversión deberá ajustarse estrictamente a los planes aprobados por Asamblea General CACC y del Concejo Municipal de Corredores. Cualquier modificación debe justificarse por escrito y recibir aprobación previa de la Asamblea General del CACC y del Concejo Municipal de Corredores.

@@ -1,0 +1,1 @@
+Artículo 45. -Procedimiento sancionatorio. Inicio del procedimiento. El procedimiento sancionatorio se iniciará de oficio, por denuncia escrita o por informe de auditoría extendida, auditoría externa, Contraloría General de la República o cualquier autoridad competente.

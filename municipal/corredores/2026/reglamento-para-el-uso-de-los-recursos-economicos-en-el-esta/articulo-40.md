@@ -1,0 +1,1 @@
+Artículo 40. -Sanciones. El mal uso, omisión de registros, falta de comprobantes o negligencia en la custodia de la caja chica podrá acarrear sanciones disciplinarias, administrativas o legales, según la gravedad del caso.

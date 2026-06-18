@@ -1,0 +1,1 @@
+Artículo 15. -Rendición de Cuentas. La Junta Directiva del CACC deberá realizar un informe de rendición de cuentas anual a la Asamblea General del CACC y al Concejo Municipal de Corredores y poner este informe a disposición de sus asociados y del público en general.

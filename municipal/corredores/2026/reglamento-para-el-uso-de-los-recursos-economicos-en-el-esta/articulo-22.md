@@ -1,0 +1,1 @@
+Artículo 22. -Transparencia y Control de Inventarios. El almacén deberá llevar registros actualizados de inventario, ingresos, egresos y movimientos financieros, los cuales estarán sujetos a revisiones periódicas.

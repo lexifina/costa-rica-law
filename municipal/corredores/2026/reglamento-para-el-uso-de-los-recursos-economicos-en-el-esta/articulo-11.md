@@ -1,0 +1,1 @@
+Artículo 11. -Administración de los Fondos. La administración de los fondos estará a cargo del CACC, bajo supervisión de la Municipalidad de Corredores, y deberá regirse por principios de transparencia, eficiencia y rendición de cuentas.

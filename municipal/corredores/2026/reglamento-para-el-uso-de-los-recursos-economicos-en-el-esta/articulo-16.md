@@ -1,0 +1,1 @@
+Artículo 16. -Contratación de Servicios y Compras. Toda contratación y adquisición se regirá por los principios de contratación pública: licitación, cotización, transparencia y equidad, conforme a los montos establecidos por ley y los procedimientos internos del CACC.

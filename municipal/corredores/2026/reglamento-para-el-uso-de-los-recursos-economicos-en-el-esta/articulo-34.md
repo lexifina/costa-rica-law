@@ -1,0 +1,1 @@
+Artículo 34. -Comprobación de gastos. Todo gasto debe estar respaldado por factura electrónica o comprobante oficial que cumpla con los requisitos fiscales y legales. Los documentos deben estar a nombre del Almacén de Insumos del CACC y contener: fecha, detalle del gasto, nombre del proveedor y monto total.

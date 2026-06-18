@@ -1,0 +1,1 @@
+Artículo 29. -Participación Ciudadana. La Asamblea General de Asociados del CACC, podrá convocar sesiones informativas trimestrales para rendir cuentas, recibir propuestas y fiscalizar el accionar de la Junta Directiva, con respecto al Almacén de Insumos.

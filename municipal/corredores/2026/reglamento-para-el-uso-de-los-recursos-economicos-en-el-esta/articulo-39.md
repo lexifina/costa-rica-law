@@ -1,0 +1,1 @@
+Artículo 39. -Auditoría interna. La Junta Directiva del CACC, podrá realizar auditorías periódicas del uso del fondo, arqueos de caja, pudiendo solicitar informes y revisar los comprobantes y registros en cualquier momento.

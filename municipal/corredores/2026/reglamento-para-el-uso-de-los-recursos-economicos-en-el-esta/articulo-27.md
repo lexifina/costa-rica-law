@@ -1,0 +1,1 @@
+Artículo 27. -Auditoría. La Municipalidad de Corredores y la Contraloría General de la República podrán auditar el uso de los fondos del Almacén de Insumos en cualquier momento. El CACC deberá facilitar el acceso a toda la documentación requerida, para una mejor implementación del control interno extendido.

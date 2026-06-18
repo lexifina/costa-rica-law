@@ -1,0 +1,1 @@
+Artículo 3º-Naturaleza del CACC. Es una organización privada sin fines de lucro que promueve el desarrollo agro productivo sostenible del cantón de Corredores, mediante la prestación de servicios, asistencia técnica, acceso a insumos y representación de los productores agrícolas locales.

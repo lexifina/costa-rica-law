@@ -1,0 +1,1 @@
+Artículo 12. -Cuenta Bancaria Especial. El CACC deberá disponer de una cuenta bancaria exclusiva para el manejo de los recursos del almacén de insumos, la cual estará sujeta a auditorías internas y externas (MAG, Municipalidad de Corredores, Contraloría General de la República).

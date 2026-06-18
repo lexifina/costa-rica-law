@@ -1,0 +1,1 @@
+Artículo 48. -Ejecución y seguimiento. Las sanciones se ejecutarán de inmediato una vez firme la resolución. La Junta Directiva del CACC y el Concejo Municipal de Corredores velarán por su cumplimiento, informando a la Contraloría General de la República cuando corresponda.

@@ -1,0 +1,3 @@
+Artículo 42. -Sanciones Civiles. La persona física o jurídica responsable de un daño o perjuicio económico al Almacén de Insumos del CACC, a la Municipalidad de Corredores o a terceros, deberá: a) Resarcir el daño patrimonial causado, más los intereses y costos legales.
+b) Devolver de forma inmediata los recursos, bienes o insumos indebidamente percibidos o utilizados.
+c) Asumir las indemnizaciones por daños y perjuicios derivados de su conducta, conforme al Código Civil, la Ley N° 8131 de Administración Financiera de la República y Ley N° 8422 contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

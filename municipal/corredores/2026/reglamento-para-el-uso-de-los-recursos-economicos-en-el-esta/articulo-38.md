@@ -1,0 +1,1 @@
+Artículo 38. -Procedimiento de reposición. Cuando el fondo esté próximo a agotarse (mínimo un 80% restante), el responsable deberá presentar un informe de rendición de cuentas con todos los comprobantes, para su aprobación y reposición.

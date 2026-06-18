@@ -1,0 +1,1 @@
+Artículo 7º-Uso de Utilidades. Del total de las utilidades deducidas de impuestos, el CACC destinará al menos un veinticinco por ciento (25%) para reinversión anualmente, el restante para lo que disponga el CACC de acuerdo a su naturaleza, objetivos y normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 35. -Responsable del fondo. La Junta Directiva designará a una persona responsable de la administración y custodia del fondo de caja chica del Almacén de Insumos del CACC, quien llevará un registro detallado de todos los movimientos y responderá por su correcto uso.

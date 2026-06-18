@@ -1,0 +1,1 @@
+Artículo 47. -Recursos. Contra la resolución sancionatoria procederán los recursos administrativos establecidos en la Ley General de la Administración Pública (revocatoria y apelación), sin perjuicio de las acciones judiciales correspondientes.
