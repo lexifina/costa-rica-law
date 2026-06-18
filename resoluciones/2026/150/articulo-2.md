@@ -1,0 +1,2 @@
+CAPÍTULO II OBJETO Y ÁMBITO DE APLICACIÓN
+Artículo 2. Objeto. Establecer los lineamientos técnicos generales que regirán los Concursos Nacionales Ordinarios dirigidos a la provisión de puestos docentes cubiertos por el Título II del Estatuto de Servicio Civil, orientados a fortalecer la eficiencia, transparencia, igualdad de oportunidades, la seguridad jurídica y la claridad administrativa necesaria para generar valor público en el acceso al empleo docente.

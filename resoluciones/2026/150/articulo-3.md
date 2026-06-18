@@ -1,0 +1,1 @@
+Artículo 3. Ámbito de aplicación. Las disposiciones de la presente resolución resultan de aplicación a los Concursos Nacionales Ordinarios para la provisión de puestos comprendidos en el artículo 54 del Estatuto de Servicio Civil (Título II).
