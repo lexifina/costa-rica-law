@@ -1,8 +1,2 @@
-Artículo 13.—Para ser miembro del Comité Cantonal de Deportes y Recreación se requiere:
-a) Ser mayor de edad.
-b) Ser ciudadano costarricense o por naturalización con más de tres años de residir en el país o residente legal con más de tres años de residir en el país
-c) Ser residente del cantón como mínimo un año.
-d) Ser de buenas costumbres.
-e) Ser ciudadano con un alto espíritu cívico y deportivo, y
-f) Poseer las aptitudes y preparación académica necesarias en los casos en que la Ley y el presente Reglamento así lo determinen.
-g) No poseer sentencia judicial que lo inhabilite para cargos públicos.
+Artículo 13.-Para ser miembro del Comité Cantonal de Deportes y Recreación se requiere ser residente del cantón, ser ciudadano costarricense o residente legal con al menos tres años de permanencia en el país, no encontrarse inhabilitado judicialmente para el ejercicio de cargos públicos y cumplir con los requisitos específicos de representación y edad establecidos en el Código Municipal. En el caso de las personas miembros designadas por el Concejo Municipal, estas deberán contar con al menos dos años de experiencia comprobable en temas de deporte, recreación o estilos de vida saludable, conforme a la ley.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

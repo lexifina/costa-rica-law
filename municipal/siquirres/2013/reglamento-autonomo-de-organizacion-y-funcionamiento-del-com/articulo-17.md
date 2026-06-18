@@ -1,7 +1,6 @@
-Artículo 17.—Son funciones de la Junta Directiva las que se detallan a continuación:
-a) Ejecutar las políticas que en materia de deporte y recreación hayan sido aprobadas en el Plan Operativo Anual por el Concejo Municipal.
-b) Elaborar y aprobar el Plan Operativo Anual-Presupuesto y someterlo a estudio y aprobación del Concejo Municipal en el mes de julio de cada año. El Comité Cantonal, de previo a elaborar el Plan Operativo Anual, establecerá un procedimiento para obtener información de los comités comunales adscritos al Comité Cantonal, para determinar directamente desde las bases, las necesidades que cada distrito tiene en materia de deporte y recreación y procurará incluir en el plan operativo anual, la ejecución de las necesidades presentadas por los distritos. Se debe contemplar la realización de Foros Distritales que permitan realizar un adecuado y participativo inventario de necesidades comunales priorizadas.
-Con el fin de coordinar presupuestos y acciones, la Junta Directiva del Comité Cantonal deberá incorporar a dichos Foros Distritales, a las organizaciones deportivas, recreativas y comunales organizadas de los Distritos a fin de no repetir acciones y que las aspiraciones de todas las organizaciones se consignen en el Inventario de Necesidades Comunales debidamente priorizadas.
+Artículo 17.-Son funciones de la Junta Directiva las que se detallan a continuación:
+a) Ejecutar las políticas, programas y proyectos en materia de deporte, recreación y estilos de vida saludable, conforme al Plan Operativo Anual y al Plan Estratégico Cantonal aprobados conforme al Código Municipal.
+b) Elaborar y aprobar el Plan Operativo Anual y el presupuesto correspondiente, y someterlos al conocimiento del Concejo Municipal conforme a los plazos y procedimientos establecidos por la normativa vigente. Para la elaboración del Plan Operativo Anual, el Comité deberá establecer mecanismos participativos que permitan recoger las necesidades deportivas y recreativas de los distritos, organizaciones comunales y asociaciones deportivas del cantón.
 c) Establecer, mantener, perfeccionar y evaluar el sistema de control interno del Comité. Es responsabilidad de la administración del mismo realizar las acciones necesarias para garantizar su efectivo funcionamiento.
 d) Sesionar en forma ordinaria o extraordinaria, conforme lo indica este Reglamento.
 e) Juramentar a las personas que el mismo comité nombre, para integrar alguno de sus comités como acto previo a la toma de posesión de los cargos.
@@ -11,5 +10,5 @@ h) Divulgar e informar sobre el desarrollo de sus actividades.
 i) Vigilar que los diversos procedimientos utilizados por el Comité en el desempeño de sus labores generales, sea apegado a las disposiciones legales y reglamentarias y con estricto apego a la sana administración de fondos públicos.
 j) Entregar trimestralmente al Concejo Municipal de Siquirres un informe económico y de labores coincidente con la aprobación del giro proporcional del tracto presupuestario correspondiente según presupuesto anual del Comité Cantonal.
 k) Rendir cuentas de su administración una vez al año al Concejo Municipal, a la Alcaldía, a los concejos de distrito, comités comunales y juntas administradoras; así como los vecinos del cantón.
-l) Analizar solicitudes de otorgamiento de becas.
-m) Conocer, analizar y extender las licencias para la realización u operación de deportes y actividades recreativas acuáticas.
+l) Analizar y resolver las solicitudes de becas y ayudas deportivas, conforme a los criterios y reglamentos respectivos.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

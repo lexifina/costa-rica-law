@@ -1,1 +1,2 @@
-Artículo 11.—Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado están inhibidos para integrar el Comité Cantonal y Comunales, según el artículo 167 del Código Municipal.
+Artículo 11.-Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar el Comité Cantonal y los comités comunales o distritales, conforme a lo dispuesto en el artículo 176 del Código Municipal.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

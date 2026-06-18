@@ -1,7 +1,3 @@
-Artículo 56.—La Junta Directiva de los comités comunales estarán integrados por cinco miembros que deberán cumplir los siguientes requisitos:
-a) Tener afición y alto espíritu por el deporte.
-b) Ser mayores de 18 años.
-c) Estar dispuestos a desempeñar el cargo con sentido de responsabilidad y tener la disponibilidad requerida para hacerlo.
-d) Ser residente de la jurisdicción que abarca el Comité Comunal.
-e) No desempeñar ningún puesto de los enumerados en el Artículo 11, de este Reglamento.
-f) No encontrarse inhabilitado para el ejercicio de cargos públicos mediante sentencia firme.
+Artículo 56.- Las juntas directivas de los comités comunales o distritales de deportes y recreación estarán integradas por siete personas residentes en la respectiva jurisdicción, debiendo incluir al menos dos personas jóvenes mayores de quince años y menores de treinta y cinco años, conforme a lo dispuesto en el Código Municipal.
+Para integrar un comité comunal se requiere ser residente de la jurisdicción que abarca el comité, no encontrarse inhabilitado judicialmente para el ejercicio de cargos públicos y no desempeñar ninguno de los cargos o puestos que generan incompatibilidad conforme a lo dispuesto en el artículo 11 del presente reglamento y en el Código Municipal.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

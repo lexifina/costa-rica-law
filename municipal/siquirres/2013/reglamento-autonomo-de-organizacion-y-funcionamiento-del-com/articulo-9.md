@@ -1,1 +1,2 @@
-Artículo 9º—El Comité Cantonal vigilará que su actuar se ajuste al Plan Operativo Anual que haya aprobado el Concejo Municipal, y establecerá los controles que correspondan para que sus Comités Comunales y afiliados cumplan con dicho plan.
+Artículo 9º-El Comité Cantonal vigilará que su actuación se ajuste al Plan Operativo Anual y al Plan Estratégico Cantonal de Deportes y Recreación aprobados conforme al Código Municipal, y establecerá los controles necesarios para que los comités comunales o distritales y demás órganos adscritos cumplan con dichos instrumentos de planificación.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

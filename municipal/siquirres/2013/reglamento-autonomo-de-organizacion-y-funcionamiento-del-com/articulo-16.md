@@ -1,1 +1,2 @@
-Artículo 16.—Los miembros del Comité Cantonal de Deportes y Recreación, una vez electos y juramentados nombrarán una junta directiva que estará formada por un presidente, un secretario, un tesorero y dos vocales. En la primera sesión establecerá el día y hora de sesiones.
+Artículo 16.-Los miembros del Comité Cantonal de Deportes y Recreación, una vez nombrados y juramentados, designarán de entre sus integrantes la Junta Directiva, la cual estará conformada por una Presidencia, una Vicepresidencia, una Secretaría, una Tesorería y tres vocalías. En su primera sesión, la Junta Directiva establecerá el día, la hora y la periodicidad de sus sesiones ordinarias.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

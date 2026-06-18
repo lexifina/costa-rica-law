@@ -1,1 +1,1 @@
-Artículo 12.—Previo a su instalación, el Comité Cantonal de Deportes y Recreación deberá juramentarse ante el Concejo Municipal.
+Artículo 12.- (Derogado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)

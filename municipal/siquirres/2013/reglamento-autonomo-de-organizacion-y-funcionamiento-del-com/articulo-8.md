@@ -1,10 +1,2 @@
-Artículo 8º—El Comité Cantonal estará constituido – en la medida de sus posibilidades presupuestarias y en apego al Artículo 170 del Código Municipal- por la estructura que enseguida se detalla:
-Una Junta Directiva
-a.1 Una Secretaria de Junta Directiva
-a.2 Comisiones
-b) Una secretaria del Comité Cantonal / asistente administrativo
-b.1 Un asesor contador
-c) Área Deportiva y Recreativa Cantonal
-c.1 Seis promotores deportivos y recreativos distritales (uno por distrito)
-d) Comités Comunales
-e) Juntas administradoras.
+Artículo 8º-El Comité Cantonal de Deportes y Recreación contará, en la medida de sus posibilidades presupuestarias y conforme a lo dispuesto en el Código Municipal, con la siguiente estructura organizativa: una Junta Directiva como órgano superior; las comisiones de trabajo que se establezcan para el cumplimiento de sus fines; un funcionario administrativo asignado por la Municipalidad, quien actuará como enlace permanente entre esta y el Comité; el área deportiva y recreativa cantonal, integrada por promotores deportivos y recreativos distritales según disponibilidad presupuestaria; los comités comunales o distritales adscritos; y las juntas administradoras de instalaciones deportivas.
+(Así reformado mediante publicación en el Alcance Digital N° 77 a La Gaceta N° 112 del 18 de junio del 2026)
