@@ -1,0 +1,1 @@
+Artículo 2º- En lo que respecta al resto del Decreto Ejecutivo N°35940-H, Reglamento de Organización y Funciones de la Dirección de la Policía de Control Fiscal, del 12 de marzo del 2010 y sus reformas, que no fue reformado, se mantiene incólume.
