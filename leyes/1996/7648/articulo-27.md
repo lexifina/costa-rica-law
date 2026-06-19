@@ -1,6 +1,2 @@
-ARTICULO 27.- Requisitos
-El representante legal deberá ser un profesional en Derecho y
-miembro activo de su colegio. Dentro de su jurisdicción, podrá actuar con
-independencia de criterio; pero jerárquicamente estará sujeto a la
-Presidencia Ejecutiva, sin perjuicio de la subordinación que la jefatura
-ejerza en materia administrativa.
+Artículo 27- Requisitos. El representante legal deberá ser un profesional en derecho y miembro activo de su colegio. Actuará de conformidad con el ordenamiento jurídico y acatando de forma obligatoria las directrices y circulares emanadas por la Presidencia Ejecutiva y la Gerencia Técnica, sin perjuicio de la subordinación que la jefatura ejerza en materia administrativa.
+(Así reformado por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
