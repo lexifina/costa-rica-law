@@ -1,56 +1,26 @@
 CAPITULO II
 DE LOS FINES Y LAS ATRIBUCIONES
-ARTICULO 3.- Fines
-El Patronato Nacional de la Infancia tendrá los siguientes fines:
-a) Fortalecer y proteger a la niñez, la adolescencia y la familia
-dentro de los mejores valores tradicionales del ser
-costarricense.
-b) Orientar y coadyuvar en las tareas de formación y educación de
-los padres de familia, para el cumplimiento de sus deberes y
-derechos inherentes a la autoridad parental.
-c) Orientar y coadyuvar en las tareas de formación y educación, para
-el cumplimiento y la satisfacción de los derechos y deberes de
-las personas menores de edad.
-d) Garantizar a las personas menores de edad el derecho de crecer y
-desarrollarse en el seno de una familia, sea biológica o
-adoptiva.
-e) Brindar asistencia técnica y protección a la niñez, la
-adolescencia y a la familia, en situación de riesgo.
-f) Promover los valores y principios morales que inspiran el derecho
-a la vida, la familia, la educación, la convivencia pacífica, el
-respeto mutuo, la cultura, el crecimiento y el progreso digno
-para todos los habitantes de la República.
-g) Estimular la solidaridad ciudadana y el sentido de
-responsabilidad colectiva para fortalecer, promover y garantizar
-los derechos y deberes de la niñez y la adolescencia.
-h) Promover la participación organizada de la sociedad civil, los
-padres de familia, las instituciones estatales y las
-organizaciones sociales en los procesos de estudio, análisis y
-toma de decisiones en materia de infancia, adolescencia y
-familia, a fin de garantizar el cumplimiento de los derechos y
-deberes de las personas menores de edad.
-i) Fortalecer, promover y supervisar las iniciativas y la
-participación de las organizaciones no gubernamentales, en la
-atención integral de la niñez, la adolescencia y la familia.
-j) Fomentar la integración familiar por medio de la formación y la
-capacitación ciudadana, en aras de lograr una convivencia
-armoniosa y democrática.
-k) Mantener una coordinación interinstitucional permanente, con la
-participación de la sociedad organizada, para ejecutar y
-fiscalizar las políticas de infancia y adolescencia.
-l) Dictar e implementar en coordinación con la sociedad civil y las
-instituciones estatales, las políticas en materia de infancia,
-adolescencia y familia.
-m) Organizar las comunidades, para que cooperen en el diseño de
-diagnósticos locales y la ejecución de programas preventivos y de
-atención integral a los menores de edad.
-n) Planificar, ejecutar y supervisar programas de prevención de
-manera conjunta con las instituciones respectivas, con el objeto
-de erradicar, en los menores de edad, toda forma de delincuencia,
-prostitución, maltrato, abuso sexual, drogadicción, alcoholismo,
-abandono u otras causas que lesionen su integridad.
-ñ) Impulsar programas de capacitación y formación para los padres de
-familia, sobre sus responsabilidades y deberes, así como
-propiciar con otras instituciones, programas y actividades que
-inculquen y reafirmen la práctica de valores espirituales,
-morales, sociales y familiares.
+ARTICULO 3.- Fines. El Patronato Nacional de la Infancia tendrá los siguientes fines:
+a) Fortalecer y proteger a la niñez, la adolescencia y la familia dentro de los mejores valores tradicionales del ser costarricense.
+b) Orientar y coadyuvar en las tareas de formación y educación de los padres de familia, para el cumplimiento de sus deberes y derechos inherentes a la autoridad parental.
+c) Orientar y coadyuvar en las tareas de formación y educación, para el cumplimiento y la satisfacción de los derechos y deberes de las personas menores de edad.
+d) Garantizar a las personas menores de edad el derecho de crecer y desarrollarse en el seno de una familia, sea biológica o adoptiva.
+e) Brindar asistencia técnica y protección a la niñez, la adolescencia y a la familia, en situación de riesgo.
+f) Promover los valores y principios morales que inspiran el derecho a la vida, la familia, la educación, la convivencia pacífica, el respeto mutuo, la cultura, el crecimiento y el progreso digno para todos los habitantes de la República.
+g) Estimular la solidaridad ciudadana y el sentido de responsabilidad colectiva para fortalecer, promover y garantizar los derechos y deberes de la niñez y la adolescencia.
+h) Promover la participación organizada de la sociedad civil, los padres de familia, las instituciones estatales y las organizaciones sociales en los procesos de estudio, análisis y toma de decisiones en materia de infancia, adolescencia y familia, a fin de garantizar el cumplimiento de los derechos y deberes de las personas menores de edad.
+i) Fortalecer, promover y supervisar las iniciativas y la participación de las organizaciones no gubernamentales, en la atención integral de la niñez, la adolescencia y la familia.
+j) Fomentar la integración familiar por medio de la formación y la capacitación ciudadana, en aras de lograr una convivencia armoniosa y democrática.
+k) Mantener una coordinación interinstitucional permanente, con la participación de la sociedad organizada, para ejecutar y fiscalizar las políticas de infancia y adolescencia.
+l) Dictar e implementar en coordinación con la sociedad civil y las instituciones estatales, las políticas en materia de infancia, adolescencia y familia.
+m) Organizar a las comunidades para que cooperen en el diseño de diagnósticos locales y la ejecución de programas preventivos y de atención integral a las personas menores de edad.
+(Así reformado el inciso anterior por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
+n) Planificar, ejecutar y supervisar programas de prevención y fortalecimiento familiar y comunal de manera conjunta con las instituciones respectivas, con el objeto de erradicar, en las personas menores de edad, toda forma de violencia, maltrato, abuso, drogadicción, alcoholismo, explotación sexual, delincuencia organizada y otras causas que lesionen su integridad, asegurando la inclusión de estrategias que fortalezcan la capacidad protectora de las familias , previniendo la desintegración familiar.
+(Así reformado el inciso anterior por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
+ñ) Impulsar programas de capacitación y formación para los padres de familia, sobre sus responsabilidades y deberes, así como propiciar con otras instituciones, programas y actividades que inculquen y reafirmen la práctica de valores espirituales, morales, sociales y familiares.
+o) Garantizar que la separación de personas menores de edad de su familia nuclear o extensa sea una medida excepcional.
+(Así adicionado el inciso anterior por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
+p) Impulsar acciones que garanticen a las personas menores de edad, privadas provisionalmente del cuidado parental o en peligro de encontrarse en esa situación, permanecer bajo el cuidado de su familia extensa o, en su defecto, priorizar modelos alternativos de cuidado caracterizados por el ámbito familiar, como el acogimiento familiar temporal comunitario; caso contrario, la persona menor de edad ingresará al sistema institucional. De ser así, realizar los esfuerzos pertinentes para que, en el menor tiempo posible, estas personas menores de edad se reintegren a sus padres, una vez que estos cumplan con el plan de trabajo establecido en el proceso administrativo o judicial, en el que se compruebe la mejora de sus capacidades protectoras u optar por soluciones permanentes como la adopción.
+(Así adicionado el inciso anterior por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
+q) Promover la adopción como la forma de protección alternativa, de carácter subsidiario, que mejor garantiza el cumplimiento de los derechos y el desarrollo integral de las personas menores de edad que han debido ser separadas permanentemente de su familia de origen. En estos casos, es deber del Patronato Nacional de la Infancia implementar estrategias de seguimiento post adopción para asegurar el bienestar y la integridad de las personas menores de edad adoptadas.
+(Así adicionado el inciso anterior por el artículo único de la ley Mejoramiento de la gestión del Patronato Nacional de la Infancia y fortalecimiento del proceso especial de protección de las personas menores de edad, N° 10959 del 9 de junio de 2026)
