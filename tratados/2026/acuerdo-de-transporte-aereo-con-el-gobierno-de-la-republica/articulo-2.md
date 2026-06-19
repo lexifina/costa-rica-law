@@ -1,0 +1,9 @@
+ARTÍCULO 2. Concesión de Derechos
+1. Cada Parte Contratante concede a la otra Parte Contratante los siguientes derechos para la prestación de servicios aéreos internacionales por las líneas aéreas designadas de la otra Parte Contratante:
+a) el derecho de volar a través de su territorio sin aterrizar;
+b) el derecho de hacer escalas en su territorio para fines no comerciales;
+c) el derecho de hacer escalas en su territorio de conformidad a las rutas especificadas en el Anexo, con el f in de dejar o tomar, en tráfico internacional, pasajeros, carga y correo, separadamente o en combinación.
+2. Las líneas aéreas designadas podrán operar sus servicios, tanto regulares como no regulares, entre puntos de ambos territorios y con terceros países con plenos derechos de tráfico y con el número de frecuencias y equipo de vuelo que estimen conveniente, en las rutas especificadas, según lo establecido en el cuadro de rutas (Anexo).
+3. En los puntos de las rutas especificadas, las líneas aéreas designadas de una Parte Contratante tendrán el derecho de utilizar todas las aerovías, aeropuertos internacionales y otras facilidades en el territorio de la otra Parte Contratante, sobre bases no discriminatorias.
+4. Ninguna estipulación del presente Convenio podrá ser interpretada en el sentido de que se confiere a la empresa aérea designada por una Parte Contratante, derechos de cabotaje dentro del territorio de la otra Parte Contratante.
+5. Si por circunstancias especiales o de fuerza mayor, las líneas aéreas designadas de una Parte Contratante se encuentran imposibilitadas de operar un servicio en sus rutas normales, la otra Parte Contratante hará el mayor esfuerzo para facilitar la continuación de la operación de dicho servicio, mediante una readecuación provisoria, acordada mutuamente por las Partes Contratantes, de dichas rutas.

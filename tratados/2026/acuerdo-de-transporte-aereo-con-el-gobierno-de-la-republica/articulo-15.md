@@ -1,0 +1,3 @@
+ARTÍCULO 15. Terminación
+1. En cualquier momento, cualquiera de las Partes Contratantes podrá comunicar por escrito a la otra Parte Contratante su decisión de dar por terminado el presente Convenio a través de los canales diplomáticos. Dicha comunicación se enviará simultáneamente a la OACI. El presente convenio finalizará doce meses después de la fecha en que la otra Parte Contratante haya recibido la notificación, a menos que la comunicación se retire por mutuo acuerdo antes de expirar dicho plazo.
+2. Si la Parte Contratante no acusa recibo de la notificación de terminación, se entenderá que ella ha sido recibida catorce (14) días después de la fecha en que la OACI acuse recibo de dicha notificación.

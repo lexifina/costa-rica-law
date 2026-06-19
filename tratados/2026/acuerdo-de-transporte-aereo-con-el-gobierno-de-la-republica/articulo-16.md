@@ -1,0 +1,1 @@
+ARTÍCULO 16. Acuerdo Multilateral. Si entra en vigor un acuerdo multilateral aceptado por ambas Partes Contratantes, con respecto a cualquier asunto a que se refiera el presente Convenio, este se modificará conforme a las disposiciones del acuerdo multilateral.
