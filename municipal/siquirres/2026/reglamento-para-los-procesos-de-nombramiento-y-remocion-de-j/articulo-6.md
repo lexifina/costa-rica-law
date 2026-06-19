@@ -1,0 +1,1 @@
+Artículo 6º-El Concejo Municipal, una vez recibido el expediente, procederá en forma colegiada al conocimiento y de54liberación sobre el mismo y al nombramiento o rechazo parcial o total de las postulaciones presentadas, ya sea por inconsistencias o por vicios de procedimiento detectados, de lo cual se dejará constancia en el acta.

@@ -1,0 +1,1 @@
+Artículo 10.-Presentación de denuncias. Cualquier miembro de la comunidad educativa y persona en general, podrá presentar por escrito, ante el Concejo Municipal, a través de la Oficina de Secretaría, las denuncias sobre supuestos hechos anómalos de la junta, con el fin de que se realice la investigación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 7º-Realizado el correspondiente nombramiento se procederá a fijar la fecha de juramentación de cada una de las personas electas, la cual se informará tanto a la persona directora del centro educativo como a la persona supervisora de centro educativo. Finalizado el proceso de juramentación la Secretaría del Concejo Municipal extenderá la correspondiente certificación.
