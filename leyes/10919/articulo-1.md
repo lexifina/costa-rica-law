@@ -1,0 +1,7 @@
+N° 10919
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE CARTAGO PARA QUE DONE CAMPOSANTO
+A LA ASOCIACIÓN PARA LA ADMINISTRACIÓN DEL CEMENTERIO
+DESCANSO ETERNO DE CIPRESES DE OREAMUNO
+ARTÍCULO 1- Se desafecta el inmueble propiedad de la Municipalidad de Cartago, cédula jurídica número tres-cero catorce-cero cuarenta y dos mil ochenta (n.° 3-014-042080), inscrito en el partido de Cartago, del Registro Inmobiliario del Registro Nacional bajo matrícula número dos cinco seis dos cero-cero cero cero (n.° 25620-000), con las siguientes características: a) naturaleza: terreno de cementerio; b) situación: distrito 4-Cipreses, cantón 7-Oreamuno, de la provincia de Cartago; c) linderos: norte: Agropecuaria Ivancovich S.A., Aralias del Este S.A. y Edgar Ivancovich Chacón; sur: Agropecuaria Ivancovich S.A., Aralias del Este S.A. y Edgar Ivancovich Chacón; este: Agropecuaria Ivancovich S.A., Aralias del Este S.A. y Edgar Ivancovich Chacón; y al oeste: calle pública; d) medida: seis mil setecientos setenta y tres metros cuadrados (6773 m2) y e plano catastrado: número C-uno seis uno siete ocho ocho tres-dos cero uno dos (n.° C-1617883- 2012), para que done el terreno a la Asociación para la Administración del Cementerio Descanso Eterno de Cipreses de Oreamuno, cédula jurídica número tres-cero dos-quinientos diez mil cincuenta y dos (n.° 3-02-510052).
