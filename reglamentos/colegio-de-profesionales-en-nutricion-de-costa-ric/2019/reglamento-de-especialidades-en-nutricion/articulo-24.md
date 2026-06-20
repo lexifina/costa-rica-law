@@ -1,2 +1,0 @@
-Artículo 24.
-En el acto de juramentación se le entregará al colegiado un título o certificado que lo acredite como especialista en el área específica. Dicho documento deberá contener al menos lo siguiente: Nombre y logotipo del CPN, nombre completo del profesional, área de especialización según el artículo 15 de este Reglamento, lugar y fecha en que se le otorga el reconocimiento y las firmas del Presidente de la Junta Directiva y del Coordinador del Consejo de Especialidades.
