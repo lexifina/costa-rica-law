@@ -1,1 +1,0 @@
-Artículo 21.-Los entes proveedores de la educación continua podrán ser personas físicas o jurídicas, públicas o privadas que imparten actividades de educación continua en Nutrición dirigidas a los profesionales. Ya sea a nivel nacional e internacional, y con actividades educativas desarrolladas de manera virtual, presencial o mixtas.

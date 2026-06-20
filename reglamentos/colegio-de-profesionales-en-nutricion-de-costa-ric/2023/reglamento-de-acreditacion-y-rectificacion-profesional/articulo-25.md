@@ -1,1 +1,0 @@
-Artículo 25.-Solo se reconocerán y acreditarán como actividades de educación continua en Nutrición, aquellas ejecutadas por entes proveedores inscritos como tales ante el SRPN o las actividades educativas homologadas por el CARPEN, que los profesionales presenten, con su debida documentación.

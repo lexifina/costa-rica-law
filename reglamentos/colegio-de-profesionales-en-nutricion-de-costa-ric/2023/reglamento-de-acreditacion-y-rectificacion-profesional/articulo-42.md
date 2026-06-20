@@ -1,1 +1,0 @@
-Artículo 42.-Si el profesional en Nutrición no cumple con el número mínimo de créditos en alguno de los años del periodo de recertificación establecido por CARPEN, deberá iniciar de nuevo su periodo completo de tres años. Los créditos no son acumulables de un año o periodo para otro.

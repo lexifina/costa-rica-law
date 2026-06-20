@@ -1,1 +1,0 @@
-Artículo 47.-Cada año el CARPEN definirá la fecha en que se entregarán los certificados y un distintivo a los colegiados que hayan cumplido con la recertificación profesional del Colegio de Profesionales en Nutrición.

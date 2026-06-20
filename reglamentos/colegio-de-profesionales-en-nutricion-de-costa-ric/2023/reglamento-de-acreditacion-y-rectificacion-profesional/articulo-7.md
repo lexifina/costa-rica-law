@@ -1,1 +1,0 @@
-Artículo 7º-La inscripción al proceso de Recertificación es voluntaria y para estar inscrito al SRPN, debe ser miembro activo y estar al día con las responsabilidades ante el Colegio de Profesionales en Nutrición (CPN)

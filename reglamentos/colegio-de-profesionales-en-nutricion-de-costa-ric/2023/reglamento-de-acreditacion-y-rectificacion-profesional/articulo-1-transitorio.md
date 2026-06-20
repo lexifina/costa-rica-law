@@ -1,1 +1,0 @@
-Transitorio I.-Los procesos de inscripción de un ente proveedor de actividades de educación continua que hayan iniciado antes de la publicación del presente Reglamento, se continuarán tramitando con las normas establecidas en el Reglamento Académico y de Recertificación Profesional publicado en el alcance N° 208 a La Gaceta N° 179 del 23 de septiembre de 2019.

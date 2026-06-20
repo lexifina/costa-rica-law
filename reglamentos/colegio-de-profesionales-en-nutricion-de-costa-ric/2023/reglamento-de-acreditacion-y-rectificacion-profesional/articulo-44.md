@@ -1,1 +1,0 @@
-Artículo 44.-CARPEN notificará a la persona profesional en Nutrición la resolución de su solicitud en un plazo no mayor de 30 días naturales, luego de ser revisada la documentación en la sesión ordinaria más próxima programada. Y será informado sobre la fecha y lugar en que reciba su certificado, donde se le acredite como profesional recertificado.

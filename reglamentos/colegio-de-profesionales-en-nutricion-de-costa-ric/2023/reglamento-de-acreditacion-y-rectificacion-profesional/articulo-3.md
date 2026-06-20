@@ -1,1 +1,0 @@
-Artículo 3º-El CARPEN acreditará la calidad científica y metodológica de las actividades educativas impartidas por los entes proveedores de actividades de educación continua a través del Sistema de Recertificación Profesional en Nutrición (SRPN)
