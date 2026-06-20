@@ -1,2 +1,3 @@
-Artículo 35.-El acta electoral. El acta electoral es el documento donde debe consignarse la apertura, los resultados de la elección, las incidencias y el cierre de la votación. Constará de un artículo de apertura, un artículo de escrutinio de votos y resultado de votación, un artículo de cierre de votación y un artículo de reclamaciones, en caso de que se presenten.
-Se agregarán al acta todos los documentos conexos que tuvieren relación con el proceso electoral y que deben ser conservados.
+CAPÍTULO VI
+DISPOSICIONES FINALES
+Artículo 35. —Representación de género. El Tribunal Electoral procurará que en los diferentes órganos del Colegio exista representación de ambos géneros de acuerdo con el criterio de proporcionalidad de participación de género en la Asamblea.
