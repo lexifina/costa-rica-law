@@ -15,3 +15,4 @@ Reglamento Autónomo para la Asignación, Uso y Control de Teléfonos Celulares 
 | --- | --- | --- |
 | 1 | 2010-09-13 | la propia norma |
 | 2 | 2018-09-25 | Reglamento municipal 126 (2018-09-25) |
+| 3 | 2026-06-21 | Reglamento municipal 134 (2026-06-21) |
