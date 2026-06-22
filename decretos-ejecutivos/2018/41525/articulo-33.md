@@ -1,1 +1,0 @@
-Artículo 33.- Información de registro. El generador de residuos peligrosos deberá registrar la información del manifiesto, en la plataforma SINIGIR, el cual está basado en el Anexo Nº 5 del Decreto Ejecutivo Nº 27001-MINAE del 29 de abril de 1998 "Reglamento para el manejo de los desechos peligrosos industriales" y sus reformas.

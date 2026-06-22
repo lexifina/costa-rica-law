@@ -1,1 +1,0 @@
-Artículo 14.-Domicilio electrónico permanente. Al momento de inscribirse en el Registro de Usuarios de SINIGIR, los usuarios deben designar una dirección de correo electrónico, como su domicilio legal para la recepción de notificaciones relacionadas con los trámites gestionados en la plataforma SINIGIR. Este señalamiento deberá realizarse mediante una manifestación expresa.

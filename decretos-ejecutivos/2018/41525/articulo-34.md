@@ -1,1 +1,0 @@
-Artículo 34.- Procedimiento. Una vez registrada la información, la plataforma SINIGIR le asigna una identificación y fecha de registro al manifiesto y genera el documento de acuerdo al formato del Anexo señalado en el artículo anterior y el usuario procede a la aplicación de su firma digital.
