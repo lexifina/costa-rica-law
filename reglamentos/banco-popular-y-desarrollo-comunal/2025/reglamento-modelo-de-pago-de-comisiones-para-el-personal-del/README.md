@@ -14,3 +14,4 @@ Reglamento modelo de pago de comisiones para el personal del Banco Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-09 | la propia norma |
+| 2 | 2026-06-23 | Reglamento 6318 (2026-06-23) |
