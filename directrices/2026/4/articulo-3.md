@@ -1,0 +1,3 @@
+Artículo 3º-El índice de salario global que establece la distribución de las clases y salarios correspondiente a las clases institucionales del Instituto Nacional de las Mujeres, realizado conforme con lo dispuesto en el artículo 34 de la Ley Marco de Empleo Público, N.º 10159, se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: https://www.empleopublico.mideplan.go.cr/.
+La presente Directriz rige a partir de su publicación.
+Dado en el Ministerio de Planificación Nacional y Política Económica.-San José, Costa Rica, el día 28 de mayo de dos mil veintiséis.
