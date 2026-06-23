@@ -1,0 +1,1 @@
+Transitorio II.- Se autoriza la aplicación del teletrabajo excepcional durante los siguientes 3 meses posteriores a la publicación de este reglamento, por lo que, las personas funcionarias que a esa fecha no cuenten con un contrato de teletrabajo, deberán ejecutar sus funciones de forma presencial.

@@ -1,0 +1,2 @@
+Transitorio I.- Las personas funcionarias que a la entrada en vigor de este reglamento cuenten con contrato de teletrabajo vigente, continuarán con las condiciones ahí estipuladas.
+Los derechos y condiciones más favorables establecidos en este reglamento serán aplicables a las personas funcionarias que mantengan contratos vigentes, sin necesidad de suscribir un nuevo instrumento contractual, salvo que resulte necesario por disposición administrativa.

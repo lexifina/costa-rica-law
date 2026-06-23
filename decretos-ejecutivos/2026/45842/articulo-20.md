@@ -1,0 +1,2 @@
+Artículo 20.- Seguridad de la información y protección de datos. La persona teletrabajadora será responsable de proteger la confidencialidad, integridad y disponibilidad de la información institucional a la que tenga acceso.
+Queda prohibido utilizar herramientas, plataformas, dispositivos o redes no autorizadas que comprometan la seguridad institucional o los datos administrados por la institución.

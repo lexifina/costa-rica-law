@@ -1,0 +1,1 @@
+Artículo 4.- Funciones en la modalidad de teletrabajo. La modalidad de teletrabajo se aplica a aquellas actividades y funciones que se pueden desarrollar, parcial o totalmente, de modo remoto, de acuerdo con una razonable relación tiempo/resultado y sin afectar las necesidades de coordinación interna o de atención a los usuarios.

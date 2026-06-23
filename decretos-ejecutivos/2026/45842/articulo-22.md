@@ -1,0 +1,1 @@
+Artículo 22.- Utilización de medios tecnológicos. La persona teletrabajadora deberá utilizar los medios tecnológicos y plataformas institucionales autorizadas para efectos de coordinación, comunicación, supervisión y ejecución de labores.

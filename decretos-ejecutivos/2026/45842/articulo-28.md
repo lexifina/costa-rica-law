@@ -1,0 +1,1 @@
+Artículo 28.-Póliza de riesgos de trabajo. En lo que respecta a los riesgos del trabajo, para el teletrabajo, tanto nacional como en el extranjero, se aplicarán las pólizas previstas para el trabajo presencial y se regirán por lo dispuesto en la Ley 2, Código de Trabajo, del 27 de agosto de 1943.
