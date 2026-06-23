@@ -1,0 +1,1 @@
+Transitorio III - Derogaciones. A partir de la entrada en vigor del presente Reglamento, queda derogado el Reglamento para la rendición de cauciones a favor del Instituto Mixto de Ayuda Social publicado en el Diario Oficial La Gaceta No. 231 del 29 de noviembre del 2012.

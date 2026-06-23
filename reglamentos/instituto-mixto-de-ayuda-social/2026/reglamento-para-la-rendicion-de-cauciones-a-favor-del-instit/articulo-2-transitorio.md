@@ -1,0 +1,1 @@
+Transitorio II. - Las personas trabajadoras, que a la entrada en vigor del presente reglamento mantengan garantías de caución vigentes, podrán esperar a su vencimiento, y en el momento de su renovación deberán ajustarse a la presente normativa.

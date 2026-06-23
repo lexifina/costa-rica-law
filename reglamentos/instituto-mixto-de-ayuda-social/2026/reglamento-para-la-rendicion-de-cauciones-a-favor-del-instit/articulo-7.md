@@ -1,0 +1,5 @@
+CAPÍTULO III
+De las garantías
+Artículo 7. -De las garantías. La garantía que preste la persona trabajadora deberá cubrir en su totalidad el monto fijado de la póliza para el puesto o cargo en el cual se va a desempeñar.
+La caución se rendirá expresamente a favor del IMAS mediante una póliza de fidelidad individual suscrita con el INS o alguna de las entidades autorizadas para brindar ese servicio. El pago de dicha póliza y los costos por concepto de constitución de la garantía será cubierta con fondos del propio peculio de la persona trabajadora.
+Después de suscrita la póliza de fidelidad, la persona trabajadora debe presentar a Desarrollo Humano, los documentos que respalden dicha gestión (condiciones particulares y comprobante de pago o factura) emitidos por el INS o la aseguradora y que al menos indique el número y el monto de la póliza, la vigencia, el puesto y el nombre del acreedor o beneficiario. Estos documentos se agregarán al expediente personal. Igualmente presentará dichos documentos, cada vez que renueve la póliza.

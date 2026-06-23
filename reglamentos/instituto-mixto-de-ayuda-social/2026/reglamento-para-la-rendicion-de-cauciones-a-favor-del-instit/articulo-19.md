@@ -1,0 +1,1 @@
+Artículo 19.-Vigencia de la caución. En cuanto a la vigencia de la garantía deberá ser conforme a lo establecido en el artículo 120 de la Ley de Administración Financiera y Presupuestos Públicos N°8131 y otras relacionadas.

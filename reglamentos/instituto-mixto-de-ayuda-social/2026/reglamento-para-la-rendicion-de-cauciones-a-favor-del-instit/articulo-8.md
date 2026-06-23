@@ -1,0 +1,6 @@
+Artículo 8. -Cálculo de los montos de la caución. Desarrollo Humano, actualizará para cada nivel el monto por caucionar, tomando como parámetro el salario base establecido en la Ley 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año. Dicha actualización será comunicada por escrito a las personas caucionantes. Las personas que deban ajustarse al nuevo monto de cobertura de la garantía contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.
+a) Cálculo de la caución en el nivel A. Quienes desempeñen puestos clasificados dentro del nivel A, deberán de rendir una caución equivalente a cuatro salarios base.
+b) Cálculo de la caución en el nivel B. Quienes desempeñen puestos clasificados dentro del nivel B, deberán de rendir una caución equivalente tres y medio salarios base.
+c) Cálculo de la caución en el nivel C. Quienes desempeñen puestos clasificados dentro del nivel C, deberán de rendir una caución equivalente a dos salarios base.
+d) Cálculo de la caución en el nivel D. Quienes desempeñen puestos clasificados dentro del nivel D, deberán de rendir una caución equivalente a un salario base.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 122 del 2 de julio de 2026, página N° 2)
