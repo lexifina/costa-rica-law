@@ -1,2 +1,2 @@
-Artículo 26.—Liquidación de precio de venta
+Artículo 26 —Liquidación de precio de venta
 Una vez recibido el pago total por la venta, el Área de Bienes Adjudicados debe hacer la respectiva liquidación y registro contable. También, en el caso que proceda, realiza los trámites indicados en la Ley n.º 4631 y el Reglamento sobre la Distribución de Utilidades por la Venta de Bienes Adjudicados (artículo 1 de la Ley n.º 4631), publicado en La Gaceta n.º 252 del 29 de diciembre del 2005.

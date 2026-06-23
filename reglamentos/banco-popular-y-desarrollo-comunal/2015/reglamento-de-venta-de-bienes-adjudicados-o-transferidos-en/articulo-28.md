@@ -1,2 +1,2 @@
-Artículo 28.—Vigencia
-El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el ‘Reglamento de Venta de Bienes Adjudicados o Transferidos en Pago de Obligaciones’, publicado en el Diario Oficial La Gaceta N° 52 del 16 de marzo del 2021.
+Artículo 28 —Prohibiciones
+Tienen prohibición absoluta de adquisición de estos bienes, miembros de las Juntas Directivas del Conglomerado Financiero, el Gerente General, los Subgerentes, los Gerentes Corporativos, Auditor y Subauditor, Director Jurídico, así como los abogados externos y peritos internos y externos, y cualquier otra persona trabajadora que participe en el proceso de adquisición y valoración de los bienes, como: Jefe del Área Centro de Ingeniería y Valuación, Jefe del Área de Bienes Adjudicados, los interventores y cualquier otra persona trabajadora que participe en la Comisión de Venta de Bienes Adjudicados en Pago de Obligaciones.

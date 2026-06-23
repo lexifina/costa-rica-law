@@ -1,13 +1,20 @@
-Artículo 13 —Funciones de la Comisión de Bienes Adjudicados Son funciones de la Comisión:
-a) Autorizar ventas a precio no inferior al treinta por ciento (30%) del precio del último avalúo, cuando la venta cumpla con alguno de los siguientes literales:
+Artículo 13 —Funciones de la Comisión de Bienes Adjudicados
+Son funciones de la Comisión:
+a) Tramitar y resolver las ventas de bienes adjudicados en pago de obligaciones que se sometan a su conocimiento, procurando los mejores intereses de la Institución.
+b) Autorizar descuentos superiores al establecido en el artículo 10 de este Reglamento. Esto para aquellos casos, donde la publicación por el máximo descuento haya tenido cuatro publicaciones consecutivas sin recibir ofertas. Para lo cual la Comisión aprobara descuentos hasta por un máximo del 70% del valor del avalúo. Superior a este descuento aplicarían para venta sin sujeción a base. Todo según lo establecido en el Procedimiento “Trámite de aprobación de Venta de Bienes Adjudicados sin Sujeción a Base”.
+c) Permutas. Autorizar el intercambio de bienes en aquellos casos donde, por errores en la identificación del bien adjudicado a favor del Banco, exista otra propiedad perteneciente a un tercero, o cuando se trate de bienes con una situación legal particular, es conveniente a los intereses del Banco permutar las propiedades, se debe contar con avalúos previos de las propiedades a permutar.
+d) Aprobar la venta de aquellos bienes donde las personas trabajadoras del Conglomerado Financiero participen como oferentes y resulten adjudicatarios en el proceso de venta que se tramite, quedando excluidas las personas trabajadoras que participaron en el procedimiento de otorgamiento del crédito, cuyo impago originó la adquisición del bien por parte del Banco, en el procedimiento de cobro judicial o de dación de pago, o en el procedimiento de administración y venta del respectivo bien. Lo anterior con lo dispuesto en el artículo 1068 del Código Civil.
+e) Autorizar ventas a precio inferior al treinta por ciento (30%) del precio del último avalúo, cuando la venta cumpla con alguno de los siguientes literales:
 i. Se venda a entidades indicadas en los artículos 20 y 21 de este Reglamento, con criterio razonado, técnicamente motivado y aprobado por la Comisión, la venta solvente o coadyuvando a solventar el interés público.
 ii. Cuando se trate de bienes usurpados, sujetos a derechos indivisos o con anotaciones o gravámenes que dificulten su venta, con criterio razonado, técnicamente motivado y aprobado por la Comisión.
-iii. - Cuando se trate de bienes identificados bajo cualquier tipo de limitación para su publicación, con criterio razonado, técnicamente motivado y aprobado por la Comisión.
+iii. Cuando se trate de bienes identificados bajo cualquier tipo de limitación para su publicación, con criterio razonado, técnicamente motivado y aprobado por la Comisión.
 iv. Cuando se trate de bienes que vean disminuida sustancialmente su área de aprovechamiento por diversas razones, con el fin de no declararlo pérdida, para que se pueda vender directamente a cualquiera de los colindantes limítrofes de la propiedad, o en su defecto, a cualquier interesado; con criterio razonado, técnicamente motivado y aprobado por la Comisión.
 Esta venta debe efectuarse por el monto del avalúo, que debe tomar en cuenta únicamente el área identificada como aprovechable por el profesional tasador.
 Para los puntos anteriores, el Área Bienes Adjudicados deberá realizar un estudio técnico debidamente motivado y justificado, el cual debe ser conocido y aprobado por la Comisión para que los bienes adjudicados puedan ser objeto de venta. La persona compradora deberá conocer y aceptar expresamente las condiciones de venta, manifestando que está conforme en adquirir el bien.
-La forma de pago se determinará en el estudio técnico que se efectúe para la venta, el que deberá considerar las características o condiciones del bien. En estos casos no será necesaria la publicación que se indica en el artículo 4 de este Reglamento.
-b) Autorizar que un bien de los indicados en el artículo 2 de este Reglamento se traspase en firme como un activo del Banco, por razones de conveniencia institucional y con fundamento en un criterio técnico razonado.
-c) Fungir como nivel resolutivo, conforme a lo indicado en el inciso c) del artículo 15 de este Reglamento.
-d) Autorizar ventas a instituciones públicas y a organizaciones sociales indicadas en los artículos 20 y 21 de este Reglamento.
-e) Autorizar ventas sin sujeción a base. Las funciones indicadas en este artículo son indelegables. Sus titulares deben decidir sobre el encargado del levantamiento de las actas correspondientes.
+La forma de pago se determinará en el estudio técnico que se efectúe para la venta, el que deberá considerar las características o condiciones del bien.
+En estos casos no será necesaria la publicación que se indica en el artículo 4 de este Reglamento.
+f) Autorizar que un bien de los indicados en el artículo 2 de este Reglamento se traspase en firme como un activo del Banco, por razones de conveniencia institucional y con fundamento en un criterio técnico razonado.
+g) Fungir como nivel resolutivo, conforme a lo indicado en el inciso c) del artículo 15 de este Reglamento.
+h) Autorizar ventas sin sujeción a base.
+i) Autorizar ventas a instituciones públicas y a organizaciones sociales indicadas en los artículos 20 y 21 de este Reglamento.
+Sus titulares o suplentes deben decidir sobre el encargado del levantamiento de las actas correspondientes.

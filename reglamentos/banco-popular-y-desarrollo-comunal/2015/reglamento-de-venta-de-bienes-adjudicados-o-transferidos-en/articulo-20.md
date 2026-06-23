@@ -1,5 +1,5 @@
-Artículo 20.—Venta a Instituciones Públicas
-El Banco puede vender a instituciones públicas sin que sea necesario la publicación indicada en el artículo 4 de este Reglamento. Esta venta debe efectuarse por el monto del avalúo, salvo que existan descuentos publicados, respetándose lo establecido en la Ley de Contratación Administrativa, su Reglamento y demás disposiciones aplicables.
+Artículo 20 —Venta a Instituciones Públicas
+El Banco puede vender a instituciones públicas sin que sea necesario la publicación indicada en el artículo 4 de este Reglamento. Esta venta debe efectuarse por el monto del avalúo, salvo que existan descuentos publicados, respetándose las demás disposiciones aplicables.
 Forma de Pago: Contado. La institución pública debe depositar el monto a pagar dentro de los 90 días naturales contados a partir de la notificación. A solicitud del ente adjudicatario y con la justificación correspondiente, el nivel resolutivo pertinente puede conceder una prórroga hasta por un período igual de noventa días naturales.
 El Nivel Resolutivo respectivo podrá suspender los plazos indicados en cualquier etapa de la venta de un bien adjudicado, cuando las Instituciones requieran de autorización del presupuesto por parte de la Contraloría General de la República para la compra.
 Estas ventas estarán exentas del pago de arras estipulado en el artículo 17 de este Reglamento.

@@ -1,1 +1,1 @@
-Transitorio. Todos los procedimientos de venta de bienes iniciados antes de la vigencia de este Reglamento culminan de acuerdo con la normativa vigente al momento de la publicación del cartel. (Ref.: Acuerdo CTAJ-18-ACD-84- 2022-Art-3)
+Transitorio. Todos los procedimientos de venta de bienes iniciados antes de la vigencia de este Reglamento culminan de acuerdo con la normativa vigente al momento de la publicación del cartel.

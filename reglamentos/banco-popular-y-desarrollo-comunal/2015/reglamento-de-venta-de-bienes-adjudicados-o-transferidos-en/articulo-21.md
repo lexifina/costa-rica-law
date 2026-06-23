@@ -1,4 +1,4 @@
-Artículo 21.—Venta Organizaciones Sociales
+Artículo 21 —Venta Organizaciones Sociales
 El Banco puede vender a organizaciones sociales sin fines de lucro y las organizaciones de la economía social, sin que sea necesario la publicación indicada en el artículo 4 y 8 de este Reglamento.
 Esta venta debe efectuarse por el monto del avalúo, salvo que existan descuentos publicados; conforme a lo establecido en el artículo 16.
 Estas ventas estarán exentas del pago estipulado en el artículo 9 y 17 de este Reglamento.

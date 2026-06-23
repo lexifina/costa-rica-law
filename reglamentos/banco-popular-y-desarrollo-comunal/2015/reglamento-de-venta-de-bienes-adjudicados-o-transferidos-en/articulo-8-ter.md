@@ -1,1 +1,3 @@
-Artículo 8 Ter—Concursos desiertos El Banco Popular se reserva el derecho de declarar desierto un concurso cuando las ofertas recibidas no convengan a sus intereses o, bien, cuando se detecten situaciones que afecten el proceso de venta en perjuicio del Banco o del interesado en adquirir el bien mueble o inmueble. Todo lo anterior deberá constar con respaldo técnico y estará debidamente justificado por el Área de Bienes Adjudicados.
+Artículo 8 Ter—Concursos desiertos
+El Banco Popular se reserva el derecho de declarar desierto un concurso cuando las ofertas recibidas no convengan a sus intereses o, bien, cuando se detecten situaciones que afecten el proceso de venta en perjuicio del Banco o del interesado en adquirir el bien mueble o inmueble.
+Todo lo anterior deberá constar con respaldo técnico y estará debidamente justificado por el rea de Bienes Adjudicados.
