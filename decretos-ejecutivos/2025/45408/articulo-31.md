@@ -1,0 +1,1 @@
+Artículo 31.- Autorización. El uso de esta modalidad deberá contar con la autorización expresa del jerarca del Ministerio de Cultura y Juventud, la cual deberá incorporarse al expediente digital institucional.

@@ -1,0 +1,2 @@
+Artículo 34.- Atención de consultas específicas en convocatorias. Las consultas específicas relacionadas con una convocatoria se atenderán de acuerdo con los canales, horarios y fechas límites que se definan en las Bases de Participación correspondientes.
+En todo caso, la resolución de cada consulta específica no podrá exceder los cinco (5) días naturales, y deberá quedar constancia en el expediente digital único de la convocatoria.

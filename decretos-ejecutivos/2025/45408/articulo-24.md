@@ -1,0 +1,9 @@
+Artículo 24.- Condiciones para la aplicación de la modalidad de curaduría. La curaduría se aplicará cuando la especificidad y características de un proyecto requieran de un proceso de investigación previo y de una selección especializada de propuestas artísticas y culturales excepcionales, con la finalidad de garantizar el adecuado cumplimiento de los objetivos del proyecto.
+La utilización de esta modalidad deberá estar respaldada por un criterio técnico debidamente documentado del Centro de Producción Artística y Cultural o contar con la autorización escrita de la Dirección del Centro de Producción Artística y Cultural (CPAC), la cual deberá incorporarse al expediente digital correspondiente.
+El criterio técnico que sustente la aplicación de la modalidad de curaduría deberá contemplar, como mínimo, los siguientes elementos:
+a. Justificación del proyecto. Es la explicación de por qué la naturaleza, complejidad o relevancia del proyecto requieren un proceso de curaduría en lugar de una convocatoria pública.
+b. Pertinencia artística y cultural. Descripción de la relevancia de la propuesta en términos de innovación, calidad artística, diversidad cultural y alineación con los objetivos institucionales.
+c. Metodología de investigación. Indicar cómo se identificarán, investigarán y seleccionarán las propuestas u obras, garantizando criterios técnicos y transparencia.
+d. Requisitos de idoneidad de las personas curadoras. Detallar el perfil mínimo de las personas que asumirán la curaduría (trayectoria, experiencia, especialización).
+e. Resultados esperados. Definir los productos, informes o entregables de la curaduría, vinculados directamente con los objetivos del proyecto.
+f. Viabilidad de ejecución, análisis preliminar de la factibilidad técnica, logística y presupuestaria de las propuestas que puedan resultar seleccionadas.

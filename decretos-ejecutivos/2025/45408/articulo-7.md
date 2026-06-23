@@ -1,0 +1,3 @@
+Artículo 7.- Pizarra informativa digital. El Centro de Producción Artística y Cultural dispondrá de una pizarra informativa digital en su micrositio oficial, dentro de la página web del Ministerio de Cultura y Juventud como espacio visible y de acceso público: https://www.mci.go.cr/cpac.
+En la pizarra informativa digital se publicarán los documentos, avisos y comunicaciones generales relacionados con los procesos de convocatoria.
+La publicación en esta pizarra tendrá efectos de notificación oficial de carácter general para las personas interesadas, garantizando la transparencia, la publicidad y el acceso oportuno a la información.

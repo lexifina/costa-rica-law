@@ -1,0 +1,1 @@
+Artículo 32.- Documentación. Toda selección realizada bajo esta modalidad deberá documentarse garantizando la transparencia del proceso y la trazabilidad de las decisiones, así como la ausencia de conflictos de interés.

@@ -1,0 +1,7 @@
+Artículo 16.- Revisión técnica de las propuestas. Concluido el período de recepción de propuestas, el Centro de Producción Artística y Cultural realizará una revisión de requisitos administrativos de cada propuesta, con el fin de determinar su admisibilidad conforme a lo establecido en las Bases de Participación.
+El resultado de esta revisión deberá registrarse en el sistema o en la matriz digital generada automáticamente a partir del formulario de participación, utilizando los medios tecnológicos institucionales disponibles, de forma que quede constancia de cada decisión adoptada.
+La revisión técnica podrá tener los siguientes resultados:
+a) Admisible: la propuesta cumple con los requisitos y continuará con los procesos subsecuentes de la convocatoria,
+b) Subsanable o con observaciones: la propuesta requiere correcciones o aclaraciones, conforme al procedimiento previsto en el artículo 17 de este reglamento.
+c) Inadmisible: la propuesta incumple requisitos esenciales que no pueden ser objeto de subsanación, y por lo tanto queda excluida del proceso. Esta decisión no abrirá fase recursiva, por tratarse de un acto de trámite no cualificado dentro del proceso de convocatoria; no obstante, deberá notificarse formalmente a la persona proponente al correo electrónico consignado en su propuesta y dejarse constancia en el expediente digital único.
+El plazo máximo para realizar la revisión técnica será de veintiún (21) días naturales, contados a partir del cierre de la recepción de propuestas.

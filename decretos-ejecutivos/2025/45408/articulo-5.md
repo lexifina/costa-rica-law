@@ -1,0 +1,6 @@
+CAPÍTULO II
+RECECEPCIÓN DE PROPUESTAS ARTÍSTICAS Y CULTURALES
+Artículo 5.- Plataforma de recepción de propuestas artísticas y culturales. El Centro de Producción Artística y Cultural utilizará medios digitales institucionales, seguros y de acceso público para la recepción de propuestas artísticas y culturales, tales como las herramientas provistas por Microsoft 365 o Google Workspace, mientras se habilita una plataforma oficial centralizada para estos fines.
+La administración y seguridad de dicha plataforma será responsabilidad compartida entre el Centro de Producción Artística y Cultural y el Departamento de Informática del Ministerio de Cultura y Juventud, quienes deberán garantizar la protección de la información, la trazabilidad de los procesos y la integridad de los expedientes digitales.
+Las herramientas empleadas deberán cumplir con los principios de exclusividad, centralización, trazabilidad y transparencia, de conformidad con este reglamento.
+El Centro de Producción Artística y Cultural velará por el cumplimiento de la normativa nacional vigente en materia de protección de datos personales (Ley N.° 8968), derechos de autor (Ley N.° 6683), y lo dispuesto en el Decreto Ejecutivo No. 38002-C sobre la creación del Centro de Producción Artística y Cultural.

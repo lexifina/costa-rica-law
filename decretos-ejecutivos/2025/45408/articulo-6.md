@@ -1,0 +1,2 @@
+Artículo 6.- Ubicación, La recepción de propuestas se realizará exclusivamente a través de medios digitales institucionales, accesibles públicamente desde el micrositio oficial del Centro de Producción Artística y Cultural dentro de la página web del Ministerio de Cultura y Juventud: https://www.rnc.go.cr/cpac.
+Este micrositio funcionará como punto único de acceso, centralizando la presentación, revisión, evaluación y notificación de las propuestas, y garantizando un proceso transparente, seguro y trazable para las personas interesadas.
