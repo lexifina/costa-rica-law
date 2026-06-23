@@ -1,0 +1,1 @@
+Artículo 2º-Definición de modificación presupuestaria. Para los efectos de la correcta aplicación del presente reglamento, se entenderá por modificación presupuestaria la variación autorizada en los egresos presupuestarios aprobados, sin alterar el monto total del presupuesto vigente.
