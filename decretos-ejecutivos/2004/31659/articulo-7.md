@@ -1,1 +1,0 @@
-Artículo 7º—En lo no contemplado en este acuerdo, la Comisión Interinstitucional sobre Terrorismo (CISTE) se regirá por las disposiciones que regulan a los órganos Colegiados, contenidas en los artículos 49 y siguientes de la Ley General de la Administración Pública.

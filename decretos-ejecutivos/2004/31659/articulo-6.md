@@ -1,1 +1,0 @@
-Artículo 6º—La Comisión Interinstitucional sobre Terrorismo y el Grupo de Asesores Técnicos podrán convocar a sus reuniones a miembros de los demás Supremos Poderes del Estado cuando ello sea considerado oportuno o conveniente a efectos de coordinar su trabajo y funciones relacionadas con la materia propia de esta comisión.
