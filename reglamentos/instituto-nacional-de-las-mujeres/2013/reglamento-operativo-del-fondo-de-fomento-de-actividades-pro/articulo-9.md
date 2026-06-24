@@ -1,1 +1,0 @@
-Artículo 9.- Financiamiento y asignación de recursos. El Fondo se podrá financiar con al menos el 4% del presupuesto anual, ordinarios y superávit del INAMU y de aquellas donaciones que ingresen y formen parte del presupuesto institucional. La Junta Directiva del INAMU conocerá y aprobará la propuesta del presupuesto que se dirigirá al Fondo.

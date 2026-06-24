@@ -1,1 +1,0 @@
-Artículo 35 - Admisibilidad. Los proyectos serán revisados por la Unidad de FOMUJERES en cuanto a los requisitos establecidos en el Reglamento Operativo y las bases de postulación, aquellos proyectos que cumplan con todos los requisitos serán declarados como admisibles.

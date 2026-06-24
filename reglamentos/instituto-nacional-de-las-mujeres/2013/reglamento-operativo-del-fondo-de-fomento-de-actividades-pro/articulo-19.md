@@ -1,1 +1,0 @@
-Artículo 19.- Coordinación con entidades públicas. Para la ejecución del Fondo, el INAMU podrá establecer coordinaciones, articulaciones o alianzas que contribuyan en la promoción, acompañamiento y análisis técnico, entre otros, en relación con FOMUJERES, sin delegar responsabilidades propias de la Unidad FOMUJERES que establece la normativa vigente.

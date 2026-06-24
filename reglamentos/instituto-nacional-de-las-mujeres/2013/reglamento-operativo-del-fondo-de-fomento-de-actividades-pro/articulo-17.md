@@ -1,1 +1,0 @@
-Artículo 17.- Entrega y recepción de formularios. La entrega de los formularios por parte de las postulantes estará abierta de forma continua durante todo el año y se podrá realizar una vez que la interesada cumpla con los requisitos señalados en las bases de postulación, de acuerdo con la normativa vigente.

@@ -1,1 +1,0 @@
-Artículo 40. - Comunicación del resultado. El INAMU comunicará a cada postulante el resultado final del proyecto presentado por los medios que estime verificables en los siguientes 77 días naturales posterior a la presentación de la postulación.

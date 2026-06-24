@@ -1,1 +1,0 @@
-Artículo 12.- Monto de financiamiento por proyecto. El INAMU tiene la potestad de definir los límites de financiamiento por proyecto según las áreas y categorías en que se postulen. El presupuesto institucional y la información histórica referido a los concursos anteriores constituirá una base de referencia para estos límites de financiamiento.
