@@ -1,5 +1,6 @@
 Nº 35368-MAG-S-MINAE(*)
 (*)(Así modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 023502 del 4 de junio de 2026, se indicó que, por mayoría, se declara sin lugar la acción, siempre y cuando las normas cuestionadas se interpreten de manera armónica con las disposiciones convencionales, constitucionales y legales que protegen el derecho al disfrute de un ambiente sano y ecológicamente equilibrado, en los términos señalados en esta sentencia.)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA,
 SALUD, AMBIENTE Y ENERGÍA (*)

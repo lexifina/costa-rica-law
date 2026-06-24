@@ -15,3 +15,4 @@ Reglamento para Quemas Agrícolas Controladas
 | --- | --- | --- |
 | 1 | 2009-07-30 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2026-06-24 | SINALEVI (sin norma nombrada) |
