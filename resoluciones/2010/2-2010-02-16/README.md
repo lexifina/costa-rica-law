@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de Dirección General de Servicio Civil (DG-00
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-01 | la propia norma |
+| 2 | 2026-06-24 | Resolución 222 (2026-06-24) |
