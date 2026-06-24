@@ -1,0 +1,1 @@
+Artículo 29. -De la votación. En lo concerniente a la votación, se regirá por lo establecido en el artículo 40 de la Ley N.º 6227 "Ley General de la Administración Pública". Las previsiones de este Reglamento se interpretarán de forma supletoria respecto de la LGAP.

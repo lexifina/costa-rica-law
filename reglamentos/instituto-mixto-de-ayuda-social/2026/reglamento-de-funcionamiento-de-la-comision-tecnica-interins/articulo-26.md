@@ -1,0 +1,1 @@
+Artículo 26. -Intervenciones. Se concederá la palabra en el orden en que se haya solicitado y no deberá a empezar a hablar una persona si no después de que la persona que preside haya concedido la autorización, para ello indicando el nombre e institución que representa.

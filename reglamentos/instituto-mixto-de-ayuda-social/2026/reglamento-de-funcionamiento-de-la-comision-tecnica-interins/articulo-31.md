@@ -1,0 +1,3 @@
+Artículo 31. -Revisión de acuerdos. Contra los acuerdos de la CTI o declarados firmes, podrán los miembros interponer recurso de revisión, siempre que no haya sido aprobada el acta respectiva.
+En caso de que alguno de los miembros de la CTI interponga recurso de revisión contra un acuerdo, el mismo será resuelto por la Comisión al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que la persona que preside considere urgente y prefiera conocerlo en sesión extraordinaria.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior, como recursos de revisión.

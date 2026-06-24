@@ -1,0 +1,2 @@
+Artículo 2°-Ámbito de aplicación.
+Este reglamento es de aplicación obligatorio para todas las personas representan tes, titulares y suplentes, designadas por las instituciones que conforman la Comisión Técnica Interinstitucional (CTI) del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en situación de dependencia (SINCA), conforme a lo establecido en la Ley N°10192 "Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (SINCA)".

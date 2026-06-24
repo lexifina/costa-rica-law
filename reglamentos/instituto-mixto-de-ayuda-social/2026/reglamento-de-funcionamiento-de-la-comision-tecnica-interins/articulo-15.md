@@ -1,0 +1,1 @@
+Artículo 15°. - Asistente administrativa de la CTI. La persona miembro Secretario (a) tendrá colaboración y apoyo para el diligenciamiento de acuerdos, de una persona asistente administrativa de la CTI, destacada por el SINCA.

@@ -1,0 +1,3 @@
+Artículo 28. -De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta de los miembros asistentes, excepto en los casos siguientes:
+a. Declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de la votación favorable unánime.
+b. Cuando la CTI determine que en la adopción de acuerdos específicos se requiera un criterio de mayoría superior. Para adoptar o derogar un acuerdo que impone una regla de mayoría distinta a la absoluta, se requerirá que el acuerdo sea adoptado por mayoría calificada, es decir, dos terceras partes de la totalidad de los miembros de la Comisión.

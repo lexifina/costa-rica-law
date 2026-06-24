@@ -1,0 +1,2 @@
+Transitorio III - Funciones de la Secretaría Técnica
+La Secretaría Técnica del SINCA, conforme a lo dispuesto en el artículo 13, inciso a), de la Ley N.º 10192, "Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (SINCA)", está facultada para coordinar las acciones técnicas y operativas interinstitucionales. Asimismo, según el artículo 19 de la misma ley, le corresponde convocar las sesiones de la CTI.

@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+DE LAS ACTAS DE SESIÓN
+Artículo 19. -De las actas. En lo relativo a la convocatoria, quórum, deliberación, firma, conservación, acceso y recursos respecto a las actas y acuerdos del órgano colegiado, se aplicará lo dispuesto en la Ley N.º 6227 "Ley General de la Administración Pública". Las previsiones de este Reglamento se interpretarán de forma supletoria respecto de dicha Ley. En observancia del principio de transparencia, se garantizará la publicidad de las actas conforme a la normativa aplicable. Lo relativo a la publicación se regirá por lo dispuesto en el transitorio IV.

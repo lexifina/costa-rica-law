@@ -1,0 +1,1 @@
+Artículo 18-Periodicidad. La Comisión Técnica Interinstitucional sesionará ordinariamente una vez cada dos meses, según el artículo 19 de la Ley N°10192, "Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia".

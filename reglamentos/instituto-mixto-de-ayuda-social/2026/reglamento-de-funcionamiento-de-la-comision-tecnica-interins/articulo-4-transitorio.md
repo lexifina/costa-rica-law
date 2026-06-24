@@ -1,0 +1,2 @@
+Transitorio IV - Publicación de actas y grabaciones
+Una vez aprobadas las actas en la sesión siguiente, tanto las actas como las grabaciones deberán publicarse en formato digital accesible en el sitio web institucional del IMAS, en observancia del principio de transparencia y conforme a lo dispuesto en la Ley N.º 6227 "Ley General de la Administración Pública" y la Ley N.º 8968 "Protección de la Persona frente al Tratamiento de sus Datos Personales". Será responsabilidad de la Secretaría Técnica del SINCA, bajo coordinación de la persona que preside la CTI.
