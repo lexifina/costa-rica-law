@@ -1,0 +1,1 @@
+Artículo 2°-Modificase el artículo 2° de la Ley N° 10.836 y sus reformas antes citadas, conforme a lo señalado en el Considerando N° 7 del presente decreto, con el fin de actualizar el Resumen de Gasto por Actividad del Programa 91 Actividades Centrales, del Ministerio de Seguridad Pública.
