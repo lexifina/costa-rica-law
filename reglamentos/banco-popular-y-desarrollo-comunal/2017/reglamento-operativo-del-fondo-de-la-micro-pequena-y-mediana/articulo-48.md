@@ -1,5 +1,0 @@
-Artículo 48.-Lineamientos para el uso del Fondo de Servicios de Desarrollo Empresarial. El Ministerio de Economía, Industria y Comercio, a través de la DIGEPYME, cada año fijará lineamientos claros en cuanto al direccionamiento de estos fondos y lo hará del conocimiento de la Unidad Técnica del FODEMIPYME, conforme lo indica en su artículo 38 del decreto MEIC 42.663.
-Con base en estos lineamientos la Unidad Técnica del FODEMIPYME deberá elaborar una metodología para la presentación y valoración de los programas o proyectos la cual debe de incorporarse en el Manual de Políticas para el Fondo de Servicios de Desarrollo Empresarial.
-En esta metodología se establecerán indicadores, metas y resultados, pudiendo tomar en cuenta el impacto en la generación de empleo, aumento de ventas, mitigación de daño ambiental, entre otros.
-La elaboración de dicho Manual, redacción, implementación, seguimiento, así como la coordinación para la publicación en el Diario Oficial será responsabilidad de la Unidad Técnica de FODEMIPYME.
-(Así reformado mediante sesión ordinaria N° 5858 del 20 de setiembre del 2021)

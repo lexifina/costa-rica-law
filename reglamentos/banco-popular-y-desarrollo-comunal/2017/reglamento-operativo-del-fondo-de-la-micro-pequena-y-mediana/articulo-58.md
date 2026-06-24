@@ -1,1 +1,0 @@
-Artículo 58. —De la ejecución de otros servicios. La Unidad Técnica podrá contratar servicios útiles a los fines para los cuales fue creado, respetando los procedimientos de contratación administrativa.

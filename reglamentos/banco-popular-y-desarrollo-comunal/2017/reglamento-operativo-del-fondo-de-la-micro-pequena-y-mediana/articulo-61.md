@@ -1,1 +1,0 @@
-Artículo 61. —Recursos Humanos. El nombramiento del personal requerido para la operación del FODEMIPYME, se efectuará de conformidad con los perfiles, los requisitos y las competencias definidas en el Manual de Puestos del Banco Popular y mediante los procedimientos que garanticen la idoneidad.
