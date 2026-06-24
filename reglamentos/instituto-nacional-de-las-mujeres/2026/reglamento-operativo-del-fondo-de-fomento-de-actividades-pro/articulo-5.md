@@ -1,0 +1,2 @@
+Artículo 5- Principios rectores: El cumplimiento del objetivo se llevará a cabo mediante los siguientes principios:
+a- Promoción de la participación económica de las mujeres en condiciones de igualdad y equidad. b- Democratización del uso de recursos públicos del INAMU en proyectos que beneficien directamente su población meta. c- Promoción de la formalización de iniciativas de mujeres que puedan ser aspirantes a los mecanismos de selección del Fondo.

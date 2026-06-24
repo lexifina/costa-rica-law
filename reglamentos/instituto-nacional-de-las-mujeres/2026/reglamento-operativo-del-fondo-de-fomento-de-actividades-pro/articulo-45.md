@@ -1,0 +1,4 @@
+CAPITULO IX
+INCUMPLIMIENTO
+Artículo 45- Incumplimiento. En caso de incumplimiento por parte de la usuaria, de cualquiera de las disposiciones estipuladas en el presente reglamento o en el contrato de ejecución suscrito, el INAMU lo resolverá sin responsabilidad de su parte y la usuaria estará obligada a reintegrar el monto otorgado por el Fondo.
+Para esto, se instruirá un procedimiento administrativo de incumplimiento y de cobro, al amparo de la Ley General de la Administración Pública, para que, en caso de demostrarse su responsabilidad, se le obligue a la devolución de la totalidad del dinero derivado de este incumplimiento. Si la medida administrativa no prosperare, el asunto será trasladado a la sede judicial correspondiente. El incumplimiento contractual también podrá acarrear responsabilidad civil y penal.

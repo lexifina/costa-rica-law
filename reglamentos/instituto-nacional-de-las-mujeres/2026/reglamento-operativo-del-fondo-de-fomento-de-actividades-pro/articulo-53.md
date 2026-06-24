@@ -1,0 +1,1 @@
+Artículo 53- Durante el proceso judicial: La usuaria podrá solicitar un arreglo de pago por la suma adeudada, el cual se regirá conforme las disposiciones legales correspondientes. En caso de incumplimiento del arreglo de pago, se continuará con el proceso judicial.

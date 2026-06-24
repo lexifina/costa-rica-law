@@ -1,0 +1,1 @@
+Artículo 31- Admisibilidad: Los proyectos serán revisados por la Unidad FOMUJERES en cuanto a los requisitos establecidos en el reglamento y las bases de postulación, aquellos proyectos que cumplan con los requisitos serán declarados como admisibles, para continuar a la siguiente etapa de análisis.

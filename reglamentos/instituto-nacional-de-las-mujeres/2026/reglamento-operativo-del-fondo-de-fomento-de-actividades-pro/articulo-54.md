@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 54. Derogatoria: El presente Reglamento deroga las versiones anteriores del Reglamento Operativo del Fondo de Fomento de Actividades Productivas y de Organización de las Mujeres, publicadas en: La Gaceta N°171 del 06 de setiembre del 2013; Alcance N°145 de La Gaceta N°157 del 17 de agosto del 2016; Alcance N°112 de La Gaceta N°97 del 01 de junio del 2018; Alcance 12 del 17 de enero de 2019, Alcance N°232 de La Gaceta N°221 del 02 de setiembre del 2020 y el Alcance N°135 de La Gaceta N°126 del 12 de julio del 2023.

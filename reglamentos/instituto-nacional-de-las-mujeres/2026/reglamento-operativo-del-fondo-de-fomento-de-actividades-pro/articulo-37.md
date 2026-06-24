@@ -1,0 +1,1 @@
+Artículo 37- Proyectos que no superaron alguna de las etapas del proceso: En caso de que la postulante no supere alguna de las etapas del proceso, podrá volver a postularse en un plazo de doce meses contados a partir de la última postulación, las Unidades Regionales servirán de apoyo para la correcta presentación de la nueva postulación.

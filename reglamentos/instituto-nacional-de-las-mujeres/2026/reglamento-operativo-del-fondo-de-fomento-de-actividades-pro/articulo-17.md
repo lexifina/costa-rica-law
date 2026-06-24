@@ -1,0 +1,2 @@
+Artículo 17- Mecanismo de postulación: La mujer interesada en postular deberá completar la información solicitada en la página web del INAMU durante el año calendario, aportar los documentos requeridos que no estén en bases de datos públicos, según lo establecido en las bases de postulación, dicho trámite tendrá una vigencia de seis meses.
+Toda consulta debe ser realizada por parte de la interesada en forma escrita, ya que es la persona que tiene el interés legítimo y directo en el resultado para acceder a la información, no por terceras personas.

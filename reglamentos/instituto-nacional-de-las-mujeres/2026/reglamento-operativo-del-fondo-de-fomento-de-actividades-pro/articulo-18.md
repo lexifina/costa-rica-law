@@ -1,0 +1,2 @@
+Artículo 18- Coordinación con entidades públicas: Para la ejecución del Fondo, el INAMU podrá establecer coordinaciones, articulaciones o alianzas que contribuyan en la promoción, acompañamiento y análisis técnico, entre otros, en relación con la Unidad FOMUJERES, sin delegar sus responsabilidades.
+El INAMU podrá consultar aspectos técnicos a personas expertas en la materia, siendo el responsable absoluto de la ejecución de todo el proceso.

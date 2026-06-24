@@ -1,0 +1,1 @@
+Artículo 23- Contrapartidas en los proyectos: Todos los proyectos que aspiren al Fondo deberán presentar una contraparte, ya sea en aportes financieros o aportes en especie. Los aportes en especie que serán considerados deben ser en maquinaria, equipo, infraestructura y horas de trabajo, los cuales se verificarán a través de visitas in situ.

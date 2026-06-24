@@ -1,0 +1,1 @@
+Artículo 24- Control de entrega de proyectos financiados: El INAMU coordinará los aspectos necesarios para que todos los proyectos financiados sean debidamente registrados y fiscalizados; lo anterior con el fin de brindar seguimiento al proyecto y verificar la adecuada utilización de los fondos públicos.

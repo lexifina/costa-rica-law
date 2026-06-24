@@ -1,0 +1,2 @@
+Artículo 47: Prevención de incumplimiento: Ante un incumplimiento corresponderá a la Unidad FOMUJERES con las Unidades Regionales, prevenir el incumplimiento de la usuaria para que presente la medida correctiva que le permita cumplir con lo establecido en el contrato, apersonarse a la Unidad Regional a efecto que normalice su situación, en un plazo de ocho días hábiles.
+Toda gestión quedará consignada en el expediente y cuando no cumpla con la medida correctiva acordada se dará inicio con el proceso de cobro.

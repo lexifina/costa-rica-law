@@ -1,0 +1,1 @@
+Artículo 39- Comunicación del resultado: En un plazo de sesenta y cinco días hábiles a partir de la fecha de postulación cada postulante conocerá el resultado por los medios que el INAMU estime convenientes.

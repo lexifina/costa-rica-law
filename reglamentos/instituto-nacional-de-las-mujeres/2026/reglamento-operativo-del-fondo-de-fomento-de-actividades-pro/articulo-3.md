@@ -1,0 +1,1 @@
+Artículo 3- Objetivo del Fondo: El Fondo tiene como objetivo fomentar las actividades productivas y la organización para la promoción de la autonomía económica de las mujeres y en el ejercicio pleno de sus derechos; por medio de la asignación de recursos económicos no reembolsables a proyectos seleccionados de acuerdo con lo establecido en el reglamento y bases de postulación.

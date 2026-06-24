@@ -1,0 +1,1 @@
+Artículo 28- Departamento Financiero Contable: Es el departamento responsable de llevar a cabo la gestión de transferencias, así como remitir cada mes a la Unidad FOMUJERES un reporte de los movimientos realizados de las usuarias.
