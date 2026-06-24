@@ -1,0 +1,5 @@
+Artículo 38.- Cuota de participación para empresas con CST. Las empresas que cuentan con Certificación de Sostenibilidad Turística (CST) vigente, tendrán un incentivo que las exonera de la cuota de participación, según el siguiente detalle:
+a) Empresas con nivel Elite o su equivalente, no pagan cuota de participación.
+b) Empresas con nivel Básico, o su equivalente: tendrán un sesenta por ciento (60%) de exoneración de la cuota de participación, pagando un cuarenta por ciento (40%) de la misma.
+Para poder obtener este beneficio, las empresas que participen en ferias internacionales deberán inscribirse, según lo indicado en el artículo 16 de este Reglamento, con el mismo nombre con el que obtuvieron la Certificación de Sostenibilidad Turística y con ese mismo nombre serán listadas en los directorios de la feria y en el stand del ICT.
+Las empresas deben considerar el plazo establecido por el Reglamento del Programa de Sostenibilidad Turística para la recertificación, dicho trámite es responsabilidad exclusiva de la empresa interesada.

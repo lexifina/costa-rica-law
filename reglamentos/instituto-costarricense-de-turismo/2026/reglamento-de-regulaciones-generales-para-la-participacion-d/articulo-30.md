@@ -1,0 +1,8 @@
+Capítulo VI
+Figuras especiales de participación
+Artículo 30.- Mesas compartidas. En el caso de que alguna empresa que sea parte de la lista de espera ordinaria o extraordinaria, realice por cuenta propia la gestión ante alguna empresa con cupo confirmado para compartir mesa con ella, siempre que esta esté de acuerdo, el ICT podrá autorizar su participación en mesa compartida dentro del área de co expositores con cupo confirmado. Para ello se debe cumplir con las siguientes condiciones:
+a) Que la solicitud sea presentada formalmente y por escrito ante el Área de Ferias Internacionales con la suficiente antelación a la fecha límite de pago de la feria en cuestión, de manera que el pago de la respectiva cuota de inscripción pueda ser efectuado a tiempo.
+b) Que la solicitud del interesado sea acompañada por una carta firmada por el representante legal de la empresa con cupo confirmado donde manifieste estar de acuerdo con compartir mesa con el interesado y estar dispuesto a sacrificar para su representada, uno de los espacios de los dos (2) delegados que como máximo se asigna en cada feria.
+c) El interesado debe pagar antes de la fecha límite la respectiva cuota de participación que corresponda según el caso, y debe cumplir con todas las obligaciones que se le asigna en el presente Reglamento.
+d) La mesa compartida tendrá los nombres de ambas empresas y se les inscribirá como co expositores ante la feria. Esto implica que cada una de las dos (2) empresas podrá gestionar su gafete con la feria y acceder a la plataforma de citas para gestionar sus respectivas agendas, cuando esto aplique según la modalidad de la feria.
+e) Ambas empresas deberán coordinar entre ellas para la atención de sus citas en el mismo espacio y mesa.

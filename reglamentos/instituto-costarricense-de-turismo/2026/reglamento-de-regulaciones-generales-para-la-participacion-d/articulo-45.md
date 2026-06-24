@@ -1,0 +1,1 @@
+Artículo 45.- No se aceptarán dentro del módulo de exhibición, personas que no estén debidamente acreditadas, ni se podrá hacer uso de las mesas asignadas a otras empresas dentro del stand cuando por algún motivo estas se ausenten, salvo previa autorización del ICT.

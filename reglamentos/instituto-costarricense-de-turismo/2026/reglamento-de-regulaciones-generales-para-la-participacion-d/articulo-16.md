@@ -1,0 +1,1 @@
+Artículo 16.- La participación en las ferias internacionales junto al ICT se realizará utilizando para todos los efectos, el nombre de la empresa con el que esta fue consignada en el formulario de inscripción en las ferias internacionales, nombre que debe coincidir con el cual le fue otorgada la Declaratoria Turística o la Certificación de Sostenibilidad Turística.

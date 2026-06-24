@@ -1,0 +1,3 @@
+Capítulo V
+Proceso de evaluación de empresas
+Artículo 20.- Las empresas seleccionadas para participar en ferias internacionales deben maximizar el posicionamiento de Costa Rica como destino diferenciado, sostenible, competitivo y de alto valor agregado y demostrar capacidad real de generar beneficio económico y reputacional para el país. Por tanto, para la selección de las empresas que podrán optar por un cupo para la participación en ferias internacionales se aplicará una evaluación especifica con criterios técnicos de valoración a fin de asegurar una oferta idónea de servicios y productos que corresponda con el perfil de las ferias internacionales en que se participará.

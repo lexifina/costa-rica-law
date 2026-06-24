@@ -1,0 +1,3 @@
+Capítulo III
+De las empresas participantes
+Artículo 8.- En las ferias internacionales podrán inscribirse y participar aquellas empresas que cuenten con la Declaratoria Turística en firme o con la Certificación de Sostenibilidad Turística vigente. Se hace énfasis en que el requisito de contar con Declaratoria Turística y CST vigente es necesario tanto para el proceso de inscripción ante el ICT, como en el momento de inscripción en los directorios de cada una de las ferias y en el momento de participar en las ferias internacionales. Es decir, la Declaratoria Turística y la Certificación de Sostenibilidad Turística deberán estar vigentes durante todo el proceso de participación en ferias internacionales para que una empresa pueda optar por un espacio en estos eventos.

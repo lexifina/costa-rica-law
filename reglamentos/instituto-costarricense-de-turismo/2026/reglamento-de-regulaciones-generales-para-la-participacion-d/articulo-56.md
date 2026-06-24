@@ -1,0 +1,1 @@
+Artículo 56.- Deróguese la "Reforma integral al Reglamento regulaciones generales para la participación de la empresa privada en las ferias internacionales con el Instituto Costarricense de Turismo," publicado en La Gaceta N. 60, del 31 de marzo de 2023.

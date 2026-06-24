@@ -1,0 +1,1 @@
+Artículo 14.- La definición de la cantidad de cupos disponibles para la participación en las ferias internacionales, se efectuará conforme a la disponibilidad de espacio en cada stand y al número de espacios para empresas establecido para cada evento por parte del Área de Ferias Internacionales, según lo indicado en la boleta de inscripción.

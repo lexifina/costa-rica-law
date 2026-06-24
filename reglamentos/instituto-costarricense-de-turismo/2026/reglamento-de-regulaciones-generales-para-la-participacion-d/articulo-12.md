@@ -1,0 +1,1 @@
+Artículo 12.- Para la inscripción en las ferias internacionales, se tomará en cuenta a las empresas u organizaciones que presenten el formulario completo ante el ICT antes de las fechas límite establecidas para cada caso y comunicadas previamente.

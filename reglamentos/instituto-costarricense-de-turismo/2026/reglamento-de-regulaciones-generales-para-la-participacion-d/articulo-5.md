@@ -1,0 +1,1 @@
+Artículo 5.- Corresponderá a la Dirección de Mercadeo del ICT, la aprobación del Plan de Ferias Internacionales que incluirá -entre otros aspectos- las ferias internacionales en que se participará, los objetivos, las metas y los indicadores, de acuerdo con el Plan Operativo Institucional, el Marco Orientador de Mercadeo y el Plan Estratégico Institucional.

@@ -1,0 +1,1 @@
+Artículo 49.- El coordinador o coordinadora de la feria tendrá plenos poderes de retirar del área de exhibición material que viole lo acordado en el artículo 34 inciso k) y artículo 42 inciso m) de este Reglamento, o que promueva la explotación sexual comercial de niños, niñas y adolescentes, el desarrollo inmobiliario o que vaya en perjuicio de la imagen del país.

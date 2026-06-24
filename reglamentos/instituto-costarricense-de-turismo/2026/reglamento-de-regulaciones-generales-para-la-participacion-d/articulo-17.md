@@ -1,0 +1,6 @@
+Artículo 17.- Requisitos de admisibilidad obligatorios para la participación en ferias internacionales. Además de haber cumplido con los requisitos indicados en el artículo 9 de este Reglamento, las empresas interesadas en participar en estas ferias con el ICT, deberán cumplir con los siguientes requisitos indispensables para poder ser evaluadas durante el proceso de inscripción:
+1. Contar con Certificación de Sostenibilidad Turística vigente, tanto en el momento de la inscripción en ferias internacionales, como en la fecha en que se realiza la feria. 2. Las empresas que no tengan CST deben contar con Declaratoria Turística vigente, tanto en el momento de la inscripción en ferias internacionales, como en la fecha en que se realiza la feria.
+3. Declaración jurada del representante legal de la empresa que respalde la información solicitada asegurando que todos los documentos e información aportada son reales y verdaderos.
+4. No reportar quejas o denuncias interpuestas ante el ICT.
+5. No haber acumulado ni una sola falta grave en el período anterior de participación en ferias internacionales, según lo indicado en artículo 53 de este Reglamento.
+El incumplimiento de cualquiera de estos requisitos impedirá continuar con el proceso de evaluación e inhabilitará a la empresa para optar por un cupo en las ferias internacionales.
