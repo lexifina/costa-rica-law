@@ -1,12 +1,5 @@
-ARTÍCULO 63. Tipos de sanciones y sus procedimientos.
-A la persona trabajadora de la Empresa que cometa falta a sus obligaciones laborales, incumpla las normas y procedimientos establecidos por RECOPE o la legislación laboral, así como cualquier otra normativa aplicable o incurra en las prohibiciones dispuestas en este reglamento y/o demás normativa aplicable, se le podrá imponer las siguientes sanciones disciplinarias:
-a) Amonestación escrita por faltas leves.
-b) Suspensión sin goce de salario por faltas graves.
-c) Despido sin responsabilidad patronal por faltas gravísimas.
-Lo anterior sin perjuicio de la aplicación de la normativa especial, interna o externa, que resulte vigente y aplicable. El caso del personal de la Auditoría Interna, además de lo regulado en la presente norma, se debe considerar lo establecido en la Ley General de Control Interno y en lo establecido en la resolución R-DC-83-2018 y sus lineamientos.
-La medida disciplinaria a imponer será definida con base en la gravedad de la falta cometida y el perjuicio ocasionado por el incumplimiento, sin detrimento de los demás criterios a considerar y conforme las particularidades del caso concreto. Sin perjuicio de la aplicación de aquellos otros que, por las circunstancias especiales del caso, se consideren pertinentes, en los hechos que pudieren generar sanción disciplinaria en cada caso concreto, se podrán valorar los siguientes criterios:
-1) La naturaleza de la falta, repetición y/o prolongación, las personas o intereses afectados a causa de la acción u omisión o el daño a la imagen o al patrimonio de la Empresa imputable a la persona trabajadora, provocada por dicha acción u omisión.
-2) Las circunstancias que puedan resultar atenuantes y agravantes.
-3) La jerarquía del puesto, la intencionalidad, el historial disciplinario de la persona trabajadora y la evaluación de desempeño.
-4) La reincidencia de la persona trabajadora en faltas a sus deberes por la que haya sido sancionado, que denote una actitud sistemática de indisciplina y falta de corrección, conllevará la apertura de los procesos disciplinarios a la luz de lo establecido en la normativa interna y externa aplicable a la materia en la Empresa.
-5) La concurrencia de la persona trabajadora en diversas faltas a sus deberes del contrato de trabajo conllevará la apertura de los procesos disciplinarios a la luz de lo establecido en la normativa interna y externa aplicable a la materia en la Empresa.
+CAPÍTULO IX. DEL RÉGIMEN ADMINISTRATIVO DISCIPLINARIO
+ARTÍCULO 63. Régimen disciplinario.
+Las personas trabajadoras de RECOPE podrán ser sancionadas disciplinariamente por las faltas en que incurran, una vez comprobadas conforme al debido proceso, con base en los principios que rigen la potestad sancionadora, lo dispuesto en la Ley Marco de Empleo Público y su reglamento, el Reglamento de Procedimientos Laborales de RECOPE y demás normativa aplicable.
+Lo anterior, sin perjuicio de la responsabilidad civil o penal que pudiera derivarse de sus actos u omisiones.
+(Así reformado mediante acuerdo firme adoptado por la Junta Directiva de RECOPE, según consta en el Artículo 05 de la Sesión Ordinaria No. 5479-177, celebrada el martes 09 de setiembre de 2025, verificado por la Secretaría Técnica de la Autoridad Presupuestaria, mediante el oficio MH-STAP-OF-1252-2025 del 10 de octubre de 2025).

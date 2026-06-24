@@ -1,2 +1,3 @@
-ARTÍCULO 72. Preaviso
-Cuando una de las partes de la relación laboral ponga término sea por renuncia o despido con responsabilidad laboral, deberá dar aviso previo a la otra parte, de acuerdo con las reglas establecidas en el artículo 28 del Código de Trabajo.
+CAPITULO X. CESANTÍA Y PREAVISO
+ARTÍCULO 72. Cesantía.
+Cuando el contrato de trabajo por tiempo indeterminado concluya con responsabilidad patronal, en aplicación del artículo 20 incisos b) y e) de la Ley Marco de Empleo Público y el Código de Trabajo en lo que corresponda, el patrono deberá pagarle un auxilio de cesantía de acuerdo con las reglas establecidas en el artículo 29 del Código de Trabajo, salvo que se encuentre pendiente un procesos disciplinarios notificado antes de la terminación de la relación laboral y en trámite, lo cual suspenderá el pago de la cesantía hasta que se resuelva en firme.

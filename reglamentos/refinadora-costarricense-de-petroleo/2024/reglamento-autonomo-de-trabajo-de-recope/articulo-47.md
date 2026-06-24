@@ -1,7 +1,7 @@
 SECCIÓN III. DE LAS PROHIBICIONES EN GENERAL
 ARTÍCULO 47. Prohibiciones de las personas trabajadoras.
 Sin perjuicio de otras que establece el presente reglamento y demás disposiciones internas o externas aplicables, el contrato de trabajo y aquellas que se desprendan de la relación laboral, las personas trabajadoras tendrán las siguientes prohibiciones:
-1. Cometer actos de abuso, maltrato, intimidación, violencia verbal y/o física o cualquier tipo de acoso en el trabajo o con ocasión de este.
+1. Cometer actos de abuso, maltrato, intimidación, violencia verbal o física o cualquier tipo de acoso en el trabajo o con ocasión de este.
 2. Incurrir en prácticas discriminatorias hacia cualquier persona trabajadora, cliente o proveedor de la empresa por razones de sexo, género, orientación sexual, edad, etnia, nacionalidad, religión, filiación política, idioma, ocupación o por tener alguna condición de discapacidad.
 3. Cometer actos contrarios a la ética, la moral, las buenas costumbres o al ordenamiento jurídico, que puedan afectar de forma negativa la imagen institucional durante el ejercicio de sus funciones o con el uso de las herramientas otorgadas por el patrono.
 4. Presentarse al trabajo en estado de embriaguez, bajo la influencia de sustancias estupefacientes o psicotrópicas o bajo cualquier otra condición análoga.
@@ -15,4 +15,7 @@ Sin perjuicio de otras que establece el presente reglamento y demás disposicion
 12. Acceder o permitir el acceso de manera no autorizada a zonas restringidas, sistemas o información confidencial.
 13. Divulgar de manera no autorizada información confidencial de la empresa, incluyendo datos de clientes, estrategias comerciales o cualquier otra información sensible.
 14. Participar en actividades o en toma de decisiones que puedan crear conflictos de interés.
-15. Consumir sustancias psicoactivas en actividades laborales y extralaborales extralaborales dentro de las instalaciones o vehículos de la Empresa, trabajar bajo los efectos de sustancias psicoactivas, o ingresar a las instalaciones bajo el efecto del consumo de sustancias psicoactivas, introducir, poseer, transportar o distribuir bebidas alcohólicas u otras drogas dentro de las instalaciones o vehículos de la Empresa o particulares, cuando estos últimos cuenten con el permiso de ingreso a la terminal.
+15. Consumir sustancias psicoactivas en actividades laborales y extralaborales dentro de las instalaciones o vehículos de la Empresa, trabajar bajo los efectos de sustancias psicoactivas, o ingresar a las instalaciones bajo el efecto del consumo de sustancias psicoactivas, introducir, poseer, transportar o distribuir bebidas alcohólicas u otras drogas dentro de las instalaciones o vehículos de la Empresa o particulares, cuando estos últimos cuenten con el permiso de ingreso a la terminal.
+16. Realizar ventas o rifas dentro de las instalaciones de la Empresa.
+(Así reformado mediante acuerdo firme adoptado por la Junta Directiva de RECOPE, según
+consta en el Artículo 05 de la Sesión Ordinaria No. 5479-177, celebrada el martes 09 de setiembre de 2025, verificado por la Secretaría Técnica de la Autoridad Presupuestaria, mediante el oficio MH-STAP-OF-1252-2025 del 10 de octubre de 2025).

@@ -14,3 +14,4 @@ Reglamento autónomo de trabajo de RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-08-22 | la propia norma |
+| 2 | 2026-06-24 | Reglamento 0 (2026-06-24) |

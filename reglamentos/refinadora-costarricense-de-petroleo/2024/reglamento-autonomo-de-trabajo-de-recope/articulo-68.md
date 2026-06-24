@@ -1,7 +1,8 @@
-ARTÍCULO 68. Despido sin responsabilidad patronal.
-El despido sin responsabilidad patronal se podrá aplicar en los siguientes casos:
-1) Cuando la persona trabajadora incurra en alguna de las conductas establecidas en los artículos 47 (Obligaciones de las personas trabajadoras relacionadas al deber de probidad), 48 (Obligaciones de las jefaturas relacionadas al deber de probidad y buena fe) y 49 (Prohibiciones de las personas trabajadoras relacionadas al deber de probidad) de este Reglamento, los artículos 81, 369 y 410 del Código de Trabajo, el artículo 4 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley General de Control Interno, Ley de la Administración Financiera de la República y Presupuestos Públicos, o bien en otras normas de los mismos cuerpos normativos o de otras leyes o disposiciones vigentes y aplicables, que establezcan causales de despido sin responsabilidad patronal.
-2) Cuando la persona trabajadora solicite o reciba dinero o cualquier otro beneficio material, haciendo valer, para ello, la condición de trabajador de RECOPE.
-3) Cuando la persona trabajadora mienta o engañe a la Empresa sobre los motivos para fundamentar la petición de permisos o licencias o presente documentos falsificados o alterados.
-4) Cuando la persona trabajadora incurra en cualquier otra falta grave (una falta de tal gravedad que la aplicación de una sanción menor no resulte una medida disciplinaria suficiente y proporcional).
-Los expedientes en los que se investigue aparente falta por Hostigamiento Sexual, así como cualquier otro que cuente con normativa especial, se regirán por dicha normativa.
+ARTÍCULO 68. Suspensión sin goce de salario.
+La suspensión sin goce de salario se podrá aplicar en los siguientes casos:
+1) Cuando la normativa interna o externa aplicable así lo regule.
+2) Cuando la persona trabajadora cometa una falta de tal gravedad que la aplicación de una amonestación o una amonestación con apercibimiento no resulten una medida disciplinaria idónea, suficiente y proporcional para la gravedad de la situación.
+3) Cuando la persona trabajadora, después de haber sido sancionada con una amonestación con apercibimiento escrito (advertencia escrita), incurra de nuevo en la falta que motivó dicha sanción dentro del plazo de tres meses desde que se le entregó la misma, salvo que la falta de mérito para el despido sin responsabilidad patronal.
+4) Las establecidas en la normativa vigente correspondiente sobre hostigamiento sexual y laboral, según la naturaleza de la falta que llegaré a demostrarse previo cumplimiento del debido proceso.
+5) Cualquier otra que así lo amerite.
+Se podrá imponer una suspensión sin goce de salario hasta por un mes, según la gravedad

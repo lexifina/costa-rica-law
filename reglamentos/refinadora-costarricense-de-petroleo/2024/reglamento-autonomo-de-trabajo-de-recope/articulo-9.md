@@ -1,2 +1,3 @@
 ARTÍCULO 9. Puestos de libre nombramiento y remoción.
-Las personas en puestos de subauditores de Área, Secretaría de Actas, Asesores Ejecutivos de la Presidencia y de la Gerencia General, Asistentes de Gerencias de Área, Directores de Área y Jefaturas, son de libre nombramiento y remoción
+Las personas en puestos de sub-auditores de Área, Secretaría de Actas, Asesores (as) Ejecutivos (as) de la Presidencia y de la Gerencia General, Asistentes de Gerencias de Área, Directores (as) de Área, Jefaturas, y Gerencias de Área y Gerencia General, son de libre nombramiento y remoción.
+(Así reformado mediante acuerdo firme adoptado por la Junta Directiva de RECOPE, según consta en el Artículo 06 de la Sesión Ordinaria No. 5487-185, celebrada el martes 11 de noviembre de 2025, verificado por la Secretaría Técnica de la Autoridad Presupuestaria, mediante el oficio MHSTAP-OF-1557-2025 del 11 de diciembre de 2025).

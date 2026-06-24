@@ -1,4 +1,2 @@
-CAPÍTULO VII. DE LA EVALUACIÓN DEL DESEMPEÑO
-ARTÍCULO 58. Sobre la evaluación del desempeño.
-La evaluación del desempeño será un mecanismo para la mejora continua de la gestión pública y del desempeño y desarrollo integral de las personas trabajadoras de la Empresa, de conformidad con el Reglamento para Gestión del Desempeño de RECOPE y demás normativa aplicable.
-La evaluación del desempeño se aplicará a la luz de la legislación y normativa interna que resulte aplicable, atendiendo a las características de cada puesto y sus funciones.
+ARTÍCULO 58. Deberes de la persona trabajadora durante el permiso.
+Durante el tiempo que dure el permiso sin goce de salario, la persona trabajadora mantendrá, respecto a la Empresa, su deber de actuar conforme al principio de buena fe, deber de confidencialidad y no incurrir en actos que puedan generar conflicto de intereses. Lo anterior sin perjuicio de otros deberes que por su naturaleza subsistan.

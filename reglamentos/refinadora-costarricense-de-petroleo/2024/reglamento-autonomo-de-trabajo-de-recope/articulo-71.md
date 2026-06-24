@@ -1,3 +1,2 @@
-CAPITULO X. CESANTIA Y PREAVISO
-ARTÍCULO 71. Cesantía.
-Cuando el contrato de trabajo por tiempo indeterminado concluya con responsabilidad patronal, en aplicación del artículo 20 incisos b) y e) de la Ley Marco de Empleo Público y el Código de Trabajo en lo que corresponda, el patrono deberá pagarle un auxilio de cesantía de acuerdo con las reglas establecidas en el artículo 29 del Código de Trabajo, salvo que se encuentre pendiente un procesos disciplinarios notificado antes de la terminación de la relación laboral y en trámite, lo cual suspenderá el pago de la cesantía hasta que se resuelva en firme.
+ARTÍCULO 71. Infracciones a Ley de control interno.
+La responsabilidad administrativa de la persona trabajadora por infracciones previstas en la Ley de Control interno y en el ordenamiento de control y fiscalización superiores, se regirán por lo establecido en el mencionado cuerpo normativo.

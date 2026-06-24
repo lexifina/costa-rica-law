@@ -1,2 +1,2 @@
-ARTÍCULO 57. Deberes de la persona trabajadora durante el permiso.
-Durante el tiempo que dure el permiso sin goce de salario, la persona trabajadora mantendrá, respecto a la Empresa, su deber de actuar conforme al principio de buena fe, deber de confidencialidad y no incurrir en actos que puedan generar conflicto de intereses. Lo anterior sin perjuicio de otros deberes que por su naturaleza subsistan.
+ARTÍCULO 57. Consecuencias.
+De conformidad con lo previsto en el Código de Trabajo, los permisos sin goce de salario no interrumpen, pero sí suspenden la continuidad en el trabajo y, por lo tanto, quien los disfrute, conserva plenamente todos los derechos establecidos en las leyes y regulaciones derivadas de la antigüedad en el servicio.

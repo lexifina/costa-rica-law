@@ -1,6 +1,6 @@
-ARTÍCULO 53. Permisos con goce de salario para retirarse del turno de labores.
-El titular subordinado de la persona trabajadora dará permiso para retirarse con goce de salario según su turno en los siguientes escenarios:
-1) Cuando una persona trabajadora tenga que ausentarse de su jornada laboral, sea previo al inicio de ésta o durante la misma, por recibir llamado de su casa notificándole que ha ocurrido una emergencia que afecte la vida, salud o seguridad de un familiar en primer grado o persona que dependa de forma directa de este, se le otorgará permiso para que atienda la emergencia, durante un plazo razonable al motivo, sin que medie abusos.
-La persona trabajadora deberá justificar y demostrar dentro del plazo de cinco días hábiles, por un medio escrito idóneo la causa de su ausencia, a fin de no ser sancionado.
-Las justificaciones presentadas fuera del plazo señalado se tendrán como extemporáneas.
-2) Cuando tenga que comparecer como testigos o actuar en alguna otra diligencia judicial. La persona trabajadora deberá avisar a la jefatura inmediata en el plazo de 24 horas a partir del momento en que es notificado por la autoridad competente.
+ARTÍCULO 53. Licencia con goce de salario relacionada al nacimiento o adopción.
+En los casos de nacimiento o adopción de una persona menor de edad, la persona trabajadora tendrá derecho a disfrutar de las licencias establecidas en el artículo 95 del Código de Trabajo (Licencia remunerada por maternidad) cuando cumpla con los requisitos para ello.
+En el caso de la licencia por paternidad, aplicará lo dispuesto en los artículos 95, inciso b) del Código de Trabajo y 41 de la Ley Marco de Empleo Público, en lo que resulte más beneficioso.
+Tratándose de familias homoparentales en las que se ejerce la comaternidad, la madre no gestante tendrá también derecho a los beneficios regulados en estas normas.
+La licencia remunerada por maternidad regulada en el artículo 95 del Código de Trabajo se podrá extender hasta por dos meses calendario adicionales en los términos del artículo 42 de la Ley Marco de Empleo Público.
+(Así reformado mediante acuerdo firme adoptado por la Junta Directiva de RECOPE, según consta en el Artículo 05 de la Sesión Ordinaria No. 5479-177, celebrada el martes 09 de setiembre de 2025, verificado por la Secretaría Técnica de la Autoridad Presupuestaria, mediante el oficio MH-STAP-OF-1252-2025 del 10 de octubre de 2025).
