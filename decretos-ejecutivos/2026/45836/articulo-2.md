@@ -1,0 +1,2 @@
+Artículo 2- Refórmese el artículo 7 del Decreto Ejecutivo 39277-MP-MSP-JP-MIVAH-MDHIS, para que se lea de la siguiente manera:
+"Artículo 7°.- La CAID contará con una Secretaría Técnica de carácter colegiado, que estará conformada por un representante de cada una de las instituciones que conforman la CAID, según el artículo 2 de este Decreto Ejecutivo, nombradas por el máximo jerarca de cada institución. Esta será coordinada por la persona representante del Ministerio de Seguridad Pública.".
