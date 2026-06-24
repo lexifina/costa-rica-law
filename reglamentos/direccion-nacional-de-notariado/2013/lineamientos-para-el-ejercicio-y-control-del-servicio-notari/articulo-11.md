@@ -1,5 +1,14 @@
 TÍTULO III
 DOCUMENTOS NOTARIALES
 CAPÍTULO I
-Artículo 11. Papel a utilizar. Tamaño de letra. En la expedición de cualquier documento notarial extraprotocolar en soporte físico, el notario utilizará su papel de seguridad. El uso de documentos notariales extraprotocolares en soporte electrónico está permitido, para lo cual deberá referirse el notario a la normativa al efecto dispuesta por el Consejo Superior Notarial, que determina las características de seguridad que debe cumplir. En la elaboración de documentos notariales protocolares se utilizarán caracteres respetando un tamaño mínimo de letra diez, y en los documentos notariales extraprotocolares indistintamente del soporte utilizado se deberá respetar un tamaño mínimo de letra doce. El Notario deberá respetar el uso de un tipo de letra estándar cuando se utilicen medios mecánicos o electrónicos, pudiendo optar por utilizar A rial , Times New, Roman, Verdana o Calibri, con el fin de garantizar que el contenido sea legible.
-(Así reformado mediante sesión ordinaria N° 6 del 29 de marzo de 2023)
+Artículo 11.—Especificaciones para la confección de documentos notariales. Sin perjuicio de lo dispuesto en el Código Notarial y demás normativa aplicable, los documentos notariales deberán elaborarse garantizando su legibilidad y accesibilidad, conforme a las siguientes reglas:
+a. En los documentos notariales elaborados mediante impresión o medios electrónicos, se utilizará un tamaño de letra no inferior a doce (12) puntos.
+b. Se emplearán tipografías accesibles de tipo sans serif, tales como Tahoma, Arial, Verdana, Helvética o Century Gothic.
+c. El espaciado entre caracteres será el predeterminado o automático.
+d. En documentos extraprotocolares, el interlineado entre líneas de un mismo párrafo no deberá ser inferior a uno coma cinco (1,5). En documentos protocolares se respetará el espaciado propio del soporte oficial.
+e. Indistintamente del soporte utilizado, todo documento notarial deberá respetar un máximo de treinta líneas por página.
+f. Las firmas y actuaciones manuscritas en cualquier documento notarial se consignarán con tinta indeleble de color azul o negro en sus tonalidades más oscuras. Sus rasgos deben ser claramente visibles, con el fin de asegurar la idónea lectura del contenido y la correcta captura de su imagen en los procesos de conservación tecnológica.
+g. Siendo responsabilidad del notario garantizar la absoluta nitidez del documento, queda restringido el uso de tintas tenues o de baja pigmentación en documentos impresos o manuscritos.
+En la expedición de documentos notariales extraprotocolares en soporte físico, el notario utilizará papel de seguridad autorizado, el cual podrá ser impreso por ambas caras.
+Los documentos notariales extraprotocolares en soporte electrónico deberán cumplir estas disposiciones, sin perjuicio de las demás formalidades y condiciones de seguridad establecidas por el Consejo Superior Notarial.
+(Así reformado mediante sesión N° 14 del 24 de junio de 2026)
