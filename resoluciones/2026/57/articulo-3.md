@@ -1,0 +1,3 @@
+Artículo 3°- Ajustar la numeración de las siguientes disposiciones de las Normas de Control Interno para el Sector Público, (N-2-2009-CO-DFOE), emitidas mediante resolución (R-CO-9-2009):
+a) Se ajusta la numeración de las actuales normas 3.3 y 3.4 , para que en su lugar, se enumeren como 3.4 "Vinculación con la planificación institucional" y 3.5 "Valoración del riesgo en instituciones de menor tamaño", respectivamente.
+b) Se ajusta la numeración de la normas 5.8, 5.9 y 5.10, para que en adelante se identifiquen y enumeren como 5.9 Control de sistemas de información, 5.10 Tecnologías de información y de la norma y 5.11 Sistemas de información en instituciones de menor tamaño, respectivamente.
