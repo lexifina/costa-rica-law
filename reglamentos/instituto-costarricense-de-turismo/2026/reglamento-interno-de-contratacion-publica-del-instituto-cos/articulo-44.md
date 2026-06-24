@@ -1,0 +1,1 @@
+Artículo 44- Bienes como parte del pago. La Administración podrá ofrecer como parte del pago, bienes muebles de su propiedad, siempre que sean de libre disposición y afines al objeto que se pretende adquirir.

@@ -1,0 +1,1 @@
+Artículo 23- Lineamientos. La Proveeduría elaborará y divulgará el lineamiento para regular los procedimientos de las contrataciones en el exterior, aplicando los principios generales en materia de contratación pública.

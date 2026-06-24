@@ -1,0 +1,1 @@
+Artículo 50- Derogatorias. Este Reglamento deja sin efecto el Reglamento Interno de Contratación Pública del Instituto Costarricense de Turismo, publicado en el Diario Oficial La Gaceta No. 9, del 15 de enero de 2026 y cualquier norma o procedimiento que se le oponga.

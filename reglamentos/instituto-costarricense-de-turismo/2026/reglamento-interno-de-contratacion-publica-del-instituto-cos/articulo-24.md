@@ -1,0 +1,1 @@
+Artículo 24- Invitación a participar. Se invitará a un mínimo de tres proveedores idóneos, salvo que exista un proveedor único o exclusivo y así conste en el expediente con la debida justificación técnica o bien, que el número de oferentes sea insuficiente.

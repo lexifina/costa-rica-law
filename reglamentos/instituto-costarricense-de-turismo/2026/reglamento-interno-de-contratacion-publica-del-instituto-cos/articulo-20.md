@@ -1,0 +1,1 @@
+Artículo 20- Elaboración y aprobación del Manual de Convenios. Corresponderá a la Administración la elaboración y actualización del Manual de Convenios, el cual deberá ser aprobado por la Junta Directiva y debidamente publicado en el Diario Oficial La Gaceta para su entrada en vigor, y estará sujeto a los mecanismos de control interno y fiscalización que resulten aplicables.

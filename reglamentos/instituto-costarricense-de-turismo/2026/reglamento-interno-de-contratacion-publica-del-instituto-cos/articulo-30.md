@@ -1,0 +1,1 @@
+Artículo 30- Garantía de Cumplimiento. El ICT solicitará siempre en las licitaciones mayor y menor y facultativamente para la licitación reducida, una garantía de cumplimiento de entre un cinco por ciento (5%) y un diez por ciento (10%) del monto adjudicado.
