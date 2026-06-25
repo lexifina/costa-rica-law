@@ -16,3 +16,4 @@ Reglamento a la Ley de la Comisión Nacional de Nomenclatura
 | 1 | 1992-10-21 | la propia norma |
 | 2 | 2005-07-19 | Decreto Ejecutivo 32598 (2005-07-19) |
 | 3 | 2008-08-13 | Decreto Ejecutivo 34762 (2008-08-13) |
+| 4 | 2026-06-25 | Decreto Ejecutivo 45907 (2026-06-25) |

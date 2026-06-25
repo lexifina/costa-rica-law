@@ -12,7 +12,8 @@ f. El nombre que se adopte o acepta será lo más breve y claro posible.
 g. Si la propuesta se refiere al nombre de una persona, se incluirá una biografía sucinta de ésta, con clara mención de los servicios prestados y hasta donde pueda corresponder su relación con lo que se pretende lleve su nombre.
 h. No se bautizará con el nombre de personas que tengan menos de cinco años de fallecidas. Excepcionalmente, cuando los méritos de la persona los justifiquen, la Comisión podrá acordar por votación mayoritaria, el bautizo con el nombre de una persona que todavía no tenga los cinco años de fallecida.
 i. Un nombre no debe ser cambiado a menos que esté duplicado o resulte inapropiado.
-j. En general no se restablecerán los nombres que por el uso local se han deformado o cambiado, salvo que medie voto unánime de los miembros de la Comisión.
+j. En general no se restablecerán los nombres que por el uso local se han deformado o cambiado, salvo voto de la mayoría absoluta.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45907 del 25 de junio de 2026)
 k. Se evitarán los nombres largos, de construcción difícil, que impliquen términos genéricos.
 I. No se asignará más de un nombre a cada elemento natural, artificial o accidente geográfico.
 II. Las Instituciones Públicas podrán ponerle nombres a las partes internas de una unidad.
