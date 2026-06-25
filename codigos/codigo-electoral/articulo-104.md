@@ -1,3 +1,4 @@
-ARTÍCULO 104.- Liquidaciones
-Antes de la autorización de giro de la contribución estatal a los partidos políticos, estos deberán presentar las liquidaciones en la forma y dentro del plazo que se señalan en este Código y en el respectivo reglamento.
+Artículo 104- Liquidaciones. Antes de la autorización de giro de la contribución estatal a los partidos políticos, estos deberán presentar las liquidaciones en la forma y dentro del plazo que se señalan en este Código y en el respectivo reglamento.
 La liquidación, debidamente refrendada por un contador público autorizado en su condición de profesional responsable y fedatario público, es el medio por el cual los partidos políticos, con derecho a la contribución estatal, comprueban ante el TSE los gastos en los que han incurrido.
+Prescribirá el derecho a la contribución estatal de los partidos políticos que no presenten liquidaciones de gastos, no renueven sus estructuras y no participen en procesos electorales nacionales y municipales, durante ocho años. La Tesorería Nacional devolverá al Ministerio de Hacienda los recursos de las reservas para gastos ordinarios y permanentes que no hayan sido liquidados por dichos partidos políticos.
+(Así reformado por el artículo 1° de la Ley para regular la prescripción de la contribución estatal a los partidos políticos, N° 10952 del 15 de mayo de 2026)

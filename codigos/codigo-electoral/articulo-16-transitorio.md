@@ -1,0 +1,3 @@
+Transitorio XVI- Lo dispuesto en el último párrafo del artículo 104 de la Ley 8765, Código Electoral, del 19 de agosto de 2009, será aplicable a los partidos políticos inscritos y vigentes a la fecha de entrada en vigencia de la presente ley, una vez transcurrido un plazo de cuatro años contados a partir de dicha vigencia.
+Durante ese plazo no procederá la prescripción del derecho a la contribución estatal con fundamento en la norma indicada.
+(Así adicionado por el artículo 2° de la Ley para regular la prescripción de la contribución estatal a los partidos políticos, N° 10952 del 15 de mayo de 2026)
