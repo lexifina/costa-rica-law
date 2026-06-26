@@ -56,3 +56,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 41 | 2025-10-10 | Resolución 125 (2025-10-10) |
 | 42 | 2025-11-14 | Resolución 130 (2025-11-14) |
 | 43 | 2025-12-10 | Resolución 79 (2025-12-10) |
+| 44 | 2026-06-26 | Resolución 76 (2026-06-26) |

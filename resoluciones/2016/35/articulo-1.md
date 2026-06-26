@@ -228,7 +228,6 @@ Por su parte, los costos variables (CVr) son aquellos que varían en forma propo
 La rentabilidad mensual (RTr) sobre el capital invertido en activos se obtiene de la suma de la rentabilidad de capital invertido en activos fijos y la rentabilidad del capital de proveeduría necesario para la prestación del servicio de transporte.
 4.4 Costos fijos
 El cálculo de los costos fijos se representa, en términos generales de la siguiente forma:
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 CFr = Costos fijos mensuales de la ruta "r".
@@ -253,7 +252,6 @@ La definición de cada variable que compone los costos fijos y la forma en que s
 4.4.1 Costos por depreciación de activos fijos
 Los costos mensuales de depreciación de los activos fijos (CDAFr) están compuestos por la depreciación que sufren los vehículos automotores que conforman la flota utilizada (autobuses propulsado por motores diésel y/o eléctricos), la depreciación de las instalaciones, maquinaria, equipo y mobiliario, la depreciación del sistema automatizado de conteo de pasajeros, la depreciación del equipo de validación requerido para el sistema de pago electrónico, la depreciación de la batería de los autobuses eléctricos, la depreciación de equipos de recarga autobuses eléctricos y sistemas de gestión asociados y la depreciación de infraestructura eléctrica y electromecánica para la recarga de autobuses eléctricos, según la siguiente ecuación:
 (Así reformado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 CDAFr = Costo mensual de depreciación de los activos fijos en la ruta "r".
@@ -335,7 +333,6 @@ r = Ruta de transporte remunerado de personas.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 El costo total mensual de depreciación será la suma de los vehículos con reglas de cálculo tarifario tipo 1 más los vehículos con reglas de cálculo tarifario tipo 2 y los vehículos con reglas de cálculo tarifario tipo 3 que están inscritos en la flota autorizada, combinando la ecuación 5, 6 y 7 anterior, tal como lo indica la siguiente ecuación.
 (Así reformado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde se utilizan las mismas variables de las dos anteriores ecuaciones:
 CDFr = Costo mensual de depreciación de la flota autorizada en la ruta "r". Este rubro estará expresado en colones.
@@ -352,10 +349,7 @@ r = Ruta de transporte remunerado de personas.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 (Así reformado el punto 4.4.1.a.ii) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 (*)iii. Para los vehículos con reglas de cálculo tarifario tipo 3 Las unidades de esta regla de cálculo corresponderán a los autobuses que utilizan un motor eléctrico como medio de propulsión alimentado por baterías, para ellas se empleará el método de depreciación será del tipo lineal, donde se reconocerá el 100% del valor de la unidad durante los 15 años de vida útil del activo. Los factores de depreciación para cada edad de las unidades tipo 3 que conforman la flota autorizada se especifican en el Cuadro 4. Cuadro 4. Factores de depreciación anual de la flota por edad de la unidad para vehículos con reglas de cálculo tarifario tipo 3
-[imagen]
-[imagen]
 El costo por depreciación mensual de este tipo de unidades se da mediante la siguiente ecuación:
-[imagen]
 Donde:
 𝑪𝑫𝑭𝒓 𝜺 = Costo mensual de depreciación de la flota autorizada en la ruta "r" del conjunto de unidades "ε". Este rubro estará expresado en colones.
 𝒇𝒅𝒇𝒃 𝜺 = Factor de depreciación anual de las unidades que conforman la flota autorizada para la edad "b" del conjunto de unidades "ε". Los factores anuales de depreciación de las unidades que conforman la flota autorizada según la edad "b", se obtendrán del Cuadro 4 según corresponda.
@@ -369,7 +363,6 @@ La depreciación mensual de las instalaciones, la maquinaria, el equipo y el mob
 (Así reformado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 El costo mensual de depreciación de las instalaciones, la maquinaria, el equipo y el mobiliario se estima finalmente al multiplicar los valores tarifarios de ambos grupos de vehículo con reglas de cálculo tarifario tipo 1, tipo 2 y tipo 3 por el coeficiente de depreciación mensual de maquinaria, equipo e instalaciones que se expresa conjuntamente según la ecuación siguiente:
 (Así reformado el párrafo anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 Donde:
 CDMEIr= Costo mensual de depreciación de instalaciones, maquinaria, equipo y mobiliario en la ruta "r". Este rubro estará expresado encolones.
@@ -434,9 +427,7 @@ El procedimiento de cálculo de la depreciación, la vida útil y valor de resca
 (**) (Así reformada la frase anterior mediante resolución N° RE-0130-JD-2025 del 14 de noviembre de 2025)
 (*)e. Costo de depreciación de la batería de los autobuses eléctricos La depreciación la batería para autobús eléctrico (CDBr) se obtiene al estimar el monto total de depreciación anual de la batería de los autobuses eléctricos y conformarlo en una cuota mensual, que permite distribuir la depreciación a través de su vida útil, con el fin de permitir su reposición. El costo de depreciación reconoce al prestador del servicio, el desgaste del capital invertido como consecuencia de su utilización, envejecimiento u obsolescencia. Las baterías de los autobuses eléctricos, de acuerdo con lo establecido por la Junta Directiva del Consejo de Transporte Público deberán estar libres de defectos por un período de siete años, lo cual deberá ser garantizado por el fabricante al operador y este a su vez al Consejo.
 El método de depreciación para este activo es el de la línea recta, considerando que el activo sufre un desgaste igual y constante con el paso del tiempo, a lo largo de la vida útil. No se considera un valor de rescate de las baterías de los autobuses eléctricos al final de esa vida útil. En el Cuadro 9 se muestra el factor de depreciación anual y la vida útil para la batería de los autobuses eléctricos: Cuadro 9. Factor de depreciación anual y vida útil de la batería para vehículos con reglas de cálculo tarifario tipo 3
-[imagen]
 Para obtener la depreciación mensual de la batería del autobús eléctrico, se multiplica el factor de depreciación anual por el valor de dicho activo y se divide entre doce, para expresarlo en forma mensual, lo que se refleja mediante la ecuación:
-[imagen]
 Donde:
 CDBr = Costo mensual de depreciación de las baterías de los autobuses eléctricos en la ruta "r". Este rubro estará expresado en colones. Aplicará para vehículos con reglas de cálculo tarifario tipo 3.
 fdb = Factor de depreciación anual de la batería para vehículos del conjunto de unidades "ε". Este factor se detalla en el Cuadro 9.
@@ -450,9 +441,7 @@ El plazo establecido para la actualización de los valores permite la revisión 
 Los equipos de recarga de las baterías de los autobuses eléctricos y sistemas de gestión asociados, de acuerdo con lo establecido por la Junta Directiva del Consejo de Transporte Público deberán estar configurados para interconectar con los sistemas de gestión de las baterías a bordo y los sistemas de bloqueo para aplicar automáticamente un protocolo de carga apropiado para el estado de carga de la batería, de conformidad con las prácticas recomendadas por el fabricante de la batería.
 El método de depreciación para estos activos es el de la línea recta, considerando que los activos sufren un desgaste igual y constante con el paso del tiempo, a lo largo su vida útil. No se considera un valor de rescate de los equipos de recarga de las baterías de los autobuses eléctricos y sistemas de gestión asociados al final de su vida útil. En el Cuadro 10 se muestran los factores de depreciación anual y las vidas útiles para los cargadores de las baterías de los autobuses y el sistema de gestión carga de las baterías:
 Cuadro 10. Factores de depreciación anual y vidas útiles para los equipos de recarga y los sistemas de gestión asociados a la recarga para vehículos con reglas de cálculo tarifario tipo 3
-[imagen]
 Para obtener la depreciación mensual de los equipos de recarga de las baterías de los autobuses eléctricos y sistemas de gestión asociados (de cargadores y de flota), se multiplica el factor de depreciación anual por el valor de cada activo y se divide entre doce, para expresarlo en forma mensual, lo que se refleja mediante la ecuación:
-[imagen]
 Donde:
 CDCSr = Costo mensual de depreciación de los equipos de recarga de autobuses eléctricos y sistemas de gestión de recarga asociados a la ruta "r". Este rubro estará expresado en colones. Aplicará para vehículos con reglas de cálculo tarifario tipo 3.
 fdc = Factor de depreciación anual de los equipos de recarga para vehículos del conjunto de unidades "ε". Este factor se detalla en el Cuadro 10.
@@ -1194,8 +1183,8 @@ a. Porcentaje promedio del capital invertido que se financia con deuda (D/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Deuda entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
 Para el cálculo de este porcentaje, se considerarán sólo aquellos operadores incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros que tengan "flota autorizada por parte del CTP según la base con corte al primer día natural del período fiscal correspondiente a los estados financieros, (*)que hayan presentado los estados financieros correspondientes al último período fiscal y cuya cuenta de patrimonio sea positiva.
 (*) (Así reformada la frase anterior mediante resolución N° RE-0173-JD-2021 del 8 de junio de 2021)
-(Nota de Sinalevi: Mediante resolución N° RE-0036-IT-2023 del 11 de julio de 2023, se acordó fijar la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús, conforme lo establecido en la resolución RJD-035-2016 y sus reformas, según se muestra a continuación:
-Tasa de rentabilidad para reglas decálculo de tarifario tipo 2 (trv) | 11,58%")
+(Nota de Sinalevi: Mediante resolución N° RE-0076-IT-2026 del 26 de junio del 2026, se acordó fijar la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús, conforme lo establecido en la resolución RJD-035-2016 y sus reformas, según se muestra a continuación:
+Tasa de rentabilidad para reglas de cálculo tarifario tipo 2 (tr?) | 10,87%”)
 b. Costo del financiamiento (rd)
 El costo del financiamiento (rd) se obtiene utilizando la información de la tasa de interés activa negociada del grupo otras sociedades de depósito (OSD) para préstamos en moneda nacional para "Transporte y otros". Se calcula como la media aritmética simple del valor mensual de esta tasa, publicada por el BCCR y se utiliza la serie de datos del período fiscal correspondiente a los estados financieros empleados.
 (Así reformado el párrafo anterior mediante resolución N° RE-0173-JD-2021 del 8 de junio de 2021)
