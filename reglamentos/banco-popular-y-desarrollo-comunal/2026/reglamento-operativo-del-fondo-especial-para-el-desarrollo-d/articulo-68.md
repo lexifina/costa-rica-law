@@ -1,0 +1,2 @@
+Artículo 68° Articulación con instrumentos financieros.
+Los Servicios para el Desarrollo Empresarial procurarán facilitar la preparación, fortalecimiento y vinculación de los beneficiarios con los instrumentos financieros y no financieros administrados por el FODEMIPYME, incluyendo crédito, avales, garantías, acompañamiento financiero y demás mecanismos de inclusión financiera, conforme a la naturaleza y necesidades de cada beneficiario.

@@ -1,0 +1,3 @@
+Artículo 66° Metodologías diferenciadas de atención.
+La Unidad Técnica del FODEMIPYME establecerá metodologías diferenciadas para la prestación de los Servicios para el Desarrollo Empresarial, considerando las características, necesidades, nivel de desarrollo, ubicación territorial y condiciones particulares de cada segmento de beneficiarios definidos en la Ley.
+Dichas metodologías podrán contemplar esquemas específicos para emprendimientos, autoempleo, mipymes, pequeños y medianos productores agropecuarios, organizaciones socioproductivas de la economía social solidaria y demás poblaciones prioritarias.

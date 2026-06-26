@@ -1,0 +1,9 @@
+Artículo 53° Incumplimientos del beneficiario.
+Cuando la Unidad Técnica compruebe que un solicitante u obligado ha suministrado información falsa, tratando de inducir a error o engaño para obtener los beneficios contemplados en la Ley N.º 8262 y la Ley N.° 10960, dará por vencida la obligación, circunstancia que deberá incluirse en el documento respectivo de crédito.
+Cuando la Unidad Técnica compruebe que un solicitante u obligado ha incumplido el plan de inversión, o condiciones específicas ligadas al otorgamiento, FODEMIPYME considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a. Efectuar las correcciones del caso y mantener las condiciones del crédito.
+b. Variar las condiciones financieras de la operación conforme a lo establecido en el contrato, el Manual de Directrices para el Otorgamiento de Crédito y los acuerdos de aprobación respectivos, pudiendo incrementarse temporalmente la tasa de interés dentro de los límites previamente pactados con el beneficiario.
+c. Dar por vencida la obligación y exigir su cancelación inmediata.
+En caso de que el crédito haya sido otorgado por un órgano "unipersonal" o "bipersonal", la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.
+En los programas de financiamiento de banca de segundo piso además de lo anterior, y de verificar el cumplimiento de las condiciones operativas, financieras, contractuales y normativas establecidas por la Unidad Técnica, deberá garantizarse que los recursos administrados por el FODEMIPYME sean canalizados exclusivamente hacia los beneficiarios definidos y acreditados conforme a los artículos 7 y 8 de este Reglamento.
+Todo lo anterior sin perjuicio de plantear las denuncias penales correspondientes ante el Ministerio Público.

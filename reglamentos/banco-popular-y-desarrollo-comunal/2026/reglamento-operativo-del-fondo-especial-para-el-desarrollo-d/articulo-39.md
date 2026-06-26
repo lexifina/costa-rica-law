@@ -1,0 +1,5 @@
+Artículo 39° Monto máximo de los honramientos y alcance de la cobertura.
+El monto máximo del aval a liquidar para cada operación de crédito se calculará como el porcentaje comprometido, sobre el saldo del principal al momento de caer en mora. El FODEMIPYME no asumirá responsabilidad por los intereses, costos, ni otros rubros distintos que se generen en el proceso judicial.
+En el caso de las garantías de participación, cumplimiento, calidad, funcionamiento, servicio, garantías técnicas o comerciales, el monto máximo a honrar será el establecido en el respectivo instrumento de garantía y en las condiciones aprobadas para cada programa.
+Los porcentajes de cobertura, límites de responsabilidad, exclusiones y condiciones de pago deberán constar expresamente en los contratos, convenios, certificados de garantía y demás documentos que regulen cada instrumento administrado por el Fondo Nacional de Avales y Garantías.
+Ningún honramiento podrá exceder los límites de cobertura aprobados para la operación, programa o instrumento correspondiente.

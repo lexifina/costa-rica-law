@@ -1,0 +1,15 @@
+Artículo 35° Subrogación de derechos.
+Una vez efectuado el honramiento de un aval o garantía por parte del Fondo Nacional de Avales y Garantías, el FODEMIPYME se subrogará en los derechos de cobro del ente que otorgó el crédito, en la proporción en que dicha operación fue avalada, manteniéndose dicha entidad a cargo de las gestiones de cobro administrativo y judicial, las cuales deberá realizar con la debida diligencia y atendiendo el principio de proporcionalidad.
+Las entidades operadoras continuarán realizando, por cuenta del FODEMIPYME, las gestiones de cobro administrativo, extrajudicial y judicial de las operaciones honradas, con la debida diligencia profesional, observando criterios de eficiencia, razonabilidad económica y protección de los recursos públicos administrados por el Fondo.
+Las entidades operadoras deberán mantener evidencia suficiente de las gestiones de recuperación realizadas y actuar conforme a sus políticas de cobro, a los convenios suscritos con el FODEMIPYME y a los procedimientos establecidos por la Unidad Técnica.
+Cuando una entidad operadora determine que no resulta procedente iniciar o continuar acciones judiciales de cobro, deberá documentar y justificar técnicamente dicha decisión mediante un análisis de costo-beneficio, considerando, entre otros elementos, la existencia de bienes embargables, capacidad patrimonial del deudor, costos procesales, probabilidad de recuperación y cualquier otro factor relevante para la adecuada administración de los recursos públicos.
+La Unidad Técnica podrá revisar, aceptar o requerir acciones adicionales respecto de las decisiones adoptadas por la entidad operadora cuando estime que existen posibilidades razonables de recuperación o que no se han agotado las gestiones correspondientes.
+Las entidades operadoras deberán presentar semestralmente a la Unidad Técnica un informe detallado sobre el estado de las operaciones honradas, incluyendo al menos:
+a) Procesos judiciales en trámite.
+b) Procesos de cobro administrativo y extrajudicial.
+c) Recuperaciones efectuadas durante el período.
+d) Operaciones con gestión suspendida o no judicializada y su respectiva justificación técnica.
+e) Cualquier otra información que requiera la Unidad Técnica.
+Los montos recuperados de operaciones honradas serán distribuidos entre la entidad operadora y el FODEMIPYME conforme a la proporción del riesgo efectivamente asumido por cada parte, salvo disposición distinta establecida en los contratos, convenios o programas correspondientes.
+De recuperarse parcial o totalmente el monto del aval por parte de la entidad operadora, deberá trasladar los recursos al FODEMIPYME, dentro de los quince días hábiles posteriores a que los haya recibido.
+La Unidad Técnica podrá establecer metodologías, procedimientos, indicadores de recuperación, mecanismos de seguimiento y modelos de gestión de cartera recuperada con el propósito de maximizar la recuperación de los recursos honrados y fortalecer la sostenibilidad patrimonial del Fondo Nacional de Avales y Garantías.

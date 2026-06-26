@@ -1,0 +1,2 @@
+Artículo 98°. Vigencia
+El presente Reglamento Operativo del Fondo Especial para el Desarrollo de las Micro, Pequeñas y Medianas Empresas (FODEMIPYME) entrará en vigencia a partir de la publicación de la aprobación de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal en el Diario Oficial La Gaceta. Lo anterior, sin perjuicio de la comunicación y divulgación que se realice por los medios institucionales correspondientes.

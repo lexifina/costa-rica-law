@@ -1,0 +1,18 @@
+Artículo 31° Obligaciones de las entidades operadoras.
+Las entidades operadoras acreditadas deberán cumplir las obligaciones establecidas en la Ley N.° 8262, sus reformas, las modificaciones introducidas por la Ley N.° 10960, este Reglamento, los convenios suscritos con el FODEMIPYME, los acuerdos emitidos por la Junta Directiva Nacional, las disposiciones de la Unidad Técnica y los procedimientos operativos aplicables.
+Sin perjuicio de otras obligaciones establecidas en la normativa vigente, corresponderá a las entidades operadoras:
+a) Mantener informada a la Unidad Técnica sobre sus políticas de crédito, administración de riesgos, garantías, recuperación, cobro y demás aspectos relevantes que puedan afectar la administración de
+los programas respaldados por el Fondo Nacional de Avales y Garantías.
+b) Verificar, documentar y mantener evidencia del cumplimiento de los requisitos de acreditación de los beneficiarios establecidos en la Ley N.° 8262, la Ley N.° 10960, sus reformas y este Reglamento.
+c) Verificar que las operaciones respaldadas por el Fondo cumplan los objetivos de desarrollo productivo, inclusión financiera y fortalecimiento empresarial establecidos en la legislación vigente.
+d) Custodiar adecuadamente los expedientes, contratos, pagarés, garantías, colaterales y demás documentos relacionados con las operaciones garantizadas, asegurando su integridad, vigencia, exigibilidad y disponibilidad para efectos de supervisión, auditoría, recuperación y honramiento.
+e) Mantener actualizada en el Sistema de Administración de Avales y Garantías (SAAG) y en los demás medios que determine la Unidad Técnica, la información relacionada con las operaciones garantizadas, incluyendo colocaciones, saldos, morosidad, recuperaciones, honramientos y demás variables requeridas para la adecuada administración del Fondo.
+f) Remitir periódicamente la información financiera, operativa, estadística y de riesgos que solicite la Unidad Técnica para efectos de seguimiento, supervisión, evaluación de desempeño, administración
+de riesgos y rendición de cuentas.
+g) Aplicar metodologías de evaluación y administración de riesgos acordes con la modalidad de garantía utilizada y con las condiciones aprobadas para cada programa.
+h) Informar oportunamente al FODEMIPYME sobre cualquier modificación relevante en las condiciones de las operaciones garantizadas, cambios en la situación financiera de los beneficiarios, deterioros significativos de cartera o cualquier circunstancia que pueda afectar el riesgo asumido por el Fondo.
+i) Permitir y facilitar las labores de supervisión, fiscalización, auditoría, verificación, revisión documental, visitas de campo, inspecciones y evaluaciones que realice el FODEMIPYME directamente o por medio de terceros contratados para tal efecto.
+j) Pagar oportunamente las comisiones, primas, cargos operativos o cualquier otro importe que corresponda conforme a los programas, contratos o instrumentos aprobados por el FODEMIPYME.
+k) Cumplir las condiciones operativas, tecnológicas y de seguridad de la información establecidas para la utilización del Sistema de Administración de Avales y Garantías (SAAG) y demás plataformas
+administradas por el FODEMIPYME.
+La Unidad Técnica podrá establecer indicadores de desempeño, calidad de cartera, utilización de programas, recuperación, administración de riesgos y cumplimiento normativo, los cuales podrán ser considerados para efectos de asignación de cupos, participación en programas, renovación de acreditaciones o cualquier otro mecanismo de administración del Fondo Nacional de Avales y Garantías.

@@ -1,0 +1,10 @@
+Artículo 95. Gestión Integral de Riesgos del FODEMIPYME
+La Unidad Técnica del FODEMIPYME deberá establecer y mantener un sistema de gestión integral de riesgos acorde con la naturaleza jurídica, objetivos, complejidad, tamaño y volumen de las operaciones administradas por el Fondo.
+Dicho sistema deberá permitir la identificación, medición, evaluación, monitoreo, control, mitigación y reporte de los riesgos asociados a los instrumentos financieros y no financieros administrados por el FODEMIPYME, procurando la protección de su patrimonio, la sostenibilidad de sus operaciones y el cumplimiento de sus fines legales.
+Como mínimo, la estructura de gestión integral de riesgos deberá garantizar que:
+a) Exista una adecuada segregación entre las funciones responsables de la originación, aprobación, ejecución o administración de operaciones y aquellas encargadas de la gestión integral de riesgos, manteniendo independencia de criterio y capacidad de análisis.
+b) Existan mecanismos de comunicación, reporte y escalamiento que permitan informar oportunamente los resultados del proceso de gestión de riesgos a las instancias competentes para la toma de decisiones.
+c) Se cuente con personal que posea los conocimientos, experiencia y competencias necesarias para desempeñar funciones relacionadas con la gestión integral de riesgos, así como programas permanentes de capacitación y actualización.
+d) Se disponga de herramientas, metodologías, sistemas de información y recursos tecnológicos adecuados para apoyar la identificación, medición, monitoreo y control de los riesgos relevantes del Fondo.
+e) Se promueva una cultura de gestión integral de riesgos en todos los niveles de la organización, incorporando criterios de riesgo en los procesos de planificación, ejecución, seguimiento y evaluación de los instrumentos administrados por el FODEMIPYME.
+f) La gestión integral de riesgos deberá considerar, según corresponda, riesgos financieros, operativos, legales, tecnológicos, estratégicos, reputacionales y cualquier otro que pueda afectar el cumplimiento de los objetivos institucionales del Fondo.

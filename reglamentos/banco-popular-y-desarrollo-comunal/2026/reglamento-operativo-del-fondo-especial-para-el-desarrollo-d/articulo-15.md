@@ -1,0 +1,4 @@
+Artículo 15° Beneficiarios del Fondo Nacional de Avales y Garantías.
+Serán beneficiarios del Fondo Nacional de Avales y Garantías las personas físicas y jurídicas comprendidas en las categorías definidas en el artículo 6 de este Reglamento, quienes deberán cumplir los requisitos de acreditación y validación establecidos en el artículo 7.
+Cuando los avales o garantías sean otorgados a través de entidades operadoras, corresponderá a estas verificar, documentar y mantener evidencia del cumplimiento de los requisitos de acreditación aplicables a los beneficiarios, de conformidad con este Reglamento, los convenios suscritos con FODEMIPYME y los procedimientos establecidos por la Unidad Técnica.
+Lo anterior se entenderá sin perjuicio de las facultades de supervisión, fiscalización, verificación y control que corresponden al FODEMIPYME sobre las operaciones respaldadas por el Fondo Nacional de Avales y Garantías.

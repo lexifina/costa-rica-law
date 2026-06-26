@@ -1,0 +1,2 @@
+Artículo 69° Seguimiento posterior y evaluación de impacto.
+La Unidad Técnica del FODEMIPYME podrá realizar seguimiento posterior a la finalización de los programas, proyectos o iniciativas financiadas con recursos del Programa, con el fin de valorar resultados, sostenibilidad, continuidad, impacto y oportunidades de mejora. Las condiciones, plazos, instrumentos y mecanismos de seguimiento serán definidos en el Manual Operativo.

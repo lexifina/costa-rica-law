@@ -1,0 +1,6 @@
+Artículo 11° Principio de complementariedad de los instrumentos.
+Los instrumentos financieros y no financieros administrados por el FODEMIPYME deberán operar bajo un principio de complementariedad, procurando que los beneficiarios puedan acceder de forma articulada
+y coordinada a los diferentes programas, productos, servicios, avales, garantías, financiamiento, capacitación, asistencia técnica, acompañamiento empresarial y demás mecanismos de apoyo establecidos en la legislación vigente.
+La Unidad Técnica del FODEMIPYME podrá diseñar modelos de atención diferenciados que permitan la utilización individual o combinada de los instrumentos disponibles, según las características, necesidades, nivel de desarrollo y capacidad productiva de cada beneficiario.
+La aprobación o utilización de un instrumento financiero no limitará el acceso a los instrumentos no financieros, ni la participación en programas de fortalecimiento empresarial, salvo que exista disposición legal, reglamentaria o técnica que establezca lo contrario.
+La Unidad Técnica promoverá la articulación de los diferentes instrumentos con el propósito de fortalecer la inclusión financiera, el desarrollo empresarial, la innovación, la productividad, la sostenibilidad y el crecimiento de los beneficiarios del FODEMIPYME.
