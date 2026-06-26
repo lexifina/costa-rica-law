@@ -14,3 +14,4 @@ Modifica acuerdo "SGV-A-158 Guia para la elaboración y remisión de prospectos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-06-25 | la propia norma |
+| 2 | 2026-06-26 | Acuerdo 13 (2026-06-26) |
