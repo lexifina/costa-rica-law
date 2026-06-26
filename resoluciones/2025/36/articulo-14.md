@@ -1,0 +1,1 @@
+Artículo 14. Periodicidad y seguimiento. La estimación de la incobrabilidad debe realizarse al menos una vez al año. La unidad de Gestión y Recaudación Tributaria será responsable de dar seguimiento periódico a la suficiencia de la cuenta contable de provisión, evaluando si es necesario realizar ajustes adicionales.

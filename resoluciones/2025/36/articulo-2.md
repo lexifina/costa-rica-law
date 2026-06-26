@@ -1,0 +1,1 @@
+Artículo 2. Objetivo. Establecer un procedimiento claro y estandarizado para el tratamiento de deudas incobrables y bajo la categoría de monto exiguo en la Administración Tributaria del INDER, de acuerdo con la normativa vigente.

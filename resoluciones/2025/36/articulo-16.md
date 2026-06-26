@@ -1,0 +1,1 @@
+Artículo 16. Procedimiento del INDER. Los lineamientos descritos en la presente resolución deben incluirse dentro de los Procedimientos establecidos en las Unidades involucradas de la Administración Tributaria.
