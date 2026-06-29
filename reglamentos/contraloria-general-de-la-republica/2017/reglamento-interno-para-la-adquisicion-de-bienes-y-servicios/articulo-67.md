@@ -1,3 +1,0 @@
-Artículo 67.- Expediente de contratación electrónica. En la tramitación de contrataciones por medios electrónicos, el expediente será el que mantenga el sistema respectivo.
-En la etapa de ejecución contractual, en el caso del expediente físico, cuando por su naturaleza excepcional existan documentos tales como aquéllos relacionados con aspectos de pago, la unidad responsable deberá remitir una referencia de su ubicación, para que la USP deje constancia de ello en dicho expediente.
-(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 63 al 67)

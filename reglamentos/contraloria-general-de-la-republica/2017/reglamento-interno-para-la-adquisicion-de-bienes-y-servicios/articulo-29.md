@@ -1,1 +1,0 @@
-Artículo 29.- Definición de la modalidad de compra. Corresponderá a la USP la determinación de la modalidad de compra que mejor se adapte a las necesidades institucionales, sin perjuicio de que la UT pueda sugerir una modalidad determinada.

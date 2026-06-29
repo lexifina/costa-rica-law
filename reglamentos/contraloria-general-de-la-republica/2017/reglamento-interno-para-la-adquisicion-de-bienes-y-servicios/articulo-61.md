@@ -1,3 +1,0 @@
-Artículo 61.- Rechazo. El funcionario encargado de la recepción deberá rechazar el objeto contractual cuando se detecte un incumplimiento grave y evidente durante la entrega de dicho objeto.
-En estos casos el funcionario encargado de la recepción deberá dejar evidencia de sus hallazgos y comunicarlos a la USP para que, previa consulta a la UT sobre la posibilidad de brindar un plazo adicional, gestione ante el contratista la corrección necesaria.
-(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 57 al 61)

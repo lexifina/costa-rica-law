@@ -1,2 +1,0 @@
-Artículo 50.—Subsanación de requisitos. La UJI solicitará a la USP, la subsanación de aquellos requisitos que no consten en el expediente electrónico. Una vez que se hagan llegar al expediente, la UJI verificará el cumplimiento para otorgar el refrendo, pudiendo condicionarlo si las circunstancias así lo permiten.
-(Así adicionado por el artículo 1° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020)

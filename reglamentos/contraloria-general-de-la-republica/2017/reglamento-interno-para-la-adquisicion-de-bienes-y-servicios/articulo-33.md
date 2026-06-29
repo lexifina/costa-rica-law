@@ -1,1 +1,0 @@
-Artículo 33.- Aclaraciones, modificaciones y prórrogas. Las aclaraciones y modificaciones al cartel, así como las prórrogas al plazo de recepción de ofertas que se deriven de éstas, serán resueltas y comunicadas por la USP, quien podrá requerir la obligada colaboración de las unidades participantes.

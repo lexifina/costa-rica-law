@@ -1,2 +1,0 @@
-Artículo 55.- Rescisión y resolución contractual. Las solicitudes de rescisión y resolución contractual, debidamente motivadas, que remita la UT a la USP, deberán cumplir con los requisitos que establecen los artículos 11 de la LCA y 212, 214, 215 y 216 del RLCA.
-(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 51 al 55)

@@ -1,4 +1,0 @@
-Artículo 59.- Recepción bajo protesta. En la entrega de bienes será responsabilidad del funcionario de la USP que tramite la recepción provisional dejar evidencia de los faltantes y las omisiones que fueran encontradas.
-Para la recepción de bienes intangibles o servicios, el funcionario de la UT encargado de la recepción deberá dejar evidencia de estos y comunicarlos a la USP para que se tramite ante el proveedor la corrección necesaria.
-Previa consulta a la UT, la USP notificará al contratista el detalle de los aspectos a corregir y el plazo en que deberá hacerlo, bajo el entendido de que en ningún caso este podrá exceder la mitad del plazo de ejecución original.
-(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 55 al 59)

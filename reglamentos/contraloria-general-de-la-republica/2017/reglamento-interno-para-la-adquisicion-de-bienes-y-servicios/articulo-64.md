@@ -1,2 +1,0 @@
-Artículo 64.- De la ejecución de garantías y sanciones patrimoniales. Corresponderá al Proveedor Institucional ordenar la ejecución de garantías, conforme al procedimiento especial previsto en el artículo 41 del RLCA. La imposición de sanciones patrimoniales, tales como multas o cláusulas penales, serán acordadas conforme a los términos contractuales aceptadas por las partes, sin procedimiento previo.
-(Así modificada su numeración por el artículo 2° de la resolución N° R-DC-92-2020 del 10 de noviembre del 2020, que lo traspasó del antiguo artículo 60 al 64)
