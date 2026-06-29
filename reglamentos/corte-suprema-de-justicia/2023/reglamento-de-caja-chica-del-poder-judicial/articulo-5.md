@@ -3,10 +3,10 @@ Por medio de la Caja Chica del Poder Judicial se podrán sufragar los siguientes
 a) Pagos por compras efectuadas por oficinas judiciales:
 Adquisición de otros bienes, obras y servicios, que se ajusten a lo establecido en la Ley General de Contratación Pública y su Reglamento. Se excluye la compra de bienes de inventario cuyo suministro está a cargo del Departamento de Proveeduría, salvo casos de urgencia debidamente justificados.
 La oficina gestionante debe velar por que las compras por medio de caja chica resultan aplicables únicamente para la contratación de bienes, obras o servicios, siempre que:
-. La solución sea indispensable e impostergable.
-. La adquisición no resulte más onerosa que el procedimiento ordinario de contratación a realizar.
-. Se acredite el costo beneficio para la Administración.
-. No haya fragmentación.
+? La solución sea indispensable e impostergable.
+? La adquisición no resulte más onerosa que el procedimiento ordinario de contratación a realizar.
+? Se acredite el costo beneficio para la Administración.
+? No haya fragmentación.
 Cuando la caja chica sea utilizada como medio para la tramitación de procedimientos de contratación excepcionales deben registrarse por parte de la oficina que efectuó la compra en el Sistema Digital Unificado de Compras del Ministerio de Hacienda, dentro de los plazos establecidos.
 b) Pago de viáticos y gastos de transporte en el interior y el exterior del país a las personas servidoras judiciales:
 Con la Caja Chica del Poder Judicial, se podrán pagar gastos de viaje y transporte dentro y fuera del país, para personas servidoras judiciales y se regirán por lo dispuesto en el "Reglamento de Gastos de Viaje y de Transporte para los Funcionarios Públicos" de la Contraloría General de la República y las disposiciones que al efecto emitan los entes superiores como el Consejo Superior y la Corte Plena.

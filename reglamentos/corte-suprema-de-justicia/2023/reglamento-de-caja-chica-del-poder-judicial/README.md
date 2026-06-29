@@ -13,3 +13,4 @@ Reglamento de caja chica del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-30 | la propia norma |
+| 2 | 2026-06-29 | Circular 116 (2026-06-29) |

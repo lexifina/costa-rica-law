@@ -8,11 +8,10 @@ e. Serán las responsables de que se aplique la retención del Impuesto Sobre la
 f. Registrar en el Sistema Digital Unificado del Ministerio de Hacienda la información soporte, con la justificación de la compra realizada, la evidencia del cumplimiento de los requisitos establecidos en la normativa vigente para la contratación por caja chica, en el plazo establecido, según Reglamento de la Ley General de Contratación Pública.
 g. Codificar por subpartida según el objeto del gasto conforme al Diccionario de Imputaciones Presupuestarias y al Clasificador del Gasto, los documentos que sustentan las erogaciones.
 h. Cumplir con el control de registro de las contrataciones por caja chica en el Sistema Digital Unificado del Ministerio de Hacienda, según se establezca en el Manual de Procedimientos de Cajas Chicas Auxiliares.
-i. Consignar en las facturas físicas o electrónicas la información relacionada con el pago, de acuerdo con el formato que se establezca en el Manual de Procedimientos de Cajas Chicas Auxiliares.
-j. Consignar el sello «anulado» en los cheques que por una u otra razón no fueron utilizados.
-k. Reportar por escrito a la jefatura inmediata de las personas servidoras que no hayan liquidado los anticipos en el plazo que establece el presente Reglamento.
-l. Llevar los registros y archivos actualizados sobre los movimientos del fondo.
-m. Confeccionar las solicitudes de reintegro conforme a lo establecido en el artículo 42 "Trámite de reintegro de Caja Chica Auxiliar" de este Reglamento.
-n. Realizar mensualmente y en forma conjunta con la jefatura inmediata el arqueo y la conciliación bancaria del fondo de Caja Chica Auxiliar, dejando constancia por escrito del acto, con la firma física o electrónica de ambos.
-o. Velar por el uso correcto de los fondos.
-p. Cualquier otra actividad relacionada con el manejo de la Caja Chica que le asigne la jefatura inmediata.
+i. Consignar en las facturas físicas o electrónicas la información relacionada con el pago, de acuerdo con el formato que se establezca en el Manual de Procedimientos de Cajas Chicas Auxiliares. j. Consignar el sello «anulado» en los cheques que por una u otra razón no fueron utilizados.
+j. Reportar por escrito a la jefatura inmediata de las personas servidoras que no hayan liquidado los anticipos en el plazo que establece el presente Reglamento.
+k. Llevar los registros y archivos actualizados sobre los movimientos del fondo.
+l. Confeccionar las solicitudes de reintegro conforme a lo establecido en el artículo 42 "Trámite de reintegro de Caja Chica Auxiliar" de este Reglamento.
+m. Realizar mensualmente y en forma conjunta con la jefatura inmediata el arqueo y la conciliación bancaria del fondo de Caja Chica Auxiliar, dejando constancia por escrito del acto, con la firma física o electrónica de ambos.
+n. Velar por el uso correcto de los fondos.
+o. Cualquier otra actividad relacionada con el manejo de la Caja Chica que le asigne la jefatura inmediata.
