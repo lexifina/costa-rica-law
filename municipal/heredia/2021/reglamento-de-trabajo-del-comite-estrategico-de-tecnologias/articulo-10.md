@@ -1,2 +1,0 @@
-Artículo 10.-Del Libro de Actas:
-Los asuntos discutidos y los acuerdos tomados en las reuniones del Comité Estratégico de Tecnologías de Información deberán resguardarse como información documentada, constar en un libro de actas debidamente foliado, el cual debe estar actualizado y custodiado en la Municipalidad de Heredia y estarán a disposición de los órganos de aseguramiento del control interno y externo.

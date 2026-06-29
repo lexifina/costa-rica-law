@@ -1,2 +1,0 @@
-Artículo 5º-Capacitación de sus miembros:
-El Comité Estratégico de Tecnologías de Información podrá recibir capacitación, información o asesoría, ya sea interna o externa, en relación con sus funciones como parte de la estructura de gobierno de TI, las nuevas oportunidades o cambios estratégicos de la institución, así como sobre las limitaciones en la capacidad tecnológica instalada y su impacto en la organización.
