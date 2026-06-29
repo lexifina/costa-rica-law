@@ -1,3 +1,2 @@
-Artículo 12.- Del Derecho a la Licencia Comercial.
-La Licencia Comercial es intransferible y no podrá ser cedida, enajenada ni trasladada a terceros.
-Cada persona podrá obtener únicamente una licencia y sólo podrá ser utilizada en el espacio específico para el cual fue solicitado y estará estrictamente limitado al Comercio sobre Ruedas aprobado.
+Artículo 12.- Tipologías de mobiliario urbano.
+Para el ejercicio del comercio al aire libre, se permitirá únicamente el mobiliario que resulte acorde a la actividad comercial que se trata, tales como mesas, sillas y otro mobiliario liviano y removible de apoyo a la actividad. El mobiliario que no resulte ser acorde a la actividad comercial deberá ser removido.

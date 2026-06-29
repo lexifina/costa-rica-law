@@ -1,7 +1,2 @@
-SECCIÓN IV
-Del cobro para los Administrados
-Artículo 13.- Tarifa correspondiente
-Bajo el amparo del artículo 10 de la Ley Especial para el Comercio sobre Ruedas, N° 10254, del 06 de mayo del 2022 y sus reformas, en el momento de realizar la solicitud, el solicitante deberá cancelar el equivalente al cinco por ciento (5%) del salario base establecido por la Ley Crea Concepto Salario Base para Delitos Especiales del Código Penal", N° 7337, del 05 de mayo de 1993 y sus reformas, por concepto de trámite.
-Una vez que la Resolución Administrativa del Departamento de Licencia Comerciales de la Municipalidad de San Ramón autorice emitir la Licencia Comercial, la misma estará sujeta al pago de una tarifa que deberá cancelarse por adelantado. La tarifa de la Licencia Comercial será de un sesenta por ciento (60%) del monto del salario base establecido por la Ley Crea Concepto Salario Base para Delitos Especiales del Código Penal", N° 7337, del 05 de mayo de 1993 y sus reformas; dicho monto se dividirá según la siguiente tabla:
-[imagen]
-En caso de prorrogarse la licencia, la misma deberá ser cancelada bajo el mismo monto indicado.
+Artículo 13.- Sobre la iluminación, luminarias y rotulación.
+El tipo de iluminación, luminarias y elementos publicitarios deberán ser aquellos que, de conformidad al reglamento vigente o normativa aplicable. La cantidad de elementos lumínicos y/o de publicidad deberán ser de conformidad con el espacio que se utilizará. Dichas estructuras deberán ser removibles no permitiéndose elementos que sean fijados de forma permanente en el área pública, a fin de que sea retirada diariamente al finalizar la actividad comercial. Sin embargo, previa evaluación y dictamen técnico favorable de la Dirección de Desarrollo Urbano, se podrá autorizar el uso de anclajes temporales o reversibles por razones de seguridad, siempre y cuando su eventual remoción no cause daños estructurales a la acera o vía pública.

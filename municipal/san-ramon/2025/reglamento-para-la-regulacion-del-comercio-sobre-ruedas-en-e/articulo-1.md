@@ -7,5 +7,6 @@ El Concejo Municipal del Cantón de San Ramón, en uso de la autonomía que le c
 REGLAMENTO PARA LA REGULACIÓN DEL COMERCIO SOBRE RUEDAS EN EL CANTÓN DE SAN RAMÓN
 CAPÍTULO I
 DISPOSICIONES GENERALES
-Artículo 1.- Objeto
-El presente Reglamento tiene por objeto regular el otorgamiento del Permiso Temporal de Uso del Espacio Físico Habilitado para Desarrollar la Ley General de Salud, N° 5395, del 30 de octubre de 1973 y sus reformas; así como, la Licencia Comercial Temporal Especial para el Comercio sobre Ruedas al amparo de la Ley Especial para el Comercio sobre Ruedas N° 10254, del 6 de mayo del 2022 y sus reformas.
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión N°191 del 29 de junio del 2026, publicada en el Alcance Digital N° 124 a La Gaceta N° 174 del 16 de setiembre del 2026, y se transcribe a continuación:)
+Artículo 1.- Objeto.
+El presente reglamento tiene por objeto fijar los lineamientos para otorgar la autorización a los licenciatarios para el desarrollo de la actividad temporal comercial en determinados espacios públicos de conformidad con la Ley de Comercio al Aire Libre N° 10126 del 9 de febrero de 2022.

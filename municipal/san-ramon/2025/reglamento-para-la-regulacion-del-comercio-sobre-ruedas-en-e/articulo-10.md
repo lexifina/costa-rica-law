@@ -1,3 +1,2 @@
-Artículo 10- Del Derecho del Permiso Temporal.
-El Permiso Temporal es intransferible y no podrá ser cedido, enajenado ni trasladado a terceros.
-Cada persona podrá obtener únicamente un permiso.
+Artículo 10.- Denegatoria de la autorización.
+La autorización para ejercer el comercio al aire libre será denegada cuando la actividad comercial solicitada incumpla con las disposiciones, requisitos o prohibiciones establecidas en la Ley 10126 y en el presente Reglamento.

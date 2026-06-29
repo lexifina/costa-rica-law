@@ -1,4 +1,2 @@
-SECCIÓN II
-Permiso Temporal de Uso del espacio Físico Habilitado
-Artículo 9.- Sobre el Permiso Temporal
-El Permiso Temporal se expedirá en precario y será otorgado por el Departamento de Licencia comerciales de la Municipalidad de San Ramón, una vez emitido el dictamen técnico favorable del Departamento de Planificación Urbana, previsto en el artículo 5 del presente reglamento.
+Artículo 9.- Cumplimiento de la normativa aplicable.
+Los establecimientos comerciales que opten por una licencia municipal que se regula con el presente reglamento, obligatoriamente deberán acatar lo estipulado en la Ley de Comercio al Aire Libre N°10126, la Ley N° 9047 (cuando la actividad incluye bebidas con contenido alcohólico), este Reglamento, el Plan Regulador del Cantón de San Ramón y o normativa que resulta aplicable de conformidad con la actividad comercial.

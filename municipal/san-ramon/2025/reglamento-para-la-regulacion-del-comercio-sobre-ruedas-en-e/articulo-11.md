@@ -1,4 +1,4 @@
-SECCIÓN III
-Licencia Comercial Temporal Especial para el Comercio Sobre Ruedas.
-Artículo 11.- Sobre la Licencia Comercial.
-La Licencia Comercial será otorgada por el Departamento de Licencia Comerciales de la Municipalidad de San Ramón de acuerdo con las disposiciones del artículo 5 y el artículo 13 del presente reglamento.
+SECCIÓN II
+Sobre las especificaciones de la autorización
+Artículo 11.- Lineamientos de utilización del espacio.
+La utilización del espacio público definidos en la Ley 10126 no podrán contravenir el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad N° 7600 y la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078. Igualmente deberá utilizarse por parte del licenciatario autorizado, el mobiliario adecuado al desarrollo de la actividad comercial de forma lógica y conforme a su naturaleza, que no lleve a la contaminación visual y sonora al entorno en que se desarrolla la misma. Esta autorización solamente permitirá la colocación de mesas, sillas y otro mobiliario liviano de apoyo a la actividad. Todo mobiliario deberá ser retirado diariamente al finalizar la actividad comercial.

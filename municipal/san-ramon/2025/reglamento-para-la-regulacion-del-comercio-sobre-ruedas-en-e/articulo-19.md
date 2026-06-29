@@ -1,5 +1,2 @@
-Artículo 19- De la Fiscalización de la Actividad Comercial.
-La Municipalidad de San Ramón, a través del Departamento de Licencias comerciales o la Policía Municipal, tiene la potestad de :
-a.- Inspección: Realizar inspecciones inopinadas en el Comercio sobre Ruedas para verificar el cumplimiento de este Reglamento y de los requisitos de la Ley Especial para el Comercio sobre Ruedas, N° 10254, del 06 de mayo de 2022 y sus reformas.
-b.- Comiso y Retención: En caso de operación sin Licencia o incumplimiento grave que ponga en riesgo la seguridad o la salud pública, la Municipalidad podrá ordenar el retiro inmediato de la unidad de Comercio sobre Ruedas del espacio público. El incumplimiento de esta orden facultará a la Administración a aplicar la ejecución forzosa (comiso retención temporal del bien) para asegurar el cumplimiento de la norma y el cese de la actividad ilícita, sin perjuicio de la multa correspondiente.
-c.- Remoción: Cualquier bien o artefacto que obstruya la vía pública o que exceda el Permiso Temporal autorizado, será removido por cuenta y riesgo del licenciatario, aplicando las normas de cobre de tasa y precios municipales.
+Artículo 19.- Inexistencia de derecho automático por cumplimiento de requisitos.
+La mera concurrencia de los requisitos antes descritos no otorga derecho alguno a su aprobación.

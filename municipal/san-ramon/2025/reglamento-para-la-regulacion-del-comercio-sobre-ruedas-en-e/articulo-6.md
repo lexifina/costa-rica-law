@@ -1,11 +1,2 @@
-CAPÍTULO II
-AUTORIZACIÓN DEL ESPACIO PÚBLICO
-Y LA ACTIVIDAD COMERCIAL.
-SECCIÓN I
-Del Trámite
-Artículo 6.- Solicitud.
-La persona interesada en ejercer la actividad de Comercio sobre Ruedas, deberá presentar la solicitud ante la Plataforma de Servicios, Dicha solicitud contemplará los siguientes requisitos:
-a- Llenar el formulario de solicitud.
-b- Estar al día con todas la obligaciones tributarias formales y materiales de la Municipalidad de San Ramón.
-c- Cualquier otro requisito que considere necesario el Departamento de Licencias Comerciales de la Municipalidad de San Ramón.
-El Departamento de Licencia comerciales analizará la solicitud y emitirá la Resolución Administrativa Final en un plazo máximo de treinta (30) días naturales.
+Artículo 6.- Tipo de actividad comercial sobre la cual se otorgará la autorización.
+La autorización para el desarrollo temporal de la actividad comercial en espacio público será otorgada únicamente para la actividad de comercialización de alimentos y bebidas. En el caso de que se comercialicen bebidas con contenido alcohólico, el ejercicio de la actividad deberá realizarse en estricto apego a las obligaciones, horarios y prohibiciones establecidas en la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico (Ley N° 9047) y el respectivo reglamento municipal cantonal, así como la ley Ley de comercio al aire libre, ley 10126 y el presente reglamento. No se podrá emitir la autorización de comercio al aire libre para licencias comerciales ambulantes o estacionarias.
