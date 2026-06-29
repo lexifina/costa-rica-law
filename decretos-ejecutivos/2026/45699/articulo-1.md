@@ -1,0 +1,15 @@
+Nº 45699-MJ P
+EL PRESIDENTE DE LA REPÚBLICA
+El MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N º 29496-J, publicado en La Gaceta Nº 96 del 21 de mayo del 7001.
+CONSIDERANDO
+l.- Que el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.- Que la Asociación Administradora del Acueducto Rural de Jabillos, cédula jurídica número tres-cero cero dos-doscientos trece mil trescientos noventa y dos, se inscribió en el Registro de Asociaciones del Registro Público Nacional el día diecisiete de abril de mil novecientos noventa y siete, al tomo cuatrocientos cuarenta y tres, asiento cuatro mil quiajentos[SIC] cuarenta y ocho.
+III.- Que el artículo 32 de la Ley de Asociaciones establece: "Las asociaciones que sean declaradas de utilidad pública gozarán de los beneficios y franquicias que el Poder Ejecutivo otorga de acuerdo con la ley. Deberán presentar a la Asesoría Jurídica del Ministerio de Justicia y Paz un informe anual de su gestión, referido al aprovechamiento a favor de la comunidad del beneficio que les fue otorgado; sin necesidad de requerimiento expreso. ( .. .) ". Asimismo, el ordinal 33 bis del Reglamento a la Ley de Asociaciones, agrega: "La declaratoria de utilidad pública será revocable en cualquier momento, no obstante, en caso de la no presentación o presentación incompleta del informe de labores, se prevendrá a la asociación, una única vez; por el plazo de. diez días hábiles.
+Asimismo, la derogatoria de la utilidad pública se realizará mediante resolución razonada resultante del procedimiento de derogatoria del beneficio de utilidad pública (. .. ) son causales para derogar el beneficio de utilidad pública, las siguientes (...) e) No se presente el informe anual ( ...)
+IV.-Que la Asociación Administradora del Acueducto Rural de Jabillos, por medio de su representante legal la señora Claudia Lucrecia Pereira Cerdas, portadora de la cédula de identidad número tres-cero trescientos dieciocho-cero ciento cincuenta y siete, incumplió con la presentación del informe anual de labores correspondiente a los años 2022, 2023 y 2024, no presentando elementos de valor que permitan acreditar justificación valida de dichos incumplimientos.
+Por tanto,
+DECRETAN
+DEROGAR LA DECLAR ATORIA DE UTILI DAD PÚBLICA DE LA ASOCIACIÓN
+ADMINISTRADORA DEL ACUEDUCTO RURAL DE JABILLOS
+Artículo 1.- Dejar sin efecto el Decreto Ejecutivo N° 36743-J P del once de julio del do s mil once, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Administradora del Acueducto Rural de Jabillos, cédula jurídica tres-cero cero dos-doscientos trece mil trescientos noventa y dos.
