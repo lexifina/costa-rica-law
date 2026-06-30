@@ -1,6 +1,0 @@
-Artículo 7º—Del funcionario responsable del control presupuestario de centros de responsabilidad proyectos u obras. Los funcionarios responsables del control presupuestario de centros de responsabilidad, proyectos u obras, son responsables de lo siguiente:
-a) Recibir el documento que requiere el contenido presupuestario y proceder a la revisión de los requisitos, para continuar con el trámite administrativo que genere un gasto en el presupuesto institucional de la Empresa.
-b) Poner sello y firma de contenido presupuestario en los documentos de trámite administrativo, que generen un gasto en el presupuesto institucional de la Empresa. Este certificará a priori el disponible presupuestario de la unidad administrativa que originó el trámite.
-c) Realizar las actividades de control previo y de seguimiento de la ejecución de conformidad con las disposiciones y directrices emitidas en esta materia
-d) Analizar y dar seguimiento a la información que se obtiene de la ejecución presupuestaria por centro de responsabilidad, proyecto u obra, para detectar desviaciones con respecto a lo programado y recomendar acciones correctivas cuando proceda, para prevenir los sobregiros presupuestarios.
-e) Prevenir con las acciones de su competencia los sobregiros que se puedan presentar en el presupuesto institucional o en los programas presupuestarios.

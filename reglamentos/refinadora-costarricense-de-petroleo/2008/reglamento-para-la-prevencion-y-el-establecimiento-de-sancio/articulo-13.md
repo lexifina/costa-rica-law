@@ -1,3 +1,0 @@
-Artículo 13º—Del Auditor General. El Auditor General es responsable por lo siguiente:
-a) Solicitar el inicio del procedimiento disciplinario ante los órganos competentes de la Empresa, a fin de establecer la responsabilidad administrativa de los funcionarios a su cargo, que infrinjan la normativa establecida en materia de administración de fondos públicos como este Reglamento y aplicar la sanción correspondiente.
-b) Informar a la Presidencia, en su condición de miembro de Junta Directiva, sobre las sanciones impuestas por sobregiros presupuestarios y las acciones correctivas tomadas para prevenir su ocurrencia en la Auditoría Interna.

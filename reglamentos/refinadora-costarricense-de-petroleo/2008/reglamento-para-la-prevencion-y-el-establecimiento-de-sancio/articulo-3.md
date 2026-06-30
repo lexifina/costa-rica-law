@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación del Reglamento. Este Reglamento será aplicable al Presidente, Auditor General, Gerente General, Gerentes de Área, el funcionario responsable de centro de responsabilidad, proyectos u obras y demás funcionarios que participan en el proceso presupuestario de la Empresa.

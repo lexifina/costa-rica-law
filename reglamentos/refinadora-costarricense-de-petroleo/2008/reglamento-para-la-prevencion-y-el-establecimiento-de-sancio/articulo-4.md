@@ -1,2 +1,0 @@
-Artículo 4º—Competencia. Compete al Departamento de Presupuestación de la Dirección Financiera, el suministro al nivel Empresarial de los informes de ejecución presupuestaria.
-Le corresponde a los órganos disciplinarios formales de la Empresa, dar inicio a los procedimientos dirigidos a imponer las medidas disciplinarias en caso de que se infrinja las normas, principios, lineamientos y procedimientos que integran el Sistema de Administración Financiera del Sector Público y las disposiciones del presente Reglamento.

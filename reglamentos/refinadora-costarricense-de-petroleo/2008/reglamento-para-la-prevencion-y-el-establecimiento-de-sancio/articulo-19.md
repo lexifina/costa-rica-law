@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 19.—Variaciones al presupuesto. Cuando se tramiten modificaciones presupuestarias, modificaciones presupuestarias administrativas o presupuestos extraordinarios, no se incorporarán recursos al presupuesto que tengan como objetivo cubrir sobregiros presupuestarios; tampoco se considerarán solicitudes de rebajas de recursos que puedan generar sobregiros presupuestarios. El Departamento de Presupuestación realizará el trámite de variaciones al presupuesto, con base en la constancia que le presenten los centros de responsabilidad, en los términos definidos en el Manual de disposiciones sobre el nivel de aprobación y de variaciones al presupuesto y en el presente Reglamento.
