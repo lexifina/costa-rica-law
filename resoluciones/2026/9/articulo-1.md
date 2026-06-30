@@ -205,7 +205,6 @@ Esto genera dudas razonables, por ejemplo, ¿Qué tarifa le corresponde cuando s
 Referente a la posibilidad de interpretación por parte del prestador, consta en el informe IN-0059-IA-2025 sobre aspectos técnicos asociados a las actuaciones realizadas por la Intendencia de Agua relacionados con la categoría tarifaria denominada grandes consumidores del 10 de julio del 2025, en el apartado 3.
 ANÁLISIS DE LA DISTRIBUCIÓN DE ABONADOS EN LAS CATEGORÍAS COMERCIO Y SERVICIOS E INDUSTRIAL POR PARTE DEL AYA, durante una mesa técnica celebrada el jueves 3 de julio de 2025, donde se presenta en el cuadro 1, una comparación de distribución de abonados entre el AyA y la IA, misma que en una segunda sesión virtual el 8 de julio del 2025 la IA determino que dicha distribución realizada por el prestador fue errónea.
 Cuadro 1. Comparación de distribución de abonados del servicio de acueducto entre el AyA y la IA
-[imagen]
 En esta misma línea, en el informe IN-0059-IA-2025 del 10 de julio del 2025, se indica:
 "(...) para aplicar una tarifa de tipo comercial no es únicamente el desarrollo de una actividad económica, sino la existencia de una operación estructurada, con fines de lucro y sujeta a patente
 municipal. Es decir, la presencia de actividades de subsistencia, informales o no sujetas a regulación municipal no justifica, por sí sola, un cambio de categoría." Lo destacado es propio.
@@ -1130,6 +1129,106 @@ II. Dimensionar y graduar los efectos de la declaratoria de nulidad absoluta de 
 5. En lo atinente a la ubicación de los montos de las tarifas sociales, se determina que pese a lo señalado en la resolución RE-0028-IA-2024, en el contexto de la nulidad señalada se requiere precisar dicha ubicación para que los montos de las tarifas sociales se lean en la forma que fueron calculadas y analizadas en el estudio técnico base de la resolución citada, debido a que estas fueron estimadas de forma tal que la tarifa de pobreza extrema siempre fuera inferior a la de pobreza básica, en todos los servicios y operadores; sin embargo, cuando se incluyeron las tablas se invirtieron los montos; motivo por el cual los montos contenidos en la resolución RE-0004-IA-2025, serían: a) del Por Tanto II, la tabla de "Tarifa de Acueducto para Servicio Fijo del Instituto Costarricense de Acueductos y Alcantarillados" de forma que se lea de la siguiente manera: la tarifa de la categoría "Tarifa Residencial Pobreza Básica" es ?9637 y para la tarifa de la categoría " Tarifa Residencial Pobreza Extrema" es ?8116 y b) del Por Tanto III, la tabla de "Tarifa de Servicio de Alcantarillado Servicios Fijos del Instituto Costarricense de Acueductos y Alcantarillados" de forma que se lea de la siguiente manera: la tarifa de la categoría "Tarifa Residencial Pobreza Básica" es ?8873 y la tarifa de la categoría "Tarifa Residencial Pobreza Extrema" es ?7350.
 Vigencia temporal del presente dimensionamiento:
 El presente dimensionamiento estará vigente, hasta que se dicte una nueva resolución de estructura tarifaria y que esta sea utilizada para la fijación de las tarifas que están siendo anuladas en esta resolución. Es decir, hasta que se dicten nuevas tarifas, que sustituyan a las aquí anuladas (tomando en cuenta el servicio y prestador respectivo), aplicando la nueva estructura tarifaria que se dicte por parte de esta Intendencia.
+(*)La continuidad de la suspensión parcial y temporal dispuesta mediante la resolución RE-0002-IA-2026, exclusivamente respecto de las tarifas de las categorías tarifarias: Tarifa Industrial (T-IN), Tarifa Comercio y Servicios (T-CS) y Tarifa Grandes Consumidores (T-GC)-, de la resolución RE-0034-IA-2024 del 6 de diciembre de 2024, aplicables a las Asociaciones Administradoras de Acueductos Comunales (ASADAS) que cumplieron con la resolución RE-011-IA-2024 del 2 de febrero de 2024, de implementación del Sello Regulatorio de Calidad.
+La suspensión rige hasta la emisión del acto correctivo o resolución definitiva que corresponda, según resulte aplicable conforme al régimen transitorio.
+Disponer que, durante la vigencia de esta resolución, las ASADAS con Sello Regulatorio de Calidad deberán aplicar para dichas categorías tarifarias los pliegos tarifarios correspondientes al período tarifario del año 2025, conforme a lo dispuesto en la resolución RE-0034-IA-2024 y resolución RE-0008-IA-2025, vigentes para el año 2025. Mismos que se detallan en los siguientes cuadros:
+1. ASADAS de 1-100 abonados:
+Servicio Acueducto | | Variación Absoluta | Variación Relativa
+Categoría tarifaria | Detalle del cargo | Propuesto
+? Tarifa Comercio y Servicios | | |
+Cargo por metro cúbico | | | |
+Bloque 0-20 | cada m3 | ₡ | 533 | No aplica | No aplica
+Bloque 21-65 | cada m3 | ₡ | 771 | No aplica | No aplica
+Bloque 66 o más | cada m3 | ₡ | 949 | No aplica | No aplica
+Cargo por mes | | | |
+Cargo fijo | cada mes | ₡ | 3 100 | No aplica | No aplica
+? Tarifa Industria | | |
+Cargo por metro cúbico | | | |
+Bloque 0-120 | cada m3 | ₡ | 671 | No aplica | No aplica
+Bloque 121 o más | cada m3 | ₡ 1 433 | No aplica | No aplica
+Cargo por mes | |
+Cargo fijo | cada mes | ₡ | 3 100 | No aplica | No aplica
+? Tarifa Grandes Consumidores | | |
+Cargo por metro cúbico | | | |
+Bloque 0- 2500 | cada m3 | ₡ | 609 | No aplica | No aplica
+Bloque 2501- 6000 | cada m3 | ₡ | 701 | No aplica | No aplica
+Bloque 6000 o más | cada m3 | ₡ | 1 001 | No aplica | No aplica
+Cargo por mes | | | |
+Cargo fijo | cada mes | ₡ | 3 100 | No aplica | No aplica
+| | | |
+2. ASADAS de 101-300 abonados:
+Servicio Acueducto | Vigente | | Variación Absoluta | Variación Relativa
+Categoría tarifaria | Detalle del cargo | Propuesto
+? Tarifa Comercio y Servicios | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-20 | cada m3 | No aplica | | ₡ | 479 | No aplica | No aplica
+Bloque 21-65 | cada m3 | No aplica | ₡ | | 768 | No aplica | No aplica
+Bloque 66 o más | cada m3 | No aplica | ₡ | | 961 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ | | 3 100 | No aplica | No aplica
+? Tarifa Industria | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-120 | cada m3 | No aplica | ₡ | | 677 | No aplica | No aplica
+Bloque 121 o más | cada m3 | No aplica | ₡ | | 1 445 | No aplica | No aplica
+Cargo por mes | | | |
+Cargo fijo | cada mes | No aplica | ₡ | | 3 100 | No aplica | No aplica
+? Tarifa Grandes Consumidores | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0- 2500 | cada m3 | No aplica | ₡ 683 | No aplica | No aplica
+Bloque 2501- 6000 | cada m3 | No aplica | ₡ 903 | No aplica | No aplica
+Bloque 6000 o más | cada m3 | No aplica | ₡ 1 221 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ 3 100 | No aplica | No aplica
+| | | | |
+3. ASADAS de 301-1000 abonados:
+Servicio Acueducto | Vigente | | Variación Absoluta | Variación Relativa
+Categoría tarifaria | Detalle del cargo | Propuesto
+? Tarifa Comercio y Servicios | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-20 | cada m3 | No aplica | ₡ | 532 | No aplica | No aplica
+Bloque 21-65 | cada m3 | No aplica | ? 820 | No aplica | No aplica
+Bloque 66 o más | cada m3 | No aplica | ₡ | 1103 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ | 2 800 | No aplica | No aplica
+| | | | |
+? Tarifa Industria | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-120 | cada m3 | No aplica | ₡ | 747 | No aplica | No aplica
+Bloque 121 o más | cada m3 | No aplica | ₡ | 1 566 | No aplica | No aplica
+Cargo por mes | | | |
+Cargo fijo | cada mes | No aplica | ₡ | 2 800 | No aplica | No aplica
+? Tarifa Grandes Consumidores | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0- 2500 | cada m3 | No aplica | ₡ 745 | No aplica | No aplica
+Bloque 2501- 6000 | cada m3 | No aplica | ₡ 1 005 | No aplica | No aplica
+Bloque 6000 o más | cada m3 | No aplica | ₡ 1 323 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ 2 800 | No aplica | No aplica
+4. ASADAS de más de 1000 abonados:
+Servicio Acueducto | Vigente | | Variación Absoluta | Variación Relativa
+Categoría tarifaria | Detalle del cargo | Propuesto
+? Tarifa Comercio y Servicios | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-20 | cada m3 | No aplica | ₡ 504 | No aplica | No aplica
+Bloque 21-65 | cada m3 | No aplica | ₡ 855 | No aplica | No aplica
+Bloque 66 o más | cada m3 | No aplica | ₡ 1 241 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ 2 800 | No aplica | No aplica
+? Tarifa Industria | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-120 | cada m3 | No aplica | ₡ 812 | No aplica | No aplica
+Bloque 121 o más | cada m3 | No aplica | ₡ 1 474 | No aplica | No aplica
+Cargo por mes | | | |
+Cargo fijo | cada mes | No aplica | ₡ 2 800 | No aplica | No aplica
+? Tarifa Grandes Consumidores | | | |
+Cargo por metro cúbico | | | | |
+Bloque 0-2500 | cada m3 | No aplica | ₡ 788 | No aplica | No aplica
+Bloque 2501- 6000 | cada m3 | No aplica | ₡ 1 094 | No aplica | No aplica
+Bloque 6000 o más | cada m3 | No aplica | ₡ 1 465 | No aplica | No aplica
+Cargo por mes | | | | |
+Cargo fijo | cada mes | No aplica | ₡ 2 800 | No aplica | No aplica
+La suspensión indicada regirá hasta la emisión del acto correctivo o de la resolución definitiva que corresponda, lo que ocurra primero.
+(*) (Así adicionado el párrafo anterior mediante resolución N° RE-0011-IA-2026 del 30 de junio de 2026)
 III. Dimensionar los efectos de la nulidad de las resoluciones RE-0006-IA-2026 y RE-0007-IA-2026, de manera que se mantengan de forma momentánea y hasta que sean sustituidas de manera expresa mediante una resolución posterior, las tarifas fijadas mediante la resolución RE-0006-IA-2026 y mediante la resolución RE-0007-IA-2026.
 IV. En cumplimiento de lo instruido por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, en su acuerdo 05-46-2026, tomado en la sesión ordinaria 46-2026, del 3 de junio de 2026, se comunica a los prestadores del servicio público de acueducto, alcantarillado e hidrantes que, en los casos de reclamos, inconformidades o quejas relacionadas con facturaciones derivadas de los efectos de las resoluciones que se declaran nulas, podrán celebrar arreglos de pago por plazos mayores y adoptar las medidas administrativas procedentes, dentro del marco normativo aplicable, para atender las situaciones particulares de las personas usuarias afectadas por dichos efectos, de conformidad con lo dispuesto en el Reglamento Técnico vigente "Prestación del suministro de los servicios de acueducto, alcantarillado e hidrantes (AR-RT-SUMAAH-2023)"; demás normativa técnica y las directrices y lineamientos aplicables a cada prestador.
 V. Notificar, comunicar y publicar por única vez la presente resolución. En cumplimiento de Io que ordena el articulo 245 en relación con el 345, de la Ley General de la Administración Pública, se informa que contra esta resolución caben los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión.

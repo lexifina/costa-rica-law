@@ -15,3 +15,4 @@ Reforma Estructura tarifaria del servicio regulado de acueducto en Costa Rica y 
 | --- | --- | --- |
 | 1 | 2026-06-18 | la propia norma |
 | 2 | 2026-06-26 | Resolución 10 (2026-06-26) |
+| 3 | 2026-06-30 | Resolución 11 (2026-06-30) |
