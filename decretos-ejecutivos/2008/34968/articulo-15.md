@@ -1,2 +1,0 @@
-Artículo 15.—Comparecencia oral y privada. En concordancia con lo dispuesto en el artículo anterior, el procedimiento ordinario se tramitará mediante una comparecencia oral y privada El plazo de la citación de ésta deberá hacerse con quince días de anticipación.
-En este acto se admitirá y recibirá toda la prueba presentada, y las partes tendrán la oportunidad de presentar sus conclusiones o alegatos.

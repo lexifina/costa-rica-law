@@ -1,1 +1,0 @@
-Artículo 19.—De los Recursos. Con respecto a los recursos, su naturaleza, plazo para interponerlos y para resolver, actos recurribles, así como los demás aspectos vinculados con esta materia, aplicará lo dispuesto sobre el particular en la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Artículo 17.—Resolución final. Corresponderá al Ministro o Ministra resolver en definitiva, emitiendo el acto final respectivo, el cual deberá notificarse a las partes y asimismo deberá ser comunicado tanto a la Dirección de Recursos Humanos, como a la Defensoría de los Habitantes, para lo que en derecho corresponda.

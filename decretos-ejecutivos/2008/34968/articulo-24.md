@@ -1,1 +1,0 @@
-Artículo 24.—Falta de la debida divulgación. Las y los funcionarios y dependencias administrativas a quienes se les asignen funciones en materia de asesoría y divulgación establecidas en el artículo 4 del presente Reglamento que retardaren u omitieren su cumplimiento, incurrirán en responsabilidad que se computarán como falta grave.
