@@ -14,3 +14,4 @@ Reglamento interno de gastos de viaje y de transporte (viáticos) para funcionar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-01-16 | la propia norma |
+| 2 | 2026-06-30 | Reglamento municipal 78 (2026-06-30) |
