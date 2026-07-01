@@ -14,3 +14,4 @@ Reglamento de sesiones del Consejo Directivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-02 | la propia norma |
+| 2 | 2026-07-01 | Reglamento 3981 (2026-07-01) |
