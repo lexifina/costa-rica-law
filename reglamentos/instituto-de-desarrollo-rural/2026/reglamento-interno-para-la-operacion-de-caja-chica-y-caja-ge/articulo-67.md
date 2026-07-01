@@ -1,0 +1,1 @@
+ARTÍCULO 67. Debido Proceso. Para la aplicación de sanciones por incumplimiento a las disposiciones del presente Reglamento, así como a los lineamientos en la materia emitidos por el Ministerio de Hacienda o la Contraloría General de la República, se le debe garantizar a la persona funcionaria el cumplimiento del debido proceso.

@@ -1,0 +1,3 @@
+CAPÍTULO XI
+CONTROL INTERNO
+ARTÍCULO 61. Responsable del Control Interno. Corresponderá al Director de Administración y Finanzas, al Departamento Financiero, Tesorería, a la Jefatura Inmediata del encargado de Caja Chica o al Encargado del Fondo Rotatorio de Trabajo, establecer, evaluar y mantener un adecuado sistema de control del fondo autorizado, para efectos de salvaguardar los recursos públicos utilizados en la gestión ordinaria del Instituto y en concordancia con las sanas prácticas de control interno, establecidas en la normativa vigente, en este Reglamento y en los lineamientos que, para tales efectos, emita la Dirección Administración y Finanzas, el Departamento Financiero y/o Tesorería.

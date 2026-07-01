@@ -1,0 +1,1 @@
+ARTÍCULO 2. Ámbito de aplicación. Este Reglamento es de aplicación obligatoria por parte del personal del Instituto de Desarrollo Rural (INDER), cuando, en el cumplimiento de sus funciones, requiera hacer uso de los fondos de Caja Chica y Caja General, para garantizar la buena administración.

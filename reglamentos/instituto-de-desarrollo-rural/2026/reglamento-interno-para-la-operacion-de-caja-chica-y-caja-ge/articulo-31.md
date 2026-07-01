@@ -1,0 +1,6 @@
+ARTÍCULO 31. Excepciones para presentación de facturas proforma. Se establecen los siguientes supuestos, para exceptuar la presentación de facturas proformas:
+a) Oferente único: no se deberá adjuntar factura proforma en el caso de que el bien, servicio u obra que se requiera, sea brindado por un único proveedor. En ese caso se debe adjuntar certificación emitida por el proveedor y la justificación respectiva autorizada por la jefatura inmediata.
+b) Activo en garantía: en caso de que se deba realizar una reparación que no cubre la garantía, no será necesario adjuntar factura proforma según lo establecido en este Reglamento, considerando que el activo sea enviado a los talleres del proveedor de quien se adquirió. Se debe adjuntar la justificación respectiva, autorizada por la jefatura inmediata.
+c) Bienes o servicios artísticos o intelectuales: (Adquirir/ Ejecutar/ Restaurar obras de arte, científicas o históricas y que no sea posible el concurso)
+d) Servicios de arbitraje o conciliación.
+e) Los procedimientos ordinarios de las reparaciones indeterminadas, siempre y cuando para determinar los alcances de la reparación sea necesario el desarme de la maquinaria, los equipos o los vehículos y la contratación no pueda realizarse por medio de procedimientos ordinarios en los que la Administración haya precalificado de forma abierta a talleres idóneos.

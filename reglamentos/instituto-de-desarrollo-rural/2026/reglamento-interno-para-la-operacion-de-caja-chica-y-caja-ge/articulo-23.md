@@ -1,0 +1,7 @@
+ARTÍCULO 23. Ausencia y sustitución del encargado de forma temporal. Cuando, por razones justificadas, como vacaciones, incapacidades, permisos y otros, se ausente en forma temporal la persona encargada de la Caja Chica; será necesario trasladar la custodia y el manejo del fondo a una persona funcionaria que se encuentra nombrada en propiedad y que sea distinta al titular.
+El traspaso se realizará en presencia de la jefatura inmediata o de la persona que éste designe, además del nuevo encargado temporal, según lo establecido en el presente Reglamento, de acuerdo con lo siguiente:
+1) Realizar un arqueo del que se dejará constancia por escrito, con la firma de las personas funcionarias mencionadas.
+2) Remitir copia del arqueo a la Tesorería y Contabilidad, para actualizar los registros que para tal fin se llevan a cabo.
+3) Solicitar el cambio de la persona encargada de la Caja Chica o Caja General a la Tesorería, con copia a Tecnología de la Información, para que ejecute el cambio del rol en el sistema electrónico vigente, indicando el periodo de sustitución y el motivo.
+4) La persona encargada temporal deberá suscribir una póliza de fidelidad, cuando la sustitución sea mayor a un mes o la persona funcionaria tenga la tarea asignada.
+Al reintegrarse la persona titular a su puesto, se realizará un arqueo que debe contar con el recibido conforme, firmado por la persona funcionaria que participan en el arqueo; y, posteriormente, se solicitará a la Tesorería, mediante oficio, el traspaso del rol al titular en el sistema electrónico vigente.

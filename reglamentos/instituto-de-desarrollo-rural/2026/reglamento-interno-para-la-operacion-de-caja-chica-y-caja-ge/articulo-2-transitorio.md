@@ -1,0 +1,2 @@
+TRANSITORIO II. El pago de anticipos y liquidación de viáticos por medio de Caja Chica se regirá según lo que establece el Reglamento de Viáticos, Fondos y Gastos de Viaje para persona funcionarias del Instituto de Desarrollo Rural, aprobado por la Junta Directiva del Instituto de Desarrollo Rural, en el artículo N° 06 de la sesión N° 0046-2023, celebrada el 27 de noviembre de 2023.
+Acuerdo aprobado por Unanimidad Aprobado por la Junta Directiva del Instituto de Desarrollo Rural, en el artículo N° 9 de la sesión N° 0010-2026, celebrada el 13 de abril de 2026.

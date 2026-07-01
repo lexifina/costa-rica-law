@@ -1,0 +1,1 @@
+ARTÍCULO 68.- Identificación de supuestos actos delictivos o ilícitos. En caso de que se detecten sustracciones en perjuicio de un Fondo de Caja Chica o Caja General, la persona funcionaria responsable deberá comunicar al Superior Jerárquico y a las instancias judiciales correspondientes para que procedan con la investigación respectiva.

@@ -1,0 +1,2 @@
+ARTÍCULO 43. Vales de Caja Chica. Con respaldo en la solicitud de anticipo de efectivo correspondiente, indicando el concepto y el monto del gasto, el encargado de caja chica tramitará los Vales de Caja Chica.
+La solicitud de anticipo de viáticos no será considerada como vale de caja, por tanto, se regirá por lo establecido en el Reglamento de Viáticos, Fondos, Gastos de Viaje y transporte para el Instituto de Desarrollo Rural y de la normativa que disponga la Contraloría General de la República.

@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+DISPOSICIONES FINALES
+ARTÍCULO 69. Erogaciones con Fondos Propios. Las erogaciones que realicen persona funcionarias no autorizados con su peculio personal, para pagar materiales y suministros del Instituto, y aquellas erogaciones que incumplen con las estipulaciones de este Reglamento y/o con los lineamientos emitidos por la Dirección Administración y Finanzas, por el Departamento Financiero, Tesorería, o por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del persona funcionaria que las realizó y no le serán reintegradas por medio del fondo de la Caja Chica.

@@ -1,0 +1,1 @@
+ARTÍCULO 71. Derogatoria. Deróguese el Reglamento Interno para la Operación de Cajas Chicas y Caja General del Instituto de Desarrollo Rural, aprobado por la Junta Directiva del Instituto en el artículo N.º 4 de la Sesión Ordinaria 027 2007, celebrada el 21 de agosto de 2007 y sus reformas, así como, cualquiera otra disposición que se le oponga.

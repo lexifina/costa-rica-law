@@ -1,0 +1,4 @@
+ARTÍCULO 47. Excepciones para la liquidación de vales de Caja Chica fuera del plazo. Se autorizará el trámite de liquidación de vales de Caja Chica por excepción, fuera del plazo establecido, en los siguientes casos:
+1) Cuando se solicite un vale de caja y la persona funcionaria sea enviada por su jefatura inmediata a una gira excepcional, imprevista y no planificada previamente.
+2) Las excepciones ocasionadas por motivo de fuerza mayor (enfermedad, accidente, fallecimiento, renuncia o despido laboral.
+Las excepciones anteriores, deben estar respaldadas con un oficio de justificación de la situación presentada con la aprobación de la Jefatura Inmediata, y solicitar el visto bueno, ya sea del director Administración y Finanzas, o del jefe Departamento Financiero o Coordinador(a) Tesorería, en los casos de Oficinas Centrales, o bien, de la Jefatura de la Región de Desarrollo para las Oficinas de Desarrollo Territorial.

@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+CUENTAS BANCARIAS
+ARTÍCULO 50. Uso de medios electrónicos. La ejecución de las operaciones de la Caja Chica y los trámites de reintegro se podrán realizar por medios electrónicos, siempre que se disponga de una cuenta bancaria; y tanto el Instituto como la entidad bancaria posean una plataforma que garantice la adecuada funcionalidad y seguridad.
+El dinero de Caja Chica, cuyos montos lo ameriten para protección de estos activos, podrán operar bajo la modalidad de cuenta corriente a nombre del Instituto, en cuyo caso, los pagos se harán por medio de cheque o transferencia electrónica amparados en una solicitud de pago, tramitada por medio del sistema, por lo que se debe garantizar mantener una reserva de efectivo para sufragar gastos menores. En tales casos, el monto será determinado por la jefatura inmediata de la persona encargada o del superior jerárquico.
