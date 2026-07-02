@@ -1,0 +1,1 @@
+Artículo 43.- Tapias laterales y posteriores. Las tapias que no correspondan al frente de la propiedad podrán construirse totalmente cerradas, sin requerir visibilidad hacia las fincas colindantes, siempre que se utilicen materiales incombustibles y se cumpla con las disposiciones técnicas de seguridad.

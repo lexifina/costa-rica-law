@@ -1,0 +1,1 @@
+Artículo 25.- Alteraciones fuera del alineamiento oficial. Toda alteración al trazo de una construcción que se proyecte fuera del alineamiento oficial será considerada como invasión de la vía pública. En tal caso, el propietario de la construcción estará obligado a demoler la parte que origine dicha invasión, aplicando el debido proceso indicado en la Ley 833.

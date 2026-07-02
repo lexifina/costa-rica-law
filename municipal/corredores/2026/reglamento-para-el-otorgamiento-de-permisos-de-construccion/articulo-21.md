@@ -1,0 +1,1 @@
+Artículo 21.- Recursos administrativos. Contra la resolución que apruebe o deniegue una licencia de construcción procederán los recursos de revocatoria y apelación, de conformidad con lo establecido en el artículo 171 del Código Municipal.

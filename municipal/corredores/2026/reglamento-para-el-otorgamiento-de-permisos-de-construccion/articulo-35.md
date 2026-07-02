@@ -1,0 +1,1 @@
+Artículo 35.- Identificación de construcciones existentes en planos. Las solicitudes de licencias de construcción que incluyan edificaciones previamente construidas deberán consignar dichas estructuras en los planos constructivos. Esto con el fin de garantizar el cumplimiento de los retiros establecidos en los artículos 97 y 98 del Reglamento de Construcciones del INVU.

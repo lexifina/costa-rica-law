@@ -1,0 +1,1 @@
+Artículo 28.- Recalificación de la tasación de la obra. Cuando la Municipalidad lo considere necesario, podrá recalificar la tasación de la obra valorada en el CFIA, con base en los planos constructivos y los valores del manual de tipologías de hacienda vigentes en esos momentos.

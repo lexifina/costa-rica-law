@@ -1,0 +1,1 @@
+Artículo 19.- Plazo de resolución de solicitudes. Toda solicitud de licencia de construcción deberá resolverse en un plazo máximo de 30 días naturales, contados a partir de su presentación en el sistema APC y su remisión a la Municipalidad de Corredores, conforme a lo dispuesto en el artículo 89 del Código Municipal.

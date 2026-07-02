@@ -1,0 +1,1 @@
+Artículo 12.- Prohibición de elementos constructivos en colindancias. Se prohíbe que aleros, canoas, bajantes u otros elementos constructivos sobresalgan de la línea de colindancia. Dichos elementos deberán ubicarse íntegramente dentro de la propiedad. Con la colindancia a la vía pública de debe aplicar el artículo 38 de este reglamento.

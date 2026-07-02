@@ -1,0 +1,1 @@
+Artículo 37.- Restricciones de proximidad a pared medianera. Queda prohibida la construcción a menos de dos metros (2 m) de una pared medianera de: pozos, cloacas, acueductos, hornos, fraguas, chimeneas, establos, depósitos de materiales corrosivos, máquinas de vapor u otros usos que representen peligro o resulten nocivos.

@@ -1,0 +1,1 @@
+Artículo 29.- Requisitos para retirar la licencia de construcción. Para retirar la licencia de construcción será obligatorio presentar la póliza de riesgos de trabajo vigente y cancelar el importe correspondiente al impuesto de construcción y en los casos que aplique cancelar la multa respectiva.

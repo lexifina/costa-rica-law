@@ -1,0 +1,1 @@
+Artículo 46.- Estacionamientos de uso público. Los estacionamientos destinados a uso público se regirán por la Ley Reguladora de los Estacionamientos Públicos y su normativa complementaria, debiendo cumplir con todos los requisitos de accesibilidad, señalización y seguridad establecidos en la Ley.

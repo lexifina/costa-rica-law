@@ -1,0 +1,3 @@
+Artículo 33.- Sistemas de conducción de aguas pluviales. Todo edificio o vivienda deberá contar con canales, canoas y sistemas de conducción necesarios para la captación y conducción de aguas pluviales.
+Estas aguas deberán descargarse directamente en caños de las vías públicas, canales, cuerpos de aguas naturales o en desagües particulares previamente diseñados. Cuando se realice el paso por las aceras, esta debe ser por debajo de la acera. Queda prohibido la caída libre de aguas pluviales sobre la vía pública.
+Los tubos de drenaje pluvial en las fachadas no podrán sobresalir de la pared en más de diez (10) centímetros.

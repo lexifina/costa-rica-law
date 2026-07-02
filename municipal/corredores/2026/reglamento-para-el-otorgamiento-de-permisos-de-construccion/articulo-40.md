@@ -1,0 +1,1 @@
+Artículo 40.- Distancia mínima de drenajes y tanques sépticos respecto a colindancias. Los drenajes y tanques sépticos deberán ubicarse a una distancia no menor a un 1 metro de la línea de colindancia entre propiedades vecinas.

@@ -1,0 +1,3 @@
+Capítulo IV. - Espacios de estacionamiento.
+Artículo 44.- Estacionamientos en edificaciones comerciales y de oficinas. Toda edificación destinada a uso comercial o de oficinas, cuya área bruta de construcción sea de cien metros cuadrados (100 m²), deberá reservar un espacio mínimo para estacionamiento. Para construcciones que excedan los 100 m², se deberá destinar un espacio de estacionamiento por cada 50 m² adicionales de construcción.
+Asimismo, dichos estacionamientos deberán cumplir con lo dispuesto en la Ley No. 7600, relativa a la Igualdad de Oportunidades para las Personas con Discapacidad, garantizando accesibilidad y seguridad.

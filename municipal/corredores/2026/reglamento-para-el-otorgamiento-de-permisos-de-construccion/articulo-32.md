@@ -1,0 +1,1 @@
+Artículo 32.- Responsabilidad por daños a la propiedad municipal y riesgos asociados. Cuando, con motivo de una construcción, se causen daños a la propiedad municipal o se genere un riesgo de deslizamiento, inundación o erosión, la reparación será obligación exclusiva del propietario del lote donde se realiza la obra que ocasionó la afectación.

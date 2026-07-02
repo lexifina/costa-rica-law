@@ -1,0 +1,1 @@
+Artículo 27.- Informe de recepción de obra. El Inspector de Obras emitirá el informe de recepción de la obra. Una vez emitido, se notificará al Departamento de Bienes Inmuebles de la Municipalidad para la actualización de los valores de las propiedades correspondientes, por medio del programa DECSIS o bien el programa vigente en ese momento.

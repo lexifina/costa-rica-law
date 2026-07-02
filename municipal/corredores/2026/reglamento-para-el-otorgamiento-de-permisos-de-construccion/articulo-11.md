@@ -1,0 +1,2 @@
+Artículo 11.- Solicitud y vigencia de alineamientos. Para la tramitación de alineamientos en materia urbanística, deberá presentarse ante la Municipalidad la gestión de uso de suelo y la solicitud de alineamiento, conforme al procedimiento municipal vigente y publicado en los medios de información oficial.
+El alineamiento otorgado tendrá una vigencia de un año, contado a partir de la fecha de su emisión y se dará respuesta en un plazo de 10 días hábiles. En este trámite no aplica el silencio positivo.

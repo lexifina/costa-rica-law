@@ -1,0 +1,4 @@
+Artículo 49.- Multas por construcción sin licencia. De conformidad con lo previsto en los artículos 79, 88, 89 incisos a) y 90 de la Ley No. 833, Ley de Construcciones, y artículo 70 de la Ley No. 4240, Ley de Planificación, la Municipalidad de Corredores aplicará las siguientes multas en caso de iniciarse obras sin la respectiva licencia:
+a) Por avance de obra durante el trámite de la licencia: multa equivalente al 30% del impuesto de la licencia de construcción, correspondiente a trabajos preliminares como zanjeo, cimentación, fundaciones o colocación de armaduras.
+b) Por avance de estructura, columnas o paredes, sin consideración del número de niveles: multa equivalente al 60% del impuesto de la licencia de construcción.
+c) Por avance que supere lo indicado en el inciso anterior o por obras finalizadas sin licencia: multa equivalente al 90% del impuesto de la licencia de construcción.
