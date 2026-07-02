@@ -1,0 +1,2 @@
+ARTÍCULO 6- Corresponderá al Sistema Nacional de Áreas de Conservación (Sinac) gestionar los recursos necesarios para la administración y protección del Área Silvestre Protegida Paisaje
+Nacional Espejo de Agua Embalse Arenal, con excepción de las zonas de restricción absoluta, aprovechamiento, operación, mantenimiento y seguridad operativa del embalse para la generación de electricidad, cuyo costo estará a cargo del Instituto Costarricense de Electricidad (ICE).

@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se fija la cota máxima de elevación 548.58 m s.n.m., la cual será delimitada por el Instituto Geográfico Nacional (IGN), en coordinación con el Instituto Costarricense de Electricidad (ICE) y el Ministerio de Ambiente y Energía (Minae).

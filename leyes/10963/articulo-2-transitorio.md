@@ -1,0 +1,2 @@
+TRANSITORIO II- Los permisos y las autorizaciones otorgados por las municipalidades y por las instituciones públicas, al momento de entrar en vigencia la presente ley, seguirán vigentes hasta su vencimiento, pudiendo ajustarse a las nuevas condiciones conforme a la nueva normativa al momento de su vencimiento, en lo que corresponda.
+En el caso de los permisos y las autorizaciones, que vencen antes de la entrada en vigencia de la reglamentación de esta ley, estarán vigentes hasta que se establezca la normativa correspondiente.

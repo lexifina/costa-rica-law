@@ -1,0 +1,3 @@
+ARTÍCULO 11- Títulos habilitantes para las actividades autorizadas en la Zona de Amortiguamiento de Uso Sostenible del Área Silvestre Protegida Paisaje Nacional Espejo de Agua Embalse Arenal
+Cualquier actividad por realizarse en la zona de amortiguamiento deberá estar acorde a lo establecido en el Plan de Desarrollo Ambiental y Social (PDAS).
+El Consejo Directivo del Instituto Costarricense de Electricidad (ICE) podrá otorgar en sus propiedades concesiones sobre el uso de las tierras de la zona de amortiguamiento, así como en los terrenos aledaños a esta, de conformidad con los plazos y las condiciones que el Instituto establezca al efecto.
