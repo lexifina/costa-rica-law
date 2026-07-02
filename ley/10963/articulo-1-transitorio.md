@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+TRANSITORIO I- En el plazo de dos años el Sistema Nacional de Áreas de Conservación (Sinac), en coordinación con el Instituto Costarricense de Electricidad (ICE), el Instituto Costarricense de Pesca y Acuicultura y los distintos representantes de las instituciones públicas, con competencias de los usos actuales y futuros, además de los gobiernos locales, así como los diversos grupos de interés u organizaciones no gubernamentales, formularán el Plan General de Manejo del Área Silvestre Protegida Paisaje Nacional Espejo de Agua Embalse Arenal.

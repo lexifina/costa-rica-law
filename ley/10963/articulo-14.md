@@ -1,0 +1,1 @@
+ARTÍCULO 14- El Instituto Costarricense de Electricidad (ICE) podrá rescatar una concesión por motivos de interés público o de fuerza mayor. En estos casos se reconocerá al concesionario el valor de las edificaciones y mejoras existentes, a justa tasación de peritos nombrados por la Dirección General de Tributación.
