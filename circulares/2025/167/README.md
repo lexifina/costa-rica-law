@@ -13,3 +13,4 @@ Adición a la "Circular Nº 56-2019: Ley N° 9578, para trasladar al Régimen no
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-28 | la propia norma |
+| 2 | 2026-07-02 | Circular 121 (2026-07-02) |
