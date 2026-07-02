@@ -1,6 +1,6 @@
 # Ley de Concesión y Operación de marinas y atracaderos turísticos
 
-Ley N° 7744 del 1997-12-19. SINALEVI, ficha 43078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43078&param2=125177&param3=1>.
+Ley N° 7744 del 1997-12-19. SINALEVI, ficha 43078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43078&param2=151737&param3=1>.
 
 Publicada en La Gaceta N° 26 del 1998-02-06.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2011-08-18 | Ley 8969 | 2011-07-07 |
 | 6 de 8 | 2013-01-31 | Ley 9046 | 2012-06-25 |
 | 7 de 8 | 2021-04-23 | Ley 9977 | 2021-04-05 |
+| 8 de 8 | 2026-07-02 | Ley 10963 | 2026-06-22 |
