@@ -1,0 +1,4 @@
+ARTÍCULO 2- Se adiciona el inciso i) al artículo 6 de la Ley 3091, Ley Orgánica de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, del 18 de noviembre de 1963. El texto es el siguiente:
+Artículo 6- Como autoridad portuaria, corresponderá a Japdeva:
+(...)
+i) Otorgar las concesiones para el desarrollo de marinas en los bienes bajo su administración, de conformidad con esta ley y en lo que resulte aplicable con la Ley 7744, Ley de Concesión y Operación de Marinas y Atracaderos Turísticos, del 19 diciembre de 1997, en el marco de contratos de alianzas estratégicas o de asociación público-privada, mientras estos bienes no resulten necesarios para el cumplimiento de los fines legales de Japdeva. En el ejercicio de esta competencia el aliado estratégico deberá contar con la viabilidad técnica favorable de la Comisión Interinstitucional de Marinas y Atracaderos Turísticos (Cimat) creada mediante la Ley 7744.
