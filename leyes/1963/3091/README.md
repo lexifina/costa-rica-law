@@ -1,6 +1,6 @@
 # Ley Orgánica de JAPDEVA (Junta de Administración Portuaria y deDesarrollo Económico de la Vertiente Atlántica)
 
-Ley N° 3091 del 1963-02-18. SINALEVI, ficha 38622: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38622&param2=146456&param3=1>.
+Ley N° 3091 del 1963-02-18. SINALEVI, ficha 38622: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38622&param2=151734&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 2020-09-21 | Ley 9893 | 2020-08-31 |
 | 7 de 9 | 2024-06-18 | Ley 10495 | 2024-06-17 |
 | 8 de 9 | 2025-07-01 | Ley 10726 | 2025-05-13 |
+| 9 de 9 | 2026-07-02 | Ley 10965 | 2026-07-02 |
