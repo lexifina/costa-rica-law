@@ -14,3 +14,4 @@ Manual de procedimientos para la ejecución del Decreto Ejecutivo N° 41837-H-MO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-20 | la propia norma |
+| 2 | 2026-07-03 | Reglamento 0 (2026-07-03) |

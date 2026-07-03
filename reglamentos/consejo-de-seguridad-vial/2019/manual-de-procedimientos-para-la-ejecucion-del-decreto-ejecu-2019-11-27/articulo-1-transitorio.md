@@ -1,0 +1,1 @@
+Transitorio Único.-Aquellos vehículos que se compruebe que su embarque al país o su solicitud de compra se inició en fecha previa a la publicación de este reglamento, no estarán sujetos a las disposiciones establecidas en los artículos 7 y 8 del decreto ejecutivo N° 39724-MOPT-MINAE-S. Publicación en acatamiento del oficio CARTA-MOPT-DM-1661-2026.
