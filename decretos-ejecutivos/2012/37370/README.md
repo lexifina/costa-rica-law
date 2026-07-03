@@ -31,3 +31,4 @@ Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José
 | 16 | 2026-04-14 | Resolución 393 (2026-04-14) |
 | 17 | 2026-04-22 | Resolución 422 (2026-04-22) |
 | 18 | 2026-06-23 | Resolución 676 (2026-06-23) |
+| 19 | 2026-07-03 | Resolución 700 (2026-07-03) |
