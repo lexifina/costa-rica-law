@@ -1,0 +1,2 @@
+SECCION II: Identificación del cliente
+Artículo 23.- Aspectos generales. Para los actos y contratos establecidos en el párrafo tercero del artículo 15 ter de la Ley N.°7786, el notario debe observar las obligaciones establecidas en los artículos 39, 83, 84, 85 y 95 del Código Notarial y las siguientes disposiciones. Además, deberá conservar una copia física o digital de toda la documentación que recabe.

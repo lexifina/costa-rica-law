@@ -1,0 +1,1 @@
+TRANSITORIO: Los Notarios Públicos que a la fecha de entrada en vigencia de este lineamiento no cuenten con acceso efectivo al sistema UIF Reportes, tendrán un plazo de tres meses para completar su inscripción y verificar su acceso a la plataforma de reportes de la Unidad de Inteligencia Financiera.

@@ -1,0 +1,1 @@
+Artículo 20.- Prohibición para delegar diligencias. El notario no deberá delegar la debida diligencia en terceros, aunque estos sean notarios. Cuando a solicitud de las partes, intervengan dos o más notarios públicos en un mismo acto o contrato, corresponderá al titular del tomo resguardar la documentación levantada al efecto.

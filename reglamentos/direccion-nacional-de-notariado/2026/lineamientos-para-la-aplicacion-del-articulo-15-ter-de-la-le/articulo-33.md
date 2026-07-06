@@ -1,0 +1,2 @@
+SECCIÓN V: Controles sobre nuevas tecnologías
+Artículo 33.-Ámbito de aplicación. Cuando el objeto del acto o el medio de pago involucre activos virtuales (criptomonedas, tokens u otros bienes digitales), el notario debe aplicar obligatoriamente la debida diligencia reforzada. Para ello, recabará información declarativa mediante los formularios y guías que disponga la DNN, que permitan identificar de forma certera dichos activos.

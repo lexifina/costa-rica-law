@@ -1,0 +1,1 @@
+Artículo 14.- Contenido de la declaración. La DNN facilitará guías y parámetros básicos para que el notario pueda confeccionar la declaración del origen de los fondos de manera acorde con los requerimientos normativos.

@@ -1,0 +1,6 @@
+Artículo 26.- Comparecencia a nombre de terceros. Cuando el compareciente actúe por mandato de otra persona física, el notario deberá observar las siguientes reglas de debida diligencia:
+a) Comprobar los datos de identidad del poderdante hasta donde sea posible, y que cuenta con facultades suficientes.
+b) Identificar fehacientemente a la persona compareciente, conforme a lo dispuesto en estos lineamientos y normativa aplicable.
+c) Verificar que el documento que contiene o reproduce el mandato sea válido, otorgado en escritura pública en los casos que exija la Ley, y debidamente inscrito cuando así se requiera.
+d) Verificar que el mandato se encuentre vigente, y que el mandatario a su vez se le faculta de forma suficiente para realizar el acto o contrato específico.
+Cuando le sea presentado un testimonio de escritura pública conteniendo un mandato, el notario debe verificar que la matriz se encuentra debidamente otorgada, que el instrumento se encuentra debidamente autorizado por un notario público, que dicho fedatario estuviere habilitado al momento de su otorgamiento, y que no consten notas de modificación o revocación al margen, de todo lo cual dejará evidencia en su archivo de referencias.

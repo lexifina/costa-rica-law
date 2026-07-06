@@ -1,0 +1,2 @@
+SECCION III: Mantenimiento y disponibilidad de registros
+Artículo 28.-Organización de registros. El notario público debe mantener un expediente por cada cliente, el cual podrá llevarse en soporte físico, digital o híbrido. Este expediente es independiente del archivo de referencias de cada escritura y debe estar organizado alfabéticamente por el nombre del cliente para facilitar su localización inmediata ante requerimientos de la DNN o la UIF.

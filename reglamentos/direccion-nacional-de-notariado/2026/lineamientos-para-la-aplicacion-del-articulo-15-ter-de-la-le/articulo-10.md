@@ -1,0 +1,1 @@
+Artículo 10.- Matriz de Riesgos institucional. La DNN mantendrá una matriz de riesgos actualizada que servirá como instrumento técnico para priorizar los esfuerzos de control y para orientar a los notarios sobre los factores de riesgo específicos que deben vigilar en su ejercicio profesional. Dicha actualización deberá ejecutarse como máximo cada dos años.

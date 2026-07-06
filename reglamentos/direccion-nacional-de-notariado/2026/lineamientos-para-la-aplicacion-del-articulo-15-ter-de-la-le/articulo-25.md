@@ -1,0 +1,4 @@
+Artículo 25.- Procedimiento para identificar al cliente (persona física). El notario deberá identificar a los comparecientes de forma fehaciente, observando las siguientes reglas según su condición:
+a) Personas físicas nacionales: Serán identificados mediante la cédula de identidad vigente. Se recomienda el uso de mecanismos de validación biométrica oficial, debiendo resguardar el comprobante del resultado de la consulta.
+b) Personas físicas extranjeras en tránsito o no residentes: Se identificarán con el pasaporte vigente. En caso de duda, el notario podrá requerirle el visado de ingreso o documento de identidad complementario de su país de origen.
+c) Personas físicas extranjeras residentes o refugiados: Se identificarán mediante el documento DIMEX o carné de refugiado vigente, emitido por la Dirección General de Migración y Extranjería. En caso de duda, el notario podrá solicitar el pasaporte u otra documentación adicional.
