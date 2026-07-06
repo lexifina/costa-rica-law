@@ -1,0 +1,1 @@
+Artículo 3.- La ejecución del proyecto deberá realizarse con estricto apego a las obligaciones, medidas de prevención, mitigación, compensación y manejo ambiental establecidas en la resolución N.° 1680-2025-SETENA, en el Plan de Gestión Ambiental, en el inventario forestal aprobado y en las demás disposiciones emitidas por las autoridades competentes.

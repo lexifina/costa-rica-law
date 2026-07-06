@@ -1,0 +1,1 @@
+Artículo 5.- La presente declaratoria no exime al desarrollador del cumplimiento de la normativa ambiental, forestal, administrativa y sectorial aplicable, ni sustituye las autorizaciones, permisos, visados, concesiones o actos administrativos que resulten legalmente exigibles para la ejecución del proyecto.
