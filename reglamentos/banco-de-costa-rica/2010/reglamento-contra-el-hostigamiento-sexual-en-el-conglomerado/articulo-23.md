@@ -1,2 +1,6 @@
-Artículo 23.—Informe final. Concluida la comparecencia oral y privada el órgano director emitirá en un plazo máximo de quince días hábiles una resolución de recomendación que contenga el análisis de hecho y derecho que correspondan, tanto si se comprueba o no el hecho denunciado, recomendando la eventual sanción disciplinaria o bien, la absolución de la persona trabajadora investigada y el archivo del expediente.
-El informe se remitirá al Gerente General del BCR o al Gerente de la respectiva Subsidiaria, según corresponda, o a la Junta Directiva del Banco o de la Subsidiaria o de la Asamblea de Cuotistas de Banprocesa S.R.L, según corresponda.
+Artículo 23. Acto final
+La Gerencia General debe emitir el acto final, dentro del plazo de un mes calendario contado a partir del día siguiente de recibido el informe de recomendación.
+Emitido el acto final, la Gerencia General debe remitir de inmediato el expediente a la Oficina de Procedimientos Administrativos, a fin de que se notifique dicho acto en un plazo no mayor de tres días naturales y envíe copia de la resolución final cuando exista sanción a las instancias correspondientes para lo de su competencia.
+La Junta Directiva debe emitir el acto final, cuando se trate de personas trabajadoras designadas por ésta, una vez cumplido el procedimiento aquí previsto.
+Tanto la Gerencia General como la Junta Directiva podrán solicitar asesoría a la Gerencia Corporativa Jurídica, en los casos en que consideren pertinente el apartarse de la recomendación del órgano director.
+(Así reformado mediante sesión N° 31-26 del 6 de julio de 2026)

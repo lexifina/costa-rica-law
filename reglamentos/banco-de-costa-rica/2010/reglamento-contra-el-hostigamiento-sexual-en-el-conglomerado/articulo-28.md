@@ -1,5 +1,8 @@
-Artículo 28.—Medidas cautelares. La Comisión Investigadora previa solicitud de parte o de oficio y mediante una resolución fundada podrá solicitar al órgano decisor que se ordene cautelarmente:
-a. Que la persona denunciada se abstenga de perturbar a quien denuncia.
+Artículo 28. Medidas cautelares
+La Comisión Investigadora previa solicitud de parte o de oficio y mediante una resolución fundada podrá solicitar al órgano decisor que se ordene cautelarmente:
+(Así reformado el párrafo anterior mediante sesión N° 31-26 del 6 de julio de 2026)
+a. Que la persona denunciada se abstenga de perturbar a quien denuncia y de posibles testigos.
+(Así reformado el inciso anterior mediante sesión N° 31-26 del 6 de julio de 2026)
 b. Que la persona denunciada se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona denunciante.
 c. La reubicación laboral de la presunta persona hostigadora.
 d. La permuta del cargo.

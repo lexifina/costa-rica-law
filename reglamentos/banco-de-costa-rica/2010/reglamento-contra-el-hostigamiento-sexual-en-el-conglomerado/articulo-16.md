@@ -1,3 +1,7 @@
-Artículo 16.—Presentación y recepción de una denuncia verbal. Cuando la persona denunciante presente su denuncia en forma verbal, para su recepción debe ser ante el Comité Receptor.
-En el mismo acto de recepción de la denuncia se levantará el acta en la que conste, de la forma más fiel posible, todo lo manifestado por la persona denunciante. El acta debe ser firmada por la persona denunciante y las personas trabajadoras que reciben la denuncia, salvo aquellos que han participado para brindar apoyo a la persona denunciante. En todo caso, todos los participantes deben guardar el deber de confidencialidad previsto en este Reglamento.
-De ser posible, se hará referencia o aportará las pruebas indiciarias o directas que puedan ser evacuadas para dar cuenta del hecho, sin perjuicio de las que presente directamente en la audiencia. Para tal efecto debe dar los datos referenciales de los que tenga conocimiento para localizar la prueba; cuando se trate de una referencia de prueba testimonial, debe indicar el nombre y lugar donde se podrá ubicar a las personas señaladas.
+Artículo 16. Presentación y recepción de una denuncia verbal
+Cuando la persona denunciante presente su denuncia en forma verbal, para su recepción debe ser ante el Comité Receptor.
+En el mismo acto de recepción de la denuncia esta deberá ser transcrita, donde conste, de la forma más fiel posible, todo lo manifestado por la persona denunciante.
+Dicho documento deberá cumplir con los requisitos del articulo 15 punto 3 de este documento.
+El denunciante podrá hacerse acompañar de un representante sindical o asesor legal si así lo desea.
+Todos los participantes deben guardar el deber de confidencialidad previsto en este Reglamento.
+(Así reformado mediante sesión N° 31-26 del 6 de julio de 2026)

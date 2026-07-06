@@ -1,7 +1,12 @@
-Artículo 4°—Definición de acoso u hostigamiento sexual y tipificación de sus conductas. Se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
+Artículo 4. Definición de acoso u hostigamiento sexual y tipificación de sus conductas
+Se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
+(Así reformado el párrafo anterior mediante sesión N° 31-26 del 6 de julio de 2026)
 1. Condiciones materiales de empleo o docencia.
+(Así reformado el inciso anterior mediante sesión N° 31-26 del 6 de julio de 2026)
 2. Desempeño y cumplimiento laboral o educativo.
+(Así reformado el inciso anterior mediante sesión N° 31-26 del 6 de julio de 2026)
 3. Estado general de bienestar personal.
+(Así reformado el inciso anterior mediante sesión N° 31-26 del 6 de julio de 2026)
 También se considera acoso sexual la conducta grave que, habiendo ocurrido una sola vez perjudique a la víctima en cualquiera de los aspectos indicados.
 Asimismo, en el Conglomerado Financiero BCR, en las relaciones contractuales laborales y en las relaciones contractuales no laborales, sean estas con clientes, proveedores y personal de las empresas contratadas para prestar servicios al Conglomerado Financiero BCR, estudiantes que realizan pasantías o prácticas académicas en las instalaciones del Banco o sus Subsidiarias, están totalmente prohibidas las siguientes conductas o comportamientos considerados como típicos de acoso u hostigamiento sexual:
 1. Requerimientos de favores sexuales que impliquen:

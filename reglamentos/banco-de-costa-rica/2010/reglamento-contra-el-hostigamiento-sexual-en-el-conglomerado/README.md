@@ -15,3 +15,4 @@ Reglamento contra el hostigamiento sexual en el conglomerado BCR
 | --- | --- | --- |
 | 1 | 2010-12-09 | la propia norma |
 | 2 | 2022-02-08 | Reglamento 5 (2022-02-08) |
+| 3 | 2026-07-06 | Reglamento 31 (2026-07-06) |
