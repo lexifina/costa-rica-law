@@ -1,0 +1,1 @@
+Artículo 22. Vigencia. El presente Reglamento deja sin efecto el Reglamento para la Atención de Denuncias Presentadas Ante la Auditoría Interna de RACSA aprobado por la Junta Directiva en la sesión ordinaria N°2313 del 17 de marzo de 2021 y publicado en el Diario Oficial La Gaceta N°83 del 30 de abril de 2021, y rige a partir de su publicación en el Diario Oficial La Gaceta.

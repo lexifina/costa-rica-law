@@ -1,0 +1,1 @@
+Artículo 21. Recursos. Contra los actos motivados emitidos por la Auditoría Interna de RACSA correspondientes a resoluciones de traslado, archivo o desestimación, caben los recursos ordinarios establecidos en la Ley General de la Administración Pública.

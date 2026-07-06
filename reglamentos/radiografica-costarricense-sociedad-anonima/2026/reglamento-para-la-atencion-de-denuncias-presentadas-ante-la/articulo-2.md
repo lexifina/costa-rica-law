@@ -1,0 +1,1 @@
+Artículo 2. Principios Generales. Las denuncias atendidas por la Auditoría Interna de RACSA se deben realizar bajo la disposición de los principios de legalidad, simplicidad, independencia, objetividad, oficiosidad, economía, eficiencia, eficacia y razonabilidad.

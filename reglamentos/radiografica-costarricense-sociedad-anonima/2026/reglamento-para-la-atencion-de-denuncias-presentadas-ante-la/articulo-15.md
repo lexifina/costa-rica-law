@@ -1,0 +1,1 @@
+Artículo 15. Conformación del Expediente. La Auditoría Interna de RACSA debe documentar, en un expediente individual, las acciones realizadas para la atención de las denuncias, mediante los medios definidos y oficializados empresarialmente, velando por la integridad de la documentación que lo conforme, el cual debe estar foliado y ordenado cronológicamente.
