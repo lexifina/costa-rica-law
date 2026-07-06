@@ -1,0 +1,1 @@
+Artículo 14.-Otorgamiento de la calificación de idoneidad. En caso de que a criterio de la Comisión Administrativa el sujeto privado es idóneo para recibir fondos públicos y de que así sea acogido por el Concejo Municipal, deberá adoptarse el respectivo acuerdo debidamente motivado y previsto de los elementos requeridos en el dictado de todo acto administrativo.
