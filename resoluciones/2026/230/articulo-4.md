@@ -1,0 +1,1 @@
+Artículo 4: Que, ante la ausencia temporal y simultánea de la delegada titular y del delegado sustituto, se suspenden los efectos de las delegaciones conferidas con las Resoluciones N° DG-RES-0105-2026 y DG-RES-0106-2026, durante la vigencia de la presente delegación.
