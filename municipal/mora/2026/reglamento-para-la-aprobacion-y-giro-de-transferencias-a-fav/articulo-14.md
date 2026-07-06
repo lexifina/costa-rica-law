@@ -1,0 +1,2 @@
+Artículo 14.-Alcance de la suspensión. La suspensión del giro de recursos constituye una medida temporal de control sobre la ejecución de las transferencias y no exime a la Municipalidad del cumplimiento de las obligaciones legales de asignación presupuestaria.
+Una vez subsanados los incumplimientos que dieron origen a la suspensión, se podrá reanudar el giro de los recursos, previo cumplimiento de los requisitos establecidos. La Municipalidad podrá establecer medidas de seguimiento, control y fiscalización reforzada en relación con las transferencias posteriores.

@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento es aplicable a todas las transferencias de fondos que realice la Municipalidad de Mora al Comité Cantonal de Deportes y Recreación, destinadas al financiamiento de programas, proyectos y actividades deportivas y recreativas.

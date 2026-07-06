@@ -1,0 +1,2 @@
+Artículo 9º-Transferencia de fondos. Las transferencias podrán realizarse mediante transferencia bancaria, cheque u otro medio autorizado, garantizando en todo momento la seguridad, trazabilidad y control de los recursos públicos.
+El giro se efectuará dentro de un plazo máximo de cinco días hábiles posteriores al cierre presupuestario mensual, con base en la fecha de presentación a la Contraloría General de la República.
