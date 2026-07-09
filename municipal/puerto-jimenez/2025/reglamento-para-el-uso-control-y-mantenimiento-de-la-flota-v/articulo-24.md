@@ -1,0 +1,1 @@
+Artículo 24: Optimización de Recursos. Para maximizar el aprovechamiento de la flota, se deberán agrupar personas o materiales en un solo viaje y consolidar múltiples solicitudes de transporte hacia el mismo destino o ruta, siempre que sea factible. Esto requiere una coordinación oportuna con los interesados para optimizar los traslados.

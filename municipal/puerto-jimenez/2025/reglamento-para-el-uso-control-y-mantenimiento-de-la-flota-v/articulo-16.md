@@ -1,0 +1,1 @@
+Artículo 16: Custodia Vehicular. Los conductores son directamente responsables de la custodia y limpieza de los vehículos municipales asignados durante el periodo de uso. Esto incluye el lavado de la cabina, cajas recolectoras, baldes y bateas, asegurando la entrega del vehículo en condiciones óptimas.

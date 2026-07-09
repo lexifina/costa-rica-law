@@ -1,0 +1,4 @@
+CAPÍTULO lX
+Custodia y Control de la Flota Vehicular Fuera de Horario Laboral
+Artículo 51: Custodia de Llaves y Responsabilidad del Guarda. Las llaves de los vehículos municipales deben permanecer bajo la custodia del guarda de turno en el edificio municipal y plantel municipal. El guarda será responsable de cualquier daño ocurrido mientras las llaves estén bajo su cargo. Durante horas no laborables, el guarda registrará en el libro de guardia la hora de entrada y salida de los vehículos, y solicitará al conductor que registre su nombre y firma. De igual forma, en la jornada ordinaria, se registrará el equipo entregado tras la gestión diaria, con observaciones sobre su estado.
+Excepcionalmente, con autorización previa de la Alcaldía Municipal, un vehículo podrá pernoctar fuera de las instalaciones municipales en un parqueo público o sitio seguro, responsabilidad que recaerá en el encargado de la unidad administrativa a la que el vehículo esté asignado.

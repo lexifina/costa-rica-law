@@ -1,0 +1,1 @@
+Artículo 39: Los conductores no están autorizados a efectuar arreglos extrajudiciales; deben dirigir a los particulares a la dependencia municipal encargada, quien, en coordinación con la Unida Jurídica, gestionará lo pertinente.

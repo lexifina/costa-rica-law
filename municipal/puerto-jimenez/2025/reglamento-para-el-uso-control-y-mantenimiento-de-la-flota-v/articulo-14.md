@@ -1,0 +1,1 @@
+Artículo 14: Abastecimiento y Control de Consumo: Se implementará un control de consumo de combustible por vehículo, con base en el rendimiento de kilómetros por galón. El abastecimiento de accesorios, repuestos, combustibles y lubricantes se gestionará mediante el formulario "orden de provisión", entregado a los responsables del suministro.

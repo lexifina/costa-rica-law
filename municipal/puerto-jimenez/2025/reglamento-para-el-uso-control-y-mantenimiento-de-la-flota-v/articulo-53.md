@@ -1,0 +1,1 @@
+Artículo 53: Registro y Reporte de Guardas. Los guardas municipales deben documentar en sus bitácoras de trabajo el estado de los vehículos antes y después de cada servicio, incluyendo todos los datos necesarios para un control adecuado. Cualquier anomalía detectada deberá ser informado a la Alcaldía municipal y Jefatura de la Unidad Administrativa.

@@ -1,0 +1,1 @@
+Artículo 48: El conductor que con conocimiento de un daño causado al vehículo y lo oculte, asumirá la responsabilidad legal que por ello pueda imputársele. El conductor o funcionario será responsable por daños al vehículo ocasionados con dolo, falta de deber de cuidado, cuando sea evidente y manifiesto que fue ocasionado durante su uso y custodia.

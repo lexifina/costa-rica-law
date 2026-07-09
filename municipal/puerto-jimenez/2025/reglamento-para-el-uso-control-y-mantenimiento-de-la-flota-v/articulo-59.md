@@ -1,0 +1,1 @@
+Artículo 59: La aplicación de este Reglamento es de responsabilidad de la Alcaldía Municipal y Jefaturas de las Unidades Administrativas y los responsables del bien donde se encuentren asignados los vehículos y equipos municipales.

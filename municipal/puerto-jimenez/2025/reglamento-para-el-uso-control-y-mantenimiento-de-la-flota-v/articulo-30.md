@@ -1,0 +1,1 @@
+Artículo 30. Conducción en Condiciones Adversas. Ante condiciones operativas difíciles (ej. carreteras en mal estado, clima adverso, difícil acceso), los conductores deben actuar con extrema prudencia y diligencia, evitando la temeridad para prevenir pérdidas humanas y materiales.

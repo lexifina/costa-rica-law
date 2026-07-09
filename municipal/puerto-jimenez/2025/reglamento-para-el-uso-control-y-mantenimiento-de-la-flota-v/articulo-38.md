@@ -1,0 +1,1 @@
+Artículo 38: Cancelación de permiso: La Alcaldía Municipal cancelará, en forma inmediata e indefinida, el permiso interno para conducir vehículos de la institución a aquellos funcionarios que, por dolo o culpa, ocasionen un accidente de tránsito grave.

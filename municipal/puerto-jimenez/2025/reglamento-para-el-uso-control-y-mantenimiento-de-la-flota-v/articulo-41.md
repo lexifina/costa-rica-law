@@ -1,0 +1,1 @@
+Artículo 41: Finalmente, la Jefatura encargada del equipo automotor analizará todos los accidentes y, si es necesario, remitirá la documentación a la Alcaldía Municipal para el proceso disciplinario correspondiente.

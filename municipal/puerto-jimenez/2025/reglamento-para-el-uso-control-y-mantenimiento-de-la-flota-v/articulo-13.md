@@ -1,0 +1,1 @@
+Artículo 13: Informes Diarios de Conductores: Los conductores deben presentar informes diarios detallando actividades, kilometraje, fallas detectadas, consumo de combustible (inicio y fin de viaje), nombres de acompañantes, y cualquier otro dato requerido para el control de las giras de trabajo.

@@ -1,0 +1,1 @@
+Artículo 12: Control de Flota: La Auditoría Interna o la Alcaldía Municipal (mediante delegación) supervisará los vehículos municipales durante todo el año, a través de operativos programados, sorpresivos y aleatorios, según sea necesario.

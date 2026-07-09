@@ -1,0 +1,1 @@
+Artículo 21: Requisitos Administrativos para Circulación. Para que un vehículo municipal circule, es imprescindible que esté rotulado con el nombre institucional, cuente con pólizas de seguro (obligatoria y voluntaria), esté debidamente registrado como activo en el Unidad de Contabilidad y posea una placa especial oficial permanente en la ubicación reglamentaria.

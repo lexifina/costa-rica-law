@@ -1,0 +1,1 @@
+Artículo 33: Con el propósito de que los vehículos de la Municipalidad circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, se prohíbe colocar adornos, tanto en el interior como en el exterior de los mismos o mantener objetos en el panel de instrumentos. Queda igualmente prohibido el uso de accesorios o extras de cualquier índole.

@@ -1,0 +1,5 @@
+Artículo 29. Cobertura y Responsabilidad del Conductor. La Municipalidad otorga a los conductores: a) Riesgos del Trabajo: Amparo bajo la póliza de seguro de riesgos del trabajo.
+b) Deducibles: La Municipalidad asumirá los deducibles al Instituto Nacional de Seguros por accidentes sin negligencia, imprudencia o responsabilidad comprobada del chofer, según sentencia judicial o resolución municipal.
+c) Responsabilidad por Negligencia: En casos de descuido o imprudencia comprobada del trabajador, este será responsable del deducible, y la Municipalidad podrá aplicar sanciones disciplinarias y deducciones salariales conforme a la Convención Colectiva y la situación económica del trabajador.
+d) Proceso Penal: Si los conductores o funcionarios autorizados son sujetos a prisión preventiva o proceso penal por accidentes de tránsito, se debe informar inmediatamente a la Alcaldía Municipal para las acciones correspondientes.
+e) Cobertura de Vehículos: Las unidades automotrices municipales contarán con coberturas de seguro apropiadas para las gestiones que realizan.

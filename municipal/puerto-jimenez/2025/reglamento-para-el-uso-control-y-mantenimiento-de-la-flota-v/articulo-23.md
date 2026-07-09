@@ -1,0 +1,1 @@
+Artículo 23: Prioridad de Parqueo y Restricción de Resguardo. Los vehículos municipales gozan de prioridad de parqueo en las instalaciones de la Municipalidad sobre vehículos de propiedad personal de los empleados. Bajo ninguna circunstancia un vehículo municipal podrá ser resguardado en casas de habitación de funcionarios o particulares.

@@ -1,0 +1,1 @@
+Artículo 54: Autorización para Entregas Fuera de Horario. Los guardas municipales o a quien se asignen, no deben entregar ningún vehículo en horas no hábiles a funcionarios municipales sin la autorización explícita de la Alcaldía Municipal. Esta autorización debe ser registrada en la bitácora de trabajo del guarda o a quien se asignen.

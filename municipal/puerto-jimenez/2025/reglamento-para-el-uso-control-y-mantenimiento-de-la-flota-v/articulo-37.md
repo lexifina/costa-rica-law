@@ -1,0 +1,1 @@
+Artículo 37: Análisis y Acciones Post-Accidente. La Unidad Jurídica municipal analizará todo accidente, robo, hurto o percance con vehículos municipales, y remitirá un informe preliminar con recomendación a la Alcaldía Municipal en un máximo de cinco días hábiles para la toma de decisiones, respetando el debido proceso.

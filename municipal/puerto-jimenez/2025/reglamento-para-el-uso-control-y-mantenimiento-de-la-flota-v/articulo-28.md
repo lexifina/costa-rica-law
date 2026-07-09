@@ -1,0 +1,1 @@
+Artículo 28. Prohibición de Cesión de Conducción. Está estrictamente prohibido ceder la conducción del vehículo municipal a personas no autorizadas, salvo por razones muy justificadas que deben ser comunicadas al superior jerárquico de inmediato.

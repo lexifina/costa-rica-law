@@ -1,0 +1,2 @@
+CAPÍTULO VI. De los Conductores de Vehículos de la Municipalidad
+Artículo 27. Requisitos y Autorización para Conducir. Solo empleados municipales contratados como choferes o aquellos con autorización expresa del Alcalde pueden conducir vehículos municipales. Es indispensable poseer una licencia de conducir vigente para el tipo de vehículo y contar con un mínimo de tres años de experiencia que califique para el equipo asignado.

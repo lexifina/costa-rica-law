@@ -1,0 +1,1 @@
+Artículo 18: Pago por Mantenimiento. Todos los pagos por servicios de mantenimiento preventivo y correctivo de los vehículos municipales deben procesarse de acuerdo con la normativa vigente de la Municipalidad.
