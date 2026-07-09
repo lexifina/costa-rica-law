@@ -1,0 +1,1 @@
+Artículo 4°-Concordancia. El presente Reglamento debe interpretarse y aplicarse en concordancia con el Código Municipal, Reglamento Autónomo de Servicios de la Municipalidad de Quepos, el Reglamento del Proceso de Seguridad Ciudadana, el Instructivo para el cumplimiento de las funciones del área de Seguridad Cantonal, así como los principios que rigen el servicio público.
