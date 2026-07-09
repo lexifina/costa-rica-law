@@ -1,0 +1,1 @@
+Artículo 12.-Aprobación de acuerdos de la Comisión. La Comisión tomará sus decisiones por mayoría simple, el Coordinador podrá ejercer su derecho de doble voto en caso de empate. El quórum mínimo para sesionar será cuatro miembros.

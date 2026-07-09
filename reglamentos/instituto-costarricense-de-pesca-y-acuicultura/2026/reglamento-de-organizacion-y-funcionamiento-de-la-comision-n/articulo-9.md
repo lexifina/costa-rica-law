@@ -1,0 +1,2 @@
+Artículo 9º-Conflicto de interés. En caso de que la Comisión conozca un asunto en el que alguno de sus miembros tenga algún interés directo, éste no deberá de participar en la discusión y resolución de dicho asunto, para lo cual deberá así manifestarlo y dejarlo consignado en el acta correspondiente.
+En aquellos casos en que un miembro de la Comisión, existiendo conflicto de intereses debidamente demostrado, participe de la discusión y definición de un tema en específico, será causal de destitución, de conformidad con lo establecido en el Artículo 8 del presente Reglamento.

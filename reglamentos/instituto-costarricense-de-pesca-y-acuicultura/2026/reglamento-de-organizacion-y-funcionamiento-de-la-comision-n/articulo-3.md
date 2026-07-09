@@ -1,0 +1,3 @@
+Artículo 3º-De la Vigencia y Plazo del Nombramiento. En la primera quincena del mes de junio del año en el cual se instale la nueva Junta Directiva del INCOPESCA, de las ternas indicadas en el artículo anterior, la Junta Directiva procederá a nombrar los miembros de la Comisión Nacional Consultiva de Pesca y Acuicultura.
+El plazo de vigencia de los nombramientos realizados por la Junta Directiva será por un período de cuatro años, contados a partir del 01 de julio del año de su nombramiento hasta el 30 de junio del año de cumplimiento final del plazo.
+Para tales efectos el miembro representante de la CNCPA ante la Junta Directiva, podrá nombrarse hasta por 2 periodos de forma consecutiva y hasta por un plazo de 8 años.

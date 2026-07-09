@@ -1,0 +1,1 @@
+Artículo 11.-Solicitud de criterio a miembros externos a la Comisión. La Comisión podrá invitar, cuando estime pertinente, a uno o varios especialistas a sesiones ordinarias o extraordinarias para que emitan criterio técnico con respecto a un tema específico. Estos especialistas podrán ser públicos o privados, investigadores o académicos.

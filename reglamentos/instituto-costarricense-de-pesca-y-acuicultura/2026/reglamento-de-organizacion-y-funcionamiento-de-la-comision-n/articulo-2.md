@@ -1,0 +1,1 @@
+Artículo 2º-Del Nombramiento. En la primera quincena del mes de mayo del año en el cual se instale la nueva Junta Directiva del INCOPESCA, los sectores pesquero e industrial, así como la Junta Directiva del Colegio de Biólogos, remitirán las respectivas ternas de sus organizaciones para el nombramiento de sus representantes por parte de la Junta Directiva del INCOPESCA.
