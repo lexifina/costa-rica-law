@@ -1,0 +1,2 @@
+Artículo 12. De la Coordinación de Acciones. - La CSO coordinará con el Departamento de Desarrollo de Talento Humano, la SOGARS y demás instancias requeridas, la implementación efectiva de políticas preventivas y correctivas de salud ocupacional.
+En aquellos casos en que así se requiera, la CSO coordinará con la Gerencia General y la Brigada de Emergencias Institucional las acciones que se requieran para el cumplimiento de sus fines y objetivos.

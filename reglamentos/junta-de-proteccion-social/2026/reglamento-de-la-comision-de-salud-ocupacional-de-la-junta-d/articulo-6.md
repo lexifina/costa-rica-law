@@ -1,0 +1,1 @@
+Artículo 6º-De la designación de cargos. - Los representantes de la parte patronal y los representantes de los trabajadores nombrados en la CSO, deberán elegir de entre ellos mismos una persona coordinadora y una persona secretaria.

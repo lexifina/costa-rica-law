@@ -1,0 +1,2 @@
+Artículo 5.-De la designación de representantes. - La Junta Directiva de la JPS deberá designar a los representantes patronales conforme las disposiciones del artículo 5 del Código de Trabajo, así como sustituir a aquellos representantes que dejen de formar parte de la comisión.
+La designación de los representantes de los trabajadores se realizará por medio de elección en la que la totalidad funcionarios podrá votar por las personas que se hayan postulado para formar parte, resultando electas aquellas que obtengan el mayor número de votos.
