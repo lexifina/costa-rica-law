@@ -1,4 +1,5 @@
 CIRCULAR No. 297-2023
+(Nota de Sinalevi: Mediante circular N° 124-2026 del 9 de julio de 2026, y publicada en el Boletín Judicial N° 130 del 14 de julio de 2026, se acordó mantener vigente la presente norma.)
 Asunto: Gestión del personal meritorio en el Poder Judicial.
 A TODOS LOS SERVIDORES, SERVIDORAS, DESPACHOS JUDICIALES DEL PAÍS Y PÚBLICO EN GENERAL.
 SE LES HACE SABER QUE:

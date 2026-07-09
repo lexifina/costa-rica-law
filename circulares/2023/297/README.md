@@ -13,3 +13,4 @@ Gestión del personal meritorio en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-08 | la propia norma |
+| 2 | 2026-07-09 | Circular 124 (2026-07-09) |
