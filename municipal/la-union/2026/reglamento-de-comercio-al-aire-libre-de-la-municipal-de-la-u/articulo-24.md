@@ -1,0 +1,2 @@
+Artículo 24. Consumo de bebidas con contenido alcohólico en Zonas CAL
+En caso de establecimientos comerciales que cuenten con Licencia de licores, se puede extender el consumo de bebidas con contenido alcohólico en la Zona CAL. En todo caso, dicho consumo debe realizarse dentro de los horarios establecidos en la Ley de regulación y comercialización de bebidas con contenido alcohólico N° 9047, así como la normativa vigente. En ningún caso el consumo puede realizarse fuera de los límites de la Zona CAL, y el comercio debe rotular de manera visible dicha restricción.

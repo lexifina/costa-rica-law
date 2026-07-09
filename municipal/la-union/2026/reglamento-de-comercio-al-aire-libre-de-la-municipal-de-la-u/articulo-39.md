@@ -1,0 +1,3 @@
+Artículo 39.Ubicación y distribución del mobiliario liviano
+En todo caso, el mobiliario liviano debe ubicarse dentro de los límites de la Zona CAL autorizada. Además, debe distribuirse según la configuración aprobada en la resolución de Autorización CAL emitida por la Municipalidad.
+En todo caso debe cumplir con lo establecido en la Ley 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, Ley 9976, Ley de Movilidad Peatonal, de 09 de mayo de 2021, Ley 9660, Ley de Movilidad y Seguridad Ciclística, de 24 de octubre de 2019 y sus respectivos reglamentos municipales.

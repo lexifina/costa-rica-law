@@ -1,0 +1,5 @@
+Capítulo II: Sobre la 'Autorización de comercio al aire libre'
+Artículo 5.Autorización de comercio al aire libre (CAL)
+La Municipalidad puede autorizar a las 'personas licenciatarias de la actividad de comercialización de alimentos y bebidas' a utilizar, de forma temporal, un área determinada en el espacio público, denominada "Zona CAL" así como a colocar mobiliario liviano en dicha área.
+Para ello, las 'personas licenciatarias de la actividad de comercialización de alimentos y bebidas' pueden solicitar a la Municipalidad la Autorización CAL, la cual será otorgada siempre que se cumpla con los requisitos, procedimientos y lineamientos que se regulan en el presente reglamento.
+La mera concurrencia de los requisitos necesarios para obtener la Autorización CAL no otorga derecho alguno para hacer uso del espacio público para comercio al aire libre. En todo caso se debe realizar el trámite Autorización CAL ante la Municipalidad previo a utilizar el espacio público para comercio al aire libre.

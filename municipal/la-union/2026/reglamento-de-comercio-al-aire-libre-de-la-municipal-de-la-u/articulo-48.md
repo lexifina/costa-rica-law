@@ -1,0 +1,2 @@
+Artículo 48.Canon de Autorización CAL por motivo de romería
+La Municipalidad, mediante el Departamento de Patentes, determina el monto a pagar por concepto de Autorización CAL para cada Zona CAL por motivo de celebración de la romería. Dicho monto corresponde al 50% del monto por concepto de Licencia comercial dividido entre doce. Dicho pago debe realizarse de manera anticipada, en una única cuota.

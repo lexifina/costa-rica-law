@@ -1,0 +1,2 @@
+Artículo 45.Uso de elementos de iluminación en Zonas CAL
+Toda persona titular de la Autorización de la actividad de comercialización de alimentos y bebidas' que cuente con una Autorización CAL puede iluminar la Zona CAL, así como el espacio público inmediato. Para ello puede colocar luminarias y cableado debidamente instalado, y cumplir con los lineamientos de la Guía de Diseño Urbano, en caso de no encontrarse el detalle en la guía, se analizará por el técnico de la DIDECU su compatibilidad con la Zona CAL.

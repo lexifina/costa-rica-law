@@ -1,0 +1,4 @@
+Artículo 21.Aclaración o subsanación de la solicitud
+En caso de que a partir de la verificación se requiera alguna aclaración o subsanación, la Municipalidad notificará a la persona solicitante, en el medio señalado para dicho fin.
+Con el fin de continuar con el trámite, la persona solicitante puede aclarar o subsanar lo solicitado, en un plazo de diez días hábiles a partir de la recepción de la notificación por parte de la Municipalidad. En caso de no aclarar o subsanar lo solicitado se tendrá por desistida y se archivará la petición.
+En caso de realizar la aclaración o subsanación de manera incorrecta, puede aclarar o subsanar lo solicitado, en un plazo de diez días hábiles a partir de la recepción de la notificación por parte de la Municipalidad. En caso de no aclarar o subsanar lo solicitado se tendrá por desistida y se archivará la petición.
