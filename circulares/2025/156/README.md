@@ -13,3 +13,4 @@ Actualización del "Listado de circulares emitidas por el Poder Judicial relacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-07 | la propia norma |
+| 2 | 2026-07-10 | Circular 122 (2026-07-10) |

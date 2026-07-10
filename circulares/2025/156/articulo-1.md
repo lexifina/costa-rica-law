@@ -1,4 +1,5 @@
 CIRCULAR N° 156-2025
+(Esta circular fue derogada mediante circular N° 122-2026 del 10 de julio del 2026)
 Asunto: Actualización del "Listado de circulares emitidas por el Poder Judicial relacionadas con las poblaciones en condición de vulnerabilidad. Versión 5."
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
