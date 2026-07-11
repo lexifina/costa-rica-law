@@ -1,0 +1,1 @@
+Artículo 13.-Vigencia. El presente reglamento sólo será aplicable a los servidores interinos o en propiedad cubiertos por el régimen de disponibilidad. Y en cumplimiento del artículo 43, del Código Municipal entrará en vigencia a los cinco días de su publicación.

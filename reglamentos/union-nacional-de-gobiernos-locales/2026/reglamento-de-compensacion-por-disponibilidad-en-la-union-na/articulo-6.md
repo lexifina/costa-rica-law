@@ -1,0 +1,1 @@
+Artículo 6°-El período de disponibilidad no deberá ser menor a un mes ni mayor a cinco años para salarios compuestos, se registrará mediante firma contractual. Sin embargo, podrá renovarse conforme a los requerimientos, aplicación de normativa vigente y necesidades institucionales.
