@@ -14,3 +14,4 @@ Reforma Declara estado de emergencia nacional por la situación provocada por lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-09 | la propia norma |
+| 2 | 2026-07-14 | Decreto Ejecutivo 45877 (2026-07-14) |
