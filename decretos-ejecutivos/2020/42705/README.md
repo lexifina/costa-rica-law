@@ -15,3 +15,4 @@ Declara estado de emergencia nacional por la situación provocada por los efecto
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
 | 2 | 2021-02-23 | Decreto Ejecutivo 42875 (2021-02-23) |
+| 3 | 2026-07-14 | Decreto Ejecutivo 45877 (2026-07-14) |
