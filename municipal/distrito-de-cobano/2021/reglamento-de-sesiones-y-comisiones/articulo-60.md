@@ -1,1 +1,1 @@
-Artículo 60.-Toda correspondencia que se reciba por parte de la secretaría, procedente de particulares o de funcionarios, deberá recibirse en un plazo no menor de veinticuatro horas antes del inicio de la sesión en que deberá conocerse.
+Artículo 60.-Toda correspondencia que se reciba por parte de la secretaría, procedente de particulares o de funcionarios, deberá recibirse en un plazo no menor de cuarenta y ocho horas contados del día hábil antes del inicio de la sesión en que deberá conocerse.

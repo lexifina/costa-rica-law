@@ -1,1 +1,1 @@
-Artículo 34.-El presidente del Concejo, o quien él designe llevará el control del tiempo autorizado en cada situación, y cuando se haya vencido, se lo hará saber al Presidente, quien le indicará al exponente que el tiempo ha llegado a su fin.
+Artículo 34.-El presidente del Concejo, o quien él designe llevará el control del tiempo autorizado en cada situación, y cuando se haya vencido, se lo hará saber al presidente, quien le indicará al exponente que el tiempo ha llegado a su fin.

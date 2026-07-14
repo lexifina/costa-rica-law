@@ -14,3 +14,4 @@ Reglamento de sesiones y comisiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-19 | la propia norma |
+| 2 | 2026-07-14 | Reglamento municipal 115 (2026-07-14) |

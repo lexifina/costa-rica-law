@@ -8,4 +8,4 @@ ARTÍCULO VI. Dictámenes de las comisiones.
 ARTÍCULO VII. Informe de la Asesoría Legal.
 ARTÍCULO VIII. Asuntos e informes de la intendencia y de la administración.
 ARTÍCULO IX. Lectura, examen y tramitación de la correspondencia.
-ARTÍCULO X. Informe de los Concejales.
+ARTÍCULO X. Informe de los concejales.

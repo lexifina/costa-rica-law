@@ -9,6 +9,6 @@ Los concejos podrán acogerse a los reglamentos de la municipalidad, o bien, dic
 III.-Que la potestad reglamentaria de las municipalidades y de los Concejos Municipales de Distrito de aprobar reglamentos corresponde a los Concejos Municipales. Por tanto,
 Este Concejo Municipal en ejercicio que le confiere la legislación antes indicada, acuerda someter a consulta pública no vinculante, por espacio de diez días el Proyecto de Reglamento de Sesiones y comisiones del Concejo Municipal de Distrito de Cóbano.
 El presente reglamento está fundamentado en los artículos 169, 170 y 172 de la Constitución Política, 11, inciso 2), 12, 13, 50, 56, 57 y 136 inciso e) de la Ley General de la Administración Pública; 4° inciso a), 13 inciso c), y 50 del Código Municipal, 1° y 3° de la Ley General de Concejos Municipales de Distrito N° 8173 bajo los siguientes términos.
-CAPÍTULO I
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria 115-26 del 14 de julio del 2026, publicado en el Alcance Digital N° 107 a La Gaceta N° 154 del 17 de agosto del 2026)
 Disposiciones generales
 Artículo 1º-Este reglamento regulará la organización y funcionamiento de las sesiones del Concejo Municipal y de sus Comisiones.

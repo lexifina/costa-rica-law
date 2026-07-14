@@ -1,1 +1,1 @@
-Artículo 62.-Las mociones y proposiciones deberán ser interpuestas por un Concejal propietario, el Intendente o acogidas por un Concejal propietario cuando la misma provenga de una persona ajena al Concejo.
+Artículo 62.-Las mociones y proposiciones deberán ser interpuestas por un concejal propietario, el Intendente o acogidas por un concejal propietario cuando la misma provenga de una persona ajena al Concejo.

@@ -1,1 +1,1 @@
-Artículo 19.-Podrá modificarse o alterarse el orden del día, mediante acuerdo aprobado por dos terceras partes de los miembros presentes, salvo el caso de las sesiones extraordinarias que deberán votar todos los Concejales propietarios presentes.
+Artículo 19.-Podrá modificarse o alterarse el orden del día, mediante acuerdo aprobado por dos terceras partes de los miembros presentes, salvo el caso de las sesiones extraordinarias que deberán votar todos los concejales propietarios presentes.

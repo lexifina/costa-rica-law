@@ -1,1 +1,1 @@
-Artículo 41.-Tal como lo dispone la ley todo acuerdo que tome el Concejo por iniciativa de alguno de los Concejales o del Intendente municipal se tomará previa moción o proyecto escrito, firmado por el proponente.
+Artículo 41.-Tal como lo dispone la ley todo acuerdo que tome el Concejo por iniciativa de alguno de los concejales o del Intendente municipal se tomará previa moción o proyecto escrito, firmado por el proponente.
