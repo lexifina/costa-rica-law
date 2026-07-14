@@ -1,1 +1,0 @@
-Artículo 26º—Funciones y deberes del fiscal. Son funciones y deberes del fiscal asistir obligatoriamente a las sesiones de la JDCCDR con voz pero sin voto. Presentar al Concejo Municipal un informe de labores del año inmediato anterior a más tardar el 31 de enero de cada año. Además, deberá rendir los informes que estime convenientes la JDCCDR y el Concejo Municipal.

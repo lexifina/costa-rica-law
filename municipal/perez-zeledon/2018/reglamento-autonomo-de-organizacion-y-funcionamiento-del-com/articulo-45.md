@@ -1,1 +1,0 @@
-Artículo 45º—Entrega de las actas. La información del acta de cada sesión y la copia de la correspondencia recibida y enviada, así como los documentos que van a ser analizados en la misma, deberán entregarse a los miembros de JDCCDR, a más tardar el inicio de la sesión en que serán discutidos y aprobados.

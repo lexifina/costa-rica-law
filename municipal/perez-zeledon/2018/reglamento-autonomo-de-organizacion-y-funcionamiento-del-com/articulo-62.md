@@ -1,1 +1,0 @@
-Artículo 62º—De integración de la asamblea. En la Asamblea participará un miembro de los comités comunales, válidamente constituidos según el artículo 50 de este Reglamento, asimismo, un delegado por cada organización deportiva o recreativa.

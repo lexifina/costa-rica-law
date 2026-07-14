@@ -1,5 +1,0 @@
-Artículo 56º— Mantenimiento de muebles e inmuebles. El CCDR y sus órganos podrán tener bajo su mantenimiento a muebles e inmuebles municipales o estatales, pero se regirán por las siguientes normas generales, sin perjuicio de condiciones específicas que les sean impuestas al momento de suscribir convenios o contratos con la Municipalidad o el Estado:
-a) Sólo podrán invertir sus recursos económicos y materiales en terrenos y propiedades deportivas y recreativas que sean objeto de uso público.
-b) No podrán enajenar, vender, ceder, arrendar o en cualquier forma gravar los inmuebles o muebles que se les haya dado en administración.
-c) Deberán firmar convenios institucionales que conlleven al objetivo de darle adecuado uso a las instalaciones deportivas, previo refrendo de la Municipalidad.
-d) Deberán tomarse las previsiones para que en estas instalaciones deportivas tengan acceso preferente y adecuado los niños, los adultos mayores, las personas con discapacidades físicas y mentales y las mujeres en estado de embarazo.

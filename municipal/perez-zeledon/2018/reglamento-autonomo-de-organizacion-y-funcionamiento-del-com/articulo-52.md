@@ -1,1 +1,0 @@
-Artículo 52º—Elaboración del presupuesto. El presupuesto del CCDR y sus distintos órganos, debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que este cubre y deberá diseñarse cumpliendo fielmente las normas y directrices que para este efecto emita la Contraloría General de la República y las demás normas atinentes a la materia.

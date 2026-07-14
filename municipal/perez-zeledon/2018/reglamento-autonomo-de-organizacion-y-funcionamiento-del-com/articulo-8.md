@@ -1,1 +1,0 @@
-Artículo 8º—Inhibición para ocupar puestos. Están inhibidos para integrar el CCDR y comités comunales de deportes; además de lo dispuesto en el numeral 176 del Código Municipal, el personal de confianza, la secretaria municipal, los abogados municipales y sus cónyuges, parientes, en línea directa o colateral hasta el tercer grado inclusive.

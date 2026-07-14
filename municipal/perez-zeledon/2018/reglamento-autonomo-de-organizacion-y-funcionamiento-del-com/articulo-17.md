@@ -1,1 +1,0 @@
-Artículo 17º—Cargo ad honorem. Los miembros de la JDCCDR no devengarán dieta ni remuneración alguna; no obstante, para el ejercicio de las actividades del CCDR se podrán autorizar viáticos, los cuales deberán cumplir las disposiciones en cuanto a la normativa de viáticos vigente.

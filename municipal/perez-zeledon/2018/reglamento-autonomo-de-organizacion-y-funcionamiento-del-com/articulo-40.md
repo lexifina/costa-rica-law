@@ -1,1 +1,0 @@
-Artículo 40º —Impugnación de acuerdos. Contra los acuerdos de la JDCCDR, salvo los que se indican en el artículo siguiente, podrán plantearse los recursos del Código Municipal en sus numerales 165 y 166, con sus respectivos plazos y condiciones de cada uno de los recursos.

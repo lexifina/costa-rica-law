@@ -1,1 +1,0 @@
-Transitorio II.— Deberá la JDCCDR dentro de los seis meses siguientes a la entrada en vigencia del presente instrumento normativo, regular a través de reglamentos internos los diferentes procedimientos y servicios que brinde dicho órgano.

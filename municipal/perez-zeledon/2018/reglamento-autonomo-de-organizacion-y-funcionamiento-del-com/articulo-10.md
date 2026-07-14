@@ -1,2 +1,0 @@
-CAPÍTULO III De la Junta Directiva
-Artículo 10º—De la Junta Directiva. La JDCCDR, es la máxima autoridad de este organismo y es la encargada de su gobierno y dirección, en apego al plan anual a que se refiere el artículo anterior, al Reglamento dictado por el Concejo, y las normas para regular el funcionamiento de los Comités Comunales y las instalaciones deportivas que se dicten a lo interno o externo de la institución municipal y que sean vinculantes para este órgano.

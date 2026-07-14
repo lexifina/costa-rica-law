@@ -1,1 +1,0 @@
-Artículo 77º—Criterios para resolver. Todos aquellos aspectos no regulados en este Reglamento, serán resueltos por la JDCCDR, de conformidad con el ordenamiento jurídico vigente y con las reglas de la sana crítica, no obstante, la resolución que se dicte en tales casos, deberá ser aprobada por el Concejo Municipal, para su debida incorporación al Reglamento.

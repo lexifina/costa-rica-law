@@ -1,1 +1,0 @@
-Artículo 55º—Custodia de valores y patrimonio. En la custodia de valores y patrimonio los miembros del CCDR, deberán asegurar su buen uso, mantener un correcto inventario y procurar su seguridad e integridad, asimismo, quien tenga a cargo bienes de este tipo bajo su custodia, deberá suscribir una póliza de fidelidad.
