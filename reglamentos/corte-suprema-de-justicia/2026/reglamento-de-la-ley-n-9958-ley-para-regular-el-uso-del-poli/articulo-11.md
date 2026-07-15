@@ -1,0 +1,4 @@
+Artículo 11.- Unidad de Poligrafía del Organismo de Investigación Judicial.
+El Organismo de Investigación Judicial creará una unidad de poligrafistas adscrita a la Unidad de Potencial Interno de la Administración del OIJ, que contará con una jefatura que se encargará de su coordinación y supervisión. Las personas poligrafistas que la integren deberán contar con la respectiva acreditación para la aplicación de las pruebas.
+Los equipos de trabajo deberán velar por servir como testigos de actuación o suplir este requisito.
+Esta unidad también estará a cargo de la elaboración de toda la documentación necesaria para llevar a cabo las pruebas tales como las actas de notificación, el consentimiento informado, los instructivos de operación y cualquier otro que sea necesaria para la gestión de la unidad.

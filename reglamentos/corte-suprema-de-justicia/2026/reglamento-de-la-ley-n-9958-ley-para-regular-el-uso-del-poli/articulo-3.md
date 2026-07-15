@@ -1,0 +1,9 @@
+Artículo 3.- Definiciones. Para los efectos del presente reglamento, deberán entenderse y tomarse en cuenta los siguientes términos:
+a. Polígrafo: Es un instrumento de medición utilizado para el registro de respuestas fisiológicas. Registra las variaciones de la presión arterial, el ritmo cardíaco, la frecuencia respiratoria, contracciones físicas y respuesta galvánica de la piel, que se generan ante determinadas preguntas que se realizan a la persona examinada.
+El tipo de registro que se efectúe puede variar según el avance tecnológico de los instrumentos de medición acreditados por la Asociación Americana de Poligrafistas (APA por sus siglas en inglés).
+b. Examen psicofisiológico: Se entiende por examen psicofisiológico de polígrafo, la medición de las reacciones fisiológicas del examinado que se presentan ante determinadas preguntas que se realizan para la selección del personal de las personas que están optando por un puesto o que laboran de forma activa en el Organismo de Investigación Judicial.
+El examen se realiza mediante un instrumento científico estandarizado en esta práctica, altamente sensible que medirá los cambios en la presión arterial, el ritmo cardíaco, la frecuencia respiratoria, contracciones físicas y respuesta galvánica de la piel, entre otros.
+c. Presión arterial: Es una medición de fuerza que se aplica sobre las paredes de las arterias a medida que el corazón bombea sangre a través del cuerpo. Está determinada por la fuerza y el volumen de sangre bombeada, así como por el tamaño y la flexibilidad de las arterias.
+d. Ritmo cardíaco: Es el número de latidos del corazón por unidad del tiempo.
+e. Frecuencia respiratoria: Corresponde a las veces que se respira por unidad de tiempo.
+f. Respuesta galvánica de la piel: Cambio en el calor y la electricidad que transmiten los nervios y el sudor a través de la piel.

@@ -1,0 +1,2 @@
+Artículo 20.- Responsabilidad en la calibración y verificación de los equipos por una instancia competente a nivel nacional.
+Los exámenes y pruebas psicofisiológicas que se realicen a las personas oferentes o servidoras activas en puestos adscritos a los escalafones policiales y de apoyo al escalafón policial del Organismo de Investigación Judicial deberán ajustarse a los parámetros técnicos de valoración que se establezcan por parte de las instituciones competentes por medio del LACOMET (Laboratorio Costarricense de Metrología) o sus recomendaciones.

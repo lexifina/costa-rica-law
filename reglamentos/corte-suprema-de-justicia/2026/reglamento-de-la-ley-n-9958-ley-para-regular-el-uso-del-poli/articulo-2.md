@@ -1,0 +1,4 @@
+Artículo 2.- Ámbito de aplicación.
+El presente reglamento, será de acatamiento obligatorio para las personas servidoras del Organismo de Investigación Judicial que pertenezcan a los escalafones policiales y de apoyo al escalafón policial, así como a aquellas personas que participen tanto en los procesos de selección y reclutamiento de nuevo ingreso como en los concursos internos para ocupar un cargo en propiedad o interino en los puestos adscritos a los escalafones señalados.
+Adicionalmente, será obligatoria la aplicación para las personas oferentes y que ocupen los puestos de poligrafistas.
+Los resultados derivados de la aplicación de la prueba psicofisiológica se considerarán para la toma de decisiones relacionadas con reclutamiento, nombramientos, ascensos, traslados y permanencia en el cargo de las personas que laboran en el Organismo de Investigación Judicial, asimismo, para la asignación de determinadas tareas según se requiera.

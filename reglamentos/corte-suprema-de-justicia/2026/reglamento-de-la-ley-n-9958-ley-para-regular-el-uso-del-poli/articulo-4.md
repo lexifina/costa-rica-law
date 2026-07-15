@@ -1,0 +1,3 @@
+Artículo 4.- Autorización y consentimiento
+La aplicación del examen psicofisiológico de polígrafo a las personas servidoras policiales del Organismo de Investigación Judicial, será estrictamente voluntario e informado, por lo que la persona a evaluar deberá manifestar su consentimiento expreso de forma escrita y previa a la realización de la prueba.
+El consentimiento informado deberá, como mínimo, indicar fecha, hora, nombre completo, cédula, oficina en caso de que sea una persona servidora activa y cualquier otra información que sea necesaria respecto de la prueba poligráfica. En su contenido también deberá dejarse constando la voluntariedad de la persona evaluada.
