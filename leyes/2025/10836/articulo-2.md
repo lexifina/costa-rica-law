@@ -7,3 +7,6 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 5° del decreto ejecutivo N° 45788 del 28 de abril de 2026)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45826 del 29 de mayo 2026)
 (Modificado por el artículo 2° del decreto ejecutivo N° 45826 del 29 de mayo 2026)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45843 del 16 de junio de 2026, se acordó modificar este numeral con el fin de incorporar la asignación de gasto presupuestario correspondiente a los recursos provenientes de la Ley N°. 10.951, solicitada por el Ministerio de Hacienda, según lo expuesto en los Considerandos del 7 al 13 del presente Decreto y su desglose en los niveles de programa, subprograma, partida y subpartida presupuestaria estará disponible en la página electrónica del Ministerio Hacienda en la dirección que se muestra a continuación: https://www.hacienda.go.cr/Presupuesto.html.
+El monto total de la rebaja y del aumento dispuestos en este artículo es el siguiente:
+[imagen] )
