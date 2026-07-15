@@ -1,0 +1,2 @@
+Artículo 14-De las responsabilidades por incumplimiento. De incumplirse las obligaciones establecidas en el artículo precedente, se podrían aplicar sanciones por las eventuales responsabilidades administrativas que les pueden corresponder a las personas funcionarias públicas en virtud del ordenamiento jurídico vigente.
+La Secretaría Técnica del Consejo Cantonal de Coordinación Institucional remitirá un informe a la persona jerarca de la institución respectiva, de las ausencias injustificadas del representante de esa institución.

@@ -1,0 +1,2 @@
+Artículo 12-Obligación de participar. Los integrantes estipulados en el artículo 2, tienen el deber de participar activamente del Consejo Cantonal de Coordinación Institucional y de cumplir las atribuciones enunciadas en el artículo 5 del presente Reglamento.
+De igual forma será obligatorio para los integrantes dar seguimiento y cumplimiento a las políticas y a los acuerdos adoptados en su seno, que corresponden a sus respectivas instituciones.

@@ -1,0 +1,1 @@
+Artículo 15-De cada sesión ordinaria o extraordinaria se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo según se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.

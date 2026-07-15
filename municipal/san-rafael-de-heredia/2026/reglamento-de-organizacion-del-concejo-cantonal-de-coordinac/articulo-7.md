@@ -1,0 +1,1 @@
+Artículo 7-Presupuestos Públicos. Los órganos, entes y empresas públicas podrán contemplar en sus presupuestos públicos (dentro su ámbito de competencia) recursos para coadyuvar con el funcionamiento del Consejo de Cantonal de Coordinación Institucional de San Rafael, que permitan ejecutar los planes, programas y proyectos.

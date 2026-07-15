@@ -1,0 +1,1 @@
+Artículo 13-Sobre las ausencias a las sesiones de trabajo. Cuando una persona integrante del Consejo Cantonal de Coordinación Institucional de San Rafael no pueda asistir a una reunión de trabajo, deberá justificar previamente esa circunstancia mediante oficio con tres días hábiles.

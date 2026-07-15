@@ -1,0 +1,3 @@
+Artículo 8-Secretaría Técnica del Consejo Cantonal de Coordinación Institucional de San Rafael. La Municipalidad designara la Secretaría Técnica del Consejo Cantonal de Coordinación Institucional de San Rafael, conformada por un titular subordinado de la alcaldía.
+Deberá existir una persona designada a lo interno de la Municipalidad que brinde seguimiento y colabore con la logística del CCCI.
+Los órganos, entes y empresas públicas, dentro de sus posibilidades y competencias, y sin perjuicio del cumplimiento de sus deberes, podrán facilitar recursos técnicos, humanos o financieros para el funcionamiento de la Secretaría Técnica.
