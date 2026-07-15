@@ -16,3 +16,4 @@ Reglamento Técnico "Prestación del suministro de los Servicios de Acueducto, A
 | 1 | 2024-04-17 | la propia norma |
 | 2 | 2024-07-12 | Resolución 78 (2024-07-12) |
 | 3 | 2025-07-04 | Resolución 85 (2025-07-04) |
+| 4 | 2026-07-15 | Resolución 53 (2026-07-15) |
