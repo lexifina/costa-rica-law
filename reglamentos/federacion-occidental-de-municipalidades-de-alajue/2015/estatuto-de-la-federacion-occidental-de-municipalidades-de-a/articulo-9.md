@@ -8,8 +8,8 @@ De los Órganos de Gobierno:
 2. El Consejo Directivo.
 Del Órgano Fiscalizador:
 1. Órgano Fiscalizador.
+Del Órgano Consultivo
+1. De las Comisiones
 Del Órgano de Gestión y Administración:
 1. La Dirección Ejecutiva.
 2. Estructura básica de Gestión.
-Del Órgano Consultivo
-a) De las Comisiones

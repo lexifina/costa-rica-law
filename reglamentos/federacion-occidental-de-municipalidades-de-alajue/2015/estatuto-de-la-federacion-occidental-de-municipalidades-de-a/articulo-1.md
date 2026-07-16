@@ -9,7 +9,7 @@ Considerando
 - Que las municipalidades podrán pactar entre sí convenios cuyo objeto sea facilitar y posibilitar el cumplimiento de sus objetivos o su administración, a fin de lograr una mayor eficacia y eficiencia en sus acciones.
 - Que los Concejos Municipales están conscientes de la necesidad de establecer áreas de cooperación y de trabajo común, que contribuyen a la planificación local y regional, así como a la eficacia y mejor aprovechamiento de sus recursos.
 - Que las municipalidades podrán integrarse en federaciones y confederaciones a fin de aunar esfuerzos, conseguir una mejor dotación humana, técnica y material, mejorar los servicios, liderar la vida política local y optimizar recursos, entre otros.
-(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria Nº01-2025 del 11 de julio del 2025, y publicada en el Alcance Digital N° 102 a La Gaceta N° 149 del 12 de agosto del 2025, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria Nº 01-2026 del 16 de julio del 2026, y publicada en el Alcance Digital N° 109 a La Gaceta N° 159 del 21 de agosto del 2026, por lo que se reproduce a continuación:)
 TITULO I
 DISPOSICIONES GENERALES, OBJETIVOS, FINES Y PRINCIPIOS
 CAPITULO I

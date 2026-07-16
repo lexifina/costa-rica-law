@@ -10,9 +10,10 @@ ARTÍCULO 22. Son atribuciones de la Presidencia:
 9. Procurar la solidaridad, la fraternidad y la equitativa participación entre los miembros del Consejo Directivo.
 10. Propiciar el intercambio de información intermunicipal.
 11. Delegar y coordinar con los demás Directores el trabajo a realizar.
-12. Convocar al Consejo Directivo a sesiones ordinarias y extraordinarias. En este último caso, con 24 horas de antelación, indicando lugar, hora, agenda y adjuntando la información a conocerse en la misma.
+12. Convocar al Consejo Directivo a sesiones ordinarias y extraordinarias. En este último caso, con
+24 horas de antelación, indicando lugar, hora, agenda y adjuntando la información a conocerse en la misma.
 13. Ejercer la representación judicial y extrajudicial de la Federación con carácter de apoderado generalísimo, sin límite de suma.
 14. Presidir la Asamblea General.
 15. Supervisar la Gestión Administrativa de la Dirección Ejecutiva para la buena marcha de la Federación.
 16. Representar a la Federación en los distintos foros y actividades de interés o en su lugar delegar en alguno de los miembros del Consejo Directivo o en la Administración su representación.
-17. Firmar los convenios autorizados por el Consejo Directivo de forma física o digital.
+17. Firmar los convenios autorizados por el Consejo Directivo de forma física o digital
