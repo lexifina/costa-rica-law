@@ -16,3 +16,4 @@ Reglamento de la Dirección de Servicios del Registro Nacional
 | 1 | 2021-04-16 | la propia norma |
 | 2 | 2024-04-04 | Decreto Ejecutivo 44428 (2024-04-04) |
 | 3 | 2025-07-14 | Decreto Ejecutivo 45275 (2025-07-14) |
+| 4 | 2026-07-16 | Decreto Ejecutivo 45897 (2026-07-16) |
