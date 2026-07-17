@@ -1,0 +1,1 @@
+Artículo 29.- Ausencias temporales. Ante la ausencia temporal justificada que sea superior a tres meses calendario deberá suplirse a la persona integrante por todo el plazo que esta deba ausentarse de la Comisión Local de Plan Regulador. La designación de la persona suplente se realizará en estricto apego de lo dispuesto por el artículo 28 del presente Reglamento.

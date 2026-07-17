@@ -1,0 +1,1 @@
+Artículo 11.-Juramentación. Previo a su instalación, todas las personas designadas como integrantes de la Comisión Local de Plan Regulador deberán ser juramentadas por el Concejo Municipal. Siendo este requisito indispensable para el ejercicio de la designación.

@@ -1,0 +1,1 @@
+Artículo 13.-Asesorías. La Comisión Local de Plan Regulador podrá contar con hasta siete (7) personas asesoras designadas por la Presidencia del Concejo Municipal. Estas podrán sersugeridas por la Administración Municipal o por la misma Comisión. Dichas personas asesorasdeberán cumplir con los requisitos dispuestos por el presente reglamento y la demás normativa aplicable.

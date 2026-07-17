@@ -1,0 +1,1 @@
+Artículo 18.-Sesiones. Las sesiones de la Comisión Local de Plan Regulador serán púbicas. La comisión Local del Plan Regulador sesionará, al menos, una vez al mes y cuando lo amerite de forma extraordinaria, indicando fecha, día y hora.

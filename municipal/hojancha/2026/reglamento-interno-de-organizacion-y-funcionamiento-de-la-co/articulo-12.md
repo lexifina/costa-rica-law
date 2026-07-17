@@ -1,0 +1,1 @@
+Artículo 12.-Coordinación. En la sesión inmediata posterior a la juramentación de todas las personas integrantes de la Comisión Local de Plan Regulador, sus miembros elegirán la Presidencia, Vice presidencia y Secretaría.

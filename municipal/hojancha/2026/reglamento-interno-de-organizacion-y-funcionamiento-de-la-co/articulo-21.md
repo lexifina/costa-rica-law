@@ -1,0 +1,1 @@
+Artículo 21- Iniciativas. Cualquier iniciativa deber ser presentada por escrito o a modo de moción y debidamente firmada por al menos dos integrantes de la Comisión. Estas serán sometidas a conocimiento de la Comisión Local de Plan Regulador y sometidas a votación. Los acuerdos serán tomados por mayoría simple de la totalidad de los miembros presentes.

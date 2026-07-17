@@ -1,0 +1,1 @@
+Artículo 9º-Designaciones de la Presidencia Municipal. Contra los nombramientos y designaciones como miembros de la Comisión Local de Plan Regulador que realice la Presidencia del Concejo Municipal, según lo dispuesto en el artículo 3 inciso a) del presente reglamento, no cabe recurso alguno.

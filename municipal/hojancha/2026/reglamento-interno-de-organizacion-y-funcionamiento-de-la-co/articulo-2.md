@@ -1,0 +1,1 @@
+Artículo 2º-Órgano Especializado. La Comisión Local de Plan Regulador del cantón de Hojancha se constituye como el órgano especializado a nivel cantonal en materia urbanística. El cual tiene como objeto participar en la elaboración, aprobación e implementación de los Planes Reguladores del cantón.

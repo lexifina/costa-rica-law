@@ -1,0 +1,1 @@
+Artículo 7º-Nombramiento Ad Honorem. Los miembros de la Comisión Local de Plan Regulador por el ejercicio de ese cargo no devengarán dietas ni remuneración alguna a los integrantes que no son funcionarios municipales.
