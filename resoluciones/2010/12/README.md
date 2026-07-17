@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de Dirección General de Servicio Civil (DG-25
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-10 | la propia norma |
+| 2 | 2026-07-17 | Resolución 241 (2026-07-17) |
