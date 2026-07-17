@@ -1,0 +1,1 @@
+Artículo 2. El Ministerio de Educación Pública dispondrá con el plazo de un año para elaborar ese plan, contado a partir de la fecha de entrada en vigencia de la Ley N° 10777, es decir, hasta el 17 de noviembre de 2026.

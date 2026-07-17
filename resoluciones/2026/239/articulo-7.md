@@ -1,0 +1,1 @@
+Artículo 7. Corresponderá al MEP verificar y aplicar a las personas servidoras nombradas en propiedad como resultado de la aplicación del Transitorio I de la Ley N° 10777, el período de prueba que corresponda, de conformidad con la normativa estatutaria y de empleo público.
