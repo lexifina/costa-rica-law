@@ -1,0 +1,3 @@
+CAPÍTULO IX
+ESTRUCTURA ORGANIZATIVA
+ARTÍCULO 42° El CCDR es una dependencia municipal en línea directa con el Concejo Municipal y vinculación administrativa con el resto de la institución. La estructura interna organizativa del CCDR cuenta con una Junta Directiva como máxima autoridad para su gobierno y dirección, para el cumplimiento de dichas tareas y bajo la dirección de la Junta estará la Administración. La Estructura organizativa estará bajo la responsabilidad de la Junta Directiva, pero contará con todo el apoyo y ayuda para el funcionamiento del personal de la Secretaría y la Administración.

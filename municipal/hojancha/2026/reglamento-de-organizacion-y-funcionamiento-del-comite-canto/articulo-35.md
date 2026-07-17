@@ -1,0 +1,5 @@
+CAPÍTULO VII
+RECURSOS QUE PUEDE INTERPONER EL ADMINISTRADO (A) EN CONTRA
+DE LOS ACTOS EMITIDOS POR EL ADMINISTRADOR O LA JUNTA DIRECTIVA.
+ARTICULO 35° Los actos del Administrador tendrán los recursos de revocatoria ante esa dependencia y apelación ante la Junta Directiva, pudiendo interponerse uno o ambos conjuntamente, dentro del quinto día hábil después de notificado, podrán fundamentarse en motivos de ilegalidad o inoportunidad y no suspenderán su ejecución, sin perjuicio de que el Administrador o la Junta Directiva al resolver el recurso respectivo, pueda disponer en forma fundamentada alguna medida cautelar.
+En materia laboral o de empleo público, lo que resuelva la Junta Directiva agota la vía administrativa.

@@ -1,0 +1,3 @@
+ARTÍCULO 99º -Vigencia. El presente Reglamento entrará a regir a partir de su publicación definitiva en el Diario Oficial La Gaceta, conforme con las disposiciones del artículo 47 del Código Municipal.
+2. Autorizar a la Secretaria del Concejo Municipal a su publicación en el Diario Oficial la Gaceta. APROBADO POR UNANIMIDAD. ACUERDO DEFINITIVAMENTE APROBADO. (CON CINCO VOTOS POSITIVOS DE LOS REGIDORES, EMEL RODRIGUEZ PANIAGUA, MARGARITA RAMÍREZ MORA, FRANCISCO LORÍA RODRÍGUEZ, JUSTINA VILLAFUERTE VILLAFUERTE Y FAIRONE PINEDA CASTRILLO).
+Dado en Hojancha Guanacaste, a los cinco días del mes de junio del dos mil veintiséis. Concejo Municipal de Hojancha

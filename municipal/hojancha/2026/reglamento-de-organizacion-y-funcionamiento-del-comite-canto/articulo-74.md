@@ -1,0 +1,1 @@
+ARTÍCULO 74° En estos gastos no se incluyen en ninguna circunstancia la compra de bebidas alcohólicas. Los costos de estas actividades estarán bajo el control de cada responsable según los sujetos regulados en el artículo 69°, quienes tendrán la obligación de vigilar su partida presupuestaria, bajo la cual se aplica este gasto.

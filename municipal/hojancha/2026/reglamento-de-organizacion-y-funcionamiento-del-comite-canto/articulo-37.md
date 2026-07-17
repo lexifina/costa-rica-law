@@ -1,0 +1,6 @@
+ARTÍCULO 37° Contra todo acto emanado por la Administración o por la Junta Directiva del CCDR, y de materia no laboral o de empleo público, cabra recurso extraordinario de revisión cuando no se hayan establecido, oportunamente, los recursos regulados en los artículos anteriores, siempre que no hayan transcurrido cinco años después de dictado y este no haya
+agotado totalmente sus efectos, a fin de que no surta ni siga surtiendo efectos. El recurso se interpondrá ante la Junta Directiva, la cual lo acogerá si el acto es absolutamente nulo, previo cumplimiento del procedimiento ordinario administrativo regulado en la Ley General de la Administración Pública, Ley N° 6227 y sus reformas. Contra lo resuelto son procedentes los
+recursos de revocatoria y/o apelación en subsidio, los cuales se deben interponer dentro del quinto
+día hábil ante la Junta Directiva. Este órgano resolverá la revocatoria y la apelación la resolverá el
+Concejo Municipal. A su vez lo que resuelva el Concejo Municipal se regirá por lo que dispone el
+Código Municipal, Ley N° 7794 y sus reformas.

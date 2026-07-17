@@ -1,0 +1,1 @@
+ARTÍCULO 78° Los gastos en que se incurra por la aplicación de este Reglamento, serán liquidados dentro del término de tres días posteriores a la participación del evento o actividad deportiva para el que se solicitaron los recursos. (AGREGAR POSIBLE PENALIZACIÓN)

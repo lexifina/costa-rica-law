@@ -1,0 +1,1 @@
+ARTÍCULO 76° Para el proceso de pago de las actividades de becas, se deberá presentar la lista de los atletas y cuerpos técnicos con el registro de firmas a la actividad (listados de asistentes) esto con el fin de cumplir el control interno del CCDR y mejorar la planificación de las actividades.
