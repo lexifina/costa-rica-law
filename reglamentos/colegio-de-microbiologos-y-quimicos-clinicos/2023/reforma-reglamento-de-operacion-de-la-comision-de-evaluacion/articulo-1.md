@@ -1,4 +1,6 @@
+(Revocada)
 COLEGIO DE MICROBIÓLOGOS Y QUÍMICOS CLÍNICOS DE COSTA RICA
+(Esta norma fue revocada en Asamblea General Extraordinaria celebrada el 18 de julio 2026)
 Comunica los siguientes cambios en la Reglamentación del Colegio, aprobados en la Asamblea Extraordinaria N° 01:2023-2024:
 REGLAMENTO DE OPERACIÓN
 DE LA COMISIÓN DE EVALUACIÓN CURRICULAR
