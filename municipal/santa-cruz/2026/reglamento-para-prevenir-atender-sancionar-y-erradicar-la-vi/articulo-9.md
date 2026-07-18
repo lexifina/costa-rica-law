@@ -1,0 +1,1 @@
+Artículo 9.- Remisión a la jurisdicción penal. Cuando los hechos denunciados por violencia contemplados en este reglamento configuren un delito, el órgano director remitirá la denuncia a la vía judicial, según la legislación penal y procesal penal correspondiente, sin perjuicio de las sanciones derivadas del presente reglamento y de la Ley 10.235.

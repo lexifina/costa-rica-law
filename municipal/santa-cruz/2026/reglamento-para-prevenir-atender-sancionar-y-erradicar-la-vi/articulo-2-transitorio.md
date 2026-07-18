@@ -1,0 +1,2 @@
+Transitorio II. Para cumplir con lo dispuesto en los artículos 11 sobre las acciones preventivas a cargo de la Alcaldía y artículo 12, sobre las acciones preventivas a cargo del Concejo Municipal, se establece un plazo de hasta seis meses a partir de la entrada en vigor del presente reglamento.
+Según acuerdo unánime del Concejo Municipal de la Municipalidad de Santa Cruz, en la Sesión Ordinaria15-2026, artículo 7, inciso 01 del 16 de abril del 2026, según dictamen 4- 2026 de las Comisiones de Gobierno y Administración y de Asuntos Sociales, aprobado en todos sus extremos.

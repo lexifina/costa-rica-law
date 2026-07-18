@@ -1,0 +1,3 @@
+Artículo 2.- Ámbito de aplicación. Este reglamento protege los derechos de las mujeres a una vida libre de violencia de género en la política y se aplicará en los siguientes ámbitos:
+a) Cuando las mujeres estén en el ejercicio de cargos de elección popular, o de designación dentro de la Municipalidad de Santa Cruz.
+b) Cuando, por la naturaleza de sus funciones, las mujeres estén a cargo de la promoción y ejecución de políticas públicas institucionales de igualdad de género y derechos políticos de las mujeres, y participen en órganos, programas y estructuras en instituciones públicas para el cumplimiento de sus competencias y atribuciones dentro de la Municipalidad de Santa Cruz, como es el caso de la Oficina Municipal de la Mujer (OFIM).

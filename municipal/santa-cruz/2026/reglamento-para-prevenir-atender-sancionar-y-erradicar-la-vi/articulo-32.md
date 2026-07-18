@@ -1,0 +1,2 @@
+Artículo 32.- De la audiencia de evacuación de la prueba. El órgano director celebrará la audiencia oral y privada señalada, para recepción de la prueba ofrecida, el alegato y las conclusiones de las partes, las que se deberán recibir en el acto de forma verbal o si ello resulta imposible de forma escrita para lo que se concederá a ambas partes el plazo improrrogable de tres días hábiles.
+Dentro del procedimiento, cabrán los recursos según lo establecido en el artículo 345 de la Ley General de la Administración Pública.
