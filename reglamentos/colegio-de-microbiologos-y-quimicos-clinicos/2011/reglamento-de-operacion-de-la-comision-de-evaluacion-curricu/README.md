@@ -19,3 +19,4 @@ Reglamento de Operación de la Comisión de Evaluación Curricular
 | 4 | 2017-04-22 | Reglamento 1 (2017-04-22) |
 | 5 | 2019-11-23 | Reglamento 2 (2019-11-23) |
 | 6 | 2023-04-15 | Reglamento 1 (2023-04-15) |
+| 7 | 2026-07-18 | Reglamento 0 (2026-07-18) |
