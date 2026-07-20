@@ -1,0 +1,5 @@
+Artículo 4.- Documento de identidad idóneo. Para todos los efectos de este reglamento, los documentos de identificación deberán estar vigentes, ser perfecta y completamente legibles y estar en buen estado. Serán idóneas las identificaciones, de acuerdo a la condición de cada persona, a saber, si es costarricense o extranjero:
+a) Si se trata de un costarricense o de un extranjero nacionalizado, el documento idóneo de identificación es la cédula de identidad.
+b) Si se trata de un costarricense, menor de 18 años y mayor de 12 años, el documento idóneo es la tarjeta de identidad de menores de edad (TIM).
+c) Si se trata de un extranjero, deberá presentar el pasaporte, el DIMEX, el carnet de refugiado o permiso laboral que contenga el número de DIMEX; en los casos que se solicite fotocopia del pasaporte, se referirá a las páginas en las cuales se acredita la vigencia del documento.
+Cuando el documento de identidad consigne que la persona no firma, esta deberá utilizar la figura de firma a ruego.

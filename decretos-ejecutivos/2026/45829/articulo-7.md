@@ -1,0 +1,1 @@
+Artículo 7.- Informaciones al correo electrónico. Los usuarios que registren su correo electrónico en el Portal Electrónico de Cosevi, podrán realizar sus trámites de manera digital, y recibir notificaciones, así como informaciones relacionadas con su expediente de conductor, boletas de citación o cualquier otra comunicación emitida por el Cosevi.

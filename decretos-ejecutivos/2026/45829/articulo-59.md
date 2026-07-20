@@ -1,0 +1,2 @@
+Artículo 59.- Notificación que se tiene por realizada. Se tendrá por notificado el recurrente o el propietario registral de un automotor involucrado en una infracción, que sin haber recibido notificación formal alguna o haya sido recibida de manera irregular, se apersone al proceso, independientemente de la naturaleza de su gestión.
+Si se solicita la nulidad de lo actuado, la persona interesada deberá alegarlo ante la Unidad de Impugnación que practicó la notificación. La eficacia de este acto quedará sujeta al resultado de la nulidad.

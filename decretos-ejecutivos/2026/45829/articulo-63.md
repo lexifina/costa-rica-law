@@ -1,0 +1,1 @@
+Artículo 63.- Firmeza de la resolución. Cuando se señale un correo electrónico o fax, la notificación de la resolución se tendrá por practicada, al finalizar el envío del correo electrónico o la transmisión exitosa del fax o una vez agotados los cinco intentos, según lo dispuesto en este reglamento, momento a partir del cual el acto adquiere firmeza.

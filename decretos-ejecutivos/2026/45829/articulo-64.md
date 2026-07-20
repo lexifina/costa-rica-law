@@ -1,0 +1,1 @@
+Artículo 64.- Comprobante. La práctica de la notificación, se acreditará con el comprobante de transmisión emitido por el fax o con el respaldo informático respectivo. El comprobante no requiere la firma de quien transmite. Los registros de la transmisión, deberán conservarse al menos por un año calendario en la Unidad de Impugnaciones respectiva.
