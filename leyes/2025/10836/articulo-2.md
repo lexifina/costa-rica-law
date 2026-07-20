@@ -10,3 +10,6 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 45843 del 16 de junio de 2026, se acordó modificar este numeral con el fin de incorporar la asignación de gasto presupuestario correspondiente a los recursos provenientes de la Ley N°. 10.951, solicitada por el Ministerio de Hacienda, según lo expuesto en los Considerandos del 7 al 13 del presente Decreto y su desglose en los niveles de programa, subprograma, partida y subpartida presupuestaria estará disponible en la página electrónica del Ministerio Hacienda en la dirección que se muestra a continuación: https://www.hacienda.go.cr/Presupuesto.html.
 El monto total de la rebaja y del aumento dispuestos en este artículo es el siguiente:
 [imagen] )
+(Reformado por el artículo 2° de la ley N° 10966 del 17 de julio del 2026)
+(Reformado por el artículo 3° de la ley N° 10966 del 17 de julio del 2026)
+(Reformado por el artículo 4° de la ley N° 10966 del 17 de julio del 2026)

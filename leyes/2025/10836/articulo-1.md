@@ -7,6 +7,7 @@ Artículo 1°: Apruébense los siguientes Ingresos Ordinarios y Extraordinarios 
 INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE
 LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2026 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar AlcanceDigital N° 159 a La Gaceta N° 233 del 11 de diciembre de 2025)
+(Reformado el inciso a) anterior por el artículo 1° de la ley N° 10966 del 17 de julio del 2026)
 INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
 DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2026 (en colones corrientes)
@@ -17,3 +18,4 @@ Rebaja del artículo 1:
 [imagen]
 Aumentardel artículo 1:
 [imagen] )
+(Reformado el inciso b) y c) anterior por el artículo 1° de la ley N° 10966 del 17 de julio del 2026)
