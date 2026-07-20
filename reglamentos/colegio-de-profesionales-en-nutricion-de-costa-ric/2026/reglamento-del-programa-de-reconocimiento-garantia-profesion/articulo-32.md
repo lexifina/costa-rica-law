@@ -1,0 +1,1 @@
+Artículo 32. Vigencia. El presente reglamento entrará en vigencia a partir de su aprobación por la Asamblea General del Colegio de Profesionales en Nutrición y su publicación en los medios oficiales del Colegio.
