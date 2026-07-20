@@ -1,0 +1,1 @@
+Artículo 26.- Resolución. Una vez verificado el cumplimiento de los requisitos, el Departamento Académico remitirá la solicitud y el criterio correspondiente a la Junta Directiva, la cual resolverá lo que corresponda en la siguiente sesión ordinaria. La resolución deberá ser notificada a la persona interesada.

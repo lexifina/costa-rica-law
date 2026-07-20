@@ -1,0 +1,1 @@
+Artículo 49.- Uso de la condición de especialista. Únicamente las personas inscritas en el Registro de Especialistas en Nutrición podrán anunciarse o denominarse especialista en una determinada área del ejercicio profesional en Nutrición.

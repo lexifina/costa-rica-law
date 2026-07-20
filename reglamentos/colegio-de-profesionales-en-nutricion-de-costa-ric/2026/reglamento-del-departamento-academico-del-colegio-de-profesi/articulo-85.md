@@ -1,0 +1,1 @@
+Artículo 85.- Requerimiento de información. El Departamento Académico podrá requerir a los entes proveedores cualquier información relacionada con las actividades acreditadas, con el fin de verificar su adecuado desarrollo y cumplimiento.

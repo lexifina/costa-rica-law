@@ -1,0 +1,1 @@
+Artículo 72.- Condición para la acreditación de actividades. Únicamente podrán ser acreditadas aquellas actividades de educación continua impartidas por el Departamento Académico, por entes proveedores debidamente inscritos ante el Colegio, o aquellas que sean homologadas por el Departamento Académico conforme a este Reglamento.

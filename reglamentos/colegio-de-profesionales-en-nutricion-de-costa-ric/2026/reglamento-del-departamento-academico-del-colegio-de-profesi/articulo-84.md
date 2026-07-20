@@ -1,0 +1,1 @@
+Artículo 84.- Informe de resultados. Los entes proveedores deberán remitir al Departamento Académico un informe con los resultados de la evaluación de la actividad, dentro del plazo de quince días hábiles posteriores a su finalización.

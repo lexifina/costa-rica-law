@@ -1,0 +1,1 @@
+Artículo 52.- Uso indebido de la condición de especialista. Toda actuación mediante la cual una persona no inscrita en el Registro de Especialistas en Nutrición se anuncie o haga creer al público que ostenta la condición de especialista, será puesta en conocimiento de la Fiscalía u otras autoridades competentes para la investigación correspondiente.

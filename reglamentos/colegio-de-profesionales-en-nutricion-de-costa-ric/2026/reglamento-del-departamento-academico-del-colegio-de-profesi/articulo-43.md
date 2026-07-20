@@ -1,0 +1,1 @@
+Artículo 43.- Recursos. Contra la resolución denegatoria del Departamento Académico procederá el recurso de revocatoria ante el mismo órgano y el recurso de apelación ante la Junta Directiva, los cuales deberán interponerse dentro del plazo de tres días hábiles.

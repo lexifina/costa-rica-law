@@ -1,0 +1,1 @@
+Artículo 99.- Efectos de la recertificación. En caso de resolución favorable, el Departamento Académico emitirá el título de recertificación correspondiente. La resolución será incorporada al expediente del colegiado.

@@ -1,0 +1,1 @@
+Artículo 47.- Participación en comisiones técnicas. Cuando corresponda al Colegio integrar o postular representantes en comisiones técnicas, se procurará dar prioridad a las personas colegiadas inscritas como especialistas, de acuerdo con el área en la que desarrollan sus funciones.

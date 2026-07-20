@@ -1,0 +1,1 @@
+Artículo 61.- Educación continua. La educación continua en el campo de la Nutrición constituye el eje fundamental del proceso de recertificación profesional y comprende las actividades orientadas a la actualización, fortalecimiento y desarrollo de conocimientos, habilidades y competencias en el ejercicio profesional.

@@ -1,0 +1,3 @@
+Artículo 92.- Aplicación de la escala de acreditación. Para la asignación de créditos conforme a la escala anterior, se deberán cumplir las siguientes condiciones:
+a) En actividades de educación continua de participación, la persona deberá cumplir con al menos el ochenta y cinco por ciento (85%) de asistencia del total de horas de la actividad. La actividad deberá tener una duración mínima de cuatro horas para ser acreditable.
+b) En actividades de educación continua de aprovechamiento, la persona deberá cumplir con al menos el ochenta y cinco por ciento (85%) de asistencia y aprobar el sistema de evaluación del aprendizaje establecido por el ente proveedor. La actividad deberá tener una duración mínima de cuatro horas para ser acreditable.

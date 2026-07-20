@@ -1,0 +1,1 @@
+Artículo 13.- Fechas de recepción de documentos y de actos de incorporación. La Junta Directiva determinará las fechas de incorporación ordinaria. Los documentos y requisitos establecidos en este Reglamento deberán presentarse ante el Departamento Académico durante el periodo de recepción de documentos que establezca el Departamento Académico.

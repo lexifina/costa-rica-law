@@ -1,0 +1,1 @@
+Artículo 71.- Deber de información. Los entes proveedores deberán proporcionar al Departamento Académico la información que este requiera en relación con las actividades acreditadas, así como los informes que se establezcan en este Reglamento.

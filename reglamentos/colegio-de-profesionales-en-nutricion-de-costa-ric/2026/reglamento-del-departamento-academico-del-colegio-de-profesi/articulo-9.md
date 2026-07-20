@@ -1,0 +1,1 @@
+Artículo 9.- Supletoriedad. En lo no previsto expresamente en este reglamento, se aplicarán supletoriamente la Ley Orgánica del Colegio de Profesionales en Nutrición y su Reglamento, la normativa interna del Colegio, la Ley General de la Administración Pública y las demás disposiciones del ordenamiento jurídico que resulten aplicables.

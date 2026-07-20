@@ -1,0 +1,1 @@
+Artículo 54.- Suspensión del ejercicio de la especialidad. La suspensión o pérdida de la condición de miembro activo del Colegio implicará, de pleno derecho, la imposibilidad de ejercer la profesión y, en consecuencia, de ejercer, anunciarse o denominarse especialista, mientras subsista dicha condición.

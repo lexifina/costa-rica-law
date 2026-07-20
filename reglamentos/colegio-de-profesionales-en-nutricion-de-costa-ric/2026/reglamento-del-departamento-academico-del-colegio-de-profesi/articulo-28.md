@@ -1,0 +1,1 @@
+Artículo 28.- Procedencia. Podrá solicitar la reincorporación la persona que haya sido previamente desincorporada del Colegio, siempre que no exista impedimento legal o disciplinario para su reincorporación.

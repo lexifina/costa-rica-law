@@ -1,0 +1,1 @@
+Artículo 11.- Incorporación ordinaria. La incorporación ordinaria es aquella que se realiza dentro de los periodos establecidos por la Junta Directiva conforme al calendario institucional. La juramentación correspondiente se realizará en la fecha señalada para ese acto, siempre que el acuerdo de incorporación adoptado por la Junta Directiva se encuentre firme.

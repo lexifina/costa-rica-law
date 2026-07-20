@@ -1,0 +1,1 @@
+Artículo 64.- Gestión de la educación continua. Corresponde al Departamento Académico gestionar, organizar, reconocer, acreditar, supervisar y controlar las actividades de educación continua reguladas en este reglamento, conforme a las competencias aquí establecidas.

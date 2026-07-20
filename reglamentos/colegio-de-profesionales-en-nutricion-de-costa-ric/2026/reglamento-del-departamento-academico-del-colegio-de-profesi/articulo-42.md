@@ -1,0 +1,1 @@
+Artículo 42.- Resolución. A partir del momento en que se reciba la documentación completa, el Departamento Académico contará con un plazo ordenatorio de treinta días hábiles para emitir una resolución mediante la cual aprueba o rechaza la inscripción del colegiado en el Registro de Especialistas en Nutrición. La resolución deberá ser motivada y notificada a la persona interesada.

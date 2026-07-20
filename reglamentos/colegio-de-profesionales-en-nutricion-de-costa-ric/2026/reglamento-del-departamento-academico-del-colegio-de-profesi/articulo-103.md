@@ -1,0 +1,1 @@
+Artículo 103.- Plazo para interponer los recursos. Los recursos deberán interponerse ante el Departamento Académico dentro del plazo de tres días hábiles, contado a partir de la notificación de la resolución.

@@ -1,0 +1,1 @@
+Artículo 57.- Competencia. El Departamento Académico será el órgano competente para gestionar, evaluar, acreditar, supervisar y resolver los procesos relacionados con la educación continua, la acreditación y la recertificación profesional, conforme a lo establecido en este Reglamento.

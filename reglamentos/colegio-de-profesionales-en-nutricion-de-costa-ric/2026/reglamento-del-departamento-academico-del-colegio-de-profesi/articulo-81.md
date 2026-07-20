@@ -1,0 +1,1 @@
+Artículo 81.- Reconocimiento de actividades educativas. El Departamento Académico podrá reconocer y homologar actividades de educación continua nacionales o internacionales que no hayan sido previamente acreditadas, siempre que cumplan con los criterios establecidos en este Reglamento.

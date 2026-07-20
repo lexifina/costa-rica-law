@@ -1,0 +1,1 @@
+Artículo 89.- Sanciones por falsedad. Cuando se determine la existencia de falsedad en la información aportada, el Departamento Académico podrá disponer la revocatoria de la acreditación o de la inscripción como ente proveedor, sin perjuicio de las acciones legales que correspondan.

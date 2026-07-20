@@ -1,0 +1,1 @@
+Artículo 24.- Imposibilidad de entrega de credenciales. Cuando la persona interesada no se encuentre en condición de entregar las credenciales señaladas, deberá aportar declaración jurada rendida ante notario público en la que indique las razones correspondientes, así como manifestar que exime al Colegio de cualquier responsabilidad derivada del uso indebido de dichos documentos.

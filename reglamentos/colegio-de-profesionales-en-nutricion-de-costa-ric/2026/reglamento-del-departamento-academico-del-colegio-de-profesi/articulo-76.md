@@ -1,0 +1,1 @@
+Artículo 76.- Resolución de acreditación. El Departamento Académico analizará la solicitud y emitirá la resolución correspondiente en un plazo de quince días hábiles, mediante la cual aprobará o rechazará la acreditación de la actividad. La resolución deberá indicar, cuando corresponda, la cantidad de créditos asignados y las condiciones bajo las cuales se otorga la acreditación.

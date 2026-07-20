@@ -1,0 +1,1 @@
+Artículo 62.- Condición para participar en el sistema. Para participar en los procesos de recertificación profesional, la persona colegiada deberá mantener su condición de miembro activo y encontrarse al día en el cumplimiento de sus obligaciones con el Colegio.

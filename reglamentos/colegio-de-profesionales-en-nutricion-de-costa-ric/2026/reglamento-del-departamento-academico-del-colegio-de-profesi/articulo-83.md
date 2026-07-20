@@ -1,0 +1,1 @@
+Artículo 83.- Evaluación de las actividades. Los entes proveedores deberán aplicar mecanismos de evaluación de cada actividad de educación continua, con el fin de valorar su calidad académica y el desempeño de las personas expositoras. Para tal efecto, utilizarán los instrumentos definidos por el Departamento Académico.

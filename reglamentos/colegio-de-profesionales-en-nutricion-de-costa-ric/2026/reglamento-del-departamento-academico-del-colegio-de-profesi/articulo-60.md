@@ -1,0 +1,1 @@
+Artículo 60.- Reconocimiento. El Colegio reconocerá, para efectos de este Reglamento, aquellas actividades de educación continua que hayan sido acreditadas u homologadas. Asimismo, acreditará los entes proveedores que hayan sido debidamente autorizados o inscritos conforme a los procedimientos establecidos.

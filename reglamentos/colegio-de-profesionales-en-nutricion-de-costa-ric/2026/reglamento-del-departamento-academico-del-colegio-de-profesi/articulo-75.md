@@ -1,0 +1,5 @@
+Artículo 75.- Requisitos para la acreditación de actividades. Para la acreditación de una actividad de educación continua, el ente proveedor deberá presentar ante el Departamento Académico los siguientes requisitos:
+a) Formulario de solicitud de acreditación establecido por el Colegio. b) Programa de la actividad educativa, con indicación de contenidos, objetivos, metodología, duración y cronograma.
+c) Currículum de las personas expositoras. En los casos en que las actividades cuenten con más de cinco expositores, deberá presentar al menos 5 de los currículos de estos y presentar una declaración jurada en la que se indique que los demás expositores cumplen con los requisitos de ser expertos en su área, estar inscritos en su correspondiente colegio profesional y que no incurrieron en intrusismo profesional.
+d) Material publicitario o informativo que se utilizará para la promoción de la actividad. e) En caso de actividades de aprovechamiento, los instrumentos de evaluación correspondientes.
+El Departamento Académico podrá requerir información adicional cuando lo estime necesario para la adecuada valoración de la solicitud.

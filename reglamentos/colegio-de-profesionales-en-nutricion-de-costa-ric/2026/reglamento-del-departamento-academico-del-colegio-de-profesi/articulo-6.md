@@ -1,0 +1,2 @@
+Artículo 6.- Ejercicio de competencias asesoras y resolutivas. El Departamento Académico ejercerá funciones resolutivas en aquellos procedimientos que este reglamento le atribuya. En los demás casos, actuará como órgano técnico asesor y emitirá el criterio técnico o recomendación correspondiente para conocimiento y decisión del órgano competente.
+Cuando la decisión final corresponda a la Junta Directiva u otro órgano, el criterio técnico del Departamento Académico no será vinculante; sin embargo, deberá ser valorado y considerado en la motivación del acto que se adopte.

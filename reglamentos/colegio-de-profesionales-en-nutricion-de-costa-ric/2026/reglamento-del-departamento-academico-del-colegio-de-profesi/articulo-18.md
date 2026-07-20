@@ -1,0 +1,3 @@
+Artículo 18.- De la admisibilidad de los requisitos. El Colegio únicamente admitirá las solicitudes de incorporación que se presenten completas, dentro del plazo establecido y en la forma dispuesta en este Reglamento.
+Si la solicitud presenta defectos subsanables u omisiones de carácter formal, el Departamento Académico podrá prevenir a la persona interesada para que complete o aclare la información dentro del plazo de cinco días hábiles.
+No se admitirán las solicitudes incompletas que no hayan sido subsanadas oportunamente, las presentadas de manera extemporánea ni aquellas que incumplan los requisitos establecidos.

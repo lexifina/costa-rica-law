@@ -1,0 +1,1 @@
+Artículo 65.- Apoyo institucional. La Junta Directiva velará por el adecuado funcionamiento del sistema de educación continua y recertificación profesional, procurando dotar al Departamento Académico de los recursos necesarios para su ejecución, conforme a las posibilidades institucionales y al presupuesto aprobado por la Asamblea General.

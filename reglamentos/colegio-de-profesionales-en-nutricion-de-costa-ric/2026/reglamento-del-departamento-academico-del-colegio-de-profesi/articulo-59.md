@@ -1,0 +1,1 @@
+Artículo 59.- Finalidad del sistema. El sistema de recertificación profesional tiene como finalidad promover la actualización continua de las personas profesionales en Nutrición, incentivar su participación en actividades de educación continua y contribuir al fortalecimiento del ejercicio profesional, conforme a los estándares académicos y al perfil profesional vigente.

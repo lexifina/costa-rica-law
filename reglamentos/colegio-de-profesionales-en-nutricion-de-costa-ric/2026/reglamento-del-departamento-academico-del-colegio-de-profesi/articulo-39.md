@@ -1,0 +1,6 @@
+Artículo 39.- Especialidad académica. El colegiado que desea inscribirse mediante especialidad académica debe cumplir con los siguientes requisitos:
+a) Ser miembro activo del Colegio y encontrarse al día en sus obligaciones.
+b) Presentar la boleta de solicitud de inscripción en el Registro de Especialistas en Nutrición.
+c) Presentar original y copia del título o certificado de especialidad otorgado por una universidad. El título o certificado debe ser otorgado por instituciones de educación superior nacionales reconocidas y autorizadas, según la legislación vigente, o bien, obtenidos en el extranjero y que hayan sido previamente reconocidos y equiparados por CONARE. Asimismo, se reconocerán las especialidades y maestrías impartidas por el Instituto de Nutrición de Centroamérica y Panamá por su reconocida trayectoria y solidez en sus programas educativos.
+d) Presentar una certificación de notas donde se especifique el nombre de la materia cursada, el número de créditos y el número de horas, así como la duración total de la especialidad.
+e) Aportar el comprobante de pago de los derechos de inscripción correspondientes establecidos por la Junta Directiva, los cuales no serán reembolsables.

@@ -1,0 +1,1 @@
+Artículo 96.- Periodo de recertificación. El periodo de recertificación será anual. Para obtener la recertificación, la persona profesional deberá acreditar un mínimo de veinte créditos dentro del periodo correspondiente.

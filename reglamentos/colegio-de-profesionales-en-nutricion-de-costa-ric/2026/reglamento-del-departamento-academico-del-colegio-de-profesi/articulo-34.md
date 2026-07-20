@@ -1,0 +1,1 @@
+Artículo 34.- Alcance de la condición de especialista. La condición de especialista en Nutrición no confiere privilegios respecto de los demás miembros del Colegio. Quienes ostenten esta condición estarán sujetos al cumplimiento de todas las normas vigentes que regulan el ejercicio profesional de la Nutrición.

@@ -1,0 +1,1 @@
+Artículo 79.- Reacreditación. Cuando el ente proveedor desee impartir nuevamente una actividad previamente acreditada, deberá solicitar su reacreditación. Si la actividad mantiene las mismas condiciones académicas y metodológicas, podrá tramitarse como reacreditación. En caso contrario, deberá someterse a un nuevo proceso de acreditación.

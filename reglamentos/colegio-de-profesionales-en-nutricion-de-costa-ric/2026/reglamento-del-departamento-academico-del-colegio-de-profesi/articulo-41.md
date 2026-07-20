@@ -1,0 +1,1 @@
+Artículo 41.- Admisibilidad y prevención. El Departamento Académico verificará el cumplimiento de los requisitos establecidos. En caso de omisiones o defectos subsanables, prevendrá a la persona interesada para que los corrija dentro del plazo de diez días hábiles. Si la prevención no es atendida en el plazo otorgado, se procederá al archivo de la gestión.

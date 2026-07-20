@@ -1,0 +1,1 @@
+Artículo 56.- Ámbito de aplicación. Las disposiciones contenidas en este capítulo serán aplicables a las personas colegiadas, a los entes proveedores de educación continua y a cualquier otra persona física o jurídica que participe en los procesos regulados en este Reglamento.

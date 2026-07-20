@@ -1,0 +1,2 @@
+Artículo 35.- Reconocimiento de especialidades. Se reconocen como especialidades en el campo de la Nutrición aquellas aprobadas por la Junta Directiva, de conformidad con lo establecido en este Reglamento. Las especialidades aprobadas, así como sus modificaciones, deberán publicarse en el Diario Oficial La Gaceta y en los medios oficiales del Colegio.
+El Departamento Académico deberá llevar un registro actualizado de las especialidades reconocidas por el Colegio.

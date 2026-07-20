@@ -1,0 +1,1 @@
+Artículo 100.- Falsedad documental. Cuando se determine que una persona profesional en Nutrición ha aportado documentación falsa dentro del proceso de recertificación, el Departamento Académico lo pondrá en conocimiento de la Junta Directiva para que se adopten las medidas correspondientes, sin perjuicio de las acciones legales que procedan.

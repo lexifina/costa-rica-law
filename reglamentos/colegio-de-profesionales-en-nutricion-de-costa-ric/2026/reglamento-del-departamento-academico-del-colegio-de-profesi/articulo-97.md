@@ -1,0 +1,1 @@
+Artículo 97.- Presentación de la solicitud. La solicitud de recertificación deberá presentarse dentro del plazo que establezca el Departamento Académico, conforme a los procedimientos y requisitos definidos para tal efecto.

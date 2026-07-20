@@ -1,0 +1,1 @@
+Artículo 69.- Vigencia de la inscripción. La inscripción como ente proveedor de educación continua tendrá una vigencia de tres años, contados a partir de la firmeza de la resolución que la aprueba. La renovación deberá solicitarse antes de su vencimiento, conforme a los requisitos que establezca el Departamento Académico.

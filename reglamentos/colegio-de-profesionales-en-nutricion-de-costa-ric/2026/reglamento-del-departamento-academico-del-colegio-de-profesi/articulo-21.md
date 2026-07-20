@@ -1,0 +1,2 @@
+Artículo 21.- Credenciales de incorporación. A toda persona que sea juramentada se le entregará un certificado que acredite su condición de colegiado, así como un título con la mención de uso social de Doctor o Doctora en Nutrición, un sello y un carné con su respectivo código de colegiado, los cuales lo identifican como miembro del Colegio y lo habilitan para el ejercicio de la profesión.
+El carné tendrá una vigencia de tres años, contados a partir de su fecha de emisión, y será renovable por períodos iguales.

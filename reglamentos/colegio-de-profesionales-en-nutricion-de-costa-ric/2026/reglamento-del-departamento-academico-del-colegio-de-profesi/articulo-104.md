@@ -1,0 +1,1 @@
+Artículo 104.- Interposición de los recursos. La persona interesada podrá interponer el recurso de revocatoria, el de apelación o ambos. En este último caso, deberán presentarse conjuntamente. Los recursos interpuestos fuera del plazo establecido serán declarados inadmisibles.

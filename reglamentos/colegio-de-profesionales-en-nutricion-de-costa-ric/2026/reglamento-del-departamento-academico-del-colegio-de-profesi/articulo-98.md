@@ -1,0 +1,1 @@
+Artículo 98.- Análisis y resolución. El Departamento Académico analizará la solicitud presentada y emitirá la resolución correspondiente dentro del plazo máximo de treinta días hábiles, contados a partir del cierre del periodo de recepción de solicitudes.

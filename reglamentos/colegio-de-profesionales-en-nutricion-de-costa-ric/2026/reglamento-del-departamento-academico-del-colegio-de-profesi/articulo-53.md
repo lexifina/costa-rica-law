@@ -1,0 +1,1 @@
+Artículo 53.- Vinculación con la condición de colegiado. La condición de especialista en Nutrición está sujeta a la condición de miembro del Colegio. La persona inscrita en el Registro de Especialistas en Nutrición solo podrá ejercer, anunciarse o denominarse especialista cuando mantenga su condición de miembro activo del Colegio.

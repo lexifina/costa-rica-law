@@ -1,0 +1,1 @@
+Artículo 68.- Resolución de inscripción. El Departamento Académico analizará la solicitud y emitirá la resolución correspondiente en un plazo ordenatorio de quince días hábiles, mediante la cual aprobará o rechazará la inscripción como ente proveedor.

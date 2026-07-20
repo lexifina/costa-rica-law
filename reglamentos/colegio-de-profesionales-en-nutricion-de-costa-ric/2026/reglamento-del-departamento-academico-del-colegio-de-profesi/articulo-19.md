@@ -1,0 +1,1 @@
+Artículo 19.- Comunicación a la Junta Directiva. Una vez revisada y verificada la documentación correspondiente, el Departamento Académico remitirá a la Junta Directiva la lista de personas solicitantes que cumplieron los requisitos de incorporación para que se resuelva sobre su incorporación a más tardar en la sesión anterior a la fecha de la ceremonia de juramentación.

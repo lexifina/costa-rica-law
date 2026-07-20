@@ -1,0 +1,1 @@
+Artículo 31.- Resolución. Una vez verificado el cumplimiento de los requisitos, el Departamento Académico remitirá la solicitud junto con el criterio técnico correspondiente a la Junta Directiva, la cual resolverá lo que corresponda en la siguiente sesión ordinaria. En caso de acordarse su reincorporación, se le otorgará al profesional un nuevo código de agremiado.
