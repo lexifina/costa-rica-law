@@ -14,6 +14,8 @@ Tiene las siguientes funciones:
 12. Rendir cuentas sobre la gestión de la entidad a las partes interesadas.
 13. Presidir el Comité de Contrataciones de Combustibles.
 14. Resolver en alzada los recursos ordinarios que se presenten en todo procedimiento administrativo.
+15. Coordinar, establecer, implementar y supervisar mediante el Oficial de Seguridad de la Información (CISO, por sus siglas en inglés) un sistema integral de la gestión de ciberseguridad, orientado a la protección de la infraestructura tecnológica, sistemas de información y datos empresariales; mediante la adopción de políticas, procesos, tecnologías y buenas prácticas, así como el fomento de una cultura organizacional que permita la prevención, detección y mitigación de riesgos y amenazas cibernéticas, garantizando la continuidad operativa.
+(Así adicionado el inciso anterior en sesión N° 5521 del 21 de julio de 2026)
 Es una dependencia directa de la Presidencia, posee las características de un órgano ejecutivo, superior administrativo empresarial y de coordinación general a nivel estratégico y político.
 El superior inmediato de la Gerencia General es el Presidente(a) y está a cargo de un Gerente(a) General.
 Por la naturaleza de sus funciones, mantiene relaciones con todos los órganos de la Estructura.

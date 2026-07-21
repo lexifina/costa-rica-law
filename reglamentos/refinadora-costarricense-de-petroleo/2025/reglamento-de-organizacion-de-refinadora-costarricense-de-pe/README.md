@@ -14,3 +14,4 @@ Reglamento de organización de Refinadora Costarricense de Petróleo Sociedad An
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-25 | la propia norma |
+| 2 | 2026-07-21 | Reglamento 5521 (2026-07-21) |
