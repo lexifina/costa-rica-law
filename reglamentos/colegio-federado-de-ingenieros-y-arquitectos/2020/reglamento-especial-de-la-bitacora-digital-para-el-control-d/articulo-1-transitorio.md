@@ -1,1 +1,0 @@
-Transitorio único. Los profesionales que a la fecha de entrada en vigencia del presente Reglamento utilicen la bitácora en formato físico, se ajustarán a las disposiciones establecidas en el presente Reglamento, salvo lo que se refiere a la obtención y presentación para registro de cierre de la bitácora para el control de obras ante el Colegio Federado.

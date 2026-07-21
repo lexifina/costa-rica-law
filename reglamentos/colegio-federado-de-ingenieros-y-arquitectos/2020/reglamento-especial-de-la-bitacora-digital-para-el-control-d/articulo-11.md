@@ -1,1 +1,0 @@
-Artículo 11.—En caso de suspenderse la ejecución del proyecto, el director de obra o responsable de la ejecución de la construcción, según sea el caso, deberá informarlo al CFIA y modificar el estado de la bitácora en la plataforma digital. Una vez que se reanude, es su responsabilidad actualizar el estado de la bitácora digital para el control de proyectos.
