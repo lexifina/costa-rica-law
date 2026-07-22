@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de vehículos, maquinaria y equi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-27 | la propia norma |
+| 2 | 2026-07-22 | Reglamento municipal 42 (2026-07-22) |
