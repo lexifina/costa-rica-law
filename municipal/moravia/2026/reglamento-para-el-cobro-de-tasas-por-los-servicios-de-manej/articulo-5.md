@@ -1,0 +1,1 @@
+Artículo 5º - Sujeto activo del tributario. Debido a que la Municipalidad de Moravia es la prestataria de los servicios cuyas tasas se regulan en este reglamento, también ostenta la condición de sujeto activo de la obligación tributaria.

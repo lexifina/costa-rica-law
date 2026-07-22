@@ -1,0 +1,1 @@
+Artículo 47º - Afectación por incumplimiento de pago de tasas. Para realizar cualquier trámite municipal se deberá estar al día con el pago de las tasas por los servicios brindados (artículo 18 de la Ley 4755).

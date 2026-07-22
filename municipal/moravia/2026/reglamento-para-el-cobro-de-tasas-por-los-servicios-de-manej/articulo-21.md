@@ -1,0 +1,1 @@
+Artículo 21°- Categorización. Cada uno de los generadores que sean sujetos a la tasa de Manejo Integral de Residuos Sólidos Ordinarios, serán clasificados en categorías, las cuales se definen considerando el promedio de generación de residuos sólidos ordinarios de la categoría a la que pertenecen, según estudio de generación y composición de residuos sólidos ordinarios.

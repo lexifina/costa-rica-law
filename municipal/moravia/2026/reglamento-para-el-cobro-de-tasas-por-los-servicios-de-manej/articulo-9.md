@@ -1,0 +1,1 @@
+Artículo 9º - Ajuste a los protocolos y lineamientos de horario y disposición. Todo sujeto pasivo está obligado a respetar los horarios, lineamientos y protocolos definidos por la Municipalidad de Moravia para la correcta prestación de los servicios públicos regulados en este reglamento.

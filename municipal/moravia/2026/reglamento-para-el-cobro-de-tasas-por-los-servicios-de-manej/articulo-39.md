@@ -1,0 +1,3 @@
+Artículo 39º - Obligaciones del proceso de Licencias de Explotación Comercial. En los términos regulados por este reglamento, serán obligaciones del proceso de Licencias de Explotación Comercial, las siguientes:
+1. Informar al proceso de Catastro las actividades comerciales que se desarrollen en los establecimientos comerciales, incluso cuando se realice el retiro formal de la actividad. Esto último, a efectos de que dicha dependencia municipal, le asigne la categoría 1, en caso de tener una clasificación superior.
+2. Cualquiera otra que se derive como lógica y necesaria para lograr la operatividad de este reglamento, conforme el ámbito competencial del área.

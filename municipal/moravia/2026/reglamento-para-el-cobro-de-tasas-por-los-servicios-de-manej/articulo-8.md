@@ -1,0 +1,1 @@
+Artículo 8º - Cumplimiento de los deberes formales. Los sujetos pasivos deberán cumplir con los deberes formales derivados de su condición de obligado tributario, establecidos por este reglamento, el Código de Normas y Procedimientos Tributarios o normas especiales.

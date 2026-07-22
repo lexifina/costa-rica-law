@@ -1,0 +1,1 @@
+Artículo 11º - Límites legales para la fijación de las tasas. Se consideran límites legales para la fijación de las tasas reguladas en este reglamento, lo dispuesto en el artículo 5 del Código de Normas y Procedimientos Tributarios, las regulaciones del ordinal 83 del Código Municipal y cualquier otra disposición de naturaleza legal o reglamentaria que resulte aplicable.

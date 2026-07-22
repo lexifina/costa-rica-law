@@ -1,0 +1,1 @@
+Artículo 4º - Hecho generador del tributo. El hecho generador de las tasas, lo constituye la prestación efectiva o potencial por parte de la Municipalidad de Moravia de los servicios públicos de Manejo Integral de Residuos Sólidos Ordinarios, Limpieza de Vías y Sitios Públicos, Alcantarillado Pluvial, así como el Mantenimiento de Parques, Zonas Verdes y Obras de Ornato.

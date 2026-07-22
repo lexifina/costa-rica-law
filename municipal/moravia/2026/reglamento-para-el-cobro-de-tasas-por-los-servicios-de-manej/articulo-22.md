@@ -1,0 +1,1 @@
+Artículo 22°- De los factores de ponderación. Los factores de ponderación para cada categoría se definirán mediante estudios técnicos de generación y composición de residuos sólidos ordinarios, mismos que se realizarán conforme las necesidades y posibilidades del gobierno local.
