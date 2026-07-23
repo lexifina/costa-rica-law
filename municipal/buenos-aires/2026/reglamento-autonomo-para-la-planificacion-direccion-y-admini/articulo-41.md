@@ -1,0 +1,1 @@
+Artículo 41- Las bóvedas y fosas estarán alineadas entre sí, cada línea de bóvedas estará separada por 1.20 metros una de otra, en tanto, bóvedas o parcelas consecuentes en una misma línea, serán separadas una de otra por una distancia de al menos 1.90 m.

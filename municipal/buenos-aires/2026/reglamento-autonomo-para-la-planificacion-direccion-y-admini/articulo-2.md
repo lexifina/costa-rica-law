@@ -1,0 +1,1 @@
+Artículo 2-El presente reglamento tiene como fin, la planificación, dirección, mantenimiento, vigilancia y conservación del Cementerio Municipal existente, y los que la Municipalidad, pueda construir a futuro en el cantón de Buenos Aires.

@@ -1,0 +1,1 @@
+Artículo 33- La administración municipal velará para que el cementerio cuente con obras de recolección de pluviales, luz artificial, capilla de velación, osario general, pasillos, agua potable, batería sanitaria, bodega de mantenimiento; además de todo lo anterior, cualquier obra que se requiera en infraestructura, y su debido mantenimiento.

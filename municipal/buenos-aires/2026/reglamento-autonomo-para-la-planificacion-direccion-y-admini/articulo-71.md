@@ -1,0 +1,1 @@
+Artículo 71- Para toda exhumación ordinaria y extraordinaria, en la cual el traslado de restos óseos se lleve a cabo dentro del mismo cementerio, de una bóveda y/o nicho a otro diferente, se deberá pagar por la actividad de la exhumación e inhumación, respectivamente.

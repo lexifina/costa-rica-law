@@ -1,0 +1,1 @@
+Artículo 3- Las normas establecidas en dicho reglamento son de acatamiento obligatorio, para usuarios generales, titulares de permiso de uso funerario, las personas funcionarias y servidores municipales.

@@ -1,0 +1,1 @@
+Artículo 13- Ninguna persona física o jurídica tendrá derecho a más de una parcela en permiso de uso funerario, esto porque limita la oportunidad para las personas que deseen adquirir un espacio para la excavación de una fosa, o bien, la construcción de bóvedas con 4, 2 y 1 nicho, según sus medidas correspondientes.

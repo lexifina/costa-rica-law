@@ -1,0 +1,1 @@
+Artículo 4- Los bienes existentes que se adquieran y los recursos económicos que ingresen a la Municipalidad, por concepto de permiso de uso funerario, cuotas de mantenimiento y construcción en el cementerio municipal, serán destinados y ejecutados exclusivamente a la administración del cementerio en lo que competa a estructura, mantenimiento y mejoras necesarias.

@@ -1,0 +1,1 @@
+Artículo 23- La bóveda será declarada en ruina y / o abandono por la Administración Municipal, cuando previo procedimiento administrativo llevado a cabo por la administración municipal y donde se conceda audiencia al permisionario, se compruebe que transcurrieron cinco o más años sin renovar la pintura y sin hacer reparaciones necesarias por parte del permisionario.

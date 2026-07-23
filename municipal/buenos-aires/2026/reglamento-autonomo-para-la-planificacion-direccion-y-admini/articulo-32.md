@@ -1,0 +1,1 @@
+Artículo 32- El terreno del cementerio estará delimitado en todo su perímetro para seguridad y resguardo del mismo, se puede utilizar alambres, tubos, malla, tapia y verjas, a una altura de al menos dos metros (2 metros) sobre la base del suelo.

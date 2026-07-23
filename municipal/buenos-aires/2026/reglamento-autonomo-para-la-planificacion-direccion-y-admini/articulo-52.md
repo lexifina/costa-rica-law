@@ -1,0 +1,1 @@
+Artículo 52- Las inhumaciones se realizarán entre las 6 am y 3 pm, de lunes a domingo, si por caso fortuito se requiera una inhumación fuera de este horario, deberán coordinar con la administración municipal o Encargado de cementerio que este de turno, de forma previa, ordenada y planificada.

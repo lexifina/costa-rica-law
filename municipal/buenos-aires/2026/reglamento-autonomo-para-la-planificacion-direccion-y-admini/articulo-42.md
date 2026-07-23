@@ -1,0 +1,1 @@
+Artículo 42- La separación mínima entre las tumbas y los linderos de las propiedades colindantes a la propiedad del inmueble del cementerio, será de tres metros mínimo, si el lindero contiguo tiene una profundidad de más de un metro respecto al nivel del cementerio, el retiro mínimo será de cinco metros.

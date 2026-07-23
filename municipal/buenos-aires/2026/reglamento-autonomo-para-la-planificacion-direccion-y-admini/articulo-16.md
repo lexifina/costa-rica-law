@@ -1,0 +1,1 @@
+Artículo 16- La administración del cementerio deberá llevar un registro histórico y estadístico, actualizado de cada actividad, además de llevarse los registros físicos, documentales y digitalizados. (Registro de bóvedas, nichos, sepulturas, restos en osario general, parcelas, traslados, inhumaciones, exhumaciones, titulares de arrendamiento, titulares de funerarios).

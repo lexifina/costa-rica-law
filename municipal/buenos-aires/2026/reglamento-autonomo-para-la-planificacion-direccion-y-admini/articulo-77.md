@@ -1,0 +1,2 @@
+Artículo 77- Solo se autorizará la exhumación y traslado de un cadáver de una bóveda a otra, previa autorización de los permisionarios de ambas bóvedas, en caso de exhumaciones de un cementerio a otro se requerirá autorización del Ministerio de Salud.
+Dicha autorización deberá presentarse de manera mancomunada, con el formulario denominado Solicitud de autorización de exhumación ordinaria o extraordinaria, expedido por el Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 78- Responsabilidad por el Traslado de Restos. La Municipalidad no se responsabilizará ni por el traslado; ni por la manipulación de los restos una vez retirados de los Cementerios Municipales. La responsabilidad para el traslado particular de restos es de quien la realice.

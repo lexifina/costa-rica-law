@@ -1,0 +1,1 @@
+Artículo 76- El Director de todo hospital público o privado, podrá solicitar la autorización del traslado directo al cementerio para la sepultura de un cuerpo, donde ocurra un fallecimiento a consecuencia de una enfermedad contagiosa.

@@ -1,0 +1,1 @@
+Artículo 84- Las cesiones de derechos funerarios serán estudiadas por la Administración Municipal del cementerio, la cual deberá pronunciarse en el plazo máximo de un mes calendario a fin de calificar la pertinencia o procedencia de cada caso.

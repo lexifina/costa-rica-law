@@ -1,0 +1,1 @@
+Artículo 55- Queda prohibida la inhumación de más de un cadáver en el mismo ataúd, salvo si se tratare de la madre, recién nacido, o criatura abortiva, muertos durante el parto o con una diferencia de fallecimiento no mayor a 24 horas. También es prohibida la inhumación en féretros de metal u otro material de difícil y lenta descomposición.

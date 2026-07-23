@@ -1,0 +1,1 @@
+Artículo 82- En las cesiones de derechos funerarios, tendrán prioridad los efectuados entre familiares, lo cual se comprobará por medio de certificaciones emitidas por el Registro Civil. En caso de que no existan familiares sobrevivientes, se aceptará cesiones a terceras personas, para lo cual los interesados deberán aportar al menos dos testigos.

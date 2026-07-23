@@ -1,0 +1,1 @@
+Artículo 75- Cuando algún permisionario, concesionario y/o solicitante requiera que se realice una exhumación como parte de las diligencias dentro de procesos judiciales, reconocimientos de paternidad u otros de similar naturaleza, se deberá presentar la orden judicial emitida por la autoridad competente.

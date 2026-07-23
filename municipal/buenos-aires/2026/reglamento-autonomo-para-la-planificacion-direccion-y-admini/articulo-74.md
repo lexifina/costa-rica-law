@@ -1,0 +1,1 @@
+Artículo 74- Los restos exhumados serán colocados en una bolsa plástica o de tela, para su traslado al osario general, cementerio u otra bóveda. Los restos de ropa, madera y otros serán incinerados o enterrados en una fosa común directamente en el suelo.

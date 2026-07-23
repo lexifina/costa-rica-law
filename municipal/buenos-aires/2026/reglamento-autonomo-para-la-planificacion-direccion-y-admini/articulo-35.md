@@ -1,0 +1,1 @@
+Artículo 35- Una vez iniciadas las obras de construcción dentro del cementerio, los encargados de dicha actividad tendrán un tiempo prudencial de 60 días calendario, para finiquitar todo, dejando limpia el área, libre de presencia de escombros dentro del inmueble, para mantener el orden, limpieza y ornato.

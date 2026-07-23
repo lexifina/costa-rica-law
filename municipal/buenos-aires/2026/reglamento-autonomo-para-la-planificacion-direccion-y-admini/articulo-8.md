@@ -1,0 +1,1 @@
+Artículo 8- En cada cementerio deberá existir un osario general, debidamente protegido del ingreso y mirada de personas ajenas al cementerio, donde se depositarán los restos óseos provenientes de las exhumaciones.

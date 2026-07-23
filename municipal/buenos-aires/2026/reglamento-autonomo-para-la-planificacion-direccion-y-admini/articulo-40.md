@@ -1,0 +1,1 @@
+Artículo 40-Criterios mínimos para las obras en Cementerios Municipales. En las Unidades de Enterramiento de cuatro nichos no se permitirá la construcción de más de un nicho en forma paralela bajo el nivel del suelo y uno más en la misma forma sobre la superficie. En las de dos nichos se construirá uno bajo el nivel del suelo y otro arriba.

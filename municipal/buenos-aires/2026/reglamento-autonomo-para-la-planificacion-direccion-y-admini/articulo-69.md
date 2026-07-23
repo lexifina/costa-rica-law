@@ -1,0 +1,1 @@
+Artículo 69- Las exhumaciones deberán realizarse exclusivamente en días hábiles de labores (lunes – viernes) de las siete horas a las once horas, y solo en casos de fuerza mayor se realizarán posterior a esta hora, siempre que esto se demuestre y se coordine previamente con la Administración del cementerio.

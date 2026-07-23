@@ -1,0 +1,4 @@
+CAPITULO II
+DE LA ADMINISTRACIÓN
+Artículo 10- Organización Interna de los Cementerios Municipales. Todos los cementerios municipales, se organizarán internamente por sectores y por derechos debidamente enumerados los cuales serán adjudicados mediante el trámite descrito en este reglamento con prioridad a los usuarios del distrito correspondiente al de su domicilio en el Cantón de Buenos Aires y su función será la prestación del servicio esencial para las inhumaciones y exhumaciones de seres humanos o partes de cadáveres humanos.
+Considerando valoraciones de conveniencia institucional y de gestión efectiva de los cementerios, la Administración podrá dictar medidas de urgencia y excepcionales por períodos de tiempo limitados, a fin de resolver los problemas de demanda y oferta en el servicio que se presenten.

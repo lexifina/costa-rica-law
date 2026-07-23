@@ -1,0 +1,1 @@
+Artículo 46- Con respecto a las fosas en tierra, se podrá colocar una cruz y/o pedestal, elaborados en metal inoxidable o cemento, con las siguientes dimensiones: ancho de 0.60 cm, por de altura de 0.70 cm sobre el nivel del suelo.

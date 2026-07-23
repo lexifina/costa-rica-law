@@ -1,0 +1,2 @@
+Artículo 61- Cuando se vaya a realizar una inhumación y el permisionario mantenga deudas pendientes, respecto al pago de los derechos de cementerio, no se le concederá el derecho funerario, por lo que deberá de previo proceder con el pago respectivo, afín de darle trámite a su solicitud de inhumación.
+De ocupar el servicio de forma urgente, y de no ser posible el pago de lo adeudado, el usuario deberá indicar en que otro lugar con la autorización correspondiente se podrá llevar a cabo la inhumación.

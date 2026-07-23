@@ -1,0 +1,2 @@
+Artículo 91- Vigencia y derogatoria: El presente Reglamento entrara en vigencia después de su publicación definitiva en el Diario Oficial La Gaceta y deroga cualquier disposición reglamentaria que con anterioridad haya sido publicada y que se le oponga.
+ACUERDO UNÁNIME Y DEFINITIVAMENTE APROBADO. (con siete votos a favor de los Regidores Orlando Rivera Beita, Fanny Hernández Villarreal, Luis Ureña Gómez, Nixie Beita Rojas, Kenneth Camacho Solís, Ericka Villanueva Escalante y Dreyman Piedra Arauz). 25 de junio de 2026. Lic. Alban Serrano Siles.

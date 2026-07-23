@@ -1,0 +1,1 @@
+Artículo 83- Se prohíbe el subarriendo o cualquier negocio jurídico de similar naturaleza sobre los permisos de uso funerarios. En caso de comprobarse una situación de este tipo parte de la administración municipal se procederá con la rescisión automática del permiso de uso funerario.
