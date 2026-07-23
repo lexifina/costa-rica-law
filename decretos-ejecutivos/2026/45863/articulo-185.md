@@ -1,0 +1,1 @@
+Artículo 185°.-Política de compras verdes El ICE definirá la política de compras verdes del ICE y sus empresas, los objetivos ambientales de las compras, los planes de capacitación dirigidos a lo técnico y la sensibilización de compras verdes, campañas de difusión, plan de propuesta, desarrollo y monitorio de compras verdes, cláusulas tipo a incorporar en los carteles.

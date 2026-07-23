@@ -1,0 +1,3 @@
+Artículo 107.°-Trámite. La actividad contractual excluida legalmente de los procedimientos ordinarios de contratación deberá adaptarse, en lo pertinente, a los principios generales, a los requisitos previos que correspondan y a las normas generales sobre el cartel y la oferta, sin perjudicar con ello los principios de eficacia y eficiencia.
+A excepción de los supuestos de proveedor único, actividad ordinaria e interés manifiesto de colaborar con la Administración, se deberá verificar que el eventual contratista no esté cubierto por el régimen de prohibiciones.
+El mecanismo de selección del contratista, así como su aplicación han de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza.

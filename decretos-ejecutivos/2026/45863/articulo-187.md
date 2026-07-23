@@ -1,0 +1,1 @@
+Artículo 187°.-De la Plataforma Tecnológica. La Proveeduría Institucional deberá contar con la plataforma tecnológica suficiente y adecuada que le permita ejecutar los procedimientos de contratación administrativa en forma eficiente.

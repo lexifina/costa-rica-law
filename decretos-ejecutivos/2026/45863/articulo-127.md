@@ -1,0 +1,5 @@
+Artículo 127°.- Donación de bienes muebles e inmuebles. El ICE y sus empresas, podrán realizar donaciones de bienes muebles e inmuebles a instituciones públicas, siempre que dichos bienes no estén afectos a un fin público y que la donación tenga por objeto la satisfacción del interés público.
+Todos los bienes muebles declarados en desuso o en mal estado podrán ser objeto de donación de conformidad con lo dispuesto en el artículo 75 de la Ley N° 9986, de previo a cualquier donación deberá revisarse las formalidades requeridas por la institución a la cual se dirige la misma.
+Previo a la ejecución de la donación, se deberá contar con el avalúo de los bienes, realizado por el Área de Avalúos del ICE, de acuerdo con el valor real del mercado.
+Para proceder con la donación de bienes inmuebles, deberá mediar resolución motivada por parte del máximo jerarca de la institución que dona, sin que pueda delegar tal actuación, así como un acuerdo de aceptación tomado por el máximo jerarca de la institución beneficiaria de la donación.
+Para la donación de bienes muebles la decisión de donar deberá ser adoptada por el jerarca o por quien este delegue.

@@ -1,0 +1,1 @@
+Artículo 9º.-Creación de plazas, aumentos e incentivos. En enero de cada año el ICE informará al Ministerio de Hacienda sobre la creación de nuevas plazas, aumentos salariales o del establecimiento de incentivos e indicadores de ejecución de los presupuestos implementados el año anterior. La documentación comprenderá la del ICE y la de sus empresas.

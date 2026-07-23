@@ -1,0 +1,1 @@
+Artículo 181°.-Arbitraje. El ICE podrá negociar acuerdos o contratos con cláusulas compromisorias de arbitraje de derecho o de equidad. El ICE está habilitado para determinar la legislación aplicable a los actos o contratos celebrados con entidades o sujetos de otros países.

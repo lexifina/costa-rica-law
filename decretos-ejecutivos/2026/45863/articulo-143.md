@@ -1,0 +1,3 @@
+Artículo 143°.-Objeción en licitaciones abreviadas. Contra el cartel de las licitaciones abreviadas procederá la interposición del recurso de objeción al cartel, ante la Administración licitante.
+El recurso deberá ser resuelto dentro de diez días hábiles siguientes a su presentación, mediante acto debidamente motivado.
+Cuando la Administración disponga la modificación del cartel, deberá realizar las modificaciones y publicarlas por los medios correspondientes. Si de las modificaciones efectuadas se derivare una variación sustancial del objeto, deberá ampliarse el plazo de recepción de ofertas, para ajustarlo a los plazos mínimos señalados por este Reglamento.

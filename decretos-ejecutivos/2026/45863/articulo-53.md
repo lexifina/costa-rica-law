@@ -1,0 +1,3 @@
+Artículo 53°.-Cotización del Objeto. El oferente cotizará el objeto a contratar de acuerdo con los términos que establezca el cartel.
+La sola presentación de la oferta se entenderá como una manifestación inequívoca de la voluntad del oferente de contratar con pleno sometimiento a las condiciones cartelarias, disposiciones legales y reglamentarias vigentes. La sumisión operará de pleno derecho.
+Se presume que la oferta económica contempla la totalidad de la oferta técnica, salvo prueba en contrario. En caso de adjudicarse, el contratista estará obligado a cumplir con el objeto íntegro, sin cobrar ninguna suma adicional más allá de que proceda alguna revisión o reajuste del precio, en aras de mantener el equilibrio económico del contrato.

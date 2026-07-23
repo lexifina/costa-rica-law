@@ -1,0 +1,2 @@
+Artículo 47°.-Publicación y contenido de la invitación al concurso. La invitación a participar para todo concurso o excepción a los procedimientos ordinarios se publicará en el SICOP o SECICE ICE. Para los procedimientos tramitados en físico se publicará en la página web de la Dirección Proveeduría.
+El cartel y sus anexos deberán estar a disposición de cualquier interesado, al menos desde el día siguiente en que se curse la última invitación.

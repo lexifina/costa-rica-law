@@ -1,0 +1,1 @@
+Transitorio II.-De conformidad con los artículos 8º, 9º y 10 de la Ley Nº 8660, el Instituto Costarricense de Electricidad y sus empresas podrán suscribir acuerdos de asociación empresarial, sin perjuicio de lo establecido en el artículo 56 de la Ley Nº 8642.

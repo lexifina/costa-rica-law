@@ -1,0 +1,1 @@
+Artículo 141°.-Prórrogas, modificaciones y adiciones al cartel. Contra las modificaciones o adiciones del cartel, podrá interponerse recurso de objeción dentro del primer cuarto del plazo que medie entre la publicación o comunicación de la modificación hecha al cartel y la fecha señalada para recibir ofertas.

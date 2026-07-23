@@ -1,0 +1,1 @@
+Artículo 18°. -Trámite posterior a la decisión inicial. Una vez adoptada la decisión inicial, se trasladará a la Dirección Proveeduría quien conducirá el procedimiento de contratación administrativa, y será la responsable de verificar que el procedimiento de contratación administrativa esté acorde con la Ley N° 8660, el presente reglamento y el RICA.

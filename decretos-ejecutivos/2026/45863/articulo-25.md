@@ -1,0 +1,1 @@
+Artículo 25°. -Representación. El oferente podrá concurrir por sí mismo o a través de un representante de casas extranjeras, en cuyo caso, deberá hacer indicación expresa de tal circunstancia en la propuesta.

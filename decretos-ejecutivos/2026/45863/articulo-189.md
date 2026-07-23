@@ -1,0 +1,1 @@
+Artículo 189°.-Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de la Proveeduría, todas las demás unidades administrativas y de organización de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático,, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

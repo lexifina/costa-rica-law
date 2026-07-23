@@ -1,0 +1,4 @@
+CAPÍTULO III
+COMPRAS VERDES
+Artículo 183°.-Promoción de criterios ambientales. El ICE y sus empresas promoverán las compras verdes en sus procesos de adquisición de bienes y servicios, de conformidad con el art. 12 de la Ley Nº 8660. Por compra verde se comprenderá la contratación con la inclusión de criterios ambientales relacionados con una o varias de las etapas del ciclo de vida del producto por comprar; sea desde la extracción de la materia prima, su fabricación, distribución y uso, hasta su disposición final.
+Cuando se incorporen criterios ambientales relacionados con una o varias de las etapas del ciclo de vida del producto por comprar, el ICE deberá dar un veinte por ciento (20%) adicional a los oferentes que, en igualdad de condiciones, demuestren que los productos ofrecidos, incorporan los criterios de la gestión integral de residuos, así como la gestión del residuo, una vez terminada su vida útil.

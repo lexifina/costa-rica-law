@@ -1,0 +1,1 @@
+Artículo 115°.-Disponibilidad de la información. La información sobre los procedimientos de contratación del ICE estará disponible en el SICOP o SECICE. En cuanto a los procedimientos en formato físico, la información estará disponible en el expediente de la contratación, dentro del horario establecido en el cartel.

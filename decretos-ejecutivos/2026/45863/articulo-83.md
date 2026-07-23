@@ -1,0 +1,5 @@
+Artículo 83°.-Adjudicación y readjudicación. El acto de adjudicación deberá dictarse dentro del plazo establecido en el cartel. El plazo para adjudicar podrá ser prorrogado por un tanto igual al indicado en el cartel, para lo cual deberá mediar resolución escrita motivada y suscrita por el funcionario competente.
+Vencido dicho plazo sin que se haya dictado el acto de adjudicación, los oferentes tendrán derecho a dejar sin efecto su propuesta, sin que les resulte aplicable sanción alguna.
+El acto de adjudicación dictado fuera del plazo previsto será válido para todos los efectos legales.
+El acuerdo de adjudicación se publicará por el mismo medio de la invitación a concursar.
+En caso de anulación o revocación del acto final producto de un recurso, deberá dictarse un nuevo acto dentro del plazo de un mes contado a partir del día siguiente al de la notificación de la respectiva resolución. Este plazo podrá ser prorrogado, únicamente en casos excepcionales, por única vez y mediante acto debidamente motivado, por el mismo plazo.

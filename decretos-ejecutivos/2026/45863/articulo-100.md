@@ -1,0 +1,3 @@
+Artículo 100°.-Información del Registro de Proveedores. Los proveedores interesados deberán acreditar, entre otros, los siguientes datos: nombre; razón o denominación social; cédula de identidad o jurídica según corresponda; número de teléfono; dirección física; representantes; propiedad de acciones; medio para recibir notificaciones; indicación de si es PYME y su categoría; fecha de inscripción; país de origen, declaración jurada del régimen de prohibiciones.
+Además, contendrá una descripción detallada de los bienes o servicios que ofrece cada proveedor.
+El interesado deberá demostrar la afinidad de su giro comercial con el bien o servicio que pretende ofrecer, a través de contrataciones que haya celebrado ya sea con el sector público o con el sector privado.

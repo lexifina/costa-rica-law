@@ -1,0 +1,1 @@
+Artículo 104°.- Actualización del registro. Será responsabilidad del Proveedor mantener actualizada la información que conste en el Registro de Proveedores, en caso de que no se genere alguna variación en los términos consignados originalmente, deberá realizar la actualización cada 24 meses.

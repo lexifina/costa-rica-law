@@ -1,0 +1,1 @@
+Artículo 118°.-Contrato de obra pública. La contratación de obras públicas se hará mediante los procedimientos de licitación pública, abreviada o por contratación directa, de acuerdo con la estimación del negocio, o excepción aplicable según lo disponen los artículos 22 y 23 la Ley N° 8660..

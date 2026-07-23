@@ -1,0 +1,1 @@
+Artículo 20°.-Estimación del negocio. Para estimar la contratación, se tomará en cuenta el monto de todas las formas de remuneración, incluyendo el costo principal, los fletes, los seguros, las comisiones, los intereses, los tributos, los derechos, las primas y cualquier otra suma que deba reembolsarse como consecuencia de la contratación, sin incluir las prórrogas.

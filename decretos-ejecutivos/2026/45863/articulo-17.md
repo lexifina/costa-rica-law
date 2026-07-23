@@ -1,0 +1,1 @@
+Artículo 17°. -Disponibilidad presupuestaria. Las contrataciones que realice el ICE deberán contar con los recursos suficientes para el momento de dictar el acto de adjudicación. Será responsabilidad del funcionario competente que autorizó el inicio del trámite garantizar dichos recursos y tomar las previsiones necesarias para hacer frente a las obligaciones contraídas.

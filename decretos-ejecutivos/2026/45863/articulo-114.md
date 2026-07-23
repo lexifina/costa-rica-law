@@ -1,0 +1,1 @@
+Artículo 114°.-Principios rectores. Deberán utilizarse medios electrónicos que garanticen al menos la transparencia; libre competencia; igualdad, libre acceso, integridad, neutralidad tecnológica, seguridad, confidencialidad, datos abiertos, el respaldo y trazabilidad de la información desde su origen.

@@ -1,0 +1,1 @@
+Artículo 65°.-Consecuencias de no atender la prevención. Si la prevención de subsanar o aclarar no es atendida oportunamente, el ICE podrá proceder a descalificar al oferente de que se trate, siempre que la naturaleza del defecto lo amerite.

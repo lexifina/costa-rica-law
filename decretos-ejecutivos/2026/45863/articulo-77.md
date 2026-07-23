@@ -1,0 +1,1 @@
+Artículo 77°.-Publicación. La invitación a participar, las modificaciones al cartel y el acto de adjudicación, los concursos con precalificación, y cualquier otro acto, deberán constar en el expediente respectivo.

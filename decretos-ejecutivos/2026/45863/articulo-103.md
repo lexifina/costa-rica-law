@@ -1,0 +1,1 @@
+Artículo 103°.-Uso del Registro. El ICE utilizará el Registro de Proveedores para verificar y centralizar información sobre personas o empresas que ofrecen obras, bienes y servicios, el cual constituye una fuente de referencia en la elaboración de sondeos y estudios de mercado, audiencias previas, así como para verificar la información de los proveedores.

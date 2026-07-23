@@ -1,0 +1,1 @@
+Artículo 178°.-Procedimiento de rescisión. Verificada la causal por la cual procede declarar la rescisión contractual, la Administración procederá a emitir la orden de suspensión del contrato y dará al contratista audiencia de conformidad con el debido proceso establecido en el artículo 114 de la Ley General de Contratación Pública.

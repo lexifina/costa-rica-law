@@ -1,0 +1,5 @@
+SECCIÓN VII
+LA OFERTA
+Artículo 49°.- Concepto y Contenido. La oferta es la manifestación de voluntad del participante, dirigida a la Administración, a fin de celebrar un contrato con ella, conforme a las estipulaciones cartelarias. La oferta, deberá redactarse en idioma español. La información técnica o complementaria y los manuales de uso expedidos por el fabricante deberán también presentarse en idioma español, salvo que en el cartel se permitan otros idiomas con la traducción debidamente consularizada, apostillada o se acepte una traducción libre de su texto.
+La literatura técnica y demás documentación que le dé soporte a la propuesta constituirá parte integral de la oferta.
+Si durante el período de formulación de ofertas, el participante llegara a advertir problemas de definición del objeto o bien dificultades en las características de desempeño o funcionalidad del bien o servicio a contratar, deberá indicarlo por escrito a la Administración, como máximo en la mitad del plazo para presentar las ofertas. Caso contrario, no podrá invocar esa circunstancia como eximente de responsabilidad en la fase de ejecución contractual o de fiscalización.

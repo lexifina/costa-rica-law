@@ -1,0 +1,1 @@
+Artículo 38°.-Devolución de las garantías. El ICE tiene la facultad de devolver parcialmente la garantía de cumplimiento, ante solicitud del contratista, en proporción a la parte ya ejecutada cuando sean factibles entregas parciales del objeto contratado.

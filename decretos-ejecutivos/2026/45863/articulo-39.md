@@ -1,0 +1,2 @@
+Artículo 39°.-Otras garantías y retenciones. El ICE podrá incorporar en el cartel cláusulas de retención porcentual de las sumas pagadas, cuando ello resulte conveniente para asegurar una correcta ejecución contractual.
+Cuando existan adelantos de pago y ello resulte viable, el ICE podrá solicitar garantías colaterales, por todo el monto que se vaya a girar, no obstante, para esta clase de garantías se admitirán otros medios aceptables por las entidades de crédito, como las finanzas, avales, hipotecas y prendas.

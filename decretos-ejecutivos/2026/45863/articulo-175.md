@@ -1,0 +1,1 @@
+Artículo 175°.- Procedimiento de resolución. Una vez sea documentado preliminarmente el incumplimiento, la Administración emitirá la orden de suspensión de éste y dará al contratista audiencia de conformidad con el debido proceso establecido en el artículo 114 de la Ley N° 9986.

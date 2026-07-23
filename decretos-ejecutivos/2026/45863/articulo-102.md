@@ -1,0 +1,1 @@
+Artículo 102°.-Intercambio de registros. Las empresas del Grupo ICE podrán establecer acuerdos de intercambio de información de sus registros, de manera que actualicen y amplíen la información disponible o incluso, pueden acordar convenios marco para configurar y utilizar un único registro.

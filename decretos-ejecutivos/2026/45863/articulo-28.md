@@ -1,0 +1,7 @@
+Artículo 28°.-Descuentos y mejoras al precio. El oferente podrá ofrecer descuentos globales a sus precios. Además, podrán ofrecerse descuentos a los precios unitarios, en razón de un mayor número de líneas que se llegarán a adjudicar, o por pronto pago, pudiendo la Administración, promover estos últimos también en su política de pago.
+El descuento que dependa de la adjudicación de un mayor número de líneas será considerado en el tanto las ofertas elegibles cubran todas las líneas necesarias para su comparación y se convenga una adjudicación total a una misma oferta.
+El oferente podrá incorporar en su propuesta descuentos en razón de la eventual adjudicación de una cantidad de unidades que supere el tope establecido en una misma línea.
+Los descuentos que se den antes de la apertura de ofertas, y que no estén condicionados, se considerarán para efectos de la comparación de precios del concurso.
+Cuando el oferente mejor puntuado según el sistema de evaluación definido en el cartel, haya ofrecido un descuento fuera de la etapa de mejora de precios, o bien cuando no se haya dispuesto esa etapa, dicho descuento será considerado para efectos de adjudicación.
+La mejora de precios deberá quedar prevista en el cartel respectivo. Para lo cual se convocará a los oferentes elegibles, dicha mejora no puede implicar una disminución de las cantidades ni una desmejora de la calidad o condiciones de lo originalmente ofrecido.
+Los oferentes deberán justificar la disminución del precio y presentar la estructura del precio mejorada cuando corresponda.
