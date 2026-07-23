@@ -14,3 +14,4 @@ Reglamento del Festival Folclórico Internacional de Escazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-29 | la propia norma |
+| 2 | 2026-07-23 | Reglamento municipal 56 (2026-07-23) |

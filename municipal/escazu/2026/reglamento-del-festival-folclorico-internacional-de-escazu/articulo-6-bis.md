@@ -1,0 +1,2 @@
+Artículo 6 bis. Transitorio único – Edición 2026Para la edición correspondiente al año 2026, y con el fin de garantizar una adecuadaimplementación de la presente reforma, la selección de las personas integrantes de laComisión Organizadora se realizará excepcionalmente durante el mes de julio del año 2026.A partir del año 2027 y en adelante, el proceso de convocatoria y selección deberá realizarsedurante el mes de enero de cada año, conforme lo dispone el artículo 6 del presentereglamento.
+(Así adicionado en sesión N° 056 del 23 de julio de 2026)
