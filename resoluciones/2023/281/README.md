@@ -15,3 +15,4 @@ Procedimiento para la remisión al Poder Ejecutivo de recomendaciones técnicas 
 | --- | --- | --- |
 | 1 | 2023-11-24 | la propia norma |
 | 2 | 2026-02-26 | Resolución 43 (2026-02-26) |
+| 3 | 2026-07-23 | Resolución 192 (2026-07-23) |

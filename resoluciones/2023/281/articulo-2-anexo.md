@@ -1,11 +1,10 @@
 ANEXO II
-"Canalizaciones válidas y utilizadas por esta Superintendencia a la fecha según las
+“Canalizaciones válidas y utilizadas por esta Superintendencia a la fecha según las
 recomendaciones de la UIT para la factibilidad técnica y análisis de interferencias
-perjudiciales en bandas de asignación no exclusiva según el Plan Nacional de
-Atribución de Frecuencia Decreto Ejecutivo N° 44010-MICITT"
-Conviene señalar que es permitida la agrupación de canales continuos en caso de ser
-requerido para una mayor capacidad de transferencia de datos
-1. CTR 010. Recomendación UIT-R F.1567 para la banda de 216 MHz a 220 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+perjudiciales en bandas de asignación no exclusiva según el Plan Nacional de Atribución de
+Frecuencia Decreto Ejecutivo 44010-MICITT y sus reformas”
+Es permitida la agrupación de canales continuos en caso de ser requerido para una mayor capacidad de transferencia de datos.
+1. CTR 010. Recomendación UIT-R F.1567 para la banda de 216 MHz a 220 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia
 1 | 216.0500 | 21 | 218.0500
 2 | 216.1500 | 22 | 218.1500
@@ -27,7 +26,7 @@ Canal | Frecuencia | Canal | Frecuencia
 18 | 217.7500 | 38 | 219.7500
 19 | 217.8500 | 39 | 219.8500
 20 | 217.9500 | 40 | 219.9500
-2. CTR 010. Recomendación UIT-R F.1567 para la banda de 216 MHz a 220 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+2. CTR 010. Recomendación UIT-R F.1567 para la banda de 216 MHz a 220 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia
 1 | 216.1250 | 9 | 218.1250
 2 | 216.3750 | 10 | 218.3750
@@ -37,7 +36,7 @@ Canal | Frecuencia | Canal | Frecuencia
 6 | 217.3750 | 14 | 219.3750
 7 | 217.6250 | 15 | 219.6250
 8 | 217.8750 | 16 | 219.8750
-3. CTR 010. Recomendación UIT-R F.1567 para la banda de 324 MHz a 328,6 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+3. CTR 010. Recomendación UIT-R F.1567 para la banda de 324 MHz a 328,6 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia
 1 | 324.0500 | 24 | 326.3500
 2 | 324.1500 | 25 | 326.4500
@@ -62,7 +61,7 @@ Canal | Frecuencia | Canal | Frecuencia
 21 | 326.0500 | 44 | 328.3500
 22 | 326.1500 | 45 | 328.4500
 23 | 326.2500 | 46 | 328.5500
-4. CTR 010. Recomendación UIT-R F.1567 para la banda de 324 MHz a 328,6 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+4. CTR 010. Recomendación UIT-R F.1567 para la banda de 324 MHz a 328,6 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia
 1 | 324.1250 | 10 | 326.3750
 2 | 324.3750 | 11 | 326.6250
@@ -73,7 +72,7 @@ Canal | Frecuencia | Canal | Frecuencia
 7 | 325.6250 | 16 | 327.8750
 8 | 325.8750 | 17 | 328.1250
 9 | 326.1250 | 18 | 328.3750
-5. CTR 010. Recomendación UIT-R F.1567 para la banda de 335,4 MHz a 399,9 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+CTR 010. Recomendación UIT-R F.1567 para la banda de 335,4 MHz a 399,9 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 1 | 335.4500 | 163 | 351.6500 | 325 | 367.8500 | 487 | 384.0500
 2 | 335.5500 | 164 | 351.7500 | 326 | 367.9500 | 488 | 384.1500
@@ -110,9 +109,9 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 33 | 338.6500 | 195 | 354.8500 | 357 | 371.0500 | 519 | 387.2500
 34 | 338.7500 | 196 | 354.9500 | 358 | 371.1500 | 520 | 387.3500
 35 | 338.8500 | 197 | 355.0500 | 359 | 371.2500 | 521 | 387.4500
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 36 | 338.9500 | 198 | 355.1500 | 360 | 371.3500 | 522 | 387.5500
 37 | 339.0500 | 199 | 355.2500 | 361 | 371.4500 | 523 | 387.6500
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 38 | 339.1500 | 200 | 355.3500 | 362 | 371.5500 | 524 | 387.7500
 39 | 339.2500 | 201 | 355.4500 | 363 | 371.6500 | 525 | 387.8500
 40 | 339.3500 | 202 | 355.5500 | 364 | 371.7500 | 526 | 387.9500
@@ -155,7 +154,6 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 77 | 343.0500 | 239 | 359.2500 | 401 | 375.4500 | 563 | 391.6500
 78 | 343.1500 | 240 | 359.3500 | 402 | 375.5500 | 564 | 391.7500
 79 | 343.2500 | 241 | 359.4500 | 403 | 375.6500 | 565 | 391.8500
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 80 | 343.3500 | 242 | 359.5500 | 404 | 375.7500 | 566 | 391.9500
 81 | 343.4500 | 243 | 359.6500 | 405 | 375.8500 | 567 | 392.0500
 82 | 343.5500 | 244 | 359.7500 | 406 | 375.9500 | 568 | 392.1500
@@ -168,6 +166,7 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 89 | 344.2500 | 251 | 360.4500 | 413 | 376.6500 | 575 | 392.8500
 90 | 344.3500 | 252 | 360.5500 | 414 | 376.7500 | 576 | 392.9500
 91 | 344.4500 | 253 | 360.6500 | 415 | 376.8500 | 577 | 393.0500
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 92 | 344.5500 | 254 | 360.7500 | 416 | 376.9500 | 578 | 393.1500
 93 | 344.6500 | 255 | 360.8500 | 417 | 377.0500 | 579 | 393.2500
 94 | 344.7500 | 256 | 360.9500 | 418 | 377.1500 | 580 | 393.3500
@@ -198,7 +197,6 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 119 | 347.2500 | 281 | 363.4500 | 443 | 379.6500 | 605 | 395.8500
 120 | 347.3500 | 282 | 363.5500 | 444 | 379.7500 | 606 | 395.9500
 121 | 347.4500 | 283 | 363.6500 | 445 | 379.8500 | 607 | 396.0500
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 122 | 347.5500 | 284 | 363.7500 | 446 | 379.9500 | 608 | 396.1500
 123 | 347.6500 | 285 | 363.8500 | 447 | 380.0500 | 609 | 396.2500
 124 | 347.7500 | 286 | 363.9500 | 448 | 380.1500 | 610 | 396.3500
@@ -225,6 +223,7 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 145 | 349.8500 | 307 | 366.0500 | 469 | 382.2500 | 631 | 398.4500
 146 | 349.9500 | 308 | 366.1500 | 470 | 382.3500 | 632 | 398.5500
 147 | 350.0500 | 309 | 366.2500 | 471 | 382.4500 | 633 | 398.6500
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 148 | 350.1500 | 310 | 366.3500 | 472 | 382.5500 | 634 | 398.7500
 149 | 350.2500 | 311 | 366.4500 | 473 | 382.6500 | 635 | 398.8500
 150 | 350.3500 | 312 | 366.5500 | 474 | 382.7500 | 636 | 398.9500
@@ -240,7 +239,7 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 160 | 351.3500 | 322 | 367.5500 | 484 | 383.7500 | - | -
 161 | 351.4500 | 323 | 367.6500 | 485 | 383.8500 | - | -
 162 | 351.5500 | 324 | 367.7500 | 486 | 383.9500 | - | -
-6. CTR 010. Recomendación UIT-R F.1567 para la banda de 335,4 MHz a 399,9 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
+6. CTR 010. Recomendación UIT-R F.1567 para la banda de 335,4 MHz a 399,9 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 1 | 335.5250 | 66 | 351.7750 | 131 | 368.0250 | 196 | 384.2750
 2 | 335.7750 | 67 | 352.0250 | 132 | 368.2750 | 197 | 384.5250
@@ -279,8 +278,8 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 35 | 344.0250 | 100 | 360.2750 | 165 | 376.5250 | 230 | 392.7750
 36 | 344.2750 | 101 | 360.5250 | 166 | 376.7750 | 231 | 393.0250
 37 | 344.5250 | 102 | 360.7750 | 167 | 377.0250 | 232 | 393.2750
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 38 | 344.7750 | 103 | 361.0250 | 168 | 377.2750 | 233 | 393.5250
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 39 | 345.0250 | 104 | 361.2750 | 169 | 377.5250 | 234 | 393.7750
 40 | 345.2750 | 105 | 361.5250 | 170 | 377.7750 | 235 | 394.0250
 41 | 345.5250 | 106 | 361.7750 | 171 | 378.0250 | 236 | 394.2750
@@ -308,15 +307,13 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 63 | 351.0250 | 128 | 367.2750 | 193 | 383.5250 | 258 | 399.7750
 64 | 351.2750 | 129 | 367.5250 | 194 | 383.7750 | - | -
 65 | 351.5250 | 130 | 367.7750 | 195 | 384.0250 | - | -
-7. CTR 010. Recomendación UIT-R F.1567 para la banda de 401 MHz a 420 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre.
-[imagen] Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
+7. CTR 010. Recomendación UIT-R F.1567 para la banda de 401 MHz a 420 MHz con un ancho de banda de 100 kHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 1 | 401.0500 | 49 | 405.85 | 97 | 410.65 | 145 | 415.45
 2 | 401.1500 | 50 | 405.95 | 98 | 410.75 | 146 | 415.55
-3 | 401.2500 | 51 | 406.052 | 99 | 410.85 | 147 | 415.65
+3 | 401.2500 | 51 | 406.051 | 99 | 410.85 | 147 | 415.65
 4 | 401.3500 | 52 | 406.15 | 100 | 410.95 | 148 | 415.75
 5 | 401.4500 | 53 | 406.25 | 101 | 411.05 | 149 | 415.85
-2 Canales resaltados fuera del rango de uso no exclusivo.
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 6 | 401.5500 | 54 | 406.35 | 102 | 411.15 | 150 | 415.95
 7 | 401.6500 | 55 | 406.45 | 103 | 411.25 | 151 | 416.05
 8 | 401.7500 | 56 | 406.55 | 104 | 411.35 | 152 | 416.15
@@ -336,6 +333,9 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 22 | 403.1500 | 70 | 407.95 | 118 | 412.75 | 166 | 417.55
 23 | 403.2500 | 71 | 408.05 | 119 | 412.85 | 167 | 417.65
 24 | 403.3500 | 72 | 408.15 | 120 | 412.95 | 168 | 417.75
+[imagen]
+1 Canales resaltados fuera del rango de uso no exclusivo.
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 25 | 403.4500 | 73 | 408.25 | 121 | 413.05 | 169 | 417.85
 26 | 403.5500 | 74 | 408.35 | 122 | 413.15 | 170 | 417.95
 27 | 403.6500 | 75 | 408.45 | 123 | 413.25 | 171 | 418.05
@@ -359,9 +359,9 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuenci
 45 | 405.4500 | 93 | 410.25 | 141 | 415.05 | 189 | 419.85
 46 | 405.5500 | 94 | 410.35 | 142 | 415.15 | 190 | 419.95
 47 | 405.6500 | 95 | 410.45 | 143 | 415.25 | |
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 48 | 405.7500 | 96 | 410.55 | 144 | 415.35 | |
-8. CTR 010. Recomendación UIT-R F.1567 para la banda de 401 MHz a 420 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo, únicamente para concesionarios de frecuencias otorgadas para servicios de telecomunicaciones disponibles al público o para concesionarios de frecuencias matrices o primarias del servicio de radiodifusión de acceso libre. Canalización para el segmento 401 MHz a 406 MHz:
+8. CTR 010. Recomendación UIT-R F.1567 para la banda de 401 MHz a 420 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo.
+• 8.1 analización para el segmento 401 MHz a 406 MHz:
 Canal | Frecuencia | Canal | Frecuencia
 1 | 401.1250 | 11 | 403.6250
 2 | 401.3750 | 12 | 403.8750
@@ -373,7 +373,7 @@ Canal | Frecuencia | Canal | Frecuencia
 8 | 402.8750 | 18 | 405.3750
 9 | 403.1250 | 19 | 405.6250
 10 | 403.3750 | 20 | 405.8750
-Canalización para el segmento 406,1 MHz a 420 MHz:
+• 8.2 Canalización para el segmento 406,1 MHz a 420 MHz:
 Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 1 | 406.225 | 20 | 410.975 | 39 | 415.725
 2 | 406.475 | 21 | 411.225 | 40 | 415.975
@@ -391,11 +391,12 @@ Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 14 | 409.475 | 33 | 414.225 | 52 | 418.975
 15 | 409.725 | 34 | 414.475 | 53 | 419.225
 16 | 409.975 | 35 | 414.725 | 54 | 419.475
+Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 17 | 410.225 | 36 | 414.975 | 55 | 419.725
 18 | 410.475 | 37 | 415.225 | |
-Canal | Frecuencia | Canal | Frecuencia | Canal | Frecuencia
 19 | 410.725 | 38 | 415.475 | |
-9. CTR 018. Banda de 928 MHz a 960 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo. Canalización para el segmento 928 MHz a 940 MHz:
+9. CTR 018. Banda de 928 MHz a 960 MHz con un ancho de banda de 250 kHz de asignación no exclusiva en el servicio fijo.
+9.1 Canalización para el segmento 928 MHz a 940 MHz:
 Canal | Frecuencia | Canal | Frecuencia
 1 | 928.250 | 25 | 934.250
 2 | 928.500 | 26 | 934.500
@@ -421,7 +422,7 @@ Canal | Frecuencia | Canal | Frecuencia
 22 | 933.500 | 46 | 939.500
 23 | 933.750 | 47 | 939.750
 24 | 934.000 | |
-Canalización para el segmento 947 MHz a 960 MHz:
+9.2 Canalización para el segmento 947 MHz a 960 MHz:
 Canal | Frecuencia | Canal | Frecuencia
 1 | 947.250 | 27 | 953.750
 2 | 947.500 | 28 | 954.000
@@ -432,7 +433,6 @@ Canal | Frecuencia | Canal | Frecuencia
 7 | 948.750 | 33 | 955.250
 8 | 949.000 | 34 | 955.500
 9 | 949.250 | 35 | 955.750
-Canal | Frecuencia | Canal | Frecuencia
 10 | 949.500 | 36 | 956.000
 11 | 949.750 | 37 | 956.250
 12 | 950.000 | 38 | 956.500
@@ -447,171 +447,227 @@ Canal | Frecuencia | Canal | Frecuencia
 21 | 952.250 | 47 | 958.750
 22 | 952.500 | 48 | 959.000
 23 | 952.750 | 49 | 959.250
+Canal | Frecuencia | Canal | Frecuencia
 24 | 953.000 | 50 | 959.500
 25 | 953.250 | 51 | 959.750
 26 | 953.500 | |
-10. CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas atribuidas al Servicio Móvil para el desarrollo de sistemas IMT.
+CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho de banda de 80 MHz de asignación no exclusiva en el servicio fijo
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 4430 | 1' | 4730
-2 | 4470 | 2' | 4770
-3 | 4510 | 3' | 4810
-4 | 4550 | 4' | 4850
-5 | 4590 | 5' | 4890
-6 | 4630 | 6' | 4930
-7 | 4670 | 7' | 4970
-11. CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas atribuidas al Servicio Móvil para el desarrollo de sistemas IMT.
+1 | 4450 | 1’ | 4750
+2 | 4530 | 2’ | 4830
+3 | 4610 | 3’ | 4910
+4 | 4690 | 4’ | 49902
+CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 4555 | 1 | 4745
-2 | 4575 | 2 | 4765
-3 | 4595 | 3 | 4785
-4 | 4615 | 4 | 4805
-5 | 4635 | 5 | 4825
-6 | 4655 | 6 | 4845
-7 | 4675 | 7 | 4865
-8 | 4695 | 8 | 4885
-12. CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 29,65 MHz de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas atribuidas al Servicio Móvil para el desarrollo de sistemas IMT.
+1 | 4430 | 1’ | 4730
+2 | 4470 | 2’ | 4770
+3 | 4510 | 3’ | 4810
+4 | 4550 | 4’ | 4850
+5 | 4590 | 5’ | 4890
+6 | 4630 | 6’ | 4930
+7 | 4670 | 7’ | 4970
+CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho
+de banda de 28 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 5945.2 | 1 | 6197.24
-2 | 5974.85 | 2 | 6226.89
-3 | 6004.5 | 3 | 6256.54
-4 | 6034.15 | 4 | 6286.19
-5 | 6063.8 | 5 | 6315.84
-6 | 6093.45 | 6 | 6345.49
-7 | 6123.1 | 7 | 6375.14
-8 | 6152.75 | 8 | 6404.79
-13. CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas atribuidas al Servicio Móvil para el desarrollo de sistemas IMT.
+1 | 4418 | 1’ | 4730
+2 | 4446 | 2’ | 4758
+3 | 4474 | 3’ | 4786
+4 | 4502 | 4’ | 4814
+5 | 4530 | 5’ | 4842
+6 | 4558 | 6’ | 4870
+7 | 4586 | 7’ | 4898
+8 | 4614 | 8’ | 4926
+9 | 4642 | 9’ | 4954
+10 | 4670 | 10’ | 4982
+CTR 030. Recomendación UIT-R F.1099 para la banda de 4400 MHz a 5000 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 5945 | 1 | 6205
-2 | 5985 | 2 | 6245
-3 | 6025 | 3 | 6285
-4 | 6065 | 4 | 6325
-5 | 6105 | 5 | 6365
-6 | 6145 | 6 | 6405
-14. CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas atribuidas al Servicio Móvil para el desarrollo de sistemas IMT.
+1 | 4555 | 1’ | 4745
+2 | 4575 | 2’ | 4765
+3 | 4595 | 3’ | 4785
+4 | 4615 | 4’ | 4805
+5 | 4635 | 5’ | 4825
+6 | 4655 | 6’ | 4845
+7 | 4675 | 7’ | 4865
+8 | 4695 | 8’ | 4885
+CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 59,3 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 5925 | 1 | 6185
-2 | 5945 | 2 | 6205
-3 | 5965 | 3 | 6225
-4 | 5985 | 4 | 6245
-5 | 6005 | 5 | 6265
-6 | 6025 | 6 | 6285
-7 | 6045 | 7 | 6305
-8 | 6065 | 8 | 6325
-9 | 6085 | 9 | 6345
-10 | 6105 | 10 | 6365
-11 | 6125 | 11 | 6385
-12 | 6145 | 12 | 6405
-15. CTR 033. Recomendación UIT-R F.384 para la banda de 6425 MHz a 7110 MHz
-con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo, para
-radioenlaces punto a punto de redes del servicio de radiodifusión televisiva y en redes
-de telecomunicaciones.
+1 | 5960,03 | 1’ | 6212,07
+2 | 6019,33 | 2’ | 6271,37
+3 | 6078,63 | 3’ | 6330,67
+4 | 6137,93 | 4’ | 6389,97
+[imagen]
+2 Canales resaltados fuera del rango de uso no exclusivo
+CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 6460 | 1' | 6800
-2 | 6500 | 2' | 6840
-3 | 6540 | 3' | 6880
-4 | 6580 | 4' | 6920
-5 | 6620 | 5' | 6960
-6 | 6660 | 6' | 7000
-7 | 6700 | 7' | 7040
-8 | 6740 | 8' | 7080
-16. CTR 033. Recomendación UIT-R F.384 para la banda de 6425 MHz a 7110 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto de redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+1 | 5945 | 1’ | 6205
+2 | 5985 | 2’ | 6245
+3 | 6025 | 3’ | 6285
+4 | 6065 | 4’ | 6325
+5 | 6105 | 5’ | 6365
+6 | 6145 | 6’ | 6405
+CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 29,65 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 6440 | 1' | 6780
-2 | 6460 | 2' | 6800
-3 | 6480 | 3' | 6820
-4 | 6500 | 4' | 6840
-5 | 6520 | 5' | 6860
-6 | 6540 | 6' | 6880
-7 | 6560 | 7' | 6900
-8 | 6580 | 8' | 6920
-9 | 6600 | 9' | 6940
-10 | 6620 | 10' | 6960
-11 | 6640 | 11' | 6980
+1 | 5945.2 | 1’ | 6197.24
+2 | 5974.85 | 2’ | 6226.89
+3 | 6004.5 | 3’ | 6256.54
+4 | 6034.15 | 4’ | 6286.19
+5 | 6063.8 | 5’ | 6315.84
+6 | 6093.45 | 6’ | 6345.49
+7 | 6123.1 | 7’ | 6375.14
+8 | 6152.75 | 8’ | 6404.79
+CTR 032. Recomendación UIT-R F.383 para la banda de 5925 MHz a 6425 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia
-12 | 6660 | 12' | 7000
-13 | 6680 | 13' | 7020
-14 | 6700 | 14' | 7040
-15 | 6720 | 15' | 7060
+1 | 5925 | 1’ | 6185
+2 | 5945 | 2’ | 6205
+3 | 5965 | 3’ | 6225
+4 | 5985 | 4’ | 6245
+5 | 6005 | 5’ | 6265
+6 | 6025 | 6’ | 6285
+7 | 6045 | 7’ | 6305
+8 | 6065 | 8’ | 6325
+9 | 6085 | 9’ | 6345
+10 | 6105 | 10’ | 6365
+11 | 6125 | 11’ | 6385
+12 | 6145 | 12’ | 6405
+CTR 033. Recomendación UIT-R F.384 para la banda de 6425 MHz a 7110 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | | Frecuencia
+1 | 6460 | 1’ | | 6800
+2 | 6500 | 2’ | | 6840
+3 | 6540 | 3’ | | 6880
+4 | 6580 | 4’ | | 6920
+5 | 6620 | 5’ | | 6960
+6 | 6660 | 6’ | | 7000
+7 | 6700 | 7’ | | 7040
+8 | 6740 | 8’ | | 7080
+CTR 033. Recomendación UIT-R F.384 para la banda de 6425 MHz a 7110 MHz con un ancho de banda de 30 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 6460 | 1’ | 6800
+2 | 6490 | 2’ | 6830
+3 | 6520 | 3’ | 6860
+4 | 6550 | 4’ | 6890
+5 | 6580 | 5’ | 6920
+6 | 6610 | 6’ | 6950
+7 | 6640 | 7’ | 6980
+8 | 6670 | 8’ | 7010
+Canal | Frecuencia | Canal primo | Frecuencia
+9 | 6700 | 9’ | 7040
+10 | 6730 | 10’ | 7070
+CTR 033. Recomendación UIT-R F.384 para la banda de 6425 MHz a 7110 MHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 6440 | 1’ | 6780
+2 | 6460 | 2’ | 6800
+3 | 6480 | 3’ | 6820
+4 | 6500 | 4’ | 6840
+5 | 6520 | 5’ | 6860
+6 | 6540 | 6’ | 6880
+7 | 6560 | 7’ | 6900
+8 | 6580 | 8’ | 6920
+9 | 6600 | 9’ | 6940
+10 | 6620 | 10’ | 6960
+11 | 6640 | 11’ | 6980
+12 | 6660 | 12’ | 7000
+13 | 6680 | 13’ | 7020
+14 | 6700 | 14’ | 7040
+15 | 6720 | 15’ | 7060
 16 | 6740 | 16 | 7080
-17. CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto de redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 56 MHz de asignación no exclusiva.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7138.5 | 1' | 7299.5
-2 | 7166.5 | 2' | 7327.5
-3 | 7194.5 | 3' | 7355.5
-4 | 7222.5 | 4' | 7383.5
-5 | 7250.5 | 5' | 7411.53 3 Canales resaltados fuera del rango de uso no exclusivo para el servicio de radiodifusión televisiva
-18. CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto de redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+1 | 7156 | 1’ | 7310
+2 | 7184 | 2’ | 7338
+3 | 7212 | 3’ | 7366
+4 | 7240 | 4’ | 7394
+CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 28 MHz de asignación no exclusiva.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7131.5 | 1' | 7292.5
-2 | 7145.5 | 2' | 7306.5
-3 | 7159.5 | 3' | 7320.5
-4 | 7173.5 | 4' | 7334.5
-5 | 7187.5 | 5' | 7348.5
-6 | 7201.5 | 6' | 7362.5
-7 | 7215.5 | 7' | 7376.5
-8 | 7229.5 | 8' | 7390.5
-9 | 7243.5 | 9' | 7404.5
-10 | 7257.5 | 10' | 7418.54 4 Canales resaltados fuera del rango de uso no exclusivo para el servicio de radiodifusión televisiva
-19. CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto de redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+1 | 7138.5 | 1’ | 7299.5
+2 | 7166.5 | 2’ | 7327.5
+3 | 7194.5 | 3’ | 7355.5
+4 | 7222.5 | 4’ | 7383.5
+5 | 7250.5 | 5’ | 7411.53
+CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 14 MHz de asignación no.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7128 | 1' | 7289
-2 | 7135 | 2' | 7296
-3 | 7142 | 3' | 7303
-4 | 7149 | 4' | 7310
-5 | 7156 | 5' | 7317
-6 | 7163 | 6' | 7324
-7 | 7170 | 7' | 7331
-8 | 7177 | 8' | 7338
-9 | 7184 | 9' | 7345
-10 | 7191 | 10' | 7352
-11 | 7198 | 11' | 7359
-12 | 7205 | 12' | 7366
-13 | 7212 | 13' | 7373
-14 | 7219 | 14' | 7380
-15 | 7226 | 15' | 7387
-16 | 7233 | 16' | 7394
-17 | 7240 | 17' | 7401
-18 | 7247 | 18' | 7408
-19 | 7254 | 19' | 7415
-20 | 7261 | 20' | 74225
-20. CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 7131.5 | 1’ | 7292.5
+2 | 7145.5 | 2’ | 7306.5
+3 | 7159.5 | 3’ | 7320.5
+4 | 7173.5 | 4’ | 7334.5
+5 | 7187.5 | 5’ | 7348.5
+6 | 7201.5 | 6’ | 7362.5
+7 | 7215.5 | 7’ | 7376.5
+8 | 7229.5 | 8’ | 7390.5
+9 | 7243.5 | 9’ | 7404.5
+10 | 7257.5 | 10’ | 7418.54
+[imagen]
+3 Canales resaltados fuera del rango de uso no exclusivo
+4 Canales resaltados fuera del rango de uso no exclusivo
+CTR 034. Recomendación UIT-R F.385 para la banda de 7110 MHz a 7425 MHz con un ancho de banda de 7 MHz de asignación no exclusiva.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7442 | 1 | 7596
-2 | 7470 | 2 | 7624
-3 | 7498 | 3 | 7652
-4 | 7526 | 4 | 7680
-5 | 7554 | 5 | 7708
+1 | 7128 | 1’ | 7289
+2 | 7135 | 2’ | 7296
+3 | 7142 | 3’ | 7303
+4 | 7149 | 4’ | 7310
+5 | 7156 | 5’ | 7317
+6 | 7163 | 6’ | 7324
+7 | 7170 | 7’ | 7331
+8 | 7177 | 8’ | 7338
+9 | 7184 | 9’ | 7345
+10 | 7191 | 10’ | 7352
+11 | 7198 | 11’ | 7359
+12 | 7205 | 12’ | 7366
+13 | 7212 | 13’ | 7373
+14 | 7219 | 14’ | 7380
+15 | 7226 | 15’ | 7387
+16 | 7233 | 16’ | 7394
+17 | 7240 | 17’ | 7401
+18 | 7247 | 18’ | 7408
+19 | 7254 | 19’ | 7415
+20 | 7261 | 20’ | 74225
+CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7438.5 | 1 | 7599.5
-2 | 7466.5 | 2 | 7627.5
-3 | 7494.5 | 3 | 7655.5
-4 | 7522.5 | 4 | 7683.5
-5 | 7550.5 | 5 | 7711.5
-5 Canales resaltados fuera del rango de uso no exclusivo para el servicio de radiodifusión televisiva 21. CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 7442 | 1’ | 7596
+2 | 7470 | 2’ | 7624
+3 | 7498 | 3’ | 7652
+4 | 7526 | 4’ | 7680
+5 | 7554 | 5’ | 7708
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7431.5 | 1 | 7592.5
-2 | 7445.5 | 2 | 7606.5
-3 | 7459.5 | 3 | 7620.5
-4 | 7473.5 | 4 | 7634.5
-5 | 7487.5 | 5 | 7648.5
-6 | 7501.5 | 6 | 7662.5
-7 | 7515.5 | 7 | 7676.5
-8 | 7529.5 | 8 | 7690.5
-9 | 7543.5 | 9 | 7704.5
-10 | 7557.5 | 10 | 7718.5
-22. CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 7438.5 | 1’ | 7599.5
+2 | 7466.5 | 2’ | 7627.5
+3 | 7494.5 | 3’ | 7655.5
+4 | 7522.5 | 4’ | 7683.5
+5 | 7550.5 | 5’ | 7711.5
+CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 7431.5 | 1’ | 7592.5
+2 | 7445.5 | 2’ | 7606.5
+3 | 7459.5 | 3’ | 7620.5
+4 | 7473.5 | 4’ | 7634.5
+5 | 7487.5 | 5’ | 7648.5
+6 | 7501.5 | 6’ | 7662.5
+7 | 7515.5 | 7’ | 7676.5
+8 | 7529.5 | 8’ | 7690.5
+9 | 7543.5 | 9’ | 7704.5
+10 | 7557.5 | 10’ | 7718.5
+[imagen]
+5 Canales resaltados fuera del rango de uso no exclusivo
+CTR 035. Recomendación UIT-R F.385 para la banda de 7425 MHz a 7900 MHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7428 | 1 | 7589 | 11 | 7498 | 11 | 7659
-2 | 7435 | 2 | 7596 | 12 | 7505 | 12 | 7666
-3 | 7442 | 3 | 7603 | 13 | 7512 | 13 | 7673
-4 | 7449 | 4 | 7610 | 14 | 7519 | 14 | 7680
-5 | 7456 | 5 | 7617 | 15 | 7526 | 15 | 7687
-6 | 7463 | 6 | 7624 | 16 | 7533 | 16 | 7694
-7 | 7470 | 7 | 7631 | 17 | 7540 | 17 | 7701
-8 | 7477 | 8 | 7638 | 18 | 7547 | 18 | 7708
-9 | 7484 | 9 | 7645 | 19 | 7554 | 19 | 7715
-10 | 7491 | 10 | 7652 | 20 | 7561 | 20 | 7722
-23. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 29.65 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 7428 | 1’ | 7589 | 11 | 7498 | 11’ | 7659
+2 | 7435 | 2’ | 7596 | 12 | 7505 | 12’ | 7666
+3 | 7442 | 3’ | 7603 | 13 | 7512 | 13’ | 7673
+4 | 7449 | 4’ | 7610 | 14 | 7519 | 14’ | 7680
+5 | 7456 | 5’ | 7617 | 15 | 7526 | 15’ | 7687
+6 | 7463 | 6’ | 7624 | 16 | 7533 | 16’ | 7694
+7 | 7470 | 7’ | 7631 | 17 | 7540 | 17’ | 7701
+8 | 7477 | 8’ | 7638 | 18 | 7547 | 18’ | 7708
+9 | 7484 | 9’ | 7645 | 19 | 7554 | 19’ | 7715
+10 | 7491 | 10’ | 7652 | 20 | 7561 | 20’ | 7722
+CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 7745 | 1’ | 8015
+2 | 7785 | 2’ | 8055
+3 | 7825 | 3’ | 8095
+4 | 7865 | 4’ | 8135
+5 | 7905 | 5’ | 8175
+6 | 7945 | 6’ | 8215
+CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 29.65 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 7747.7 | 1 | 8059.02
 2 | 7777.35 | 2 | 8088.67
@@ -621,7 +677,7 @@ Canal | Frecuencia | Canal primo | Frecuencia
 6 | 7895.95 | 6 | 8207.27
 7 | 7925.6 | 7 | 8236.92
 8 | 7955.25 | 8 | 8266.57
-24. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 8293 | 1 | 8412
 3 | 8321 | 3 | 8440
@@ -630,22 +686,21 @@ Canal | Frecuencia | Canal primo | Frecuencia
 2 | 8307 | 4 | 8426
 4 | 8335 | 5 | 8454
 6 | 8363 | 6 | 8482
-25. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 8293 | 1 | 8419
-2 | 8307 | 2 | 8433
-3 | 8321 | 3 | 8447
-4 | 8335 | 4 | 8461
-5 | 8349 | 5 | 8475
-6 | 8363 | 6 | 8489
-26. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto en redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+1 | 8239 | 1 | 8412
+2 | 8307 | 2 | 8426
+3 | 8321 | 3 | 8440
+4 | 8335 | 4 | 8454
+5 | 8349 | 5 | 8468
+6 | 8363 | 6 | 8482
+32. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10168 | 1' | 10518
-2 | 10196 | 2' | 10546
-3 | 10224 | 3' | 10574
-4 | 10252 | 4' | 10602
-5 | 10280 | 5' | 10630
-[imagen]
+1 | 10168 | 1’ | 10518
+2 | 10196 | 2’ | 10546
+3 | 10224 | 3’ | 10574
+4 | 10252 | 4’ | 10602
+5 | 10280 | 5’ | 10630
 SIMPLEX
 Canal | Frecuencia
 1 | 10028
@@ -661,18 +716,18 @@ Canal | Frecuencia
 11 | 10448
 12 | 10476
 13 | 10658
-27. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto en redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+33. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10161 | 1' | 10511
-2 | 10175 | 2' | 10525
-3 | 10189 | 3' | 10539
-4 | 10203 | 4' | 10553
-5 | 10217 | 5' | 10567
-6 | 10231 | 6' | 10581
-7 | 10245 | 7' | 10595
-8 | 10259 | 8' | 10609
-9 | 10273 | 9' | 10623
-10 | 10287 | 10' | 10637
+1 | 10161 | 1’ | 10511
+2 | 10175 | 2’ | 10525
+3 | 10189 | 3’ | 10539
+4 | 10203 | 4’ | 10553
+5 | 10217 | 5’ | 10567
+6 | 10231 | 6’ | 10581
+7 | 10245 | 7’ | 10595
+8 | 10259 | 8’ | 10609
+9 | 10273 | 9’ | 10623
+10 | 10287 | 10’ | 10637
 CANALES SIMPLEX
 Canal | Frecuencia | Canal | Frecuencia
 1 | 10021 | 15 | 10357
@@ -689,28 +744,28 @@ Canal | Frecuencia | Canal | Frecuencia
 12 | 10315 | 26 | 10651
 13 | 10329 | 27 | 10665
 14 | 10343 | |
-28. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para radioenlaces punto a punto en redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones.
+34. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10157.5 | 1' | 10507.5
-2 | 10164.5 | 2' | 10514.5
-3 | 10171.5 | 3' | 10521.5
-4 | 10178.5 | 4' | 10528.5
-5 | 10185.5 | 5' | 10535.5
-6 | 10192.5 | 6' | 10542.5
-7 | 10199.5 | 7' | 10549.5
-8 | 10206.5 | 8' | 10556.5
-9 | 10213.5 | 9' | 10563.5
-10 | 10220.5 | 10' | 10570.5
-11 | 10227.5 | 11' | 10577.5
-12 | 10234.5 | 12' | 10584.5
-13 | 10241.5 | 13' | 10591.5
-14 | 10248.5 | 14' | 10598.5
-15 | 10255.5 | 15' | 10605.5
-16 | 10262.5 | 16' | 10612.5
-17 | 10269.5 | 17' | 10619.5
-18 | 10276.5 | 18' | 10626.5
-19 | 10283.5 | 19' | 10633.5
-20 | 10290.5 | 20' | 10640.5
+1 | 10157.5 | 1’ | 10507.5
+2 | 10164.5 | 2’ | 10514.5
+3 | 10171.5 | 3’ | 10521.5
+4 | 10178.5 | 4’ | 10528.5
+5 | 10185.5 | 5’ | 10535.5
+6 | 10192.5 | 6’ | 10542.5
+7 | 10199.5 | 7’ | 10549.5
+8 | 10206.5 | 8’ | 10556.5
+9 | 10213.5 | 9’ | 10563.5
+10 | 10220.5 | 10’ | 10570.5
+11 | 10227.5 | 11’ | 10577.5
+12 | 10234.5 | 12’ | 10584.5
+13 | 10241.5 | 13’ | 10591.5
+14 | 10248.5 | 14’ | 10598.5
+15 | 10255.5 | 15’ | 10605.5
+16 | 10262.5 | 16’ | 10612.5
+17 | 10269.5 | 17’ | 10619.5
+18 | 10276.5 | 18’ | 10626.5
+19 | 10283.5 | 19’ | 10633.5
+20 | 10290.5 | 20’ | 10640.5
 CANALES SIMPLEX
 Canal | Frecuencia | Canal | Frecuencia
 1 | 10010.5 | 29 | 10346.5
@@ -728,8 +783,6 @@ Canal | Frecuencia | Canal | Frecuencia
 13 | 10094.5 | 41 | 10430.5
 14 | 10101.5 | 42 | 10437.5
 15 | 10108.5 | 43 | 10444.5
-CANALES SIMPLEX
-Canal | Frecuencia | Canal | Frecuencia
 16 | 10115.5 | 44 | 10451.5
 17 | 10122.5 | 45 | 10458.5
 18 | 10129.5 | 46 | 10465.5
@@ -743,162 +796,205 @@ Canal | Frecuencia | Canal | Frecuencia
 26 | 10325.5 | 54 | 10661.5
 27 | 10332.5 | 55 | 10668.5
 28 | 10339.5 | 56 | 10675.5
-29. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+35 CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 80 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10715 | 1' | 112456 6 Canales resaltados fuera del rango de uso no exclusivo
-2 | 10755 | 2' | 11285
-3 | 10795 | 3' | 11325
-4 | 10835 | 4' | 11365
-5 | 10875 | 5' | 11405
-6 | 10915 | 6' | 11445
-7 | 10955 | 7' | 11485
-8 | 10995 | 8' | 11525
-9 | 11035 | 9' | 11565
-10 | 11075 | 10' | 11605
-11 | 11115 | 11' | 11645
-12 | 11155 | 12' | 11685
-30. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 10835 | 1’ | 11325
+2 | 10915 | 2’ | 11405
+3 | 10995 | 3’ | 11485
+4 | 11075 | 4’ | 11565
+36. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 60 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10715 | 1' | 11245
+1 | 10820 | 1’ | 11310
+2 | 10880 | 2’ | 11370
+3 | 10940 | 3’ | 11430
+4 | 11000 | 4’ | 11490
+5 | 11060 | 5’ | 11550
+6 | 11120 | 6’ | 11610
+37. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-2 | 10735 | 2' | 11265
-3 | 10755 | 3' | 11285
-4 | 10775 | 4' | 11305
-5 | 10795 | 5' | 11325
-6 | 10815 | 6' | 11345
-7 | 10835 | 7' | 11365
-8 | 10855 | 8' | 11385
-9 | 10875 | 9' | 11405
-10 | 10895 | 10' | 11425
-11 | 10915 | 11' | 11445
-12 | 10935 | 12' | 11465
-13 | 10955 | 13' | 11485
-14 | 10975 | 14' | 11505
-15 | 10995 | 15' | 11525
-16 | 11015 | 16' | 11545
-17 | 11035 | 17' | 11565
-18 | 11055 | 18' | 11585
-19 | 11075 | 19' | 11605
-20 | 11095 | 20' | 11625
-21 | 11115 | 21' | 11645
-22 | 11135 | 22' | 11665
-23 | 11155 | 23' | 11685
-31. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 10 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10705 | 1' | 11235 | 25 | 10945 | 25' | 11475
-2 | 10715 | 2' | 11245 | 26 | 10955 | 26' | 11485
-3 | 10725 | 3' | 11255 | 27 | 10965 | 27' | 11495
-4 | 10735 | 4' | 11265 | 28 | 10975 | 28' | 11505
-5 | 10745 | 5' | 11275 | 29 | 10985 | 29' | 11515
-6 | 10755 | 6' | 11285 | 30 | 10995 | 30' | 11525
-7 | 10765 | 7' | 11295 | 31 | 11005 | 31' | 11535
-8 | 10775 | 8' | 11305 | 32 | 11015 | 32' | 11545
-9 | 10785 | 9' | 11315 | 33 | 11025 | 33' | 11555
-10 | 10795 | 10' | 11325 | 34 | 11035 | 34' | 11565
-11 | 10805 | 11' | 11335 | 35 | 11045 | 35' | 11575
-12 | 10815 | 12' | 11345 | 36 | 11055 | 36' | 11585
-13 | 10825 | 13' | 11355 | 37 | 11065 | 37' | 11595
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-14 | 10835 | 14' | 11365 | 38 | 11075 | 38' | 11605
-15 | 10845 | 15' | 11375 | 39 | 11085 | 39' | 11615
-16 | 10855 | 16' | 11385 | 40 | 11095 | 40' | 11625
-17 | 10865 | 17' | 11395 | 41 | 11105 | 41' | 11635
-18 | 10875 | 18' | 11405 | 42 | 11115 | 42' | 11645
-19 | 10885 | 19' | 11415 | 43 | 11125 | 43' | 11655
-20 | 10895 | 20' | 11425 | 44 | 11135 | 44' | 11665
-21 | 10905 | 21' | 11435 | 45 | 11145 | 45' | 11675
-22 | 10915 | 22' | 11445 | 46 | 11155 | 46' | 11685
-23 | 10925 | 23' | 11455 | 47 | 11165 | 47' | 11695
-24 | 10935 | 24' | 11465 | | | |
-32. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 5 MHz de asignación no exclusiva en el servicio fijo para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-1 | 10705 | 1' | 11235 | 48 | 10940 | 48' | 11470
-2 | 10710 | 2' | 11240 | 49 | 10945 | 49' | 11475
-3 | 10715 | 3' | 11245 | 50 | 10950 | 50' | 11480
-4 | 10720 | 4' | 11250 | 51 | 10955 | 51' | 11485
-5 | 10725 | 5' | 11255 | 52 | 10960 | 52' | 11490
-6 | 10730 | 6' | 11260 | 53 | 10965 | 53' | 11495
-7 | 10735 | 7' | 11265 | 54 | 10970 | 54' | 11500
-8 | 10740 | 8' | 11270 | 55 | 10975 | 55' | 11505
-9 | 10745 | 9' | 11275 | 56 | 10980 | 56' | 11510
-10 | 10750 | 10' | 11280 | 57 | 10985 | 57' | 11515
-11 | 10755 | 11' | 11285 | 58 | 10990 | 58' | 11520
-12 | 10760 | 12' | 11290 | 59 | 10995 | 59' | 11525
-13 | 10765 | 13' | 11295 | 60 | 11000 | 60' | 11530
-14 | 10770 | 14' | 11300 | 61 | 11005 | 61' | 11535
-15 | 10775 | 15' | 11305 | 62 | 11010 | 62' | 11540
-16 | 10780 | 16' | 11310 | 63 | 11015 | 63' | 11545
-17 | 10785 | 17' | 11315 | 64 | 11020 | 64' | 11550
-18 | 10790 | 18' | 11320 | 65 | 11025 | 65' | 11555
-19 | 10795 | 19' | 11325 | 66 | 11030 | 66' | 11560
-20 | 10800 | 20' | 11330 | 67 | 11035 | 67' | 11565
-21 | 10805 | 21' | 11335 | 68 | 11040 | 68' | 11570
-22 | 10810 | 22' | 11340 | 69 | 11045 | 69' | 11575
-23 | 10815 | 23' | 11345 | 70 | 11050 | 70' | 11580
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-24 | 10820 | 24' | 11350 | 71 | 11055 | 71' | 11585
-25 | 10825 | 25' | 11355 | 72 | 11060 | 72' | 11590
-26 | 10830 | 26' | 11360 | 73 | 11065 | 73' | 11595
-27 | 10835 | 27' | 11365 | 74 | 11070 | 74' | 11600
-28 | 10840 | 28' | 11370 | 75 | 11075 | 75' | 11605
-29 | 10845 | 29' | 11375 | 76 | 11080 | 76' | 11610
-30 | 10850 | 30' | 11380 | 77 | 11085 | 77' | 11615
-31 | 10855 | 31' | 11385 | 78 | 11090 | 78' | 11620
-32 | 10860 | 32' | 11390 | 79 | 11095 | 79' | 11625
-33 | 10865 | 33' | 11395 | 80 | 11100 | 80' | 11630
-34 | 10870 | 34' | 11400 | 81 | 11105 | 81' | 11635
-35 | 10875 | 35' | 11405 | 82 | 11110 | 82' | 11640
-36 | 10880 | 36' | 11410 | 83 | 11115 | 83' | 11645
-37 | 10885 | 37' | 11415 | 84 | 11120 | 84' | 11650
-38 | 10890 | 38' | 11420 | 85 | 11125 | 85' | 11655
-39 | 10895 | 39' | 11425 | 86 | 11130 | 86' | 11660
-40 | 10900 | 40' | 11430 | 87 | 11135 | 87' | 11665
-41 | 10905 | 41' | 11435 | 88 | 11140 | 88' | 11670
-42 | 10910 | 42' | 11440 | 89 | 11145 | 89' | 11675
-43 | 10915 | 43' | 11445 | 90 | 11150 | 90' | 11680
-44 | 10920 | 44' | 11450 | 91 | 11155 | 91' | 11685
-45 | 10925 | 45' | 11455 | 92 | 11160 | 92' | 11690
-46 | 10930 | 46' | 11460 | 93 | 11165 | 93' | 11695
-47 | 10935 | 47' | 11465 | | | |
-33. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 107156 | 1’ | 11245
+2 | 10755 | 2’ | 11285
+3 | 10795 | 3’ | 11325
+4 | 10835 | 4’ | 11365
+5 | 10875 | 5’ | 11405
+6 | 10915 | 6’ | 11445
+7 | 10955 | 7’ | 11485
+8 | 10995 | 8’ | 11525
+9 | 11035 | 9’ | 11565
+10 | 11075 | 10’ | 11605
+11 | 11115 | 11’ | 11645
+12 | 11155 | 12’ | 116857
+38. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 20 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 12765 | 1 | 13031
-2 | 12793 | 2 | 13059
-3 | 12821 | 3 | 13087
-4 | 12849 | 4 | 13115
-5 | 12877 | 5 | 13143
-6 | 12905 | 6 | 13171
-7 | 12933 | 7 | 13199
-8 | 12961 | 8 | 13227
-34. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 10715 | 1’ | 11245
+2 | 10735 | 2’ | 11265
+3 | 10755 | 3’ | 11285
+4 | 10775 | 4’ | 11305
+5 | 10795 | 5’ | 11325
+6 | 10815 | 6’ | 11345
+7 | 10835 | 7’ | 11365
+8 | 10855 | 8’ | 11385
+9 | 10875 | 9’ | 11405
+10 | 10895 | 10’ | 11425
+11 | 10915 | 11’ | 11445
+12 | 10935 | 12’ | 11465
+13 | 10955 | 13’ | 11485
+14 | 10975 | 14’ | 11505
+15 | 10995 | 15’ | 11525
+16 | 11015 | 16’ | 11545
+17 | 11035 | 17’ | 11565
+18 | 11055 | 18’ | 11585
+19 | 11075 | 19’ | 11605
+20 | 11095 | 20’ | 11625
+[imagen]
+6 Canales resaltados fuera del rango de uso no exclusivo
+7 Canales resaltados fuera del rango de uso no exclusivo
+Canal | Frecuencia | Canal primo | Frecuencia
+21 | 11115 | 21’ | 11645
+22 | 11135 | 22’ | 11665
+23 | 11155 | 23’ | 11685
+39. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 10 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-1 | 12758 | 1 | 13024 | 9 | 12870 | 9 | 13136
-2 | 12772 | 2 | 13038 | 10 | 12884 | 10 | 13150
-3 | 12786 | 3 | 13052 | 11 | 12898 | 11 | 13164
-4 | 12800 | 4 | 13066 | 12 | 12912 | 12 | 13178
-5 | 12814 | 5 | 13080 | 13 | 12926 | 13 | 13192
-6 | 12828 | 6 | 13094 | 14 | 12940 | 14 | 13206
-7 | 12842 | 7 | 13108 | 15 | 12954 | 15 | 13220
-8 | 12856 | 8 | 13122 | 16 | 12968 | 16 | 13234
-35. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 10705 | 1’ | 11235 | 25 | 10945 | 25’ | 11475
+2 | 10715 | 2’ | 11245 | 26 | 10955 | 26’ | 11485
+3 | 10725 | 3’ | 11255 | 27 | 10965 | 27’ | 11495
+4 | 10735 | 4’ | 11265 | 28 | 10975 | 28’ | 11505
+5 | 10745 | 5’ | 11275 | 29 | 10985 | 29’ | 11515
+6 | 10755 | 6’ | 11285 | 30 | 10995 | 30’ | 11525
+7 | 10765 | 7’ | 11295 | 31 | 11005 | 31’ | 11535
+8 | 10775 | 8’ | 11305 | 32 | 11015 | 32’ | 11545
+9 | 10785 | 9’ | 11315 | 33 | 11025 | 33’ | 11555
+10 | 10795 | 10’ | 11325 | 34 | 11035 | 34’ | 11565
+11 | 10805 | 11’ | 11335 | 35 | 11045 | 35’ | 11575
+12 | 10815 | 12’ | 11345 | 36 | 11055 | 36’ | 11585
+13 | 10825 | 13’ | 11355 | 37 | 11065 | 37’ | 11595
+14 | 10835 | 14’ | 11365 | 38 | 11075 | 38’ | 11605
+15 | 10845 | 15’ | 11375 | 39 | 11085 | 39’ | 11615
+16 | 10855 | 16’ | 11385 | 40 | 11095 | 40’ | 11625
+17 | 10865 | 17’ | 11395 | 41 | 11105 | 41’ | 11635
+18 | 10875 | 18’ | 11405 | 42 | 11115 | 42’ | 11645
+19 | 10885 | 19’ | 11415 | 43 | 11125 | 43’ | 11655
+20 | 10895 | 20’ | 11425 | 44 | 11135 | 44’ | 11665
+21 | 10905 | 21’ | 11435 | 45 | 11145 | 45’ | 11675
+22 | 10915 | 22’ | 11445 | 46 | 11155 | 46’ | 11685
+23 | 10925 | 23’ | 11455 | 47 | 11165 | 47’ | 11695
+24 | 10935 | 24’ | 11465 | | | |
+40. CTR 038. Recomendación UIT-R F.387 para la banda de 10,7 GHz a 11,7 GHz con un ancho de banda de 5 MHz de asignación no exclusiva en el servicio.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
-1 | 12754.5 | 1 | 13020.5 | 17 | 12866.5 | 17 | 13132.5
-2 | 12761.5 | 2 | 13027.5 | 18 | 12873.5 | 18 | 13139.5
-3 | 12768.5 | 3 | 13034.5 | 19 | 12880.5 | 19 | 13146.5
-4 | 12775.5 | 4 | 13041.5 | 20 | 12887.5 | 20 | 13153.5
-5 | 12782.5 | 5 | 13048.5 | 21 | 12894.5 | 21 | 13160.5
-6 | 12789.5 | 6 | 13055.5 | 22 | 12901.5 | 22 | 13167.5
-7 | 12796.5 | 7 | 13062.5 | 23 | 12908.5 | 23 | 13174.5
-8 | 12803.5 | 8 | 13069.5 | 24 | 12915.5 | 24 | 13181.5
-9 | 12810.5 | 9 | 13076.5 | 25 | 12922.5 | 25 | 13188.5
-10 | 12817.5 | 10 | 13083.5 | 26 | 12929.5 | 26 | 13195.5
-11 | 12824.5 | 11 | 13090.5 | 27 | 12936.5 | 27 | 13202.5
-12 | 12831.5 | 12 | 13097.5 | 28 | 12943.5 | 28 | 13209.5
-13 | 12838.5 | 13 | 13104.5 | 29 | 12950.5 | 29 | 13216.5
-14 | 12845.5 | 14 | 13111.5 | 30 | 12957.5 | 30 | 13223.5
-15 | 12852.5 | 15 | 13118.5 | 31 | 12964.5 | 31 | 13230.5
-16 | 12859.5 | 16 | 13125.5 | 32 | 12971.5 | 32 | 13237.5
-36. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+1 | 10705 | 1’ | 11235 | 48 | 10940 | 48’ | 11470
+2 | 10710 | 2’ | 11240 | 49 | 10945 | 49’ | 11475
+3 | 10715 | 3’ | 11245 | 50 | 10950 | 50’ | 11480
+4 | 10720 | 4’ | 11250 | 51 | 10955 | 51’ | 11485
+5 | 10725 | 5’ | 11255 | 52 | 10960 | 52’ | 11490
+6 | 10730 | 6’ | 11260 | 53 | 10965 | 53’ | 11495
+7 | 10735 | 7’ | 11265 | 54 | 10970 | 54’ | 11500
+8 | 10740 | 8’ | 11270 | 55 | 10975 | 55’ | 11505
+9 | 10745 | 9’ | 11275 | 56 | 10980 | 56’ | 11510
+10 | 10750 | 10’ | 11280 | 57 | 10985 | 57’ | 11515
+11 | 10755 | 11’ | 11285 | 58 | 10990 | 58’ | 11520
+12 | 10760 | 12’ | 11290 | 59 | 10995 | 59’ | 11525
+13 | 10765 | 13’ | 11295 | 60 | 11000 | 60’ | 11530
+14 | 10770 | 14’ | 11300 | 61 | 11005 | 61’ | 11535
+15 | 10775 | 15’ | 11305 | 62 | 11010 | 62’ | 11540
+16 | 10780 | 16’ | 11310 | 63 | 11015 | 63’ | 11545
+17 | 10785 | 17’ | 11315 | 64 | 11020 | 64’ | 11550
+18 | 10790 | 18’ | 11320 | 65 | 11025 | 65’ | 11555
+19 | 10795 | 19’ | 11325 | 66 | 11030 | 66’ | 11560
+20 | 10800 | 20’ | 11330 | 67 | 11035 | 67’ | 11565
+21 | 10805 | 21’ | 11335 | 68 | 11040 | 68’ | 11570
+22 | 10810 | 22’ | 11340 | 69 | 11045 | 69’ | 11575
+23 | 10815 | 23’ | 11345 | 70 | 11050 | 70’ | 11580
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
+24 | 10820 | 24’ | 11350 | 71 | 11055 | 71’ | 11585
+25 | 10825 | 25’ | 11355 | 72 | 11060 | 72’ | 11590
+26 | 10830 | 26’ | 11360 | 73 | 11065 | 73’ | 11595
+27 | 10835 | 27’ | 11365 | 74 | 11070 | 74’ | 11600
+28 | 10840 | 28’ | 11370 | 75 | 11075 | 75’ | 11605
+29 | 10845 | 29’ | 11375 | 76 | 11080 | 76’ | 11610
+30 | 10850 | 30’ | 11380 | 77 | 11085 | 77’ | 11615
+31 | 10855 | 31’ | 11385 | 78 | 11090 | 78’ | 11620
+32 | 10860 | 32’ | 11390 | 79 | 11095 | 79’ | 11625
+33 | 10865 | 33’ | 11395 | 80 | 11100 | 80’ | 11630
+34 | 10870 | 34’ | 11400 | 81 | 11105 | 81’ | 11635
+35 | 10875 | 35’ | 11405 | 82 | 11110 | 82’ | 11640
+36 | 10880 | 36’ | 11410 | 83 | 11115 | 83’ | 11645
+37 | 10885 | 37’ | 11415 | 84 | 11120 | 84’ | 11650
+38 | 10890 | 38’ | 11420 | 85 | 11125 | 85’ | 11655
+39 | 10895 | 39’ | 11425 | 86 | 11130 | 86’ | 11660
+40 | 10900 | 40’ | 11430 | 87 | 11135 | 87’ | 11665
+41 | 10905 | 41’ | 11435 | 88 | 11140 | 88’ | 11670
+42 | 10910 | 42’ | 11440 | 89 | 11145 | 89’ | 11675
+43 | 10915 | 43’ | 11445 | 90 | 11150 | 90’ | 11680
+44 | 10920 | 44’ | 11450 | 91 | 11155 | 91’ | 11685
+45 | 10925 | 45’ | 11455 | 92 | 11160 | 92’ | 11690
+46 | 10930 | 46’ | 11460 | 93 | 11165 | 93’ | 11695
+47 | 10935 | 47’ | 11465 | | | |
+41. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+Par Canal | Frecuencia | Par Canal primo | Frecuencia
+1-2 | 12779 | 1-2’ | 13045
+2-3 | 12807 | 2-3’ | 13073
+3-4 | 12835 | 3-4’ | 13101
+4-5 | 12863 | 4-5’ | 13129
+5-6 | 12891 | 5-6’ | 13157
+6-7 | 12919 | 6-7’ | 13185
+7-8 | 12947 | 7-8’ | 13213
+42. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 12765 | 1’ | 13031
+2 | 12793 | 2’ | 13059
+3 | 12821 | 3’ | 13087
+4 | 12849 | 4’ | 13115
+5 | 12877 | 5’ | 13143
+6 | 12905 | 6’ | 13171
+7 | 12933 | 7’ | 13199
+8 | 12961 | 8’ | 13227
+43. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
+1 | 12758 | 1’ | 13024 | 9 | 12870 | 9’ | 13136
+2 | 12772 | 2’ | 13038 | 10 | 12884 | 10’ | 13150
+3 | 12786 | 3’ | 13052 | 11 | 12898 | 11’ | 13164
+4 | 12800 | 4’ | 13066 | 12 | 12912 | 12’ | 13178
+5 | 12814 | 5’ | 13080 | 13 | 12926 | 13’ | 13192
+6 | 12828 | 6’ | 13094 | 14 | 12940 | 14’ | 13206
+7 | 12842 | 7’ | 13108 | 15 | 12954 | 15’ | 13220
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
+8 | 12856 | 8’ | 13122 | 16 | 12968 | 16’ | 13234
+44. CTR 041. Recomendación UIT-R F.497 para la banda de 12,7 GHz a 13,25 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
+1 | 12754.5 | 1’ | 13020.5 | 17 | 12866.5 | 17’ | 13132.5
+2 | 12761.5 | 2’ | 13027.5 | 18 | 12873.5 | 18’ | 13139.5
+3 | 12768.5 | 3’ | 13034.5 | 19 | 12880.5 | 19’ | 13146.5
+4 | 12775.5 | 4’ | 13041.5 | 20 | 12887.5 | 20’ | 13153.5
+5 | 12782.5 | 5’ | 13048.5 | 21 | 12894.5 | 21’ | 13160.5
+6 | 12789.5 | 6’ | 13055.5 | 22 | 12901.5 | 22’ | 13167.5
+7 | 12796.5 | 7’ | 13062.5 | 23 | 12908.5 | 23’ | 13174.5
+8 | 12803.5 | 8’ | 13069.5 | 24 | 12915.5 | 24’ | 13181.5
+9 | 12810.5 | 9’ | 13076.5 | 25 | 12922.5 | 25’ | 13188.5
+10 | 12817.5 | 10’ | 13083.5 | 26 | 12929.5 | 26’ | 13195.5
+11 | 12824.5 | 11’ | 13090.5 | 27 | 12936.5 | 27’ | 13202.5
+12 | 12831.5 | 12’ | 13097.5 | 28 | 12943.5 | 28’ | 13209.5
+13 | 12838.5 | 13’ | 13104.5 | 29 | 12950.5 | 29’ | 13216.5
+14 | 12845.5 | 14’ | 13111.5 | 30 | 12957.5 | 30’ | 13223.5
+15 | 12852.5 | 15’ | 13118.5 | 31 | 12964.5 | 31’ | 13230.5
+16 | 12859.5 | 16’ | 13125.5 | 32 | 12971.5 | 32’ | 13237.5
+45. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 14431 | 1’ | 14921
+2 | 14487 | 2’ | 14977
+3 | 14543 | 3’ | 15033
+4 | 14599 | 4’ | 15089
+5 | 14655 | 5’ | 15145
+6 | 14711 | 6’ | 15201
+7 | 14767 | 7’ | 15257
+8 | 14823 | 8’ | 15313
+46. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 14520 | 1’ | 14995
+2 | 14560 | 2’ | 15035
+3 | 14600 | 3’ | 15075
+4 | 14640 | 4’ | 15115
+5 | 14840 | 5’ | 15315
+47. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 14417 | 1 | 14907 | 9 | 14641 | 9 | 15131
 2 | 14445 | 2 | 14935 | 10 | 14669 | 10 | 15159
@@ -908,11 +1004,12 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 6 | 14557 | 6 | 15047 | 14 | 14781 | 14 | 15271
 7 | 14585 | 7 | 15075 | 15 | 14809 | 15 | 15299
 8 | 14613 | 8 | 15103 | 16 | 14837 | 16 | 15327
-37. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+48. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 14417 | 1 | 14907 | 17 | 14641 | 17 | 15131
 2 | 14431 | 2 | 14921 | 18 | 14655 | 18 | 15145
 3 | 14445 | 3 | 14935 | 19 | 14669 | 19 | 15159
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 4 | 14459 | 4 | 14949 | 20 | 14683 | 20 | 15173
 5 | 14473 | 5 | 14963 | 21 | 14697 | 21 | 15187
 6 | 14487 | 6 | 14977 | 22 | 14711 | 22 | 15201
@@ -926,7 +1023,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 14 | 14599 | 14 | 15089 | 30 | 14823 | 30 | 15313
 15 | 14613 | 15 | 15103 | 31 | 14837 | 31 | 15327
 16 | 14627 | 16 | 15117 | 32 | 14851 | 32 | 15341
-38. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+49. CTR 044. Recomendación UIT-R F.636 para la banda de 14,4 GHz a 15,35 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 14406.5 | 1 | 14896.5 | 33 | 14630.5 | 33 | 15120.5
 2 | 14413.5 | 2 | 14903.5 | 34 | 14637.5 | 34 | 15127.5
@@ -960,7 +1057,23 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 30 | 14609.5 | 30 | 15099.5 | 62 | 14833.5 | 62 | 15323.5
 31 | 14616.5 | 31 | 15106.5 | 63 | 14840.5 | 63 | 15330.5
 32 | 14623.5 | 32 | 15113.5 | 64 | 14847.5 | 64 | 15337.5
-39. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 55 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+50. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 220 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 17810 | 1 | 18930
+2 | 18030 | 2 | 19150
+3 | 18250 | 3 | 19370
+4 | 18470 | 4 | 19590
+51. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 110 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 17810 | 1 | 18820
+2 | 17920 | 2 | 18930
+3 | 18030 | 3 | 19040
+4 | 18140 | 4 | 19150
+5 | 18250 | 5 | 19260
+6 | 18360 | 6 | 19370
+7 | 18470 | 7 | 19480
+8 | 18580 | 8 | 19590
+52. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 55 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 17755 | 1 | 18765 | 10 | 18250 | 10 | 19260
 2 | 17810 | 2 | 18820 | 11 | 18305 | 11 | 19315
@@ -971,7 +1084,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 7 | 18085 | 7 | 19095 | 16 | 18580 | 16 | 19590
 8 | 18140 | 8 | 19150 | 17 | 18635 | 17 | 19645
 9 | 18195 | 9 | 19205 | | | |
-40. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 27.5 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+53. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 27.5 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 17727.5 | 1 | 18737.5 | 18 | 18195 | 18 | 19205
 2 | 17755 | 2 | 18765 | 19 | 18222.5 | 19 | 19232.5
@@ -991,12 +1104,11 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 16 | 18140 | 16 | 19150 | 33 | 18607.5 | 33 | 19617.5
 17 | 18167.5 | 17 | 19177.5 | 34 | 18635 | 34 | 19645
 | | | | 35 | 18662.5 | 35 | 19672.5
-41. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 13.75 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+54. CTR 047. Recomendación UIT-R F.595 para la banda de 17,7 GHz a 19,7 GHz con un ancho de banda de 13.75 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 17713.75 | 1 | 18723.75 | 36 | 18195 | 36 | 19205
 2 | 17727.5 | 2 | 18737.5 | 37 | 18208.75 | 37 | 19218.75
 3 | 17741.25 | 3 | 18751.25 | 38 | 18222.5 | 38 | 19232.5
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 4 | 17755 | 4 | 18765 | 39 | 18236.25 | 39 | 19246.25
 5 | 17768.75 | 5 | 18778.75 | 40 | 18250 | 40 | 19260
 6 | 17782.5 | 6 | 18792.5 | 41 | 18263.75 | 41 | 19273.75
@@ -1004,6 +1116,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 8 | 17810 | 8 | 18820 | 43 | 18291.25 | 43 | 19301.25
 9 | 17823.75 | 9 | 18833.75 | 44 | 18305 | 44 | 19315
 10 | 17837.5 | 10 | 18847.5 | 45 | 18318.75 | 45 | 19328.75
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 11 | 17851.25 | 11 | 18861.25 | 46 | 18332.5 | 46 | 19342.5
 12 | 17865 | 12 | 18875 | 47 | 18346.25 | 47 | 19356.25
 13 | 17878.75 | 13 | 18888.75 | 48 | 18360 | 48 | 19370
@@ -1029,11 +1142,56 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 33 | 18153.75 | 33 | 19163.75 | 68 | 18635 | 68 | 19645
 34 | 18167.5 | 34 | 19177.5 | 69 | 18648.75 | 69 | 19658.75
 35 | 18181.25 | 35 | 19191.25 | 70 | 18662.5 | 70 | 19672.5
-42. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+55. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 224 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 21336 | 1 | 22568
+2 | 21448 | 2 | 22680
+3 | 21560 | 3 | 22792
+4 | 21672 | 4 | 22904
+5 | 21784 | 5 | 23016
+6 | 21896 | 6 | 23128
+7 | 22008 | 7 | 23240
+8 | 22120 | 8 | 23352
+9 | 22232 | 9 | 23464
+56. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 112 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 21280 | 1 | 22512
+2 | 21392 | 2 | 22624
+3 | 21504 | 3 | 22736
+4 | 21616 | 4 | 22848
+5 | 21728 | 5 | 22960
+6 | 21840 | 6 | 23072
+7 | 21952 | 7 | 23184
+8 | 22064 | 8 | 23296
+9 | 22176 | 9 | 23408
+10 | 22288 | 10 | 23520
+57. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 21252 | 1 | 22484
+2 | 21308 | 2 | 22540
+3 | 21364 | 3 | 22596
+Canal | Frecuencia | Canal primo | Frecuencia
+4 | 21420 | 4 | 22652
+5 | 21476 | 5 | 22708
+6 | 21532 | 6 | 22764
+7 | 21588 | 7 | 22820
+8 | 21644 | 8 | 22876
+9 | 21700 | 9 | 22932
+10 | 21756 | 10 | 22988
+11 | 21812 | 11 | 23044
+12 | 21868 | 12 | 23100
+13 | 21924 | 13 | 23156
+14 | 21980 | 14 | 23212
+15 | 22036 | 15 | 23268
+16 | 22092 | 16 | 23324
+17 | 22148 | 17 | 23380
+18 | 22204 | 18 | 23436
+19 | 22260 | 19 | 23492
+20 | 22316 | 20 | 23548
+CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 21238 | 1 | 22470 | 21 | 21798 | 21 | 23030
 2 | 21266 | 2 | 22498 | 22 | 21826 | 22 | 23058
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 3 | 21294 | 3 | 22526 | 23 | 21854 | 23 | 23086
 4 | 21322 | 4 | 22554 | 24 | 21882 | 24 | 23114
 5 | 21350 | 5 | 22582 | 25 | 21910 | 25 | 23142
@@ -1052,7 +1210,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 18 | 21714 | 18 | 22946 | 38 | 22274 | 38 | 23506
 19 | 21742 | 19 | 22974 | 39 | 22302 | 39 | 23534
 20 | 21770 | 20 | 23002 | 40 | 22330 | 40 | 23562
-43. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 21231 | 1 | 22463 | 41 | 21791 | 41 | 23023
 2 | 21245 | 2 | 22477 | 42 | 21805 | 42 | 23037
@@ -1066,11 +1224,11 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 10 | 21357 | 10 | 22589 | 50 | 21917 | 50 | 23149
 11 | 21371 | 11 | 22603 | 51 | 21931 | 51 | 23163
 12 | 21385 | 12 | 22617 | 52 | 21945 | 52 | 23177
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 13 | 21399 | 13 | 22631 | 53 | 21959 | 53 | 23191
 14 | 21413 | 14 | 22645 | 54 | 21973 | 54 | 23205
 15 | 21427 | 15 | 22659 | 55 | 21987 | 55 | 23219
 16 | 21441 | 16 | 22673 | 56 | 22001 | 56 | 23233
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 17 | 21455 | 17 | 22687 | 57 | 22015 | 57 | 23247
 18 | 21469 | 18 | 22701 | 58 | 22029 | 58 | 23261
 19 | 21483 | 19 | 22715 | 59 | 22043 | 59 | 23275
@@ -1095,7 +1253,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 38 | 21749 | 38 | 22981 | 78 | 22309 | 78 | 23541
 39 | 21763 | 39 | 22995 | 79 | 22323 | 79 | 23555
 40 | 21777 | 40 | 23009 | 80 | 22337 | 80 | 23569
-44. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo, para concesionarios de algún segmento de las bandas atribuidas al servicio móvil para el desarrollo de sistemas IMT.
+60. CTR 049. Recomendación UIT-R F.637 para la banda de 21,2 GHz a 23,6 GHz con un ancho de banda de 7 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 1 | 21227,5 | 1 | 22459,5 | 81 | 21787,5 | 81 | 23019,5
 2 | 21234,5 | 2 | 22466,5 | 82 | 21794,5 | 82 | 23026,5
@@ -1107,7 +1265,6 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 8 | 21276,5 | 8 | 22508,5 | 88 | 21836,5 | 88 | 23068,5
 9 | 21283,5 | 9 | 22515,5 | 89 | 21843,5 | 89 | 23075,5
 10 | 21290,5 | 10 | 22522,5 | 90 | 21850,5 | 90 | 23082,5
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 11 | 21297,5 | 11 | 22529,5 | 91 | 21857,5 | 91 | 23089,5
 12 | 21304,5 | 12 | 22536,5 | 92 | 21864,5 | 92 | 23096,5
 13 | 21311,5 | 13 | 22543,5 | 93 | 21871,5 | 93 | 23103,5
@@ -1123,6 +1280,7 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 23 | 21381,5 | 23 | 22613,5 | 103 | 21941,5 | 103 | 23173,5
 24 | 21388,5 | 24 | 22620,5 | 104 | 21948,5 | 104 | 23180,5
 25 | 21395,5 | 25 | 22627,5 | 105 | 21955,5 | 105 | 23187,5
+Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 26 | 21402,5 | 26 | 22634,5 | 106 | 21962,5 | 106 | 23194,5
 27 | 21409,5 | 27 | 22641,5 | 107 | 21969,5 | 107 | 23201,5
 28 | 21416,5 | 28 | 22648,5 | 108 | 21976,5 | 108 | 23208,5
@@ -1149,7 +1307,6 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 49 | 21563,5 | 49 | 22795,5 | 129 | 22123,5 | 129 | 23355,5
 50 | 21570,5 | 50 | 22802,5 | 130 | 22130,5 | 130 | 23362,5
 51 | 21577,5 | 51 | 22809,5 | 131 | 22137,5 | 131 | 23369,5
-Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo | Frecuencia
 52 | 21584,5 | 52 | 22816,5 | 132 | 22144,5 | 132 | 23376,5
 53 | 21591,5 | 53 | 22823,5 | 133 | 22151,5 | 133 | 23383,5
 54 | 21598,5 | 54 | 22830,5 | 134 | 22158,5 | 134 | 23390,5
@@ -1179,12 +1336,12 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 78 | 21766,5 | 78 | 22998,5 | 158 | 22326,5 | 158 | 23558,5
 79 | 21773,5 | 79 | 23005,5 | 159 | 22333,5 | 159 | 23565,5
 80 | 21780,5 | 80 | 23012,5 | 160 | 22340,5 | 160 | 23572,5
-45. CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 224 MHz de asignación no exclusiva en el servicio fijo.
+CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 224 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 31983 | 1 | 32795
 2 | 32207 | 2 | 33019
 3 | 32431 | 3 | 33243
-46. CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 112 MHz de asignación no exclusiva en el servicio fijo.
+CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 112 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 31927 | 1 | 32739
 2 | 32039 | 2 | 32851
@@ -1192,7 +1349,7 @@ Canal | Frecuencia | Canal primo | Frecuencia
 4 | 32263 | 4 | 33075
 5 | 32375 | 5 | 33187
 6 | 32487 | 6 | 33299
-47. CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+CTR 055. Recomendación UIT-R F.1520 para la banda de 31,8 GHz a 33,4 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 31899 | 1 | 32711
 2 | 31955 | 2 | 32767
@@ -1206,7 +1363,7 @@ Canal | Frecuencia | Canal primo | Frecuencia
 10 | 32403 | 10 | 33215
 11 | 32459 | 11 | 33271
 12 | 32515 | 12 | 33327
-48. CTR 061. Recomendación UIT-R F.1496 para la banda de 51,4 GHz a 52,6 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+CTR 061. Recomendación UIT-R F.1496 para la banda de 51,4 GHz a 52,6 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 51468 | 1 | 52084
 2 | 51524 | 2 | 52140
@@ -1217,7 +1374,7 @@ Canal | Frecuencia | Canal primo | Frecuencia
 7 | 51804 | 7 | 52420
 8 | 51860 | 8 | 52476
 9 | 51916 | 9 | 52532
-49. CTR 061. Recomendación UIT-R F.1496 para la banda de 51,4 GHz a 52,6 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
+CTR 061. Recomendación UIT-R F.1496 para la banda de 51,4 GHz a 52,6 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 51454 | 1 | 52070
 2 | 51482 | 2 | 52098
@@ -1231,13 +1388,14 @@ Canal | Frecuencia | Canal primo | Frecuencia
 10 | 51706 | 10 | 52322
 11 | 51734 | 11 | 52350
 12 | 51762 | 12 | 52378
+Canal | Frecuencia | Canal primo | Frecuencia
 13 | 51790 | 13 | 52406
 14 | 51818 | 14 | 52434
 15 | 51846 | 15 | 52462
 16 | 51874 | 16 | 52490
 17 | 51902 | 17 | 52518
 18 | 51930 | 18 | 52546
-50. CTR 062. Recomendación UIT-R F.1497 para la banda de 55,78 GHz a 59 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
+CTR 062. Recomendación UIT-R F.1497 para la banda de 55,78 GHz a 59 GHz con un ancho de banda de 56 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 55870 | 1 | 56486
 2 | 55926 | 2 | 56542
@@ -1248,11 +1406,10 @@ Canal | Frecuencia | Canal primo | Frecuencia
 7 | 56206 | 7 | 56822
 8 | 56262 | 8 | 56878
 9 | 56318 | 9 | 56934
-51. CTR 062. Recomendación UIT-R F.1497 para la banda de 55,78 GHz a 59 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
+CTR 062. Recomendación UIT-R F.1497 para la banda de 55,78 GHz a 59 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 55856 | 1 | 56472
 2 | 55884 | 2 | 56500
-Canal | Frecuencia | Canal primo | Frecuencia
 3 | 55912 | 3 | 56528
 4 | 55940 | 4 | 56556
 5 | 55968 | 5 | 56584
@@ -1269,7 +1426,7 @@ Canal | Frecuencia | Canal primo | Frecuencia
 16 | 56276 | 16 | 56892
 17 | 56304 | 17 | 56920
 18 | 56332 | 18 | 56948
-52. CTR 063. Recomendación UIT-R F.2006 para la banda de 71 GHz a 76 y de 81 GHz a 86 GHz con un ancho de banda de 250 MHz de asignación no exclusiva en el servicio fijo.
+68. CTR 063. Recomendación UIT-R F.2006 para la banda de 71 GHz a 76 y de 81 GHz a 86 GHz con un ancho de banda de 250 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 71250 | 1 | 81250
 2 | 71500 | 2 | 81500
@@ -1285,19 +1442,20 @@ Canal | Frecuencia | Canal primo | Frecuencia
 12 | 74000 | 12 | 84000
 13 | 74250 | 13 | 84250
 14 | 74500 | 14 | 84500
+Canal | Frecuencia | Canal primo | Frecuencia
 15 | 74750 | 15 | 84750
 16 | 75000 | 16 | 85000
 17 | 75250 | 17 | 85250
 18 | 75500 | 18 | 85500
 19 | 75750 | 19 | 85750
-53. CTR 064. Recomendación UIT-R F.2004 para la banda de 92 GHz a 94 y de 94,1 GHz a 95 GHz con un ancho de banda de 100 MHz de asignación no exclusiva en el servicio fijo.
+69. CTR 064. Recomendación UIT-R F.2004 para la banda de 92 GHz a 94 y de 94,1 GHz a 95 con un ancho de banda de 100 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 92100 | 1 | 93600
 2 | 92200 | 2 | 93700
 3 | 92300 | 3 | 93800
 4 | 92400 | 4 | 93900
 5 | 92500 | 5 | 94000
-6 | 92600 | 6 | 941007 7 Canales resaltados fuera del rango de uso no exclusivo
+6 | 92600 | 6 | 941008
 7 | 92700 | 7 | 94200
 8 | 92800 | 8 | 94300
 9 | 92900 | 9 | 94400
@@ -1306,3 +1464,5 @@ Canal | Frecuencia | Canal primo | Frecuencia
 12 | 93200 | 12 | 94700
 13 | 93300 | 13 | 94800
 14 | 93400 | 14 | 94900
+8 Canales resaltados fuera del rango de uso no exclusivo
+(Así reformado mediante resolución N° RCS-192-2026 de 23 de julio del 2026)
