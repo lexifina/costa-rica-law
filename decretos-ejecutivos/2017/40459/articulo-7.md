@@ -1,2 +1,2 @@
-Artículo 7°. Conformación de la Secretaría Técnica de la Sostenibilidad(*). La Secretaría Técnica estará conformada por una persona del Despacho Ministerial del MEIC quien será encargada de la coordinación, más un equipo nombrado por el Ministro o la Ministra.
-(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43748 del 6 de julio de 2022. Anteriormente se indicaba: "Secretaría Técnica de la Responsabilidad Social")
+Artículo 7°. Conformación de la Secretaría Técnica de la Sostenibilidad. La Secretaría Técnica estará conformada por tres personas funcionarias designadas por el Despacho Ministerial del MEIC, una de ellas será la encargada de la ejecución de todas las acciones relacionadas con el buen funcionamiento del CAS, y las dos restantes brindarán el apoyo técnico que se requiere.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45888 del 23 de julio de 2026)

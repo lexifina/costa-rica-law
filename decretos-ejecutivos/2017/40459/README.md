@@ -15,3 +15,4 @@ Gobernanza para la implementación y seguimiento de la política nacional de res
 | --- | --- | --- |
 | 1 | 2017-08-18 | la propia norma |
 | 2 | 2022-07-06 | Decreto Ejecutivo 43748 (2022-07-06) |
+| 3 | 2026-07-23 | Decreto Ejecutivo 45888 (2026-07-23) |
