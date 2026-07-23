@@ -17,3 +17,4 @@ Reglamento del mercado municipal de Orotina
 | 2 | 2018-01-15 | Reglamento municipal 139 (2018-01-15) |
 | 3 | 2023-10-31 | Reglamento municipal 284 (2023-10-31) |
 | 4 | 2024-08-05 | Reglamento municipal 22 (2024-08-05) |
+| 5 | 2026-07-23 | Reglamento municipal 156 (2026-07-23) |
