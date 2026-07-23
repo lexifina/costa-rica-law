@@ -1,0 +1,1 @@
+Artículo 31.- Resolución de diferendos por competencia. Si la unidad a la que se le formula el requerimiento considera que no es la instancia competente para gestionarlo, coordinará de inmediato la reasignación con la dependencia interna que estime apropiada. En caso de desacuerdo, el diferendo será resuelto de forma definitiva por la Gerencia de la División de Gestión de Apoyo.

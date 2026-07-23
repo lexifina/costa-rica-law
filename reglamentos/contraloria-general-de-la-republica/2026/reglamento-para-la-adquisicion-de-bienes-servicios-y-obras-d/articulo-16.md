@@ -1,0 +1,5 @@
+Artículo 16.- Integración de la normativa contable y financiera. Toda actuación vinculada con la gestión de contratación pública, desde el inicio de la planificación hasta la ejecución y liquidación contractual, deberá armonizarse con las Normas Internacionales de Contabilidad para el Sector Público y demás normativa financiera y contable emitida o adoptada y exigible por la Dirección Nacional de Contabilidad Nacional.
+El cumplimiento de estas normas es esencial para:
+1. Planificación y estimación: Asegurar que las estimaciones de costos y la existencia de contenido presupuestario contemplen los principios de devengo, medición, reconocimiento y revelación apropiados.
+2. Registro de activos: Garantizar el correcto registro, identificación y valoración de los activos y pasivos que resulten de los contratos, incluyendo el adecuado tratamiento contable por la adquisición de bienes, servicios y obras que resulten de las contrataciones de corto plazo así como de las plurianuales.
+3. Control financiero: Proporcionar los elementos de control y revelación necesarios para la fiscalización del costo final y el impacto presupuestario real de la contratación.

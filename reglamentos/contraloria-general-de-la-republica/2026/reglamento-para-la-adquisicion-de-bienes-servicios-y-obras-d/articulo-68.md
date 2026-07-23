@@ -1,0 +1,6 @@
+Artículo 68.- Modificación del contrato. Toda modificación a las condiciones contractuales vigentes deberá ser solicitada a la Unidad de Servicios de Proveeduría, dependencia encargada de la gestión y formalización del trámite, conforme con las siguientes disposiciones:
+1. Solicitud y justificación. La Unidad Técnica es la responsable de remitir a la Unidad de Servicios de Proveeduría la solicitud para modificar un contrato vigente. Esta solicitud deberá incluir obligatoriamente los siguientes elementos de juicio:
+a. Justificación técnica. Los motivos técnicos y de ejecución que hacen necesaria la modificación.
+b. Criterios normativos. La indicación precisa de los criterios normativos y legales aplicables al tipo de modificación, demostrando que se cumplen los requisitos establecidos en la Ley General de Contratación Pública y su Reglamento para la procedencia del trámite.
+c. Análisis financiero: El análisis de la afectación económica de la modificación.
+2. Gestión y formalización. La Unidad de Servicios de Proveeduría es la competente para gestionar y formalizar la modificación contractual. Deberá coordinar la intervención de la Unidad Jurídica Interna cuando corresponda, y emitir la resolución administrativa o la adenda respectiva que dé firmeza a la modificación.

@@ -1,0 +1,8 @@
+Artículo 53.- Estudio técnico de las ofertas. El estudio técnico de las ofertas constituye el análisis material y financiero necesario para la toma de decisiones, siendo el instrumento mediante el cual la Unidad Técnica verifica la conformidad de las propuestas con el pliego de condiciones y fundamenta la recomendación de adjudicación. Su elaboración recaerá sobre el gestor de la ejecución contractual designado; y deberá completarse dentro del plazo definido en el cronograma oficial de la contratación.
+El estudio técnico de las ofertas deberá contemplar, de manera obligatoria, los siguientes elementos de análisis:
+a. Verificación de requisitos. Aseguramiento de la presentación de la documentación técnica requerida y de la conformidad material y técnica de la oferta con las especificaciones y las normas reguladoras de la materia.
+b. Análisis de precio. La realización de un estudio de razonabilidad de precio, conforme a los lineamientos internos de la Contraloría General y las disposiciones de la Ley General de Contratación Pública y su Reglamento. Dicho análisis deberá incluir la valoración de las bandas de tolerancia aplicables.
+c. Conclusiones sobre elegibilidad. La conclusión sobre la admisibilidad de las ofertas.
+En caso de que se excluya una oferta (declaración de inelegibilidad), esta decisión deberá estar motivada y documentada en el expediente.
+d. Evaluación. La evaluación formal de las ofertas elegibles, según los criterios definidos en el pliego de condiciones.
+El estudio técnico deberá finalizar con la recomendación de adjudicación, la declaratoria de desierto o de infructuosidad, según corresponda, la cual servirá de base para la decisión de la Comisión de Recomendación de Adjudicaciones.

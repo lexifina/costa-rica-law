@@ -1,0 +1,2 @@
+Artículo 65.- Subsanación de requisitos en la fase de refrendo interno. Cuando la Unidad Jurídica Interna identifique la ausencia o el defecto de requisitos formales, documentación o información indispensable para el otorgamiento del refrendo, solicitará formalmente a la Unidad de Servicios de Proveeduría la subsanación respectiva.
+Una vez verificada la corrección de los requisitos y su incorporación al expediente del contrato, la Unidad Jurídica Interna procederá a otorgar o denegar el refrendo, según corresponda.

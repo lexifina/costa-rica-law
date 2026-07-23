@@ -1,0 +1,1 @@
+Artículo 89.- Emisión de lineamientos. La Unidad de Servicios de Proveeduría será la encargada de definir y actualizar los lineamientos vinculados con la presente materia, debiéndose respetar para ello lo establecido en la normativa pertinente.

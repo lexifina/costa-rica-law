@@ -1,0 +1,3 @@
+Artículo 25.- Integración de la Comisión. La Comisión de Recomendación de Adjudicaciones estará conformada por tres miembros propietarios con derecho a voz y voto, a saber: la Jefatura de la Unidad de Servicios de Proveeduría quién la presidirá, la Jefatura de la Unidad Jurídica Interna y el titular subordinado de la Unidad Técnica respectiva.
+Podrán participar en las sesiones de la Comisión, con derecho a voz pero sin voto, el personal de apoyo que cada miembro propietario estime incorporar para fines de asesoría técnica o legal.
+La Unidad de Servicios de Proveeduría fungirá como secretaría técnica de la Comisión, siendo responsable de convocar las sesiones, levantar las actas, formalizar las recomendaciones y custodiar la documentación correspondiente.

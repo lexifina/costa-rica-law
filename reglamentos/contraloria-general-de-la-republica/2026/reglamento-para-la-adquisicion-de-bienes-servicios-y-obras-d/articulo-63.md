@@ -1,0 +1,1 @@
+Artículo 63.- Adquisiciones por medio del fondo de caja chica. Las compras realizadas con fondos de caja chica deberán observar necesariamente lo dispuesto en el Reglamento de Fondo de Caja Chica de la Contraloría General de la República, la Ley General de Contratación Pública y su reglamento.

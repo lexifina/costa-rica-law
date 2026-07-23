@@ -1,0 +1,2 @@
+Artículo 41.- Plazos para gestionar el inicio de los procedimientos. Corresponderá a la Unidad de Servicios de Proveeduría, en coordinación con la Unidad de Administración Financiera, comunicar durante el primer trimestre del año las fechas máximas para la emisión de la orden de inicio de los procedimientos de adquisición de bienes, servicios y obras.
+Para gestionar el inicio de un procedimiento en fecha posterior a la comunicada, la Unidad Técnica deberá de contar previamente con la anuencia de la Unidad de Servicios de Proveeduría.

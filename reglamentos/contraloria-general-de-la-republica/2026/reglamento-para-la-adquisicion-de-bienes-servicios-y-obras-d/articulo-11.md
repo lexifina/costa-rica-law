@@ -1,0 +1,3 @@
+Artículo 11.- Exclusividad del Sistema Digital Unificado. La Contraloría General utilizará el Sistema Digital Unificado como la única plataforma oficial y obligatoria para la gestión integral de todos los procedimientos de contratación pública.
+A los efectos de garantizar la integridad, trazabilidad y publicidad del expediente digital, todo acto, documento, comunicación o registro de información que, conforme a la Ley y el Reglamento, deba integrar el expediente de contratación, deberá gestionarse, notificarse y resguardarse exclusivamente a través del Sistema mencionado.
+Su inobservancia en procedimientos no exceptuados por la Dirección de Contratación Pública, podría conllevar la nulidad absoluta de los actos realizados fuera de la plataforma.

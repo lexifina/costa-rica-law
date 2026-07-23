@@ -1,0 +1,2 @@
+Transitorio II. La Unidad de Servicios de Proveeduría, en coordinación con las Unidades Técnicas, dispondrá de un año a partir de la publicación del presente Reglamento, para plantear a la Unidad de Tecnologías de Información los cambios que correspondan en los sistemas informáticos para dar aplicación a todas las actualizaciones que se realizan con la nueva normativa.
+El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

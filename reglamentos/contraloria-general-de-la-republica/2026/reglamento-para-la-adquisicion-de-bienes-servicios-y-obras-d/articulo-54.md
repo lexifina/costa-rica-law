@@ -1,0 +1,5 @@
+Artículo 54. Excepción sobre bandas de tolerancia. La Administración se reserva la potestad de considerar, ante casos calificados, precios ofertados que se encuentren fuera de las bandas de tolerancia de precios definidas en los pliegos de condiciones, siempre y cuando el oferente presente información que justifique las variaciones.
+Para evaluar la viabilidad de la oferta atípica, la Unidad Técnica deberá requerir al oferente, y analizar rigurosamente, la siguiente información mínima, de conformidad con la normativa de contratación pública:
+a. Justificación de costos. Justificar de forma razonada y detallada que el precio ofertado le permite cubrir la totalidad de los costos, gastos generales y margen de utilidad para la correcta ejecución contractual, de acuerdo con los términos de referencia del pliego de condiciones.
+b. Desglose estructural. Aportar el desglose de la estructura de precio, incluyendo los componentes esenciales de costo.
+c. Documentación de respaldo. Presentar cualquier otra información o documento que la Unidad Técnica considere pertinente para respaldar su justificación y la razonabilidad del precio.

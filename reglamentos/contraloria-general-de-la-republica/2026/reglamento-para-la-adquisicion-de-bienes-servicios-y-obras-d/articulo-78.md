@@ -1,0 +1,5 @@
+Sección Tercera
+Sanciones a particulares
+Artículo 78.- De la investigación preliminar. Cuando un contratista incurra en hechos o actuaciones susceptibles de sanción conforme a la Ley General de Contratación Pública, corresponderá a la Unidad de Servicios de Proveeduría dirigir la investigación preliminar a fin de recabar los hechos y la prueba respectiva de la presunta falta.
+Las Unidades Técnicas y Solicitantes están obligadas a participar en la investigación preliminar, especialmente cuando se comprometan aspectos de índole técnica o de ejecución. La Unidad Jurídica Interna brindará la asesoría legal necesaria en la tramitación de esta fase.
+En aquellos procedimientos en los que se deban cobrar daños y perjuicios, las Unidades Técnicas y Solicitantes deberán estimar la cuantía, la prueba que los sustenta y cualquier otra incidencia que los afecte, sin perjuicio de que puedan requerir la asesoría de la Unidad de Servicios de Proveeduría, la Unidad de Administración Financiera o de personal externo, si fuera necesario para la cuantificación.

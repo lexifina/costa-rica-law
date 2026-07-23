@@ -1,0 +1,1 @@
+Artículo 37.- Ajustes al programa de adquisiciones. Cuando surja la necesidad de adquirir un bien, servicio u obra no previstos en el programa de adquisiciones vigente, la Unidad Técnica deberá gestionar formalmente el requerimiento ante la Unidad de Servicios de Proveeduría para que se realicen las modificaciones y ajustes correspondientes al plan de adquisiciones.

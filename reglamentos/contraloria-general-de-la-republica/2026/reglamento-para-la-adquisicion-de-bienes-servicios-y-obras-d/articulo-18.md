@@ -1,0 +1,1 @@
+Artículo 18.- Obligada colaboración. Toda unidad administrativa, independientemente de su naturaleza o ubicación en la estructura orgánica institucional, estará obligada a brindar la colaboración y asesoría que requiera la Unidad de Servicios de Proveeduría para el debido cumplimiento de sus obligaciones y atribuciones.

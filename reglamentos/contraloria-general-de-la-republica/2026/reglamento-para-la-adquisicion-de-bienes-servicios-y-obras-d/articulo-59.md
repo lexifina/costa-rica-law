@@ -1,0 +1,7 @@
+Artículo 59.- Adjudicación ampliada. La adjudicación por cantidades ampliadas constituye una potestad de la Administración tendiente a maximizar la eficiencia en el uso de los recursos públicos, aprovechando las ofertas económicas favorables, siempre y cuando haya quedado así previsto en el pliego de condiciones, se demuestre la necesidad y se cuente con el contenido presupuestario para la ampliación.
+1. Potestad y justificación. Cuando se presenten ofertas con precios inferiores al presupuesto base, la Administración tendrá la potestad de adjudicar una mayor cantidad de bienes o servicios que la inicialmente prevista. Esta ampliación deberá estar justificada y deberá armonizar con los principios de eficiencia, eficacia y razonabilidad en el uso de los fondos públicos.
+2. Requisitos. Para proceder con la adjudicación ampliada, el estudio técnico de las ofertas por parte de las Unidades Técnicas deberá incluir, de forma obligatoria, los siguientes elementos de análisis:
+a. Motivación explícita: Los motivos técnicos y financieros que justifican la ampliación de las cantidades.
+b. Alineamiento estratégico: La justificación de cómo la ampliación satisface una necesidad prioritaria de la Contraloría General.
+c. Suficiencia presupuestaria: La verificación de que se cuenta con la disponibilidad presupuestaria suficiente y la previsión del gasto respectivo para cubrir la totalidad de la adjudicación ampliada.
+3. Acto de adjudicación. La adjudicación ampliada deberá quedar expresamente consignada en el acto de adjudicación final.

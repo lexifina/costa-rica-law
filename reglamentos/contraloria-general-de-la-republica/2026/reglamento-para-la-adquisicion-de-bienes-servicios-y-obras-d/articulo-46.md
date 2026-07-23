@@ -1,0 +1,1 @@
+Artículo 46.- Definición de la modalidad de compra. Corresponderá a la Unidad de Servicios de Proveeduría la determinación de la modalidad de compra que mejor se adapte a las necesidades institucionales, sin perjuicio de que la Unidad Técnica o la Unidad Jurídica Interna puedan recomendar una modalidad determinada.

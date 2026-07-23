@@ -1,0 +1,2 @@
+Artículo 9.- Integridad y deber de actuación ética. El personal que intervenga en cualquier etapa de los procedimientos de contratación pública, o en actos vinculados a ellos, tiene el deber ineludible de actuar con probidad, integridad y absoluta transparencia.
+En el marco de sus actuaciones, deberán acatar estrictamente tanto la normativa interna que se dicte en la materia, como las directrices y lineamientos que emitan la Autoridad de Contratación Pública y la Dirección de Contratación Pública.

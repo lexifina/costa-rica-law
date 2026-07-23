@@ -1,0 +1,1 @@
+Artículo 6.- Principios generales y normas del ordenamiento jurídico costarricense. En toda actividad de contratación pública que realice la Contraloría General de la República aplicarán los principios propios de la materia, según lo establecido en la normativa.
