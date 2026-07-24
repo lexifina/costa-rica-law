@@ -1,0 +1,3 @@
+Artículo 16. Subsanación para Resolución de No Objeción.
+Si el Concesionario o la Unidad Administradora identifican un aspecto a subsanar, dentro del plazo de análisis de requisitos, deberá informar al CNC o la Unidad Ejecutora para que se realice una única prevención al interesado. El CNC o la Unidad Ejecutora, deberán detallar la información a subsanar, a través de la Plataforma APC-R.
+Con la notificación de esa prevención al interesado, el profesional responsable contará con un plazo de hasta 10 días hábiles para subsanar, si no subsana dentro del plazo otorgado o lo realiza de forma incorrecta, se procederá al rechazo y archivo de su gestión, lo cual se realizará de forma automática a través de la plataforma APC-R.

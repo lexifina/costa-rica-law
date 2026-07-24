@@ -1,0 +1,3 @@
+Artículo 39. Del trámite para el cobro de los daños y perjuicios.
+La Asesoría Jurídica, en caso de que existan sumas a cancelar, tramitará lo atinente a las dos intimaciones de pago, según lo dispuesto en la resolución emitida por el Ministro, de conformidad con lo establecido en el numeral 150 inciso 2) de la Ley General de la Administración Pública, Ley No. 6227 del 2 de mayo de 1978 y sus reformas.
+Si la suma no es cancelada en los plazos otorgados conforme las intimaciones de pago realizadas, la Asesoría Jurídica gestionará ante el Ministro de Obras Públicas y Transportes, la emisión de una certificación sobre la suma líquida y exigible adeudada. Lo anterior, a fin de que ese Despacho realice las gestiones pertinentes para su cobro por la vía judicial.

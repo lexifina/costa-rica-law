@@ -1,0 +1,3 @@
+Artículo 25. Sobre el Permiso de Ejecución.
+Una vez que el Departamento de Tesorería remita el oficio mediante el cual se da por recibido el depósito realizado, o bien que la DI-DVOP verifique que el documento de garantía aportado se ajuste a las disposiciones contenidas en el presente reglamento, la DI-DVOP emitirá el Permiso de Ejecución, en el que se consignará, además del número correspondiente del permiso, el nombre de la Dirección Regional y su medio de contacto. El permiso será notificado al profesional responsable a través del APC y tendrá una vigencia de un año a partir de su aprobación.
+En los casos de rutas que operan bajo una figura especial de financiamiento, el permiso será comunicado también al CNC y la Unidad Ejecutora.

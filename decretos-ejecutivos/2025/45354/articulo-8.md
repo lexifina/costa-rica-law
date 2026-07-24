@@ -1,0 +1,3 @@
+Artículo 8. Coordinación Interinstitucional.
+El Ministro de Obras Públicas y Transportes, o su designado, podrá participar como miembro invitado de la Comisión Interinstitucional para analizar los trámites de revisión de planos de construcción, establecida según el artículo 15 del Decreto Ejecutivo No. 36550-MP-MIVAH-SMEIC, "Reglamento para el Trámite de Revisión de los Planos para la Construcción" y sus reformas.
+En los casos de crear nuevos requisitos o trámites que afecten el procedimiento de obtención del permiso de ejecución del acceso vehicular, el MOPT presentará la propuesta para que se proceda a su análisis de posible implementación en el APC.

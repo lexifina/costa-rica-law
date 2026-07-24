@@ -1,0 +1,2 @@
+Artículo 46. Comunicación al CFIA sobre la actuación del profesional responsable en la construcción de accesos ilegales.
+Al advertirse la construcción de accesos ilegales, la DI-DVOP comunicará a la Dirección Ejecutiva del CFIA sobre la infracción cometida, a efectos de que el referido Colegio realice la investigación administrativa, conforme al debido proceso, y determine la eventual responsabilidad, así como el régimen sancionatorio que resulte aplicable.

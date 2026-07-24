@@ -1,0 +1,7 @@
+Artículo 26. De la renovación del Permiso de Ejecución.
+El Permiso de Ejecución podrá ser renovado por el plazo de un año, con un máximo de 2 renovaciones, siempre y cuando las obras no se inicien dentro del término señalado y las circunstancias de diseño, de seguridad vial y funcionales de la vía, no hayan cambiado.
+La renovación se deberá solicitar mediante las plataformas APC-R y APC, dentro de los 2 meses posteriores al vencimiento del Permiso de Ejecución, debiéndose aportar el presupuesto actualizado.
+Corresponderá a la DGIT la verificación de que las condiciones funcionales y de seguridad vial no hayan cambiado, para lo cual, contará con un plazo de 5 días hábiles. De mantenerse invariables, otorgará la conformidad para que la DI-DVOP proceda a revisar si existieron cambios de diseño en la vía.
+Para determinar si se mantiene invariable el diseño o condición de la vía y en caso de que proceda emitir la renovación correspondiente, la DI-DVOP contará con un plazo máximo de 10 días hábiles. Dicha renovación deberá ser comunicada al interesado a través de la plataforma APC, la cual tendrá una vigencia de un año contabilizado a partir de la fecha de vencimiento del primer permiso de ejecución aprobado.
+De no presentarse la solicitud en el plazo anteriormente citado, éste se tendrá por vencido.
+En los casos que se identifiquen cambios en las condiciones funcionales, de seguridad vial o de diseño se denegará la renovación, lo que se notificará por medio del APC y el interesado podrá solicitar de nuevo el permiso de acceso vehicular.

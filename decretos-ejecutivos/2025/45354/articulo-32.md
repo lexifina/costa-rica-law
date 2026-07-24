@@ -1,0 +1,3 @@
+Artículo 32. Del procedimiento ante incumplimientos.
+En el caso de no ejecutarse las correcciones dentro del plazo otorgado en la prórroga establecida en el artículo anterior y se corrobore por parte de la Dirección Regional que la inejecución de las obras no obedece a causas de fuerza mayor o caso fortuito, dicha Dirección solicitará a la DIDVOP que proceda a la revocación del Permiso de Ejecución, remitiéndose para tales efectos el informe respectivo.
+Una vez revocado el permiso, la DI-DVOP comunicará al Departamento de Inspección Vial y Demoliciones, para que conforme a su competencia proceda apegado a derecho. Además, la DIDVOP notificará lo correspondiente al interesado y se iniciará el proceso para la ejecución de la garantía de calidad y cumplimiento.

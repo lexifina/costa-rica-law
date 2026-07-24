@@ -1,0 +1,10 @@
+Artículo 15. Análisis para la etapa de No Objeción para las rutas que operen bajo una figura especial de financiamiento.
+En rutas que operan bajo una figura especial de financiamiento, una vez que cuenten con la Resolución de Cumplimiento emitida por la DGIT, el CNC o la Unidad Ejecutora, notificará vía correo electrónico al Concesionario o a la Unidad Administradora, según corresponda, para que analice la presentación de los requisitos del artículo 12 y verifique que el diseño del acceso vehicular:
+a. No afecte el proyecto vial existente o previsto.
+b. Que la solución de acceso propuesta tome en consideración y se ajuste a la Información Base suministrada.
+c. Que el acceso propuesto, no genere posibilidades de evasión del pago del peaje (baipás) por parte de los usuarios, en las estaciones de cobro existentes o previstas, u otra condición que pueda poner en riesgo el equilibrio económico - financiero del proyecto en desarrollo, bajo el marco de una de las figuras especiales de financiamiento.
+d. Que el acceso propuesto, no genere posibilidades de evasión del paso de los vehículos pesados por las estaciones de pesaje existentes o previstas.
+e. Que los segmentos de marginal que propongan los desarrolladores frente a sus propiedades, se dispongan según lo establecido en el presente reglamento.
+El análisis de los requisitos establecidos en el artículo 12 lo realizará el Concesionario o la Unidad administradora, según corresponda, y contarán con un plazo máximo de 7 días hábiles a partir de la notificación para efectuar la comprobación de los aspectos señalados en el presente artículo.
+Una vez que el Concesionario o la Unidad Administradora, según corresponda, emita el criterio correspondiente, el CNC o la Unidad Ejecutora contará con un plazo máximo de 13 días hábiles para emitir la Resolución de No Objeción o denegar la solicitud.
+En caso de que el Concesionario o la Unidad Administradora, según corresponda, no emitan el criterio dentro del plazo otorgado, el CNC o la Unidad Ejecutora, dará continuidad a la gestión, efectuando su propia valoración de los puntos establecidos en el Artículo 12 de este reglamento.

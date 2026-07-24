@@ -1,0 +1,12 @@
+Artículo 41. Del Permiso de Ejecución y de Funcionamiento del acceso vehicular a rutas con velocidades máximas iguales o inferiores a los 40 km/h.
+El interesado en construir un acceso para una vivienda unifamiliar en carreteras cuyas velocidades máximas sean iguales o inferiores a los 40 km/h, deberá realizar el trámite a través de la Plataforma APC y cumplir con los siguientes requisitos:
+a. Completar el formulario electrónico en el APC de solicitud de permiso.
+b. Adjuntar los siguientes documentos o referencias:
+1. Archivo digital del Alineamiento respecto a líneas de alta tensión, cuando corresponda
+2. Archivo digital del Alineamiento de cauces de dominio público, ríos o quebradas, cuando corresponda.
+3. Archivo digital del Alineamiento de vía férrea, cuando corresponda.
+4. Referencia del número de resolución u oficio del alineamiento vial del MOPT.
+5. Carta de compromiso emitida por el interesado y el propietario registral del inmueble, donde se compromete a realizar la construcción del acceso vehicular, conforme lo dispuesto en la "Guía para la presentación de solicitud de accesos a rutas nacionales", utilizándose el formato que aparece en el Apéndice 6 del presente reglamento.
+Una vez recibida la documentación, la DI-DVOP constatará el cumplimiento de los requisitos antes mencionados y en caso que proceda, emitirá el Permiso de Ejecución y de Funcionamiento, para lo cual contará con un plazo no mayor a 15 días hábiles. Dicho permiso tendrá una vigencia de un año, conforme a lo estipulado en el artículo 25 del presente reglamento.
+Si la DI-DVOP, detecta incumplimientos o inconsistencias, dentro del plazo anteriormente señalado, prevendrá al profesional responsable, a través de la Plataforma APC, para que complete la información o requisitos omitidos; dicho profesional contará con un plazo de hasta 10 días hábiles para subsanar. Una vez subsanado, la DI-DVOP, contará con un máximo de 15 días hábiles para resolver. El plazo que requiera el profesional responsable para completar la información o subsanar lo solicitado, no se computa dentro del plazo de resolución definido en este artículo y no es atribuible a la Administración.
+La fiscalización en cuanto al cumplimiento del permiso otorgado respecto a viviendas unifamiliares que pretendan acceder a rutas con velocidades máximas iguales o inferiores a los 40 km/h será responsabilidad de las Direcciones Regionales, quienes actuarán de manera discrecional o por denuncia interpuesta ante el Ministerio de Obras Públicas y Transportes.

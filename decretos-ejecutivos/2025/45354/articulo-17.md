@@ -1,0 +1,3 @@
+Artículo 17. Comunicación de la Información Base.
+El Concesionario o la Unidad Administradora, según corresponda, comunicará la Información Base de manera formal al CNC o a la Unidad Ejecutora respectiva, así como cualquier cambio en las versiones de dicha información, y estas a su vez, serán las encargadas de remitirla a la DGIT y a la DI-DVOP. En lo que respecta a los interesados, podrán solicitarla por los medios oficiales, señalados en la página web www.tramitesconstruccion.go.cr
+Solo se entregará aquella información que a criterio del CNC o de la Unidad Ejecutora, no represente un riesgo a la ejecución de los procesos de contratación en las etapas siguientes. Salvo en el caso de los Planos "As Built".

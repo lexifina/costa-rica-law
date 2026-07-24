@@ -1,0 +1,4 @@
+Artículo 30. Del atraso en las obras.
+En caso de presentarse atrasos en la ejecución de las obras que origine un incumplimiento en el Programa de Trabajo aprobado, el Director de Obras o REC estará en la obligación de comunicar dicha situación de forma inmediata a la Dirección Regional correspondiente, a la dirección o medio de contacto provisto, debiéndose suministrar a su vez a la referida dirección o medio, un programa de trabajo remedial con copia a la DI-DVOP, al correo electrónico accesos.vehiculares@mopt.go.cr
+En caso de que el acceso se ubique sobre una ruta nacional que opere bajo una figura especial de financiamiento, la Dirección Regional informará al CNC o a la Unidad Ejecutora que corresponda del nuevo programa de trabajo.
+Además, el Director de Obras o REC deberá consignar la comunicación en la Bitácora Digital del proyecto.
