@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permisos de ejecución y funcionamiento de ac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-07-24 | la propia norma |
+| 2 | 2026-07-24 | Decreto Ejecutivo 45862 (2026-06-25) |
