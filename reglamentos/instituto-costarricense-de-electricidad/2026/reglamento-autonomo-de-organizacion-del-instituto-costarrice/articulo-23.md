@@ -1,0 +1,2 @@
+Artículo 23 - Gerencia Finanzas y Servicios Empresariales
+Es la gerencia encargada de gestionar, de forma integral los servicios de soporte empresarial, entre esta gestión financiera, proveeduría, logística, bienes inmuebles, documentación e información, talento humano, gestión socioambiental, entre otros; con un enfoque en la optimización en el manejo de los recursos y en coordinación con las gerencias de negocio. Ejerce, por medio de las dependencias a su cargo, las funciones que la Ley N° 449 asigna al tesorero.

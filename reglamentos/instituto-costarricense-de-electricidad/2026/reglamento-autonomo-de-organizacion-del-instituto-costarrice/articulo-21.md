@@ -1,0 +1,2 @@
+Artículo 21 - Gerencia Electricidad.
+Es la gerencia encargada de garantizar, con calidad y de forma ágil, el suministro de energía eléctrica sostenible para liderar la electrificación de la economía costarricense, considerando la planificación, desarrollo, gestión de la infraestructura, actividades comerciales y servicio postventa, necesarias para la satisfacción de la demanda eléctrica del país, así como desarrollar negocios no regulados y convergentes.
