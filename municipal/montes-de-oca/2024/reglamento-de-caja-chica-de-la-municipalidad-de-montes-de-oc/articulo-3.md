@@ -1,1 +1,2 @@
-3º-Póliza de Fidelidad. El tesorero y el departamento en pleno, deberán suscribir una Póliza de Fidelidad, la cual será cancelada por la Municipalidad a efecto de garantizar un ejercicio correcto de sus funciones.
+Artículo 3.—Póliza de fidelidad. El Tesorero Municipal y los funcionarios que integren el Departamento de Tesorería deberán suscribir una póliza de fidelidad, cuyo costo será asumido por cada funcionario con recursos de su propio peculio, con el propósito de garantizar el correcto ejercicio de sus funciones, de conformidad con lo dispuesto en el artículo 13 de la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos.
+(Así reformado en sesiónN° 116 del día 20 de julio del 2026)

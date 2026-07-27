@@ -14,3 +14,4 @@ Reglamento de caja chica de la Municipalidad de Montes de Oca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-25 | la propia norma |
+| 2 | 2026-07-27 | Reglamento municipal 116 (2026-07-20) |
