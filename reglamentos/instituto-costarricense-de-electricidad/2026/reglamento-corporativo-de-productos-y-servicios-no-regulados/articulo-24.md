@@ -1,0 +1,3 @@
+Artículo 24. Estrategias de mercadeo de PSNR
+1.La Gerencia General del ICE y las Gerencias Generales de las Empresas del ICE deben garantizar que se cuente con recursos por medio de los cuales se impulsarán las distintas acciones para promocionar y comercializar ante el mercado nacional e internacional los PSNR y realizar su correspondiente seguimiento y control.
+2.Las Gerencias de Negocios y las Gerencias Generales de las Empresas del ICE deben generar estrategias de mercadeo para los PSNR, considerando al menos lo siguiente: alineamiento con la Estrategia Corporativa, el mercado actual, indicadores, características de los competidores según la industria y el ciclo de vida del PSNR, según lo indicado en este reglamento.

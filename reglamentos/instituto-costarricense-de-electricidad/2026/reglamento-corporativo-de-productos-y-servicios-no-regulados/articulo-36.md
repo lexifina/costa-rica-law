@@ -1,0 +1,6 @@
+Artículo 36. Seguimiento de la VPSNR.
+1.Las Áreas de Ventas deberán generar, cada 6 meses, informes relacionados a las VPSNR de los PSNR que tengan inscritos en la Cartera de PSNR del Grupo ICE, según corresponda.
+2.Las Áreas de Ventas deberán elevar, cada 6 meses, a la Gerencia de Negocio o las Gerencias Generales de las Empresas del ICE, según corresponda, informes relacionados a las VPSNR de los PSNR que tengan inscritos en la Cartera de PSNR del Grupo ICE
+3.La Gerencia General del ICE y las Gerencias Generales de las Empresas del ICE deberán unificar y rendir, cada 6 meses, a la División Estrategia y Gestión Corporativa, según corresponda, informes relacionados a las VPSNR de los PSNR que tengan inscritos en la Cartera de PSNR del Grupo ICE.
+4.La División Estrategia y Gestión Corporativa deberá rendir, cada 6 meses, a la Presidencia Ejecutiva, informes relacionados a las VPSNR de la totalidad de PSNR inscritos en la Cartera de PSNR del Grupo ICE.
+5.La División Estrategia y Gestión Corporativa deberá presentar, cada 6 meses, al Comité de Corporativo, informes relacionados a las VPSNR de la totalidad de PSNR inscritos en la Cartera de PSNR del Grupo ICE con el fin de aportar los elementos necesarios para la toma de decisiones oportunas con respecto a los PSNR en ejecución.

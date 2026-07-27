@@ -1,0 +1,3 @@
+Artículo 26. Retiro de los PSNR de la Cartera de PSNR del Grupo ICE
+1.Las Gerencias de Negocios y las Gerencias Generales de las Empresas del ICE, en caso de identificar el retiro de un PSNR, deben de gestionar su retiro de la Cartera de PSNR del Grupo ICE ante la División Estrategia y Gestión Corporativa mediante el instrumento corporativo para solicitud de retiro de PSNR (anexo 3.4) con la debida justificación. Además, gestionar a lo interno los procesos necesarios que garanticen una adecuada comunicación con el cliente final.
+2.La División Estrategia y Gestión Corporativa debe analizar y dar respuesta a la solicitud de retiro de PSNR (anexo 3.4) en un plazo de 8 días hábiles.
