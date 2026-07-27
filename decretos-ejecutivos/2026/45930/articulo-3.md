@@ -1,0 +1,1 @@
+Artículo 3.- Las instituciones del Estado organizarán, en el ámbito de sus competencias, actividades conmemorativas y educativas durante dicho período. Se invita a los gobiernos locales, instituciones autónomas, sector privado y sociedad civil a sumarse a estas jornadas de conmemoración histórica.

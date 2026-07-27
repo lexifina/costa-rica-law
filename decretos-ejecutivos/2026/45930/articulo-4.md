@@ -1,0 +1,1 @@
+Artículo 4.- La Comisión Nacional de Conmemoraciones Históricas, coordinará la celebración del acto y las gestiones interinstitucionales, administrativas, protocolarias y logísticas necesarias en conjunto con el Ministerio de Cultura y Juventud con el fin de coordinar el homenaje póstumo solemne y de todos los otros actos oficiales de homenaje.

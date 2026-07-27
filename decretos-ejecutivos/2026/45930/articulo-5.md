@@ -1,0 +1,1 @@
+Artículo 5.- El Ministerio de Relaciones Exteriores y Culto, a través de su Cancillería, coordinará con las misiones diplomáticas y oficinas consulares del país en el exterior, lo que corresponda para esta conmemoración histórica.

@@ -1,0 +1,1 @@
+Artículo 2.- El pabellón nacional deberá ondear a media asta en todas las instituciones públicas del país, dentro y fuera del territorio nacional, durante los días 28, 29 y 30 de setiembre del 2026, en memoria de los héroes de la Guerra Patria Centroamericana.
