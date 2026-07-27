@@ -1,0 +1,2 @@
+Artículo 18°. Comisiones de Salud Ocupacional
+1. Participar de manera activa en la promoción de entornos laborales seguros y saludables, de conformidad con el Decreto Ejecutivo N° 45166-MTSS Reglamento de Comisiones y Departamentos de Salud Ocupacional y derogatoria del Decreto Ejecutivo N°39408-MTSS del 23 de noviembre del 2015 y el Procedimiento para la Gestión de Comisiones de Salud Ocupacional en los Centros de Trabajo, Código 11.00.001.2021.

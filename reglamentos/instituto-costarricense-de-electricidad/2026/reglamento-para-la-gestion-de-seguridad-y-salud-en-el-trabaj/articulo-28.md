@@ -1,0 +1,1 @@
+Artículo 28°. El Nivel 1 Servicios de Gestión al Personal de la DT, a través del área de Seguridad Industrial debe integrar la información de medición de desempeño de la gestión SST de las Gerencias para presentar los resultados a nivel institucional en intervalos planificados de acuerdo con lo establecido en los procedimientos SST institucionales.

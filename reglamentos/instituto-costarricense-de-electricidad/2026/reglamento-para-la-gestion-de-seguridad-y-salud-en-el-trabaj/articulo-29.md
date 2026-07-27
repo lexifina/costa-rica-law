@@ -1,0 +1,1 @@
+Artículo 29°. El Nivel 1 Servicios de Gestión al Personal de la DT, elaborará un informe con los resultados de los indicadores de la medición de desempeño de las Gerencias, considerando las respectivas conclusiones y recomendaciones, para posteriormente remitirlo a la GFSE, la cual rendirá el informe a la División Gestión Empresarial.

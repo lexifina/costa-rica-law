@@ -1,0 +1,1 @@
+Artículo 22°. Las Gerencias deben planificar e implementar de manera gradual las actividades asociadas a la gestión SST de acuerdo con las disposiciones establecidas en los documentos normativos, así como lo indicado por el proceso Servicios de Gestión al Personal a través del área de Seguridad Industrial.
