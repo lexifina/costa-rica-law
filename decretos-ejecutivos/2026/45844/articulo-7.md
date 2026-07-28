@@ -1,0 +1,1 @@
+Artículo 7. Cualquiera de las partes podrá denunciar el presente Acuerdo mediante notificación a la otra parte por escrito y por vía diplomática. La denuncia surtirá efectos transcurridos seis meses a partir de la fecha de la notificación.

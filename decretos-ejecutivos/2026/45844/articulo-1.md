@@ -1,0 +1,18 @@
+N° 45844-RE
+LA PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES
+Y CULTO
+En uso de las facultades que les confieren el inciso 10) y 12) del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica de 07 de noviembre de 1949 y el artículo 1 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, Ley N° 3008 de 18 de julio de 1962.
+Considerando:
+1º—Que, la Corte Interamericana de Derechos Humanos es el más alto tribunal internacional en materia de derechos humanos de la región, con sede en San José, Costa Rica, y es el encargado de proteger y promover los derechos humanos en los Estados miembros de la Organización de los Estados Americanos que han ratificado la Convención Americana sobre Derechos Humanos.
+2º—Que, mediante Ley N° 6889 del 9 de setiembre de 1983, la República de Costa Rica aprobó el “Convenio para la Sede de la Corte Interamericana de Derechos Humanos”, instrumento internacional mediante el cual el Estado costarricense formalizó las condiciones jurídicas relativas al establecimiento de la sede de la Corte Interamericana de Derechos Humanos en el territorio nacional.
+3º—Que el “Acuerdo entre la República de Costa Rica y la Corte Interamericana de Derechos Humanos sobre el ejercicio de actividades remuneradas de cónyuges del personal profesional internacional de la Corte Interamericana de Derechos Humanos” tiene por objeto regular las condiciones aplicables para el desempeño de actividades remuneradas por parte de los cónyuges del personal profesional internacional de dicho tribunal, conforme a los términos establecidos en el referido instrumento internacional.
+4º—Que el referido Acuerdo permite atender una necesidad práctica y recurrente de las familias del personal internacional destacado en Costa Rica, al facilitar la integración laboral de sus cónyuges durante el período de acreditación.
+5º—Que el otorgamiento de dicha autorización contribuye a mejorar las condiciones de vida de las familias desplazadas al país por razones laborales, favoreciendo su estabilidad económica, bienestar e integración social.
+6º—Que, en virtud de lo anterior, resulta procedente promulgar como vigente el “Acuerdo entre la República de Costa Rica y la Corte Interamericana de Derechos Humanos, sobre el ejercicio de actividades remuneradas de cónyuges del personal profesional internacional de la Corte Interamericana de Derechos Humanos”. Por tanto,
+Decretan:
+Artículo 1º—Promulgar, teniéndolo como vigente, para todos sus efectos internos y externos, el “Acuerdo entre la República de Costa Rica y la Corte Interamericana de Derechos Humanos, sobre el ejercicio de actividades remuneradas de cónyuges del personal profesional internacional de la Corte Interamericana de Derechos Humanos”, cuyo texto literal es el siguiente:
+Ref: CJDH-RH-007-2024
+ACUERDO ENTRE LA REPÚBLICA DE COSTA RICA Y LA CORTE INTERAMERICANA DE DERECHOS HUMANOS, SOBRE EL EJERCICIO DE ACTIVIDADES REMUNERADAS DE CÓNYUGES DEL PERSONAL PROFESIONAL INTERNACIONAL DE LA CORTE INTERAMERICANA DE DERECHOS HUMANOS.
+La República de Costa Rica y la Corte Interamericana de Derechos Humanos, con el propósito de permitir el libre ejercicio de actividades remuneradas a los cónyuges del personal profesional internacional de la Corte Interamericana de Derechos Humanos, acuerdan lo siguiente:
+Artículo 1. Los cónyuges del personal profesional internacional de la Corte Interamericana de Derechos Humanos quedan autorizados para ejercer actividades remuneradas en la República de Costa Rica, una vez obtenida la autorización correspondiente de conformidad con lo dispuesto en este Acuerdo.
