@@ -17,3 +17,4 @@ Reglamento interno del Comité de auditoría y riesgo
 | 2 | 2023-05-31 | Reglamento 6576 (2023-05-31) |
 | 3 | 2023-11-14 | Reglamento 6602 (2023-11-14) |
 | 4 | 2026-02-25 | Reglamento 6723 (2026-02-25) |
+| 5 | 2026-07-28 | Reglamento 6750 (2026-07-28) |
