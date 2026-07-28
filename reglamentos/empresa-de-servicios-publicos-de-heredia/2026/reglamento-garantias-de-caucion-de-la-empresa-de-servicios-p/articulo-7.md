@@ -1,0 +1,5 @@
+Artículo 7º. Monto: Para los efectos del cálculo del monto de la garantía y tomando en consideración las medidas de control interno aplicadas en la empresa se establecen los montos según sea el nivel jerárquico/salario del funcionario.
+FUNCIONARIO | MONTO DE LA GARANTÍA
+Los miembros de la Junta Directiva, el Gerente, Junta Directiva y Auditor | Deberán rendir caución de su ejercicio por ¢ 50,000.00 (cincuenta mil colones), mediante garantías reales o póliza de fidelidad del Instituto Nacional de Seguros, en cuyo caso las primas, correrán por cuenta de la Empresa. Según art. 22 de la Ley 5889 Ley Constitutiva de Empresa de Servicios Públicos de Heredia (ESPH).
+Subgerencia, directores de negocios, director de Investigación y Desarrollo Empresarial Líder de Tesorería, Líder de Proveeduría, Líderes de las unidades de Tecnología de Información, Líder del Fondo de Retiro Ahorro y Préstamo FRAP, Líder del Almacén. | Deberán de rendir una caución equivalente a tres salarios base.
+Encargado de Base de Datos, Ejecutivos de Apoyo 2 de Tesorería, | Deberán de rendir una caución equivalente a dos salarios base.

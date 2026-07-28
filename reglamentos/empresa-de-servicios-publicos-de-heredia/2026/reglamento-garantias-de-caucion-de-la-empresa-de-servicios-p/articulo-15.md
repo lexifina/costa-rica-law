@@ -1,0 +1,1 @@
+Artículo 15º.- Queda derogada cualquier disposición de los diferentes reglamentos de la ESPH S.A., que se opongan a las regulaciones establecidas en este ordenamiento reglamentario y, específica mente, el reglamento de garantías aprobado por esta Junta Directiva, en acuerdo.
