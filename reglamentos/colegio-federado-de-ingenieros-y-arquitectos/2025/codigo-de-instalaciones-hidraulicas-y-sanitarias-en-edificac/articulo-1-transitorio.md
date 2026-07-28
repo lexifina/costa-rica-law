@@ -1,0 +1,2 @@
+Transitorio I
+Los planos que fueran ingresados a la Plataforma de Administrador de Proyectos de Construcción (APC) del CFIA, previo a la entrada en vigor del presente Código continuarán su tramitación sustanciándose en el Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones, edición 2017, publicado en el Alcance N° 38 del Diario oficial La Gaceta N° 37 del veintiuno de febrero de dos mil diecisiete y sus reformas. Los planos que ingresen a la fecha de entrada en vigor de este Reglamento deberán cumplir con las nuevas disposiciones.
