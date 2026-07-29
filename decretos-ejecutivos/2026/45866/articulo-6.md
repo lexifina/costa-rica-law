@@ -1,0 +1,2 @@
+Artículo 6.- Hoja de Ruta. Como resultado del proceso de articulación y coconstrucción desarrollado en el marco de la Mesa Técnica Interinstitucional, seelaborará una Hoja de Ruta que constituirá el instrumento de planificación,coordinación y seguimiento de las acciones interins titucionales dirigidas a laatención de los asuntos indígenas.
+La Hoja de Ruta deberá construirse con la participación activa y efectiva de los pueblos indígenas, respetando sus mecanismos propios de representación, organización y toma de decisiones y contemplará, al menos, los siguientes componentes:
