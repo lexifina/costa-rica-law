@@ -19,3 +19,4 @@ Normativa para regular el programa de atención integral al médico (PAIME) del 
 | 4 | 2021-03-17 | Reglamento 0 (2021-03-17) |
 | 5 | 2023-01-11 | Reglamento 2023 (2023-01-11) |
 | 6 | 2024-12-11 | Reglamento 0 (2024-12-11) |
+| 7 | 2026-07-29 | Reglamento 0 (2026-07-29) |

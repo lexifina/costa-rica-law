@@ -1,1 +1,2 @@
-Artículo 23. En el momento de su ingreso al programa, el paciente hará constar por escrito los nombres de las personas autorizadas a recibir información. No se facilitará nunca información acerca de ningún paciente del PAlME a terceras personas sin disponer del expreso consentimiento del paciente.
+ARTÍCULO 23. En el momento de su ingreso al programa, el paciente hará constar por escrito en la Carta de compromiso para ingreso al programa PAIME los nombres de las personas autorizadas a recibir información. No se facilitará nunca información acerca de ningún paciente del PAIME a terceras personas sin disponer del expreso consentimiento del paciente.
+(Así reformado en sesión ordinaria del 29 de julio de 2026)

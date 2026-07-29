@@ -1,6 +1,5 @@
-Artículo 25.-Terminación irregular. Pondrá fin al tratamiento brindado por PAIME los siguientes supuestos:
-a) Cuando el paciente, no acuda a la clínica autorizada por el PAIME, sin una justificación clara, fidedigna y constatable a 2 visitas consecutivas o 3 discontinuas durante el mismo año. Debiendo presentar la justificación dentro de los 3 días hábiles siguientes, tanto a la Comisión como al profesional.
-En ambos supuestos, después de la primera y segunda ausencia respectivamente, la Comisión tratará de establecer contacto en un plazo de 10 días hábiles con el paciente con el fin de aclarar las razones de su no asistencia e instar a retomar el proceso terapéutico y se le prevendrá de las consecuencias contenidas en la presente normativa.
-En caso de incumplir lo aquí previsto, el Médico tratante presentará el respectivo informe a la Comisión del PAIME y procederá a darle el alta definitiva del programa PAIME.
-Deseo del paciente de no continuar siendo atendido en el programa PAIME. Deberá firmar un documento en el que expresamente manifieste su deseo de abandonar el programa y que releva de toda responsabilidad tanto al Médico tratante como a la Comisión. Las firmas de este documento deberán estar debidamente autenticadas.
-(Así reformado en sesión ordinaria del 17 de marzo del 2021)
+ARTÍCULO 25. Terminación irregular. Pondrá fin al tratamiento brindado por PAIME los siguientes supuestos:
+a) Cuando el paciente, no acuda a 2 citas consecutivas o 3 discontinuas durante el mismo año con los profesionales asignados por PAIME, sin una justificación clara, fidedigna y constatable. En caso de presentar justificación, la misma deberá realizarse ante el profesional a cargo dentro de los 3 días hábiles siguientes.
+En caso de incumplir lo aquí previsto, el médico tratante presentará el respectivo informe a la Comisión del PAIME y procederá a excluir al paciente de manera definitiva del programa PAIME.
+b) Cuando el paciente del paciente manifieste su deseo de no continuar siendo atendido en el programa PAIME, en cuyo caso deberá firmar el documento Solicitud de salida del programa PAIME, o bien, enviar un documento formal en el que expresamente manifieste su deseo de abandonar el programa, relevando de toda responsabilidad tanto al médico tratante como a la Comisión.
+(Así reformado en sesión ordinaria del 29 de julio de 2026)
