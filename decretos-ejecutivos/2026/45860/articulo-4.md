@@ -1,0 +1,2 @@
+ARTÍCULO 4. Fuentes de abastecimiento de agua. Formarán parte del sistema de abastecimiento del Distrito de Riego Zona Norte y Este de Cartago las fuentes de agua superficiales y subterráneas ubicadas dentro de su ámbito territorial, incluyendo ríos, quebradas, nacientes y aprovechamientos de aguas subterráneas debidamente registradas ante el Ministerio de Ambiente y Energía.
+El aprovechamiento de dichas fuentes deberá ajustarse a los principios de sostenibilidad ambiental, bajo la rectoría y vigilancia del Ministerio de Ambiente y Energía (MINAE).

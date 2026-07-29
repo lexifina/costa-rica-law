@@ -1,0 +1,1 @@
+ARTÍCULO 7. Tarifas del servicio. El SENARA deberá someter a aprobación de la Autoridad Reguladora de los Servicios Públicos (ARESEP) las tarifas correspondientes, conforme al principio de servicio al costo, garantizando la sostenibilidad financiera del sistema.

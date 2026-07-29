@@ -1,0 +1,2 @@
+TRANSITORIO III
+Declaradas las áreas de riego mediante informe técnico del SENARA, la administración del Distrito de Riego en coordinación con la Dirección de Agua del MINAE, deberá gestionar en un plazo máximo de 12 meses, contados a partir de la entrada en vigencia del presente decreto, la migración gradual de los títulos individuales de concesión hacia esquemas de asignación de agua dentro del Distrito, conforme a lo dispuesto en el reglamento del servicio de riego.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. Coordinación Interinstitucional. Las instituciones y entidades del sector público, privado y académico podrán en el marco de sus respectivas competencias, brindar apoyo técnico y administrativo a las gestiones necesarias para el desarrollo del Distrito de Riego
