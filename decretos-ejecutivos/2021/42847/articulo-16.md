@@ -466,7 +466,8 @@ c. Aprobación de un (1) año mínimo en un programa de estudios posgrado (resid
 a. Estar debidamente inscrito como Especialista en Pediatría en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación de dos (2) años mínimo en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Medicina Extracorpórea Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (*) (Así adicionado el inciso 16.20.22) anterior en sesión ordinaria 2026-03-25, celebrada el 25 de marzo de 2026)
-(*)16.20.23. Alergología Pediátrica
+(*)16.20.23.
+Alergología Pediátrica
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la subespecialidad de Alergología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.

@@ -162,7 +162,7 @@ Aprobación de un programa de estudios de posgrado (residencia médica) de tres 
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Nuclear, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 2024-07-31 del 31 de julio de 2024)
-14.38 Especialidad Médica en Medicina Paliativa.
+14.38Especialidad Médica en Medicina Paliativa.
 Se reconoce como sinónimos de esta especialidad el siguiente término: Medicina Paliativa en Adultos.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Medicina Paliativa, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
@@ -208,10 +208,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 14.48 Especialidad Médica en Oncología Quirúrgica.
 Requisitos específicos:
 a. Estar debidamente inscrito como especialista en Cirugía General, ante el Colegio de Médicos y Cirujanos.
-(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 236 del 8 de diciembre de 2021, página 2. Dicha corrección consistió en la modificación de la redacción del inciso anterior)
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Oncología Quirúrgica, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
-(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 236 del 8 de diciembre de 2021, página 2. Dicha corrección consistió en la modificación de la redacción del inciso anterior)
-En el caso de estar inscrito como Especialista en Cirugía General, se requerirá solo la aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Oncología Quirúrgica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+En el caso de estar inscrito como Especialista en Cirugía General, se requerirá solo la aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Oncología Quirúrgica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad
+Podrán también solicitar la inscripción en esta especialidad, aquellos médicos que cumplan con los siguientes requisitos:
+a. Aprobación de 2 (dos) años en un programa de estudios de posgrado (residencia médica) en la especialidad de Cirugía General, en un Hospitalde Tercer Nivel, perteneciente o adscrito a una universidad de reconocido prestigio.
+b. Aprobación de 4 (cuatro) años en un programa de estudios de posgrado (residencia médica) en la especialidad de Oncología Quirúrgica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una universidad de reconocido prestigio.
+(Así reformado el punto N° 14.48) anterior mediante sesión ordinaria N°2026-07.29 del 29 de julio del 2026)
 14.49 Especialidad Médica en Ortopedia y Traumatología.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Ortopedia y Traumatología, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa debe contemplar y garantizar la aprobación de un (1) año en Ortopedia Pediátrica.
