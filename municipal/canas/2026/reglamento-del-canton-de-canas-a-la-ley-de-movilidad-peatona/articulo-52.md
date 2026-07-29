@@ -1,0 +1,1 @@
+Artículo 52. Para la construcción de rampas de acceso vehicular que requieran modificar los sistemas de drenaje se debe mantener su capacidad hidráulica y por ningún motivo se deben obstruir o eliminar. En ninguna circunstancia se debe interrumpir el paso peatonal.

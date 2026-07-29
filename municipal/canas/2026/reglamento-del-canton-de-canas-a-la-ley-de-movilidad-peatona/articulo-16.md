@@ -1,0 +1,1 @@
+Artículo 16. Se podrá realizar mejoras en las aceras mediante la modalidad participativa de obras, bajo el marco de convenio entre la municipalidad y asociaciones de desarrollo local, grupos organizados de la sociedad civil, empresa privada y otros, sin ser necesarios traslados horizontales de fondos.

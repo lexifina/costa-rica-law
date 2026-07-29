@@ -1,0 +1,1 @@
+Artículo 35. La construcción de aceras realizada a cuenta del propietario colindante, serán supervisadas por el personal del Departamento de Desarrollo y Control Urbano, por el que además deberá tramitarse el permiso constructivo correspondiente.

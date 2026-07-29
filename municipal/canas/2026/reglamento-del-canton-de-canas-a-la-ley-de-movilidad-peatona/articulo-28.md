@@ -1,0 +1,1 @@
+Artículo 28. En el caso de no pago de la obligación, lo adeudado se construirá en título ejecutivo, para la conformación de hipoteca legal preferente, según lo establecido en el artículo 79 del código municipal.

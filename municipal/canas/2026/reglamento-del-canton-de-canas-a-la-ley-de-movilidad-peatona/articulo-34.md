@@ -1,0 +1,1 @@
+Artículo 34. Será competencia del Departamento de Infraestructura Vial, la ejecución y supervisión de los trabajos por contrato, administración o modalidad participativa de obras, que se realicen en las aceras, sean estos mismos de mantenimiento, rehabilitación o construcción de obra nueva.

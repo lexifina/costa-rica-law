@@ -1,0 +1,1 @@
+Artículo 10. La Municipalidad de Cañas podrá establecer convenios con el Ministerio de Obras Públicas y Transportes y sus respectivos Concejos con el objetivo de gestionar efectivamente los principios de esta Ley, esto de conformidad con el artículo 4 inciso F del Código Municipal.

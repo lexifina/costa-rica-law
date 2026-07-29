@@ -1,0 +1,1 @@
+Artículo 24. Una vez construida la obra, la persona propietaria o poseedora del inmueble está obligada a cumplir con el pago del reembolso, del costo efectivo de la obra, hasta en un plazo máximo de 18 meses, de lo contrario, deberá cancelar por concepto de multa un cincuenta por ciento (50%) del valor de la obra, sin perjuicio del cobro de los intereses moratorios legales.

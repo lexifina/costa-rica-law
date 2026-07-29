@@ -1,0 +1,1 @@
+Artículo 12. Es responsabilidad de las personas propietarias o poseedoras de bienes inmuebles colindantes con la vía pública, así como de quienes hagan uso autorizado del espacio público, velar por el adecuado uso, conservación y no obstrucción de la infraestructura peatonal, conforme a lo dispuesto en este reglamento y la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 11. La Municipalidad de Cañas podrá celebrar convenios con organizaciones sociales legalmente constituidas, asociaciones de desarrollo integral, concejos de distrito, entre otros, con el fin de realizar la construcción de infraestructura dirigida a mejorar la movilidad de los transeúntes con el acompañamiento técnico municipal.

@@ -1,0 +1,1 @@
+Artículo 55. Cuando por las condiciones geométricas y topográficas, se requiera salvaguardar la integridad de terrenos se podrán construir obras de protección en las zonas verdes siempre y cuando no se afecte el tránsito peatonal. Toda obra que se realice debe contar con el permiso de construcción correspondiente tramitado ante el Departamento de Desarrollo y Control Urbano.

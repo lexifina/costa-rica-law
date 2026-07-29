@@ -1,0 +1,1 @@
+Artículo 46. Cualquier elemento o mobiliario urbano que se desee colocar, como postes, hidrantes, torres de telefonía, arbustos o cualquier otro, se deberá colocar en la franja de mobiliario respetando y dejando la franja de circulación libre de obstáculos.

@@ -1,0 +1,1 @@
+Artículo 59. Los cruces peatonales deberán contar con prioridad de paso propiciada por medidas de pacificación vial, como la demarcación, señalética y rampa correspondiente. Las zonas inmediatas a los cruces deben permanecer libre de obstáculos físicos y visuales, y demarcarse e iluminarse apropiadamente.

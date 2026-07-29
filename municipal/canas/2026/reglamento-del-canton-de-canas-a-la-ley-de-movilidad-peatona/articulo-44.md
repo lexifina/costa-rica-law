@@ -1,0 +1,1 @@
+Artículo 44. Las aceras e infraestructura peatonal deberán tener un ancho constructivo mínimo de franja caminable, tal como indica el Plan Regulador Urbano vigente, dando una línea concordante con el entorno, sin presentar escalones, en caso de desnivel éste será salvado con rampa, el diseño debe ser cómodo y eficaz, sin requerir de mayor esfuerzo físico.

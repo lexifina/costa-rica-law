@@ -1,0 +1,3 @@
+Capítulo IV.
+Administración y Financiamiento.
+Artículo 18. La Municipalidad de Cañas dispondrá como capital de trabajo para la construcción de obras que faciliten la movilidad peatonal, el cinco por ciento (5%) de los recursos provenientes de la Ley 7509 Impuesto sobre Bienes Inmuebles, el cual se irá reduciendo de forma escalonada en uno por ciento (1%) anual hasta llegar a un mínimo de un uno por ciento (1%) de forma permanente. Dispondrá, además, de fondos provenientes de la ley 8114 y 9329 para la construcción de obra nueva. La planificación del uso de estos recursos se incluirá en el Plan Cantonal de Movilidad Sostenible y en el Plan Quinquenal de Conservación y Desarrollo Vial.

@@ -1,0 +1,1 @@
+Artículo 9. La Municipalidad podrá eliminar cualquier obstáculo existente en en las aceras o vías peatonales que dificulte o interrumpa de alguna forma la movilidad de los transeúntes conforme al artículo 17 de la Ley de Movilidad Peatonal N°9976.

@@ -1,0 +1,1 @@
+Artículo 58. Toda señalética u objeto saliente colocado en acera deberá estar a una altura mínima de 2,20 metros y no podrá entorpecer la franja caminable, no deberá sobrepasar la distancia transversal del ancho del cordón y caño.

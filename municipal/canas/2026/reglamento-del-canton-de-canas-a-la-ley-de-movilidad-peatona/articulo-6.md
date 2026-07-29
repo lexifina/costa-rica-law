@@ -1,0 +1,1 @@
+Artículo 6. Los elementos que se pretenda colocar en la vía pública y que pretendan generar remuneración económica a los interesados, como vallas publicitarias, acrónimos o similares, así como todos los considerados en la Ley de Utilización de Espacios Públicos, deberán contar con una licencia o patente municipal, según corresponda, y no limitar el paso de los transeúntes.

@@ -1,0 +1,4 @@
+Artículo 62. Las modificaciones a los sistemas de drenaje pluvial solo podrán realizarse previa aprobación técnica de la Municipalidad, garantizando la capacidad hidráulica y el cumplimiento de la normativa aplicable. Dichas obras deberán ejecutarse bajo supervisión técnica y no podrán afectar la infraestructura peatonal ni la seguridad vial.
+Artículo 62. Toda edificación deberá instalar canoas y bajantes y colocar tubos para evacuar las aguas pluviales directamente al caño o cuneta, mediante entubado bajo el nivel de acera.
+La salida de las aguas pluviales debe canalizarse al sistema de drenaje, sea este cordón de caño, cuneta, espaldón o a la calle. Por ningún motivo se permite la descarga directa a las aceras.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se consignó dos veces el artículo N° 62)

@@ -1,0 +1,1 @@
+Artículo 15. Podrán ser incluidas dentro del planeamiento y construcción de las obras, aquellas recomendaciones de las personas usuarias relacionadas a las necesidades y usos de la infraestructura peatonal.

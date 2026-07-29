@@ -1,0 +1,1 @@
+Artículo 56. Todo el mobiliario urbano que se coloque en el cantón debe respetar la franja de circulación sin afectar la continuidad de la misma. Si la colocación del mobiliario afecta la franja de circulación y por ende la loseta guía existente, las modificaciones necesarias deberán ser asumidas por cuenta propia del interesado que coloca el mobiliario.

@@ -1,0 +1,1 @@
+Artículo 31. Toda acera o infraestructura peatonal cuyo deterioro supere un cuarenta por ciento (40%) de la totalidad del área, será considerada como obra nueva y deberá reconstruirse totalmente. Considerando el área del ancho de la acera por el largo del tramo a intervenir.
