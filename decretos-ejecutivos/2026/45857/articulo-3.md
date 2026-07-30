@@ -1,0 +1,2 @@
+Artículo 3°.- Archivo o desestimación de la solicitud
+De conformidad con el apartado 11 de la Resolución N° 436-2020 (COMIECO-XCIII), publicada mediante Decreto Ejecutivo N.° 42965-COMEX-MEIC-MAG, del 15 de abril de 2021, la solicitud se tendrá por desistida y se archivará cuando, posterior a una prevención, el usuario aporte información incompleta, inconforme para los fines requeridos, la presente de forma extemporánea o no responda.
