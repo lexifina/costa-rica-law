@@ -1,0 +1,1 @@
+Artículo 2º—Laboratorio designado. El Laboratorio de Tiempo y Frecuencia del Instituto Costarricense de Electricidad (ICE-LAMETRO) será el designado para determinar y mantener la hora oficial de Costa Rica, de conformidad con los parámetros indicados en el artículo 1 del presente decreto ejecutivo.

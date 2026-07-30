@@ -1,0 +1,2 @@
+Artículo 3º—De la divulgación y diseminación de la hora oficial. La señal del tiempo de hora oficial será divulgada con carácter informativo y de acceso público, mediante el sitio web que disponga el ICE; y podrá ser diseminada mediante los mecanismos o sistemas que el ICE determine.
+En el ejercicio de sus competencias, el ICE podrá comercializar servicios asociados a la diseminación técnica de la hora oficial, sin que ello implique la comercialización de la señal de la hora oficial en sí misma.
