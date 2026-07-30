@@ -14,3 +14,4 @@ Reforma Reglamento para el otorgamiento de permisos de ejecución y funcionamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-07-27 | la propia norma |
+| 2 | 2026-07-30 | Decreto Ejecutivo 45915 (2026-07-30) |
