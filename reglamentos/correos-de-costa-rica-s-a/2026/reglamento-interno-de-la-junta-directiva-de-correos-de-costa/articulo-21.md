@@ -1,0 +1,1 @@
+Artículo 21. Medidas disciplinarias: cuando alguno de los directivos incumpliere reiteradamente las disposiciones del presente reglamento, se pondrá en conocimiento del Consejo de Gobierno, a efectos de que dicho órgano siente las responsabilidades del caso y adopte las medidas pertinentes.

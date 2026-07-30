@@ -1,0 +1,2 @@
+Artículo 12. Orden del día: el orden del día de las sesiones de Junta Directiva se fijará de conformidad con lo establecido en el artículo 5, inciso f) del presente Reglamento y podrá modificarse con el consentimiento de los demás miembros de la Junta Directiva.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del órgano y sea declarada la urgencia del asunto por el voto favorable de todos ellos.

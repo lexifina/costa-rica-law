@@ -1,0 +1,3 @@
+Artículo 20. Dietas: los directivos devengarán por cada sesión ordinaria y extraordinaria a la que asista, una dieta, con un máximo de ocho sesiones mensuales remuneradas. El monto de estas será igual al devengado por los miembros de la Junta Directiva del Banco Central de Costa Rica y se ajustarán anualmente de conformidad con el índice de inflación que determine esa empresa bancaria.
+La inasistencia de un directivo a las sesiones o su llegada posterior a los quince minutos después de iniciada causará la pérdida de la dieta.
+El directivo que se retire de la sesión sin la anuencia del presidente no tendrá derecho a la dieta.

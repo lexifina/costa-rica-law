@@ -1,0 +1,1 @@
+Artículo 13. Mociones: los directivos podrán, en cualquier momento de la sesión, presentar mociones sobre los asuntos que estén discutiendo o que los directivos consideren oportunos. Aquellos que se refieran a cuestiones de orden o procedimiento tendrán prioridad en la discusión.

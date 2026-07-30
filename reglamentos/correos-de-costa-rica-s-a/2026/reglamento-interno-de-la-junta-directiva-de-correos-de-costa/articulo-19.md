@@ -1,0 +1,2 @@
+Artículo 19. Libro de Actas: existirá un libro de actas debidamente legalizado en el que, una vez aprobadas las actas respectivas, se transcribirán inmediatamente, a fin de que sean firmadas en la siguiente sesión posterior a su aprobación por el presidente de la Junta Directiva y por aquellos miembros que hubieren hecho constar su voto disidente.
+Respecto a los acuerdos de Junta Directiva, su cumplimiento, ejecución y seguimiento es competencia exclusiva de la Administración.

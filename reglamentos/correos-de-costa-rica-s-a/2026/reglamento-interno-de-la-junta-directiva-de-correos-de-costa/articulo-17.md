@@ -1,0 +1,2 @@
+Artículo 17. Recurso de revisión: los directivos podrán interponer recurso de revisión contra los acuerdos adoptados. Este deberá ser interpuesto a más tardar al discutirse el acta de la sesión donde se adoptó y deberá resolverse la misma, salvo que el presidente juzgue oportuno el asunto y prefiera conocerlo en una sesión extraordinaria.
+Las simples observaciones de forma relativa a la redacción de los acuerdos no serán consideradas como recurso de revisión.
