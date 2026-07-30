@@ -1,0 +1,3 @@
+Artículo 13. Autorización de horas extraordinarias
+Es responsabilidad de las distintas jefaturas departamentales proponer y velar por la autorización de jornadas extraordinarias de forma previa y suficiente a la realización de los trabajos, junto con visto bueno de la Alcaldía Municipal para que se efectúe su debido pago.
+Únicamente se autorizará con posterioridad a la realización de las labores en aquellos casos excepcionales y razonables, así calificado y autorizados por la administración municipal como "Fuerza Mayor" o "Caso Fortuito". El documento de autorización deberá quedar archivado en la respectiva dependencia, para efectos de control interno.

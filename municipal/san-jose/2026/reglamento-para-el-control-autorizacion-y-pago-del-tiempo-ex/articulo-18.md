@@ -1,0 +1,3 @@
+Artículo 18. Horas extraordinarias entre distintas dependencias
+En aquellos casos excepcionales en que se requiera que una persona funcionaria labore tiempo extraordinario en una dependencia administrativa distinta de aquella en la que presta sus servicios, dicha situación deberá encontrarse debidamente justificada y autorizada, por ambas jefaturas inmediatas y por la persona gerente de la dependencia en la que se realizará la labor extraordinaria.
+La autorización deberá indicar claramente las labores a realizar, el tiempo estimado y las razones que justifican la participación del funcionario o funcionaria en dicha dependencia, con el fin de garantizar el adecuado control administrativo y presupuestario del tiempo extraordinario.

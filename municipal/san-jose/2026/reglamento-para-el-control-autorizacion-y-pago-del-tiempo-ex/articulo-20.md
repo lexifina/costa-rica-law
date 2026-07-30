@@ -1,0 +1,2 @@
+Artículo 20. De la prescripción de la obligación del pago de horas extras.
+En todo caso, será obligación de la Municipalidad el pago de horas extra durante la vigencia de la relación laboral, mediante los métodos ordinarios, y hasta un año después del término de la relación laboral, ya sea por vía judicial litigiosa o por métodos alternativos de solución de conflictos, quedando facultada para realizar este pago por dichos medios. Las disposiciones de este articulo quedan sujetas a las disposiciones normativas y jurisprudenciales.

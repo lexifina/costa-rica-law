@@ -1,0 +1,2 @@
+Artículo 23. Pago del tiempo extraordinario y prohibición de compensación con descanso El trabajo realizado en jornada extraordinaria por las personas funcionarias de la Municipalidad eberá ser remunerado exclusivamente mediante compensación económica, aplicando los recargos establecidos en el artículo 139 del Código de Trabajo.
+En consecuencia, no procederá la compensación del tiempo extraordinario mediante otorgamiento de tiempo de descanso, salvo en los casos excepcionales expresamente previstos por la legislación vigente.
