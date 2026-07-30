@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del procedimiento
+Artículo 8. Cada Coordinador, Líder o Encargado de Proceso, deberá incluir en su Plan Anual Operativo una proyección o estimación de los montos con que se cubrirá el tiempo extraordinario para el período presupuestario siguiente, incluyendo un desglose en el cual se indique montos aproximados para personal administrativo, operativo y técnicos de su proceso o subproceso; lo anterior con base en el historial de gastos realizados por ese concepto y las situaciones propias de la acción de la Municipalidad, como inundaciones, periodos de alta actividad tributaria, festividades, y cualesquiera similares.

@@ -1,0 +1,1 @@
+Artículo 6. No se podrá autorizar jornadas extraordinarias a un mismo servidor(a) en forma permanente, la administración a través de la Alcaldía, el Proceso de Talento Humano y el superior inmediato deberán buscar una solución alternativa, para que esta situación no persista, tales como cambios de horarios, ampliación de los servicios, redistribución de las tareas u otras.

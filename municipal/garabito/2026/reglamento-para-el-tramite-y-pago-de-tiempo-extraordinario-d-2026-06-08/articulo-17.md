@@ -1,0 +1,1 @@
+Artículo 17. El Proceso de Recursos Humanos a través de la gestión de planillas serán los encargados de tramitar el pago por tiempo extraordinario. Por ningún concepto se tramitará solicitud (es) de pago de horas extras no autorizadas.
