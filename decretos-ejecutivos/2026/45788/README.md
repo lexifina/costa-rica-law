@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-07 | la propia norma |
+| 2 | 2026-07-31 | Decreto Ejecutivo 45885 (2026-07-31) |
