@@ -3,3 +3,4 @@ Artículo 4°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 45523 del 6 de marzo de 2026)
 (Modificado por el artículo 2° del decreto ejecutivo N° 45788 del 28 de abril de 2026)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45826 del 29 de mayo 2026)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45885 del 31 de julio del 2026)

@@ -13,3 +13,6 @@ El monto total de la rebaja y del aumento dispuestos en este artículo es el sig
 (Reformado por el artículo 2° de la ley N° 10966 del 17 de julio del 2026)
 (Reformado por el artículo 3° de la ley N° 10966 del 17 de julio del 2026)
 (Reformado por el artículo 4° de la ley N° 10966 del 17 de julio del 2026)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
+(Modificado por el artículo 3° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
+Modificado por el artículo 4° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
