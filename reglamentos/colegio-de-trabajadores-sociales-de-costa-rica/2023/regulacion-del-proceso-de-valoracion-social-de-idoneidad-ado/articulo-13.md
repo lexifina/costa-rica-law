@@ -1,0 +1,1 @@
+Artículo 13. Capacitación para la certificación. Toda persona profesional en Trabajo Social, que procure realizar valoraciones sociales para idoneidad adoptiva, debe aprobar el proceso de formación (capacitación), que para tal fin se imparta en el COLTRAS.

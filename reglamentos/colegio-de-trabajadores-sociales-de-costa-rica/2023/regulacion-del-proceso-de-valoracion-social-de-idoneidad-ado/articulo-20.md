@@ -1,0 +1,1 @@
+Artículo 20. Sobre responsabilidades. Quien esté a cargo de la valoración profesional deberá informar a la familia evaluada acerca de las implicaciones de incurrir en violaciones a los derechos de las personas menores de edad, a fin de dejar clara la existencia de responsabilidad administrativa, civil o penal, según sea el caso.

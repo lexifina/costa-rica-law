@@ -1,0 +1,1 @@
+Artículo 24. Idioma. El informe social de idoneidad adoptiva debe emitirse en idioma español, y en caso de requerirse por la familia adoptante en cualquier otra lengua autóctona costarricense, la familia deberá asumir los costos de dicha traducción oficial.

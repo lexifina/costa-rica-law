@@ -1,0 +1,1 @@
+Artículo 25. Ampliación y adenda. Una vez presentado el informe social ante quien corresponda, no procederá corrección alguna. En caso de tenerse por necesaria una ampliación en la información, se recurrirá a la figura de adenda.

@@ -1,0 +1,1 @@
+Artículo 16. Informe social. Como resultado de la intervención de la valoración social, la persona profesional en Trabajo Social debe elaborar un Informe Social para Adopción en el que emita su criterio acerca de la idoneidad adoptiva.

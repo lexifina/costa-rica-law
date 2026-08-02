@@ -1,0 +1,1 @@
+Artículo 27. Conformidad normativa del dictamen. El dictamen emitido por la persona profesional en Trabajo Social debe cumplir con lo establecido en este Reglamento, sin perjuicio de lo dispuesto en otras normativas.

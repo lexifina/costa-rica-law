@@ -1,0 +1,1 @@
+Artículo 19. Devolución de la intervención. La persona profesional deberá realizar una devolución de resultados a la familia valorada, la cual consta de una síntesis de los criterios diagnósticos y sugerencias o recomendaciones. Dicha devolución estará sustentada en el Código de Ética del COLTRAS y la legislación, normas y procedimientos del presente reglamento.

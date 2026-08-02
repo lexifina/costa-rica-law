@@ -1,0 +1,1 @@
+Artículo 10. De la Fiscalía. La Fiscalía del COLTRAS llevará a cabo procesos de fiscalización de índole técnica, ética y científica respecto a las valoraciones sociales de idoneidad adoptiva, que se realicen a las personas usuarias del servicio, en concordancia a lo establecido en el Código de Ética del COLTRAS.

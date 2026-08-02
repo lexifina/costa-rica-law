@@ -1,0 +1,1 @@
+Artículo 15. Consentimiento informado y contrato profesional. Cada persona solicitante de adopción, como primer paso obligatorio del proceso de valoración, deberá firmar un documento de consentimiento informado y un contrato de servicios profesionales con la persona profesional que la realizará.

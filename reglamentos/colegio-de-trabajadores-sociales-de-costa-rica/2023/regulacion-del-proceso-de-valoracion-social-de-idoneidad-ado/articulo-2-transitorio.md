@@ -1,0 +1,1 @@
+Transitorio 2. Quedan también exoneradas del proceso de certificación las personas profesionales en Trabajo Social recientemente jubiladas del Departamento de Adopciones, en un periodo que no supere los dos años posteriores a la fecha que rige el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 35. Habilitación profesional. La certificación para valoración social de idoneidad adoptiva tendrá una vigencia de cinco años, susceptible a actualizaciones periódicas que surjan como necesarias en el marco de modificaciones legales o de procedimiento a lo interno del Departamento de Adopciones del PANI.

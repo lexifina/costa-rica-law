@@ -1,0 +1,1 @@
+Artículo 26. Huella digital. Cuando alguna de las personas solicitantes deba firmar el consentimiento informado u otro documento y por alguna razón no pueda hacerlo, se imprimirá la huella digital en el lugar designado para firmar. La persona profesional debe indicar a cuál dedo y extremidad corresponde.

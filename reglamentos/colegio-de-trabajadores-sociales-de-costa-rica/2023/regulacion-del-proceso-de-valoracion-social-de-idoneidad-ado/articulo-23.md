@@ -1,0 +1,1 @@
+Artículo 23. Legitimidad de los informes sociales. Únicamente los informes emitidos por personas profesionales en Trabajo Social que cumplan los requisitos establecidos en este Reglamento tendrán validez ante terceras personas.

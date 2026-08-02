@@ -1,0 +1,1 @@
+Transitorio 1. Para efectos del proceso de certificación, quedan exoneradas las personas profesionales en Trabajo Social funcionarias del Departamento de Adopciones en virtud de la experticia desarrollada en el marco de sus funciones y/o por encargo institucional.
