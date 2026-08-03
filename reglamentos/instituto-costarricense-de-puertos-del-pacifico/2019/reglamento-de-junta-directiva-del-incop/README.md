@@ -17,3 +17,4 @@ Reglamento de Junta Directiva del INCOP
 | 2 | 2020-02-18 | Reglamento 4208 (2020-02-18) |
 | 3 | 2023-03-08 | Reglamento 4380 (2023-03-08) |
 | 4 | 2024-03-22 | Reglamento 4428 (2024-03-22) |
+| 5 | 2026-08-03 | Reglamento 4529 (2026-08-03) |
