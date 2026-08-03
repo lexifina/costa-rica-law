@@ -14,3 +14,4 @@ Reglamento para Licencias y Patentes Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-03 | la propia norma |
+| 2 | 2026-08-03 | Reglamento municipal 31 (2026-08-03) |
