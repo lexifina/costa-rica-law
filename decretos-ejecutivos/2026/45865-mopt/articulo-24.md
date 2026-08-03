@@ -1,0 +1,2 @@
+Artículo 24. Prevalencia en la resolución de las medidas cautelares y su fase recursiva. Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia. Su vigencia será determinada por su instrumentalidad para el proceso.
+La resolución del superior sobre el rechazo o la interposición de medidas cautelares carecerá de ulterior recurso, excepto el de adición o aclaración.

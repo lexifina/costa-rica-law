@@ -1,0 +1,1 @@
+ARTÍCULO 33. Plazo del procedimiento por Hostigamiento y Acoso Sexual. El procedimiento que se inicia con la imputación de cargos en contra de la persona denunciada, el cual realiza la CIP, debidamente constituida, corresponde a un plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia.

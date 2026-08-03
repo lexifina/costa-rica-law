@@ -1,0 +1,6 @@
+ARTÍCULO 32. Resolución final. La CIP remitirá el informe final a la persona Máxima Jerarca con el fin de que emita el acto final definitivo y ordene la aplicación de la sanción respectiva, en caso que corresponda.
+La persona Máxima Jerarca del MOPT deberá emitir una resolución final debidamente fundamentada, con el cuadro fáctico y jurídico correspondiente, que incluya resultandos, considerandos y el por tanto.
+Esta resolución final deberá ser notificada a las partes interesadas, a la CIP, a la CCHAS y a la Defensoría de los Habitantes, para lo que en derecho corresponda; todo lo anterior en el plazo máximo de un mes.
+En caso de que haya sanción contra una persona funcionaria, la CIP informará a los departamentos competentes de las Direcciones de Recursos Humanos, para que se lleve a cabo la ejecución de la sanción, conforme a lo señalado en el artículo 415 del Código de Trabajo y sus reformas, y lo dispuesto en el presente artículo.
+Cuando la sanción implique una suspensión, se debe considerar que el lapso de suspensión, no podrá coincidir con periodos de receso laboral, incapacidad o vacaciones. Además, dicha resolución deberá incorporarse en el expediente laboral correspondiente.
+Conforme al acto final se deberá seguir lo dispuesto en el artículo 329 inciso 3 del Libro Segundo de la Ley General de Administración Pública y sus reformas.

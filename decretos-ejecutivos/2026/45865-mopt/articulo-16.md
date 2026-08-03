@@ -1,0 +1,2 @@
+ARTÍCULO 16. Participación de la Unidad para la Igualdad de Género dentro de la CCHAS. La Unidad para la Igualdad de Género cuya función principal es promover la igualdad y la equidad de género dentro de la Institución, tendrá participación en la CCHAS acorde a las necesidades de la Administración.
+Corresponderá a la persona representante de la Unidad para la Igualdad de Género del MOPT, coordinar las capacitaciones para la CCHAS y la CIP sobre la Ley No. 7476 del 3 de febrero de 1995 y sus reformas, así como del presente reglamento.

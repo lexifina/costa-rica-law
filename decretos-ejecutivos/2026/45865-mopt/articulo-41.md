@@ -1,0 +1,1 @@
+ARTÍCULO 41. Denuncias falsas. Quien denuncie falsamente hostigamiento y acoso sexual podrá incurrir, cuando así se determine, en denuncia calumniosa, la cual se encuentra tipificada en el artículo 147 del Código Penal vigente, Ley No. 4573 del 4 de mayo de 1970 y sus reformas.

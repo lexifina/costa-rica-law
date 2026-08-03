@@ -1,0 +1,1 @@
+ARTÍCULO 42. Violación al deber de confidencialidad. Cualquier infidencia de quien sea integrante de la CIP o de los testigos y que viole el deber de confidencialidad, se considerará como falta grave, la cual se atribuiría una vez llevado el debido proceso y cuya sanción se aplicará según lo dispuesto en el artículo 40 del presente reglamento

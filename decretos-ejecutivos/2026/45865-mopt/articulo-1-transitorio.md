@@ -1,0 +1,1 @@
+Transitorio Único. Los procedimientos administrativos de hostigamiento y acoso sexual iniciados con anterioridad a la entrada en vigencia de este decreto, cualquiera que sea su estado, continuarán sustanciándose procedimentalmente, en todos sus trámites y recursos por las normas que regían a la fecha de su inicio.

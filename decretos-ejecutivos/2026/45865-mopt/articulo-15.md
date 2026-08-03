@@ -1,0 +1,5 @@
+CAPÍTULO IV
+SOBRE LA COMISIÓN CONTRA EL HOSTIGAMIENTO Y ACOSO SEXUAL
+ARTÍCULO 15. Integración de la CCHAS. La CCHAS estará integrada por cinco personas propietarias y cinco suplentes y será nombrada mediante resolución por la persona Máxima Jerarca del MOPT. Como suplentes deberá designarse dentro de la Comisión, a representantes de las organizaciones laborales firmantes de la Primera Convención Colectiva de trabajo del Ministerio de Obras Públicas y Transportes, elegida de una terna propuesta por estos colectivos. Dichos nombramientos serán por un período de 4 años con posibilidad de reelegirse, contados a partir de la notificación de la referida resolución.
+Dentro de la Comisión se elegirá a una persona para la presidencia y las demás personas como integrantes. Los acuerdos que resuelvan lo harán por mayoría de sus integrantes.
+Todas las personas integrantes de dicha Comisión deberán ostentar condición de profesionales con grado universitario. La integración de la Comisión será mixta, con personas de ambos sexos.

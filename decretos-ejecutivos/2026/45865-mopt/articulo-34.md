@@ -1,0 +1,1 @@
+ARTÍCULO 34. Medios de impugnación. Con respecto a los recursos, la naturaleza, el plazo para interponerlos y para resolverlos, los actos recurribles, así como los demás aspectos vinculados con esta materia, aplicará lo dispuesto en los artículos 342 al 355 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+ARTÍCULO 3. Principio de protección. En todo momento, la persona denunciante funcionaria del Ministerio de Obras Públicas y Transportes, así como de los órganos adscritos a este Ministerio, tiene derecho a que se le garantice su estabilidad física, psicológica, emocional y sexual.
