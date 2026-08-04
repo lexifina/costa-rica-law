@@ -1,0 +1,3 @@
+Artículo 19. Protocolos de emergencia y gestión de riesgos.
+En el LINC se implementará y mantendrá protocolos de emergencia y planes de respuesta destinados a salvaguardar la integridad física de los usuarios, visitantes y funcionarios, así como la protección de los bienes e instalaciones, ante la ocurrencia de situaciones de riesgo o eventos imprevistos.
+Dichos protocolos serán aplicables en casos de emergencias naturales o provocadas por la actividad humana, incluyendo, pero sin limitarse a, sismos, incendios, inundaciones, accidentes, fallas estructurales, emergencias médicas, amenazas a la seguridad u otras circunstancias que puedan poner en peligro o afectar el normal desarrollo de las actividades.
