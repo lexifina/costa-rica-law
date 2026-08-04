@@ -1,0 +1,1 @@
+Artículo 43 —Si el beneficiario no acepta la decisión tomada por la Oficina de Recursos Humanos, podrá recurrir ante ella en el término de ocho días hábiles a partir de la fecha en que reciba la comunicación, la que en un plazo similar deberá pronunciarse sobre el reclamo. Tendrá revocatoria ante la primera instancia y apelación en segunda instancia ante la Alcaldía Muncipal.

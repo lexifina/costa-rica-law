@@ -1,0 +1,1 @@
+Artículo 15º —Se establece la redacción obligatoria de un contrato para la Dedicación Exclusiva, que una vez autorizado por la Alcaldía Municipal y el aval del Departamento de Recursos Humanos, se trasladará al Departamento Legal para su respectiva confección.

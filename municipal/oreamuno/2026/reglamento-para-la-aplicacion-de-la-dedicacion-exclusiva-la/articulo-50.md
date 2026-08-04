@@ -1,0 +1,1 @@
+Artículo 50. —La Oficina de Recursos Humanos podrá efectuar a posteriori las verificaciones que considere pertinentes y podrá proponer las sanciones de rigor si se comprueba que la información consignada en los documentos no es verídica.

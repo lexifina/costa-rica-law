@@ -1,0 +1,1 @@
+Artículo 39. —La Oficina de Recursos Humanos será responsable de la emisión de las resoluciones pertinentes en materia del reconocimiento del beneficio aquí reglamentado. Los responsables por pagos de puntos en excesos serán responsables solidarios de los montos adeudados a la Administración.

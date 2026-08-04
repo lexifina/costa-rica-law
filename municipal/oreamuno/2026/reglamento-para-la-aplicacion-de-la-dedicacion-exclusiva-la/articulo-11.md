@@ -1,0 +1,4 @@
+Artículo 11º — De las excepciones, renuncias y sanciones: El servidor que se acoja a la Dedicación Exclusiva está facultado para ejercer excepcionalmente su profesión en los siguientes casos:
+a) Cuando se trate de labores docentes en establecimientos de enseñanza universitaria, parauniversitaria o vocacional, sean estos centros de enseñanza, públicos o privados de conformidad con el ordenamiento vigente.
+b) Cuando se trate del ejercicio profesional relacionado con asuntos personales, los de su cónyuge o conviviente, ascendientes y descendientes hasta tercer grado de consanguinidad o afinidad, siempre y cuando la actividad emanada de esta no conlleve propósitos de lucro o atenta contra los intereses propios de la Municipalidad.
+c) Cuando se le nombre en cargos de juntas directivas de instituciones públicas, cooperativas, fundaciones, siempre y cuando no exista conflicto de intereses en el puesto desempeñado.

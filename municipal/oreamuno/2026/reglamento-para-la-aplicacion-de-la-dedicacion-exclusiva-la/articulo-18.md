@@ -1,0 +1,4 @@
+CAPÍTULO III
+Reconocimiento de la Carrera Profesional.
+Artículo 18º—Concepto. Denomínese Carrera Profesional a uno de los procedimientos de la Administración de Recursos Humanos de la Corporación Municipal por medio del cual se concede un incentivo económico a los funcionarios que laboran en este Municipio y que posean como mínimo el título universitario de Bachiller.
+La Carrera Profesional es el incentivo económico aplicable a los funcionarios del nivel profesional que laboran en la Municipalidad, concedido con base en los grados académicos obtenidos, postgrados adicionales al Bachillerato Universitario, capacitación recibida, experiencia profesional en organismos estatales e internacionales, experiencia docente en instituciones de enseñanza de nivel universitario o parauniversitario y publicaciones realizadas.

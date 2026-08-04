@@ -1,0 +1,1 @@
+Artículo 12º —Los servidores que disfrutan de los beneficios de la Dedicación Exclusiva, pueden renunciar a dicho régimen, comunicando a la Alcaldía con anticipación mínima de dos meses. Sin embargo, no podrán suscribir un nuevo contrato de esta naturaleza antes de transcurridos dos años después de haber presentado la renuncia.

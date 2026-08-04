@@ -1,0 +1,1 @@
+Artículo 42. —El jefe de Recursos Humanos registrará la fecha de recibo de las solicitudes formuladas. La fecha de vigencia de la concesión inicial (no de los ajustes), será a partir del primer día del siguiente mes calendario a la fecha de recibo de la solicitud en la Oficina de Recursos Humanos.

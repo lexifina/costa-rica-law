@@ -1,0 +1,1 @@
+Artículo 10º —Los beneficios de la Dedicación Exclusiva se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos para su disfrute y en caso de ejercer una profesión liberal será motivo despido sin responsabilidad laboral. Excepto aquellos casos del ejercicio de la docencia la cual está permitida.

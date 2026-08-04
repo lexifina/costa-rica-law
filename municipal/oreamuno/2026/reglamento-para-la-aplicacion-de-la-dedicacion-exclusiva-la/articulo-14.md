@@ -1,0 +1,1 @@
+Artículo 14º — Otras disposiciones: La Alcaldía y el Departamento de Recursos Humanos o la unidad designada al efecto, deben velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento.

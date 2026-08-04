@@ -1,0 +1,8 @@
+CAPÍTULO II
+Reconocimiento de la Disponibilidad.
+Artículo 16º—Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los colaboradores que por la necesidad y urgencia requieran estar disponibles las 24 horas, los siete días de la semana y los 365 días del año. Para estos efectos aquellos funcionarios sujetos a la disponibilidad deberán cumplir con la necesidad institucional y los tipos de actividades como:
+a) Personal de mantenimiento de un servicio, cuando éste debe prestarse en horas y días inhábiles ya sea por escasez de personal o tipo de servicio, no se pueda atender cada turno de manera adecuada y sea necesario de disponer algún personal, que sólo se llama si se necesita y que la necesidad sea frecuente.
+b) Jefes o encargados de Servicio que laboren días inhábiles, que después de su jornada ordinaria deban permanecer disponibles para atender eventualidades que ocurran en la prestación de los servicios municipales.
+c) Profesionales o especialistas indispensables en la atención de emergencias de ocurrencia frecuente, en áreas de desastres naturales, emergencias de acueducto municipal, ingenieros requeridos en los diversos campos de especialidad, entre otros casos de emergencia.
+Jerarcas, jefaturas y representantes institucionales que deban permanecer laborando en horas y días inhábiles, debido a sus cargos y la necesidad institucional. También, el personal profesional y técnico de apoyo, que deba permanecer disponible bajo las órdenes de dichos representantes.
+En los casos de los incisos b) y d) deberá existir una resolución motivada que justifique la necesidad del pago de este requerimiento de disponibilidad.

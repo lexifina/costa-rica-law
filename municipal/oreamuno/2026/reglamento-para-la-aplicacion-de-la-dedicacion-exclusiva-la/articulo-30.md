@@ -1,0 +1,3 @@
+Artículo 30. —La experiencia laboral acumulada antes de la obtención del grado profesional requerido, podrá ser reconocida cuando además de la condición de egresado, el servidor reuniese una de las siguientes condiciones:
+a) Si por razón de inopia o por permitirlo el requisito de la clase, el servidor hubiese sido nombrado en un puesto de nivel profesional, o
+b) El servidor hubiese ocupado un puesto de la clase inmediata inferior al puesto profesional en que tiene opción al reconocimiento del beneficio. En este caso se tomará en cuenta una experiencia mínima de un año, y hasta un máximo de cuatro, siempre que sea específica del puesto que se trate y que el mismo hubiese sido reasignado a una clase de puesto de nivel profesional.

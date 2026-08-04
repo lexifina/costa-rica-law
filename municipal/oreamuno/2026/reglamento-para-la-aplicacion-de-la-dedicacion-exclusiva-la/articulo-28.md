@@ -1,0 +1,1 @@
+Artículo 28 —La experiencia obtenida al servicio de instituciones del Estado, se reconocerá para efectos de beneficio, siempre que no sea inferior a tres meses, que se cumplan las condiciones de los literales a), b) y c) del artículo anterior y se haga constar en un documento avalado por el Jefe de Personal o el Auditor de la dependencia donde fue obtenida.

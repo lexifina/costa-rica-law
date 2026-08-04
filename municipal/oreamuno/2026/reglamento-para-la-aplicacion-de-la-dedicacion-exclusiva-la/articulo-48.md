@@ -1,0 +1,1 @@
+Artículo 48 —Será aceptado el ingreso a la Carrera Profesional a aquellos profesionales que ocupen un puesto en forma interina, a plazo fijo o en puesto de confianza (nombrados o destacados) si tales nombramientos han sido ininterrumpidos y han tenido una duración, en forma acumulativa, de seis meses como mínimo o si hacia el futuro el nombramiento no es inferior de seis meses.

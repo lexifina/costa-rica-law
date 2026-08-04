@@ -1,0 +1,4 @@
+CAPÍTULO X
+Derogatorias
+Artículo 51. —El presente Reglamento deja sin efecto los anteriores reglamentos aprobados por el Concejo Municipal y dejando este como vigente a partir de su publicación en el Diario Oficial La Gaceta.
+En lo correspondiente a este reconocimiento, referidos a requisitos, factores a considerar, procedimiento y ponderación de factores, así como en su totalidad en la aplicación de este beneficio a los funcionarios de esta Corporación, se regirá por lo dispuesto en dicha normativa, incluyendo las modificaciones y actualizaciones que realice dicha Dirección, para lo cual la Oficina de Recursos Humanos será la encargada de verificar la actualidad y estricta concordancia con dicha normativa, sin embargo, por recomendación de la Contraloría General de la República se debe reiterar mediante publicación dicha normativa.

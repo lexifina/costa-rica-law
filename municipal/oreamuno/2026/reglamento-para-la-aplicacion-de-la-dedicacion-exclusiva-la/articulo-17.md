@@ -1,0 +1,4 @@
+Artículo 17º—Dicha compensación económica equivale a un porcentaje establecido en la legislación vigente sobre el salario base de cada colaborador que califique y que desee acogerse a la disponibilidad, para lo cual debe realizar ante la Alcaldía la respectiva solicitud.
+La disponibilidad deberá revisarse cada año para valorar si las condiciones ameritan su continuidad.
+De no requerirse se puede dar por terminado el pago del rubro de disponibilidad. El cese de la disponibilidad se dará por acto motivado por parte de la Alcaldía municipal.
+El colaborador firmará un contrato de disponibilidad que tendrá un plazo mínimo de 1 año hasta un máximo de 5 años, pudiéndose revocar antes del plazo o prorrogar de acuerdo con la necesidad o urgencia imperante en el pago de rubro por disponibilidad para la atención de las emergencias o casos que ameriten.

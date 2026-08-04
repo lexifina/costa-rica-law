@@ -1,0 +1,1 @@
+Artículo 40. —La Administración podrá establecer una Comisión Asesora de Carrera Profesional que prestará asistencia, en casos de excepción, a la Oficina de Recursos Humanos en materia de aplicación del presente reglamento, la cual será debidamente reglamentada.

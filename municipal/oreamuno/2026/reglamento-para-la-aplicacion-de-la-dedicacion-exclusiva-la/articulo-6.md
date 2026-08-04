@@ -1,0 +1,1 @@
+Artículo 6º—El contrato de Dedicación Exclusiva deberá ser tramitado en original para la Institución y dos copias que serán distribuidas de la siguiente forma: Original para el expediente personal y copia para el servidor suscribiente.

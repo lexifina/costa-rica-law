@@ -1,0 +1,1 @@
+Artículo 8º— De la vigencia de la Dedicación Exclusiva: La Dedicación Exclusiva en la redacción del contrato tendrá una vigencia mínima de un año y máximo cinco años, el cual requiere de renovación y queda al consentimiento del patrono, sin la obligación de renovarlo ya que es un acuerdo contractual que podrá cesar en cualquier momento cuando no se requiera.

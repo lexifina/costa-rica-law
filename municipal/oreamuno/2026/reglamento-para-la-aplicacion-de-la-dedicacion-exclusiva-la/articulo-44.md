@@ -1,0 +1,1 @@
+Artículo 44. —Si la resolución de la Oficina de Recursos Humanos en materia de carrera profesional no fuera aceptada por el interesado, éste podrá recurrir, durante los ocho días hábiles siguientes, ante el Despacho del Alcalde Municipal, con el fin de plantear la revisión del caso. Dicho Departamento tendrá un plazo de diez días hábiles para resolver el asunto.
