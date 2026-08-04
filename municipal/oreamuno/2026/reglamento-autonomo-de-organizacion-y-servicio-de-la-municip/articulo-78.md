@@ -1,0 +1,1 @@
+Artículo 78° — La Municipalidad podrá modificar transitoriamente los horarios y jornadas establecidos en este reglamento, siempre que circunstancias especiales así lo exijan, y que no cause grave perjuicio a los trabajadores. El cambio deberá ser comunicado a los trabajadores afectados con un mínimo de tres días de anticipación, excepto en casos de urgencia.

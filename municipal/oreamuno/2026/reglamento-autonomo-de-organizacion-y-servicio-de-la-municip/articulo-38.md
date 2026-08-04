@@ -1,0 +1,1 @@
+Artículo 38° — A los servidores que no hayan completado un semestre en la prestación de servicios, se les calificara en la primera quincena del mes de enero siguiente, al servidor con más de seis meses será calificado por su mismo jefe, y en caso de que el servidor haya estado a las órdenes de varios jefes será calificado por el último de estos.

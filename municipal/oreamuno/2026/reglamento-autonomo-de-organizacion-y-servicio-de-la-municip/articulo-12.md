@@ -1,0 +1,1 @@
+Artículo 12º— El Alcalde (sa) Municipal le corresponderá nombrar, promover, remover al personal, de la municipalidad, así como concederles licencias e imponerles sanciones; todo de acuerdo con el Código Municipal y los reglamentos respectivos. Las mismas atribuciones tendrán sobre el personal de confianza a su cargo.

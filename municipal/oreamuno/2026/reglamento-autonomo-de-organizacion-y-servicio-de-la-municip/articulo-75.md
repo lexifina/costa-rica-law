@@ -1,0 +1,1 @@
+Artículo 75° — Los servidores podrán ausentarse de su lugar de trabajo en situaciones especiales, si tienen previamente con la autorización de su encargado inmediato. En los casos en que deba mediar el registro de la entrada y la salida y esta se omita, deberá tramitarse la correspondiente boleta de justificación (física o electrónica solo en caso de no haber comprobante).

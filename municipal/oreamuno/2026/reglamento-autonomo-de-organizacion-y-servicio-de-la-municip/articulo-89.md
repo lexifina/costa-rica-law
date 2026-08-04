@@ -1,0 +1,2 @@
+Artículo 89°— No podrán acumularse más de 2 periodos de vacaciones; cuando el trabajador desempeñe labores técnicas, de confianza u otras análogas que hagan difícil su reemplazo. No obstante, podrá el Alcalde en caso de urgencia, solicitar una interrupción del periodo de vacaciones a que tenga derecho al empleado al momento de solicitar la licencia.
+Excepcionalmente, previo acuerdo con el trabajador, y siempre y cuando no afecte el interés público, se podrá fraccionar vacaciones, por casos de necesidad o urgencia que el trabajador lo requiera.

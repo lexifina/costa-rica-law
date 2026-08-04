@@ -1,0 +1,1 @@
+Artículo 108°— En caso de que un trabajador sufra un accidente del trabajo y no pueda desempeñar el puesto que ocupaba antes de sufrir el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, la municipalidad lo reubicara a un nuevo puesto acorde con su capacidad física, motora y laboral garantizándole todos sus derechos.

@@ -1,0 +1,4 @@
+CAPÍTULO XIII
+De la capacitación y el desarrollo del personal
+Artículo 50°— La Municipalidad, mantendrá un programa de capacitación acorde con las necesidades de su personal y previa detección de estas, las cuales ejecutará por diversos medios de acuerdo con los artículos 151 y 152 del Código Municipal, tales como asignación presupuestaria o convenios y otros ligámenes o invitaciones con o de instituciones nacionales e internacionales que las concedan sin costo adicional para tales efectos.
+Asimismo, la Municipalidad, cuando lo considere oportuno y necesario, reconocerá el pago de las capacitaciones atinentes al puesto de trabajo del colaborador. Dicha gestión deberá realizarla el interesado a la Alcaldía Municipal, con al menos con un mes de antelación para analizar su procedencia y posteriormente, en caso de su aprobación, iniciar los procedimientos de contratación vigentes en el momento.

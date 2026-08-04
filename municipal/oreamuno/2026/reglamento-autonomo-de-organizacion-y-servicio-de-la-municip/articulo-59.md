@@ -1,0 +1,1 @@
+Artículo 59°— La municipalidad deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo de trabajo que le ocurra a sus servidores dentro del término de ocho días hábiles a partir de su acaecimiento.

@@ -1,0 +1,1 @@
+Artículo 93°— Con el visto bueno de la jefatura inmediata, el trabajador podrá solicitar adelanto de vacaciones, que no podrán superar el número de días que proporcionalmente corresponda a los meses laborados.

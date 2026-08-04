@@ -1,0 +1,1 @@
+Artículo 71°— En todo aquello no previsto en este reglamento sobre acoso u hostigamiento sexual, rige la ley 7476 de 3 de febrero de 1995, ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

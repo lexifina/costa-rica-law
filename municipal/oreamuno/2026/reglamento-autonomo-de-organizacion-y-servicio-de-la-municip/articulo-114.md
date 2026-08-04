@@ -1,0 +1,1 @@
+Artículo 114°— Al asignarse recargo de funciones en un puesto de categoría superior, el empleado sustituto tiene derecho a percibir la diferencia entre su salario base del puesto de la categoría superior siempre y cuando el recargo de funciones sea superior o igual a quince días.

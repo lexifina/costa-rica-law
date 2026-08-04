@@ -1,0 +1,4 @@
+Artículo 124°— Las ausencias por enfermedad deberán justificarse por medio de certificado médico.
+Las certificaciones emitidas por médicos particulares que excedan de tres días justificaran únicamente la ausencia, pero no dará derecho a su pago.
+En aquellos casos en que la incapacidad sea emitida por médico particular por un período mayor a tres días, el funcionario esta la obligación de presentar la misma con el referendo o autorización extendida sobre esta por la clínica a la cual está adscrito, según controles de la Caja Costarricense de Seguro Social.
+Será responsabilidad de cada jefatura de unidad o departamento, de establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores a su cargo durante la jornada laboral. Además, de establecer la carga laboral correspondiente de las funciones de sus colaboradores.

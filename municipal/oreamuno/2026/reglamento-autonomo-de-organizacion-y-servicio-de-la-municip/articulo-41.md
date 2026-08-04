@@ -1,0 +1,1 @@
+Artículo 41° — Cuando el resultado de la evaluación y calificación anual del servidor arroje un resultado de regular por dos veces consecutivas, se considerará como falta grave y por lo tanto se le aplicara las sanciones correspondientes, cumpliendo el debido proceso.

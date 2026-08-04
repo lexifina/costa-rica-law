@@ -1,0 +1,1 @@
+Artículo 84° — Los funcionarios que reciban capacitación o actualizaciones académicas inherentes a su puesto de trabajo, fuera de la jornada ordinaria, no cobrarán horas extraordinarias. Tampoco, cobrarán horas extraordinarias aquellos que participen en actividades institucionales donde medie la convocatoria, invitados al concejo municipal o llamado de la Administración.

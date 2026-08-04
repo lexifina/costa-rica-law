@@ -1,0 +1,1 @@
+Artículo 16°— En todo contrato de trabajo o relación de servicio por tiempo indeterminado habrá un periodo de prueba de tres meses. Durante este periodo y sin previo aviso, cualquiera de las partes podrá ponerle término al contrato o relación de servicio que nos une. Todo basado en la idoneidad u otros requisitos del servidor para la ocupación del puesto.

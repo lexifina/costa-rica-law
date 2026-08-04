@@ -1,0 +1,1 @@
+Artículo 65°— El Jerarca administrativo hará el procedimiento administrativo y deberá ser llevado a cabo resguardando confidencialidad absoluta de los hechos y sus participantes y los principios que siguen la actividad administrativa, garantizando, ante todo, el debido proceso y la confidencialidad que se requiere para garantizar la objetividad de procedimiento.

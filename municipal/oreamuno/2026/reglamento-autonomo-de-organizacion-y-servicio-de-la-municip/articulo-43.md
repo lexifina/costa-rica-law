@@ -1,0 +1,1 @@
+Artículo 43°— Los servidores interinos de la institución, el personal de confianza y aquellos contratados por convenios o programas específicos de carácter temporal, no están amparados por los derechos y beneficios de la Carrera Administrativa Municipal, aunque desempeñen puestos comprendidos en ella.

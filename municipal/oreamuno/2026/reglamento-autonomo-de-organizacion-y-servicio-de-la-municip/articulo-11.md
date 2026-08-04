@@ -1,0 +1,1 @@
+Artículo 11°— El Alcalde (sa) es el enlace directo entre el Concejo Municipal y los servidores de la institución, él es el funcionario (a) de mayor jerarquía administrativa dentro de la organización, por lo que toda información que sea dirigida al Concejo ha de ser remitida por su despacho y rubricada por su autoridad.

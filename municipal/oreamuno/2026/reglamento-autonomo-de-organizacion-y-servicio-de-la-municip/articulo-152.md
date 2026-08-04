@@ -1,0 +1,1 @@
+Artículo 152°. —Las sanciones descritas en este capítulo, serán aplicadas por la Administración o quien esta designe para tal fin, conforme al procedimiento que establece este Reglamento, y lo estipulado en los artículos 157 y 158 del Código Municipal y cualquier otra norma expresa, referente a la materia.

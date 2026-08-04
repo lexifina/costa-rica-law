@@ -1,0 +1,1 @@
+Artículo 40° — El desacuerdo entre el jefe inmediato y el subalterno respecto al resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde Municipal, previa audiencia concedida a las partes interesadas. En los ocho días hábiles siguientes al recibo de la impugnación y deberá resolver dentro de los tres días hábiles siguientes a la entrevista.

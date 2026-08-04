@@ -1,0 +1,1 @@
+Artículo 125°— La asistencia a la Caja, INS o médico particular, previa autorización del jefe inmediato cuando son en horas laborales, se considerará como licencia con goce de salario, y deben ser marcadas en el reloj marcador, además deberá presentarse la constancia de asistencia expedida, por esas autoridades y a esos efectos para su respetivo pago.

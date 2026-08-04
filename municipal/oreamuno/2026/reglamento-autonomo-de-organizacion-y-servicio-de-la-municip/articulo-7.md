@@ -1,0 +1,1 @@
+Artículo 7º— La aplicación de este Reglamento corresponde al Alcalde Municipal y rige para todos los funcionarios municipales, salvo para aquellos servidores que dependan directamente del Concejo Municipal, cuyas acciones laborales serán acordadas por este cuerpo colegiado.

@@ -1,0 +1,1 @@
+Artículo 48°— Las evaluaciones de desempeño del trabajador para brindar los incentivos o beneficios deberán ser objetivas y en igualdad de trato. Se prohíbe cualquier discriminación por creencias religiosas, militancia política, orientación sexual, étnicas o de género o cualquier causa discriminatoria.

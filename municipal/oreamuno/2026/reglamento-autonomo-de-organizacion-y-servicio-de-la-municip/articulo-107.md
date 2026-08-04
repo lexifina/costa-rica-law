@@ -1,0 +1,1 @@
+Artículo 107°— La municipalidad concederá permiso con goce de salario al trabajador que deba concurrir a los servicios médicos de la Caja Costarricense del Seguro Social, o del Instituto Nacional de Seguros y consulta médica privada. El trabajador deberá presentar a la Oficina de Recursos Humanos el correspondiente justificante.

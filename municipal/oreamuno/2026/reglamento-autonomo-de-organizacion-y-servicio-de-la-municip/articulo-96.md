@@ -1,0 +1,1 @@
+Artículo 96°— Todos los días del año son hábiles para el trabajo, salvo los feriados señalados en el artículo 147 del Código de Trabajo y aquellos que el Concejo declare de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando ello sea posible a tenor de las excepciones contenidas en la legislación vigente.

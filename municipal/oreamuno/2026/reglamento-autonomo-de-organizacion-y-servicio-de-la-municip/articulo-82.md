@@ -1,0 +1,1 @@
+Artículo 82° — Los empleados de confianza no tendrán el derecho de cobrar horas extraordinarias debido a la naturaleza de su puesto están sujetos a lo establecido en el artículo 143 de Código de Trabajo. Asimismo, su jornada laboral podrá ampliarse, pero no podrá exceder de las 12 horas diarias permitidas.

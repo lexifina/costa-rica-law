@@ -1,0 +1,1 @@
+Artículo 26°— La corporación municipal garantizará un ambiente laboral libre hostigamiento laboral u hostigamiento sexual de acuerdo con la legislación vigente. Asimismo, la municipalidad reglamentará el procedimiento para garantizar el debido proceso y el respeto de las partes involucradas, guardando la confidencialidad de los hechos.

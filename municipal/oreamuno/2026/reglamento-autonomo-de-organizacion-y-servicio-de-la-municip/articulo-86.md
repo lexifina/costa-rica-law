@@ -1,0 +1,1 @@
+Artículo 86°— En caso de terminación del contrato de trabajo antes de cumplidos el plazo de cincuenta semanas tendrá como derecho como mínimo a un día de vacaciones por cada mes completo de trabajo que se le deberá pagar en el mismo mes de retiro de la municipalidad.

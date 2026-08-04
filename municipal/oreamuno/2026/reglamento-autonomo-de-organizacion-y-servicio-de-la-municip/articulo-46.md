@@ -1,0 +1,1 @@
+Artículo 46°— Este Manual de Clase de Puestos deberá actualizarse periódicamente de acuerdo con las necesidades del ámbito municipal. Además, la Unión Nacional de Gobiernos Locales brindará su colaboración con este proceso. Siendo la Oficina de Recursos Humanos la responsable de su actualización y del jerarca municipal del Alcalde su aplicación.

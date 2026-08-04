@@ -1,0 +1,1 @@
+Artículo 92°— En caso de que el trabajador por razones justificadas no pueda disfrutar las vacaciones en el periodo establecido, deberá comunicarlo de inmediato por escrito a su Jefatura para que este reprograme las mismas en coordinación con la Oficina de Recursos Humanos.

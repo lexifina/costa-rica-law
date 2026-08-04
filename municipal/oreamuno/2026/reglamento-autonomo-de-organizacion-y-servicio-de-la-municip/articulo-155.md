@@ -1,0 +1,1 @@
+Artículo 155°. —Se procederá a suspenderse sin goce de salario hasta por quince días hábiles: al servidor, que, amonestado por escrito, incurra de nuevo en una falta que merezca esa misma sanción dentro del plazo de reincidencia, determinado dentro un plazo de seis meses, contador a partir de la aplicación por la sanción de la falta anterior.

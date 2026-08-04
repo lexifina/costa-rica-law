@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De la clasificación y valoración de puestos
+Artículo 27° — El Manual de Puestos, contemplará el título, la naturaleza del trabajo, las responsabilidades y los requisitos de cada puesto existente en la institución y será la base para la selección de personal y la determinación de sus salarios de conformidad con lo establecido en los artículos 129, 130 y 131 del Código Municipal, y será responsabilidad del departamento u oficina de Recursos Humanos y otros departamentos competentes, mantener actualizado dicho Manual. Este Manual de Puestos contendrá las funciones asignadas al funcionario, aunque permitirá aquellas funciones no contempladas, pero únicamente atinentes al puesto.

@@ -1,0 +1,1 @@
+Artículo 111°— El salario será pagado por períodos mensuales, mediante 2 tractos quincenales los días 14 y 28 de cada mes y su forma de pago se realizará empleando el sistema de tarjeta de débito en los cajeros automáticos del sistema bancario nacional, o cualquier otro medio idóneo.

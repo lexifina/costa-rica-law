@@ -1,0 +1,1 @@
+Artículo 112°— Para calcular el salario del Alcalde se aplicará el procedimiento establecido para el cálculo del salario del Alcalde determinado en el artículo 20 del Código Municipal, así mismo para el monto por concepto de dietas, y sus respectivos aumentos se aplicará el procedimiento establecido para el pago determinado en el artículo 30 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 163°. —Este reglamento deberá ser revisado por lo menos una vez al año, de ser necesario y podrá modificarse, en forma parcial o total cuando el Concejo Municipal o la Alcaldía, así lo consideren, conforme al procedimiento utilizado, según la legislación vigente.

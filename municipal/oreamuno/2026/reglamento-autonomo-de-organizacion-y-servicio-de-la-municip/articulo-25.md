@@ -1,0 +1,1 @@
+Artículo 25°— La Municipalidad de Oreamuno respeta y garantiza la igualdad de género permitiendo el acceso a las oportunidades laborales, siendo este un derecho humano fundamental. Garantiza la igualdad de género permitiendo el goce de sus derechos en ámbito laboral.
