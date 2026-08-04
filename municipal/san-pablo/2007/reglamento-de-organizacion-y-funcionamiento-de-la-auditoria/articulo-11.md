@@ -1,1 +1,0 @@
-Artículo 11.—Potestades. El Auditor y lo demás funcionarios de la Auditoría, tendrán las siguientes potestades, en concordancia con lo establecido en el artículo 33 de la LGCI y en la demás normativa aplicable.
