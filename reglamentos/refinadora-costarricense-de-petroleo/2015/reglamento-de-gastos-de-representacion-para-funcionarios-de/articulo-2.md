@@ -1,5 +1,0 @@
-Artículo 2º—Para los efectos del presente Reglamento, se entenderá por:
-• Gastos de representación: Aquellas erogaciones ocasionales en que incurran los funcionarios aquí autorizados con motivo del ejercicio de su cargo, y con el objeto de brindar atenciones de carácter oficial a personas, o entes públicos o privados, ajenas a RECOPE, y exclusivamente en asuntos de interés para ésta. Por ningún concepto se consideran parte del salario del funcionario.
-• Carácter oficial de un acto: Actividad o evento determinado en el que RECOPE en el cumplimiento de sus funciones aparece como anfitrión o invitado.
-• Adelanto: Por adelanto debe entenderse la suma total estimada para los gastos de representación que correspondan, ya sea al interior o al exterior del país, según autorización o acuerdo firme de conformidad con el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
-• Liquidación: Acto por el cual el funcionario solicita se le cancelen determinadas sumas por concepto de gastos de atención en actividades o eventos declarados expresamente como oficiales.

@@ -1,1 +1,0 @@
-Transitorio: Tratándose de gastos de representación cuyo adelanto se haya concedido antes de la entrada en vigencia de este reglamento, serán liquidados conforme a las disposiciones vigentes al momento en que se otorgó su adelanto.
