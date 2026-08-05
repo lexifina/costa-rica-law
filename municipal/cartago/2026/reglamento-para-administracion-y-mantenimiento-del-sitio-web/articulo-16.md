@@ -1,0 +1,2 @@
+Artículo 16.- Presentación de observaciones.
+Cualquier persona funcionaria o usuaria externa podrá presentar observaciones, recomendaciones y quejas sobre el contenido publicado en el sitio web de la Municipalidad. En el caso de personas usuarias externas, las observaciones deben ir dirigidas al Área de Cultura y Comunicación y ser presentadas ante la plataforma de servicios. Dichas comunicaciones deberán ser por escrito, ya sea en forma de carta, oficio o correo electrónico, indicando la identidad del solicitante y el fundamento de la solicitud.

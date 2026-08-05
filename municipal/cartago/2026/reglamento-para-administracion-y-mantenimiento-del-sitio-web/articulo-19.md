@@ -1,0 +1,3 @@
+Artículo 19.- Recolección de datos en el sitio web.
+Las personas usuarias del sitio web de la Municipalidad de Cartago gozarán del amparo que les brinda la Ley de Protección de la Persona frente al tratamiento de sus datos personales, N° 8968 del 7 de julio de 2011 y sus reformas. Las personas visitantes tienen derecho a acceder, rectificar, actualizar o eliminar sus datos personales del sitio web de la Municipalidad de Cartago.
+Salvo orden judicial, la recolección de los datos personales obtenidos debe contar con el consentimiento previo, expreso e informado de la persona usuaria. La Municipalidad deberá informar la finalidad para la cual se recolectan los datos consentidos en su sitio web y garantizar la seguridad de la información recolectada.

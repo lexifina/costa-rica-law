@@ -1,0 +1,5 @@
+Artículo 5.- Publicación de información.
+La publicación de información en el portal o sitio web institucional debe cumplir con los siguientes componentes:
+a. Imagen: La información que sea ingresada al sitio, como agenda de actividades, proyectos, notas de emergencia, comunicados, formularios o cualquier otra comunicación, deberá ser enviada al Área de Cultura y Comunicación para la revisión de forma de la información. El contenido gráfico que acompañe la publicación de la información deberá ser proporcionado por esa área.
+b. Funcionalidad: Gestionado por el Área TICS, el portal web institucional debe estar en línea en forma continua, debidamente respaldado y con espacio justo para su funcionamiento en la infraestructura tecnológica municipal. Dicha área debe brindar el apoyo a los funcionarios en los aspectos técnicos que así lo requieran, por medio del Sistema de Gestión de Incidencias.
+c. Contenido: Proporcionado por la persona funcionaria responsable de cada sección en cumplimiento de lo establecido en el presente Reglamento.

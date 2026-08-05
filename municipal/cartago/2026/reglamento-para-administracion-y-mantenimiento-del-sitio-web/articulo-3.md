@@ -1,0 +1,2 @@
+Artículo 3.- De personas funcionarias responsables.
+Cada unidad, departamento o área municipal propietaria de una sección o información dentro del sitio web será responsable de agregar y mantener actualizada la información publicada. Cada sección contará con un espacio virtual para lo que se debe designar una persona funcionaria administradora de contenidos, quien será la encargada de gestionar el contenido de la unidad, departamento o área municipal.
