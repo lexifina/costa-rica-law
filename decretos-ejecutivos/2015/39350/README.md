@@ -14,3 +14,4 @@ Premios Archivísticos Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-25 | la propia norma |
+| 2 | 2026-08-05 | Decreto Ejecutivo 45900 (2026-08-05) |
