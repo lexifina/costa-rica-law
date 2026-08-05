@@ -1,0 +1,2 @@
+Artículo 2º—Naturaleza Jurídica. La Comisión es un órgano técnico-político de carácter asesor no obligatorio y de enlace, adscrito al Concejo Municipal y creado en virtud del artículo 5 inciso c) del Código Municipal y los artículos 59 y 60 de la Ley de Planificación Urbana.
+Posee independencia funcional para emitir criterios, dictámenes y recomendaciones no vinculantes sobre el ordenamiento territorial del cantón.

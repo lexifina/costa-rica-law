@@ -1,0 +1,1 @@
+Artículo 11.—Quórum y Acuerdos. El quórum se forma con la presencia de al menos cuatro (4) miembros. Los acuerdos se tomarán por mayoría simple, en la cual se debe considerar el voto de dos regidores. En caso de empate, la Presidencia de la Comisión ejercerá el voto de calidad.

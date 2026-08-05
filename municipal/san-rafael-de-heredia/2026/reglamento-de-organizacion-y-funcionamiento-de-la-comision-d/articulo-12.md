@@ -1,0 +1,1 @@
+Artículo 12.—De las Actas. Se llevará un libro de actas (físico o digital) debidamente foliado, donde consten las deliberaciones y acuerdos. Las actas serán públicas y deberán estar disponibles en la página oficial de la municipalidad. Las mismas deben contener lista de asistencia, temas tratados, acuerdos adoptados.
