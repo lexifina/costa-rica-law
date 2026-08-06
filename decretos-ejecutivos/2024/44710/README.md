@@ -15,3 +15,4 @@ Reglamento para la incorporación de la variable ambiental en planes de ordenami
 | --- | --- | --- |
 | 1 | 2025-08-18 | la propia norma |
 | 2 | 2025-08-18 | Decreto Ejecutivo 44901 (2025-01-28) |
+| 3 | 2026-08-06 | Decreto Ejecutivo 45902 (2026-08-06) |
