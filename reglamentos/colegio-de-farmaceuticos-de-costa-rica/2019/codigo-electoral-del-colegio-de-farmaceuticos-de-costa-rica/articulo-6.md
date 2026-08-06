@@ -1,1 +1,2 @@
-Artículo 6º—Condiciones para ser elegido. Podrá ser elegido el colegiado que cumpla las condiciones esenciales establecidas en el artículo 2 y 21 de este Código.
+Artículo 6º—Condiciones para ser elegido. Podrá ser elegido el colegiado que cumpla las condiciones esenciales establecidas en los artículos 2 y 21 de este Código. El candidato no deberá haber sido sancionado por faltas graves o muy graves en los últimos 5 años, cuando dichas sanciones sean de naturaleza ética o disciplinaria vinculada al ejercicio profesional.
+(Así reformado en Asamblea General Extraordinaria del 06 de agosto del 2026)

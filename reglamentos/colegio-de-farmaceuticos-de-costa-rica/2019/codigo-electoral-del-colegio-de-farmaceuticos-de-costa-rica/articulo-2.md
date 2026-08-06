@@ -1,1 +1,3 @@
 Artículo 2º—De los electores. Son electores los farmacéuticos inscritos en el padrón electoral, quienes se encuentren al día en el pago de sus obligaciones con el Colegio, según lo señalado en su Ley Orgánica y, además, que no estén suspendidos en el ejercicio profesional al día del cierre del padrón electoral.
+El Tribunal Electoral deberá implementar mecanismos automatizados de validación del padrón electoral, garantizando su actualización, integridad y trazabilidad, conforme a principios de protección de datos personales.
+(Así reformado en Asamblea General Extraordinaria del 06 de agosto del 2026)

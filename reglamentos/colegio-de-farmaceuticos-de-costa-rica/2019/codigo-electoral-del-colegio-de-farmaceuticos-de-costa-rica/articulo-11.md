@@ -1,9 +1,9 @@
 Artículo 11.—Sus obligaciones.
 a. Garantizar la completa transparencia del proceso electoral.
 b. Solicitar a la Junta Directiva del Colegio la convocatoria a Asambleas Generales, según lo establecido en la Ley Orgánica.
-c. Dictar las resoluciones que en materia electoral resulten de su competencia, para lo cual podrá́ solicitar la asesoría o criterio del Departamento Jurídico del Colegio.
+c. Dictar las resoluciones que en materia electoral resulten de su competencia, para lo cual podrá´´ solicitar la asesoría o criterio del Departamento Jurídico del Colegio.
 d. Conocer y resolver acerca de los demás asuntos relativos a los procesos electorales a su cargo, disponiendo aquellas medidas que propicien la realización justa, ordenada y transparente.
-e. Conocer y resolver las quejas que surjan durante el proceso electoral, por incumplimiento de este Código Electoral, lineamientos y procedimientos establecidos por el Tribunal.
+e. Conocer y resolver las quejas o denuncias que surjan durante el proceso electoral, por incumplimiento de este Código Electoral, lineamientos y procedimientos establecidos por el Tribunal Electoral, garantizando el debido proceso, el derecho de defensa y el principio de legalidad en la tramitación de toda queja o denuncia.
 f. Verificar la inscripción de los electores en el padrón.
 g. Constatar el envío de las credenciales a todos los electores inscritos en el padrón.
 h. Informar a todos los agremiados con la debida antelación la forma de elección que se implementará en cada proceso electoral.
@@ -17,3 +17,5 @@ o. Dirigir, controlar y efectuar el escrutinio, además de comunicar y declarar 
 p. Elaborar y proponer a la Junta Directiva antes del 30 de septiembre de cada año, el presupuesto para la realización de las elecciones, así como el plan anual operativo para conocimiento de ese órgano colegiado y previsión de otros recursos que sean necesarios para el buen desempeño de las funciones de ese Tribunal.
 q. Convocar, dirigir y vigilar todos los procesos electorales.
 r. Proponer las reformas al Código Electoral cuando así lo considere necesario y solicitar a la Junta Directiva la convocatoria a Asamblea General Extraordinaria para su aprobación o no.
+s. Supervisar el uso de tecnologías digitales e inteligencia artificial en el proceso electoral.
+(Así reformado en Asamblea General Extraordinaria del 06 de agosto del 2026)

@@ -1,1 +1,1 @@
-Artículo 38.—Recurso de revisión. Contra las resoluciones o los acuerdos del Tribunal Electoral cabrá únicamente el recurso de revisión. Se debe presentar dentro del siguiente día hábil de ser notificado, y será resuelto por el Tribunal dentro del día siguiente hábil de su presentación. La resolución que dicte el Tribunal Electoral no tendrá recurso ulterior, agotándose con ello la vía administrativa.
+Artículo 38.—Recurso de revisión. (Drogado en Asamblea General Extraordinaria del 06 de agosto del 2026)
