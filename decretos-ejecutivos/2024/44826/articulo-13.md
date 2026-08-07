@@ -1,0 +1,1 @@
+Artículo 13.- La persona empleadora debe establecer las instrucciones de trabajo y procedimientos técnicos para la ejecución de los TcT eléctrica, de acuerdo con el tipo de instalaciones a intervenir, método de trabajo, las restricciones y prohibiciones indicadas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 17.- Cada empresa o institución que requiera realizar trabajos con tensión eléctrica en sistemas de distribución o transmisión, debe contar con los procedimientos técnicos para la ejecución de TcT eléctrica, con base en lo referido en el Anexo 5. Métodos de Trabajos con Tensión eléctrica.

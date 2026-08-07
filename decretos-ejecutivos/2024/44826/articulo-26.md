@@ -1,0 +1,1 @@
+Artículo 26.- Toda persona trabajadora habilitada para TcT eléctrica, según sea baja tensión (BT), media tensión (MT) y alta tensión (AT), debe utilizar el equipo de protección personal suministrado conforme el criterio de la Persona Calificada en Salud Ocupacional en el análisis del riesgo.

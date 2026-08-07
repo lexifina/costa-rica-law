@@ -1,0 +1,1 @@
+Artículo 15.- Las distancias de seguridad mínimas, para prevenir electrocuciones en trabajos realizados en la proximidad de partes no aisladas de instalaciones eléctricas en servicio, son las indicadas en el Anexo 4. Distancias mínimas de aproximación de la persona trabajadora a partes energizadas expuestas de corriente alterna.

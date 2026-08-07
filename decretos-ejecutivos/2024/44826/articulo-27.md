@@ -1,0 +1,1 @@
+Artículo 27.- Cuando las condiciones del equipo de protección personal muestren deterioro o o pase la prueba cuando corresponda, la persona trabajadora habilitada debe informarlo a la Persona Calificada en Salud Ocupacional, Responsable del Servicio o a la Encargada del Trabajo, con el fin de que su equipo le sea reemplazado inmediatamente.

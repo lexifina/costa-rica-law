@@ -1,0 +1,1 @@
+Artículo 28.- Ninguna persona trabajadora podrá ejecutar trabajos con tensión si no cuenta con su equipo de protección personal completo y en buen estado para la actividad. En los casos que las labores, se ejecuten a una altura igual o superior a un metro con ochenta centímetros (1,80 m), deben disponer de un sistema de protección contra caídas.

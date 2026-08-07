@@ -1,0 +1,1 @@
+Artículo 3.- De conformidad con el numeral 298 del Código de Trabajo, corresponde a las autoridades de Inspección del Instituto Nacional de Seguros, del Ministerio de Salud y del Ministerio de Trabajo y Seguridad Social, colaborar a fin de obtener el cumplimiento exacto del presente reglamento.

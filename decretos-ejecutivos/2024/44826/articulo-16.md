@@ -1,0 +1,1 @@
+Artículo 16.- La persona encargada del trabajo debe definir el método de trabajo con tensión o combinación de estos que utilizará en cada caso, tomando en cuenta los descritos en el Anexo 5. Métodos de Trabajos con Tensión eléctrica.

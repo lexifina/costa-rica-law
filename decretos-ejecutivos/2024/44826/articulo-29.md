@@ -1,0 +1,6 @@
+CAPÍTULO V
+DISPOSICIONES FINALES
+Artículo 29.- El presente Decreto Ejecutivo Reforma el artículo 56 del Decreto 1 - MTSS, de fecha 2 de enero de 1967, Reglamento General de Seguridad e Higiene del Trabajo y sus reformas, para que en adelante se lea:
+"ARTICULO 56°- No debe efectuarse trabajo alguno en las líneas conductoras de energía eléctrica, sin asegurarse de que han sido totalmente desconectadas y aisladas las secciones en que se vaya a trabajar, y sin que se tomen las medidas necesarias para que no se haga de nuevo la conexión, en tanto no se hayan concluido los trabajos.
+En las máquinas, aparatos o líneas, que por conducir energía eléctrica ofrezcan grave riesgo para la seguridad de las personas, deberá advertirse el peligro mediante leyendas colocadas en los lugares más visibles.
+Se excluye de este artículo a las empresas de energía eléctrica en los sistemas de distribución y transmisión para los trabajos específicos en conductores y elementos energizados, para las cuales aplica el Reglamento de Condiciones de Seguridad y Salud en el Trabajo para Trabajos con Tensión Eléctrica en Sistemas de Distribución o de Transmisión Y Reforma Al Artículo 56 Del Decreto 1 Del 02 De Enero De 1967, Titulado Reglamento General De Seguridad E Higiene Del Trabajo.
