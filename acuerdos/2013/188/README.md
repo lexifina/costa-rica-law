@@ -19,3 +19,4 @@ Directriz para la Implementación del Sistema de Mensajería de Documentos Elect
 | 4 | 2022-07-20 | Acuerdo 269 (2022-07-20) |
 | 5 | 2023-02-01 | Resolución 275 (2023-02-01) |
 | 6 | 2024-11-05 | Acuerdo 6 (2024-11-05) |
+| 7 | 2026-08-07 | Acuerdo 14 (2026-08-07) |
