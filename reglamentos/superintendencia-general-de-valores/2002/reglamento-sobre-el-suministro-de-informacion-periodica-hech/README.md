@@ -24,3 +24,4 @@ Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y o
 | 9 | 2021-05-17 | Acuerdo 249 (2021-05-17) |
 | 10 | 2022-03-31 | Acuerdo 259 (2022-03-31) |
 | 11 | 2022-11-24 | Reglamento 0 (2022-11-24) |
+| 12 | 2026-08-07 | Acuerdo 14 (2026-08-07) |
