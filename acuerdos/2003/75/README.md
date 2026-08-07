@@ -57,3 +57,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | 42 | 2023-05-23 | Acuerdo 278 (2023-05-23) |
 | 43 | 2025-03-28 | Acuerdo 3 (2025-03-28) |
 | 44 | 2025-08-07 | Acuerdo 6 (2025-08-07) |
+| 45 | 2026-08-07 | Acuerdo 14 (2026-08-07) |
