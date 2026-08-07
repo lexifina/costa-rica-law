@@ -35,3 +35,6 @@ Se elimina como rol Aprobador de Roles.
 [1] Cuando corresponda incluír "Otro miembro" se debe de digitar el nombre del rol, por ejemplo: vocales,directivos, etc.
 [2] En el caso de los Gerentes a.i. estos deberán ingresarse al sistema en caso de renuncia o destitución del gerente general o sustitución temporal
 [3] Aplica a la persona física accionista indicada en el artículo 35 de la Ley Reguladora del Mercado de Valores")
+(Nota de Sinalevi: Mediante el artículo 4° del acuerdo N° SGV-A-14-2026 del 7 de agosto de 2026, se acordó
+actualizar en el Anexo 1 del artículo 5, los requerimientos de información para las Entidades de Registros
+Centralizados de Letras de Cambio y Pagarés Electrónicos. No obstante, no se indica en que consiste dicha modificación.)
