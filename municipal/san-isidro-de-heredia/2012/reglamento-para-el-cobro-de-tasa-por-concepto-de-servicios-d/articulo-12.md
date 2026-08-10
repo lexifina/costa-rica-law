@@ -1,1 +1,1 @@
-Artículo 12.—El atraso en el pago de esta tasa generará intereses que se calcularan según lo establecido en el Código de Normas y Procedimientos Tributarios.
+Artículo 12.—(Derogado por el artículo 30 del Reglamento para la actualización y aprobación de las tarifas por servicios municipales, aprobado mediante sesión ordinaria N° 0189-2026 del 10 de agosto de 2026)

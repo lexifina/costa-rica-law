@@ -14,3 +14,4 @@ Reglamento para el cobro de tasa por concepto de servicios de parques y obras de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-09 | la propia norma |
+| 2 | 2026-08-10 | Reglamento municipal 189 (2026-08-10) |

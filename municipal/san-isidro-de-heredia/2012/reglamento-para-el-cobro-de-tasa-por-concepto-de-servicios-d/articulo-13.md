@@ -1,1 +1,1 @@
-Artículo 13.—De conformidad con el artículo 70 del Código Municipal, las deudas por tributos municipales constituirán hipoteca legal preferente sobre los respectivos inmuebles.
+Artículo 13.—(Derogado por el artículo 30 del Reglamento para la actualización y aprobación de las tarifas por servicios municipales, aprobado mediante sesión ordinaria N° 0189-2026 del 10 de agosto de 2026)

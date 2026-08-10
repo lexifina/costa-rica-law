@@ -1,3 +1,3 @@
 CAPÍTULO III
 Del procedimiento para el cobro
-Artículo 10.—La Municipalidad, cobrará una tasa por concepto del servicio y mantenimiento de parques, zonas verdes y obras de ornato a todos los contribuyentes de los distritos del cantón de San Isidro de Heredia.
+Artículo 10.—(Derogado por el artículo 30 del Reglamento para la actualización y aprobación de las tarifas por servicios municipales, aprobado mediante sesión ordinaria N° 0189-2026 del 10 de agosto de 2026)
