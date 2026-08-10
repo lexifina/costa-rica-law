@@ -1,0 +1,1 @@
+Artículo 22.-La decisión de destitución tendrá recurso de apelación en forma escrita y especificando las razones que tiene para oponerse a tal decisión. Para ello contará con cinco días hábiles después de haber recibido la notificación. Transcurrido ese tiempo y si no se recibe ninguna oposición el acto quedará en firme.

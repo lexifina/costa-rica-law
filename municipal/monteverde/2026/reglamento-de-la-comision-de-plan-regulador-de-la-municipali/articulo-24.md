@@ -1,0 +1,1 @@
+Artículo 24.-Los miembros de la Comisión podrán presentar recurso de revisión de acuerdos que no hayan sido aprobados en forma definitiva, antes de la aprobación del Acta de Comisión. La admisión de recursos de revisión se determinará por mayoría simple.

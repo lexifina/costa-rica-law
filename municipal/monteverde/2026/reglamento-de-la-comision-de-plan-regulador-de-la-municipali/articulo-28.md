@@ -1,0 +1,1 @@
+Artículo 28. — La audiencia pública será presidida por el o la Presidente de la Comisión Plan Regulador, o en su ausencia por el o la Vicepresidente, y será obligatoria la asistencia de los miembros de la Comisión Plan Regulador y tendrá el carácter y forma de una sesión extraordinaria de la Comisión, y por lo tanto deberá ser debidamente convocada.

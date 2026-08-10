@@ -1,0 +1,1 @@
+Artículo 29. — Las asambleas de condóminos debidamente organizadas, y con plazo de ley vigente tendrán para todos los efectos los mismos derechos que las asociaciones vecinales. Serán representados por su presidente o administrador. Deberá presentar personería jurídica vigente para participar.

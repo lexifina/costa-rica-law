@@ -1,0 +1,1 @@
+Artículo 30. — La audiencia será pública, podrán intervenir y presentar observaciones o coadyuvancias, aquellos a quienes asista un interés legítimo y se anoten en el registro de uso de la palabra al inicio de la sesión.

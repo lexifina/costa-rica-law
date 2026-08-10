@@ -1,0 +1,1 @@
+Artículo 35.-La Municipalidad facilitará a la Comisión Plan Regulador las instalaciones municipales y las facilidades en cuanto a transporte, uso de equipo y materiales de la Municipalidad para el buen funcionamiento de sus fines, incluyendo funcionarios administrativos.

@@ -1,0 +1,2 @@
+Artículo 36.-Toda iniciativa presentada por Regidores, el Alcalde(sa) o personas físicas o jurídicas para adoptar, reformar, suspender o derogar disposiciones del Plan Regulador, deben ser remitidas a la Comisión Plan Regulador para su respectivo estudio y recomendación al Concejo Municipal. Se determinará la respuesta en treinta días hábiles según la legislación vigente.
+Rige a partir de su publicación”. ACUERDO TOMADO POR UNANIMIDAD Y DEFINITIVAMENTE APROBADO.

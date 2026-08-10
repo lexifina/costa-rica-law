@@ -1,0 +1,1 @@
+Artículo 21.-Cuando sea necesario destituir a un miembro de Comisión Plan Regulador, se hará mediante acuerdo de Concejo Municipal, dando las razones que fundamentaron su decisión y notificando por escrito a la persona destituida.
