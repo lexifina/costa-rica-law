@@ -1,3 +1,2 @@
-CAPÍTULO V
-Disposiciones Finales
-Artículo 14.-Derogatoria: Se deroga el Acuerdo N° 27 de la Sesión de Junta Directiva del BANHVI 06-2012 del 30 de enero de 2012.
+Artículo 14.-Revocatoria de la condición de entidad autorizada del SFNV: Para revocar la condición de entidad autorizada del SFNV, se aplicará lo indicado en el artículo 24 del "Reglamento sobre la Organización y Funcionamiento del Sistema Financiero Nacional para la Vivienda" y demás normas concordantes.
+(Así modificada su numeración en sesión N° 38 del 10 de agosto de 2026, que lo traspaso del antiguo artículo 13 al artículo 14)

@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de la condición de entidad autorizada del Siste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-24 | la propia norma |
+| 2 | 2026-08-10 | Reglamento 38 (2026-08-10) |
