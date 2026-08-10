@@ -1,0 +1,2 @@
+Artículo 3° - Variación en el monto del fondo.
+El monto a que asciende el fondo deberá ser ajustado una vez al año a partir del mes de enero, de tal forma que su monto no se vea afectado por las variaciones en el poder adquisitivo. Dicha modificación será solicitada inicialmente por el encargado del Fondo de Caja Chica a la Junta Directiva para su respectiva autorización, en el mes de enero de cada año.

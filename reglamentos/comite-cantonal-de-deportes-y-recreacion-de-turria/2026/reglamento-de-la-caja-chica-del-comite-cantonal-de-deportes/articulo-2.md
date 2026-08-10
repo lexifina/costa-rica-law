@@ -1,0 +1,8 @@
+Artículo 2° - Conceptos:
+Gastos menores: Debe entenderse aquella suma máxima, destinada a la atención de gastos que por su naturaleza no puedan ser determinados de previo y se requiera incurrir en ellos para no afectar el buen funcionamiento de las actividades desarrolladas por el Comité de Deportes.
+Arqueo: Es el análisis de las transacciones de efectivo, en un momento determinado, con el objeto de comprobar si se ha contabilizado todo el efectivo recibido, y si el saldo que refleja esa cuenta corresponde con lo que se encuentra físicamente en caja, en dinero efectivo, cheques u otros.
+Póliza de fidelidad: Garantiza al asegurado el fiel desempeño por el empleado, cargo o función indicados en la póliza y sólo cubre en consecuencia al asegurado, en las pérdidas o daños en dinero o bienes.
+Custodio: Persona que custodia el fondo de caja chica del Comité Cantonal de Deportes y Recreación de Turrialba.
+Fondo fijo: Sistema que permite sufragar gastos menores en efectivo, dado la emisión de fondos para egresos que no sean significativos.
+Erogaciones: Gastos o inversiones que se realizan durante un período determinado. Sea cual sea el nombre que se le asigne.
+Comité Cantonal de Deportes: Órgano adscrito a la Municipalidad, el cual goza de personalidad jurídica instrumental para desarrollar planes, proyectos, programas deportivos y recreativos, así como para construir, administrar y mantener las instalaciones deportivas de su propiedad o las entregadas en administración. Para efectos del presente Reglamento se deberá entender por Comité Cantonal de Deportes del cantón de Turrialba. En adelante CCDRT.

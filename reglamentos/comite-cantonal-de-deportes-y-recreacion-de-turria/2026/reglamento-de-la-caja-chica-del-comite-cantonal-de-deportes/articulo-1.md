@@ -1,0 +1,4 @@
+COMITÉ CANTONAL DE DEPORTES RECREACIÓN DE TURRIALBA
+Reglamento de la Caja Chica del Comité Cantonal de Deportes y Recreación de Turrialba.
+El Concejo Municipal de Turrialba con base en las atribuciones dispuestas en los artículos 169 y 170 de la Constitución Política de Costa Rica, Código Municipal en sus artículos 4 inciso a) y 13 inciso c), se aprueba el siguiente proyecto de Reglamento que según el artículo 43 del Código Municipal, por su naturaleza es de aplicación interna.
+El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones que, por concepto de gastos menores, deban realizar los funcionarios o empleados del Comité Cantonal de Deportes y Recreación de Turrialba, cuando, en cumplimiento de sus funciones, deban realizar erogaciones para el buen funcionamiento de las actividades del Comité.

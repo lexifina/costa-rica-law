@@ -1,0 +1,1 @@
+Artículo 17. - El custodio del Fondo Fijo de Caja Chica deberá estar anuente a la realización de un arqueo en cualquier momento, realizado por su superior inmediato, o por la persona a quien este designe o bien por la Unidad de Auditoría Interna de la Municipalidad de Turrialba, a fin de garantizar una seguridad razonable de la gestión y administración del fondo
