@@ -1,0 +1,1 @@
+Artículo 12 bis.—Plazo del procedimiento. El procedimiento interno para el trámite de las denuncias por hostigamiento o acoso sexual no podrá exceder el plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia, de conformidad con el artículo 5 inciso 2) de la Ley N° 7476.

@@ -1,1 +1,1 @@
-Artículo 15.-Las denuncias por acoso sexual callejero, se tramitarán de la misma forma que las denuncias de acoso y hostigamiento sexual, según lo indicado en los artículos del 4° al 13° del presente reglamento.
+Artículo 15.—Las denuncias por acoso sexual callejero, se tramitarán de la misma forma que las denuncias de acoso y hostigamiento sexual, según lo indicado en los artículos del 4° al 13° del presente reglamento.
