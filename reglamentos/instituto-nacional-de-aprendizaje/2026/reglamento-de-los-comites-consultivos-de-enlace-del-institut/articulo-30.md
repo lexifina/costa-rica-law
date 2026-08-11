@@ -1,0 +1,3 @@
+ARTÍCULO 30º -. PERSONAL EXTERNO
+Deberán presentarse de manera obligatoria a estas sesiones y en caso de ausencia deberán de justificarla ante quien preside el Comité.
+En caso de ausentarse de manera injustificada a alguna sesión, la primera vez se enviará un aviso a la persona representante del sector productivo, regional o pyme, según corresponda. En caso de ausentarse de manera injustificada más de dos veces de forma consecutiva, se informará a la persona representante del sector productivo, regional o pyme, que lo propuso, el cual valorará justificar dichas ausencias por justa causa o bien, proceder con su sustitución en el CCE.

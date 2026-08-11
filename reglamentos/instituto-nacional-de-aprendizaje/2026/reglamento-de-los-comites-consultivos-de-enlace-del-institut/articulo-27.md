@@ -1,0 +1,4 @@
+ARTÍCULO 27º -. SUSTITUCIÓN DE LAS PERSONAS INTEGRANTES
+La sustitución de las personas integrantes de cualquier Comité Consultivos de Enlace se podrá dar por renuncia, remoción justificada, ausentismo, deceso, o pérdida de representación del sector que lo nombró, mediante comunicación escrita, dirigida a la persona que preside el CCE, según corresponda.
+En caso de los miembros designados por los representantes de la Junta Directiva del INA, estos no podrán ser removidos, si no es mediante comunicación escrita, dirigida al representante de Junta Directiva, en la que se manifieste que existe causa justificada para ello, conforme a las disposiciones legales o reglamentarias correspondientes.
+Todo nombramiento por sustitución deberá hacerse por el resto del período del que se nombró originalmente a su antecesor.

@@ -1,0 +1,3 @@
+ARTÍCULO 21º-. ACTAS
+En cada sesión se levantará un acta siguiendo lo establecido en en el procedimiento P UACI 03 “Generalidades y funcionamiento de los Órganos Colegiado” y según disposiciones de la Unidad de Archivos Central Institucional, y en apego a las disposiciones de la Unidad de Archivos Central Institucional, la cual contendrá el nombre de las personas asistentes, las circunstancias de lugar y tiempo en que se realizó, los puntos principales de la deliberación, forma y resultado de la votación y el contenido de los acuerdos.
+Las actas serán firmadas por la persona que preside el CCE y por aquellos miembros que hubieren hecho constar su voto disidente.

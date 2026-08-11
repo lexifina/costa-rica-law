@@ -1,0 +1,4 @@
+ARTÍCULO 25º -. SUPRESIÓN DE LOS COMITÉS CONSULTIVOS DE ENLACE SUBREGIONALES Y DE SUBSECTORES
+Cuando por causa justificada se considere que un Comité Consultivo de Enlace Subregional o de un Subsector, no está siendo funcional o que ya cumplió con el objetivo para el que fue creado, se podrá solicitar su supresión, para lo cual la persona que preside el CCE deberá justificar por medio de oficio ante la SGT las razones por la cuales se requiere suprimir y cuál comité asumirá sus funciones, de manera que la subregión o ubsector no quede sin atención.
+La solicitud de supresión deberá contar con el visto bueno de la jefatura regional o jefatura de núcleo, así como con el visto bueno de la gestión correspondiente.
+La SGT llevará ante la Junta Directiva la solicitud de supresión del subcomité, la cual será efectiva a partir del acuerdo generado por la JD.
