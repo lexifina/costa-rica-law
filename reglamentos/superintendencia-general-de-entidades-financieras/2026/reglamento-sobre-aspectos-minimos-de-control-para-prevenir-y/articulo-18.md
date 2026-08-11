@@ -1,0 +1,2 @@
+Artículo 18. Mecanismos de autogestión para el bloqueo temporal de productos y servicios financieros
+Las entidades supervisadas deben habilitar en sus canales digitales y en sus centros de atención telefónica, mecanismos de autogestión que les permitan a los usuarios financieros realizar bloqueos temporales de sus productos y servicios financieros de forma expedita, particularmente respecto de su funcionalidad para realizar transacciones electrónicas desde sus cuentas de fondos, de forma expedita.

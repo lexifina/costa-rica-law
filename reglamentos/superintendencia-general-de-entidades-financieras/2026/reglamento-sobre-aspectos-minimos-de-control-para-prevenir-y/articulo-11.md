@@ -1,0 +1,2 @@
+Artículo 11. Devolución de montos bajo umbrales predefinidos
+Las entidades supervisadas deberán establecer en sus políticas internas, los criterios y umbrales para determinar en qué casos devolverán al usuario financiero el monto sustraído sin necesidad de realizar un análisis detallado, cuando este sea menor al límite previamente establecido por la entidad supervisada, con base en un análisis de costo-beneficio.
