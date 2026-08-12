@@ -1,0 +1,2 @@
+Artículo 22º— Fundamentación de los actos de tramitación de la denuncia: Cualquier determinación que se tome en relación con la denuncia deberá ser tomada por acuerdo del Concejo Municipal, mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar la decisión.
+En cuanto a las notas que se le remiten al denunciante, éstas deben ser archivadas utilizando los procedimientos de control que garanticen la protección del denunciante, por lo que deben ser de acceso restringido.

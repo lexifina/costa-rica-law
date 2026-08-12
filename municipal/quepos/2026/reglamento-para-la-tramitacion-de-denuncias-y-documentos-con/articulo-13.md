@@ -1,0 +1,3 @@
+Artículo 13º— Formalidades del Expediente: Los expedientes deben ser numerados conforme al Lineamiento de Conformación de Expedientes L-UAC-01-2023, emitido por el Archivo Central Municipal.
+En el orden del día o cualquier otro documento oficial del Concejo Municipal se tramitará el tema como denuncia confidencial, sin revelar de manera pública en las sesiones del Concejo Municipal datos que puedan identificar al denunciante o a los denunciados.
+La Secretaría resguardará cada asunto en un expediente físico o digital independiente y de acceso restringido, bajo la nomenclatura "DC-(Consecutivo)-(Año)-CM" (Documento Confidencial). En las actas y en el orden del día, solo se consignará este código alfanumérico, sin revelar nombres ni cargos.

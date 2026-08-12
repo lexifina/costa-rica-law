@@ -1,0 +1,2 @@
+CAPITULO VII: COMUNICACIÓN Y ACTOS
+Artículo 21º— De la comunicación al denunciante: Cuando la denuncia sea presentada con el nombre, calidades y dirección para notificaciones de la persona denunciante, se le comunicará acerca de los resultados de la atención de la gestión, además de cualquier acción que se haya tomado en torno a la misma, sea ésta la apertura de una investigación preliminar, la apertura de un procedimiento administrativo, el archivo o traslado de la denuncia a la Administración Activa o a la Auditoría Interna.

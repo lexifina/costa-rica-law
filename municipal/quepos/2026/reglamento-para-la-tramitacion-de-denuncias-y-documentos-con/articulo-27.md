@@ -1,0 +1,1 @@
+Artículo 27º— Vigencia: Rige a partir de su publicación definitiva en el Diario Oficial La Gaceta, a partir de que se cumplan los requerimientos establecidos en los párrafos segundo y tercero del artículo 43 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 20º— Del tratamiento a las relaciones de hechos remitidas por Auditoría Interna: El Concejo Municipal atenderá, complementariamente bajo los criterios indicados en el presente capítulo, las relaciones de hechos que remita al órgano colegiado la Auditoría Interna, inclusive dándole prioridad a su atención, de conformidad con el contenido de lo denunciado
