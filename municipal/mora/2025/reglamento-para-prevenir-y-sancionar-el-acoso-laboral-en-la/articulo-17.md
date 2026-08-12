@@ -1,0 +1,1 @@
+Artículo 17: Plazo para interponer la denuncia: El plazo para interponer la denuncia será de un año y se computará a partir del último hecho constitutivo del supuesto hecho de acoso laboral o a partir de que cesó la causa justificada que le impidió a la persona denunciar. Ello de conformidad con lo dispuesto en el artículo 418 del Código de Trabajo.

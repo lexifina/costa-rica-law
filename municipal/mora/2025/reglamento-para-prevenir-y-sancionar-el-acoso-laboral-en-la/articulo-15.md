@@ -1,0 +1,1 @@
+Artículo 15: Normativa aplicable: Todo el procedimiento administrativo se realizará bajo las regulaciones que establece la Ley General de la Administración Pública en su Libro Segundo, concretamente en cuanto al Procedimiento Ordinario.

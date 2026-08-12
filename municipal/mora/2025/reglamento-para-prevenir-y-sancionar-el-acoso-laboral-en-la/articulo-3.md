@@ -1,0 +1,2 @@
+Artículo 3: Del Ámbito de aplicación: El presente Reglamento regula los procedimientos de prevención y sanción de las conductas y situaciones de acoso laboral previstas en las diferentes disposiciones del derecho positivo costarricense y la normativa internacional.
+Este Reglamento es aplicable a toda la estructura administrativa y política de la Municipalidad de Mora, incluyendo también a las personas que trabajan en las posiciones de confianza, así como a las personas vinculadas mediante contratos administrativos y su personal, practicantes, pasantes, entre otros.

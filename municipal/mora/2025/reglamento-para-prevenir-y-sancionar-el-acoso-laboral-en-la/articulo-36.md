@@ -1,0 +1,1 @@
+Artículo 36: De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será el Alcalde o Jerarca correspondiente, el que comunicará mediante copia al Departamento de Gestión de Talento Humano con el fin de que se incluya en el respectivo expediente.

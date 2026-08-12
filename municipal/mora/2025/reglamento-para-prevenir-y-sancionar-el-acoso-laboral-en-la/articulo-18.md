@@ -1,0 +1,1 @@
+Artículo 18: Prescripción de la sanción: La prescripción para sancionar el acoso laboral será de un mes, según lo establecido en el artículo 414 del Código de Trabajo. Mientras dure la investigación y hasta la resolución del caso, se suspenderá los términos de prescripción para sancionar a las personas involucradas, todo de conformidad con el artículo 414 del Código de Trabajo

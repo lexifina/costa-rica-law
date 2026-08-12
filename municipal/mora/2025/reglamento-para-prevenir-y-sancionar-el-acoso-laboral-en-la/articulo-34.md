@@ -1,0 +1,8 @@
+Artículo 34: De la resolución final del asunto: Concluido el procedimiento, el Alcalde o Jerarca correspondiente dictará la resolución final, la cual contendrá lo siguiente:
+a) Una sección a manera de resultandos, en la que se haga referencia a los pormenores de procedimiento, dentro de los cuales se indicará si el procedimiento se realizó con la observancia de las reglas del debido proceso. Los resultandos son descripciones de los hechos relevantes del procedimiento.
+b) Un considerando de hechos relevantes, que puedan ser considerados como probados, otro considerando relativo a los hechos no probados que en apariencia sean de importancia para el Órgano Director, de acuerdo con los elementos probatorios introducidos durante la tramitación del procedimiento.
+c) Una parte considerativa donde se indique el análisis técnico-jurídico que motiva el acto y que contenga el análisis de las pruebas que se hicieron llegar al expediente y de una parte dispositiva donde se incorpora la decisión final del procedimiento.
+d) Una conclusión del resultado de las diligencias.
+Esta resolución deberá ser notificada a las partes, en la forma y por cualquiera de los medios permitidos por la Ley de Notificaciones y Citaciones Judiciales.
+La resolución deberá comunicarse dentro del mes siguiente a la fecha en que concluya formalmente el procedimiento disciplinario respectivo.
+En caso de que de la resolución final una vez firme, exima de culpabilidad a la persona denunciada, y se determine que la denuncia por el contrario es evidente o temeraria, constituirá prueba válida a efecto de que la persona absuelta desee interponer una denuncia formal en contra de la supuesta víctima, en sede administrativa o penal, según corresponda.

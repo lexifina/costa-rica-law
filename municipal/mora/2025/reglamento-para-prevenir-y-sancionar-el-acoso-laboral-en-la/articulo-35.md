@@ -1,0 +1,1 @@
+Artículo 35: De los recursos contra el acto final del procedimiento: Contra la resolución final procederán los recursos ordinarios establecidos en la Ley General de la Administración Pública. La resolución indicará el plazo para presentar los recursos y ante quienes deberán ser interpuestos.
