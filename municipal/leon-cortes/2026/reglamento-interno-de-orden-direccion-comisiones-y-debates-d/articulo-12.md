@@ -1,0 +1,5 @@
+Artículo 12.- Trámite de asuntos con plazo perentorio.
+Con el fin de asegurar la debida respuesta y seguimiento de los asuntos dirigidos al Concejo Municipal que tengan un plazo legal perentorio para resolver, se observarán las siguientes reglas:
+a) En el caso de peticiones, recursos administrativos, consultas de la Sala Constitucional, proyectos de ley remitidos por la Asamblea Legislativa y cualquier otro asunto sujeto a plazo fatal, la Presidencia, o en su defecto la Secretaría, los trasladará de inmediato a las personas regidoras para su estudio, advirtiendo sobre el plazo existente y la obligación de confidencialidad y discreción.
+b) La Secretaría llevará un registro especial de estos asuntos y verificará que sean incluidos en la sesión inmediata posterior a su recepción, o en una extraordinaria si fuere necesario para cumplir el plazo.
+c) En la sesión correspondiente, estos asuntos se conocerán con carácter preferente, aun cuando no estuvieren listados en el orden del día, mediante la aprobación de una moción de orden para alterar el orden del día.

@@ -1,0 +1,2 @@
+Artículo 26.- Control de acuerdos pendientes.
+La Secretaría del Concejo presentará cada dos meses un informe detallado de los acuerdos firmes que se encuentren pendientes de ejecución o de dictamen de comisión, indicando la fecha del acuerdo, el número de sesión, el responsable de su cumplimiento y el estado actual. Dicho informe será puesto en conocimiento del Pleno para que, si procede, adopte las medidas necesarias para su ejecución.

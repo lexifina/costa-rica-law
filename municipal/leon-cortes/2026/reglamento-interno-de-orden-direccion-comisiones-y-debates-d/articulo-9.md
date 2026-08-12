@@ -1,0 +1,4 @@
+Artículo 9.- Inicio de la sesión y disciplina de asistencia.
+Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme al reloj oficial del despacho; en su defecto, aplicará la hora del servicio reloj web del ICE (https://relojweb.cn.ice.go.cr/).
+La persona regidora o síndica que se incorpore después de dicho plazo perderá el derecho a percibir la dieta correspondiente a esa sesión y no podrá ocupar su curul ni participar en las deliberaciones ni votaciones de la sesión. Igualmente perderá el derecho a dieta y no podrá continuar en la sesión quien se retire sin autorización expresa de quien preside.
+Durante la sesión se procurará mantener al mínimo el uso de dispositivos electrónicos que distraigan del debate; queda prohibido su uso cuando perturben el orden.

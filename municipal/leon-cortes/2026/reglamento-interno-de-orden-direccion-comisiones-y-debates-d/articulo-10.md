@@ -1,0 +1,2 @@
+Artículo 10.- Lactancia.
+Las personas regidoras que se encuentren en período de lactancia podrán ausentarse de la sesión por hasta 15 minutos cada dos horas para atender esta función, sin que ello implique pérdida de la dieta. En esa ausencia, la suplencia respectiva asumirá temporalmente; si no la hubiere, las votaciones podrán posponerse hasta el reintegro, a solicitud de la persona interesada y con autorización de la Presidencia, siempre que no afecte el quórum.
