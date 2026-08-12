@@ -1,0 +1,7 @@
+Artículo 7º- De la persona trabajadora responsable del control presupuestario de centros gestores proyectos u obras.
+Las personas trabajadoras responsables del control presupuestario de centros gestores, proyectos u obras, serán responsables de lo siguiente:
+a) Establecer procedimientos de control que le aseguren contar con los fondos presupuestarios para la adquisición de bienes o servicios, o para el pago de obligaciones con terceros que no requieren formalizarse mediante un proceso de contratación pública.
+b) Realizar las actividades de control previo y de seguimiento de la ejecución presupuestaria de conformidad con las disposiciones y directrices emitidas en esta materia.
+c) Analizar y dar seguimiento a la información que se obtiene de los sistemas de información que dispone la Empresa, así como los informes de ejecución presupuestaria por centro gestor, proyecto u obra que remite el Departamento de Planificación Empresarial, para detectar desviaciones con respecto a lo programado y recomendar acciones correctivas (trámite de variaciones presupuestarias) cuando proceda, para prevenir los sobregiros presupuestarios.
+d) Prevenir con las acciones de su competencia los sobregiros que se puedan presentar en el presupuesto institucional o en los programas presupuestarios.
+e) Informar a su superior jerárquico cualquier irregularidad presupuestaria detectada en su centro gestor asignado.

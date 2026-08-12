@@ -1,0 +1,2 @@
+Artículo 2°- Ámbito de aplicación
+Este reglamento será aplicable a las personas que ostenten el puesto de titular en la Presidencia, Auditoría General, Gerencia General, Gerencias de Área, Direcciones, jefaturas de departamento y las personas trabajadoras que coordinen el POI-Presupuesto responsable del centro gestor, proyectos u obras y demás personas trabajadoras que participan en el proceso presupuestario de la Empresa.

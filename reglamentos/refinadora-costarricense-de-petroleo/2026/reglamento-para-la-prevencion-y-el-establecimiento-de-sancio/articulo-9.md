@@ -1,0 +1,4 @@
+Artículo 9.- De los Gerentes de Área. Las personas trabajadoras que ocupen el puesto de Gerente de área son responsables de lo siguiente:
+a) Velar por el cumplimiento del presente reglamento en lo que les corresponde.
+b) Velar porque las personas Titulares Subordinadas promuevan, cuando resulte procedente y obligatorio, el inicio de los procedimientos administrativos disciplinarios que en derecho correspondan, de conformidad con el Reglamento de Procedimientos Laborales de la Refinadora Costarricense de Petróleo (RECOPE), a fin de determinar la eventual responsabilidad administrativa derivada del incumplimiento de la normativa aplicable en materia de administración de fondos públicos y de las disposiciones del presente reglamento.
+c) Informar a la Gerencia General o en su ausencia a la Presidencia, sobre las sanciones impuestas por sobregiros presupuestarios y las acciones correctivas tomadas para prevenir su ocurrencia en las áreas respectivas.
