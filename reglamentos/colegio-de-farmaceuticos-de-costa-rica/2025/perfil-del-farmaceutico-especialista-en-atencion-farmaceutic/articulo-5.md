@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en atención farmacéutica realiza sus funciones en los servicios farmacéuticos públicos y privados junto al paciente y otros profesionales en salud, para optimizar el uso de medicamentos y mejorar la calidad de vida de los pacientes.
