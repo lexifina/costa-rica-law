@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la contabilidad de los teléfonos celulares
+Artículo 22- De la asignación. La unidad administrativa designada por la persona Directora General o la persona Directora de Programa, será la responsable en coordinación con la Dirección General de asignar los teléfonos y líneas celulares, así como de llevar el control del consumo en forma separada de cada uno de los teléfonos celulares y tramitar el pago de los servicios telefónicos ante la Dirección Financiera del Ministerio de la Presidencia, informando al menos, trimestralmente al director respectivo sobre el consumo global e individual de la telefonía celular.

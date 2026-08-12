@@ -1,0 +1,1 @@
+Artículo 9- Del pago. Los Programas adscritos a la Presidencia de la República y al Ministerio de la Presidencia asumirán el pago de la tarifa básica autorizada y acceso internacional, autorizado. El excedente correrá por cuenta de la persona usuaria del servicio telefónico.

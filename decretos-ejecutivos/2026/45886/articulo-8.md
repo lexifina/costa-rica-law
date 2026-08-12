@@ -1,0 +1,7 @@
+CAPÍTULO III
+Consumo telefónico autorizado
+Artículo 8- De los montos asignados. Las tarifas para el pago de estos servicios se regirán por las siguientes disposiciones:
+a) Tarifa A. Las personas Presidente de la República, vicepresidentes, Ministro, Viceministros, Persona Directora de la Dirección de Inteligencia y Seguridad Nacional, Persona Directora de la Unidad Especial de Intervención, tendrán uso ilimitado para llamadas nacionales e internacionales.
+b) Tarifa B. La Primera Dama o Primer Caballero, la Secretaría General del Consejo de Gobierno, la persona Directora General u Oficial Mayor del Ministerio de la Presidencia, la persona Directora de Despacho Presidencial y Personas Directoras y Subdirectoras de Programas, tendrán autorizado un monto de hasta 7 tarifas básicas para llamadas locales y tendrán acceso a llamadas internacionales siempre y cuando sean para atender asuntos estrictamente relacionados en función de su cargo.
+c) Para las personas funcionarias restantes, autorizadas por la Dirección General o Dirección de cada Programa, se autorizará por parte de la Dirección que corresponda una tarifa entre 4 y 6 tarifas básicas, según la jerarquía, nivel de responsabilidad y tareas asignadas. En casos calificados y en razón de las funciones propias de cada persona funcionaria, se autorizará por la Dirección General o la Dirección de cada programa el acceso a llamadas
+internacionales.
