@@ -1,0 +1,13 @@
+Artículo 16.- El profesional farmacéutico especialista en química medicinal debe cumplir con los las siguientes habilidades en el ejercicio de sus funciones:
+a. Lidera programas para el descubrimiento de nuevas moléculas bioactivas, ya sea de fuentes naturales o bibliotecas de compuestos sintéticos.
+b. Propone y coordina programas de optimización estructural de compuestos bioactivos al emplear técnicas computacionales, síntesis o semi-síntesis química.
+c. Optimiza las propiedades de potencia, toxicidad o farmacocinética de moléculas bioactivas mediante la aplicación de estrategias como bioisosterismo, simplificación estructural, homología, asociación entre moléculas, restricción conformacional, vinilogía, sustitución de grupos hidrolizables, selección de estereoisómeros, eliminación de centros quirales, desarrollo de prodrogas, introducción o sustitución de grupos ionizables y síntesis de sales.
+d. Deduce las relaciones estructura-actividad, estructura-toxicidad y estructura-propiedades fisicoquímicas, para proponer nuevas estructuras con características mejoradas.
+e. Utiliza herramientas computacionales y estadísticas para la construcción de modelos de relación estructura-actividad cuantitativos útiles para el descubrimiento y desarrollo de nuevos fármacos.
+f. Entiende a nivel molecular, ya sea en fases preclínicas, clínicas o en etapas posteriores a la aprobación de comercialización, las limitaciones de actividad biológica, toxicidad, propiedades farmacocinéticas y viabilidad de síntesis a gran escala de moléculas bioactivas, con el objetivo de mejorar las características de un medicamento en fase experimental al utilizar modificaciones químicas.
+g. Interactúa de manera interdisciplinaria con profesionales en las áreas de química orgánica, fisicoquímica, biología molecular, medicina, etc., para lograr con éxito los puntos anteriores.
+h. Participa en las fases preclínicas del desarrollo de un medicamento, las cuales incluyen el descubrimiento y optimización de moléculas cabeza de serie.
+i. Posee conocimientos sobre ensayos experimentales y computacionales útiles para la determinación o predicción del perfil farmacodinámico, farmacocinético, toxicológico y
+fisicoquímico de moléculas bioactivas en fases preclínicas.
+j. Interpreta e integra la información obtenida a través de ensayos computacionales y/o experimentales para la determinación o predicción de las características farmacodinámicas, farmacocinéticas, toxicológicas y fisicoquímicas de moléculas bioactivas Aprobado por Junta Directiva mediante acuerdo 426-2024, en la sesión extraordinaria 27-2024 del 09 de setiembre de 2024.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

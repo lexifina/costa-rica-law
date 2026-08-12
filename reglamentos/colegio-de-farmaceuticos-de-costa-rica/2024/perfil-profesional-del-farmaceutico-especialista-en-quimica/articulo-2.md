@@ -1,0 +1,2 @@
+Artículo 2.- Especialidad en química medicinal:
+La especialidad en química medicinal corresponde a la aplicación de destrezas teóricas y prácticas propias de la química medicinal como ciencia farmacéutica. El profesional farmacéutico especialista en química medicinal implementa estrategias en pro de la innovación tecnológica, el descubrimiento y optimización estructural de moléculas bioactivas con el propósito de desarrollar nuevos fármacos. Este especialista también puede colaborar en docencia mediante la enseñanza de las destrezas técnicas propias de la disciplina.

@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en química medicinal realiza sus funciones en todas aquellas áreas del conocimiento relacionadas a la innovación tecnológica, el descubrimiento y optimización estructural de moléculas bioactivas con el propósito de desarrollar nuevos fármacos.
