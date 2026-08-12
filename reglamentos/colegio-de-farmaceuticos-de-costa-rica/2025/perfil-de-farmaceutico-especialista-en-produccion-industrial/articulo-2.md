@@ -1,0 +1,5 @@
+Artículo 2.- Especialidad en Producción Industrial:
+El profesional farmacéutico especialista en Producción Industrial planea, diseña, implementa y optimiza los sistemas de manufactura, a través de la calidad de los procesos, productos e información mediante la integración de personas, materiales, equipos, tecnología y energía, en procura de obtener la máxima productividad.
+La Producción Industrial posee diferentes áreas de aplicación como: investigación operativa, logística, planeación, ergonomía aplicada, seguridad y salud industrial, simulación de actividades productivas, diseño de procesos, tecnología de fabricación avanzada, gestión, validación e implementación de proyectos, automatización y robótica.
+El profesional farmacéutico especialista en Producción Industrial establece programas para la coordinación de las actividades de manufactura, evaluando su calidad, rentabilidad y seguridad. Además, supervisa la optimización de procesos y sistemas.
+Así mismo, está capacitado para manejar cambios rápidos de tecnología y altos niveles de innovación, mediante la aplicación de las herramientas y metodologías propias de la Producción Industrial.

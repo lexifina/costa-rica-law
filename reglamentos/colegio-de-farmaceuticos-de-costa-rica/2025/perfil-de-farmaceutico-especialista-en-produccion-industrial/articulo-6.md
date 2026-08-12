@@ -1,0 +1,1 @@
+Artículo 6. No asistenciales. El profesional farmacéutico especialista en producción industrial cuenta con los conocimientos en el ámbito de la farmacia industrial, lo cual le permiten ser aplicados en departamentos respectivos dentro de la industria farmacéutica, dentro de la producción industrial.
