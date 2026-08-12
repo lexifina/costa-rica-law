@@ -1,0 +1,1 @@
+Artículo 6. No asistenciales. El profesional farmacéutico especialista en docencia universitaria cuenta con los conocimientos en el ámbito del proceso de enseñanza y aprendizaje, lo cual le permiten ser aplicados en programas de educación continua, instituciones de educación superior y extensión docente.
