@@ -1,0 +1,1 @@
+Artículo 7°: El plenario sesionará ordinariamente una vez cada tres mes de forma ordinaria de acuerdo con el día y hora que acuerde en su primera sesión. Podrá sesionar extraordinariamente por convocatoria de la presidencia o de la dirección ejecutiva, la cual deberá efectuarse con al menos veinticuatro horas de antelación.

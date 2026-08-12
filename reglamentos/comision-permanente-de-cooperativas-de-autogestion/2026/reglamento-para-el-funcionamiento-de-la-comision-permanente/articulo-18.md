@@ -1,0 +1,1 @@
+Artículo 18°: La comisión de avales del FONAGA estará integrada por 3 miembros, un representante del plenario de CPCA, un representante del directorio de CPCA y un representante técnico de la CPCA. La podrá sesionar con al menos dos miembros previa convocatoria del presidente, sesionarán la cantidad de veces requeridas para atender las gestiones de avales pendientes.

@@ -1,0 +1,1 @@
+Artículo 11°: La presidencia del plenario, que lo será también del directorio, elaborará el orden del día, abrirá y cerrará las sesiones, decretará recesos, actuará como coordinador de los debates y tomará las votaciones.

@@ -1,0 +1,2 @@
+Capítulo V Comisiones
+Artículo 17°: La comisión de crédito del FNA estará integrada por 3 miembros, un representante miembro del plenario de CPCA, un representante técnico de INFOCOOP y el representante elegido por el plenario de CPCA ante la junta directiva del INFOCOOP. La comisión podrá sesionar con al menos dos miembros previa convocatoria del presidente, sesionarán la cantidad de veces requeridas para atender las gestiones de crédito pendientes.
