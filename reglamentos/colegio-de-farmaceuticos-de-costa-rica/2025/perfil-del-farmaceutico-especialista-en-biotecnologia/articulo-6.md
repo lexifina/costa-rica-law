@@ -1,0 +1,1 @@
+Artículo 6. No asistenciales. El profesional farmacéutico especialista en biotecnología cuenta con los conocimientos en el ámbito de la farmacia industrial, lo cual le permiten ser aplicados en el laboratorio farmacéutico, centros de investigación y empresas de biotecnología.

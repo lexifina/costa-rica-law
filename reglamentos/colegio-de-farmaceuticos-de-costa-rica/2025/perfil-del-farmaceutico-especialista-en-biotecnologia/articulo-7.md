@@ -1,0 +1,1 @@
+Artículo 7.- Investigación. El profesional farmacéutico especialista en biotecnología cuenta con los conocimientos en el método científico, metodología de la investigación, lo cual le permiten ser aplicados en el diseño, ejecución y asesorías de investigaciones relacionadas a la biotecnología.
