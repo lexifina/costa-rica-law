@@ -1,0 +1,1 @@
+Artículo 6.- No asistenciales. El profesional farmacéutico especialista en tecnología farmacéutica realiza sus funciones en todas aquellas áreas del conocimiento relacionadas a los fundamentos fisicoquímicos que sustentan la formulación y preparación de medicamentos tanto en el ámbito industrial como magistral.

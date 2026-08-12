@@ -1,0 +1,1 @@
+Artículo 7.- Investigación. El profesional farmacéutico especialista en tecnología farmacéutica cuenta con los conocimientos en el método científico, metodología de la investigación e investigación clínica, lo cual le permiten trabajar en el diseño, ejecución y asesorías de investigaciones relacionadas a la tecnología farmacéutica dentro de la industria farmacéutica.
