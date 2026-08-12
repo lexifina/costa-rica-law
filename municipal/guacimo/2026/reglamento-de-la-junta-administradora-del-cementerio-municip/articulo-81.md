@@ -1,0 +1,1 @@
+Artículo 81.- Los derechos de arrendamiento y los arrendamientos de nichos no pueden ser objeto de pacto de retroventa, no son susceptibles de embargo, ni pueden ser dados como garantía o gravados de ninguna manera.

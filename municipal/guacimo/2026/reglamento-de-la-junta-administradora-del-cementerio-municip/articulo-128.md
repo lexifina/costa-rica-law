@@ -1,0 +1,2 @@
+CAPÍTULO XIII.- De los registros de los campos
+Artículo 128.- El Departamento de Servicios Ciudadanos llevará un registro general de tumbas o mausoleos, junto con una base de datos electrónica debidamente legalizada por la Auditoría Municipal. Este registro estará organizado en tomos, con cada folio asignado a un derecho y contendrá información sobre el titular, la ubicación, y los datos del difunto, incluyendo fechas de inhumación y exhumación, así como cualquier observación pertinente.

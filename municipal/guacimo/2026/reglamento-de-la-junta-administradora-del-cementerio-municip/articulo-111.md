@@ -1,0 +1,1 @@
+Artículo 111.-La Junta tiene la autoridad para denegar una inhumación si, debido a factores como el paso del tiempo, movimientos telúricos o cualquier otro motivo, los nichos están deteriorados total o parcialmente. En ese caso, se pedirá al arrendatario o coarrendatarios que, luego de cinco años de la última inhumación, procedan con la demolición del nicho.

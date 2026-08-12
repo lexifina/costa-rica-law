@@ -1,0 +1,1 @@
+Artículo 70.-La Junta Administradora del Cementerio Municipal de Guácimo no se responsabiliza por daños, robos o pérdidas de objetos, construcciones u otros elementos instalados por cuenta propia en las bóvedas.

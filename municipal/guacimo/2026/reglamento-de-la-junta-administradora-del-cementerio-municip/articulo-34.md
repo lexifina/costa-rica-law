@@ -1,0 +1,1 @@
+Artículo 34.- Ninguna persona, ya sea física o jurídica, podrá tener más de un Derecho de Uso Especial Privado en Precario en este cementerio. La cesión será posible siempre que se cumplan los requisitos mencionados.

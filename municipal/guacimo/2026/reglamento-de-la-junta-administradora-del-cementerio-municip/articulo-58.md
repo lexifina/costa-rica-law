@@ -1,0 +1,1 @@
+Artículo 58.- Cualquier construcción o reparación realizada sin la debida autorización de la Junta, y que no cumpla con las disposiciones del Reglamento, permitirá a la Junta rescindir el contrato de arrendamiento y disponer del derecho, además de realizar los arreglos necesarios para corregir la irregularidad.

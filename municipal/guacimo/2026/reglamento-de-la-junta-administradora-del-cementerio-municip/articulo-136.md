@@ -1,0 +1,1 @@
+Artículo 136.-Cualquier error en los nombres, apellidos o datos relacionados con los registros de difuntos se corregirá por los arrendatarios titulares, beneficiarios, representantes o albaceas, quienes deberán presentar la certificación correspondiente del Registro Civil como comprobante.

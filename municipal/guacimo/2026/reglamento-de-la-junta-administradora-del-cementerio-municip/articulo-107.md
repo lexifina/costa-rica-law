@@ -1,0 +1,1 @@
+Artículo 107.-Para aprobar el traslado interno de restos a otra bóveda, debe haber un vínculo familiar entre los restos y los arrendatarios o beneficiarios de esa bóveda. De lo contrario, los restos deberán permanecer en su lugar, a menos que el arrendatario titular autorice el traslado.

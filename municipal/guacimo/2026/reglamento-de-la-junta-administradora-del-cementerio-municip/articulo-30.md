@@ -1,0 +1,5 @@
+Artículo 30.- Procedimientos de Impugnación y Recursos Administrativos
+El marco legal que rige a la Junta Administradora establece un claro régimen de impugnaciones para garantizar la legalidad y la transparencia de sus actos. Con fundamento en el Artículo 165 del Código Municipal, las resoluciones emitidas por la Junta están sujetas a los siguientes recursos.
+30.1.- Recurso de Revocatoria: Se presenta ante la misma Junta Administradora para que esta reconsidere su propia decisión, ya sea por motivos de ilegalidad o de inoportunidad.
+30.2.- Recurso de Apelación: Se interpone ante la Junta, pero es resuelto por un órgano superior. En este caso, toda apelación contra una resolución de la Junta Administradora debe ser resuelta por el Concejo Municipal. Este recurso solo procede por motivos de ilegalidad del acto.
+Ambos recursos deben presentarse mediante un memorial razonado dentro de un plazo de cinco días hábiles a partir de la notificación del acto. Es importante destacar que, por norma general, la interposición de estos recursos no suspende la ejecución del acto impugnado, a menos que el órgano competente decida lo contrario mediante una medida cautelar.

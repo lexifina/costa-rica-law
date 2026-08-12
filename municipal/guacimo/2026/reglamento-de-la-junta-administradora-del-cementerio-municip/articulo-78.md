@@ -1,0 +1,1 @@
+Artículo 78.- Todo traspaso o concesión de derecho sobre los terrenos de arrendamiento del cementerio se entiende que se concede sin perjuicio de terceros con derechos superiores, excepto aquellas que nunca han salido del Patrimonio de la Junta.

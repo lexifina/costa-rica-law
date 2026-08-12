@@ -1,0 +1,2 @@
+CAPÍTULO XI.- De los Mausoleos de Honor
+Artículo 90.-Cuando las bóvedas arrendadas contengan restos de personas que se hayan destacado en actividades de servicio a la comunidad, la Junta podrá declarar disuelto el contrato y asignarlas como Mausoleos de Honor. Esta distinción solo podrá ser otorgada después de al menos diez años desde la inhumación de los restos de la persona a la que se quiera rendir homenaje.

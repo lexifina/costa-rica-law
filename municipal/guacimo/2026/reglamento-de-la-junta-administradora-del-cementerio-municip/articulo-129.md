@@ -1,0 +1,1 @@
+Artículo 129.-El derecho de uso de tumbas en los cementerios podrá ser inscrito a nombre de comunidades religiosas, establecimientos, asociaciones o sociedades, siempre y cuando presenten la personería jurídica y especifiquen quién es el apoderado autorizado para realizar trámites ante la Junta.

@@ -1,0 +1,1 @@
+Artículo 63.- Está absolutamente prohibido que el personal de campo, así como los peones y jardineros que trabajen para el Departamento de Servicios Ciudadanos y Servicios Ambientales, contraten con los arrendatarios para realizar la construcción, reparación, pintura o lavado de las bóvedas.

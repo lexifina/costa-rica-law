@@ -1,0 +1,1 @@
+Artículo 57.-La Junta tiene la facultad de suspender cualquier obra que infrinja las normativas internas sobre construcciones y reparaciones, o si considera que el obrero no tiene comportamientos adecuados según la moral y las buenas costumbres.

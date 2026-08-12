@@ -1,0 +1,1 @@
+Artículo 37.- Si el arrendatario no renueva el contrato a tiempo, no podrá hacer uso de la bóveda hasta que esté al día con la renovación. Esta renovación debe hacerse cada cinco años, con un máximo de 25 años.

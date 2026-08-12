@@ -1,0 +1,1 @@
+Artículo 125.-Está prohibido el traslado externo de restos humanos entre bóvedas cuando no existan los vínculos familiares establecidos en el artículo 1 del Decreto N° 704, del 7 de septiembre de 1949, entre el fallecido y los arrendatarios de las bóvedas involucradas.

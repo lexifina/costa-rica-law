@@ -1,0 +1,1 @@
+Artículo 139-. Los pagos por derechos de arriendo de parcelas, construcción de sepulturas y nichos, así como los derechos de inhumación y exhumación, deberán ser efectuados a nombre de la Municipalidad de Guácimo.

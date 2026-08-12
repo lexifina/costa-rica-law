@@ -1,0 +1,1 @@
+Artículo 143.-Se establece el cobro por el arrendamiento de los lotes en el cementerio, cuyo valor será determinado por la Junta Administradora y aprobado por el Concejo Municipal y deberá ser pagado anualmente. Este pago se hará a través del Departamento de Servicios Ciudadanos de la Municipalidad de Guácimo o mediante depósito en las cuentas bancarias asignadas para este fin.

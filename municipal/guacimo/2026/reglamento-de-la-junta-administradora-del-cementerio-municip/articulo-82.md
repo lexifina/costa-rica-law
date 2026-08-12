@@ -1,0 +1,1 @@
+Artículo 82.- Los derechos de arrendamiento otorgados a asociaciones cívicas, culturales, religiosas, artísticas u otras organizaciones no pueden ser traspasados, ni en su totalidad ni en parte, a terceros, mientras no se hayan exhumado todos los restos. Este traspaso debe ser autorizado por el representante legal de la asociación o la persona designada.

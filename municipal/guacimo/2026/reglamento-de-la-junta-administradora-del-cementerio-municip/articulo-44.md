@@ -1,0 +1,1 @@
+Artículo 44.- Está totalmente prohibido que los arrendatarios de nichos pinten, enchapen o coloquen maceteros, jardineras, floreros o cualquier otro elemento decorativo en el núcleo o nicho alquilado sin la autorización previa de la Junta.

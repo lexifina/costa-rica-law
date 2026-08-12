@@ -1,0 +1,1 @@
+Artículo 77.- Los traspasos legalmente permitidos se realizarán en el Departamento de Servicios Ciudadanos de la Municipalidad de Guácimo, mediante la presentación de una escritura pública o sentencia judicial, y deberán ser aprobados por la Junta Administradora.

@@ -1,0 +1,1 @@
+Artículo 28.-Los acuerdos adoptados por la totalidad o mayoría de los miembros presentes de la Junta serán definitivos, a menos que se disponga lo contrario, con la posibilidad de revisión o revocación.

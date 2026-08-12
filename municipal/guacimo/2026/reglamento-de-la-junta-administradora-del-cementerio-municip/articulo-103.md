@@ -1,0 +1,1 @@
+Artículo 103.-Para inhumar un cadáver en una bóveda que no esté vinculada por parentesco con el arrendatario o beneficiarios, solo el arrendatario titular puede autorizarlo. Si el titular ha fallecido, los beneficiarios podrán autorizarlo, pero deberán contar con mayoría simple.

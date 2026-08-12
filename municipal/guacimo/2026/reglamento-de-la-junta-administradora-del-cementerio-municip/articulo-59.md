@@ -1,0 +1,1 @@
+Artículo 59.-La Junta Administradora del Cementerio Municipal de Guácimo no se hace responsable por los contratos celebrados entre los constructores y arrendatarios de derechos, ya que dicha relación es exclusivamente entre las partes contratantes.

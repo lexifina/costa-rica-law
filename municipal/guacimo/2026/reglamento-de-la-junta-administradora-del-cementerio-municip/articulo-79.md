@@ -1,0 +1,1 @@
+Artículo 79.- Si el arrendador falleciera sin haber realizado un traspaso y no dejó testamento, solo los familiares de primer o segundo grado podrán solicitar el traspaso, o mediante sentencia del proceso sucesorio.

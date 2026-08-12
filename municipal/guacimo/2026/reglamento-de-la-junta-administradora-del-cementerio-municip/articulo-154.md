@@ -1,0 +1,1 @@
+Artículo 154.-En el cementerio se permitirá la realización de ceremonias religiosas, discursos fúnebres, oraciones alusivas al difunto y acompañamiento musical durante las exequias, siempre que se respete la ley, la moral y las buenas costumbres.

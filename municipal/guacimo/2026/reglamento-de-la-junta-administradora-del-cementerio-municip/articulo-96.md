@@ -1,0 +1,1 @@
+Artículo.96.- Los cadáveres deben ser presentados en ataúdes de madera liviana. No se permitirá el uso de ataúd de metal, ni se permitirá la inhumación de más de un cadáver en el mismo ataúd, excepto en el caso de madre e hijo recién nacido.

@@ -1,0 +1,2 @@
+Artículo 42.- Los contratos de arrendamiento de nichos son intransferibles. Cualquier intento de traspaso de estos derechos será nulo y carecerá de validez tanto para la Junta como para terceros.
+La duración de estos contratos no podrá ser inferior a cinco años inicialmente, ni superior a cinco años en las prórrogas del contrato. El arrendatario de un nicho podrá autorizar a otra persona mayor de edad para que gestione la prórroga o exhumación de los restos.

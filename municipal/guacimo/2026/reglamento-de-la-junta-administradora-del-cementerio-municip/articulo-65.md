@@ -1,0 +1,1 @@
+Artículo 65.- Los materiales permitidos para el enchape de las bóvedas son mármol, granito, azulejo o cerámica. Cualquier otro material debe ser autorizado por la Junta Administradora, quien tiene el derecho de aprobar o rechazar su uso. El único color permitido es el blanco.

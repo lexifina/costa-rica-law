@@ -1,0 +1,1 @@
+Artículo 104.- Si el arrendatario titular ha fallecido y no ha nombrado beneficiarios, o si los beneficiarios nombrados también han fallecido, no se permitirá realizar inhumaciones ni exhumaciones hasta que al menos dos familiares acrediten su parentesco mediante certificación del Registro Civil o una Declaración Jurada ante Notario Público.

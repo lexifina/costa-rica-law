@@ -1,0 +1,1 @@
+Transitorio 2.- La Junta Administradora, a través del Departamento de Servicios Ciudadanos, dispondrá de un máximo de sesenta (60) días hábiles después de la publicación en el Diario Oficial La Gaceta del presente Reglamento, para diseñar los procedimientos necesarios para su aplicación.

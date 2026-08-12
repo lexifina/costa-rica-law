@@ -1,0 +1,1 @@
+Artículo 141.-Quienes deseen construir bóvedas, nichos u otras edificaciones en el cementerio deberán presentar una copia del contrato de construcción y estar al día con el pago de impuestos u otras obligaciones financieras con la Municipalidad de Guácimo.

@@ -1,0 +1,1 @@
+Artículo 41.- En los nichos alquilados no se permitirá la inhumación de cadáveres en cajas de metal ni cuerpos embalsamados. Las cajas o ataúdes deben ser livianos y de fácil descomposición. No se arrendarán nichos para momias provenientes de otros cementerios, distritos, cantones o provincias.

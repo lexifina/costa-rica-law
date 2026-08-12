@@ -1,0 +1,1 @@
+Artículo 152.-La Junta no se responsabiliza por la colocación de enchapes, estatuas, adornos o cualquier material de valor elevado en las bóvedas o mausoleos. Los arrendatarios asumirán la responsabilidad por los daños causados por vandalismo o destrucción parcial o total de dichos elementos.

@@ -1,0 +1,1 @@
+Artículo 114.-La exhumación de cadáveres o la destrucción de las partes blandas de los mismos no podrá realizarse antes de haber transcurrido al menos cinco años desde la inhumación. El Ministerio de Salud puede autorizar una exhumación en casos excepcionales, al igual que el Poder Judicial mediante una orden expresa.

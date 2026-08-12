@@ -1,0 +1,1 @@
+Artículo 53.- El interesado deberá pagar la tarifa correspondiente al permiso de construcción o reparación. Dicha tarifa será propuesta por la Junta Administradora y aprobada por el Concejo Municipal de Guácimo, de conformidad con las normativas vigentes.

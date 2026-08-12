@@ -1,0 +1,1 @@
+Artículo 130.-La Junta Administradora del Cementerio Municipal de Guácimo velará por la implementación de nuevos métodos para el registro de datos, acorde con las necesidades y capacidades del equipo técnico.

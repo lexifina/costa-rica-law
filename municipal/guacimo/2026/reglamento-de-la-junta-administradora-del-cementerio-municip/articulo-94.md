@@ -1,0 +1,1 @@
+Artículo 94.- El permiso para la inhumación debe ser presentado con al menos seis horas de antelación al Departamento de Servicios Ciudadanos, para que el personal a cargo pueda revisar los registros y determinar el nicho o fosa a ocupar.

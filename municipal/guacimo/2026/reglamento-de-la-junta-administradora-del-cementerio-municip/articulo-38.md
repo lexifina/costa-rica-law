@@ -1,0 +1,1 @@
+Artículo 38.- Todos los arrendatarios deberán pagar una cuota anual de mantenimiento, que se cancela en enero de cada año. Esta cuota cubre el mantenimiento general del cementerio, como limpieza, cuidado de zonas verdes y gastos comunes (agua, luz, etc.).

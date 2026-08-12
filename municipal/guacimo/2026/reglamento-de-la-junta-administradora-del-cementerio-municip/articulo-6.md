@@ -1,0 +1,1 @@
+Artículo 6.- Derecho de inhumación: Todo habitante del distrito primero de Guácimo que fallezca tendrá derecho a la disposición más convenientes y adecuada de su cadáver, restos o cenizas. Este derecho quedará sujeto a razones de factibilidad, a la existencia de espacio y nichos disponibles.

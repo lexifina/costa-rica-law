@@ -1,0 +1,1 @@
+Artículo 64.- Queda prohibido cercas de metal o madera, aceras, entre otros, alrededor de las bóvedas. En caso de que esto ocurra, la Junta Administradora podrá demolerlas sin asumir ninguna responsabilidad.

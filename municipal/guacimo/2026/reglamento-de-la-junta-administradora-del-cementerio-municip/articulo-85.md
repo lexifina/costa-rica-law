@@ -1,0 +1,1 @@
+Artículo 85.-Cualquier coarrendatario tiene el derecho de otorgar permisos unilateralmente para realizar exhumaciones, reparaciones, construcciones o inhumaciones, a menos que exista un documento firmado por la Junta donde todos los coarrendatarios hayan acordado algo diferente.

@@ -1,0 +1,1 @@
+Artículo 138.-Lo no especificado en este reglamento se regirá por las disposiciones aplicables de la Ley General de Salud y el Reglamento General de Cementerios. En caso de dudas sobre la interpretación de alguna norma, prevalecerán las disposiciones de la Ley y del Reglamento mencionados.

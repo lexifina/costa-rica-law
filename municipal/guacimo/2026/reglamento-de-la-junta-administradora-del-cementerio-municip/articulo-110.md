@@ -1,0 +1,1 @@
+Artículo 110.- Los cadáveres deben ser traídos al cementerio en ataúdes cerrados. No se permitirá la inhumación de más de un cadáver en el mismo ataúd ni en la misma fosa, salvo en el caso de madre e hijo que fallezcan durante el parto o gemelos nacidos muertos.

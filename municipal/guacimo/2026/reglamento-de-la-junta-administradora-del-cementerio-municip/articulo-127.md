@@ -1,0 +1,1 @@
+Artículo 127.-Una vez que los restos de un cuerpo hayan sido retirados del Cementerio Municipal de Guácimo, la responsabilidad civil o penal por su custodia será asumida por el solicitante del traslado, así como por las autoridades de salud o judiciales que hayan solicitado el traslado. La Junta no asumirá ninguna responsabilidad en este caso.

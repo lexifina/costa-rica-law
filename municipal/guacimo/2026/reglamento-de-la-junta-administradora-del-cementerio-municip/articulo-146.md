@@ -1,0 +1,1 @@
+Artículo 146.-Este reglamento entrará en vigor una vez sea aprobado definitivamente por el Concejo Municipal y publicado en el Diario Oficial La Gaceta, cumpliendo con lo dispuesto en el artículo 43 del Código Municipal vigente.

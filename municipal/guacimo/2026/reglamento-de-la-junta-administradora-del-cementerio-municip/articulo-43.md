@@ -1,0 +1,1 @@
+Artículo 43.- En los nichos de alquiler, se permitirá la colocación de una placa metálica, de mármol o material plástico, con dimensiones de 12 cm de alto por 30 cm de largo, donde se podrá inscribir el nombre del difunto, así como su fecha de nacimiento y fallecimiento.

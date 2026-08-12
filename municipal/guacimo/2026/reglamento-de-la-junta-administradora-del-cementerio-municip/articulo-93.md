@@ -1,0 +1,3 @@
+CAPÍTULO XII.- De las Inhumaciones Exhumaciones
+De las inhumaciones
+Artículo 93.- La solicitud para realizar una inhumación en un nicho de bóveda debe ser presentada, ya sea personalmente o por escrito, por el titular del derecho, los coarrendatarios o sus representantes legales al menos seis horas antes del entierro, al Departamento de Servicios Ciudadanos. Las inhumaciones solo se realizarán cuando el Departamento de Servicios Ciudadanos haya verificado el pago correspondiente y se hayan cumplido todos los trámites necesarios, incluidos la presentación del certificado de defunción y las cuotas al día.

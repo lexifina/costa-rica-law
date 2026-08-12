@@ -1,0 +1,1 @@
+Artículo 60.- Durante la construcción o reparación de la bóveda, el arrendatario será completamente responsable de cualquier daño que ocurra a otras bóvedas o instalaciones. Queda estrictamente prohibido guardar o colocar objetos, materiales o herramientas en las bóvedas vecinas.

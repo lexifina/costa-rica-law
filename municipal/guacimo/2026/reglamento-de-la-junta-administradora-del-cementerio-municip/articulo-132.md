@@ -1,0 +1,2 @@
+CAPÍTULO XV. Ingresos, servicios y asuntos varios
+Artículo 132.- La Municipalidad recibirá los pagos correspondientes a los servicios que ofrece, conforme a las tarifas vigentes. Si el pago se realiza mediante depósito en las cuentas bancarias designadas, el comprobante de pago debe ser presentado en el Departamento de Servicios Ciudadanos para su registro. Para los pagos realizados directamente en dicho Departamento, el registro será automático.

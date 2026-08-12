@@ -1,0 +1,1 @@
+Artículo 83.-Los copartícipes de un derecho de arrendamiento en una familia pueden transferir sus derechos a uno de sus hijos o a su cónyuge, presentando el testimonio de escritura pública correspondiente. En caso de fallecimiento de un copartícipe, sus herederos deberán gestionar el reconocimiento de los derechos ante los Tribunales de Justicia.

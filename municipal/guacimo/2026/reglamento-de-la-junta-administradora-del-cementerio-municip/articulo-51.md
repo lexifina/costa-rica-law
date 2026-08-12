@@ -1,0 +1,1 @@
+Artículo 51.- El interesado puede seleccionar algún constructor de los recomendados para realizar la construcción o reparación de la bóveda. En este último caso, el arrendatario deberá supervisar diariamente la obra, ya que será responsable de cualquier daño o error que ocurra durante el trabajo, y deberá solucionar cualquier problema que surja.

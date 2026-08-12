@@ -1,0 +1,1 @@
+Artículo 66.- Las reparaciones o pinturas de las bóvedas deben realizarse con al menos ocho días de antelación a fechas como el Día del Padre, Día de la Madre o Día de los Difuntos, o cuando la Junta lo indique mediante un anuncio en la entrada del cementerio o una publicación.

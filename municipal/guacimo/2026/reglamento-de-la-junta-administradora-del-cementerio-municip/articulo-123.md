@@ -1,0 +1,1 @@
+Artículo 123.-Una vez recibida toda la documentación requerida, el encargado del cementerio tiene un plazo de 30 días calendario, contados desde la fecha de recepción, para decidir sobre el traslado de los restos humanos.

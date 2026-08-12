@@ -1,0 +1,1 @@
+Artículo 97.-Las fosas de inhumación en tierra se excavarán hasta una profundidad de dos metros y tendrán una longitud de 2 metros y un ancho de 0,80 metros. Las fosas para niños menores de edad tendrán la misma profundidad, pero medirán 1,50 metros de largo y 0,50 metros de ancho.

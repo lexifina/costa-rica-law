@@ -1,0 +1,1 @@
+Artículo 133.- La Municipalidad, a través de la Junta Administradora y el Departamento de Servicios Ciudadanos, se reserva el derecho de admisión al cementerio de cualquier persona que considere pueda poner en peligro la tranquilidad, moral o el orden público del lugar.

@@ -1,0 +1,9 @@
+Artículo 18.- De las Responsabilidades de Mantenimiento y Comunicación.
+La Junta Administradora tendrá, además, las siguientes responsabilidades:
+18.1.- La Junta Administradora procederá a comunicar a los arrendatarios o beneficiarios que mantengan las bóvedas, nichos y otras instalaciones en buen estado de conservación. En caso de que una bóveda presente defectos estructurales que afecten su estética o la salud pública, el encargado del cementerio notificará al arrendatario o beneficiarios para que realicen las reparaciones en un plazo de 30 días. Si las reparaciones no se hacen, la Junta podrá proceder a su arreglo y el costo será agregado al pago anual que se realiza en la Municipalidad de Guácimo, con un recargo del 50%.
+18.2.- Comunicar a los arrendatarios que tienen bóvedas sin inscribir en la Municipalidad que se les da un tiempo prudencial de tres meses para realizar la inscripción. De no hacerlo, la bóveda será despropiada y pasará a la Municipalidad de Guácimo.
+18.3.- Comunicar previamente al Concejo Municipal cuando así se requiera, los proyectos que se acuerden ejecutar.
+18.4.- Consultar al Departamento Legal de la Municipalidad de Guácimo cualquier duda de carácter legal que surja en el desarrollo de sus funciones. Dicho Departamento deberá prestar su asesoría y colaboración en caso de que se requiera resolver jurídicamente la situación.
+18.5.- Fomentar en el público visitante el respeto, la moral y el orden propios del lugar. 18.6.- Dar un informe anual sobre las labores de la Junta al Concejo Municipal.
+18.7.- Velar por que se cumpla la obligación de brindar las charlas de salud ocupacional al personal, según lo estipulado en el Artículo 21.4.1 de este reglamento.
+18. 8.- Supervisar la adquisición y el mantenimiento de al menos un extintor de incendios, según lo estipulado en el Artículo 21.4.2 de este reglamento.

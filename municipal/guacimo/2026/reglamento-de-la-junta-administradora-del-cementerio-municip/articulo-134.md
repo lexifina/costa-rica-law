@@ -1,0 +1,1 @@
+Artículo 134.-El Cementerio estará abierto al público en horario habitual de lunes a viernes, desde las 6:00 hasta las 13:00 horas. Sin embargo, en caso de requerirse que permanezca abierto por alguna situación especial, se mantendrá abierto hasta las 16 horas. Sábado y domingos permanecerá cerrado excepto si hubiera alguna inhumación.

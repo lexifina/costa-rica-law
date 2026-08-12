@@ -1,0 +1,1 @@
+Artículo 102.- La Municipalidad no será responsable de verificar la identidad de la persona a inhumar. Además, el Departamento de Servicios Ciudadanos y la Junta Administradora no permitirá la apertura del féretro dentro del cementerio sin una orden judicial.

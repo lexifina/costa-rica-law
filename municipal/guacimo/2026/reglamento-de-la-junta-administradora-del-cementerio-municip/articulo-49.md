@@ -1,0 +1,1 @@
+Artículo 49.- Si se aprueba la solicitud, el arrendatario deberá presentar al Departamento de Servicios Ciudadanos la autorización de la Junta Administradora, detallando el trabajo a realizar y el nombre del constructor designado, quien debe seguir las normativas de este Reglamento y las indicaciones de la Administración del Cementerio para llevar a cabo la obra.

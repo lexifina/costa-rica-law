@@ -1,0 +1,2 @@
+Articulo 10.- De las sesiones de la Junta
+La Junta Administradora deberá sesionar ordinariamente una vez al mes. Podrá reunirse extraordinariamente cuantas veces sea necesario, previa convocatoria del presidente o por la solicitud por escrito de al menos tres de sus miembros, quienes deberán presentarla al presidente con 24 horas de anticipación. El presidente de inmediato definirá el día y la hora y convocará a los miembros restantes.

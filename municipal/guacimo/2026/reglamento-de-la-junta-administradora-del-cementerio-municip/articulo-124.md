@@ -1,0 +1,1 @@
+Artículo 124.-A partir del momento en que los restos humanos salen del cementerio, la responsabilidad legal de su custodia pasa a ser del firmante del formulario correspondiente y de los propietarios de las bóvedas o condominios que autorizaron el traslado, eximiendo a la Municipalidad de cualquier responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 151.- Para la implementación de cualquier disposición general emitida por la Junta, será suficiente con colocar el aviso pertinente en la puerta del cementerio y publicarlo en los medios de comunicación de la Municipalidad, como su página web oficial y sus redes sociales, así como a través de otros medios como iglesias, periódicos locales u otros.

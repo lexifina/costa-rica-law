@@ -1,0 +1,1 @@
+Artículo 52.- El arrendatario deberá completar la construcción de la bóveda en un plazo de doce meses a partir de la adjudicación del terreno, de lo contrario perderá automáticamente el derecho sobre el espacio y la Junta podrá disponer de él. Este mismo plazo se concede a los propietarios de sepulturas en tierra para la construcción de la lápida correspondiente.

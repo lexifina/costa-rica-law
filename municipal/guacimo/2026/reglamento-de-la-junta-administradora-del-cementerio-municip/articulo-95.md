@@ -1,0 +1,1 @@
+Artículo 95.-La inhumación debe realizarse entre 24 y 30 horas después del fallecimiento, a menos que el cadáver esté embalsamado o la jefatura de sanidad del Ministerio de Salud Pública o las autoridades competentes certifiquen que la inhumación debe hacerse antes por razones de salud pública.

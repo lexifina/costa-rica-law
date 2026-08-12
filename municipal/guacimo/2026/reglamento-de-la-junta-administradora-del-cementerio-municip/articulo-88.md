@@ -1,0 +1,1 @@
+Artículo 88.-A solicitud de familiares cercanos de una persona fallecida cuyo arrendatario ha muerto y sus sucesores no han reclamado derechos dentro de los diez años posteriores, la Junta podrá declarar disuelto el contrato y otorgar el arrendamiento a uno o más familiares, respetando el orden de prioridad mencionado previamente.

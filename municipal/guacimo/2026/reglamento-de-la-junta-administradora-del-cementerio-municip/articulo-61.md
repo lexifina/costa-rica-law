@@ -1,0 +1,4 @@
+Artículo 61.- Para la construcción de nichos adicionales en las bóvedas existentes, se seguirán las siguientes normas:
+61.1.- En una bóveda sencilla con un solo nicho subterráneo, se podrá construir hasta dos nichos adicionales a partir del nivel de la superficie, con una altura máxima de 70 cm, completamente de mampostería. La losa de fundación, las losas entre nichos y el techo deben ser de concreto reforzado.
+61.2.- En una bóveda doble con dos nichos, se podrán construir hasta dos nichos adicionales, con una altura máxima de 70 cm., no debe exceder los cuatro nichos en total.
+61.3.- Las bases de las bóvedas deben estar en buenas condiciones; si no lo están, el arrendatario deberá acondicionarlas antes de construir los nuevos nichos. Todos los nichos desocupados deben quedar sellados para mantener el ornato del cementerio.

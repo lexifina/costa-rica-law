@@ -1,0 +1,1 @@
+Artículo 50.- La Junta Administradora del Cementerio Municipal de Guácimo mantendrá una lista de al menos tres constructores debidamente autorizados, a través de un acuerdo formal, para que los arrendatarios puedan elegirlos para sus trabajos de construcción o reparación.

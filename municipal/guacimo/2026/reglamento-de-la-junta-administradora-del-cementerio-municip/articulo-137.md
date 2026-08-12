@@ -1,0 +1,1 @@
+Artículo 137.-El Concejo Municipal tiene la potestad de modificar este Reglamento total o parcialmente, aprobándolo en una sesión motivada y publicándolo en el Diario Oficial La Gaceta. Las modificaciones entrarán en vigor después de su publicación.

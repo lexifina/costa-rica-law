@@ -1,0 +1,1 @@
+Artículo 122.-Las exhumaciones deben realizarse exclusivamente en días hábiles, de 8 a. m. a 4 p. m. No se realizarán exhumaciones los sábados, domingos o durante días festivos religiosos o nacionales, salvo en casos de fuerza mayor que lo justifiquen, a criterio de la Junta Administradora.

@@ -1,0 +1,1 @@
+Artículo 91.-La Junta no podrá otorgar arrendamiento sobre derechos que correspondan a Mausoleos de Honor, aunque podrá suprimir dicha distinción si los restos de la persona homenajeada son trasladados a otro lugar.

@@ -1,0 +1,1 @@
+Artículo 106.-Se permitirán traslados de restos humanos provenientes de otros cementerios fuera del cantón solamente si el solicitante del traslado posee una bóveda o nicho disponible, lo anterior debido a que el espacio del cementerio es muy reducido.

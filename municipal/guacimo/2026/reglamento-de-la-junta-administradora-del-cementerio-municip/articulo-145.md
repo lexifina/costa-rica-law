@@ -1,0 +1,1 @@
+Artículo 145.- El Camposanto La Misericordia estará bajo la responsabilidad de los empleados del Departamento de Servicios Ciudadanos, y su administración y funcionamiento se regirán por lo estipulado en este Reglamento, bajo la dirección de la Junta Administradora del Cementerio Municipal, órgano designado por el Concejo Municipal de Guácimo.

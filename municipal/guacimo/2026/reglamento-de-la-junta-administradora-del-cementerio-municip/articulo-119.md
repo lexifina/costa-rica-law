@@ -1,0 +1,2 @@
+Artículo 119.-Las exhumaciones de personas fallecidas por enfermedades especificadas en el
+Artículo 37 del Reglamento General de Cementerios, según el Decreto Ejecutivo N° 32833-S, del 3 de agosto de 2005, requieren además del permiso correspondiente del Ministerio de Salud, la consulta obligatoria a la Dirección del Área Rectora. Para estas exhumaciones se levantará un acta utilizando un formulario proporcionado por el Departamento de Servicios Ciudadanos, quien archivará el original y entregará una copia al interesado.

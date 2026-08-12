@@ -1,0 +1,1 @@
+Artículo 69.- El arrendatario debe marcar adecuadamente la bóveda mediante una placa con el nombre del arrendatario o familia arrendataria La Junta Administradora colocará el número de bóveda, ubicada frente al pasillo de entierro.

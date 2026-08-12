@@ -1,0 +1,2 @@
+CAPÍTULO VIII.- Del arrendamiento de nichos
+Artículo 39.-La Junta Administradora dispondrá de nichos comunes en serie denominados "Núcleos", los cuales serán espacios individuales para la inhumación de restos. Estos nichos tendrán unas medidas de 56 cm de alto, 65 cm de ancho y 250 cm de largo, y podrán ser arrendados por un período inicial de al menos cinco años, con la posibilidad de renovación, de acuerdo con lo que la Junta determine y por el tiempo que esta disponga.

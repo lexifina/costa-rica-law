@@ -1,0 +1,1 @@
+Artículo 126.-Si el arrendatario o coarrendatario ha fallecido, no se autorizarán exhumaciones ni permisos para reparaciones o construcciones hasta que se presente una orden judicial que declare a los herederos del fallecido o una autorización del albacea de la sucesión para disponer del nicho, bóveda o mausoleo.

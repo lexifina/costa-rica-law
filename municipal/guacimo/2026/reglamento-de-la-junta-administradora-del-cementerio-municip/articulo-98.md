@@ -1,0 +1,1 @@
+Artículo 98.-Se permitirá la construcción de nichos con una profundidad que no llegue al nivel de la falda acuosa subterránea. Los nichos deben ser ordenados numéricamente en series horizontales, utilizando números ordinales en orden ascendente. Las inhumaciones se harán en los nichos inferiores de la serie, y no se ocuparán los superiores hasta que los inferiores estén llenos.
