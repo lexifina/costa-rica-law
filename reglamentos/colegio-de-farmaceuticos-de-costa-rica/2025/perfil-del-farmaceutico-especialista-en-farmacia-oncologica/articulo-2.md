@@ -1,0 +1,3 @@
+Artículo 2.- Especialidad en Farmacia Oncológica:
+La especialidad en farmacia oncológica es una rama de la farmacia encargada de la verificación de la selección de tratamientos utilizados en el manejo de los pacientes oncológicos, sus dosis, frecuencia, las interacciones farmacológicas, así como la preparación, despacho y/o dispensación de los productos finales. Está orientación también a garantizar la seguridad durante todo el proceso, desde la recepción, almacenamiento, preparación y manipulación de fármacos biopeligrosos.
+Además, se encarga de la asesoría, implementación, y seguimiento de terapias antineoplásicas, así como apoyo al equipo multidisciplinario en el manejo de emergencias oncológicas y eventos adversos relacionados al tratamiento oncológico.

@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en farmacia oncológica realiza sus funciones en todos los servicios farmacéuticos garantizando que los pacientes oncológicos reciban tratamientos correctos, seguros y a la dosis adecuada.
