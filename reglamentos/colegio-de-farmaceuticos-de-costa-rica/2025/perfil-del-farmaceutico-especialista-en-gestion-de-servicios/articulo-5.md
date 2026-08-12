@@ -1,0 +1,1 @@
+Artículo 5.- Asistencial. El profesional farmacéutico especialista en gestión de servicios y establecimientos de salud realiza sus funciones en los servicios farmacéuticos garantizando la calidad, la eficiencia y sostenibilidad de la atención de los pacientes.

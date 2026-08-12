@@ -1,0 +1,1 @@
+Artículo 7.- Docencia. El profesional farmacéutico especialista en gestión de servicios y establecimientos de salud podrá participar en la formación académica universitaria de grado, posgrado y formación continua de los profesionales en farmacia.
