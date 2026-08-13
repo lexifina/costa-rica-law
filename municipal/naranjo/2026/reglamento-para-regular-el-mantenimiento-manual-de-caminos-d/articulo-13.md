@@ -1,0 +1,1 @@
+Artículo 13. Notificación a los Vecinos. La Municipalidad a través de los comités de caminos, la Policía Municipal, u otro funcionario municipal notificará a los vecinos que incumplan con este Reglamento, en las labores de mantenimientos de caminos, siguiendo lo estipulado por la Ley de Notificaciones.

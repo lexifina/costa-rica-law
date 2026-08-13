@@ -1,0 +1,3 @@
+Artículo 17. Obras realizadas. En caso de que las obras sean realizadas por autoridades municipales la Unidad Técnica de Gestión Vial Municipal mediante un informe técnico emitido por este mismo Órgano procederá a establecer el valor del trabajo realizado al propietario del inmueble respectivo dando inicio al cobro correspondiente.
+Una vez determinado el costo de las obras realizadas por parte de la Unidad Técnica de Gestión vial, se deberá cargar a nombre de propietario del inmueble, el costo respectivo en el sistema de información municipal para su cobro.
+En los casos en que se haya realizado a través de un convenio, se procederá conforme a sus lineamientos y el marco legal vigente.

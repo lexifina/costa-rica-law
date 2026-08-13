@@ -1,0 +1,1 @@
+Artículo 4. Autoridades competentes relacionadas. Las dependencias de la Municipalidad relacionados a este Reglamento son la Alcaldía, la Unidad Técnica de Gestión Vial, la Dirección Financiera Tributaria y los órganos relacionados a las actividades desarrolladas en este reglamento.

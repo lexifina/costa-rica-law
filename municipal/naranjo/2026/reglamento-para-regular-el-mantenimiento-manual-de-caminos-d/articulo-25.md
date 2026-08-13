@@ -1,0 +1,1 @@
+Artículo 25. Ejecución de Obras por ONG. Las ONG podrán ejecutar cualquier actividad de mantenimiento manual previa firma del Convenio y orden escrita por el encargado de la Unidad Técnica Vial y la Alcaldía.

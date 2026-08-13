@@ -1,0 +1,3 @@
+Artículo 7. Normativa aplicable y obligaciones de los munícipes. En la materia de omisión de pagos por trabajos realizados conforme a este reglamento aplicará lo dispuesto por el artículo 79 y 85ter del Código Municipal, por lo que las deudas existentes constituirán hipoteca legal preferente sobre los respectivos inmuebles.
+Según la normativa municipal, la certificación que el contador municipal emita de la suma adeudada por el munícipe, que no sea cancelada dentro de los tres meses posteriores a su fijación, serán el documento que constituya título ejecutivo bajo la hipoteca.
+Así mismo, sobre otras obligaciones o cargas a los propietarios será aplicable el Código Municipal.

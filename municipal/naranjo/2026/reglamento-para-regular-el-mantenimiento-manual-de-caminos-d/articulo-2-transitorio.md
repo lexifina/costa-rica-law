@@ -1,0 +1,1 @@
+Transitorio II. La Jefatura del Cuerpo Policial, la Unidad de Gestión Técnica Vial y el Departamento de cobros deberán comunicar el contenido en detalle de este reglamento a los funcionarios de manera inmediata y dejar constancia de ello conforme a los procedimientos y regulaciones internas aplicables.

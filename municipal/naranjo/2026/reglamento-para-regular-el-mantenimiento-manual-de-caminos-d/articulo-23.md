@@ -1,0 +1,1 @@
+Artículo 23. Cobro Judicial. El propietario que haga caso omiso del pago de los trabajos ejecutados, será sujeto del procedimiento de cobro judicial que establece la legislación vigente sobre el tema y el Reglamento de Cobro de la Municipalidad de Naranjo.

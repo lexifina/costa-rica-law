@@ -1,0 +1,1 @@
+Artículo 21. Multas. Las multas se fijarán con base en el artículo 85 y 85ter del Código Municipal, actualizándose anualmente conforme al salario base concebido en el artículo 2 del Estatuto de Servicio Judicial Ley N°5155 reformado por Ley N°7338, el cual se emplea como parámetro.
