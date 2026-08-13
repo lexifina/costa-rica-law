@@ -1,0 +1,9 @@
+Artículo 22°- Obligaciones.
+El permiso de uso de suelo a título precario generará las siguientes obligaciones al permisionario: • Si por alguna razón el permisionario decide no continuar haciendo uso del permiso otorgado, deberá comunicar su renuncia por escrito a la Municipalidad, a fin de que esta retome el bien y determine el destino que considere conveniente para la parcela en cuestión. Al momento de presentar la renuncia, el permisionario deberá encontrarse al día con el pago del canon correspondiente.
+• El pago de canon debe ser cancelado en forma anual o trimestral, bajo la condición de que será de manera puntual y adelantada durante los primeros cinco días hábiles de cada año o trimestre.
+• En caso de atraso en el pago de canon, la permisionaria deberá pagar intereses moratorios que serán definidos por el artículo 57 del Código de Normas y Procedimientos Tributarios Ley N°4755.
+• En el caso de las personas jurídicas, toda cesión o traspaso de cuotas o acciones, deberá reportarse al Departamento de Zona Marítima Terrestre de la Municipalidad, su inobservancia provocará la revocatoria inmediata del permiso otorgado.
+• Aceptar y dar fiel cumplimiento a las cláusulas contenidas en la resolución administrativa que autorizó el permiso de uso de suelo.
+• Se compromete a dar mantenimiento de limpieza a la porción zona pública frente al terreno permisionado (si tuviese frente a zona pública) y a garantizar su libre tránsito y a mantener en óptimas condiciones de limpieza y cuidado del terreno.
+• En caso de que la permisionaria cambiare de lugar o medio para recibir notificaciones, lo hará saber inmediatamente por escrito a la Municipalidad.
+• Se compromete a permitir el libre acceso de los inspectores municipales quienes están facultados para verificar el cumplimiento del permiso de uso otorgado.

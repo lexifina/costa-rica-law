@@ -1,0 +1,16 @@
+Artículo 7°- Requisitos para presentar la solicitud de Permiso de Uso.
+Las personas físicas o jurídicas interesadas en obtener un Permisos de Uso de Suelo deberán presentar en el Departamento de ZMT los siguientes documentos y requisitos:
+a) Formulario de solicitud de Permisos de Uso de Suelo debidamente lleno y autenticada la firma del solicitante (en el caso de personas físicas) o representante legal (en el caso de personas jurídicas). La autenticación de la firma deberá ser por Notario Público autorizado y conforme a los lineamientos establecidos en el Código Notarial (sellos, timbres u otros). Además, dicho formulario no podrá presentar tachones, borrones, ni cualquier sugerencia que ponga en duda su veracidad.
+b) Original o copia certificada, en tamaño original, del plano de agrimensura del terreno, elaborado y firmado por un ingeniero en topografía. El plano debe incluir la ubicación geográfica, el derrotero (ya sea mediante azimut y distancia o coordenadas CRTM-05), el nombre del solicitante y la indicación de que se presenta para el trámite de Permiso de Uso. Asimismo, deberá estar amarrado al menos a dos mojones del IGN o bien a la línea digital. En caso de no existir ninguno de estos puntos de amarre, se deberá presentar el derrotero con coordenadas CRTM-05.
+c) Fotocopia certificada del documento de identidad del solicitante(s) o representante legal (documento debe encontrarse vigente).
+d) En el caso de gestionarse a nombre de una persona física extranjera, el solicitante deberá contar con cédula de residencia en el país y aportar una constancia emitida por la Dirección General de Migración y Extranjería donde consten las salidas y entradas a Costa Rica durante los últimos cinco años.
+e) En el caso de las personas jurídicas, deberá aportar:
+Certificación de personería jurídica original (emitida por el Registro Nacional o por Notario Público) con menos de tres meses de extendida.
+Certificación de distribución de Capital Social con vista del libro de accionistas con menos de tres meses de extendida.
+Fotocopia certificada del acta constitutiva y del documento de identidad del representante legal y apoderados especiales si los hubiera (todos vigentes).
+f) En el caso de nombrar apoderados, deberán aportar original o copia certificada del poder, así como copia certificada del documento de identidad.
+g) En caso de que en la parcela existan construcciones deberá aportar:
+Declaración jurada del solicitante mediante la cual manifieste, bajo fe de juramento, que las construcciones existentes fueron realizadas antes de la entrada en vigencia de la Ley para la Regularización de las Construcciones existentes en la Zona Restringida de la Zona Marítimo Terrestre N°9242, publicada en La Gaceta N°109, de lunes 9 de junio del 2014, incluyendo una descripción general de las mismas (área, características constructivas, antigüedad, entre otros).
+Presentación de pruebas que demuestren fehacientemente que las construcciones existentes fueron realizadas con anterioridad a la entrada en vigencia de la Ley N°9242.
+h) Señalar medio para recibir notificaciones mediante el Formulario de Registro Único Tributario (RUT).
+i) Encontrarse al día en el cumplimiento de sus obligaciones tributarias materiales y formales con la Municipalidad de Golfito.

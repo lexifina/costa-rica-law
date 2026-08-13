@@ -1,0 +1,2 @@
+Artículo 3°- Propósito.
+Regular lo concerniente a la forma y el procedimiento que seguirá la Municipalidad de Golfito para otorgar permiso de uso en la zona marítimo terrestre del Cantón de Golfito, hasta tanto existan los respectivos planes reguladores costeros que permitan la aplicación cabal de lo dispuesto en la Ley Nº6043. De esta manera, se implementa este reglamento con la intención expresa de cumplir con el espíritu de dicha Ley, de manera ordenada y efectiva, empleando para ello instrumentos que pone a su disposición el ordenamiento jurídico costarricense.

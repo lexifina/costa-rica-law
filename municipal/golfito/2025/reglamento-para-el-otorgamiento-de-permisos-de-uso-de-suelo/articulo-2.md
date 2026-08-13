@@ -1,0 +1,2 @@
+Artículo 2°- Aplicación.
+El presente reglamento será aplicable para la regularización de los permisos de uso a título precario en la Zona Marítimo Terrestre del cantón de Golfito. Se debe tener presente que dicha autorización o permiso de uso tendrá carácter provisional y regirá únicamente hasta la entrada en vigencia del Plan Regulador Costero. Por tanto, no genera derecho alguno para los ocupantes en relación con futuras solicitudes de concesión.

@@ -1,0 +1,24 @@
+Artículo 4°- Definiciones y abreviaturas.
+En adelante, dentro del presente reglamento, y en general en la aplicación de los procedimientos, deberá entenderse lo siguiente:
+a) Municipalidad: Municipalidad de Golfito.
+b) Concejo Municipal: Concejo Municipal del cantón de Golfito.
+c) ICT: Instituto Costarricense de Turismo.
+d) IGN: Instituto Geográfico Nacional.
+e) ZMT: Zona Marítimo Terrestre.
+f) Zona pública: Faja de cincuenta metros de ancho a contar de la pleamar ordinaria, y las áreas que quedan al descubierto durante la marea baja.
+g) Zona Restringida: Faja de ciento cincuenta metros a lo largo del litoral de dominio público contados a partir de la zona pública.
+h) Declaratoria: Aquellas áreas de la zona marítima terrestre que hayan sido declaradas como aptitud turística por el ICT por presentar condiciones favorables para el desarrollo y explotación turística.
+i) Pleamar Ordinario: La línea de la pleamar ordinaria es, para el litoral pacífico, el contorno o curva de nivel que marca altura de 115 centímetros sobre el nivel del mar y para el litoral Atlántico, es el contorno que marca la altura de 20 centímetros sobre el nivel del mar.
+j) Contrato de Concesión: Pacto o convenio entre la Municipalidad de Golfito y el Concesionario para el disfrute y aprovechamiento de la zona marítima terrestre, por medio del cual se formaliza la concesión.
+k) Solicitud de Concesión: Documento que presenta un administrado ante el Departamento de Zona Marítima Terrestre para poder obtener una concesión sobre una determinada área o parcela de la zona restringida que se encuentre con un plan regulador aprobado, para lo cual debe cumplir con el trámite, y que se plasma dentro de un expediente administrativo.
+l) Permiso de uso: Resolución administrativa debidamente fundamentada donde la Municipalidad de Golfito le otorga en forma unilateral una determinada parcela de la zona restringida de la zona marítima terrestre bajo su jurisdicción donde no existe plan regulador costero, a cambio del pago de algún tipo de tasa o canon. Dicho acto administrativo es de carácter revocable por razones de oportunidad, conveniencia o merito en cualquier momento y le otorga a su beneficiario un interés legítimo derecho precario y no un derecho subjetivo en sentido estricto; por lo que el permisionario estará imposibilitado de desarrollar en el sitio construcciones de cualquier índole o actividades que pueden en un futuro obstruir la implementación de un plan regulador, que afecten las condiciones naturales de la zona o que entorpezcan el libre aprovechamiento de la zona pública.
+m) Usufructo: El usufructo corresponde a las municipalidades, se refiere a los fines civiles, entendiéndose por esto el derecho que aquellas tienen por disposiciones de la ley para el cobro del canon respectivo producido por las concesiones, permisos de uso o arrendamientos de las parcelas y de las mejoras cuando las hubiese.
+n) La Ley: La Ley sobre la Zona Marítima Terrestre Nº6043
+o) Reglamento a la Ley: Decreto Ejecutivo N°7841-P.
+p) PNE: Patrimonio Natural del Estado.
+q) Bienes Demaniales: Son aquellos bienes de régimen patrio de protección constitucional de los bienes de dominio público, de carácter imprescriptible, inembargable e inalienable.
+r) Construcción: Arte de construir toda estructura que se fije o se incorpore a un terreno; incluye cualquier obra de edificación, reconstrucción, alteración o ampliación que implique permanencia u ocupación.
+s) Permisionario: Aquella persona física o jurídica a la que el Concejo Municipal le otorga un permiso de uso de suelo a título precario, y que formalizado por la Alcaldía Municipal a través de una resolución administrativa.
+t) Precariedad: Potestad otorgada por ley a la Municipalidad de Golfito, para que en cualquier momento revoque un permiso de uso otorgado unilateralmente, ya sea por la necesidad de ocupar plenamente el bien, por construcción de una obra pública, al igual que por razones de conveniencia, seguridad, higiene, estética, de interés público, o cualquier otra decisión administrativa, todo ello en la medida que si llega a existir una contraposición de intereses entre el fin público y el permiso otorgado, debe prevalecer el uso natural del bien público. En todo caso la recuperación no se deberá dar en forma intempestiva, dando al permisionario un plazo prudencial para que se retire del inmueble dado en permiso de uso con base en el debido proceso.
+u) Acto unilateral: Un acto unilateral es aquel que produce efectos jurídicos por la sola voluntad de una de las partes, sin necesidad de aceptación por otra.
+v) Acto discrecional: Un acto discrecional es aquel en el que la administración pública tiene libertad para decidir si actúa o no, cómo actúa y en qué momento, dentro de los márgenes que establece la ley. No significa que pueda actuar de manera arbitraria, sino que tiene un margen de apreciación para elegir entre varias opciones válidas legalmente.
