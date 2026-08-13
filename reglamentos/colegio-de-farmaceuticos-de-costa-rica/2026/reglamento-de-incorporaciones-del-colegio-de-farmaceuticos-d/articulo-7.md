@@ -1,0 +1,4 @@
+Artículo 7.- Juramentación y formalización
+• Una vez aprobada la solicitud de incorporación, la persona será convocada a una ceremonia de juramentación, en la cual se le entregará su credencial y código profesional.
+• La asistencia a la ceremonia es obligatoria. Las ausencias justificadas serán solo por casos fortuitos o fuerza mayor, y en casos de salud, deberán acreditarse mediante certificado médico emitido por la Caja Costarricense de Seguro Social (C.C.S.S.), con el fin de ser convocado a una nueva sesión. En todos los casos el interesado debe presentar la documentación de respaldo correspondiente.
+• En caso de ausencia injustificada, se anulará la incorporación. La documentación presentada se mantendrá en el expediente, salvo los documentos con fecha de vencimiento. No se hará devolución del monto pagado por la cuota de incorporación, y el solicitante deberá realizar el pago nuevamente para participar en el próximo proceso de incorporación.

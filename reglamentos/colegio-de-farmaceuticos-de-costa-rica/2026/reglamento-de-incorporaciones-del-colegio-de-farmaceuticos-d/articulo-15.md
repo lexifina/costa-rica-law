@@ -1,0 +1,11 @@
+ARTÍCULO 15. Recepción de documentos
+1) Los documentos se presentarán ante la Unidad de Servicio al Colegiado, Cliente y Beneficiario, debe ir completa y se entregará de forma personal.
+2) El interesado o la interesada podrá presentar los documentos cualquier día hábil del año.
+3) La solicitud debe ser conocida en la sesión de Junta Directiva siguiente a la fecha de presentación de los documentos.
+4) La Junta Directiva conocerá la solicitud en esa sesión, y previo a la aprobación de la desincorporación, acordará enviar un oficio al interesado(a) en el que se le notifique que de proceder la solicitud no podrá ejercer la profesión de farmacia bajo ninguna circunstancia, de hacerlo será denunciado por ejercicio ilegal de la profesión y si en algún momento decide volver a ejercer la profesión de farmacia debe someterse a todo el procedimiento de incorporación que se encuentre regulado al momento de la solicitud de incorporación. También deberá indicar el plazo que tiene él o la interesada para contestar el oficio.
+5) El plazo que debe existir entre el momento de la presentación de la documentación completa y la notificación del punto 4, no será mayor a 10 días hábiles, existiendo excepciones como el caso fortuito y fuerza mayor, el cual deberá ser demostrado.
+6) El interesado o la interesada deberá contestar por escrito, que conociendo las consecuencias estipuladas en el oficio mencionado en el punto 4, solicita se continúe con el proceso de desincorporación. Este documento debe ser entregado a la secretaria ejecutivo de la Junta Directiva, deberá ser el original y estar debidamente firmado.
+7) El escrito debe ser conocido en la sesión de Junta Directiva siguiente a la fecha de presentación.
+8) La Junta Directiva tomará un acuerdo en un plazo no mayor a 30 días naturales.
+9) Si él o la interesada decide no continuar con el proceso deberá comunicarlo por escrito a la Unidad de Servicio al Colegiado, Cliente y beneficiario y la Junta Directiva procederá a desestimar la solicitad, esto podrá hacerse hasta antes de que el acuerdo de desincorporación este en firme.
+10) Posterior a estar en firme el acuerdo, se le notificará al o la interesada y se deberá comunicar a los departamentos del Colegio de Farmacéuticos que tenga algún tipo de interés en el acuerdo tomado.

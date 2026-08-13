@@ -1,0 +1,24 @@
+COLEGIO DE FARMACÉUTICOS DE COSTA RICA
+[imagen] | Reglamento de Incorporaciones | Código: REG-AG-520
+Página 1 de 11
+Versión 1
+Asamblea General | Sustituye a NA
+Elaborado por: Marisol Orozco | Revisado por: Randall Madrigal | Aprobado por: Gabriela Jara | Fecha Aprobado: 15 de junio, 2026
+En uso de las facultades conferidas por el numeral 14, inciso 1), de la Ley Orgánica del Colegio de Farmacéuticos de Costa Rica, Nº 15, del 29 de octubre de 1941, y según lo acordado en la asamblea general extraordinaria del 15 de junio de 2026.
+Considerando:
+1. Que la Ley nº15, del 29 de octubre de 1941, Ley Orgánica del Colegio de Farmacéuticos de Costa Rica establece en su numeral 2°, que forman el Colegio de Farmacéuticos los graduados en Costa Rica y los incorporados en él.
+2. Que la Sala Constitucional de la Corte Suprema de Justicia ha establecido en su jurisprudencia, que como parte de las competencias de los colegios profesionales está analizar el cumplimiento de los requisitos para la incorporación de nuevos profesionales, no solo desde el punto de vista formal sino también de manera sustancial, colaborando con otras dependencias creadas al efecto y en cumplimiento de la ley, pues solo así se podrá evitar el gran perjuicio a la sociedad con la incorporación de profesionales no aptos académica y éticamente para el ejercicio profesional, es decir, su labor puede y debe ser también cautelar. (Sala Constitucional de la Corte Suprema de Justicia, resolución n° 2011012250 de las 10:51 horas del 09 de setiembre de 2015).
+3. Que en los numerales 9 de la Ley Orgánica del Colegio de Farmacéuticos de Costa Rica y el artículo 2 del Reglamento Interno del Colegio de Farmacéuticos de Costa Rica se establece lo referente a los requisitos de incorporación a este Colegio Profesional.
+4. Que la Ley n° 44025 del 9 de febrero del 2023, “Reglamento de servicio social obligatorio para los profesionales en ciencias de la salud” resulta de obligatoria observancia para quienes soliciten la incorporación al Colegio de Farmacéuticos de Costa Rica.
+5. Que el ejercicio profesional farmacéutico requiere una constante actualización de conocimientos científicos, tecnológicos, éticos y regulatorios. En atención a ello, y conforme con los principios establecidos en la Ley Orgánica del Colegio de Farmacéuticos de Costa Rica, se establece la obligatoriedad del curso introductorio de inducción de la práctica farmacéutica para nuevos colegiados como parte del proceso de incorporación inicial. Este módulo será adicional y complementario a los requisitos formales de incorporación y forma parte del compromiso institucional con la calidad en la atención en salud pública y privada, la seguridad del paciente, la gestión del medicamento y la ética profesional. La asistencia al curso será condición necesaria para completar el proceso de incorporación y participar en la ceremonia de juramentación, conforme a lo dispuesto en la presente normativa.
+6. Que bajo el marco jurídico del principio de libertad de asociación, es procedente la solicitud de desafiliación al Colegio, según indica la Constitución Política, en el artículo 25: "Los habitantes de la República tienen derecho de asociarse para fines lícitos. Nadie podrá ser obligado a formar parte de asociación alguna".
+Cabe advertir que según ha precisado la propia Sala Constitucional, el derecho de asociación es una garantía constitucional reconocida además en los instrumentos internacionales, como el artículo 22 del Pacto Interamericano de Derechos Civiles y Políticos, y supone la libertad de grupo de estar unido en la consecución de fines comunes. Presupone además, otros derechos fundamentales tales como el de reunión y el de expresión del pensamiento. (Véase al respecto, la sentencia Nº 590-91 de las quince horas dieciocho minutos del veinte de marzo de mil novecientos noventa y uno).
+7. Que deviene en necesario especificar los requisitos que deben cumplir los profesionales farmacéuticos para incorporarse al Colegio de Farmacéuticos de Costa Rica, por lo que, la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, en ejercicio de las facultades conferidas por la Ley Orgánica Nº 15, del 29 de octubre de 1941, considera que es indispensable garantizar la idoneidad profesional de quienes deseen incorporarse a esta Corporación profesional. Por tanto, se dicta la siguiente normativa:
+REGLAMENTO DE INCORPORACIONES AL COLEGIO DE FARMACÉUTICOS DE
+COSTA RICA
+CAPÍTULO I
+Artículo 1. Objeto y ámbito de aplicación
+Este reglamento tiene como objetivo precisar los requisitos obligatorios de los profesionales graduados de la Carrera de Farmacia para la incorporación al Colegio de Farmacéuticos de Costa Rica, requisito indispensable para ejercer legalmente la profesión farmacéutica en el país:
+Aplica a:
+• Farmacéuticos costarricenses y extranjeros graduados en universidades nacionales.
+• Farmacéuticos costarricenses y extranjeros graduados en el extranjero.
