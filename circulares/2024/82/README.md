@@ -13,3 +13,4 @@ Adición de la circular 307-2023, sobre la obligación de las oficinas en las cu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-25 | la propia norma |
+| 2 | 2026-08-13 | Circular 142 (2026-08-13) |
