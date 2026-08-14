@@ -1,0 +1,1 @@
+Artículo 2. Objetivo General. Regular la selección y gestión de los medicamentos en la CCSS, en procura del acceso oportuno a medicamentos seguros, eficaces, eficientes y de calidad para la población, en el marco del uso racional de medicamentos.

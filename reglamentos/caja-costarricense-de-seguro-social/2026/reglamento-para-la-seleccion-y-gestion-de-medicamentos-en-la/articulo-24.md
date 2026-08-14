@@ -1,0 +1,1 @@
+Artículo 24. Sobre la regulación del despacho. Es responsabilidad del ente competente en la institución desarrollar, implementar y supervisar los procedimientos necesarios para garantizar el manejo adecuado y regulado en el despacho de medicamentos, en apego a los lineamientos de prescripción para cada medicamento.

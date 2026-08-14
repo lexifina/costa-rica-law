@@ -1,0 +1,8 @@
+Artículo 17. Aspectos generales de la prescripción médica.
+1. La prescripción debe realizarse únicamente en la receta oficial establecida en la institución y tiene carácter de declaración jurada. Excepciones:
+a. Medicamentos controlados (psicotrópicos y estupefacientes): debe cumplir con lo normado por la Junta de Vigilancia de Drogas Estupefacientes del Ministerio de Salud de Costa Rica.
+b. Para otros medicamentos que deban ser regulados, según lo determine el ente rector de salud o la instancia institucional competente, se podrá establecer la exigencia de requisitos adicionales que, por su impacto en la salud pública o en el sistema de salud, deban aplicarse de manera general en las recetas médicas, según corresponda.
+2. Es responsabilidad del ente competente de la institución normar los requisitos mínimos que han de cumplir las prescripciones o recetas, incluyendo los datos básicos de identificación del prescriptor, paciente y medicamentos; asimismo, lo relativo a la firma del profesional que prescribe.
+3. Los profesionales de salud autorizados para prescribir un medicamento en la CCSS a un paciente pueden hacerlo solamente mediante un acto de ejercicio profesional debidamente documentado dentro del expediente único digital del paciente, sin excepción; alternativamente en la hoja clínica de consulta del paciente.
+4. La receta debe ser emitida por el prescriptor autorizado en cumplimiento de los lineamientos de uso establecidos institucionalmente; por lo cual, "los vistos buenos" o los "mandatos" no tienen validez.
+5. Toda prescripción debe, en todos los casos, estar debidamente justificada y debe obedecer a un diagnóstico definido (binomio diagnóstico-tratamiento) de la clasificación internacional de enfermedades (CIE).

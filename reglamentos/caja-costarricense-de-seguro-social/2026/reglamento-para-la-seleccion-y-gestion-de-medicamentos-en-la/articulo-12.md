@@ -1,0 +1,4 @@
+Capítulo IV. Formulario Terapéutico Institucional (FTI)
+Artículo 12. Sobre el formulario terapéutico institucional.
+1. El formulario terapéutico institucional incluye los medicamentos aprobados para uso dentro de la institución. Estos medicamentos son seleccionados mediante un proceso técnico de evaluación de tecnologías sanitarias. Asimismo, el documento proporciona información regulatoria que respalda el uso racional de los medicamentos, mediante lineamientos específicos de aplicación.
+2. Este formulario constituye un subconjunto del Formulario Terapéutico Nacional, una herramienta normativa elaborada por el Ministerio de Salud a través del Comité Técnico del Formulario Terapéutico Nacional. Dicho formulario nacional incluye los medicamentos recomendados para los servicios públicos de salud.

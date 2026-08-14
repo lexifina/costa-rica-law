@@ -1,0 +1,2 @@
+Capítulo VIII. Vigilancia de medicamentos: seguridad
+Artículo 37. Farmacovigilancia. La Dirección de Farmacoepidemiología es la responsable de mantener el enlace con el Centro Nacional de Farmacovigilancia del Ministerio de Salud de Costa Rica, lo que permite el abordaje institucional de las notificaciones relacionadas con sospechas de reacciones adversas y fallas terapéuticas, según sea necesario. Asimismo, brindar apoyo activo al desarrollo de actividades de farmacovigilancia en concordancia con las notificaciones, señales y alertas previamente identificadas.

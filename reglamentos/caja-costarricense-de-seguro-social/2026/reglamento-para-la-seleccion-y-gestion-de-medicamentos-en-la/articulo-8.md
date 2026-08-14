@@ -1,0 +1,3 @@
+Artículo 8. Codificación.
+1. Todo medicamento que se gestione en la CCSS debe tener un código único de identificación dentro del Catálogo de Bienes y Servicios de la Institución; a excepción de los medicamentos "yo también" que comparten código, que le permita tener una trazabilidad, y facilite la generación de indicadores de diversa índole para la toma de decisiones a nivel local, regional, sectorial o institucional.
+2. Es responsabilidad de la(s) entidad(es) competente(s) establecer los procedimientos para asignar la codificación a cada medicamento autorizado para su uso institucional e informarlo al Catálogo de Bienes y Servicios de la Institución.

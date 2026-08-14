@@ -1,0 +1,3 @@
+Capítulo X. Varios
+Artículo 39. Venta de medicamentos a entes externos a la Caja Costarricense de Seguro Social. El artículo 71 de la Ley Constitutiva de la CCSS preceptúa -ente otras cosas- que la Institución podrá vender a las entidades del Sector Salud, públicas y privadas, nacionales o extranjeras, y a personas particulares, aquellos medicamentos que no estén disponibles en el mercado farmacéutico nacional, para cubrir la necesidad de tratamiento prescrito por un médico, siempre y cuando no se vean afectadas las existencias para el consumo regular de la Institución.
+La venta de medicamentos no disponibles en el mercado privado se rige según lo establecido por documento normativo institucional vigente para la venta de medicamentos a entes externos.

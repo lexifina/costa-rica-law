@@ -1,0 +1,5 @@
+Capítulo VII. Stock de medicamentos y vacunas
+Artículo 36. Stock de medicamentos y vacunas.
+1. La Dirección de Farmacoepidemiología a través de sus áreas técnicas es la entidad encargada de seleccionar los medicamentos destinados a los stocks de atención de paro cardiorrespiratorio, secuencia rápida de intubación, maletín médico y de emergencias clasificados según tipo de unidad.
+2. La inclusión de nuevos medicamentos en un stock previamente aprobado por la Dirección de Farmacoepidemiología o sus áreas técnicas, así como la solicitud de un nuevo stock para un servicio adicional, deberá realizarse ante esta entidad siguiendo los procedimientos establecidos.
+3. Cada unidad debe planificar los requerimientos para el stock de vacunas incluidas en el Formulario Terapéutico Institucional, fundamentándose en un análisis realizado en colaboración con los responsables locales, regionales y nacionales del Programa Ampliado de Inmunizaciones (PAI), y siguiendo los procedimientos establecidos por dicho programa.
