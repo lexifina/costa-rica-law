@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE PUNTARENAS
+El Concejo Municipal en la Sesión Extraordinaria N°92, en su artículo 5° Inciso D, celebrada el día 16 de junio de 2025, aprueba:
+Reglamento de la Comisión Institucional de Ética y Valores de la Municipalidad de
+Puntarenas
+Introducción
+Mediante el Decreto Ejecutivo N.º 23944-JC, publicado en la Gaceta n.º 25 del 3 de febrero de 1995, se dispuso que, en cada ministerio e institución adscrita al Poder Ejecutivo, se conforme una Comisión de Ética y Valores e insta a las instituciones descentralizadas, empresas públicas y a los otros Poderes del Estado, a conformar las respectivas comisiones. Con base a lo anterior, la Municipalidad de Puntarenas conformo la Comisión Institucional de Ética y Valores en marzo del 2016 y la ratificó en diciembre 2020.
+Según el decreto de referencia el objetivo de las Comisiones Institucionales de Ética y Valores es promover la ética en el servicio y contribuir a la eficiencia en el sector público. Con ese objetivo, la Comisión Nacional Rescate de Valores, les asigna a las comisiones y unidades la tarea de conducir técnicamente la gestión ética en sus respectivas instituciones con el liderazgo y la responsabilidad del jerarca, los titulares subordinados y la participación de toda la administración activa. Las Normas de Control Interno para el Sector Público, emitidas por la Contraloría General de la República, disponen en cuanto al ambiente de control para el fortalecimiento de la ética: “El jerarca y los titulares subordinados, según sus competencias deben propiciar el fortalecimiento de la ética en la gestión, mediante la implantación de medidas e instrumentos formales y la consideración de elementos informales que conceptualicen y materialicen la filosofía, los enfoques, el comportamiento y la gestión ética de la institución, y que conlleven la integración de la ética a los sistemas de gestión” (Norma 2.3).
+Reglamento de funcionamiento de la Comisión Institucional de Ética y Valores de la Municipalidad de Puntarenas
+Artículo 1.- Objetivo
+Con base en los Lineamientos para las Comisiones institucionales de ética y valores en la gestión ética de la Comisión Nacional de Ética y Valores, el presente reglamento regula la
+organización y funcionamiento de la Comisión Institucional de Ética y Valores de la Municipalidad de Puntarenas.

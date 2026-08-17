@@ -1,0 +1,3 @@
+Artículo 17.- Juramentación
+La juramentación de las personas integrantes de la CIEV es un acto solemne que se lleva a cabo en la institución de forma presencial o virtual según sea requerido. Es realizada por el jerarca de la organización, en presencia de una persona representante de la Junta Directiva y de la Dirección Ejecutiva de la CNEV.
+En este acto el Jerarca reafirma el compromiso con conducción de la gestión ética y de apoyo a la comisión institucional. Los miembros de la CIEV hacen la declaración del compromiso asumido expresa y solemnemente en el cumplimiento los deberes para la conducción técnica de la gestión ética de la Institución.

@@ -1,0 +1,2 @@
+Artículo 3.- Marco Normativo
+El presente reglamento se fundamenta en los Lineamientos para las Comisiones institucionales de ética y valores en la gestión ética emitido por la Comisión Nacional de Ética y Valores aprobados mediante acuerdo unánime de la Junta Directiva de la CNEV, en la SO Nº 06-2014, celebrada el 13 de mayo de 2014, en Artículo Tercero, Inciso #3.2; actualizados y ratificados en la SO Nº05-2018, celebrada el 14 de mayo de 2018 en Artículo Segundo, Inciso #2.1
