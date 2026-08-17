@@ -1,0 +1,5 @@
+Artículo 2.- Se instruye la aplicación del Salario Global que se establece mediante la presente Directriz, para que las personas que ocupen puestos con las siguientes clasificaciones propias del Manual de Clases de Puestos de la Unidad Especial de Intervención del Ministerio de la Presidencia y pertenecientes a la familia contemplada en el inciso c) del artículo 13 de la Ley Marco de Empleo Público, conformada por “Personas servidoras públicas que se desempeñan en funciones policiales”, se les remunere según el monto global establecido para dichas clases de puestos, en estricto apego a las disposiciones contenidas en la Ley Marco de Empleo Público y en los artículos 36 y 37 de su Reglamento, Decreto Ejecutivo N.° 43952-PLAN de 28 de febrero de 2023, y en las regulaciones legales vigentes en materia del régimen de Disponibilidad que contemplen la disposición de pago correspondiente:
+Clase de puesto | Salario Global (en colones) | Salario Global en puestos con Disponibilidad (en colones)
+Oficial Jefe de Operaciones | 1.927.274 | 2.009.480
+Oficial Jefe de Departamento | 1.571.048 | 1.653.254
+Oficial Jefe de Sección | 1.255.925 | 1.338.131
