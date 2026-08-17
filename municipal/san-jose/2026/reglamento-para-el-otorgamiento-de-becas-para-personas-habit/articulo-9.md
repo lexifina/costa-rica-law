@@ -1,0 +1,3 @@
+Artículo 9.- Plazo de otorgamiento y nueva solicitud de la beca.
+La beca se otorgará por un período máximo de un año. Las personas que hayan sido beneficiarias en períodos anteriores y deseen postularse nuevamente al beneficio deberán realizar el trámite completo de solicitud, conforme a lo dispuesto en el numeral que regula este aspecto en el presente reglamento, sometiéndose al proceso de selección anual en igualdad de condiciones con las demás personas solicitantes.
+El otorgamiento de la beca en períodos anteriores no constituye un derecho adquirido ni implica garantía alguna de asignación para períodos futuros.

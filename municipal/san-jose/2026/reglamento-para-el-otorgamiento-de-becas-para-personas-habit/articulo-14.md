@@ -1,0 +1,2 @@
+Artículo 14.- Sobre el uso del beneficio: Las personas becadas, cada año, finalizado el ciclo lectivo o finalizado el programa de formación o de Capacitación para el trabajo y durante el proceso de renovación, deben presentar ante el departamento municipal competente las evidencias que respalden el plan de trazabilidad.
+El departamento municipal competente a través de su plan de trazabilidad evidenciará el alcance del beneficio para asegurar que la persona beneficiaria cumpla con los objetivos de la beca y haga un uso adecuado del recurso otorgado.
