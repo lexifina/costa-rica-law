@@ -17,12 +17,8 @@ vii) Unidad de Asuntos Internacionales
 viii) Unidad de Asuntos Legislativos
 ix) (Suprimido mediante acuerdo N° DH-A-2758-2024 del 4 de noviembre del 2024)
 x) Unidad de Mecanismo Nacional de Supervisión de la Convención sobre los Derechos de las Personas con Discapacidad por el Estado de Costa Rica
-b) Consejo de las Personas Habitantes y de las Personas Funcionarias
-c) Auditoría Interna
-d) Dirección Administrativa
-i) Departamento Financiero-Contable
-ii) Departamento de Recursos Humanos
-iii) Departamento de Proveeduría y Servicios Generales
+xi) Observatorio Nacional de Derechos Humanos
+(Así adicionado el inciso anterior mediante acuerdo Crea el Observatorio Nacional de Derechos Humanos, en adelante ONADH, publicado en el Alcance Digital N° 107 a La Gaceta N° 154 del 17 de agosto del 2026)
 iv) Departamento de Archivo y Correspondencia
 e) Dirección de Admisibilidad
 f) Direcciones de Defensa
