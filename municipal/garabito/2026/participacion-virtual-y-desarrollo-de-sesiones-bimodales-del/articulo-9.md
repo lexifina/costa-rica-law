@@ -1,0 +1,1 @@
+Artículo 9º—Justificación de ausencias. Las ausencias derivadas de imposibilidad técnica o causas de fuerza mayor deberán justificarse mediante correo electrónico dirigido a la Secretaría Técnica, dentro del plazo máximo de dos días posteriores a la sesión.

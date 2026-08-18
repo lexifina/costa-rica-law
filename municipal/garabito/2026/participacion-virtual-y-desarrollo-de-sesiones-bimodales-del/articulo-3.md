@@ -1,0 +1,2 @@
+Artículo 3º—Identificación y control de asistencia. Para efectos de control de asistencia y verificación de quórum, las personas participantes en modalidad virtual deberán mantener su cámara encendida al inicio de la sesión y durante los procesos de votación.
+La Secretaría Técnica llevará el registro de asistencia diferenciando entre participación presencial y virtual, dejando constancia en el acta respectiva.

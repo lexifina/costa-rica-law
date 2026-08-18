@@ -1,0 +1,1 @@
+Artículo 7º—Registro y respaldo. Las sesiones desarrolladas bajo modalidad virtual o bimodal podrán ser grabadas como mecanismo de respaldo para la elaboración del acta, sin que dicha grabación sustituya el acta oficial.

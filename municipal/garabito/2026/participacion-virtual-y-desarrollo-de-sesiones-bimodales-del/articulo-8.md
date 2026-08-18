@@ -1,0 +1,2 @@
+Artículo 8º—Responsabilidad institucional. Cada institución será responsable de garantizar que su representante cuente con los medios tecnológicos necesarios para su participación efectiva, conforme a lo dispuesto en el artículo 7 inciso g) del reglamento.
+La imposibilidad de conexión por causas atribuibles a la institución no exime de la responsabilidad de asistencia, debiendo justificarse conforme a lo establecido reglamentariamente.

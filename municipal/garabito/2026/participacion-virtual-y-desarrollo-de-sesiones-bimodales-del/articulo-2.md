@@ -1,0 +1,2 @@
+Artículo 2º—Plataforma y acceso. Las sesiones se realizarán mediante la plataforma tecnológica que designe la Secretaría Técnica, la cual será comunicada junto con la convocatoria oficial, agenda y enlace de acceso, con al menos ocho días de anticipación.
+El enlace de acceso será de uso exclusivo para las personas representantes acreditadas, quienes deberán ingresar utilizando su nombre completo y la institución que representan.

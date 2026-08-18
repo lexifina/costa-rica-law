@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia. La presente directiva rige a partir de su aprobación por el CCCI-Garabito y constituye un instrumento complementario de aplicación obligatoria para todas las instituciones miembros.
