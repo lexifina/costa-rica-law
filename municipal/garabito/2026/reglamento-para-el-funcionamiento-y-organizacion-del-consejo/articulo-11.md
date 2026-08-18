@@ -1,0 +1,2 @@
+Artículo 11.—De las responsabilidades por incumplimiento. En caso de ausencia injustificada en dos ocasiones consecutivas a sesiones ordinarias, se considerará incumplimiento como miembro activo del CCCI GARABITO y por lo tanto este Concejo informará al superior inmediato.
+La Secretaría Técnica del CCCI-GARABITO remitirá a la Alcaldía un informe de las ausencias injustificadas según las sesiones convocadas.

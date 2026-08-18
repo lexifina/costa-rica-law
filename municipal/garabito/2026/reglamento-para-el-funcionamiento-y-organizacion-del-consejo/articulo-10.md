@@ -1,0 +1,5 @@
+Artículo 10.—De la invitación o solicitud de audiencia por parte de organizaciones sociales, especialistas y/o ciudadanos a sesiones ordinarias o extraordinarias. La Alcaldía o el pleno del CCCI podrán invitar o dar audiencia a organizaciones sociales, especialistas y/o ciudadanos (cuando se requiera) a sesiones ordinarias o extraordinarias, con el objetivo de analizar temas o proyectos de interés.
+Para la solicitud de audiencia por parte de organizaciones sociales, especialistas y/o ciudadanos a sesiones ordinarias o extraordinarias, se deberá:
+1. Remitir una nota solicitando audiencia en el CCCI-GARABITO, dirigida a la Alcaldía Municipal, en la cual deberá indicar el tema principal a exponer, el nombre de la persona expositora y un medio para notificaciones.
+2. La nota puede remitirse vía correo electrónico o físicamente.
+3. Los temas o proyectos para presentarse de interés para el CCCI-GARABITO deberán tener una vinculación hacia la mejora en las políticas públicas de naturaleza local o de las líneas de acción del PDHC vigente.

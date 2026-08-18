@@ -1,0 +1,1 @@
+Artículo 8º—Quórum. El CCCI-GARABITO deberá sesionar con un mínimo de diez miembros, en caso de no existir la asistencia mínima se deberá dar un plazo de treinta minutos para iniciar con los presentes, los cuales serán como mínimo siete representantes institucionales.
