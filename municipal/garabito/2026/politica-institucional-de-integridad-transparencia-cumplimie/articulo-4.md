@@ -1,0 +1,1 @@
+Artículo 4º—Declaratoria institucional. La Municipalidad de Garabito declara como política institucional permanente las cero tolerancias frente a cualquier acto de corrupción, conflicto de interés, fraude organizacional, favorecimiento indebido, uso inadecuado de recursos públicos, abuso de autoridad o cualquier conducta contraria al deber de probidad.

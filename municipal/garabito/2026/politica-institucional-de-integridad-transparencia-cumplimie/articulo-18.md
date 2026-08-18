@@ -1,0 +1,18 @@
+Artículo 18.—Evaluación y mejora continua. La presente política será objeto de evaluación periódica mediante:
+a. Autoevaluaciones institucionales.
+b. Informes de seguimiento.
+c. Evaluación de indicadores.
+d. Planes de mejora.
+e. Actualización de riesgos institucionales.
+VALORACIÓN TÉCNICA DE CONTROL INTERNO –
+GESTIÓN DE CALIDAD – MEJORA CONTINUA –
+GESTIÓN DE RIESGO – FORTALECIMIENTO
+INSTITUCIONAL - IMPLEMENTACIÓN DEL SEVRI –
+VIABILIDAD TÉCNICA Y OPERATIVA
+La Política guarda plena conformidad con los artículos 8 y 10 de la Ley N° 8292, que establecen las obligaciones del jerarca y de los titulares subordinados en materia de control interno. El artículo 10 del instrumento refuerza las autoevaluaciones institucionales, las matrices de riesgos y el seguimiento administrativo como componentes del sistema de control interno. Se valora positivamente la declaratoria de cero tolerancias del artículo 4 como fundamento ético-normativo del ambiente de control institucional. El instrumento presenta adecuada estructura normativa, distribuida en seis capítulos con articulado claro. El artículo 1 delimita con precisión su objeto y el artículo 2 establece un alcance personal amplio. Se identifica como área de oportunidad la incorporación de un glosario de términos técnicos que facilite la comprensión uniforme de conceptos como probidad, conflicto de interés, fraude organizacional y riesgo de corrupción.
+El artículo 18 prevé evaluación periódica mediante autoevaluaciones, informes de seguimiento, evaluación de indicadores y planes de mejora. No obstante, no se establece la periodicidad de dichas evaluaciones ni el órgano formal responsable de recibirlas. Se recomienda precisar plazos y canales de reporte en el Plan de Acción contemplado en el artículo 17.
+El artículo 9 incorpora la obligatoriedad de incluir el análisis de riesgos de corrupción dentro del SEVRI, identificando ocho áreas de proceso vulnerables (contratación pública, permisos, inspecciones, gestión financiera, recursos humanos, Zona Marítimo Terrestre, ayudas sociales y uso de activos). Esta taxonomía de riesgos específica al contexto de Garabito constituye una fortaleza técnica relevante y diferenciada.
+El artículo 12 establece mecanismos de denuncia con registro, trazabilidad y seguimiento.
+Los artículos 8 y 10 refuerzan la transparencia activa y la trazabilidad como principios operativos. Se recomienda que el Plan de Acción del artículo 17 incorpore indicadores específicos de seguimiento documental que puedan ser medidos y reportados periódicamente.
+La Política contribuye al fortalecimiento institucional mediante siete ejes estratégicos (artículos 7 a 13) que cubren ética, transparencia, rendición de cuentas, gestión de riesgos, control interno, participación ciudadana, mecanismos de denuncia y capacitación. La distribución de responsabilidades entre Alcaldía (artículo 14), jefaturas (artículo 15) y Comisión de Control Interno (artículo 16) es técnicamente adecuada. El artículo 9 establece explícitamente la obligación de incorporar riesgos de corrupción al SEVRI. Esta disposición es coherente con la Directriz N° 001-2026-FGM y la Estrategia 2026-2030, generando consistencia entre los instrumentos. Se recomienda que la Política haga referencia expresa a la metodología SEVRI y a la responsabilidad de la Comisión de Control Interno en el seguimiento de las matrices.
+La Política es de naturaleza marco y no requiere recursos adicionales significativos para su aprobación. Su implementación efectiva dependerá del Plan de Acción institucional previsto en el artículo 17. Se recomienda que dicho Plan incluya presupuestación específica para las acciones de capacitación, digitalización y fortalecimiento de mecanismos de denuncia.
