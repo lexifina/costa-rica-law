@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguense todas aquellas disposiciones reglamentarias que se opongan a la presente reforma, en particular las referencias a comités corporativos cuya denominación o funciones hayan sido integradas o sustituidas conforme a esta nueva estructura.
