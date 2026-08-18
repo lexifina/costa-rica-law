@@ -10,10 +10,8 @@ IV.—Que como uno de los rubros del gasto público, se encuentra el monto desti
 V.—Que la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131, en su artículo 33 dispone que: “... el proceso presupuestario se iniciará con la planificación operativa que cada órgano y entidad debe realizar en concordancia con los planes de mediano y largo plazo, las políticas y los objetivos institucionales definidos para el período, los asuntos coyunturales, la política presupuestaria y los lineamientos que se dicten para el efecto...”.
 VI.—Que para la consecución de sus fines y objetivos, el Ministerio de Seguridad Pública debe establecer normas claras y precisas para el buen funcionamiento de sus dependencias. Dentro de ese contexto, debe regular el uso de sus recursos, y en el caso concreto, determinar sus necesidades para la aprobación del pago de horas extraordinarias a los servidores policiales. Toda decisión al respecto debe ajustarse al ordenamiento jurídico vigente, la jurisprudencia, y los principios doctrinarios que rigen la materia, y facilitar la comprobación de la razonabilidad del gasto público, con el propósito de lograr un sano aprovechamiento de este recurso. Por tanto,
 Decretan:
-Reglamento para la Autorización y Reconocimiento
-del Tiempo Extraordinario a los Servidores
-Policiales en el Ministerio de
-Seguridad Pública
+Reglamento para la autorización y reconocimiento del tiempo extraordinario a las personas servidoras públicas policiales del Ministerio de Seguridad Pública
+(Así modificado su título por el artículo 1° del decreto ejecutivo N° 45913 del 18 de agosto de 2026. Anteriormente se indicaba: “Reglamento para la Autorización y Reconocimiento del Tiempo Extraordinario a los Servidores Policiales en el Ministerio de Seguridad Pública”)
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Objeto. El presente Reglamento tiene por objeto establecer las disposiciones de acatamiento obligatorio para la autorización y reconocimiento del tiempo extraordinario de los funcionarios policiales del Ministerio de Seguridad Pública, así como aquellos que brinden sus servicios en virtud de acuerdos, convenios o resoluciones administrativas que determinen el préstamo de sus plazas policiales a favor de esta Institución.

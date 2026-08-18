@@ -14,3 +14,4 @@ Reglamento para la autorización y reconocimiento del tiempo extraordinario a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-16 | la propia norma |
+| 2 | 2026-08-18 | Decreto Ejecutivo 45913 (2026-08-18) |
