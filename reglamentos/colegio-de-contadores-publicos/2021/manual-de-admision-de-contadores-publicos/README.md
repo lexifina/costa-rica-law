@@ -15,3 +15,4 @@ Manual de admisión de contadores públicos
 | --- | --- | --- |
 | 1 | 2021-11-30 | la propia norma |
 | 2 | 2026-07-21 | Reglamento 13 (2026-07-21) |
+| 3 | 2026-08-18 | Reglamento 14 (2026-08-18) |
