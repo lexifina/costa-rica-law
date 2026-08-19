@@ -1,0 +1,1 @@
+Artículo 3º—Las futuras modificaciones y actualizaciones del citado instrumento se validarán y oficializarán mediante un Informe Técnico que emitirá el Área de Organización del Trabajo y Compensaciones.

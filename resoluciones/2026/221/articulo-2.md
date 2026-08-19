@@ -1,0 +1,1 @@
+Artículo 2º—Aprobar la emisión y aplicación del documento anexo, denominado “Dominio de Competencias por Clase-Título IV”, que contiene las competencias y niveles de dominio correspondientes para su utilización en los procesos de recursos humanos, aplicables al Régimen Artístico del ESC.
