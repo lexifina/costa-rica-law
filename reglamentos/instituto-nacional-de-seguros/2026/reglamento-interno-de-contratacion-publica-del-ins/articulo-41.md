@@ -1,0 +1,2 @@
+Artículo 41. Informe de aprobación o rechazo del equipo especializado.
+La unidad usuaria deberá rendir informe escrito de aprobación o rechazo del equipo o activo recibido, el que estará dirigido al Departamento de Proveeduría con copia al Centro de Distribución y Logística, dentro de los tres días hábiles siguientes al recibo del activo. Este plazo podrá ser ampliado mediante solicitud razonada de la unidad usuaria al Departamento de Proveeduría, cuando medien razones técnicas o de excesiva complejidad.
