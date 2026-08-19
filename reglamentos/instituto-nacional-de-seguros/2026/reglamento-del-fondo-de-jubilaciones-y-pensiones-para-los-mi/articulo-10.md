@@ -1,0 +1,1 @@
+Artículo 10. Inversiones. La Dirección de Inversiones y Tesorería mantendrá invertidos los recursos del Fondo de la forma cuidadosa, rentable y segura que exige su naturaleza, en aplicación de la normativa interna y externa emitida sobre el tema, y será responsable por la gestión. La Instancia del Fondo estará obligada a suministrar la información requerida por la SUPEN.
