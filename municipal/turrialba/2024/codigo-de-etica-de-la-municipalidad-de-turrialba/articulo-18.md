@@ -1,0 +1,1 @@
+Artículo 18º. Todo funcionario de la Municipalidad deberá implementar los controles internos que garanticen la salvaguarda de los recursos, dados en custodia, reconociendo su naturaleza de bien público, sujeto a rendición de cuentas. Para el uso de activos y otros recursos institucionales se respetará la reglamentación interna existente.

@@ -1,0 +1,1 @@
+Artículo 8º. El liderazgo en la institución se basa en los valores universalmente aceptados por lo tanto el buen ejemplo se convierte en el sostén fundamental del Jerarca y Titulares Subordinados a la hora de ejercer su autoridad.

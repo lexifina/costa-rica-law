@@ -1,0 +1,1 @@
+Artículo 26º Promover, internamente en la institución y con la sociedad en general, procedimientos periódicos de rendición de cuentas (informe de fin de gestión) con el fin de colaborar con el país en el esfuerzo por crear una cultura de la transparencia y rendición de cuentas.

@@ -1,0 +1,1 @@
+Artículo 27º Promover, internamente en la institución, una cultura organizacional basada en los valores y principios plasmados en este Código de Ética y velar por que su cumplimiento sea el resultado de la convicción propia de los trabajadores y no actos meramente disciplinarios.

@@ -1,0 +1,1 @@
+Artículo 7º. La Administración garantizará a través de acciones concretas, efectivas, la no tolerancia a actuaciones que riñan contra la moral, dentro o fuera de las instalaciones. Los funcionarios no deben de permitir estas actuaciones ya que en caso contrario se considerarán partícipes pasivos de los actos.

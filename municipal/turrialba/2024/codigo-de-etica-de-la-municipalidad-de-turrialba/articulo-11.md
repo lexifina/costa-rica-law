@@ -1,0 +1,1 @@
+Artículo 11º En lo que se refiere a la atención al cliente, se debe proporcionar los servicios de la máxima calidad, de acuerdo con las especificaciones establecidas. Serán tratados con respeto, amabilidad y honradez en todos los aspectos de las transacciones, se brindará solución a sus reclamos y se procurará satisfacer sus necesidades según la normativa vigente.
