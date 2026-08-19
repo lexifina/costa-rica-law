@@ -14,3 +14,4 @@ Reglamento para el uso de los recursos tecnológicos de información y comunicac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-03-24 | la propia norma |
+| 2 | 2026-08-19 | Reglamento municipal 0 (2026-08-19) |
