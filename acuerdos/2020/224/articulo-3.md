@@ -1,7 +1,8 @@
-Artículo 3. Medidas de debida diligencia reforzada. Las medidas de DDC reforzada corresponden a las medidas aplicables a situaciones donde se identifica a los clientes clasificados de riesgo alto, según el modelo de clasificación de riesgo de clientes del sujeto obligado, así como por cualquiera otra situación donde se identifique un mayor riesgo de LA/FT y que, por ello, deban aplicarse las medidas de debida diligencia general, descritas en la Normativa para el cumplimiento de la Ley 8204, así como las medidas adicionales de mitigación, proporcionales al riesgo detectado, dentro de las cuales podrán aplicarse, de manera no limitada, las siguientes:
-a Obtener información adicional sobre el cliente (v.gr., la ocupación, volumen de activos, información disponible a través de bases de datos públicas, Internet), actualizando, de forma más regular, los datos de identificación del cliente y beneficiario final.
-b Obtener información adicional sobre la naturaleza de las relaciones comerciales del cliente.
-c Obtener documentación fehaciente sobre el origen de recursos del cliente.
-d Obtener información sobre las causas de las transacciones previstas o realizadas.
-e Obtener la aprobación de la alta gerencia para comenzar o continuar la relación contractual.
-f Realizar un monitoreo continúo y ampliado de la transaccionalidad del afiliado y seleccionar patrones de transacciones que requieran un examen más detallado.
+Artículo 3°—Medidas de debida diligencia reforzada. Las medidas de debida diligencia reforzada serán aplicables a los clientes clasificados como de riesgo alto, conforme al modelo de clasificación de riesgo del sujeto obligado, así como en cualquier otra situación en la que se identifique un mayor riesgo de LC/FT/FPADM.
+En estos casos, las entidades deberán aplicar las medidas de debida diligencia general establecidas en el Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786, así como medidas adicionales de mitigación proporcionales al riesgo identificado, dentro de las cuales podrán incluirse, de manera enunciativa y no limitativa, las siguientes:
+a) Obtener información adicional sobre el cliente, tales como ocupación, volumen de activos e información disponible en bases de datos públicas o fuentes abiertas, actualizando con mayor frecuencia los datos de identificación del cliente y del beneficiario final.
+b) Recabar información adicional sobre la naturaleza y finalidad de la relación contractual.
+c) Obtener documentación fehaciente que respalde el origen de los recursos del cliente.
+d) Obtener información sobre la justificación y propósito de las transacciones previstas o realizadas.
+e) Obtener la aprobación expresa de la alta gerencia para el inicio o la continuidad de la relación contractual.
+f) Implementar un monitoreo continuo, intensificado y ampliado de la transaccionalidad, definiendo patrones de operación que requieran un análisis más detallado.

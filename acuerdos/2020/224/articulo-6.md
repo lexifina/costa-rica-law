@@ -1,8 +1,2 @@
-Artículo 6. Acciones derivadas de la supervisión de la SUPEN. La Superintendencia de Pensiones podrá, en cualquier tiempo, ordenar la suspensión de la supervisión diferenciada, de forma que se aplique, en forma plena e incondicional, la normativa aplicable y vigente al momento, o bien exigir medidas de debida diligencia reforzada para determinadas cuentas, afiliados o pensionados.
-Rige seis meses después de su publicación en el diario oficial La Gaceta.
-c/
-Consejo Nacional de Supervisión del Sistema Financiero, Presidencia
-Superintendencia General de Entidades Financieras, Superintendente
-Superintendencia General de Valores, Superintendente
-Superintendencia General de Seguros, Superintendente
-Aprobado por PRF
+A Artículo 6.—Acciones derivadas de la supervisión de la SUPEN. La Superintendencia de Pensiones podrá, en cualquier momento, ordenar la suspensión de la aplicación de medidas de supervisión diferenciada, disponiendo la aplicación plena e incondicional de la normativa vigente, o bien exigir la adopción de medidas de debida diligencia reforzada respecto de determinadas cuentas, afiliados o pensionados, cuando así lo estime necesario en función del riesgo identificado.
+Asimismo, en el marco de los procesos de supervisión basada en riesgos, la Superintendencia de Pensiones podrá requerir a los sujetos obligados información agregada sobre la aplicación del esquema de debida diligencia diferenciada, con el propósito de evaluar su efectividad y detectar posibles desviaciones en su implementación.

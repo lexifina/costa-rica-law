@@ -14,3 +14,4 @@ Lineamientos diferenciados para las entidades supervisadas por la Superintendenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-04 | la propia norma |
+| 2 | 2026-08-19 | Acuerdo 300 (2026-08-19) |
