@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de aplicación. Tendrán derecho a percibir el incentivo por Carrera Artística únicamente aquellas personas funcionarias del Régimen Artístico, que se mantengan bajo el esquema de salario compuesto, y a quienes la Comisión Artística les haya otorgado, al menos, el grado de “Artista Posicionado” en cualquiera de las clases vigentes.

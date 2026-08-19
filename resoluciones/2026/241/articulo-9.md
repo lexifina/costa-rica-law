@@ -1,0 +1,1 @@
+Artículo 9º—El otorgamiento y pago del incentivo de Carrera Artística para el personal en salario compuesto estará sujeto, en todos los casos, a las reglas de transición, topes y congelamiento salarial establecidos en el Transitorio XI de la Ley N° 10159 (Ley Marco de Empleo Público) y los artículos 36, 37 y 38 de su reglamento General.

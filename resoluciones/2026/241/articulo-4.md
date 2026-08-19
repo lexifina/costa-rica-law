@@ -1,0 +1,1 @@
+Artículo 4º—La Carrera Artística se establece con la finalidad de promover y remunerar los méritos y trayectoria de las personas servidoras del Régimen Artístico, dentro de este campo de actividad y especificidad.

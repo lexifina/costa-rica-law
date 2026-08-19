@@ -1,0 +1,1 @@
+Artículo 3º—La Carrera Artística es un incentivo complementario a los grados artísticos, creado conforme a los “Criterios de Asignación de Créditos para Otorgamiento de Grados Artísticos y Puntaje para Carrera Artística”.

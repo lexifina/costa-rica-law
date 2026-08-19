@@ -1,0 +1,3 @@
+Artículo 7º—Para el reconocimiento económico del incentivo de Carrera Artística, se aplicará el siguiente procedimiento de cálculo a un monto nominal fijo:
+a) Se toma el salario base correspondiente del 1 de julio de 2018 asignado a la clase y grado artístico con que cuente la persona funcionaria, y se divide entre 100 (cien).
+b) El resultado obtenido en el inciso a) se multiplica por el número de puntos que le haya otorgado la Comisión Artística para efectos de Carrera Artística (que no hayan sido considerados para el Grado Artístico); dando como resultado una suma de colones (¢) por concepto de Carrera Artística.

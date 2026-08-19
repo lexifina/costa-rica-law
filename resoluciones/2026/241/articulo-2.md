@@ -1,0 +1,1 @@
+Artículo 2º—Tal y como lo indica el artículo 217 del Estatuto de Servicio Civil: Por carrera artística se entenderá la suma de logros y actividades de las personas servidoras públicas vinculadas al quehacer artístico y relacionado con su desarrollo, reconocimiento e inserción en el medio.
