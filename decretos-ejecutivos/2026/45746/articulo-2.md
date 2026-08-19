@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo N° 41594-MINAE. “Creación del Sistema de Reconocimientos Ambientales (SIREA)”. del 15 de enero de 2019. publicado en el Alcance N° 101 a La Gaceta N° 83 del 7 de mayo de 2019.
