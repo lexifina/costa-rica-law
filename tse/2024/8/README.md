@@ -14,3 +14,4 @@ Reglamento para la conformación y renovación de las estructuras partidarias, t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-26 | la propia norma |
+| 2 | 2026-08-19 | Decreto TSE 4 (2026-08-19) |
