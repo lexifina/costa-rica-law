@@ -1,0 +1,2 @@
+Transitorio II.—El Departamento de Recursos Humanos tendrá un plazo de tres meses para ajustar sus procedimientos internos a la nueva reglamentación. Durante ese lapso podrán seguirse reportando, como se ha hecho hasta el momento, las irregularidades de asistencia y puntualidad a las Direcciones Generales, repartos que, durante el trimestre de ajuste, serán las responsables de adecuar sus decisiones de instancias y recomendaciones a este Tribunal Supremo de Elecciones a la nueva normativa.
+Dado en San José, a los veintitrés días del mes de julio de dos mil veintiséis.—
