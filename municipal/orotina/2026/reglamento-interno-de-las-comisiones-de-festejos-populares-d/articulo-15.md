@@ -1,0 +1,2 @@
+Artículo 15.- Sesiones de las comisiones de festejos populares. Las comisiones de festejos populares se reunirán ordinariamente con la frecuencia y el día que para tales efectos acuerden y sin especial convocatoria, debiendo levantar un acta de cada sesión que se realice.
+Para reunirse extraordinariamente, será necesaria una convocatoria por el medio que la comisión designe, con una antelación mínima de veinticuatro horas, salvo casos de urgencia. En todo caso, quedará válidamente constituida la comisión cuando asistan todos sus miembros y así lo acuerden por unanimidad.

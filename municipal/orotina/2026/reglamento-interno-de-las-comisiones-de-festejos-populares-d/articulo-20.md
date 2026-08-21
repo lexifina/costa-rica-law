@@ -1,0 +1,1 @@
+Artículo 20.- Autorizaciones para la celebración de festejos populares. Para celebrar festejos populares en plazas o campos de deportes administrados el Comité Cantonal de Deportes y Recreación del Cantón de Orotina, la comisión deberá asegurarse de contar con la previa autorización de dicho órgano.

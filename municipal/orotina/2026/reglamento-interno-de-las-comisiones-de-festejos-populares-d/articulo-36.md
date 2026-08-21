@@ -1,0 +1,1 @@
+Artículo 36.- Reembolsos de caja chica. Todos los reembolsos de caja chica deberán respaldarse con justificantes que reúnan los requisitos establecidos en este reglamento. Los documentos de pago que se emitan para efectuar dichos reembolsos deberán girarse a nombre del Tesorero-Contador de la comisión.

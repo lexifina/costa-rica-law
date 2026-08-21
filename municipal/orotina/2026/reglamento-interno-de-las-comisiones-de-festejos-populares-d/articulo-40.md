@@ -1,0 +1,5 @@
+CAPÍTULO SEXTO
+Administración del fondo de caja chica.
+Para efectos de la selección de los procedimientos concursales que regula la Ley General de Contratación Pública, así como para la tramitación de los contratos sujetos a refrendo según el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública vigente.
+Artículo 40.- Respaldo de actuaciones y documentos relativos a procedimientos de contratación. De todos los procedimientos de contratación empleados por la comisión, deberá conformarse un expediente en el que consten los estudios previos que sustentan las contrataciones y original o copia de todas las actuaciones internas o externas de la comisión de festejos populares relacionadas con la contratación. El expediente deberá incorporar todos los documentos en el orden en que hayan sido aportados por los oferentes e interesados, o por la comisión.
+La responsabilidad por dichos expedientes recaerá en el Secretario o en el Tesorero-Contador, según lo designe la comisión de festejos populares.

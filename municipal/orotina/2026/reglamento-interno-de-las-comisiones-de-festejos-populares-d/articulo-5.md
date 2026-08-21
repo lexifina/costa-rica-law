@@ -1,0 +1,7 @@
+Artículo 5.- Integración de las comisiones de festejos populares. Las comisiones de festejos populares estarán integradas por un máximo de cinco miembros que serán nombrados por el Concejo Municipal de Orotina.
+Con la autorización de la Alcaldía, el Concejo Municipal podrá nombrar a funcionarios administrativos de la Municipalidad como miembros de las comisiones de festejos populares, quienes, por tal calidad, podrán gozar de las condiciones laborales necesarias para lograr el mejor desarrollo de la actividad a realizar.
+Los titulares de la Alcaldía, de las Vicealcaldías, las Regidurías y las Sindicaturas no podrán integrar las comisiones de festejos populares.
+Los miembros de las comisiones de festejos populares no disfrutarán de privilegio alguno por tales nombramientos.
+Cada comisión de festejos populares, de su seno, elegirá un Presidente, un Tesorero- Contador, un Secretario, un Vocal y un Fiscal, mediante el mecanismo que considere más conveniente.
+Una vez designada, la comisión de festejos populares, con la autorización del Concejo Municipal y previa verificación de viabilidad técnica, legal y financiera, podrá contratar el personal técnico y administrativo que sea conveniente y necesario.
+En los casos que una comisión de los festejos populares esté integrada por funcionarios municipales, queda facultada, previa autorización de la Alcaldía, para apoyarse en la estructura formal de la municipalidad, en áreas como asesoría jurídica, proveeduría, tesorería, contabilidad y otras necesarias para su buena marcha.

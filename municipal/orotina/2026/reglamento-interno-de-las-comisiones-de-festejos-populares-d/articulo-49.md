@@ -1,0 +1,1 @@
+Artículo 49.- Este reglamento deroga toda disposición reglamentaria anterior que se le oponga. Deroga también el Manual de Operaciones para las Comisiones de Festejos Populares de la Municipalidad de Orotina, publicado en La Gaceta No. 66 de 04 de abril de 2011.

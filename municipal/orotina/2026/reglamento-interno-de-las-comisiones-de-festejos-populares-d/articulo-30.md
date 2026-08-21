@@ -1,0 +1,1 @@
+Artículo 30.- Reintegro de recursos en razón de gastos rechazados por el Concejo Municipal. Para el caso correspondiente y en el tanto no exista dolo por parte de la comisión, se deberá contar con una póliza de entidad aseguradora para que haga frente a dicha responsabilidad.

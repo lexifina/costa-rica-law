@@ -1,0 +1,2 @@
+Artículo 24.- Adjudicación de puestos. La comisión efectuará la adjudicación de puestos mediante el procedimiento administrativo de contratación que mejor satisfaga el interés público, dejando en el expediente que se levante al efecto constancia de su razonamiento. Para tal efecto utilizará la Plataforma SICOP o la que esté vigente.
+La adjudicación de puestos, los contratos suscritos por la comisión con terceros y las posibles ventas de activos sobrantes, deberán ser cancelados en el acto yestrictamente al contado.

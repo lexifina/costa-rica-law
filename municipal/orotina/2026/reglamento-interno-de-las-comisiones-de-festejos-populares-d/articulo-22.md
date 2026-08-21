@@ -1,0 +1,3 @@
+Artículo 22.- Depósito y registro de ingresos. Todos los ingresos que se obtengan durante los festejos deberán ser depositados a más tardar el día hábil siguiente a su recepción, en la cuenta corriente bancaria que para tal efecto lleve la comisión.
+Dichos ingresos deben estar registrados y clasificados en el Mayor auxiliar de Ingresos a cargo del Tesorero-Contador (Formulario No. 2).
+Al efectuar los depósitos de los ingresos recaudados, el Tesorero-Contador deberá anotar en los comprobantes de ingreso, el número del comprobante de depósito bancario. Además, en el reverso de dicho comprobante, anotará el número de los comprobantes de ingresos que lo conforman.

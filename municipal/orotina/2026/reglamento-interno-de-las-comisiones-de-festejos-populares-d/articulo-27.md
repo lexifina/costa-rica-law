@@ -1,0 +1,1 @@
+Artículo 27.- Respaldo del gasto. Cada gasto deberá estar respaldado mediante justificante original, nítido, con membrete, debidamente cancelado, que cumpla con las disposiciones tributarias y extendido a nombre de la comisión. En cada comprobante de pago se indicará el recibido conforme de los bienes y servicios por parte del miembro que al efecto haya designado la comisión.

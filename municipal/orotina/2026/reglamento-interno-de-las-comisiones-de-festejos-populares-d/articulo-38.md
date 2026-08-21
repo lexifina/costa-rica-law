@@ -1,0 +1,1 @@
+Artículo 38.- Registro de operaciones. Para el registro de las operaciones, el Tesorero- Contador de cada comisión de festejos, deberán elaborar el respectivo detalle de cuentas contables que identifique adecuadamente todos los ingresos y egresos que se originen durante los festejos.

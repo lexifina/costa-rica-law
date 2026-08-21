@@ -1,0 +1,1 @@
+Artículo 28.- Responsabilidad de revisión previa de justificantes de gastos. Los miembros de la comisión autorizados para firmar los documentos de pago deberán revisar cuidadosamente los justificantes de gastos que los amparan, antes de la firma.

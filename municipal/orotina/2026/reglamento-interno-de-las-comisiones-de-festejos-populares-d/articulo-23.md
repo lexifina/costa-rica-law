@@ -1,0 +1,1 @@
+Artículo 23.- Comunicación a la comisión sobre los fondos y donaciones recibidos. Todos los fondos y las donaciones que perciba la comisión de festejos deberán ser comunicados por el Tesorero-Contador en la sesión próxima inmediata que realice la comisión, y deberán constar en el acta respectiva.

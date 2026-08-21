@@ -1,0 +1,5 @@
+Artículo 6.- Obligaciones de los miembros de las comisiones de festejos populares. Sin perjuicio de lo que establezca el Concejo Municipal, los miembros de las comisiones de festejos populares tendrán las siguientes obligaciones:
+a) La correcta administración de los fondos que se recauden en la realización de los festejos populares.
+b) Garantizar el adecuado funcionamiento de las actividades y eventos relativos a los festejos populares, con el propósito de obtener el mayor aprovechamiento de los recursos disponibles y alcanzar el máximo monto de utilidades que sea posible.
+c) Cumplir las normas establecidas en el presente reglamento, las leyes que rigen la materia y cualquier otra normativa interna emitida por el Concejo Municipal que sea complementaria; así como atender de manera pronta y cumplida los requerimientos de información que reciban del Concejo Municipal, la Auditoría Interna o la Contraloría General de la República, en el ejercicio de sus competencias.
+d) Asegurar el debido resguardo de toda la documentación que maneje la comisión en el ejercicio de sus funciones.
