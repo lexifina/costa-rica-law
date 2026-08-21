@@ -1,1 +1,0 @@
-Artículo 17.-La inclusión o exclusión de personas votantes del padrón la dispondrá el TEI, de conformidad con la información que le suministren oportunamente la Administración del Colegio y la Administración del Fondo de Mutualidad.

@@ -1,1 +1,0 @@
-Artículo 12.-El TEI estará integrado por cinco personas miembros propietarios y dos suplentes nombradas por la Junta Directiva, por un plazo de dos años. Todos y todas pueden ser reelectos por períodos iguales, para ocupar el mismo cargo, por una única vez.

@@ -1,1 +1,0 @@
-Artículo 30.-Queda prohibido a todas las personas funcionarias, o miembros de Junta Directiva, valerse de su posición o influencia para promover o permitir que las personas postulantes utilicen o se beneficien, de manera directa o indirecta, de los recursos y la información del Colegio. Las sanciones a las infracciones de dichos artículos corresponderán a la autoridad superior

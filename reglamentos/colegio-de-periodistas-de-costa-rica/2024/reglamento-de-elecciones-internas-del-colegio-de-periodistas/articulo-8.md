@@ -1,1 +1,0 @@
-Artículo 8.-En la publicación de la convocatoria para asamblea ordinaria o extraordinaria, deberá indicarse claramente la hora y fecha. Asimismo, el TEI deberá fijar, de manera específica, además de los requisitos establecidos en este reglamento para la inscripción de candidaturas, cualquier otra disposición requerida para la buena marcha del proceso.

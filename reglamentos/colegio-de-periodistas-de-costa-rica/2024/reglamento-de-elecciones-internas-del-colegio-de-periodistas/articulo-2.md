@@ -1,1 +1,0 @@
-Artículo 2º-Corresponde a la Asamblea General elegir a las personas miembros de la Junta Directiva y Fiscalía, lo mismo que la Fiscalía del Fondo de Mutualidad. La elección puede ser mediante asamblea ordinaria o extraordinaria.
