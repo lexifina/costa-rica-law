@@ -14,3 +14,4 @@ Reglamento para ayudas temporales y subvenciones del Cantón de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-11-28 | la propia norma |
+| 2 | 2026-08-21 | Reglamento municipal 164 (2026-07-03) |

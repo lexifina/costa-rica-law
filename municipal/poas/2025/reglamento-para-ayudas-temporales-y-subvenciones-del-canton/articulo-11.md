@@ -1,1 +1,1 @@
-Artículo 11.-La Administración dispondrá un plazo de diez días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio del Área de Desarrollo Social o Área Tributaria, para la emisión de la recomendación final a la Alcaldía Municipal para su resolución final.
+Artículo 11.-La Administración dispondrá un plazo de ocho días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio del Área de Desarrollo Social o Área Tributaria, para la emisión de la recomendación final a la Alcaldía Municipal para su resolución final.
