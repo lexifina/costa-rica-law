@@ -1,0 +1,1 @@
+Artículo 35.—El TEI dispondrá y organizará la votación electrónica, la cual deberá celebrarse entre las 8:00 a.m. a las 5:00 p.m. No se permitirá la divulgación de cortes parciales que puedan afectar el proceso electoral.

@@ -1,0 +1,1 @@
+Artículo 37.—El TEI dispondrá de un centro de atención telefónica cuyo personal estará constituido por personas auxiliares electorales debidamente capacitadas, para orientar a las personas colegiadas que presenten dificultades a la hora de ejercer su voto.

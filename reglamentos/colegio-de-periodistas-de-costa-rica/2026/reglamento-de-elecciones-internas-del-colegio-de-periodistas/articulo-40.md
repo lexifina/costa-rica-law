@@ -1,0 +1,1 @@
+Artículo 40.—Para ejercer el voto electrónico, la persona electora deberá cumplir con los mecanismos de seguridad que determine el TEI, acorde con el programa informático que se utilice. El sistema verificará los datos en el padrón y posteriormente podrá emitir el voto.

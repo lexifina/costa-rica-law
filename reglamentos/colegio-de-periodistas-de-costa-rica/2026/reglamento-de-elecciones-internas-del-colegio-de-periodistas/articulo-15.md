@@ -1,0 +1,2 @@
+Artículo 15.—Las decisiones del TEI tendrán recurso de revocatoria, el cual deberá interponerse dentro del tercer día hábil siguiente a la comunicación del acto impugnado. El recurso deberá estar fundamentado, bajo pena de inadmisibilidad, y tendrá que presentarse ante la Secretaría del Tribunal. El TEI resolverá, dentro de las siguientes 48 horas hábiles.
+De presentarse el recurso el día de las elecciones, el TEI conocerá y resolverá lo que corresponda, antes de comunicar el resultado de la elección.

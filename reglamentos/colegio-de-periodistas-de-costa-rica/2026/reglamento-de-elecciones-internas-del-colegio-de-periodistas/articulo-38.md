@@ -1,0 +1,1 @@
+Artículo 38.—Al finalizar la jornada electoral electrónica, el TEI y las fiscalías electorales supervisarán los resultados, junto con la persona experta responsable del sistema de voto electrónico, quien extraerá el reporte final de las elecciones.

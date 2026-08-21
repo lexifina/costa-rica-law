@@ -1,0 +1,1 @@
+Artículo 14.—El TEI establecerá todo lo referente al diseño de la papeleta electrónica, incluidas las fotografías, los puestos y los nombres de las personas aspirantes, de común acuerdo con los grupos participantes en el proceso. Las papeletas deberán asegurar el voto de la persona electora de forma inequívoca.

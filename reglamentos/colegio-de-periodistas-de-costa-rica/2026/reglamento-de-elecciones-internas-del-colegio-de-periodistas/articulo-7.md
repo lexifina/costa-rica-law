@@ -1,0 +1,1 @@
+Artículo 7º—En elecciones extraordinarias, la Junta Directiva del Colegio, junto con el TEI, tomarán el acuerdo de convocatoria y ordenarán la publicación en forma inmediata, respetando el procedimiento establecido en este reglamento. Serán aplicables a estas elecciones, las disposiciones de este reglamento que fueren oportunas a juicio del TEI.
