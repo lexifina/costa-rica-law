@@ -14,3 +14,4 @@ Asuntos que se deben atender con prioridad en Despachos Cobratorios
 | --- | --- | --- |
 | 1 | 2024-02-02 | la propia norma |
 | 2 | 2026-08-21 | Circular 145 (2026-08-21) |
+| 3 | 2026-08-21 | Circular 146 (2026-08-21) |
