@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Audiencias Públicas
+Artículo 26.- A efecto de realizar la Audiencia Pública, deberá ponerse a disposición de todos los interesados, cinco días hábiles antes, en el sitio web oficial de la Municipalidad, el texto completo de la propuesta que será presentada el día de la audiencia pública. De manera que los participantes, debidamente legitimados, puedan remitir sus observaciones técnicas, legales o de oportunidad, de manera digital con anticipación a la Audiencia Pública, así como podrán de manera fundamentada y solo en cuanto a las modificaciones planteadas, presentar sus observaciones el día de la Audiencia Pública.

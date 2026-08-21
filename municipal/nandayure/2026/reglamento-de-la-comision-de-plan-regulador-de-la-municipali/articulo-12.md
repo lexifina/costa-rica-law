@@ -1,0 +1,1 @@
+Artículo 12.- No podrán integrar esta Comisión Plan Regulador: el Tesorero, el Auditor y el Contador Municipal, así como, sus cónyuges o parientes en línea directa o colateral hasta segundo grado por afinidad y consanguinidad, así como al igual que los cónyuges del Alcalde, Vicealcaldes o Regidores.
