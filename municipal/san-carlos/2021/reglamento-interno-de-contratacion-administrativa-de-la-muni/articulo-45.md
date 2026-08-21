@@ -1,4 +1,0 @@
-Artículo 45.-Inscripción al registro de proveedores. Para la inscripción en el registro, se utilizará el formulario creado para tal efecto, el cual se mantendrá a disposición de todos los interesados.
-Dicho formulario deberá ser presentado a la Proveeduría Municipal, la cual deberá verificarlo en cuanto a su contenido, y una vez que se cuente con todos los datos, se procederá a ingresarlo en el sistema.
-Una vez que se garantice que la información aportada es correcta, se procederá a ingresar al proveedor como oferente potencial, de forma que siga siendo invitado a todas las contrataciones que la Municipalidad realice.
-El proceso de revisión, aceptación e inclusión de un proveedor en el registro, deberá desarrollarse en un plazo no mayor de 5 días hábiles a partir de la presentación de toda la documentación solicitada para ese trámite.

@@ -1,2 +1,0 @@
-Artículo 10.-Decisión inicial. La decisión de iniciar al procedimiento de contratación administrativa será tomada por el Alcalde Municipal una vez que la unidad solicitante, en coordinación con las respectivas unidades técnica, legal y financiera, según corresponda, haya acreditado, al menos, los requisitos indicados en el artículo 8 del Reglamento a la Ley de Contratación Administrativa.
-La documentación generada de la decisión inicial, será remitida a la Proveeduría Municipal, para ser incluida en el Plan Anual de Compras

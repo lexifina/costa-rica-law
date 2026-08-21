@@ -1,2 +1,0 @@
-Artículo 14.-Expedientes electrónico. La Proveeduría Municipal, procurará la creación de un sistema de archivo digital, en cual se almacenará toda la documentación relativa al procedimiento de contratación. Dicho expediente, podrá ser consultado por quien lo solicite.
-El expediente administrativo, podrá ser publicado por los medios en línea de que disponga la Municipalidad, o ser remitido a los interesados por los medios electrónicos que faciliten su manejo, de conformidad con el Manual de Uso de Medios Electrónicos y Archivo Digital de la Municipalidad de San Carlos.

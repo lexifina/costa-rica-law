@@ -1,3 +1,0 @@
-Artículo 22.-Audiencias y visitas previas. La Proveeduría Municipal, procurará la realización de visitas previas a los sitios de construcción de obras públicas, con la participación de todos los potenciales oferentes. Dichas visitas solo podrán ser obligatorias para aquellos contratos que se consideren extremadamente complejos y se constituirán como excepciones a la regla.
-En aquellas compras complejas o novedosas, cuya cuantía sea muy elevada, se realizarán audiencias previas al cartel, conforme a lo que indica el artículo 53 del Reglamento a la Ley de Contratación Administrativa.
-La aplicación de estas figuras, deberá darse conforme al Manual de Procedimientos de Contratación Administrativa de la Municipalidad de San Carlos.
