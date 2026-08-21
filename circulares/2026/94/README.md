@@ -13,3 +13,4 @@ Terminación del proceso por imposibilidad sobrevenida en virtud del artículo 5
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-06-03 | la propia norma |
+| 2 | 2026-08-21 | Circular 147 (2026-08-21) |
