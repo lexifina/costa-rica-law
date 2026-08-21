@@ -1,0 +1,1 @@
+Artículo 12°— Renuncia o destitución. En caso de renuncia o destitución de algún miembro en ejercicio; se suplirá dicho miembro, supliendo la vacante en idénticas condiciones que antecedieron al miembro renunciante o destituido que suplirá, tal y como lo establece el artículo anterior.

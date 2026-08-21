@@ -1,0 +1,1 @@
+Artículo 5º—Informes de control. Para su fiscalización la JDCCDRPZ deberá rendir los informes al Concejo Municipal de conformidad con lo que establece ley, sin demérito de las labores que desempeñe la Auditoría Interna o comisiones especiales del Concejo, con el fin de realizar estudios acerca de la gestión administrativa, financiera y deportiva del CCDR.

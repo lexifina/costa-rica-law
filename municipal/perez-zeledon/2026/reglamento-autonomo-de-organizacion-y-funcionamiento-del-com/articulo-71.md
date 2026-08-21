@@ -1,0 +1,2 @@
+Artículo 71º—De la conformación del expediente. Del proceso de elección de representantes y delegados, así como del proceso eleccionario, se levantarán los expedientes correspondientes para cada caso, a efectos de que exista transparencia en el proceso y puedan verificarse atestados y los procedimientos de elección de los representantes y sus delegados.
+Del proceso de elección se generará un acta de la que se aportará copia al Consejo Municipal y al CCDRPZ.

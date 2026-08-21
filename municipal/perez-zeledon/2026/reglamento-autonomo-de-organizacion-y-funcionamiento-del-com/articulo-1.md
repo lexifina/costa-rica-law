@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+Concejo Municipal
+La Municipalidad de Pérez Zeledón comunica que, habiéndose superado el proceso de consulta pública no vinculante conforme al Artículo 43 del Código Municipal y mediante acuerdo 07) tomado por el Concejo Municipal, en Sesión Ordinaria 133-2026, celebrada el día 14 de julio del 2026, se aprobó el siguiente: REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DEL CANTÓN DE PÉREZ ZELEDÓN.
+RAM-0011-2026
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL
+COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN
+DEL CANTÓN DE PÉREZ ZELEDÓN
+La Municipalidad del cantón de Pérez Zeledón, con fundamento en lo establecido en los numerales 169 y 170 de la Constitución Política, artículos 13, inciso c), 43 y 173 al 181 del Código Municipal; así como las reformas contenidas en la Ley N°10626 del 05 de diciembre del 2024 publicada en el Alcance N°6 a la Gaceta N°10, y como corolario además con fundamento en los Artículos 11 de la Constitución Política de la República de Costa Rica, los Artículos 11.1, 13.1 Y 16.1 de la Ley General de la Administración Pública resulta necesario adecuar las disposiciones reglamentarias que regulan la organización y funcionamiento del Comité Cantonal de Deportes y Recreación a las nuevas exigencias legales, por lo que se emite el presente Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del cantón de Pérez Zeledón, el cual se regirá por las siguientes disposiciones:
+Disposiciones generales
+Artículo 1º—Ámbito de facultades del CCDRPZ. El Comité Cantonal de Deportes y Recreación (CCDRPZ) de Pérez Zeledón es el organismo superior y rector del cantón en materia deportiva. Está encargado del planeamiento, promoción y fiscalización de la actividad deportiva en todos sus aspectos incluyendo la construcción, y en lo que corresponda el mantenimiento en las instalaciones deportivas asignadas por la Municipalidad de Pérez Zeledón; procurando el aprovechamiento del tiempo libre de sus habitantes mediante la competición y recreación saludable y el deporte para todos.
+El Comité se regirá por las normas del Ordenamiento Jurídico que regulan la materia y las disposiciones del presente Reglamento.

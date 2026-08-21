@@ -1,0 +1,3 @@
+Artículo 25º—Nombramiento de otros cargos. En la primera sesión, mediante votación secreta e interna se designarán los cargos de presidente, vicepresidente, secretario, tesorero y vocales. En forma inmediata, una vez electa la JDCCDRPZ deberán leerse las funciones que a cada uno de los miembros le confiere este Reglamento.
+En caso de renuncia, destitución o cualquier otro motivo que apareje finalización de sus funciones, una vez sustituido el miembro saliente, se realizará la elección por el puesto que quedó.
+En caso de empate entre dos o más postulantes se realizará una segunda votación únicamente con los que resultaron empatados, en caso de permanecer el empate se resolverá por la suerte.

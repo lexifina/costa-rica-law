@@ -1,0 +1,1 @@
+Artículo 73º—De la juramentación de la Junta. Los miembros electos serán juramentados por el Concejo Municipal, momento a partir del cual revestirán la condición Junta Administrativa del Comité Cantonal de Deportes y Recreación de Pérez Zeledón.

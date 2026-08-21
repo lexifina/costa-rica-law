@@ -1,0 +1,3 @@
+Artículo 41º—Entrega de las actas. La información del acta de cada sesión y la copia de la correspondencia recibida y enviada, así como los documentos que van a ser analizados en la misma, deberán entregarse a los miembros de JDCCDRPZ para su conocimiento como se indica:
+1. Un resumen ejecutivo de la correspondencia y documentos a ser discutidos y aprobados en sesión, con al menos seis horas de antelación a la celebración de la sesión.
+2. Las actas para que sean de conocimiento de los miembros, a más tardar cuatro horas previas al inicio de la sesión, a efectos de que en sesión sean discutidas y aprobadas.

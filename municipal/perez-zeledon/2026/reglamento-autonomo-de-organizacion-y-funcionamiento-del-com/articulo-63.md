@@ -1,0 +1,1 @@
+Artículo 63º—De la integración de la Asamblea. En esta asamblea participarán un delegado con voto por cada Asociación de Desarrollo Integral o Específica del Cantón de Pérez Zeledón que hagan constar su interés de participación mediante formal solicitud.

@@ -1,0 +1,1 @@
+Artículo 57º—De integración de la Asamblea. En la Asamblea que se realizará antes de los 60 días hábiles a su vencimiento, participarán un delegado por cada organización deportiva o recreativa, los respectivos postulantes.

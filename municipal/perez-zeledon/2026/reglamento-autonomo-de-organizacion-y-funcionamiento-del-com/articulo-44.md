@@ -1,0 +1,1 @@
+Artículo 44º—Planes de trabajo. A criterio de la JDCCDRPZ, las Comisiones nombradas deberán elaborar un Plan de Trabajo; y en todos los casos, rendirán un informe mensual al organismo u órgano respectivo, sobre las actividades realizadas y resultados obtenidos cuando éstas hayan tenido actividad.

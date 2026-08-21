@@ -1,0 +1,3 @@
+Artículo 59º—De los postulantes para ser miembros de la JDCCDRPZ. Cada organización deportiva y recreativa podrá postular dos candidatos, los cuales deberán estar registrados ante las oficinas del CCDRPZ dentro del plazo otorgado en la convocatoria oficial, quien no cumpla con tal disposición no podrá participar como candidato a la JDCCDRPZ.
+Para ser postulantes a miembro de la JDCCDRPZ debe poseer los requisitos establecidos en el artículo 13 de este Reglamento.
+Una vez finalizado el período concedido para recibir postulaciones se levantará una lista que se hará visible en las oficinas del CCDRPZ y en la Municipalidad de Pérez Zeledón con no menos de ocho días hábiles de anticipación a la celebración de la elección.
