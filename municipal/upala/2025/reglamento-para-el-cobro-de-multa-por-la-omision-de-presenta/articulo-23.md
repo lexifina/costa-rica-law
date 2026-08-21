@@ -1,0 +1,1 @@
+Artículo 23.—Prescripción. El derecho de aplicar sanciones por parte de la administración prescribe en el plazo de cuatro años, en aplicación del artículo 74 del Código de Normas y Procedimientos Tributarias.

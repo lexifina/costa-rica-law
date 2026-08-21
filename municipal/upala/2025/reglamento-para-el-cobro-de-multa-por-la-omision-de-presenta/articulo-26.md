@@ -1,0 +1,2 @@
+Artículo 26.—Integración del ordenamiento. Cualquier disposición no prevista en este cuerpo normativo se integrará acudiendo a los principios de legalidad, así como a los generales del derecho municipal y administrativo, expresados en el Código de Normas y Procedimientos Tributarios, Código Municipal, Ley General de Administración Pública, Código Procesal Contencioso Administrativo y Código Procesal Civil.
+Rige a partir de su publicación en el Diario Oficial La Gaceta. No está sujeto a plazo legal. Publíquese una vez de manera alterna.
