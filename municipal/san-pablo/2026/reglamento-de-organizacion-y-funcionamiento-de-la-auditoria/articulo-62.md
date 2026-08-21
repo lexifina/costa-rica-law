@@ -1,0 +1,3 @@
+Artículo 62. - ANÁLISIS PRELIMINAR. La Auditoría Interna realizará un análisis inicial, objetivo y documentado, para determinar su competencia, la claridad y relevancia de los hechos, la prueba disponible, los eventuales responsables y el abordaje que corresponda.
+Cuando resulte necesario, podrá solicitar a la persona denunciante o a cualquier otro sujeto competente aclaraciones o información adicional dentro del plazo razonable que establezca.
+Concluido el análisis inicial, la Auditoría Interna determinará si procede iniciar una investigación, remitir el asunto a otra instancia competente, incorporarlo a un servicio de auditoría o desestimarlo y archivarlo, conforme a las causales previstas en la normativa vigente y mediante acto debidamente motivado.

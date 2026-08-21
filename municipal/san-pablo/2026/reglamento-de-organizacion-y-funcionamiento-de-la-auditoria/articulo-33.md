@@ -1,0 +1,2 @@
+Artículo 33. - CONTRATACIÓN DE SERVICIOS PROFESIONALES. Para el desarrollo de investigaciones que requieran especialidad técnica, agilidad o confidencialidad, la Auditoría Interna podrá contratar servicios profesionales especializados conforme a la Ley General de Contratación Pública y su reglamento.
+Los recursos para tales contrataciones deberán preverse en el presupuesto correspondiente, sin perjuicio de que puedan gestionarse modificaciones presupuestarias cuando la necesidad surja de manera extraordinaria.

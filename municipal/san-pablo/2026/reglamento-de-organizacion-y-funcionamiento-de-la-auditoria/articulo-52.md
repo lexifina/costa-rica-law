@@ -1,0 +1,1 @@
+Artículo 52. - APROBACIÓN Y DISTRIBUCIÓN DE LOS INFORMES. Todos los informes de auditoría deben ser revisados y aprobados por la persona titular de la Auditoría Interna antes de su distribución y comunicación oficial a las partes interesadas. Los informes anuales y de seguimiento se presentarán al Concejo Municipal y a la CGR cuando corresponda.

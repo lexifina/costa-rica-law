@@ -1,0 +1,1 @@
+Artículo 57. - OBJETIVO DEL SEGUIMIENTO. El objetivo es asegurar la implementación efectiva de las recomendaciones emitidas en los informes de auditoría y evaluar el impacto delas acciones correctivas tomadas por la administración.

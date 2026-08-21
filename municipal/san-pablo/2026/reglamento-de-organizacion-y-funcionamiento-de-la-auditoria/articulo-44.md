@@ -1,0 +1,1 @@
+Artículo 44. - PROGRAMACIÓN OPERATIVA Y PLANES ESPECÍFICOS. Para cada auditoría o estudio especial se elaborará un plan específico que detalle los objetivos, alcance, metodología, recursos y cronograma, el cual será aprobado por la persona titular de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 51. - CONTENIDO DE LOS INFORMES. Los informes deben incluir al menos: objetivo, alcance, metodología, resultados, conclusiones, recomendaciones y las observaciones de la administración con su análisis cuando corresponda.

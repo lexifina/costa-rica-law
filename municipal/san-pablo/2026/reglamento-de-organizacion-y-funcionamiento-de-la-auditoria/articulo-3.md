@@ -1,0 +1,4 @@
+Artículo 3. - UBICACIÓN E INDEPENDENCIA FUNCIONAL Y DE CRITERIO. Las personas funcionarias de la Auditoría Interna ejercerán su actividad con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la Administración Activa, y deberán actuar de manera objetiva, profesional e imparcial en el desarrollo de su trabajo.
+La Auditoría Interna, en la estructura organizacional, deberá ser un órgano asesor de muy alto nivel que depende orgánicamente del Concejo Municipal.
+La actividad de Auditoría Interna debe estar libre de injerencias del jerarca y de los demás órganos de la Administración Activa al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al ejecutar su trabajo y al comunicar sus resultados.
+Ninguna autoridad o funcionario podrá interferir o limitar el ejercicio de sus competencias ni el acceso a la información necesaria para el cumplimiento de sus funciones.

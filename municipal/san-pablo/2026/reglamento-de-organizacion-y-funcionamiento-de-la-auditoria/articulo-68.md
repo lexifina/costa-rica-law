@@ -1,0 +1,1 @@
+Artículo 68. – SEGUIMIENTO. La Auditoría Interna dará seguimiento a los productos derivados de las investigaciones para verificar que la autoridad competente los atienda oportunamente y adopte las acciones que correspondan, sin sustituir sus competencias ni intervenir en la resolución de fondo, conforme a la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 36. - POTESTADES DE LOS FUNCIONARIOS. Las potestades de la Auditoría Interna están establecidas en la Ley General de Control Interno Nº 8292 y sus reformas; tales potestades serán ejercidas con debido cuidado profesional y efectividad.

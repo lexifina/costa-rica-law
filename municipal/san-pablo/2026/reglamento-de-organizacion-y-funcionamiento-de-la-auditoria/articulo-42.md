@@ -1,0 +1,1 @@
+Artículo 42. - PLANIFICACIÓN ESTRATÉGICA. La Auditoría Interna formulará una Planificación Estratégica con un horizonte plurianual de al menos cuatro años, la cual deberá revisarse anualmente. Será congruente con la misión institucional sin menoscabo de la independencia funcional, y se comunicará al Concejo Municipal para su conocimiento.

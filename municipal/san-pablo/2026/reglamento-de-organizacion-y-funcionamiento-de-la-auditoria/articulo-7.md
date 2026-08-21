@@ -1,0 +1,2 @@
+SECCIÓN SEGUNDA: Del Auditor(a) Interno(a) y Subauditor(a) Interno(a)
+Artículo 7. - NOMBRAMIENTO. La persona titular de la Auditoría Interna y de la Subauditoría serán nombradas por tiempo indefinido por el Concejo Municipal, de conformidad con el Código Municipal, la Ley General de Control Interno N.º 8292 y sus reformas, la normativa técnica y jurídica aplicable, y los lineamientos que emita la Contraloría General de la República.

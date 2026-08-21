@@ -1,0 +1,1 @@
+Artículo 59. - COMUNICACIÓN DE RESULTADOS DEL SEGUIMIENTO. Los informes de seguimiento se compartirán con la Administración Activa para destacar las áreas que requieren atención, y se presentará un resumen anual al Concejo Municipal y a la Contraloría General de la República cuando sea necesario.

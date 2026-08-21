@@ -1,0 +1,1 @@
+Artículo 37. - PROHIBICIONES. Las personas funcionarias de la Auditoría Interna estarán sujetas a las prohibiciones establecidas en la Ley General de Control Interno Nº 8292 y sus reformas, en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Ley N.º 8422), en el Código Municipal y demás normativa aplicable.

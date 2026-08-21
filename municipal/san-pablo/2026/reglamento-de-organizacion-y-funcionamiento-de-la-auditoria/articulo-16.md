@@ -1,0 +1,3 @@
+Artículo 16. - UNIFORME INSTITUCIONAL. El personal de la Auditoría Interna deberá acatar las disposiciones institucionales vigentes en materia de presentación personal y uso de uniforme, cuando así se haya establecido con carácter general para el personal municipal.
+No obstante, dichas disposiciones no deberán afectar la independencia funcional ni la naturaleza técnica de las funciones propias de la Auditoría Interna.
+En caso de actividades que requieran formalidad institucional, la persona titular de la Auditoría Interna podrá definir criterios específicos de presentación acordes con la naturaleza de sus competencias.

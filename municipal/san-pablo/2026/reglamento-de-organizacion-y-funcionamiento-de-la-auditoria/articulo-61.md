@@ -1,0 +1,3 @@
+SECCIÓN SÉPTIMA: Del trámite de las denuncias
+Artículo 61. - RECEPCIÓN DE DENUNCIAS. La Auditoría Interna recibirá denuncias sobre acciones u omisiones presuntamente irregulares comprendidas dentro de su ámbito de competencia, presentadas por medios físicos, verbales o electrónicos habilitados institucionalmente. Las denuncias podrán ser anónimas y sus requisitos serán orientadores, sin constituir una limitación para su trámite, siempre que la información aportada permita realizar su análisis inicial.
+Recibida la denuncia, la Auditoría Interna la valorará de manera objetiva y documentada y determinará su investigación, traslado, incorporación a un servicio de auditoría o su desestimación y archivo mediante acto motivado, conforme a la normativa vigente.

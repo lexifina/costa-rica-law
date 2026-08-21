@@ -1,0 +1,2 @@
+SECCIÓN CUARTA: De la ejecución de las auditorías
+Artículo 47. - EJECUCIÓN DE LOS ESTUDIOS DE AUDITORÍA. El desarrollo de las actividades se regirá por el presente reglamento, las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, las directrices de la CGR y el Manual de Procedimientos de la Auditoría de la institución. Los auditores deberán obtener evidencia suficiente, competente y pertinente que respalde los hallazgos.

@@ -1,0 +1,1 @@
+Artículo 46. - COORDINACIÓN CON OTRAS INSTANCIAS DE CONTROL. La Auditoría Interna podrá coordinar con órganos de control interno y externo para evitar duplicidades y optimizar recursos, sin que ello implique subordinación alguna ni afecte su independencia.

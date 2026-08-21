@@ -1,0 +1,1 @@
+Artículo 58. - PROCEDIMIENTO DE SEGUIMIENTO. La Auditoría Interna definirá un procedimiento que contendrá: planificación del seguimiento, recolección de evidencia suficiente, evaluación de la efectividad de las acciones correctivas, documentación de actividades y la preparación del informe de seguimiento.

@@ -1,0 +1,3 @@
+Artículo 6. - RESPONSABLE DE LA AUDITORÍA INTERNA. La Auditoría Interna estará a cargo de la persona titular de la Auditoría Interna y contará con una Subauditoría, conforme a la estructura organizacional vigente.
+En caso de ausencia temporal de la persona titular de la Auditoría Interna, asumirá el cargo quien ejerza la Subauditoría.
+Si también esta última persona se encontrare ausente, la sustitución se realizará conforme a lo establecido en la Política de Continuidad de los Servicios de la Auditoría Interna de la Municipalidad de San Pablo de Heredia y a los lineamientos emitidos por la Contraloría General de la República, debiendo recaer en quien cumpla con los requisitos del cargo.

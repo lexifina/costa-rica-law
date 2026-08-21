@@ -1,0 +1,1 @@
+Artículo 60. - AJUSTES Y REVISIÓN CONTINUA. La Auditoría Interna actualizará sus planes de trabajo en función de los resultados del seguimiento y revisará el proceso de manera continua para mejorar su eficiencia.

@@ -1,0 +1,1 @@
+Artículo 5. - ÁMBITO DE ACCIÓN. El ámbito de acción de la Auditoría Interna comprende a la Municipalidad de San Pablo de Heredia, así como a los entes y órganos públicos o privados que administren, custodien o reciban fondos, bienes o recursos sujetos a su competencia institucional, cualquiera que sea la forma o el fundamento legal de su transferencia.

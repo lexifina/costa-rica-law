@@ -1,0 +1,1 @@
+Artículo 30. - MOVIMIENTO DE PRESUPUESTO. Todo movimiento o modificación de los recursos presupuestarios asignados a la Auditoría Interna deberá contar con la autorización previa y expresa de la persona titular de la Auditoría Interna, como requisito de validez del trámite correspondiente.
