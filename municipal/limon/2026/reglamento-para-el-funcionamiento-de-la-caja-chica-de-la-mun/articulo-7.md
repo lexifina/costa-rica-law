@@ -1,0 +1,1 @@
+Artículo 7º En todo lo relativo a activos fijos sujetos a depreciación serán tratados y adquiridos por procedimientos ordinarios previstos en la Ley General de Contratación Pública a través dela Proveeduría Municipal (salvo casos sumamente excepcionales), así como aquellos artículos que el monto supere el tope establecido para caja chica.

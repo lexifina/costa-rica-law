@@ -1,0 +1,1 @@
+Artículo 11º Los comprobantes de vales que se utilizarán por caja chica, estarán prenumerados y se llevará para esos efectos una numeración consecutiva. Además deberán presentar la Boleta de Formulario para la compra excepcional por Caja Chica, las mismas será suministradas a las jefaturas de las dependencias municipales por la Tesorería Municipal.

@@ -1,0 +1,1 @@
+Artículo 20º Todo arqueo de caja chica se realizará en presencia del Tesorero Municipal o en presencia del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

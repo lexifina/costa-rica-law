@@ -1,0 +1,1 @@
+Artículo 19º De constatarse por medio de la realización del arqueo correspondiente que existe un faltante en la Caja Chica, el custodio deberá reintegrarlo de inmediato de su peculio. En el evento de que se produjere uno o más sobrantes, el o los montos que corresponda, deberán ser depositados por el custodio en la cuenta respectiva.

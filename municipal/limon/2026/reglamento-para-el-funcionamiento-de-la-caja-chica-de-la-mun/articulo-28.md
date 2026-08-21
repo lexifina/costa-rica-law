@@ -1,0 +1,1 @@
+Artículo 28º Corresponderá al Tesorero Municipal y demás titulares subordinados de la institución velar por el cumplimiento de este Reglamento. En los casos de violaciones al reglamento, el Tesorero deberá rendir informe de inmediato al Alcalde Municipal para el inicio de los procedimientos disciplinarios correspondientes.

@@ -1,0 +1,1 @@
+Artículo 17° Las compras de caja chica deberán quedar debidamente registradas en el sistema digital unificado de Compras SICOP habilitado por el Ministerio de Hacienda para el registro de compras del sector público, del cual se deberá incluir la totalidad de la documentación generada en la compra mediante la caja chica.

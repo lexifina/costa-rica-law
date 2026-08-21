@@ -1,0 +1,1 @@
+Artículo 5º El monto por vale de caja chica no podrá exceder del 10% del fondo de Caja chica. Excepcionalmente podrá aumentarse el monto del vale por encima del porcentaje antes indicado, previa aprobación de la Alcaldía.

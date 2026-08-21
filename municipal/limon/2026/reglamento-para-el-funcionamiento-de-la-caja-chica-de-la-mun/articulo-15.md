@@ -1,0 +1,1 @@
+Artículo 15° Al final del periodo presupuestario se realizarán las prevenciones y acciones correspondientes para la cancelación de los gastos pendientes con cargo al periodo presupuestario por concluir.

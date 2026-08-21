@@ -1,0 +1,1 @@
+Artículo 6º La solicitud y adquisición de servicios, materiales y/o bienes deberá ser liquidada en un plazo máximo de 2 días hábiles siguiente a su entrega, de lo contrario no se entregara una segunda solicitud y adquisición de servicios, materiales y/o bienes a funcionarios que tengan pendiente el liquidar la primera.
