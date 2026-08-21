@@ -1,0 +1,1 @@
+Artículo 26º. Los generadores de residuos deben realizar la separación y/o embalaje de estos desde la fuente según sea el tipo y las características de cada residuo, que facilite su cuantificación, peso, carga, traslado, transporte, inspección visual y otras consideraciones de seguridad del personal y del ambiente.

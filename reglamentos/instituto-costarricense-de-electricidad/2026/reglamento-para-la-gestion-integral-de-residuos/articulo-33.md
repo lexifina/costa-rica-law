@@ -1,0 +1,1 @@
+Artículo 33º. Los funcionarios responsables de los procedimientos de contratación administrativa deben priorizar bienes con características ambientalmente sostenibles, privilegiando aquellos productos y materiales que sean reutilizables, reciclables, biodegradables o valorizables, incorporando criterios de ciclo de vida.

@@ -1,0 +1,1 @@
+Artículo 22º. El generador de residuos debe, según sus responsabilidades, llevar un registro de los residuos generados, por clase y categoría, además de las acciones que impulse o desarrolle en función de la jerarquización de residuos que establece la ley 8839.

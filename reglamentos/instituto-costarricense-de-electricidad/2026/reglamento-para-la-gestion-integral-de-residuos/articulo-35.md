@@ -1,0 +1,1 @@
+Artículo 35º. Los centros de almacenamiento temporal para residuos deben estar diseñados cumpliendo con las especificaciones de seguridad, contención para derrames, zona de protección, acceso controlado y dimensión según volumen de materiales, entre otros. Esto debe ser informado al Nivel 1 Gestión Socioambiental.

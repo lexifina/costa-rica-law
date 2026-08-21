@@ -1,0 +1,1 @@
+Artículo 37º. El Nivel 1 Gestión Socioambiental es el único ente avalado por el ICE, para la ejecución de remates, de materiales clasificados como residuos, por medio de gestores autorizados por el Ministerio de Salud.

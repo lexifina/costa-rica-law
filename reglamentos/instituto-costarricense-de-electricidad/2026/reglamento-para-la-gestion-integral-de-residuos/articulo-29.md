@@ -1,0 +1,1 @@
+Artículo 29º. Todos los residuos deben ser transportados en vehículos institucionales o externos productos de contrataciones de servicios o alianzas publico privadas que cumplan con lo establecido en el ordenamiento jurídico nacional vigente.

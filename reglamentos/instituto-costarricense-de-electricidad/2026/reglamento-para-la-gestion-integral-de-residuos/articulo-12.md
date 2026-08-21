@@ -1,0 +1,7 @@
+Artículo 12º. Generadores de residuos institucionales.
+1. Acatar lo dispuesto en este reglamento, directrices y legislación en materia de gestión integral de residuos.
+2. Desarrollar acciones para evitar o reducir la generación de residuos, reutilización, separación y embalaje en fuente, clasificación, cuantificación digitalizada, etiquetado, almacenamiento temporal, grado y clasificación de peligrosidad, potencial de valorización, pesaje y transporte.
+3. Declarar los materiales de baja y nula rotación u obsoletos como residuos, cuando estos no puedan ser reutilizados internamente en la cadena o proceso productivo o si se determina que ya cumplió su ciclo de vida útil, para su gestión y/o disposición final.
+4. Diseñar, planificar e implementar acciones de gestión integral de residuos para disminuir la generación de éstos.
+5. Transportar al CRRV más cercano todos los residuos que no sean catalogados como peligrosos, siempre y cuando no se requiere de equipo especializado para este traslado.
+6. Suministrar al Nivel 1 Gestión Socioambiental, toda información disponible, según ley 8839 y sus reglamentaciones conexas, sobre gestión de residuos, referente a clasificación como residuos valorizables y no valorizables, categorización del residuo en peligroso, manejo especial, ordinario reciclable, ordinario no reciclable, orgánico, no peligrosos valorizable y las cantidades generadas en kilogramos en su dependencia y mantenerla actualizada.

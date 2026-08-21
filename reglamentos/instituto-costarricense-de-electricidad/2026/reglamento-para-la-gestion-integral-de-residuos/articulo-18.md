@@ -1,0 +1,3 @@
+Artículo 18º.Sostenibilidad, Dirección Planificación y Sostenibilidad, Gerencia de Electricidad.
+1. Gestionar en caso de ser necesario y con el visto bueno de la Dirección Servicios Generales, convenios de residuos valorizables y no valorizables, como medida excepcional en el marco de proyectos de gran envergadura.
+2. Informar trimestralmente al Nivel 1 Gestión Socioambiental los balances económicos y los residuos gestionados por medio de los convenios vigentes y la documentación de la trazabailidad de la adecuada gestión de los residuos por parte de los gestores autorizados de residuos, gestores finales y generadores.

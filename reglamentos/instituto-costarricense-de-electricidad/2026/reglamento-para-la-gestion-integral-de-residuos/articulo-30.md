@@ -1,0 +1,1 @@
+Artículo 30º. La Regencia Química Institucional debe asesorar a los generadores y gestores ambientales institucionales sobre las características y requisitos que se deben cumplir en el transporte de residuos peligrosos institucionales según ordenamiento jurídico nacional vigente.

@@ -1,0 +1,1 @@
+Artículo 36º. Todos los generadores de residuos deben gestionar los residuos valorizables y no valorizables únicamente por medio del área Gestión Integral de Residuos del Nivel 1 Gestión Socioambiental de la Dirección Servicios Generales, a excepción de los convenios o contrataciones que son avalados por la Dirección Servicios Generales.

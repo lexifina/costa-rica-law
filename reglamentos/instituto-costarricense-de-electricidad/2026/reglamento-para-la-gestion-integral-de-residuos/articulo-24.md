@@ -1,0 +1,1 @@
+Artículo 24º. Las dependencias generadoras de residuos deben realizar las proyecciones de residuos en el año operativo siguiente, según sus planes operativos y de mantenimiento, producto de nuevos proyectos o desinversiones, para ser considerado en el plan de gestión anual de residuos.

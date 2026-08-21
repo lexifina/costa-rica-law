@@ -1,0 +1,5 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+La Gerencia General del ICE aprobó el 16 de junio del 2026 los siguientes tres documentos:
+A. REGLAMENTO PARA LA GESTIÓN INTEGRAL DE RESIDUOS
+DISPOSICIONES GENERALES
+Artículo 1º. Objeto. Normalizar a nivel general la gestión integral de los residuos en el ICE, en cumplimiento del ordenamiento jurídico nacional vigente enmarcado en la jerarquización de los residuos evitando la generación desde la fuente, promoviendo la reducción desde el origen, reutilizando y/o recuperando los residuos en la cadena de producción u otros procesos, además, en la medida de lo posible pretratando los residuos antes de su disposición final, actuando de esta forma como actor directo y comprometido en la implementación de los Objetivos para el Desarrollo Sostenible “ODS”, en específico el ODS 12 y sus metas 12.4, 12.4.2, 12.5 y 12.7, integrando además, criterios ambientales relacionados en una o varias de las etapas del ciclo de vida del producto por comprar y vinculado al Programa de Gestión Ambiental Institucional.
