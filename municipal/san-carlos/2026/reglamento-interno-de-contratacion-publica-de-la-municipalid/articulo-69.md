@@ -1,0 +1,1 @@
+Artículo 69°— Recepción definitiva de bienes y servicios Para la recepción definitiva de bienes y servicios, el jefe del departamento ejecutor, será el responsable de la confección de la recepción definitiva.

@@ -1,0 +1,2 @@
+Artículo 27°— Licitación reducida Procede aplicar la licitación reducida según con los umbrales económicos indicados en la LGCP; esta licitación será aplicable y deberá cumplirse en los supuestos y requisitos mínimos establecidos en la LGCP y su reglamento.
+Podrá realizarse licitación reducida con financiamiento, licitación reducida con precalificación y licitación reducida por etapas aplicando, en lo pertinente, lo previsto en los artículos 22, 23 y 24 del presente reglamento.

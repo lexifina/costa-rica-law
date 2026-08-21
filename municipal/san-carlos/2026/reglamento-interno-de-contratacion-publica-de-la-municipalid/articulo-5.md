@@ -1,0 +1,5 @@
+CAPÍTULO II:
+ESTRUCTURA DEL PROCESO DE CONTRATACIÓN PÚBLICA
+Artículo 5º—Departamento de Proveeduría La Proveeduría Municipal es la dependencia competente para gestionar el trámite de los procedimientos para la adquisición de bienes, servicios u obras, que requiera la Municipalidad y a través de la Bodega Municipal realiza los procesos de control, almacenamiento y entrega; definidos en los manuales de procedimientos internos establecidos.
+Además, es la encargada de velar porque los procedimientos de adquisición de bienes, servicios y obra de la Municipalidad sean óptimos, oportunos, estandarizados y cumplan con todos los requisitos establecidos por el ordenamiento jurídico.
+El Departamento de Proveeduría tendrá plena competencia para conducir los trámites del procedimiento de contratación pública y trasladar la recomendación para la adjudicación. De igual forma, podrá realizar compras a través de convenios marco coordinadas con otras instituciones o a través de la Dirección de Contratación Pública del Ministerio de Hacienda.

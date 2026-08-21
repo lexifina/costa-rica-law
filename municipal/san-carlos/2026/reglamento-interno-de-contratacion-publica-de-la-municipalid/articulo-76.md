@@ -1,0 +1,1 @@
+Artículo 76°—Sustitución de garantía de cumplimiento y retenciones Las garantías de cumplimiento podrán ser sustituidas en cualquier momento, a solicitud del oferente o contratista, previa verificación del Departamento de Proveeduría, siempre que con ello no desmejore los términos de la garantía original y se cumpla con lo estipulado en el RLGCP.

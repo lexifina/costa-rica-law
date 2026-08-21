@@ -1,0 +1,1 @@
+Artículo 43°— Plazo para dictar el acto final El Proveedor Municipal podrá prorrogar los actos de adjudicación en los procedimientos derivados de licitación mayor, licitación menor, licitación reducida, así como: los procedimientos extraordinarios, especiales y de excepción, de conformidad con el RLGCP.

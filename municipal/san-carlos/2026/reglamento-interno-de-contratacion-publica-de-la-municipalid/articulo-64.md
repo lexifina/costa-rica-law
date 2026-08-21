@@ -1,0 +1,1 @@
+Artículo 64°—Orden de Compra Corresponderá al Encargado de Presupuesto la gestión de aprobación de la orden de compra en todos los procesos de contratación, indistintamente del monto de la cuantía del proceso. En caso de ausencia del Encargado de Presupuesto, le corresponderá dicha aprobación al Director de Hacienda, y en ausencia de este, al Director General.

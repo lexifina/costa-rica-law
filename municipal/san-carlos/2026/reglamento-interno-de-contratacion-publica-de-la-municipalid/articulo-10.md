@@ -1,0 +1,1 @@
+Artículo 10º— Excepciones de divulgación Quedan excluidas de la obligación de publicación, las contrataciones efectuadas con prescindencia de los procedimientos ordinarios, las efectuadas con fundamento en los supuestos de urgencia, regulados en la LGCP, y los bienes, servicios u obras adjudicados bajo la modalidad según demanda.

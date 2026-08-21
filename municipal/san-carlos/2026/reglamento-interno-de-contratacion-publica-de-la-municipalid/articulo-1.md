@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE SAN CARLOS
+REGLAMENTO INTERNO DE CONTRATACIÓN PÚBLICA DE
+LA MUNICIPALIDAD DE SAN CARLOS
+DISPOSICIONES GENERALES
+Artículo 1º—Objetivo. El presente reglamento tiene como objetivo regular los procedimientos de adquisición de bienes, servicios y obra pública de la Municipalidad de San Carlos, así como la competencia de las diversas dependencias que conforman la Municipalidad para la adquisición, suministro, almacenamiento, resguardo, disposición de los bienes, servicios y obras adquiridos mediante el desarrollo de los procedimientos de Contratación Pública. Para todos los efectos, en la aplicación del reglamento se deberá de considerar el marco normativo nacional contenido en la Ley General de Contratación Pública (N°9986) y el Reglamento a la Ley General de Contratación Pública (Decreto Ejecutivo Nº 43808-H), Código Municipal (N°7794), el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública y normativas conexas emitidas por las entidades competentes.

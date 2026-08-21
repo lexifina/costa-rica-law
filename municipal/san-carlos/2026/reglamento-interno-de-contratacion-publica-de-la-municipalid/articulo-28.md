@@ -1,0 +1,2 @@
+SECCIÓN CUARTA: Procedimientos de contratación extraordinarios
+Artículo 28°— Remate La Municipalidad de San Carlos puede acudir al procedimiento de remate para vender o arrendar bienes muebles o inmuebles que sean de su propiedad, cuando ello se constituya en el medio más apropiado para satisfacer el interés público. Este procedimiento será aplicable y deberá cumplirse con los supuestos y requisitos mínimos establecidos en la LGCP y su reglamento.

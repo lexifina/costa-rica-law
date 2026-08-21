@@ -1,0 +1,1 @@
+Artículo 52°— Recurso de apelación El recurso de apelación en contra de los actos de adjudicación de las licitaciones mayores se regirá por las regulaciones establecidas en la Ley General de Contratación Pública y su Reglamento. El proceso de instrucción y resolución le corresponderá a la CGR y la Alcaldía atenderá en tiempo y forma las prevenciones que realice esa instancia.

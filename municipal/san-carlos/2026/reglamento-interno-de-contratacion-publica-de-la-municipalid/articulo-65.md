@@ -1,0 +1,1 @@
+Artículo 65°—Orden de Pedido Corresponderá al jefe del departamento ejecutor y al Proveedor Municipal la gestión de aprobación de la orden de pedido, indistintamente del monto de la cuantía del proceso.

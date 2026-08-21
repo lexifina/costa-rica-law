@@ -1,0 +1,1 @@
+Artículo 33°— Contenido del pliego de condiciones El pliego contendrá las condiciones generales de la contratación y las especificaciones técnicas. Su contenido establecerá como mínimo los requisitos establecidos en la LGCP y su reglamento.

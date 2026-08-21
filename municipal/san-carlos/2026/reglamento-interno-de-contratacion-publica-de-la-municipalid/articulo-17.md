@@ -1,0 +1,1 @@
+Artículo 17°—Inicio del Proceso de Contratación El proceso de contratación será iniciado una vez que el Alcalde o la jefatura del Departamento de Desarrollo Estratégico haya verificado que la decisión inicial cumple con los requisitos de vinculación estratégica de acuerdo al art. 13 del presente reglamento.

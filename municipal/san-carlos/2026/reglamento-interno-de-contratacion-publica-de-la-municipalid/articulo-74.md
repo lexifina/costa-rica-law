@@ -1,0 +1,1 @@
+Artículo 74°—Forma de rendir la garantía de cumplimiento Las garantías de cumplimiento deberán ser rendidas electrónicamente a través del sistema digital unificado, para todos los procedimientos que se realicen en esa plataforma tecnológica, siguiendo los lineamientos emitidos en el RLGCP.

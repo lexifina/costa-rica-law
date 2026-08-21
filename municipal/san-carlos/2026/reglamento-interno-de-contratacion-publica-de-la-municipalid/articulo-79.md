@@ -1,0 +1,1 @@
+Artículo 79°— Sanciones económicas La Municipalidad podrá establecer, de forma motivada, en el pliego de condiciones multas por ejecución defectuosa o cláusulas penales por la ejecución prematura o tardía de las obligaciones contractuales, conforme a las condiciones que se definen en la LGCP y su reglamento.

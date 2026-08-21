@@ -1,0 +1,3 @@
+Artículo 45° —Proceso de Adjudicación Una vez concluido el estudio de las ofertas, el Proveedor Municipal procederá a aprobar la recomendación de adjudicación y/o declaratoria de desierto o infructuoso, en los procedimientos de licitación reducida, licitación menor y licitación mayor.
+Además, aprobará la recomendación de adjudicación de los procedimientos extraordinarios, procedimientos especiales y procedimientos de excepción. En caso de la licitación menor, licitación mayor y procedimientos especiales la recomendación de adjudicación deberá contar con la aprobación adicional de la jefatura del departamento solicitante.
+El acto de adjudicación deberá ser realizado en el plazo indicado en la LGCP y su reglamento.

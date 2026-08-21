@@ -1,0 +1,1 @@
+Artículo 68°— Recepción provisional de bienes y servicios Para la recepción provisional de bienes los recibirá la Bodega Municipal y los servicios le corresponderá al jefe del departamento ejecutor o quien este delegue.

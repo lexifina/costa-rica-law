@@ -1,0 +1,1 @@
+Artículo 51°—Recurso de revocatoria Tratándose del recurso de revocatoria en contra al acto de adjudicación de licitaciones reducidas, declaración de desierta o infructuosa, serán resueltos por la Proveeduría Municipal. En las licitaciones menores, declaración de desierta o infructuosa, serán resueltos por la Alcaldía Municipal.

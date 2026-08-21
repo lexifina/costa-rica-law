@@ -1,0 +1,2 @@
+Artículo 26°— Licitación menor La licitación menor aplicará de conformidad con los límites económicos estipulados en la LGCP; esta licitación será aplicable y deberá cumplirse en los supuestos y requisitos mínimos establecidos en la LGCP y su reglamento.
+Podrá realizarse licitación menor con financiamiento, licitación menor con precalificación y licitación menor por etapas aplicando, en lo pertinente, conforme a lo previsto en los artículos 22, 23 y 24 del presente reglamento.

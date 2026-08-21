@@ -1,0 +1,2 @@
+Artículo 86°—Directrices y Disposiciones Corresponderá a la Proveeduría Municipal, girar las directrices y disposiciones en materia de Contratación Pública, de forma que se garantice lo indicado en el presente reglamento, la LGCP y su reglamento, así como cualquier disposición legal existente.
+Lo anterior, sin perjuicio de las disposiciones que puedan emitir la Alcaldía Municipal, el Concejo Municipal, o los órganos de control interno de la Municipalidad.

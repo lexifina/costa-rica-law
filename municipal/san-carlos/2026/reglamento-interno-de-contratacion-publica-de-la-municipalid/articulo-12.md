@@ -1,0 +1,1 @@
+Artículo 12º— Contrataciones no contempladas en el Programa de Adquisiciones El Departamento de Desarrollo Estratégico verificará que las necesidades a contratar estén incluidas en el Programa de Adquisiciones y sus modificaciones. En caso que verifique que existe una solicitud que no se encuentra contemplada en este Programa, la misma no será tramitada.

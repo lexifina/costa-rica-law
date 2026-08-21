@@ -1,0 +1,1 @@
+Artículo 82°—Bienes como parte del pago La Administración podrá ofrecer como parte del pago, bienes muebles de su propiedad, siempre que sean de libre disposición, hayan superado su vida útil y sean afines al objeto que se pretende adquirir, conforme a lo estipulado en el RLGCP.

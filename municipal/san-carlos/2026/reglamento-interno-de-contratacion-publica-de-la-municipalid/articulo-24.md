@@ -1,0 +1,1 @@
+Artículo 24°— Licitación mayor con precalificación Tratándose de una licitación mayor, la Administración está facultada a promover una etapa de precalificación para seleccionar, de manera previa, a los participantes para uno o varios concursos; y se deberá cumplir con lo establecido en la LGCP y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º— Publicidad del Programa de Adquisiciones En el primer mes de cada período presupuestario, le corresponde a la Proveeduría Municipal divulgar el Programa de Adquisiciones y sus modificaciones en el sistema digital unificado.

@@ -1,0 +1,1 @@
+Artículo 67°—Cesión Contractual Las cesiones de derechos y obligaciones derivadas de un contrato serán autorizadas por el Alcalde o el Proveedor Municipal, de conformidad con lo establecido en el artículo 44 del presente reglamento, la LGCP y su reglamento.

@@ -1,0 +1,2 @@
+Artículo 71°—Vicios ocultos, responsabilidad disciplinaria y civil en la ejecución de obras El hecho de que la obra sea recibida a satisfacción en el acto de recepción oficial, no exime al constructor de su responsabilidad por vicios ocultos, si éstos afloran durante los diez años posteriores a la fecha de la recepción definitiva.
+Por otra parte, la Municipalidad tiene un período de diez años para el reclamo indemnizatorio originado en vicios ocultos.

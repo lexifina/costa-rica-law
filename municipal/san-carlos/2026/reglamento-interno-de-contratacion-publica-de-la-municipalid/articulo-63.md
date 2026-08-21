@@ -1,0 +1,1 @@
+Artículo 63°— Fiscalización Las responsabilidades de fiscalización del contrato recaen sobre el departamento ejecutor, no obstante, si es oportuno y necesario, en el contrato se podrá estipular la persona funcionaria municipal idónea para que realice dicha fiscalización.

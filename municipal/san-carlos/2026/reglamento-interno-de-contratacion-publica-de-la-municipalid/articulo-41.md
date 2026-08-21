@@ -1,0 +1,1 @@
+Artículo 41°— Subsanación y aclaraciones a las ofertas Una vez que se cuenten con el estudio de las condiciones legales y el estudio técnico preliminar de las ofertas recibidas, en un solo documento se consolidarán todos los aspectos a subsanar o aclarar a cada participante, respetando los plazos y condiciones estipulados en la LGCP y su reglamento.

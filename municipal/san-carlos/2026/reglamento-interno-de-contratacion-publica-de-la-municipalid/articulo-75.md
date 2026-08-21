@@ -1,0 +1,1 @@
+Artículo 75°— Vigencia de la garantía de cumplimiento En el pliego de condiciones se indicará la vigencia mínima de la garantía de cumplimiento. En caso de omisión, la validez de la garantía de cumplimiento será hasta por dos meses adicionales a la vigencia del contrato.

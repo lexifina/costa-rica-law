@@ -1,0 +1,1 @@
+Artículo 25°— Licitación mayor por etapas En casos de seguridades calificadas, la Municipalidad podrá promover una licitación mayor por etapas, en la cual se omitan desde el mismo inicio del concurso, las especificaciones técnicas del objeto contractual que se vaya a ejecutar; y se deberá cumplir con lo establecido en la LGCP y su reglamento.
