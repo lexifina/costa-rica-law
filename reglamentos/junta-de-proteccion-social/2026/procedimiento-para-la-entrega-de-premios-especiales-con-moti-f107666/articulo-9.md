@@ -1,0 +1,3 @@
+Artículo 9° - Aceptación Todas las personas que participen en las activaciones se adhieren a las condiciones establecidas en el presente procedimiento y por su objeto no requiere del control previo establecido en los artículos 13 y 13 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo No. 37045- MP-MEIC.
+Artículo 10° - Vigencia Este procedimiento rige a partir de su publicación en el Diario Oficial La Gaceta y será aplicable a partir del domingo 1 de noviembre de 2026 y hasta el viernes 4 de diciembre de 2026, inclusive. La
+Junta por razones de interés público se reserva el derecho de retirar del mercado esta promoción, lo cual comunicará con la debida antelación de conformidad con la ley.
