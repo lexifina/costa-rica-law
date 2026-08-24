@@ -1,2 +1,0 @@
-3. Abreviaturas:
-[imagen]
