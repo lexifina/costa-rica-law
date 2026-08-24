@@ -1,1 +1,2 @@
-Artículo 9º-La variación del Fondo de Caja Chica de la Sutel será determinada por medio de un acuerdo razonado del Consejo de esta Superintendencia; el Fondo de Caja Chica no podrá exceder el diez por ciento (10%) del monto fijado para la licitación reducida, conforme lo disponga la Ley General de Contratación Pública y su Reglamento.
+Artículo 9°—Monto máximo del Fondo. El monto del Fondo de Caja Chica será el que establece el artículo 3 inciso g) de la Ley 9986. Este monto constituye un límite global del Fondo.
+(Así reformadomediante acuerdo N° Acuerdo 003-045-2026)

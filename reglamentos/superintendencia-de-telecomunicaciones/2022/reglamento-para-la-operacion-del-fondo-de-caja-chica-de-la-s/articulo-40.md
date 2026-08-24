@@ -1,1 +1,2 @@
-Artículo 40.-Los anticipos para la compra de bienes y servicios no podrán exceder el 20% del Fondo de Caja Chica. En casos especiales, razonados y a criterio del Presidente del Consejo o sus miembros titulares, se autorizará la erogación de sumas mayores, siempre y cuando no excedan del 30% del Fondo. El adelanto por cada bien, grupo de bienes de mismo género o servicio, no puede exceder el 20% del Fondo de Caja Chica.
+Artículo 40.—Anticipos. Los anticipos con cargo al Fondo se sujetarán a los mismos límites establecidos para las erogaciones individuales en el artículo 26 de este reglamento y deberán liquidarse dentro del mismo período presupuestario, salvo causa excepcional debidamente justificada.
+(Así reformadomediante acuerdo N° Acuerdo 003-045-2026)

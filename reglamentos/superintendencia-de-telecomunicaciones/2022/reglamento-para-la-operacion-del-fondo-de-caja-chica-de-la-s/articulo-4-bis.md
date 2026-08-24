@@ -1,0 +1,2 @@
+Artículo 4 bis.—Interpretación de los límites operativos. Los límites operativos establecidos en este Reglamento deberán interpretarse conforme a los principios de razonabilidad, proporcionalidad, eficiencia, oportunidad, control interno y finalidad pública, de manera que no se vacíe de contenido la excepción legal prevista en el artículo 3 inciso g) de la Ley General de Contratación Pública.
+(Así radicionado mediante acuerdo N° Acuerdo 003-045-2026)

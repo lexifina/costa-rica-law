@@ -14,3 +14,4 @@ Reglamento para la operación del fondo de caja chica de la Superintendencia de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-08 | la propia norma |
+| 2 | 2026-08-24 | Reglamento 0 (2026-08-24) |

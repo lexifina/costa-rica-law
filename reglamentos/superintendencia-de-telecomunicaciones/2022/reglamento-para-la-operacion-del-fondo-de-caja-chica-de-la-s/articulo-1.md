@@ -9,4 +9,5 @@ DE TELECOMUNICACIONES"
 EXPEDIENTE FOR-SUTEL-DGO-PRO-CGL-00063-2022
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º-El presente reglamento contiene las disposiciones que regirán la correcta administración del Fondo Fijo de Caja Chica de la Superintendencia de Telecomunicaciones.
+Artículo 1°—Objeto. El presente reglamento tiene por objeto regular la constitución, administración, operación, control y rendición de cuentas del Fondo Fijo de Caja Chica de la SUTEL, como instrumento financiero de carácter excepcional, conforme a la Ley General de Contratación Pública y su Reglamento.
+(Así reformado mediante acuerdo N° Acuerdo 003-045-2026)
