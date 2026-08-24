@@ -1,0 +1,16 @@
+CIRCULAR N° 144-2026
+Asunto: Fortalecimiento del control, custodia, registro y verificación de activos institucionales.
+A TODOS LOS DESPACHOS JUDICIALES Y PÚBLICO EN GENERAL.
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 68-2026 celebrada el 13 de agosto de 2026, artículo XVII, así como con ocasión del seguimiento efectuado por el Departamento de Proveeduría respecto de los resultados del Inventario Institucional 2025, dispuso reiterar a todas las jefaturas y personas responsables de activos institucionales la obligación de fortalecer las acciones de control patrimonial y cumplir estrictamente con la normativa vigente.
+En consecuencia, se recuerda y dispone lo siguiente:
+1. Cumplimiento de la normativa institucional. Todas las jefaturas deberán observar y hacer cumplir las disposiciones contenidas en los artículos 44 y 45 del Reglamento para el Registro, Control y Uso de Activos Institucionales.
+2. Verificación física de activos. Las oficinas judiciales deberán realizar, como mínimo, una verificación física anual de los activos bajo su responsabilidad, dejando constancia documental de dicha gestión, sin perjuicio del Inventario Institucional que se efectúe cada año.
+3. Actualización de información en el SICA-PJ. Las personas responsables de la custodia de bienes deberán gestionar de forma oportuna en el Sistema Institucional de Control de Activos (SICA-PJ) cualquier traslado, préstamo, cambio de ubicación, reasignación, baja u otro movimiento que afecte la situación física o administrativa de los activos, manteniendo actualizada la información correspondiente.
+4. Revisión y depuración previa al inventario. Antes del inicio de cada Inventario Institucional, las oficinas deberán ejecutar una revisión integral de sus activos, verificando la ubicación física de los bienes, la correcta identificación de custodios y la actualización de los registros respectivos.
+5. Activos no localizados. Cuando se detecten bienes no encontrados, las jefaturas deberán realizar las investigaciones y gestiones correspondientes para su localización, regularización o determinación de responsabilidades, conforme a la normativa institucional vigente.
+6. Aplicación de circulares vigentes. Se reitera la obligatoriedad de observar los procedimientos establecidos en las Circulares N° 10-2008 y N° 055-2019 de la Secretaría General de la Corte, así como la Circular N° 138-2025 de la Dirección Ejecutiva, para los casos de faltantes no justificados y la eventual restitución patrimonial que corresponda.
+7. Planes de acción correctivos. Las oficinas que mantengan activos no localizados después de concluido el Inventario Institucional deberán elaborar un plan de acción con responsables y plazos definidos para la localización, regularización o investigación de dichos bienes, informando periódicamente sobre los avances obtenidos al Departamento de Proveeduría.
+8. Se insta a todas las jefaturas y personas funcionarias a fortalecer la cultura de control patrimonial, administración responsable y adecuada custodia de los bienes institucionales, en resguardo de los recursos públicos y en cumplimiento de los principios de transparencia y rendición de cuentas.
+Publíquese una vez en el Boletín Judicial.
+San José, 24 de agosto de 2026.
