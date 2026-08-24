@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección General de Presupuesto Nacional mantendrá el registro del espacio de gasto cedido por el Poder Ejecutivo en el presente acuerdo y velará por el estricto apego al Título IV de la Ley N° 9635, de manera que el Gobierno Central no sobrepase los límites que le fija la Regla Fiscal para el gasto corriente.
