@@ -7,3 +7,4 @@ Para obtener permisos municipales de manera física, sean de reparación (obras 
 [imagen]
 [imagen]
 [imagen]
+(Nota de Sinalevi: Mediante sesión N° 121 del 24 de agosto de 2026, se acordó derogar de este capítulo el apartado #3 de Torres de Telecomunicaciones y en su lugar señalar que lo referente a Telecomunicaciones se regirá por la normativa de alcance nacional vigente tanto del MICITT como del INVU.)

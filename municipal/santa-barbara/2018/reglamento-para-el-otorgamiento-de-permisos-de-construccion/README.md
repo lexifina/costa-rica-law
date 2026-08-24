@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permisos de construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-29 | la propia norma |
+| 2 | 2026-08-24 | Reglamento municipal 121 (2026-08-24) |
