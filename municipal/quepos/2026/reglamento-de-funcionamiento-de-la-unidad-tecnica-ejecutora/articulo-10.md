@@ -1,0 +1,2 @@
+Artículo 10. Sesiones Virtuales. En ambos supuestos, en caso de celebrar sesiones de manera virtual, se debe permitir a los miembros una comunicación integral y simultánea, de forma tal que puedan intercambiar sus criterios, interactuar en tiempo real y agilizar los procesos de toma de decisiones.
+Cada sesión virtual debe contar con un respaldo digital, audio y video, y cumplir con los requisitos del quórum para sesionar válidamente. En el acto se indicarán los miembros del órgano colegiados presentes de forma virtual.

@@ -1,0 +1,2 @@
+Artículo 15.—De la conservación del acta. Una vez que las actas han sido aprobadas por la Unidad Técnica Ejecutora y firmadas por el Presidente y Secretario, deben resguardarse en archivos seguros, con sus debidos respaldos, que protejan y tengan las condiciones apropiadas para la conservación de las mismas. Las actas originales de la Unidad Técnica Ejecutora, las conservará la Secretaría.
+Las actas deberán tener numeración continua y ser insertas en el libro respectivo debidamente legalizado.

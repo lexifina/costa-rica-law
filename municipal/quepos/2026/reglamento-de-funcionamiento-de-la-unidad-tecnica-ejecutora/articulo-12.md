@@ -1,0 +1,4 @@
+Artículo 12.—Del Orden del Día. El orden del día indicará todos los asuntos que la Unidad Técnica Ejecutora deberá conocer en la sesión y, cuando corresponda, irá acompañado de la documentación necesaria para su correcta discusión.
+Cualquier miembro de la Unidad podrá solicitar, al inicio de la sesión, la alteración del orden del día o la inclusión de nuevos asuntos.
+En las sesiones ordinarias, la modificación o ampliación del orden del día requerirá el voto favorable de al menos dos terceras partes de los miembros presentes.
+En las sesiones extraordinarias, la incorporación de asuntos no previstos en la convocatoria solo procederá por unanimidad de los miembros presentes y siempre que se motive adecuadamente la urgencia o necesidad de su conocimiento, aplicando por analogía lo previsto en los artículos 36 y 39 del Código Municipal.

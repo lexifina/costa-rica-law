@@ -1,0 +1,7 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+SECRETARÍA DEL CONCEJO MUNICIPAL
+El Concejo Municipal de Quepos mediante acuerdo 10, Artículo Único, conocer informes y dictámenes de comisiones, Sesión Extraordinaria No. 175-2026, celebrada el miércoles 24 de junio del 2026, y ratificado en la Sesión Ordinaria 176- 2026, celebrada el martes 30 de junio del 2026; acuerda lo siguiente:
+“Acuerdo N° 10: El Concejo Acuerda: Aprobar en todos sus términos la recomendación del Dictamen MQ-CMAJ-028-26-2026-2028, de la Comisión Municipal Permanente de Asuntos Jurídicos. Adoptándola como acuerdo del Concejo Municipal. Por tanto: Acoger en todos sus términos el informe MQ-AJCM-INF-082-2025 y, consecuentemente, aprobar el Reglamento de Funcionamiento de la Unidad Técnica Ejecutora de la Zona Americana de Quepos con las modificaciones de fondo y forma sugeridas por la Asesoría Legal. Publíquese dicha normativa interna en el Diario Oficial La Gaceta para entrada en vigencia. Se aprueba lo anterior por unanimidad de los regidores (cinco votos). Votan los regidores; Hugo Arias Azofeifa, Martha Bosque Marchena, Ericka Castillo Porras, José Manuel Jara Mora, y Gilbert Cruz Jiménez.”
+REGLAMENTO DE FUNCIONAMIENTO DE LA UNIDAD TÉCNICA EJECUTORA DE LA ZONA AMERICANA
+Generalidades
+Artículo 1º—Objetivo. El presente reglamento tiene como objetivo regular en términos generales la actuación de la Unidad Técnica Ejecutora de Zona Americana.
