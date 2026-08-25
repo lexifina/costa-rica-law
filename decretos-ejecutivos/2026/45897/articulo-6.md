@@ -1,0 +1,3 @@
+ARTICULO VI
+En lo referente a la Inmunidad Civil, Administrativa y Penal, los dependientes que ejerzan actividad remunerada según los términos de este Acuerdo, no gozarán de inmunidad de la jurisdicción civil y administrativa, por los asuntos laborales derivados del permiso de trabajo concedido.
+En el caso de que un dependiente que goce de inmunidad penal de acuerdo a la Convención de Viena sobre Relaciones Diplomáticas sea acusado por un delito perpetrado en relación con la actividad laboral autorizada, el Estado acreditado, en virtud de solicitud escrita del Estado receptor, examinará la posibilidad de renunciar a la inmunidad de jurisdicción penal del dependiente en cuestión.

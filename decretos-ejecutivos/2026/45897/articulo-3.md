@@ -1,0 +1,2 @@
+ARTICULO III
+Antes de que un dependiente pueda aceptar empleo en el país receptor, la Embajada del Estado acreditado planteará una solicitud oficial ante el Ministerio de Relaciones Exteriores del Estado acreditante (ver Anexos A y B), el que, luego de verificar la aplicabilidad de este Acuerdo, de conformidad con los procedimientos internos del caso, informará en forma expedita y oficial la autorización para aceptar el empleo, sujeto a las regulaciones pertinentes del Estado receptor
