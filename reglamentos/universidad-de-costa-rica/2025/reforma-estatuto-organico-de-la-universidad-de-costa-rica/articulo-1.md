@@ -1,0 +1,23 @@
+UNIVERSIDAD DE COSTA RICA
+De conformidad con el artículo 237 del Estatuto Orgánico de la Universidad de Costa Rica, se comunican los acuerdos tomados en la sesión N.º 154 de la Asamblea Colegiada Representativa, celebrada el 2 de abril de 2025.
+1. Aprobar el acta de la sesión Nº 151, de la Asamblea Colegiada Representativa, celebrada el 17 de mayo de 2023.
+2. Aprobar el acta de la sesión Nº 152, de la Asamblea Colegiada Representativa, celebrada el 12 de junio de 2024.
+3. Aprobar el acta de la sesión Nº 153, de la Asamblea Colegiada Representativa, celebrada el 6 de noviembre de 2024.
+4. Poner en conocimiento de la Asamblea Colegiada Representativa de las resoluciones del Séptimo Congreso, tituladas Hacia una Universidad Saludable, Fortalecimiento de la atención integral de la salud del personal que labora en la Universidad de Costa Rica, y El sistema de atención integrado para la atención en salud.
+5. Poner en conocimiento de la Asamblea Colegiada Representativa que el Consejo Universitario desestimó la reforma del Reglamento General del Fondo Solidario Estudiantil para el Apoyo a Estudiantes con Situaciones Calificadas de Salud, planteadas por la resolución número VU-09.
+6. Poner en conocimiento de la Asamblea Colegiada Representativa que el Consejo Universitario desestimó la modificación al artículo 53 del Reglamento de Régimen Académico y Servicio Docente, planteada por la resolución número VU-24.
+7. Aprobar la reforma a los artículos 24, 38, 47, 91 y 112 del Estatuto Orgánico de la Universidad de Costa Rica, con respecto al requisito de ser costarricense en los diferentes puestos institucionales, para que en lo sucesivo se lean de la siguiente manera: “Artículo 24.- El Consejo Universitario estará integrado por:
+a) Una persona del sector académico por cada área y otra por las sedes regionales, quienes deberán tener al menos la categoría de profesor asociado. La elección la realizará la Asamblea Plebiscitaria de entre los candidatos o las candidatas que presente cada una de las áreas y las sedes regionales.
+b) Una persona del sector administrativo en propiedad, cuya elección será realizada por el sector administrativo.
+c) Dos personas del sector estudiantil, electas por la población estudiantil, de acuerdo con el Reglamento que para tal efecto promulgue la Federación de Estudiantes de la Universidad de Costa Rica, el cual deberá estar inscrito en el registro de la Vicerrectoría de Vida Estudiantil ch) Eliminado.
+d) La rectora o el rector.
+e) Una persona representante designada por la Federación de Colegios Profesionales Universitarios, graduada de la Universidad de Costa Rica.
+El ministro o la ministra de Educación Pública podrá asistir con voz y voto a las sesiones del Consejo Universitario, en carácter de miembro honorario, por lo que no se tomará en cuenta para efectos de cuórum”.
+“Artículo 38.- Para ser rectora o rector se requiere haber cumplido 30 años de edad y tener al menos el rango de profesor asociado en régimen académico”.
+“Artículo 47.- Para ser nombrado vicerrector se requiere haber cumplido 30 años de edad y tener al menos el rango de profesor asociado en régimen académico”.
+“Artículo 91.- Para ser decana o decano se requerirá tener al menos 30 años de edad y el rango de catedrático o de profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer al régimen académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes”.
+“Artículo 112.- Para ser directora o director de sede regional se requiere tener al menos 30 años de edad y el rango de catedrático o profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer al régimen académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes de la Asamblea de Sede.
+(…)”.
+8. Acordar votar la propuesta de reforma para la inclusión de un inciso c) al artículo 41 y la reforma estatutaria al artículo 158 del Estatuto Orgánico de la Universidad de Costa Rica en la próxima sesión de la Asamblea Colegiada Representativa, al no haberse alcanzada el 75% requerido para realizar la votación de forma inmediata.
+Asimismo, en consonancia con el artículo 237 del Estatuto Orgánico de la Universidad de Costa Rica, se comunican los acuerdos tomados en la sesión N.º 154 segunda parte (continuación) de la Asamblea Colegiada Representativa, celebrada el 30 de abril de 2025.
+1. Rechazar la inclusión de un inciso c) al artículo 41 del Estatuto Orgánico de la Universidad de Costa Rica y la reforma al artículo 158 del Estatuto Orgánico de la Universidad de Costa Rica, en relación con el impedimento que implique la inhibición o recusación de quien asume la Rectoría.
