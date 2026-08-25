@@ -1,0 +1,4 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+De conformidad con el Acuerdo N° 215-5-2026 SE.9 de la Junta Directiva, adoptado en la sesión extraordinaria N° 09 del 19 de mayo del 2026, se aprobó la reforma al artículo 4 del Manual de Funcionamiento de la Junta Directiva, al cual se le adiciona un párrafo final posterior al inciso h), el cual se leerá de la siguiente forma:
+“La Junta Directiva y sus miembros, actuando en forma individual o colectiva, no podrán promover, presentar, respaldar ni gestionar ante la Asamblea Legislativa proyectos de reforma total o parcial a la Ley N° 1038 sin contar previamente con autorización expresa de la Asamblea General del Colegio, convocada específicamente para el conocimiento, análisis y pronunciamiento sobre la conveniencia de la propuesta de reforma.”
+En todo lo demás y no reformado, se mantiene vigente el Manual de Funcionamiento de la Junta Directiva. Rige a partir de su publicación en el Diario Oficial La Gaceta.
