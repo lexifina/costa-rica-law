@@ -1,0 +1,1 @@
+Artículo 63.—Solicitud de la Asamblea Legislativa. La Asamblea Legislativa de conformidad con el inciso h) artículo 32 de la Ley N° 8292 Ley General de Control Interno, podrá solicitar información a la Auditoría Interna, salvo si se trata de denuncias trasladadas al Ministerio Público.

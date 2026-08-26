@@ -1,0 +1,3 @@
+Sección V.
+Del Trámite de denuncias
+Artículo 65.—Ámbito de sus competencias en relación con denuncias. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre presuntos hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos que afecten al Sinac y lo regulado por la Ley N°8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito y su reglamento. Se dará trámite únicamente las denuncias dirigidas directamente a la Auditoría Interna. En el caso, que la denuncia esté dirigida a otra dependencia del Sinac y del Ministro de Ambiente y Energía, con copia a la Auditoría Interna, será esa instancia a la que le corresponde gestionar su atención.

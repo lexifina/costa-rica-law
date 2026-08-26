@@ -1,0 +1,1 @@
+Artículo 38.—Potestades de la Auditoría Interna. La persona Auditora Interna, la persona Subauditora Interna y las personas funcionarias de la Auditoría Interna deberán ejercer las potestades que se establecen en el artículo 33 de la Ley N° 8292 Ley General de Control Interno.

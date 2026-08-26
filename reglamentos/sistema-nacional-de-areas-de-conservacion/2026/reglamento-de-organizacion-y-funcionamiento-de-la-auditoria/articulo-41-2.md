@@ -1,0 +1,2 @@
+Sección II. Planificación de la Auditoría Interna
+Artículo 42.—Planificación estratégica y planificación anual. La persona Auditora Interna definirá y documentará la planificación de corto y mediano plazo, mediante la elaboración de un plan estratégico, un plan anual, un presupuesto anual y los Programas Generales de cada estudio. El plan estratégico de la auditoría interna deberá ser congruente con la planificación estratégica de la Administración Activa y la normativa reglamentaria y técnica pertinente.

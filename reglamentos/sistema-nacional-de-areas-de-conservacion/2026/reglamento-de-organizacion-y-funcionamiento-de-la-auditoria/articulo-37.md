@@ -1,0 +1,1 @@
+Artículo 37.—Deberes de la Auditoría Interna. La persona Auditora Interna, la persona Subauditora Interna y, las personas funcionarias de la Auditoría Interna tendrán las obligaciones que se establecen en el artículo 32 de la Ley N° 8292 Ley General de Control Interno.

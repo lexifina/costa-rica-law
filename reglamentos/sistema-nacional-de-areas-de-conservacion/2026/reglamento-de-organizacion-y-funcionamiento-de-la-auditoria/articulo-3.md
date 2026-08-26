@@ -1,0 +1,1 @@
+Artículo 3°—Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todas las personas funcionarias de la Auditoría Interna y de la Administración Activa del Sistema Nacional de Áreas de Conservación que son objeto de fiscalización por parte de la Auditoría Interna de la Institución, en lo que les resulte aplicable.

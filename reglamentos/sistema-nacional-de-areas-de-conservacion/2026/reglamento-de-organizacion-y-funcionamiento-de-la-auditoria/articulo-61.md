@@ -1,0 +1,1 @@
+Artículo 61.—Relaciones de hechos. El informe de auditoría que verse sobre relaciones de hechos, solo tratará asuntos de los que eventualmente puedan derivarse posibles responsabilidades administrativas y civiles, ha de contener los elementos necesarios para identificar los presuntos responsables de los hechos presuntamente irregulares que se les atribuyen.

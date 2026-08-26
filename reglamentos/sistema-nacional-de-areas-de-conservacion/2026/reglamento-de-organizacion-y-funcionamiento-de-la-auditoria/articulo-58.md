@@ -1,0 +1,1 @@
+Artículo 58.—Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará a criterio de la persona Auditora Interna, a quien corresponde definir el contenido y la forma de presentación del producto y otros medios de comunicación, de conformidad con la normativa aplicable.

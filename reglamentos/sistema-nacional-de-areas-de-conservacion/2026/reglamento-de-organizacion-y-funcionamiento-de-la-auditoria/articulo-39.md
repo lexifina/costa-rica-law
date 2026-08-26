@@ -1,0 +1,1 @@
+Artículo 39.—Prohibiciones. La persona Auditora Interna, la persona Subauditora Interna y las personas funcionarias de la Auditoría Interna tendrán las prohibiciones, establecidas en el artículo 34 de la Ley No 8292, Ley General de Control Interno.

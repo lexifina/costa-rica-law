@@ -1,0 +1,2 @@
+Artículo 22.—Jornada laboral de la persona Auditora Interna y Subauditora Interna. La jornada laboral de la persona Auditora Interna y Subauditora Interna será de cuarenta horas semanales conforme al itinerario de entrada y de salida autorizada al resto del personal del Sinac y en particular a la Dirección Ejecutiva.
+En casos muy calificados, el Conac podrá solicitar a la Contraloría General de la República una reducción de la jornada, la cual no podrá ser inferior a medio tiempo.

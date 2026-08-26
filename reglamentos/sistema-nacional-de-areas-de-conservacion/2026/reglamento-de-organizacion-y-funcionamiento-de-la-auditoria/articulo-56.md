@@ -1,0 +1,4 @@
+Artículo 56.—Comunicación escrita. Los resultados de las auditorías o estudios especiales deberán ser comunicados por la Auditoría Interna en forma oficial por escrito, mediante informes objetivos según el siguiente orden:
+a. Se comunicarán los informes de carácter estratégico al Conac con copia al titular subordinado b. Se comunicarán los informes de carácter de control interno a los titulares subordinados con copia al Conac.
+Lo anterior, de conformidad con las disposiciones establecidas en la Ley N° 8292, Ley General de Control Interno y la normativa que al efecto dicte la Contraloría General de la República.
+De previo al informe final que necesariamente debe producirse por cada auditoría, se podrán emitir informes cortos y documentos de advertencia, a criterio de la persona Auditora Interna valorando aspectos de oportunidad.

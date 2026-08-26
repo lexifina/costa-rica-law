@@ -1,0 +1,3 @@
+CAPÍTULO II: ORGANIZACIÓN DE LA AUDITORÍA INTERNA
+Sección I. Concepto de la Auditoría Interna
+Artículo 5°—Concepto de auditoría interna. La auditoría interna constituye una actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones. Contribuye al logro de los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección. La auditoría interna proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y del resto de la administración se ejecuta conforme al marco legal y técnico, y a las sanas prácticas.
