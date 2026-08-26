@@ -1,0 +1,1 @@
+Artículo 2.- Esta norma deberá aplicarse como complemento a las disposiciones generales establecidas en el Decreto Ejecutivo Nº 43432-S del 9 de marzo de 2022, para la obtención y renovación del permiso de habilitación correspondiente.

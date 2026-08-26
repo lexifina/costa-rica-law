@@ -1,0 +1,1 @@
+TRANSITORIO II: Las solicitudes de habilitación de estos establecimientos presentadas con anterioridad a la entrada en vigencia del presente Decreto, deben tramitarse al tenor de lo dispuesto en el Decreto Ejecutivo Nº 43432-S del 9 de marzo de 2022.

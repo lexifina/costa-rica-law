@@ -1,0 +1,1 @@
+TRANSITORIO I Los establecimientos que a la fecha de entrada en vigor de este Decreto cuenten con un permiso de habilitación vigente, dispondrán de un plazo máximo de doce meses para adaptar sus condiciones a lo dispuesto en la presente norma. Vencido este plazo, la renovación de su permiso estará sujeta al cumplimiento integral de la misma.
