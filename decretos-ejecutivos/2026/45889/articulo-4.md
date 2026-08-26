@@ -1,0 +1,7 @@
+Artículo 4. —Criterios generales para la priorización en listas de atención. La priorización de las personas usuarias incluidas en listas de atención deberá fundamentarse en una valoración clínica individual realizada por el profesional de salud, sin perjuicio de los criterios específicos aplicables a cada especialidad. Para la determinación de la prioridad de atención deberán considerarse, según corresponda, los siguientes elementos:
+a) La gravedad, severidad y evolución de la condición clínica que motiva el ingreso a la lista de atención.
+b) El riesgo de evolución de la enfermedad, deterioro funcional, complicaciones o afectación irreversible de la salud asociado a la demora en la atención.
+c) El impacto de la condición de salud sobre la funcionalidad, autonomía, capacidad para realizar actividades de la vida diaria, desempeño laboral, educativo o social y calidad de vida de la persona usuaria.
+d) El beneficio clínico esperado de la atención.
+e) Los factores de vulnerabilidad sanitaria o barreras de acceso que puedan incrementar el impacto de la espera sobre la salud de la persona usuaria, cuando estos se encuentren acreditados y guarden relación objetiva con el riesgo sanitario asociado a la demora.
+f) El tiempo acumulado de permanencia en la lista de espera, considerando que ninguna persona usuaria podrá ser postergada indefinidamente cuando existan otras personas con condiciones clínicas similares.
