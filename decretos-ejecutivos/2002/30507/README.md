@@ -14,3 +14,4 @@ Determina correspondencia de los estudios que se realicen en el Centro Educativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-26 | la propia norma |
+| 2 | 2026-08-27 | Decreto Ejecutivo 45939 (2026-08-27) |
