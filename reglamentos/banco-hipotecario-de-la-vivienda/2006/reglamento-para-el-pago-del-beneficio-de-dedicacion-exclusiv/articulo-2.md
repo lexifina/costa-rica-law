@@ -1,6 +1,6 @@
 Artículo 2º-Requisitos: Para acogerse al régimen de dedicación exclusiva, los funcionarios a que se refiere el presente reglamento deben cumplir con los siguientes requisitos:
-a.Estar nombrado por tiempo completo, en propiedad o de forma interina, en alguno de los puestos contemplados en el presente Reglamento.
-(Así reformado el inciso anterior en sesión N° 38 del 10 de agosto de 2026)
+a.Estar nombrado por tiempo completo, en período de prueba, en propiedad o de forma interina, en alguno de los puestos contemplados en el presente Reglamento.
+(Así reformado el inciso anterior en sesión N° 40 del 27 de agosto de 2026)
 b. Estar incorporados al respectivo colegio profesional cuando exista esa corporación en el área correspondiente.
 c. Ocupar un cargo de Jefe de Dirección, Jefe del Departamento de Tecnología de Información, Jefe de Asesoría Legal, Asistente de la Subgerencia Financiera, Asistente la Subgerencia de Operaciones o Asistente de Gerencia.
 d. Firmar el contrato de dedicación exclusiva.
