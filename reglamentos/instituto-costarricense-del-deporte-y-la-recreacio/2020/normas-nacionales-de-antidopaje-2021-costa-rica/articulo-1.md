@@ -131,7 +131,7 @@ b) Monitorear el cumplimiento del Plan Anual de Distribución de Controles de la
 c) Velar por el correcto despacho de los expedientes cuyo conocimiento recaiga en la competencia los Tribunales de Dopaje o el Comité de Autorizaciones de Uso Terapéutico.
 d) Proponer al Comité Ejecutivo de la CONAD-CR el proyecto de presupuesto anual ordinario, así como cualesquiera presupuestos extraordinarios de la CONAD-CR para su debida aprobación y posterior ratificación por el Consejo Nacional del Deporte y la Recreación.
 e) Velar por la correcta ejecución del presupuesto.
-f) Ejecutar las labores relacionadas con los procedimientos de gestión de resultados que el Código delegue en CONAD-CR.
+f) (Derogado mediante publicación en La Gaceta N° 163 del 28 de agosto del 2026)
 Tribunal Nacional de Dopaje
 El Tribunal Nacional de Dopaje es un órgano administrativo juzgador de primera instancia, enteramente independiente del Comité Ejecutivo, con competencia para la instrucción del procedimiento sancionador previsto por estas Normas, así como la imposición de las sanciones previstas por el Código. Igualmente será competente el Tribunal Nacional de Dopaje, para la imposición de medidas cautelares o provisionales, previstas por estas Normas o por el Código Mundial Antidopaje, en contra de las personas procesadas por infracciones concernientes al presente cuerpo normativo. El Tribunal Nacional de Dopaje debe satisfacer los requisitos contemplados en la definición de Independencia Operacional, tal como se definen esos términos en estas Normas y en el Código.
 El Tribunal Nacional de Dopaje estará conformado por un total de cuatro integrantes, incluyendo al menos una mujer como jueza integrante, quienes deberán cumplir con los siguientes requisitos:
@@ -148,5 +148,10 @@ El Tribunal Nacional de Apelaciones en Dopaje estará integrado por cuatro integ
 Comité de Autorizaciones de Uso Terapéutico
 La CONAD-CR nombrará un Comité de Autorizaciones de Uso Terapéutico, enteramente independiente del Comité Ejecutivo, con integrantes y actividad independientes, el cual atenderá las solicitudes de autorización de uso terapéutico (AUT) que realicen los atletas, de acuerdo con el Estándar Internacional para Autorización de Uso Terapéutico dictado por la Agencia Mundial Antidopaje.
 El Comité debe incluir al menos tres profesionales en medicina con experiencia en el cuidado y tratamiento de atletas y tener un conocimiento adecuado en medicina deportiva y de lucha contra el dopaje, medicina deportiva, como posteriormente se especifica en el artículo 4.4.2.2 de estas Normas antidopaje. Las personas designadas en este Comité deben evaluar las solicitudes de acuerdo con el Estándar Internacional para Autorización de Uso Terapéutico dictado por la Agencia Mundial Antidopaje.
+Artículo 1º—Adición. Adiciónese en la Introducción al reglamento denominado Normas Nacionales Antidopaje de Costa Rica 2021 adoptado por este Consejo mediante acuerdo N° 9 de la sesión ordinaria N° 1151-2020, de 29 de octubre de 2020 y sus reformas, en la sección Introducción, posterior al párrafo segundo del subtítulo Comité de Autorizaciones de Uso Terapéutico, una nueva subsección como se aprecia a continuación:
+(*)Personal Operativo
+La Dirección Nacional y/o el Consejo Nacional del Deporte y la Recreación designarán al personal que se requiera para atender las gestiones operativas de la CONAD-CR.
+Asimismo, se asignará a un profesional en Derecho quien realizará las labores relacionadas con los procedimientos de gestión de resultados que el Código delegue en la CONAD-CR.
+(*)(Así adicionado el punto anterior mediante publicación en La Gaceta N° 163 del 28 de agosto del 2026)
 ARTÍCULO 1 DEFINICIÓN DE DOPAJE
 El dopaje se define como la comisión de una o varias infracciones de las normas antidopaje según lo dispuesto en los apartados 1 a 11 de estas Normas Antidopaje.
