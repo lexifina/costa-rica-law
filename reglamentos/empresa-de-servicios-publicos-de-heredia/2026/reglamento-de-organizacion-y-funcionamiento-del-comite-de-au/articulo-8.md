@@ -1,0 +1,6 @@
+ARTICULO 8- Sesiones
+El Comité sesionará ordinariamente al menos una vez cada tres meses y extraordinariamente, cuando sus miembros en pleno lo acuerden. La convocatoria indicará la hora en que se realizará la sesión y se adjuntarán los documentos vinculados con el tema a desarrollarse.
+Las sesiones se podrán desarrollar bajo la modalidad presencial o virtual. Es deber de los miembros del Comité la asistencia a las sesiones que sean convocadas, en caso de fuerza mayor o motivos fuera de su control que le impidan participar de la sesión, deberá justificar las razones que motivan su ausencia para que pueda constar en el acta respectiva.
+Las sesiones serán dirigidas por un Coordinador del Comité, quien abrirá la sesión y llevará el orden de los temas de acuerdo con la agenda de la convocatoria.
+Las sesiones comenzarán con la aprobación de la agenda establecida previamente y notificada a los miembros del Comité. Salvo casos en que surja algún tema urgente que deba ser tratado de inmediato por el Comité, sin posibilidad de poderse tratar en una próxima será incorporado a la agenda de la sesión. El desarrollo de la sesión se ajustará a la agenda y conforme a los temas convocados.
+Cada miembro debe hacer lectura y análisis previo de los documentos asociados a la convocatoria de la sesión, con el fin de agilizar el avance de la agenda en el tiempo definido.

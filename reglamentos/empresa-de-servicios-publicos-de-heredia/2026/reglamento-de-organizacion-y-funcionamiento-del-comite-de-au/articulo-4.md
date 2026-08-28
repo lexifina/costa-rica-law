@@ -1,0 +1,3 @@
+ARTÍCULO 4- Alcance.
+El Comité no ejerce funciones operativas ni de supervisión directa, ni sustituye a la Contraloría Interna. Su rol es analítico y asesor, orientado a valorar la coherencia entre los riesgos, los controles y las decisiones del jerarca. Actúa como instancia de apoyo al jerarca para la articulación estratégica de la gestión de riesgos y la coordinación con los mecanismos de aseguramiento independiente, sin generar estructuras paralelas ni duplicar funciones existentes.
+El Comité se circunscribe exclusivamente a funciones de análisis, valoración técnica, seguimiento estratégico y recomendación, sin que sus actuaciones tengan carácter decisorio ni vinculante para la Administración.
