@@ -1,0 +1,3 @@
+Artículo 40. Presentación de la Oferta.
+La oferta deberá presentarse, debidamente firmada por quien tenga poder suficiente para ello, dentro del plazo previsto para tal efecto en el pliego de condiciones. La oferta estará accesible hasta la hora y la fecha señaladas en el pliego de condiciones para la apertura de ofertas.
+Con el solo sometimiento de la oferta en tiempo, se entiende aceptado el plazo de vigencia de la oferta establecido en el pliego de condiciones y durante las diferentes etapas del procedimiento. Si hubiera alguna inconsistencia, la Administración hará la prevención durante la fase de subsanación de las ofertas.

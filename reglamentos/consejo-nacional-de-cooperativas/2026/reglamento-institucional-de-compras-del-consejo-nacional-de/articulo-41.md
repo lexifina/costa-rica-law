@@ -1,0 +1,3 @@
+Artículo 41. Recepción y apertura de las ofertas.
+La apertura de las ofertas se realizará en la hora y fecha señalada al efecto. Una vez que se realice la apertura, las ofertas serán abiertas, estarán disponibles para todos los interesados y se registrará y generará un acta electrónica de apertura de las ofertas recibidas, la cual se podrá visualizar en el respectivo expediente.
+Los oferentes podrán efectuar observaciones dentro del plazo establecido en el pliego de condiciones y a falta de indicación en el día hábil siguiente al día de apertura de las ofertas. En caso de que se presenten observaciones, éstas se consignarán en el expediente y serán valoradas por la Administración.

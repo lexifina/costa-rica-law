@@ -1,0 +1,3 @@
+Artículo 56. Licitación mayor con precalificación.
+La Administración, con ocasión de una licitación mayor, se encuentra facultada a promover una etapa de precalificación para seleccionar, de manera previa, a los participantes para uno o varios concursos. Para ello, deberá cursar invitación de acuerdo con los posibles oferentes registrados en el respectivo registro de proveedores e indicar en el pliego de condiciones los factores de admisibilidad y evaluación que considerará para dicha selección previa.
+Para el desarrollo de este procedimiento la administración se ajustará a lo indicado por el artículo 58 de la Ley de Contratación Pública N° 9986.

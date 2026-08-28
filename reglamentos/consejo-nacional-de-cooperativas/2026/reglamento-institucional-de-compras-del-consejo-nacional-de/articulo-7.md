@@ -1,0 +1,2 @@
+Artículo 7.
+Las personas físicas o jurídicas que deseen formar parte del registro de proveedores pueden solicitar su inclusión al registro. Para la selección la Proveeduría invitará una vez al año, por medio de una publicación en un periódico de Circulación Nacional o en el formulario de la página web del CONACOOP para formar parte del registro de proveedores con el fin de actualizar este registro.

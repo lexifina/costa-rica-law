@@ -1,0 +1,2 @@
+Artículo 31. Contratación de servicios técnicos o profesionales.
+Cuando se trate de un procedimiento por excepción, licitación menor, reducida o pública según corresponda, la compra y/o contratación no producirá relación laboral entre la Administración y el contratista. Respecto al precio, deberán considerarse y respetarse los aranceles obligatorios vigentes por los servicios que se encuentren regulados.
