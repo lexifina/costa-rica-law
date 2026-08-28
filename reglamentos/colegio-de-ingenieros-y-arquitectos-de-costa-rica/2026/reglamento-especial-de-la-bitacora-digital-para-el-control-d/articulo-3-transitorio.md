@@ -1,0 +1,1 @@
+Transitorio III.- Las actuaciones realizadas con anterioridad a la entrada en vigencia del presente Reglamento se regirán por la normativa vigente al momento de su realización. Las actuaciones que se realicen a partir de su entrada en vigencia se regirán por las disposiciones del presente Reglamento.

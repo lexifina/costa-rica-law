@@ -1,0 +1,3 @@
+Artículo 14.- Los profesionales responsables podrán editar o eliminar sus anotaciones dentro del plazo que establezca la Dirección de Operaciones del CFIA.
+Vencido dicho plazo, las anotaciones no podrán ser editadas ni eliminadas por el profesional. Cualquier solicitud de eliminación deberá presentarse debidamente justificada y resolverse conforme a las disposiciones que establezca la Junta Directiva General o la dependencia que esta designe.
+Toda edición o eliminación deberá quedar registrada en la bitácora digital mediante los mecanismos de trazabilidad dispuestos por la plataforma, de forma que permita identificar la modificación realizada y conservar el historial correspondiente.

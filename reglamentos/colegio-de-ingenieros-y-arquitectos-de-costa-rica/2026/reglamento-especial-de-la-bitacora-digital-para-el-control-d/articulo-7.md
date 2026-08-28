@@ -1,0 +1,2 @@
+Artículo 7.- Toda notificación generada automáticamente por la plataforma de bitácora digital se efectuará al correo electrónico permanente registrado por el profesional ante el Departamento de Registro y Documentación del CFIA.
+Corresponderá a cada profesional mantener actualizada dicha información. La falta de actualización o la inexactitud del correo electrónico registrado exonerará al CFIA de toda responsabilidad por la imposibilidad de efectuar la notificación.

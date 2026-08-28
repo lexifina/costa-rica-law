@@ -1,0 +1,2 @@
+Artículo 13.- Las anotaciones podrán complementarse con informes, reportes, esquemas, dibujos, gráficos, fotografías, videos, tablas o cualquier otro archivo, en los formatos que permita la plataforma.
+Cuando se incorporen archivos a la bitácora digital para complementar una anotación, el profesional deberá indicar con claridad qué hecho, condición, proceso constructivo o incidencia se documenta mediante estos.

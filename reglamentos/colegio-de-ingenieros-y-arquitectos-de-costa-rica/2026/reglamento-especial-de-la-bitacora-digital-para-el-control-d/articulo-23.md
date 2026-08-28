@@ -1,0 +1,4 @@
+Artículo 23. Cuando una bitácora digital permanezca sin nuevas anotaciones durante un período continuo de dos años, el CFIA podrá disponer su cierre de oficio.
+Previamente al cierre de oficio, la plataforma notificará a los profesionales registrados en el proyecto la intención de efectuar dicho cierre, otorgándoles el plazo que establezca la Dirección de Operaciones del CFIA para manifestar su oposición.
+Si dentro del plazo indicado no se presenta oposición, el CFIA dispondrá el cierre de oficio de la bitácora digital y la plataforma actualizará el estado correspondiente, dejando constancia de dicha actuación mediante los mecanismos de trazabilidad correspondientes.
+La reapertura de una bitácora digital cerrada de oficio se regirá por las disposiciones que establezca la Junta Directiva General o la dependencia que esta designe.
