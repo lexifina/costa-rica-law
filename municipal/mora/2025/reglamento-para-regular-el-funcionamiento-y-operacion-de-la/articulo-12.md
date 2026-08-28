@@ -1,0 +1,1 @@
+Artículo 12º-Forma de atención: las atenciones se realizarán previa cita asignada, bajo la metodología PEPS. Podrán realizarse de manera presencial o virtual, procurando en todo momento brindar el mejor servicio a las personas usuarias. Aquellos casos que ingresen a atención mediante referencia deberán incorporarse a la metodología de atención definida.

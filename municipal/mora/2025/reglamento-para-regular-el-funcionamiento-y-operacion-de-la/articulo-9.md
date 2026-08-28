@@ -1,0 +1,4 @@
+Artículo 9º-Sobre las competencias: la OPAMDIS tendrá las siguientes competencias:
+• Acompañar técnicamente el proceso de construcción de la política pública cantonal de las personas adultas mayores y de personas en situación de discapacidad del cantón de Mora, así como su implementación.
+• Monitorear los indicadores y contexto cantonal, para la identificación de necesidades insatisfechas de las poblaciones meta de la OPAMDIS y proponer los programas, servicios y actividades que puedan atender dichas necesidades identificadas.
+• Desarrollar y aplicar estrategias, herramientas y metodologías participativas tanto de consulta, intervención como de evaluación para el desarrollo de programas, servicios y actividades con el fin de garantizar el impacto positivo tanto en las poblaciones meta como en mejora continua de los servicios municipales.

@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: las disposiciones de este reglamento son aplicables al ámbito municipal del cantón de Mora, en cumplimiento de la Ley de Creación de la Oficina de la Persona Adulta Mayor y de Personas en Situación de Discapacidad en las Municipalidades 10046.

@@ -1,0 +1,1 @@
+Artículo 14º-Del registro de atenciones: la OPAMDIS contará con un registro documentado para las atenciones, estudios socioeconómicos, referencias o derivaciones, coordinaciones interinstitucionales y actividades realizadas desde sus programas y servicios.
