@@ -1,0 +1,2 @@
+Artículo 46. Formulación presupuestaria
+La unidad administrativa financiera elaborará el presupuesto institucional conforme a los principios de legalidad, planificación, equilibrio, sostenibilidad, eficiencia, transparencia y rendición de cuentas. Debido a la naturaleza y composición de las fuentes de ingresos del CONACOOP, el presupuesto no estará sujeto a la aprobación de la Contraloría General de la República; será presentado al Directorio para su análisis y aprobación, sin perjuicio de los deberes de información, registro, control y fiscalización que resulten aplicables.
