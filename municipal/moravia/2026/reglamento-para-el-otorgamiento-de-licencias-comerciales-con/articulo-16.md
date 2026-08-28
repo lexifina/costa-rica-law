@@ -1,0 +1,1 @@
+Artículo 16. —Del trámite de renuncia de la licencia comercial. Cuando el patentado finalice su actividad económica, deberá gestionar formalmente la renuncia de la licencia y para ello, deberá completarse el formulario dispuesto al efecto.

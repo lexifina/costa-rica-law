@@ -1,0 +1,1 @@
+Artículo 9. — De las limitaciones. Dada la naturaleza de las licencias comerciales con asentamiento en casas de habitación, no es posible la cesión de estas. Tampoco podrá cambiarse su ubicación ni procederá la transformación en una licencia comercial ordinaria.

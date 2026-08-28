@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 17—De la exclusión del Permiso Sanitario de Funcionamiento por parte del Ministerio de Salud: En caso de que el Ministerio de Salud excluya al gestionante de la licencia municipal de la aplicación del Reglamento General para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud, deberá aportarse constancia de exclusión de dicho ente con los datos respectivos.
