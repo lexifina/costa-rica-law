@@ -1,0 +1,1 @@
+Artículo 4. EL CONACOOP establecerá una cuenta única y exclusiva para la gestión del Fondo de Caja Chica. Dicha cuenta se habilitará para los depósitos permanentes, temporales o ampliaciones del Fondo, así como para los reintegros que se soliciten.

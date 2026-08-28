@@ -1,0 +1,5 @@
+Artículo 20. Requisitos para la cancelación de facturas comerciales, tiquetes de caja o comprobantes.
+Para que una factura comercial, tiquete de caja o comprobante, pueda ser cancelado, deberá cumplir con los siguientes requisitos:
+20.1 Los comprobantes que respalden la adquisición de bienes y servicios deberán ser emitidos por la respectiva casa comercial, en original, a nombre del CONACOOP, sin borrones ni tachaduras, con indicación clara del bien o servicio adquirido, la fecha de adquisición y su valor. Además, deberán cumplir con los requisitos establecidos por la normativa tributaria vigente.
+20.2 En casos de tiquetes de caja u otro tipo de comprobantes que sustituyan a la factura, estos deberán cumplir con los requisitos establecidos por la normativa tributaria vigente.
+20.3 Toda factura, tiquete o comprobante deberá incluir la confirmación de recepción a conformidad de los bienes y servicios, indicando el nombre del personal responsable, su puesto, la dependencia en la cual labora, firma y fecha.
