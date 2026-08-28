@@ -1,0 +1,1 @@
+Artículo 2º—Derogación. Deróguese en la Introducción al reglamento denominado Normas Nacionales Antidopaje de Costa Rica 2021 adoptado por este Consejo mediante acuerdo N° 9 de la sesión ordinaria N° 1151-2020, de 29 de octubre de 2020, en la sección Introducción, subtítulo Secretaría Ejecutiva, el inciso f).
