@@ -1,1 +1,0 @@
-Artículo 146.-En el caso de los comités y subcomités comunales quedarán adscritos al Comité Cantonal a partir de su nombramiento y juramentación por parte de la Junta Directiva del CCDRC, por lo que no están sujetos a los requisitos citados en el artículo anterior.

@@ -1,1 +1,0 @@
-Artículo 75.-Las sesiones virtuales deberán realizarse por cualquier medio de tecnologías de información, telecomunicaciones y aplicaciones informáticas asociadas a la red de internet, que garantice los principios de colegialidad, forma consecutiva y simultaneidad que rigen el funcionamiento de los órganos colegiados, previamente definidas y autorizadas por el órgano colegiado.

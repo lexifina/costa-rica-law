@@ -1,1 +1,0 @@
-Artículo 177.-Será responsabilidad del Comité Cantonal verificar que toda empresa contratante con el comité se encuentre al día con la CCSS, pólizas y demás impuestos nacionales de conformidad con la Ley General de Contratación Pública.

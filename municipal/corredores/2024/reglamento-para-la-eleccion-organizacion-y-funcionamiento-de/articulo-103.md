@@ -1,1 +1,0 @@
-Artículo 103.-Se deberá cumplir con las regulaciones establecidas por el Ministerio de Hacienda sobre la facturación electrónica, para lo cual el Comité Cantonal deberá ajustar dicho procedimiento con los proveedores de bienes y servicios.

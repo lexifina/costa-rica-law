@@ -1,1 +1,0 @@
-Artículo 157.-Toda instalación deportiva o recreativa, ubicada en terrenos públicos, que se pretenda construir o remodelar deberá ajustarse a lo dispuesto para tal efecto en la Ley N° 7800 y cumplir además con todos los requerimientos de permisos municipales.

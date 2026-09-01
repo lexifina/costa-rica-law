@@ -1,2 +1,0 @@
-Artículo 129.-Las plazas de vocal dos y vocal tres del Comité Comunal, serán ocupados por los jóvenes menores que cita el párrafo segundo del artículo 109 del presente reglamento, en razón de que por su edad no pueden ostentar
-la representación judicial o extrajudicial del Comité Comunal, ni podrán contraer obligaciones en nombre de este. Por lo anterior, tendrán solamente derecho a voz y a voto, no pudiendo sustituir a los demás puestos de la Junta Directiva ante la limitación anteriormente citada.

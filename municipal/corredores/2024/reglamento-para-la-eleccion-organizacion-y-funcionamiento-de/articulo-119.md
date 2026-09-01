@@ -1,1 +1,0 @@
-Artículo 119.-Los Comités Comunales se reunirán con la frecuencia que se acuerde en su primera sesión ordinaria. Los miembros que no asistan a cuatro reuniones consecutivas sin causa justificada perderán su credencial como miembros. Su sustituto será escogido por el Comité Cantonal de una terna que presenten los restantes miembros.

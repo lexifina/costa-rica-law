@@ -1,1 +1,0 @@
-Artículo 25.-La estructura interna organizativa del CCDRC cuenta con una Junta Directiva como máxima autoridad para su gobierno y dirección, para el cumplimiento de dichas tareas y bajo la dirección de la Junta, se tendrá el apoyo de un Asistente Profesional-Administrativo cuyas funciones se describen en el Perfil de puesto aprobado por el Concejo Municipal de Corredores.

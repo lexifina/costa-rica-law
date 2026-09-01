@@ -1,2 +1,0 @@
-Artículo 84.-Las sesiones virtuales deberán hacerse de tal forma que consten en audio y video, que dicho audio y video puedan ser grabados de manera digital y que se garantice la seguridad de la comunicación y de la conservación de las sesiones que se efectúen de esta forma, conforme con la normativa aplicable para estos casos.
-De igual forma deberá de contarse con un registro digital completo de toda la documentación que se analizó, informes, documentos de apoyo y anexos, que son parte integral de la sesión.

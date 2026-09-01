@@ -1,1 +1,0 @@
-Artículo 55.-Todos los acuerdos que tome el CCDRC deberán contar con la aprobación de la mayoría absoluta (4) de sus miembros salvo aquellos que expresamente este Reglamento o las Leyes exijan mayoría distinta a ésta.

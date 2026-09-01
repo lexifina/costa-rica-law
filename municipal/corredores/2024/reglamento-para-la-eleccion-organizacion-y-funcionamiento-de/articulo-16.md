@@ -1,1 +1,0 @@
-Artículo 16.-El Comité dispondrá de una Caja Chica para la adquisición de bienes y servicios indispensables requeridos para la atención de situaciones no previstas. La administración, funcionamiento, control y fiscalización de la Caja Chica se sujetará de conformidad con el Reglamento específico promulgado por el Concejo Municipal.

@@ -1,1 +1,0 @@
-Artículo 56.-Los acuerdos que tome el CCDRC en forma definitiva (firmes), deberán contar con la aprobación de la mayoría calificada de sus miembros, que representan para el caso cinco. Este tipo de acuerdos quedarán en firme en la misma sesión.

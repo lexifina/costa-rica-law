@@ -1,1 +1,0 @@
-Artículo 12.-El Comité Cantonal podrá establecer convenios de cooperación con instituciones públicas o privadas a fin de cumplir con su gestión de fomentar, tutelar y dirigir el deporte y la recreación en el cantón.

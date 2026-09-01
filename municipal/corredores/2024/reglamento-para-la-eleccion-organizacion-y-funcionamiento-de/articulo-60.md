@@ -1,1 +1,0 @@
-Artículo 60.-La exposición de temas por parte de cada visita en las sesiones, deberá tener una duración máxima de quince minutos, con el fin de aligerar la atención de otras visitas, excepto que el Comité Cantonal de Deportes y Recreación acuerde el tiempo por votación de la mayoría absoluta.

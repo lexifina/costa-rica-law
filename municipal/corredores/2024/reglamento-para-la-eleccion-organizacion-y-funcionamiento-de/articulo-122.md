@@ -1,1 +1,0 @@
-Artículo 122.-Respecto al quorum, acuerdos y desarrollo de las sesiones, los Comités Comunales se regirán por las mismas reglas aplicables al CCDRC según lo dispuesto en los Capítulos VIII Y IX del presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 136.-Para un mejor manejo de los recursos económicos que administra el Comité Comunal, este procura gestionar la apertura de una cuenta electrónica bancaria en donde se depositarán todos los fondos de dicho Comité Comunal.

@@ -1,1 +1,0 @@
-Artículo 30.-Todas las personas funcionarias del Comité Cantonal, como servidores municipales, deberán cumplir con las funciones descritas en el Manual Descriptivo de Puestos aprobado por el Concejo Municipal.

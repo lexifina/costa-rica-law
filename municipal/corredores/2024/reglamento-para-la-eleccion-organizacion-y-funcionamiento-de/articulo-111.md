@@ -1,1 +1,0 @@
-Artículo 111.-Los Comités Comunales de Deportes y Recreación son la máxima representación del deporte y recreación en las actividades de promoción, responsables del desarrollo deportivo de su Distrito.

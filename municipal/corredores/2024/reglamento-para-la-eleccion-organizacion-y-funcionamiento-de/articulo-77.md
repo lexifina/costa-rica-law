@@ -1,1 +1,0 @@
-Artículo 77.-El miembro de Junta Directiva que participe virtualmente en la sesión respectiva deberá coordinar con la Secretaría de Actas, con el tiempo suficiente previo a la hora de inicio de la sesión, para asegurarse que cuenta con la funcionalidad de los equipos y las condiciones necesarias para participar de forma segura en la sesión.

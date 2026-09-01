@@ -1,1 +1,0 @@
-Artículo 4º-El domicilio legal del Comité Cantonal será el Distrito primero en la cabecera del cantón (Ciudad Neily), sede que tendrá todas las facilidades y comodidades necesarias para su funcionamiento.

@@ -1,1 +1,0 @@
-Artículo 78.-Es obligación de los integrantes de la Junta Directiva que participan virtualmente en la sesión, asegurarse que en el lugar que se encuentren tienen los medios tecnológicos necesarios para garantizar su participación, la seguridad y la privacidad de la sesión.

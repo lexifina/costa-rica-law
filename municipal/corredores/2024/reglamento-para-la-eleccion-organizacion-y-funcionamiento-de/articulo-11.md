@@ -1,1 +1,0 @@
-Artículo 11.-La Municipalidad de Corredores facilitará al Comité las facilidades para el cabal funcionamiento de sus fines, incluido el apoyo técnico y administrativo para orientar el actuar de la Junta Administrativa al marco normativo aplicable.

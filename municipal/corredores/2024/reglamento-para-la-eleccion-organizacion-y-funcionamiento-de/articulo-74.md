@@ -1,1 +1,0 @@
-Artículo 74.-La Junta Directiva podrá también sesionar estando algunos de sus integrantes presentes físicamente y otros de forma virtual, recordando que debe existir una circunstancia especial que justifique y fundamente la asistencia de manera virtual, lo cual deberá quedar consignado en el acta respectiva.

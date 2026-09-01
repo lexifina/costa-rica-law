@@ -1,1 +1,0 @@
-Artículo 87.-Siempre deberá elaborarse el acta respectiva de la sesión del órgano, aunque la misma fuera realizada en forma virtual y se conserve el registro digital conforme con la normativa que al efecto ha dispuesto el Archivo Nacional para los órganos colegiados de la administración pública.

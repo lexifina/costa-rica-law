@@ -1,1 +1,0 @@
-Artículo 90.-Las actas aprobadas deberán llevar obligatoriamente las firmas del presidente y del secretario de la Junta Directiva del Comité. El Libro de Actas será autorizado por la Auditoría Interna Municipal, y sus hojas serán selladas y foliadas por esta.

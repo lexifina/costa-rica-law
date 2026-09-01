@@ -1,1 +1,0 @@
-Artículo 63.-Ante ausencias a las sesiones del CCDRC, todo miembro, en forma escrita; deberá comunicar las razones de su inasistencia a más tardar dentro de las cuarenta y ocho horas siguientes a su ausencia. En caso contrario, será catalogada la ausencia como injustificada.

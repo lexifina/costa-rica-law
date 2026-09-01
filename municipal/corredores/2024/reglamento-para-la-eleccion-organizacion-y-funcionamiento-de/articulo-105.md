@@ -1,1 +1,0 @@
-Artículo 105.-Las comisiones estarán integradas por tres miembros, las cuales una vez juramentadas por el Presidente del Comité Cantonal de Deportes y Recreación, procederán a escoger de su seno a un Presidente, Secretario y Tesorero, quienes se dedicarán a organizar, promover, dirigir las actividades o proyectos que le encomiende el CCDRC.

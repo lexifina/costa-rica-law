@@ -1,1 +1,0 @@
-Artículo 57.-Los acuerdos que tome el CCDRC quedarán en firme y ejecutables, contra la aprobación del acta que los contiene, en la sesión ordinaria siguiente a aquella en que se tomaron, salvo los que tengan las características que dispone el artículo 56 de este Reglamento. En caso de empate en una votación, el presidente tendrá voto calificado.

@@ -1,3 +1,0 @@
-CAPÍTULO XIX
-Disposiciones finales
-Artículo 175.-Será responsabilidad del jerarca y del titular subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional. Asimismo, será responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento, aplicando la normativa vigente, Ley de Control Interno, y supervisado por la Auditoría Municipal.

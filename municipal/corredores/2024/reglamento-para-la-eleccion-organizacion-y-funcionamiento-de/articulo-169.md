@@ -1,1 +1,0 @@
-Artículo 169.-La entrega de implementos o bienes no contemplados en este Reglamento y que son de interés institucional, podrán ser autorizados por la Junta Directiva, para lo cual deberá quedar debidamente documentado la gestión y entrega de los bienes en la bodega, así como el documento y comprobante de salida e ingreso.

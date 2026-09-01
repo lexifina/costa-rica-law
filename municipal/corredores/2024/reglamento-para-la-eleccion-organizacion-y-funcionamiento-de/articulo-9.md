@@ -1,1 +1,0 @@
-Artículo 9º-Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación serán juramentados por el Concejo Municipal de Corredores. Ocuparán sus cargos por un período de dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna, de conformidad con lo establecido en el artículo 177 del Código Municipal.

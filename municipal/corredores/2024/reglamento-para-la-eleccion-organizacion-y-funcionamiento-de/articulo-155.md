@@ -1,1 +1,0 @@
-Artículo 155.-Toda organización que administre instalaciones deportivas municipales, contará con un Reglamento específico de uso y mantenimiento, que deberá ser propuesto por cada organización administradora y puesto al conocimiento del Comité Cantonal de Deportes y Recreación quien una vez avalado lo remitirá al Concejo Municipal para su aprobación.

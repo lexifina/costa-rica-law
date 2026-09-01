@@ -1,1 +1,0 @@
-Artículo 65.-Cuando sea requerido sustituir alguna vacante en la Junta Directiva del CCDRC, la persona o personas que sean electas entrarán a ocupar el puesto que ostentaba la persona que generó la vacante y por el período restante.

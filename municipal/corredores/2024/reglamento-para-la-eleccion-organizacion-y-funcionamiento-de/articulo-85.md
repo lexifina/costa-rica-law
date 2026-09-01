@@ -1,1 +1,0 @@
-Artículo 85.-En el acta respectiva deberá indicarse cuál de los miembros del órgano colegiado ha participado en la sesión en forma virtual, el mecanismo tecnológico utilizado, la identificación del lugar en que se encuentra y las circunstancias particulares por las cuales la sesión se realizó mediante este mecanismo.

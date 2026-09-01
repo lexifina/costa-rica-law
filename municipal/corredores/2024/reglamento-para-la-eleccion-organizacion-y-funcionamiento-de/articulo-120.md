@@ -1,1 +1,0 @@
-Artículo 120.-Cada Comité Comunal deberá llevar un libro de actas como junta directiva y un libro de tesorería con hojas numeradas, las cuales deben ser facilitados por el Comité Cantonal de Deportes quien lo autorizará, emitiendo el sello en cada página del libro. El Comité Cantonal, podrá en el momento que lo consideren conveniente, solicitar los libros para su revisión.

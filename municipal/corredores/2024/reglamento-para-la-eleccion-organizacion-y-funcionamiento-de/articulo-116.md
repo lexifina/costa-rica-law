@@ -1,2 +1,0 @@
-Artículo 116.-En el procedimiento de elección de los miembros del comité comunal en la Asamblea será liderado por el Comité Cantonal, debe prevalecer que los mismos asambleístas propongan candidatos y que los mismos asambleístas por medio de votación simple definan a cada uno de sus representantes.
-En caso de empate y no haya posibilidad de desempatar por medio de votos se podrá definir por medio del lanzamiento de la moneda, en última instancia. En este proceso se debe respetar el principio de paridad de género.

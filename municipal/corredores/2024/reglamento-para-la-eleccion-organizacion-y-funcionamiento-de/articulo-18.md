@@ -1,1 +1,0 @@
-Artículo 18.-Con relación al tema de gastos de viaje y transporte, el Comité Cantonal se regirá por las disposiciones contenidas en el Reglamento de Gastos de Viaje y Transporte para funcionarios públicos emitido por la Contraloría General de la República, esto en concordancia con lo que establece la Ley N° 3462.

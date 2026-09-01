@@ -1,1 +1,0 @@
-Artículo 71.-Los acuerdos sólo podrán modificarse, cuando ello no lesione los derechos adquiridos e intereses legítimos de los administrados. En caso contrario, deberá procederse de conformidad con lo establecido en esta materia por el ordenamiento jurídico administrativo vigente.

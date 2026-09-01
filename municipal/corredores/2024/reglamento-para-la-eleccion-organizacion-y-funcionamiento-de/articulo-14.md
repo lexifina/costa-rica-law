@@ -1,1 +1,0 @@
-Artículo 14.-Los Comités Cantonales son considerados Órganos Colegiados, por tanto, ante renuncia, destitución o cualquier otro motivo que genere una vacante en su Junta Directiva, el CCDRC queda imposibilitado para sesionar por falta de quorum estructural y hasta que se ocupe la vacante respectiva.
