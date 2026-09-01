@@ -1,1 +1,0 @@
-Artículo 9º—En lo no previsto en este Reglamento, deberá aplicarse la normativa de la Ley de Contratación Administrativa y su Reglamento, el Código Municipal, Ley General de la Administración Pública, Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, y demás normativa aplicable.

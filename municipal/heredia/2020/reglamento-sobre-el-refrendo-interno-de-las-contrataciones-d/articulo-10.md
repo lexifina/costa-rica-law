@@ -1,1 +1,0 @@
-Artículo 10.—Derogatorias. Se deroga el Reglamento para la Regulación de la aprobación Interna de las Contrataciones de la Municipalidad del Cantón Central de Heredia no Sujetas al Refrendo Contralor, publicado en La Gaceta Nº 241 del 15 de diciembre de 2006.

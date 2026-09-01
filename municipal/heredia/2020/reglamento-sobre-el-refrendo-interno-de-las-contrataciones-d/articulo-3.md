@@ -1,1 +1,0 @@
-Artículo 3º—Unidad Interna competente. La unidad interna competente para otorgar el Refrendo Interno será la Dirección de Asesoría y Gestión Jurídica, que se encargará de verificar que el contrato se ajuste al bloque de legalidad, según los parámetros que se establecen en este Reglamento.

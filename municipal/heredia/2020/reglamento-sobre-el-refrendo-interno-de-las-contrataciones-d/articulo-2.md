@@ -1,1 +1,0 @@
-Artículo 2º—Refrendo Interno. El Refrendo Interno es un acto que brinda eficacia a un contrato administrativo y sus posibles modificaciones no representan un mecanismo para anular el acto de adjudicación de un procedimiento de contratación, ni el contrato que de éste se deriva.
