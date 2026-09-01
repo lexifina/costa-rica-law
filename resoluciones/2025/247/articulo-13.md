@@ -1,1 +1,0 @@
-Artículo 13.-Custodia de los expedientes de denuncia, investigación preliminar y procedimientos disciplinarios. La Dirección General de Servicio Civil, resguardará en el Despacho del Director General todos los documentos y legajos de prueba relacionados con las denuncias presentadas, una vez finalizado el proceso o gestión correspondiente.

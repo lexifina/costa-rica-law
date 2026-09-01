@@ -1,2 +1,0 @@
-Artículo 12.-Recursos. Contra la notificación del acto debidamente motivado que declare la inadmisibilidad, disponga el archivo de la denuncia o emita resolución favorable al denunciante, pero con disconformidad respecto a lo resuelto, procederán los recursos de revocatoria ante la persona encargada competente y de apelación ante el máximo jerarca institucional.
-Dichos recursos deberán interponerse dentro del plazo de tres (3) días hábiles contados a partir de la fecha de comunicación oficial del acto respectivo.

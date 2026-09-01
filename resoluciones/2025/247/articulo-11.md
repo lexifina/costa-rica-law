@@ -1,6 +1,0 @@
-Artículo 11.-Desestimación y archivo de la denuncia. Se desestimará y archivará mediante resolución motivada cualquier denuncia, cuando carezca de fundamento, incluso desde su presentación, cuando:
-a. Sean improcedentes o infundadas.
-b. Sean reiterativas y contengan aspectos que ya hayan sido conocidos y resueltos por la Administración, en cuyo caso se comunicará al interesado lo ya resuelto.
-c. Se refieren a intereses particulares exclusivos del denunciante, con relación a conductas ejercidas u omitidas por la Administración que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente, salvo que de la información aportada en la denuncia se logre determinar que existen aspectos de relevancia que ameritan ser investigados.
-d. Se omitan alguno de los requisitos esenciales mencionados en el artículo ocho, o no se aporten elementos probatorios suficientes para iniciar la investigación respectiva, pese a haber sido emplazado de conformidad con los dispuesto en el artículo 9 de este protocolo.
-La desestimación y archivo de la denuncia se comunicará al denunciante al medio señalado para recibir notificaciones.

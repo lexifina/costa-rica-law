@@ -1,3 +1,0 @@
-Artículo 16.-Remisión y recepción del informe de la Investigación Preliminar.
-Concluida la investigación, si se considera que existen elementos probatorios suficientes para abrir un procedimiento administrativo o de despido, el funcionario encargado de la investigación deberá rendir un informe que contenga los presuntos hechos de corrupción y/ supuestos actos irregulares, además de una relación de hechos que permita la apertura de los procedimientos administrativos y/o judiciales.
-Si del informe se desprende la posible existencia de un hecho delictivo, el Director General del Servicio Civil deberá remitirlo al Ministerio Público para que éste proceda según su competencia.
