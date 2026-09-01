@@ -1,0 +1,2 @@
+Artículo 25.—Planificación de las compras. La Junta Directiva del Comité deberá de realizar todas las acciones necesarias, en tiempo y forma, para elaborar el Plan Anual de Adquisiciones, con el objetivo de que la Proveeduría proceda a incluirlo en el sistema digital unificado de conformidad con lo estipulado en el presente reglamento.
+(Así adicionado mediante sesión ordinaria N° 121 del 1º de setiembre de 2026)

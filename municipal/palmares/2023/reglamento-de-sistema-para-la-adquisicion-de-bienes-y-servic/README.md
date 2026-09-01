@@ -14,3 +14,4 @@ Reglamento de sistema para la adquisición de bienes y servicios de la Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-24 | la propia norma |
+| 2 | 2026-09-01 | Reglamento municipal 121 (2026-09-01) |

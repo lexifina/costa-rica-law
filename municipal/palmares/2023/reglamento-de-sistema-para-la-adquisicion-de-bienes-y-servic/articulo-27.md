@@ -1,0 +1,2 @@
+Artículo 27.—Según lo dispuesto en el artículo 12 del Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N° 43808-H, la Municipalidad de Palmares y el Comité Cantonal de Deportes y Recreación de Palmares, utilizarán la reglamentación interna emitida para la Gestión de Fondos de Caja Chica, ajustándose al porcentaje definido en el artículo 3° inciso g) de la Ley General de Contratación Pública, N° 9986.
+(Así adicionado mediante sesión ordinaria N° 121 del 1º de setiembre de 2026)

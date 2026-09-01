@@ -1,0 +1,2 @@
+Artículo 24.—Asignación de roles. La Proveeduría Municipal solicitará una unidad usuaria adicional para el Comité, en la que inscribirá todos los roles que sean requeridos. La designación específica de los roles deberá ser acordada por la Junta Directiva del Comité, salvo en casos excepcionales, se realizará a través de un acuerdo motivado por parte del Concejo Municipal.
+(Así adicionado mediante sesión ordinaria N° 121 del 1º de setiembre de 2026)
