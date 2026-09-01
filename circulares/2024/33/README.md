@@ -15,3 +15,4 @@ Adopción de Normas Internacionales de información Financiera Relacionada con S
 | --- | --- | --- |
 | 1 | 2024-01-10 | la propia norma |
 | 2 | 2024-12-03 | Reglamento 12 (2024-12-03) |
+| 3 | 2026-09-01 | Reglamento 9 (2026-09-01) |
