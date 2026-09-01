@@ -1,0 +1,1 @@
+Artículo 11.- Causal de inadmisibilidad. Será causal de inadmisibilidad de la declaración de importación de vehículos objeto del presente Decreto Ejecutivo, el incumplimiento de lo normado en el artículo 326 del Reglamento al Código Aduanero Uniforme Centroamericano – RECAUCA IV.

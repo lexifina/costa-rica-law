@@ -1,0 +1,1 @@
+Artículo 10.- De la no presentación de la declaración de valor para vehículos nuevos y usados. Los importadores de vehículos de las partidas 87.02, 87.03, y 87.04 no gravados con DAI, e indicados en el artículo 1 de este Decreto Ejecutivo, no están obligados a la presentación de la declaración de valor.

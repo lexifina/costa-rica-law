@@ -1,0 +1,1 @@
+Artículo 4.- Competencias. La Dirección General de Tributación será la encargada de administrar y actualizar la lista de valores hacendarios, conforme a los lineamientos técnicos emitidos por el órgano técnico competente del Ministerio de Hacienda, para la aplicación del presente decreto.

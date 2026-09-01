@@ -1,0 +1,1 @@
+Transitorio Único. - La Dirección General de Hacienda deberá actualizar el estudio respecto del margen de utilidad que se establece en el artículo 5, en un máximo de 12 meses posteriores a la publicación del presente Decreto Ejecutivo.
