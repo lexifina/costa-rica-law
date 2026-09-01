@@ -1,3 +1,0 @@
-Artículo 30: Asociación Solidarista
-Los funcionarios podrán organizar y administrar una asociación Solidarista. JUDESUR aportará a la Asociación, como fondo para el pago de prestaciones, como fondo para el pago de cesantía, el 5,33% de los salario consignados en la planilla de la Caja Costarricense de Seguro Social.
--JUDESUR aportará el 5.33% de los salarios consignados en la planilla C.C.S.S., para el pago de cesantía a los trabajadores. Dicho porcentaje se depositara mensualmente en la cuenta individual de cada trabajador en la operadora de pensiones en la que se les deposita el 3% de la cesantía estipulada en la LPT.

@@ -1,3 +1,0 @@
-Artículo 33: Movilidad laboral
-La Junta podrá, por vía de excepción, conceder el pago de auxilio de cesantía a los servidores que lo soliciten y estén dispuestos a renunciar a su puesto. Para tal efecto, al momento de resolver las solicitudes, la Junta Directiva deberá tomar en cuenta los intereses de JUDESUR ya que toda plaza movilizada, de acuerdo con la normativa vigente, significa la eliminación de la misma, en apego a la Ley No. 6955.
-A quienes se les conceda el beneficio dispuesto en el párrafo anterior, no podrán ocupar puesto alguno en la Administración Pública Centralizada o Descentralizada, ni empresas públicas sino después de siete años contados a partir de la fecha del otorgamiento de la movilidad laboral voluntaria.

@@ -1,2 +1,0 @@
-Artículo 36: Descripción de la clase
-La hoja descriptiva de la clase no será restrictiva y podrá sufrir variaciones. En consecuencia, pueden asignarse a los puestos nuevos y diferentes tareas sin que ello signifique cambio en clasificación del puesto de que se trate, siempre y cuando tales tareas sean de igual naturaleza y de igual nivel de dificultad y responsabilidad, a juicio de la Oficina de Recursos Humanos.

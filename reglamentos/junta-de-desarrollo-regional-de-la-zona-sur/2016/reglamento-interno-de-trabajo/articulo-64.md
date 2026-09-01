@@ -1,6 +1,0 @@
-Artículo 64.- Justificaciones:
-Queda a juicio del jefe inmediato, aceptar las justificaciones de ausencia y llegadas tardías de sus subalternos, excepto en el caso de incapacidades o comprobantes de asistencia extendidas por el Instituto Nacional de Seguros y la Caja Costarricense del Seguro Social.
-En todo caso, el servidor deberá notificar a su jefe inmediato a más tardar el día siguiente verbalmente o por escrito, las causas que le impidieron asistir al trabajo.
-Por ninguna razón, salvo fuerza mayor, deberá esperar hasta el segundo día de ausencia para notificarlo.
-Al incorporarse a su trabajo deberá presentar la justificación en forma escrita, la cual deberá ser evaluada por el jefe inmediato quien en caso justificado, la enviará a La Oficina de Recursos Humanos para que se incorpore a su expediente personal. De no ser aceptada, la Oficina de Recursos Humanos procederá a rebajar el día laboral de su salario.
-En caso de que exista dos ausencias injustificadas consecutivas o tres alternas en un mes calendario, el servidor se hará acreedor de las sanciones previstas en el artículo 81 inciso g) del Código de Trabajo, debiendo el jefe poner el caso en conocimiento del órgano competente.

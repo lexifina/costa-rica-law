@@ -1,2 +1,0 @@
-Artículo 12: Expediente de personal.
-La Oficina de Recursos Humanos mantendrá actualizado y en custodia un expediente personal de cada uno de los funcionarios. En él se archivará toda la documentación concerniente a la relación de empleo, sellada y numerada cronológicamente. El expediente personal se considerará confidencial; solo podrá ser examinado por el interesado o por su asesor legal, previa acreditación por escrito, o por el Auditor Interno y por la Dirección Ejecutiva.

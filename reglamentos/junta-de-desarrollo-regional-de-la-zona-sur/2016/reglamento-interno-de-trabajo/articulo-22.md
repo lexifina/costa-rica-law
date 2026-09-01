@@ -1,3 +1,0 @@
-Artículo 22: Servidoras en Época de Lactancia
-Las servidoras en época de lactancia, podrán disponer de una hora diaria continua o fraccionada con el objeto de amamantar a su hijo según su conveniencia y previo acuerdo con su jefatura inmediata. Este permiso que es con goce de salario, podrá prorrogarse hasta por el término de tres meses, contados a partir del tercer mes posterior al alumbramiento. Para tales efectos la interesada deberá presentar el certificado médico de la Caja Costarricense de Seguro Social o del médico de la Dirección General en el que conste que está amamantando a su hijo. Por
-recomendación médica podrá extenderse el periodo de lactancia hasta 24 meses.

@@ -1,2 +1,0 @@
-Artículo 9: Selección
-Gozarán de la condición de elegibles, los candidatos que superen las pruebas de selección, las que serán diseñadas, aplicadas y calificadas de conformidad con las normas técnicas establecidas. Para llenar una vacante se procederá de conformidad con lo que establece el artículo 5, inciso e) de este Reglamento. Es responsabilidad del superior inmediato recomendar al candidato más adecuado para el puesto dentro de la nómina correspondiente.

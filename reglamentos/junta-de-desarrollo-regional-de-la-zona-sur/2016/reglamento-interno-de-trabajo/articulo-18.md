@@ -1,3 +1,0 @@
-Artículo 18: De la evaluación del desempeño.
-El jefe inmediato de común acuerdo con el trabajador, aplicará la evaluación semestral del desempeño sobre el cumplimiento de metas y objetivos, la cual será elaborada por Recursos Humanos y se referirá al semestre de servicio inmediato anterior. Para el reconocimiento de los incentivos, se reconocerán los que procedan legalmente y correspondan al trabajador, cuando este obtenga una calificación mínima de bueno.
-Dicha evaluación podrá ser recurrida por el trabajador de manera escrita ante el jerarca de JUDESUR. El modelo de evaluación del desempeño será consultado con las organizaciones de trabajadores.

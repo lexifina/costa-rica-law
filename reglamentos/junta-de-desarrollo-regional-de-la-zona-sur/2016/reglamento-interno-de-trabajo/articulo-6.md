@@ -1,2 +1,0 @@
-Artículo 6: Reclutamiento.
-El reclutamiento consistirá en atraer y clasificar en orden de excelencia, según formación y perfil profesional, competencias y experiencia, a los candidatos más idóneos para satisfacer las necesidades de los puestos. Con este propósito la Oficina de Recursos Humanos dispondrá de un registro de ofertas recibidas y mantendrá un permanente proceso de detección e investigación de nuevas fuentes de reclutamiento de personal.
