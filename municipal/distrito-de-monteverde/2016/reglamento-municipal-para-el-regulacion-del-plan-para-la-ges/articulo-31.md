@@ -1,1 +1,0 @@
-Artículo 31.—Residuos peligrosos domiciliares. Los residuos peligrosos que se producen en los hogares, manejo de envases de insecticidas, jeringas, medicamentos vencidos, deben ser separados de los residuos ordinarios en la fuente de generación y entregados al servicio de recolección debidamente identificados, en recipientes seguros y apropiados, según el tipo de residuos.

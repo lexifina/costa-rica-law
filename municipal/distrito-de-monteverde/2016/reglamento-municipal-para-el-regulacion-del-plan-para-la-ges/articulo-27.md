@@ -1,3 +1,0 @@
-CAPÍTULO VIII
-Manejo integral de residuos de manejo especial
-Artículo 27.—Escombros y residuos de construcción, demolición, desastres naturales o antropogénicos. La responsabilidad por el manejo de los residuos provenientes de la construcción o demolición, corresponde al dueño de la propiedad, quien debe garantizar su recolección, transporte y disposición final en forma directa o mediante un gestor autorizado. El sitio de disposición debe cumplir con los requisitos legales y evitar ser una molestia para los vecinos y los trabajadores.

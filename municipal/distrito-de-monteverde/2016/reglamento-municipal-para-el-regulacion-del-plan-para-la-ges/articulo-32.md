@@ -1,1 +1,0 @@
-Artículo 32.—Residuos infectocontagiosos. (Infecciosos). Para el tratamiento de los residuos infectocontagiosos se deberán seguir los lineamientos vigentes para la gestión de los residuos infectocontagiosos (Decreto N° 30965-S) que se generan en establecimientos que presten atención a la salud y afines y cualquier otra indicación del Ministerio de Salud.

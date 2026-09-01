@@ -1,3 +1,0 @@
-CAPÍTULO II
-De las atribuciones y obligaciones municipales
-Artículo 5°—Responsable de la Gestión Integral de Residuos Sólidos. Para el cumplimiento e implementación de este Reglamento y de otra legislación nacional vigente en la materia, el Concejo Municipal de distrito de Monteverde (CMDM), por medio del Departamento de Planificación Urbana y Control Constructivo, será la entidad responsable de la gestión integral de los residuos sólidos en el Distrito. La Administración y el Concejo Municipal, según su competencia, dotarán a estas dependencias del personal técnico y profesional necesario, así como del presupuesto adecuado para cumplir con sus funciones, según la disponibilidad de recursos.

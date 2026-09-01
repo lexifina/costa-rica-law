@@ -1,3 +1,0 @@
-Artículo 25.—Centros de recuperación de materiales orgánicos o compostaje
-a) El Concejo Municipal tiene la facultad de instalar y operar centros de recuperación de materiales orgánicos o de compostaje, o autorizar a terceros, previamente calificados, para la acumulación, tratamiento y comercialización del producto final.
-b) Antes de iniciar labores estos centros deben contar con los permisos respectivos del Ministerio de Salud y de el Concejo Municipal, cumplir con los requisitos laborales y ambientales que establezca la legislación vigente, contar con adecuadas condiciones higiénicas, laborales y sanitarias. La operación del centro no debe provocar molestias a las personas que en ellos trabajan o a las personas vecinas.

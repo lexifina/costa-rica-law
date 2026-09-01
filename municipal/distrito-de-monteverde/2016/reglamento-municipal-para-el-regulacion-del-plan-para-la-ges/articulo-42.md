@@ -1,1 +1,0 @@
-Artículo 42.—Cancelación de permisos y licencias. El Concejo Municipal puede solicitar a las autoridades que los hubieren otorgado, la suspensión, revocación o cancelación de las licencias, permisos y registros necesarios para la realización de las actividades.

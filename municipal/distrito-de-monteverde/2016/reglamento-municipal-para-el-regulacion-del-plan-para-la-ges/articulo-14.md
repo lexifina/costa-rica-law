@@ -1,1 +1,0 @@
-Artículo 14.—Reconocimiento municipal al desempeño en PGIRS. Una vez al año, el Concejo Municipal hará un reconocimiento a las empresas, instituciones, comercios u organizaciones que realicen una labor sobresaliente en materia de protección y conservación del ambiente. La comisión será encargada de otorgarlos según las directrices.

@@ -1,9 +1,0 @@
-Artículo 17.—Responsabilidades del generador para disposición de residuos no recuperables
-a) Almacenar temporalmente y de manera adecuada, los residuos generados en su casa o terreno, de tal forma que no causen ningún impacto ambiental y/o riesgo a su salud o a la de otras personas de la comunidad.
-b) Sacar los residuos sólidos generados, en el horario establecido y comunicado por el Concejo Municipal, de tal forma que no causen impacto ambiental o de salud.
-c) Depositar los residuos sólidos no recuperables en bolsas o recipientes cerrados.
-d) Los recipientes desechables para depositar los residuos; pueden ser bolsas plásticas o de características similares. Estas deberán tener las siguientes características:
-e) Para el caso de los usuarios con propiedades ubicadas en urbanizaciones con canastas, condominios, edificios de dos pisos o más, callejones y alamedas donde el vehículo recolector no pueda transitar, los residuos se deberán depositar en la entrada de estos, en un contenedor de uso colectivo, a la orilla de la calle principal. Este debe tener tapas superiores de un material duradero que resguarden los residuos de las inclemencias del tiempo y/o puertas laterales para que los operarios recolectores puedan extraer fácilmente los residuos. La limpieza de estos contenedores es responsabilidad de los usuarios del servicio.
-f) En zonas donde se ofrecen recipientes colectivos, el generador tiene que depositar sus residuos sólidos dentro de estos y garantizar que los colectores serán cerrados después de su uso y en el horario de recolección establecido por el Concejo Municipal. La limpieza y el mantenimiento de estos contenedores es responsabilidad de los usuarios del servicio.
-g) Depositar en bolsas cuya resistencia deberá soportar la tensión ejercida por los residuos contenidos y por la manipulación.
-h) Las bolsas deberán cerrarse adecuadamente, de tal forma que no permitan la entrada de agua, insectos o roedores, ni el escape de líquidos.

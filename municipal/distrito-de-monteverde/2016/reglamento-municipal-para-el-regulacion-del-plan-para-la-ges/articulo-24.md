@@ -1,5 +1,0 @@
-Artículo 24.—Centros de recuperación de materiales valorizables
-a) El Concejo Municipal tiene la facultad de instalar y operar centros de recuperación de materiales valorizables o autorizar a terceros, previamente calificados, para su acumulación, clasificación, preparación y comercialización.
-b) Antes de iniciar labores los centros de recuperación de materiales deben cumplir con la normativa vigente para Centros de Recuperación de Residuos Sólidos Valorizables, además deberán contar con los permisos respectivos del Ministerio de Salud del Concejo Municipal y con los requisitos laborales y ambientales que establezca la legislación vigente.
-c) Estos centros deben contar con adecuadas condiciones higiénicas, laborales y sanitarias. La operación del centro tiene que evitar molestias a las personas vecinas o trabajadoras.
-d) Solamente se permite el desensamblaje, la mezcla, la transformación y el tratamiento de los residuos si las instalaciones están expresamente autorizadas para ello, por el Ministerio de Salud y si el uso del suelo se encuentre de conformidad con el Plan Regulador Municipal.

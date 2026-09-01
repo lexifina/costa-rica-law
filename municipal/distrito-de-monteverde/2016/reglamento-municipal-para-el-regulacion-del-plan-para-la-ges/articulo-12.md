@@ -1,2 +1,0 @@
-Artículo 12.—Supervisión vecinal. Todos los usuarios deben cumplir y velar porque sus vecinos cumplan con las disposiciones de este Reglamento. En el caso de que algún usuario requiera denunciar algún incumplimiento de sus vecinos, puede hacerlo en las oficinas del Concejo Municipal de distrito de Monteverde, por los medios establecidos y publicitados previamente para tal efecto.
-Acerca de la responsabilidad ambiental de las industrias y del comercio

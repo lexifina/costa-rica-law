@@ -1,1 +1,0 @@
-Artículo 41.—Denuncias. En caso de que existan indicios de la infracción o delito, los inspectores municipales presentarán la denuncia respectiva ante el Tribunal Ambiental o MINAET administrativo o Ministerio de Salud, o en la Fiscalía correspondiente.
