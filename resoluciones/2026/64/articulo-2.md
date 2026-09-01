@@ -1,0 +1,1 @@
+Artículo 2- La persona beneficiaria de esta categoría especial contará con libre condición para poder desempeñarse en cualquier actividad laboral remunerada, por cuenta propia o en relación de dependencia.

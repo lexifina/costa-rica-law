@@ -1,0 +1,1 @@
+Artículo 14- Las personas que se les aprueba esta categoría no requieren permiso para salida del país, siendo que solamente deberán cumplir con los mismos requisitos de egreso y reingreso que señale la Dirección General de Migración y Extranjería para las otras categorías migratorias especiales.
