@@ -19,3 +19,4 @@ Acuerdo para la implantación del Reglamento de Custodia
 | 4 | 2022-05-04 | Acuerdo 265 (2022-05-04) |
 | 5 | 2025-10-27 | Acuerdo 7 (2025-10-27) |
 | 6 | 2026-03-25 | Acuerdo 8 (2026-03-25) |
+| 7 | 2026-09-01 | Acuerdo 15 (2026-09-01) |
