@@ -15,5 +15,7 @@ e. Estados financieros auditados correspondientes a los últimos cinco periodos 
 f. Informe trimestral de Fondos de Inversión, al menos para los últimos cuatro trimestres.
 g. Políticas y procedimientos para la presentación de consultas o reclamos por parte de los inversionistas.
 h. Leyendas dispuestas en el artículo 20 de este Acuerdo.
+i. Los avisos de convocatoria a asamblea de inversionistas, así como la información y documentación relativos a los asuntos a tratar en el orden del día para los inversionistas debidamente acreditados. La difusión debe realizarse desde la fecha de convocatoria y mantenerse cuando menos hasta la fecha efectiva de la celebración de la asamblea.
+(Así adicionado el inciso anterior por el artículo 3° del acuerdo N° SGV-A-15-2026 del 1° de setiembre de 2026)
 Si el fondo es de tipo seriado, se debe indicar para cada serie la información de los puntos i al iii del inciso c.
 Una sociedad administradora puede presentar información adicional a la requerida en este artículo, siempre y cuando sea real, veraz, suficiente, consistente, oportuna y sin omitir aspectos relevantes para entender la naturaleza de lo revelado ni utilizar expresiones ambiguas. Adicionalmente, se explique adecuadamente al inversionista el significado de la información adicional que se ofrece y una descripción de cómo se obtuvo, en el caso de incorporar cálculos o indicadores matemáticos. En todo caso, se debe considerar que dicha información adicional no puede sustituir a la que por normativa debe incluirse en el sitio web.
