@@ -1,0 +1,1 @@
+Artículo 11.—Aplicación supletoria de normas. En todo lo no previsto en el presente reglamento se observará lo dispuesto en el Reglamento de Licencias de funcionamiento de la Municipalidad de Cartago”, así como el Código Municipal, la Ley de Patentes del Cantón de Cartago, Plan Regulador Territorial de Cartago y demás normativa aplicable o que la sustituya.

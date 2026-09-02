@@ -1,0 +1,5 @@
+Artículo 3º—Principios. Para la aplicación del presente reglamento, se observarán los siguientes principios:
+1. Legalidad: Las actuaciones administrativas y los requisitos establecidos deben estar fundamentados en el marco legal vigente, garantizando así la seguridad jurídica de los administrados.
+2. Orden público y fiscalización: Se velará por la convivencia vecinal, asegurando que las actividades económicas no generen afectaciones negativas al entorno y permitiendo que la Municipalidad ejerza adecuadamente el poder de policía ex ante y a posteriori de la aprobación de este tipo de licencia municipal.
+3. Proporcionalidad y razonabilidad: Las disposiciones deben ser adecuadas y proporcionales a los fines perseguidos, buscando un equilibrio adecuado entre el desarrollo económico y la convivencia social.
+4. Transparencia y seguridad jurídica: Se garantizará que los procedimientos sean claros, accesibles y previsibles, brindando certeza a los administrados sobre los requisitos y condiciones para la obtención de las licencias.

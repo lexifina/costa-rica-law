@@ -1,0 +1,1 @@
+Artículo 8º —Evaluación y aprobación. El Departamento de Patentes evaluará cada solicitud en un plazo no mayor a 10 días hábiles para verificar el cumplimiento de los requisitos y otorgará la licencia si se cumplen las disposiciones del reglamento.
