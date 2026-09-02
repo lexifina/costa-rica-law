@@ -1,0 +1,1 @@
+Artículo 65. Propuestas ciudadanas. En cualquier momento las personas podrán proponer a la Municipalidad intervenciones urbanas menores y acciones de mejora mediante innovación abierta o convenios de colaboración con organizaciones locales.

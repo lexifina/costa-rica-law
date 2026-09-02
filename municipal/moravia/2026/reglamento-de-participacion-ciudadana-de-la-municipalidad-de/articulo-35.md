@@ -1,0 +1,1 @@
+Artículo 36. Informe sobre ejecución de proyectos. Los Concejos de Distrito convocarán a la comunidad para participar en la sesión extraordinaria del Concejo Municipal en la cual se conozcan los proyectos propuestos participativamente, debiendo cada Concejo de Distrito informar a su comunidad sobre la inclusión o no de dichos proyectos en el presupuesto municipal.

@@ -1,0 +1,1 @@
+Artículo 38. Participación en el proceso. Podrán participar en los procesos relacionados con presupuestos participativos todas las personas habitantes y partes interesadas del cantón, mediante organizaciones formalmente constituidas, conforme a la normativa vigente.

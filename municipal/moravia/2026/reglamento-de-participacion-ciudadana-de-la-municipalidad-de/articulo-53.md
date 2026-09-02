@@ -1,0 +1,1 @@
+Artículo 54. Informe de ejecución y sesión extraordinaria. En julio de cada año, los Concejos convocarán a sesión extraordinaria para presentar el informe sobre el avance de ejecución de los proyectos. Posteriormente, los resultados deberán divulgarse de manera clara y accesible a la comunidad.

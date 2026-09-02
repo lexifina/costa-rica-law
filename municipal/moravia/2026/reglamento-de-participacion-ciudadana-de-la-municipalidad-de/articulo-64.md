@@ -1,0 +1,1 @@
+Artículo 64. Participación durante la ejecución y mejora de obras. Durante la ejecución, la Municipalidad garantizará transparencia y acceso a información sobre cronogramas, contratistas y mecanismos de supervisión.

@@ -1,0 +1,1 @@
+Artículo 63. Monitoreo cívico. Las recomendaciones ciudadanas podrán incorporarse al diseño definitivo cuando sean viables técnica y presupuestariamente, priorizando necesidades de accesibilidad, movilidad sostenible y funcionalidad, siempre que ello sea compatible con la naturaleza del bien y representen un beneficio colectivo.

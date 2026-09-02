@@ -1,0 +1,1 @@
+Artículo 30. Participación ciudadana y colaboración en la gestión municipal. Los Concejos de Distrito impulsarán la participación en asuntos distritales y colaborarán en la fiscalización de la gestión municipal. Para ello, convocarán al menos dos veces al año a sesiones con la comunidad para proponer, dar seguimiento, cocrear, implementar y evaluar proyectos prioritarios.

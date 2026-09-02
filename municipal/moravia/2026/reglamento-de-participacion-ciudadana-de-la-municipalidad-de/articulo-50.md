@@ -1,0 +1,1 @@
+Artículo 50. Presentación y recepción formal. Los proyectos se presentarán mediante el formulario oficial, completo y dentro de los plazos establecidos, ante el Concejo de Distrito o la instancia municipal designada.

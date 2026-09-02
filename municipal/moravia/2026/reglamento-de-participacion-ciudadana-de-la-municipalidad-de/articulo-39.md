@@ -1,0 +1,1 @@
+Artículo 40. Distribución general de los recursos. La Alcaldía Municipal en los meses de enero y febrero informará a los Concejos de Distrito cual fue el monto aprobado para el financiamiento de sus proyectos. La Municipalidad definirá la modalidad de ejecución de los proyectos, ya sea directa por administración) o mediante contratación administrativa.

@@ -1,0 +1,1 @@
+Artículo 44. Equipo operativo institucional. La Alcaldía designará un equipo conformado por las áreas de Finanzas, Planificación y Proyectos, con formación técnica y profesional adecuada, el cual se encargará de brindar soporte técnico durante todas las fases del proceso del Presupuesto Participativo.

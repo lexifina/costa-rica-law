@@ -1,0 +1,3 @@
+Sección Segunda
+Procedimiento para la presentación, formulación y análisis de los proyectos.
+Artículo 43. Formulario oficial de presentación de proyectos. Las solicitudes para el Presupuesto Participativo deberán presentarse mediante el formulario oficial, diseñado para crear perfiles de proyectos de forma estandarizada y accesible. Este formulario podrá obtenerse ante el Concejo de Distrito correspondiente, en el departamento municipal designado por la Alcaldía o bien descargándolo del sitio web oficial de la Municipalidad. Una vez completado, el formulario deberá presentarse formalmente ante el Concejo de Distrito respectivo.

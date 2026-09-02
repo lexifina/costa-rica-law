@@ -1,0 +1,1 @@
+Artículo 35. Sesiones ampliadas de priorización. Cuando los Concejos de Distrito acuerden realizar sesiones ampliadas, estos deberán garantizar la participación de los habitantes y demás actores civiles que tengan interés legítimo en el o los asuntos a tratar y deberá realizarse una convocatoria inclusiva

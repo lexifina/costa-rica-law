@@ -1,0 +1,1 @@
+Artículo 51. Análisis y priorización. A partir del primer día hábil de mayo, los Concejos de Distrito analizarán y priorizarán los proyectos recibidos, verificando su alineación con las necesidades distritales y los instrumentos de planificación municipal. La priorización se realizará por votación simple.

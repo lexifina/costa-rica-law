@@ -1,0 +1,3 @@
+Sección Tercera
+Del lugar, modalidad y procedimientos de las audiencias públicas.
+Artículo 20. Lugares y condiciones para las audiencias públicas. Las audiencias públicas deberán realizarse en espacios que garanticen accesibilidad, participación efectiva, comodidad y seguridad, preferentemente en el salón de sesiones municipal, la sede del Concejo de Distrito o el despacho de la Alcaldía, pudiendo de signarse otro sitio dentro del cantón mediante acuerdo del órgano competente. En caso de limitaciones materiales o humanas, se podrán efectuar en lugares próximos, en la cabecera distrital o cantonal. La Municipalidad asegurará, dentro de sus posibilidades presupuestarias, el mobiliario, insumos, equipos técnicos y logística necesarios para su adecuado desarrollo.

@@ -1,0 +1,1 @@
+Artículo 48. Asesoría técnica. Entre marzo y abril, los Concejos de Distrito garantizarán asesoría técnica a las personas habitantes y partes interesadas para la correcta elaboración de proyectos, para lo cual podrán requerir apoyo del equipo técnico señalado en artículos anteriores.

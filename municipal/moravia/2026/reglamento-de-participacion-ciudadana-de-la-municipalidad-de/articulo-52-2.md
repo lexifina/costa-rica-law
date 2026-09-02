@@ -1,0 +1,1 @@
+Artículo 53. Revisión de viabilidad. Durante la segunda semana de julio de cada año, el equipo técnico creado al efecto revisará la viabilidad técnica y financiera de los proyectos priorizados para su eventual inclusión en el presupuesto ordinario del año siguiente.

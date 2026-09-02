@@ -1,0 +1,3 @@
+Artículo 32. Derecho a ser recibido o convocado en audiencia. Las personas habitantes, partes interesadas y organizaciones sociales tendrán derecho a ser recibidas en audiencia por el Concejo de Distrito para exponer asuntos de interés público o ser informadas sobre temas relacionados con la gestión municipal.
+*FIN**
+Artículo 33. Promoción del Presupuesto Participativo Municipal. La Municipalidad promoverá el Presupuesto Participativo como mecanismo para fortalecer la participación ciudadana en la definición de inversiones locales. Los Concejos de Distrito fomentarán la presentación de proyectos articulados con los instrumentos de planificación municipal vigentes.

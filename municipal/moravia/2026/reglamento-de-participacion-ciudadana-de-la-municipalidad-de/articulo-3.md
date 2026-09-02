@@ -1,0 +1,1 @@
+Artículo 3. Ámbito de aplicación. Este reglamento se aplica en la jurisdicción del cantón de Moravia y es válido para todas las personas habitantes, partes interesadas y organizaciones de la sociedad civil que interactúen con la Municipalidad, así como para actores públicos o privados con amparo legal para participar en decisiones del Gobierno Local.

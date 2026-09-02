@@ -1,0 +1,1 @@
+Artículo 62. Participación en la etapa de diseño. En la realización del diseño de obras públicas las asambleas abiertas, foros comunitarios u otros actores civiles, públicos o privados, podrán presentar observaciones, análisis técnicos y propuestas, las cuales quedarán insertas en un legajo del expediente administrativo del proyecto.

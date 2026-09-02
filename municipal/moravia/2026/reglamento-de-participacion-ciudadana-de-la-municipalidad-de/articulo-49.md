@@ -1,0 +1,1 @@
+Artículo 49. Representación de proyectos. Cada proyecto deberá contar con una persona representante oficial y una suplente, acreditadas mediante documento idóneo, quienes actuarán como enlace entre la organización proponente, el Concejo de Distrito y la Administración Municipal.

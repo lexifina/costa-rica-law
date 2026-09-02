@@ -1,0 +1,1 @@
+Artículo 57. Presentación de proyectos ante ausencia del Concejo de Distrito. Cuando un Concejo de Distrito se encuentre desarticulado o inoperante, cualquier interesado que demuestre que le asiste un interés legítimo podrá presentar los proyectos directamente a la Alcaldía para su análisis y resolución.

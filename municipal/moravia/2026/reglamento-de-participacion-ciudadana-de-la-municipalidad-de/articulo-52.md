@@ -1,0 +1,1 @@
+Artículo 52. Presentación a la Alcaldía. Durante la primera semana de julio, cada Concejo remitirá a la Alcaldía la lista de proyectos priorizados con sus requerimientos de financiamiento. En el mismo plazo, los Concejos podrán presentar portafolios conjuntos de proyectos.

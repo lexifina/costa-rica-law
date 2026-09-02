@@ -1,0 +1,1 @@
+Artículo 31. Registro Municipal de Partes Interesadas. La Municipalidad proporcionará a los Concejos de Distrito, cuando lo soliciten, un registro actualizado de partes interesadas en su jurisdicción para facilitar la coordinación y participación en procesos distritales y municipales.

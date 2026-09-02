@@ -1,0 +1,1 @@
+Artículo 67. Promoción del urbanismo social y cuidador. La Municipalidad impulsará enfoques de urbanismo social y cuidador para generar entornos inclusivos, seguros y significativos, priorizando la cohesión social, el arraigo comunitario y la participación de poblaciones vulnerables mediante metodologías sensibles a sus necesidades.

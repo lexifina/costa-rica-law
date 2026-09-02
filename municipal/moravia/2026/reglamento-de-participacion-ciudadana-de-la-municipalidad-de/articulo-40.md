@@ -1,0 +1,1 @@
+Artículo 41. Distribución por distrito. La distribución de recursos para financiar proyectos de los Concejos de Distrito se realizará tratando de garantizar la equidad, la inclusión y cualquier otro factor que justifique una asignación diferenciada.
