@@ -1,0 +1,1 @@
+Artículo 37. Actos oficiales. La participación en actos oficiales, culturales y festivos del cantón formará parte de las funciones de representación institucional de la banda. La dirección de la banda coordinará dicha participación con la Municipalidad, considerando la programación anual, las necesidades logísticas y los recursos disponibles.

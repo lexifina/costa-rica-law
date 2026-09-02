@@ -1,0 +1,1 @@
+Artículo 21. Puntualidad y registro. La puntualidad es obligatoria, por lo cual, el retraso mayor a 15 minutos será calificado como llegada tardía, bajo la comprensión de que 3 llegadas tardías en un mes calendario, equivaldrán a una inasistencia. La dirección de la banda llevará un registro de asistencia a ensayos y presentaciones.

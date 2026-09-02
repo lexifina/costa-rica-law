@@ -1,0 +1,1 @@
+Artículo 29. Vestuario. La Municipalidad podrá definir, además del uniforme, otras disposiciones de vestuario para presentaciones, actos oficiales o actividades culturales, según la naturaleza del evento. La dirección comunicará oportunamente las reglas de uso, presentación y cuidado, manteniendo la imagen institucional.

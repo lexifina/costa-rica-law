@@ -1,0 +1,1 @@
+Artículo 33. Permanencia. La condición de miembro de banda podrá perderse por incumplimiento de las obligaciones y/o prohibiciones dispuestas en este reglamento, así como de las obligaciones aceptadas en la carta de compromiso informado para el préstamo de instrumentos y uniformes.

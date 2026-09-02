@@ -1,0 +1,7 @@
+Artículo 6. Fines. Son Fines de la Benemérita Banda Municipal de Moravia:
+a) Promover la cohesión social y la sana convivencia en el cantón, mediante espacios culturales donde confluyan personas de distintas edades, barrios y condiciones, bajo reglas de respeto y cooperación.
+b) Fortalecer la identidad y el sentido de pertenencia cantonal, preservando y proyectando tradiciones, repertorios y celebraciones locales, como expresión de la memoria cultural de la comunidad.
+c) Contribuir a la participación cívica y a la institucionalidad democrática, mediante el acompañamiento de actos oficiales, cívicos, culturales y festivos del cantón, como manifestaciones de integración y reconocimiento comunitario.
+d) Fomentar el desarrollo humano, la formación artística y las oportunidades culturales, ofreciendo un itinerario de aprendizaje y participación musical que fortalezca capacidades personales y pueda abrir opciones educativas y de proyección artística, especialmente hacia las personas Moravianas que deseen aprender o incrementar sus conocimientos en las artes musicales y aquellas propias de una banda municipal.
+e) Proyectar la representación cultural del cantón, participando en intercambios, festivales y actividades fuera del cantón cuando corresponda, fortaleciendo la imagen y el orgullo territorial.
+f) Promover un proceso de reclutamiento de personas Moravianas interesadas en aprender.

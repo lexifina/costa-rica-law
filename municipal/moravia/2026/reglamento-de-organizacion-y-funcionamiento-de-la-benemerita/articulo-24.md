@@ -1,0 +1,1 @@
+Artículo 24. Práctica constante. Con el fin de promover la elevación continua del nivel musical, las personas integrantes deberán mantener una práctica regular de su instrumento y participar en las actividades formativas que programe la dirección, incluyendo ensayos seccionales, lecturas y repasos del repertorio, según se comunique por los canales oficiales.

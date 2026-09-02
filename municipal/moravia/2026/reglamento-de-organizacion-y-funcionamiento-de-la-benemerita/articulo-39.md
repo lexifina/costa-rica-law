@@ -1,0 +1,1 @@
+Artículo 39. Representación oficial y comunicaciones. Cualquier presentación, uso de logotipos o generación de contenidos en nombre de la banda requiere autorización previa de la vicealcaldía y solicitud mediante el sistema de tiquetes al departamento de comunicación institucional, previo criterio técnico, no vinculante, del director de banda, cuando sea requerido.

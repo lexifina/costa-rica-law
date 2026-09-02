@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento es de acatamiento obligatorio para todas las personas integrantes de la banda municipal, director, personal de apoyo, colaboradores de la Benemérita Banda Municipal de Moravia e incluso para los funcionarios municipales que tienen asignadas, de forma directa o indirecta, funciones en relación con el proyecto.

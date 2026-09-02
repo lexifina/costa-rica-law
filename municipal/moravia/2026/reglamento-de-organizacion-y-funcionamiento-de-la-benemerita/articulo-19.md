@@ -1,0 +1,1 @@
+Artículo 19 Bis. Expulsión. La expulsión de un miembro de la banda quedará a juicio de la Comisión quien deberá iniciar un procedimiento administrativo que cumpla con las normas del debido proceso estipuladas en la Ley general de la Administración Pública.

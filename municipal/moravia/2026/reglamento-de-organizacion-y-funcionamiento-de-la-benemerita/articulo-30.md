@@ -1,0 +1,1 @@
+Artículo 30. De la titularidad municipal. Los bienes que sean propiedad de la municipalidad y que hubieren sido asignados a la banda, tales como equipos electrónicos, audiovisuales, cómputo, partituras e instrumentos, deberán utilizarse exclusivamente en actividades de esta. En el caso de bienes intangibles aplicará la misma restricción de uso.

@@ -1,0 +1,7 @@
+Artículo 26. Del uso y prohibiciones. A los miembros de banda que se les autorice el préstamo de un instrumento, les será obligatorio:
+a) Utilizar el instrumento asignado únicamente en los ensayos de la banda municipal, presentaciones y actividades en las que este participe de forma oficial.
+b) Utilizar el instrumento en forma responsable, ordenada y cuidadosa.
+c) Abstenerse de utilizar los instrumentos con fines comerciales o en actividades que no sean oficiales de la banda municipal, así como ceder, prestar o transferirlo a terceras personas.
+d) Hacer entrega del instrumento cuando la Municipalidad lo requiera para mantenimiento o reparación o al momento inmediato que venza el término de préstamo. En caso de que el instrumento no sea devuelto cuando lo requiera la Municipalidad, al analizar el préstamo o se haga devolución con daños, el miembro de la banda al cual se le otorgó el préstamo, será responsable de los costos de reparación o reposición.
+e) De previo a tomar posesión del instrumento, verificar su estado y si encuentra daños en el mismo, reportarlo en ese momento. En este acto, quien entrega el instrumento deberá realizar un registro fotográfico del estado de este y agregarlo en los registros oficiales de la banda.
+f) Posterior a la toma de posesión del instrumento todos los daños o defectos que esté presente, sea por uso normal o por cualquier otra causa, deberán ser reportados al director de banda o cualquier otro funcionario que se designe al efecto.

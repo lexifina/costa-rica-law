@@ -1,0 +1,10 @@
+CAPÍTULO VI
+CONVIVENCIA, CONDUCTA Y RÉGIMEN DISCIPLINARIO
+Artículo 32. Obligaciones de conducta. Todos los sujetos enunciados en el artículo 2 de este reglamento, quedarán obligados a:
+a) Mantener respeto, trato digno y no discriminatorio hacia otros miembros de la banda y cualquier tercero.
+b) No consumir bebidas alcohólicas y/o drogas durante ensayos, presentaciones y cualquier otra actividad de la banda o mientras se utilice el uniforme o cualquier otro distintivo institucional. De igual forma, estará prohibido presentarse a ensayos, presentaciones o actividades bajo los efectos de alguna de las sustancias citadas.
+c) Guardar decoro y respeto hacia la imagen institucional en cualquier actividad y espacio, incluyendo aquellos que se transmitan por medios virtuales, siempre que estén relacionados con presentaciones, reuniones, ensayos o actividades de la banda.
+d) Abstenerse de ejercer personalmente o por medio de interpósita persona, en contra de otros miembros de la banda y/o terceros cualquier tipo de acción u omisión que pueda ser considerada como acoso sexual, violencia física, verbal o psicológica.
+e) No utilizar lenguaje soez o inapropiado en actividades propias de la banda, aun hacia sus propios compañeros, sea en forma presencial o de viva voz o bien utilizando medios tecnológicos de cualquier índole y haciendo uso de cualquier plataforma.
+El incumplimiento de las obligaciones señaladas en los apartados b) y d) de este artículo, se considerará falta grave y dará lugar a la pérdida de la condición de miembro de la banda.
+En estos supuestos, de previo a ejecutar la sanción, se hará un traslado de cargos al infractor por el término de 5 días hábiles, luego de lo cual se emitirá la resolución final, en el plazo máximo de tres días hábiles. Existirá obligación de suspender al supuesto infractor de forma inmediata posterior al momento que se tenga conocimiento de las supuestas conductas, esto, por la totalidad del plazo que tarde el procedimiento antes señalado. Lo anterior, sin perjuicio de las responsabilidades legales que correspondan.
