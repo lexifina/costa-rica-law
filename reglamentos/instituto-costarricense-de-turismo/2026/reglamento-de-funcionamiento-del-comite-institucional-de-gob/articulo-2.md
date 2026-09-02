@@ -1,0 +1,2 @@
+Artículo 2° Fundamento legal
+Este reglamento se basa en el marco jurídico y normativo aplicable, incluyendo la Constitución Política de la República de Costa Rica, así como las siguientes leyes disposiciones: la Ley General de la Administración Pública (N.º 6227), la Ley General de Control Interno (N.º 8292), la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (N.º 8422), la Ley Marco de Empleo Público (N.º 10159), la Política Nacional de Responsabilidad Social 2017-2030, y las directrices internacionales emitidas por la OCDE.
