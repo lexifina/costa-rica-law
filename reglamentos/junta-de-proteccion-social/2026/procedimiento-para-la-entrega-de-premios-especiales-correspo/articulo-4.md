@@ -1,0 +1,2 @@
+Artículo 4°- Detalle de los premios
+Entre todas las personas mayores de 18 años, sean nacionales o extranjeras, que activen al menos 2 fracciones del Sorteo Extraordinario de Navidad N°4932 para los sorteos de esta promoción, y hasta un máximo de 200 fracciones para cada sorteo de la promoción, se otorgarán en total 800 enteros de lotería del Sorteo Extraordinario de Navidad N.º 4932, distribuidos en ocho sorteos promocionales de 100 enteros de lotería cada uno.
