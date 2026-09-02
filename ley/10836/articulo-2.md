@@ -16,3 +16,4 @@ El monto total de la rebaja y del aumento dispuestos en este artículo es el sig
 (Modificado por el artículo 1° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
 (Modificado por el artículo 3° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
 Modificado por el artículo 4° del decreto ejecutivo N° 45885 del 31 de julio del 2026)
+(Modificado por el artículo 1° del decreto ejecutivo N° 45923 del 2 de setiembre de 2026)
