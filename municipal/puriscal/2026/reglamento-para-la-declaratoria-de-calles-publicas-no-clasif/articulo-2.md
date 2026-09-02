@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación Las disposiciones del presente reglamento serán aplicables a todas las solicitudes de declaratoria de calles públicas no clasificadas que se tramiten ante la Municipalidad de Puriscal.

@@ -1,0 +1,5 @@
+Artículo 19. Solicitud de plano catastrado y documentación de regularización Cuando de los informes emitidos por la Unidad Técnica de Gestión Vial, Catastro Municipal, Estudio Socioeconómico y Asesoría Legal se concluya que la vía es susceptible de declaratoria y no existan impedimentos absolutos para continuar el trámite, la Municipalidad podrá requerir a los interesados la presentación de la documentación necesaria para su regularización. En los casos que corresponda, los interesados deberán aportar por su cuenta y costo:
+a) Plano catastrado del derecho de vía.
+b) Copia de la bitácora del profesional que realizó el plano firmado por los propietarios colindantes.
+c) Escritura pública de traspaso a favor de la Municipalidad, una vez aprobada la declaratoria por el Concejo Municipal.
+La Municipalidad no exigirá la elaboración de planos catastrados, escrituras u otros estudios privados como requisito previo para la apertura o análisis inicial del expediente, salvo disposición legal expresa.

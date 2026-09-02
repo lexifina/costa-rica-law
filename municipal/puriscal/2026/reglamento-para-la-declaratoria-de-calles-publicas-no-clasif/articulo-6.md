@@ -1,0 +1,1 @@
+Artículo 6. Calle Pública No Clasificada Vía de tránsito terrestre que no forma parte de la Red Vial Nacional y respecto de la cual se pretende determinar su condición de calle pública para efectos de incorporación a la Red Vial Cantonal.

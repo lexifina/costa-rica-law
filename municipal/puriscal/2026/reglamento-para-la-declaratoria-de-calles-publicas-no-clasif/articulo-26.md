@@ -1,0 +1,2 @@
+CAPÍTULO IX DISPOSICIONES FINALES
+Artículo 26. Ausencia de obligación presupuestaria inmediata La declaratoria de una calle pública y su incorporación a la Red Vial Cantonal no generará por sí misma obligación inmediata de inversión, mejoramiento, mantenimiento, ampliación o pavimentación por parte de la Municipalidad. La programación de recursos se realizará conforme a la planificación institucional, disponibilidad presupuestaria y prioridades establecidas por la Administración Municipal y el Concejo Municipal.

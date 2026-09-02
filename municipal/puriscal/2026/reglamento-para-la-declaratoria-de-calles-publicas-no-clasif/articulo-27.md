@@ -1,0 +1,1 @@
+Artículo 27. Interpretación Las disposiciones del presente reglamento deberán interpretarse favoreciendo la protección del interés público, la conectividad territorial, la continuidad de los servicios públicos y el acceso de las comunidades a infraestructura y servicios esenciales.

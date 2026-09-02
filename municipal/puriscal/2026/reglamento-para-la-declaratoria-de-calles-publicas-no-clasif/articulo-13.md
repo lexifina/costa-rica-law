@@ -1,0 +1,1 @@
+Artículo 13. Plazo para emisión de informes Las dependencias responsables deberán emitir los informes correspondientes dentro de un plazo máximo de quince (15) días hábiles contados a partir de la recepción formal de la solicitud. Por razones técnicas debidamente justificadas podrá otorgarse una única ampliación de hasta quince (15) días hábiles adicionales.

@@ -1,0 +1,1 @@
+Artículo 7. Declaratoria de Calle Pública Acto administrativo mediante el cual el Concejo Municipal reconoce formalmente el carácter público de una vía existente o regularizada, con fundamento en estudios técnicos, sociales, catastrales y jurídicos.

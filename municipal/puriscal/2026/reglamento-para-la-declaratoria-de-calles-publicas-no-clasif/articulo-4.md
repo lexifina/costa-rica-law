@@ -1,0 +1,1 @@
+Artículo 4. Principios rectores La aplicación del presente reglamento se regirá por los principios de legalidad, interés público, celeridad administrativa, razonabilidad, objetividad, coordinación institucional, seguridad jurídica, participación ciudadana y desarrollo territorial sostenible

@@ -1,0 +1,1 @@
+Artículo 28. Expedientes en trámite Los expedientes iniciados con anterioridad a la entrada en vigencia del presente reglamento continuarán su tramitación conforme a sus disposiciones en lo que resulte más favorable para la determinación de la condición pública de la vía.
