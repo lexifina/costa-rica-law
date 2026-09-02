@@ -1,0 +1,4 @@
+Capítulo II.
+Denuncias por violencia y procedimiento
+ARTICULO 5.- Legitimación para denunciar y solicitar la aplicación del presente reglamento. Cualquier persona que conozca de los hechos de violencia hacia una persona adulta mayor en el establecimiento, podrá denunciar la situación y solicitar la aplicación del presente reglamento.
+De conformidad con lo establecido en el artículo 64 de la Ley No. 7935, Ley Integral para la Persona Adulta Mayor de 25 de octubre de 1999 y sus reformas, en el caso de empleados, personal a cargo, directores y todo aquel que tenga una relación de cuidado con personas adultas mayores en los centros de atención, la omisión comprobada del deber de denunciar las situaciones de violencia, aun conociéndolas, será considerada falta laboral grave y acarreará el despido sin responsabilidad patronal, siguiendo los procedimientos laborales correspondientes.

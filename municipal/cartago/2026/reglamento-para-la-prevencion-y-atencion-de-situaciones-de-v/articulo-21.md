@@ -1,0 +1,1 @@
+Artículo 21.- Garantía para el denunciante y los testigos. Ninguna persona que haya denunciado ser presunta víctima de violencia en cualquiera de sus manifestaciones, o haya comparecido como testigo de las partes, podrá sufrir, por ello, perjuicio personal alguno en su empleo.
