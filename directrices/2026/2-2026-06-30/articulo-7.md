@@ -1,0 +1,1 @@
+Artículo 7.- Seguimiento: El Ministerio de Economía, Industria y Comercio (MEIC), por medio de la Dirección de Mejora Regulatoria, dará seguimiento a la eliminación de las trabas regulatorias que se definan para ser atendidas en el componente “Le Dejamos Trabajar Cámaras Empresariales”.

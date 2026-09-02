@@ -1,0 +1,3 @@
+Capítulo IV
+Componente Cero Traba
+Artículo 14.- Lista de requisitos que no pueden exigirse. El MEIC, por medio de la Dirección de Mejora Regulatoria, en el plazo máximo de dos meses contados a partir de la vigencia de la presente directriz, elaborará y mantendrá actualizada una lista orientadora de requisitos e información que, conforme a la Ley N.° 8220, su reglamento y el Decreto Ejecutivo N.° 43665-MP-MEIC, no pueden ser exigidos a los administrados por encontrarse disponibles en bases de datos públicas o por otras razones previstas en la normativa aplicable. Esa lista deberá ser puesta en conocimiento de todos los oficiales de simplificación de trámites de la Administración Pública.

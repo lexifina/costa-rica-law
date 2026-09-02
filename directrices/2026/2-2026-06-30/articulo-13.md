@@ -1,0 +1,1 @@
+Artículo 13.- Seguimiento. El MEIC, por medio de la Dirección de Mejora Regulatoria, dará seguimiento a los avances en la mejora y eliminación de las trabas regulatorias que se definan para ser atendidas en el componente "Le Dejamos Trabajar Emprendedores y Pymes".
