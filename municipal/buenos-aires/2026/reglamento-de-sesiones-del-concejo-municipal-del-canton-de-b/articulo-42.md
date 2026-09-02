@@ -1,0 +1,1 @@
+Artículo 42: Audiencias Públicas: El Concejo recibirá un máximo de tres audiencias por sesión, previa agenda, a excepción de la sesión en donde se atienden a vecinos. En dichas audiencias, quienes la hayan solicitado, tendrán 15 minutos para hacer su exposición, con una réplica de 5 minutos.

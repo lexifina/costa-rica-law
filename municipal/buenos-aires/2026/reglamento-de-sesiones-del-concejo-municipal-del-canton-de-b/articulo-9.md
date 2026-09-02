@@ -1,0 +1,1 @@
+Artículo 9: Recusación: Podrá ser recusado por cualquier persona interesada, el Regidor (a) o el Alcalde (sa), que no se excuse de intervenir en la discusión y/o votación a la que se refiere el inciso a) del artículo anterior. El Concejo decidirá si la recusación procede.

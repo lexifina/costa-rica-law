@@ -1,0 +1,1 @@
+Artículo 65: Notificación de Audiencias: Corresponde a la Secretaría notificar oportunamente a los interesados la hora y fecha de la Audiencia otorgada. Sólo en casos calificados se otorgará audiencia el mismo día de sesión. De igual manera se deberá valorar si la audiencia la debe atender otro órgano municipal.

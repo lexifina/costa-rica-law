@@ -1,0 +1,2 @@
+CAPITULO V DE LA AUDITORÍA INTERNA
+Artículo 59: El Concejo Municipal nombrará por tiempo indefinido al auditor y al subauditor internos. Tales nombramientos se realizarán por concurso público promovido por cada ente y órgano de la Administración Pública; se asegurará la selección de los candidatos idóneos para ocupar los puestos; con base a lo normado en La Ley de Control Interno y las directrices de la Contraloría General de la República y cualquier otra norma atinente.

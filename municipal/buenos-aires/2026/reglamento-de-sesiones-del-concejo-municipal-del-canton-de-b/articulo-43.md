@@ -1,0 +1,1 @@
+Artículo 43: Dictámenes de comisiones: Los Dictámenes de las Comisiones deben ser presentados en la Secretaría Municipal, la cual deberá consignar la fecha y hora de recibo. La Presidencia tendrá la facultad de incorporarlos en el Orden del Día correspondiente.

@@ -1,0 +1,1 @@
+Artículo 37: Los funcionarios municipales podrán ser convocados para que asistan a sesiones ordinarias o extraordinarias del Concejo, cuando este, mediante acuerdo, así lo disponga, con el fin de que informen sobre asuntos propios de su cargo.

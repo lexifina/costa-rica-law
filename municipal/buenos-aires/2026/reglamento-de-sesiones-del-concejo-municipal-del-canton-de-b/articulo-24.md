@@ -1,0 +1,1 @@
+Artículo 24: Sesiones Extraordinarias: Las sesiones extraordinarias deberán convocarse con un mínimo de 24 horas de anticipación, y se señalará el objeto de la sesión mediante el acuerdo municipal o según el Artículo 17 inciso m del Código Municipal. Las sesiones extraordinarias deberán celebrarse el día y a la hora que se indique en la convocatoria.

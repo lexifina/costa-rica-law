@@ -1,0 +1,1 @@
+Artículo 66: De la Atención a Vecinos: Cuando concurrieren a Sesión uno o varios vecinos, la Presidencia hará la presentación de rigor exponiendo los motivos de su presencia, y de inmediato les concederá el uso de la palabra para que hagan la exposición correspondiente, estableciendo los plazos, siendo estos de diez minutos para la exposición y cinco minutos de réplica.

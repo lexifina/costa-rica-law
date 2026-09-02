@@ -1,0 +1,2 @@
+Artículo 67: Participación de las y los Concejales: Finalizadas las exposiciones de los particulares la Presidencia concederá la palabra a los y las Concejales que lo soliciten con el fin de intercambiar brevemente opiniones con los vecinos sobre el asunto de que se trate, no debiéndose redundar en el asunto, de igual manera cada regidor, tendrán un máximo de cinco minutos de intervención.
+Corresponde a la Presidencia moderar las intervenciones, llamar al orden y suspender la Audiencia si el caso lo amerita.

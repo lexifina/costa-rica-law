@@ -1,0 +1,1 @@
+Artículo 47: Votación de la Moción de Orden: En cualquier momento durante la Sesión se podrá presentar una Moción de Orden. Esta suspenderá el debate hasta tanto no sea votada por el Concejo. Las Mociones de Orden deben ser conocidas y puestas a votación inmediatamente, sin discusión y en riguroso orden de presentación.

@@ -1,0 +1,1 @@
+Artículo 16: Inicio de las sesiones: Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada al efecto, conforme con el reloj del local donde se lleve a cabo la sesión.

@@ -1,0 +1,2 @@
+Artículo 45: Moción e iniciativa fuera de orden: La Presidencia Municipal no dará curso y declarará fuera de orden las mociones e iniciativas que evidentemente resulten improcedentes o que simplemente vayan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto.
+Para ello la Presidencia razonará su decisión la cual será consignada en el acta.

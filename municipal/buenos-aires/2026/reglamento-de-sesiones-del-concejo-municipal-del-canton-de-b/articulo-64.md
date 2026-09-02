@@ -1,0 +1,1 @@
+Artículo 64: Atención de Audiencias: La Secretaría remitirá a la Presidencia del Concejo la lista que contenga el orden de las solicitudes de Audiencia presentadas por los particulares. La Presidencia decidirá el orden de atención, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.
