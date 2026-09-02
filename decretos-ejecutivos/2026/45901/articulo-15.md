@@ -1,0 +1,1 @@
+Artículo 15. Revisión. La Dirección de Tecnologías de Información (DTI) promoverá revisiones del presente Reglamento al menos cada tres años, o antes cuando se presenten cambios tecnológicos, normativos o de gestión que así lo requieran, a fin de mantenerlo actualizado.

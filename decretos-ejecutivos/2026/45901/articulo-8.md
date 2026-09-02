@@ -1,0 +1,1 @@
+Artículo 8. Sobre el quórum y los acuerdos. El Comité de Gobernanza de las Tecnologías de Información y Comunicación podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos serán aprobados por mayoría simple de los presentes.

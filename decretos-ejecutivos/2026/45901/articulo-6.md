@@ -1,0 +1,1 @@
+Artículo 6. Sobre las sesiones. El Comité de Gobernanza de las Tecnologías de Información y Comunicación sesionará en forma ordinaria una vez por trimestre, previa convocatoria del Coordinador. De igual forma, el Comité podrá sesionar en forma extraordinaria cuando sea requerido, previa convocatoria del Coordinador. En cada sesión se levantará la minuta respectiva.
