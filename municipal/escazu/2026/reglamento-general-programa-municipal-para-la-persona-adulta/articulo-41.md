@@ -1,0 +1,3 @@
+Apartado IX: De los recursos contra las sanciones
+Artículo 41. -Las sanciones que se impongan de conformidad con el apartado VII de este reglamento tendrán los recursos establecidos en el artículo 344 de la Ley General de Administración Pública relacionados con el procedimiento sumario, y una vez emitido el acto final, la parte contará con un plazo de tres días hábiles para la presentación de los recursos correspondientes.
+Al respecto, deberá tomarse en consideración lo señalado por el artículo 348 de la Ley General de Administración Pública, relacionado con que los recursos no requieren una redacción ni una pretensión especiales y bastará para su correcta formulación que de su texto se infiera claramente la petición de revisión.

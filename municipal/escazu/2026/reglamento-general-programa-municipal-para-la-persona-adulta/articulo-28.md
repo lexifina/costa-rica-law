@@ -1,0 +1,9 @@
+Artículo 28. -Son faltas muy graves:
+a. Presentarse a las respectivas lecciones o a cualquier lugar donde se lleven a cabo actividades institucionales relacionadas con los cursos que ofrece el Programa, ya sea bajo los efectos del alcohol, estupefacientes, psicotrópicos o psicofármacos no prescritos a su persona.
+b. Infligir o intentar lesionar la integridad física o psicológica del personal facilitador de los cursos, así como del personal administrativo, y personas participantes de los cursos.
+c. Sobornar o chantajear de cualquier forma al personal facilitador o administrativo con la finalidad de obtener un beneficio propio o para un tercero.
+d. Cualquier acción que contravenga lo estipulado en la Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia N° 7476.
+e. Realizar o ejecutar prácticas sexuales contrarias a la moral pública dentro de las instalaciones municipales o cualquier otro espacio en que se estén impartiendo los cursos del Programa.
+f. Cometer actos discriminatorios originados por diferencias étnicas, nacionalidad, credo, orientación sexual, género, discapacidad o cualquier otra índole que afecte la dignidad humana contra el personal facilitador de los cursos, así como del personal administrativo, y personas participantes de los cursos.
+g. Distribuir o consumir alcohol, estupefacientes, psicotrópicos o psicofármacos no prescritos a su persona dentro de las instalaciones educativas o cualquier lugar donde se lleven a cabo actividades institucionales relacionadas con los cursos que ofrece el Programa.
+h. Portar armas de fuego o punzocortantes, explosivos, o cualquier otro objeto que constituya un riesgo para la seguridad de las personas dentro de las instalaciones municipales o cualquier lugar donde se lleven a cabo actividades institucionales relacionadas con los cursos que ofrece el Programa

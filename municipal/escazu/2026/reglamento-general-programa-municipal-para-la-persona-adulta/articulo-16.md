@@ -1,0 +1,2 @@
+Artículo 16. -Se considerarán ausencias justificadas aquellas situaciones como: emergencias nesperadas, muerte de un ser querido, problemas familiares o personales, accidente
+automovilístico, citas médicas, procedimientos quirúrgicos, funerales, citaciones a requerimientos realizados por autoridades administrativas o judiciales. Estas justificaciones las deberá realizar únicamente la persona matriculada o la persona de contacto en caso de emergencia establecida en el formulario de matrícula directamente a la persona que a nivel municipal esté encargada del Programa.

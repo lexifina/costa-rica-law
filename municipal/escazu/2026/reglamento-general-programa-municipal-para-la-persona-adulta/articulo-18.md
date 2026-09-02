@@ -1,0 +1,1 @@
+Artículo 18. -En los casos de los cursos modulares (con más de un nivel), si la persona asistió a menos de la mitad del curso (es decir menos de 7 lecciones), no podrá matricular el siguiente nivel del curso. Esta disposición será comunicada a la persona por medio de correo electrónico o por escrito, personalmente, en caso de que la persona se presente al curso.

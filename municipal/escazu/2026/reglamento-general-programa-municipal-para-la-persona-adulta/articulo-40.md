@@ -1,0 +1,1 @@
+Artículo 40. -El presentar una denuncia falsa se considerará como una injuria, y se procederá de acuerdo con lo establecido para las faltas graves detalladas en el Artículo 25, punto C de este Reglamento.

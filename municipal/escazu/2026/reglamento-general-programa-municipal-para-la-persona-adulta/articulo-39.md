@@ -1,0 +1,1 @@
+Artículo 39. -De cada denuncia efectuada se elaborará un expediente con la evidencia probatoria que permitirá la instrucción de la denuncia presentada, y que contendrá toda la documentación que al respecto se haya presentado o recabado, respetando los principios del debido proceso y del derecho de defensa.

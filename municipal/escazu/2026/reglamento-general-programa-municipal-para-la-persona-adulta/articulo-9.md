@@ -1,0 +1,1 @@
+Artículo 9. -En cada proceso de matrícula se comunicará la duración de cada curso, el plan de estudio y los lineamientos generales para participar del Programa, de manera que las personas puedan matricular de manera informada.
