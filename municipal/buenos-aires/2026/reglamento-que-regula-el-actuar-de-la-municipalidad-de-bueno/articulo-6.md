@@ -1,0 +1,4 @@
+CAPITULO II
+Procedimiento
+Artículo 6- Conformación de expediente administrativo. En todos los casos se deberá conformar un expediente administrativo, el cuál contendrá los documentos, copias y originales, según sea el caso, que se generen desde el momento mismo en que se envía o se recibe el documento de propuesta que inicia el procedimiento hasta su ejecución y entrega.
+El expediente administrativo deberá llevarse de forma digital según la reglamentación indicada por el departamento de archivo, agregando de manera secuencial y oportuna los documentos conforme arriben al expediente. El documento de convenio deberá describirse con el código de camino, No.de provincia, 06, Puntarenas, cantón de Buenos Aires 03, No. De Distrito, 01, Buenos Aires, 02 Volcán, 03 Potrero Grande, 04 Boruca, 05 Pilas, 06 Colinas, 07 Chánguena, 08 Biolley, 09 Brunka, 10 Cabagra No. De consecutivo y año.

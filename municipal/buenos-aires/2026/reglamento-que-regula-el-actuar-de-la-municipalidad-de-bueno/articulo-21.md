@@ -1,0 +1,1 @@
+Artículo 21- Informe final de Ejecución. El ingeniero del departamento de Gestión Vial a cargo del proyecto, deberá confeccionar un informe de ejecución de las actividades que detallen la cuantificación de los recursos invertidos en la obra de acuerdo con los aportes suministrados durante su ejecución.

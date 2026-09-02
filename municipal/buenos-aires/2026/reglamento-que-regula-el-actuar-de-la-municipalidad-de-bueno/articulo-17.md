@@ -1,0 +1,1 @@
+Artículo 17- Sobre la programación de actividades. Para todos los convenios, independientemente de la actividad a ejecutar, El Departamento de Gestión Vial Municipal deberá realizar un cronograma de actividades, el cual se elaborará tomando en consideración la programación anual de labores.

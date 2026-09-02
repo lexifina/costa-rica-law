@@ -1,0 +1,1 @@
+Artículo 18- Orden de inicio de los proyectos. El Departamento de Gestión Vial Municipal, deberá incluir dentro del expediente, el documento mediante el cual emite la Orden de Inicio de las obras o servicios, el cual deberá ser firmado por el coordinador general del Departamento de Gestión Vial Municipal, y remitir copia a las contrapartes involucradas.

@@ -1,0 +1,1 @@
+Artículo 4- Cumplimiento del bloque de legalidad. La Municipalidad de Buenos Aires podrá celebrar convenios de cooperación conforme a las disposiciones del presente Reglamento, en el tanto los objetivos a cumplir se encuentren dentro del marco de sus competencias, debiendo ajustar sus actuaciones en todo momento al ordenamiento jurídico conforme a sus necesidades.

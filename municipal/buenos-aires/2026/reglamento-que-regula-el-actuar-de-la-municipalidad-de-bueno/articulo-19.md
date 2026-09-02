@@ -1,0 +1,2 @@
+Artículo 19- Registro en un sistema informático de la gestión vial. Todas las obras por ejecutar mediante los convenios de mutua cooperación se deberán registrar en el sistema informático instaurado a través del encargado/a de Tecnologías en Información (TI), o en su defecto deberá registrarse en el expediente electrónico tal y como se registra la información en un proyecto ordinario de contratación o administración.
+El control respectivo se hará por medio de los reportes de inspección en los cuales se registrarán los aportes de las entidades involucradas en el convenio.

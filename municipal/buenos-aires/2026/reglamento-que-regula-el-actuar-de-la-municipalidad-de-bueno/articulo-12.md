@@ -1,0 +1,1 @@
+Artículo 12- Dependencia a cargo del trámite. Corresponderá al departamento de Gestión Vial Municipal la atención de los trámites y procedimientos relativos a los convenios de mutua cooperación, que se realicen conforme las disposiciones del presente capítulo.
