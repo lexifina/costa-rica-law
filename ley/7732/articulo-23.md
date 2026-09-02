@@ -1,15 +1,3 @@
-ARTÍCULO 23.- Compraventas y reportes
-Las compraventas y los reportos de valores objeto de oferta pública
-deberán realizarse por medio de los respectivos miembros de las bolsas de
-valores. Las transacciones que no sean a título oneroso no se considerarán
-del mercado secundario, pero deberán ser notificadas a la Superintendencia
-por los medios que reglamentariamente establezca. El incumplimiento de
-estas disposiciones producirá la anulabilidad de la respectiva
-transacción.
-La Superintendencia reglamentará los casos excepcionales en los
-cuales las bolsas podrán autorizar operaciones fuera de los mecanismos
-normales de negociación, siempre que sean realizadas por medio de uno de
-sus miembros y bajo las normas de la Superintendencia. Estas normas
-fijarán, al menos, los tipos de operación que podrán autorizarse y los
-montos mínimos. En todo caso, estas operaciones se realizarán bajo la
-responsabilidad de las partes y no podrán fijar precio oficial.
+Artículo 23- Compraventas y reportos. Las compraventas y los reportos de valores objeto de oferta pública deberán realizarse por medio de los respectivos miembros de las bolsas de valores o por operadores remotos, debidamente admitidos, bajo un esquema de jurisdicción reconocida en los casos que corresponda. Las transacciones que no sean a título oneroso no se considerarán del mercado secundario, pero deberán ser notificadas a la Superintendencia por los medios que reglamentariamente establezca. El incumplimiento de estas disposiciones producirá la anulabilidad de la respectiva transacción.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley para facilitar la negociación de valores extranjeros en Costa Rica por implementación del reconocimiento de jurisdicción y la participación de inversionistas no domiciliados por medio de la operación remota de intermediarios bursátiles extranjeros, N° 10973 del 2 de setiembre de 2026)
+La Superintendencia reglamentará los casos excepcionales en los cuales las bolsas podrán autorizar operaciones fuera de los mecanismos normales de negociación, siempre que sean realizadas por medio de uno de sus miembros y bajo las normas de la Superintendencia. Estas normas fijarán, al menos, los tipos de operación que podrán autorizarse y los montos mínimos. En todo caso, estas operaciones se realizarán bajo la responsabilidad de las partes y no podrán fijar precio oficial.
