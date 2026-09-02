@@ -1,0 +1,1 @@
+Artículo 8º-La comisión local de plan regulador funcionará como órgano colegiado, estará adscrito a la municipalidad, quien deberá dotar de presupuesto para su operación, así como de espacio físico para las sesiones de trabajo y apoyo administrativo y logístico correspondiente para darle seguimiento al plan regulador.

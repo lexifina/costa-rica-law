@@ -1,0 +1,1 @@
+Artículo 32.-Toda iniciativa presentada por regidores, alcalde o personas físicas o jurídicas para adoptar, reformar, suspender, o derogar disposiciones del plan regulador, deben ser remitidas a la comisión local de plan regulador para su estudio y recomendación al concejo municipal. Se determinará la respuesta en 30 días hábiles.

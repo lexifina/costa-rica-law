@@ -1,0 +1,1 @@
+Artículo 5º-No podrá integrar la comisión local de plan regulador el tesorero, el auditor, el contador y el director de hacienda, así como, sus conyugues o parientes en línea directa o colateral has segundo grado de consanguinidad y afinidad, al igual que los conyugues y familiares del alcalde municipal, vicealcalde y regidores del concejo.
