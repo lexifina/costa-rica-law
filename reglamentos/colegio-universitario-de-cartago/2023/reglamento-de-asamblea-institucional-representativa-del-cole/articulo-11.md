@@ -1,0 +1,1 @@
+ARTICULO 11.- Las iniciativas de reformas a la Ley 9625, al Estatuto Orgánico y al Reglamento de la Asamblea, requerirán para su aprobación del voto afirmativo de una mayoría absoluta de los integrantes de la Asamblea.

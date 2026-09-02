@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Serán mociones de forma las que traten de corregir el estilo de un texto ya aprobado. Las mociones de forma se presentarán por escrito al Directorio, con el fin de que éste, previa comunicación a la Asamblea, incorpore las enmiendas de esa naturaleza que estime necesarias a los textos aprobados.

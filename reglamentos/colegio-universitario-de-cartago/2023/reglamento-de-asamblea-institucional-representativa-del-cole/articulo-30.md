@@ -1,0 +1,1 @@
+ARTÍCULO 30.- El Presidente deberá rechazar ad portas cualquier moción de fondo que no se refiera a los asuntos de la convocatoria. De no existir mociones de fondo respecto de la propuesta base, se discute la propuesta base y se vota.

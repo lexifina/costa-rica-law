@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Las mociones de fondo son aquellas que afectan sustancialmente las propuestas base y deberán ser respaldadas por al menos de cinco integrantes de la Asamblea e indicar quien será su defensor. Deben presentarse por escrito al Directorio de la Asamblea durante el período establecido para ello. Estas mociones y la posición en que serán conocidas y discutidas se informará a la Asamblea.
+El Directorio puede aceptar durante el debate mociones de fondo siempre que sean afines al tema en discusión y favorezcan a la conclusión conciliatoria.
+Las intervenciones sobre cada moción de fondo estarán limitadas a máximo de diez minutos cada una y sólo podrán hacer uso de la palabra, dos asambleístas a favor, incluido el proponente y dos en contra.

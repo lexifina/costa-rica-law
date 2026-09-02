@@ -1,0 +1,2 @@
+ARTÍCULO 40.- El Presidente de la Asamblea podrá disponer tanto del recuento manual como electrónico de votos. La Decanatura Institucional deberá facilitar a la Presidencia de la
+Asamblea los recursos humanos y la plataforma tecnológica para las votaciones y se deberá garantizar la exactitud o veracidad de los resultados de cada votación, así como la identificación de cada votante y la opción escogida en forma pública, excepto para aquellas votaciones que por acuerdo de la Asamblea sean declaradas secretas.

@@ -1,0 +1,1 @@
+ARTICULO 6.- La calidad de integrante de la Asamblea se verificará por las personas que el Directorio determine esa labor y con vista en el padrón correspondiente. A cada miembro se le otorgará una credencial con su nombre para ingresar y permanecer en las Sesiones.

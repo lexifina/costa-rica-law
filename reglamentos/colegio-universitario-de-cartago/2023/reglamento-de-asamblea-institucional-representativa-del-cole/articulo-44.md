@@ -1,0 +1,2 @@
+ARTÍCULO 44.- Para el registro de asistencia en el padrón correspondiente, cada integrante de la Asamblea deberá presentar su documento oficial de identificación (cédula de identidad, carné parauniversitario o pasaporte), a fin de que le sea entregada la credencial de asambleísta, previo al ingreso al recinto de Sesiones.
+Esta credencial deberá ser presentada cada vez que el integrante de la Asamblea salga o ingrese al recinto de Sesiones.

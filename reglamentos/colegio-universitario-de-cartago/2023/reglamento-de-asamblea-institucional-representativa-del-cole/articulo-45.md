@@ -1,0 +1,1 @@
+ARTÍCULO 45.- Ninguna persona podrá ingresar al recinto de Sesiones y permanecer en él durante el desarrollo de la misma, salvo los integrantes de la Asamblea y los funcionarios designados por la Presidencia.

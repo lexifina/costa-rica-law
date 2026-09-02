@@ -1,0 +1,1 @@
+ARTÍCULO 33.- Los oradores deberán concretarse al asunto en debate. El Presidente llamará al orden al orador que infrinja esta norma y puede retirarle el uso de la palabra si no acatare su llamamiento. Terminadas las intervenciones se someterá inmediatamente a votación la moción presentada.

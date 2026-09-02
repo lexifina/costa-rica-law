@@ -1,0 +1,3 @@
+ARTÍCULO 27.- Las mociones de orden durante la Sesión de Asamblea, deberán presentarse por escrito y se conocerán tan pronto termine la intervención del asambleísta que está en uso de la palabra.
+Antes de ser sometidas a votación, el Presidente dará la posibilidad a dos oradores, uno a favor y uno en contra, para referirse a la moción por un tiempo máximo de tres minutos cada uno.
+Quienes hablen de una moción de orden no podrán referirse al asunto de agenda en discusión. Si la moción de orden es rechazada, se continuará con la discusión del asunto de agenda, siguiendo la lista de oradores previo a ser interrumpida.

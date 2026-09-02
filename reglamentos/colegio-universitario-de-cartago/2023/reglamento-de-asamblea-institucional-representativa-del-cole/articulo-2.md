@@ -1,0 +1,1 @@
+ARTICULO 2.- Si en el transcurso de la Sesión, el Presidente comprueba la inexistencia del quórum, dará un plazo de hasta veinte minutos para que se restablezca. Si transcurre el plazo sin que ello ocurra, el Presidente dará por finalizada la Sesión y se hará uso de la facultad otorgada en al artículo anterior.

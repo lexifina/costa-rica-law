@@ -1,0 +1,1 @@
+ARTÍCULO 35.- En las votaciones presenciales los asambleístas manifestarán su criterio poniéndose de pie, en las sesiones virtuales el directorio de la Asamblea establecerá el procedimiento a utilizar para la votación. Cada miembro de la Asamblea tendrá derecho a un voto.

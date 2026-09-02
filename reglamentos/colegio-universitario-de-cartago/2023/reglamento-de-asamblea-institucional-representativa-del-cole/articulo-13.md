@@ -1,0 +1,1 @@
+ARTÍCULO 13.- El Directorio de la Asamblea estará integrado por los siguientes cargos: Presidente, Vicepresidente, Secretario, Fiscal y dos Vocales. Durarán en sus puestos dos años y podrán ser reelectos de manera consecutiva.
