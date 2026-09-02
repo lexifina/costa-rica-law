@@ -1,0 +1,1 @@
+Artículo 67. Acceso a datos sensibles. El acceso a información sensible o de carácter personal será restringido a personal debidamente autorizado y sólo para fines institucionales; las transferencias deberán documentarse y cumplir condiciones de seguridad contractual y técnica.

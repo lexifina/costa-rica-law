@@ -1,0 +1,1 @@
+Artículo 35. Redes y dispositivos personales. No se permitirá el acceso de dispositivos personales a la red interna institucional sin autorización expresa de la DTI y las condiciones de seguridad que se exijan.

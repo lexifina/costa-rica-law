@@ -1,0 +1,1 @@
+Artículo 17. Entrega y recepción. Los equipos entregados a los funcionarios deberán registrarse en inventario con los datos del usuario responsable; la entrega y recepción se formalizará mediante el formulario o medio electrónico que establezca la DTI.

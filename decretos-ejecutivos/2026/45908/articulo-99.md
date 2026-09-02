@@ -1,0 +1,1 @@
+Artículo 99. Capacitación. La DTI en conjunto con la Dirección de Gestión Institucional de Recursos Humanos (DGIRH) implementarán programas de capacitación y sensibilización periódicas sobre uso seguro de los recursos, buenas prácticas en ciberseguridad y protección de datos para todo el personal del MINAE.

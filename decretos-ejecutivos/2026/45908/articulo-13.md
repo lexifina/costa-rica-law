@@ -1,0 +1,1 @@
+Artículo 13. Provisionamiento para ingresos. Las solicitudes de dotación de equipo para nuevos ingresos deberán gestionarse con al menos cinco días hábiles de antelación a la fecha de incorporación, a través de la cuenta institucional de correo electrónico oficial de la DTI o el procedimiento que la DTI determine.

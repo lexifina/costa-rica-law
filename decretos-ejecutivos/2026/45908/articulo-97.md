@@ -1,0 +1,1 @@
+Artículo 97. Restricciones de comercialización. El software institucional no podrá ser vendido, licenciado comercialmente ni utilizado con fines de lucro por personas naturales o jurídicas, incluyendo los propios desarrolladores, sin autorización expresa del Jerarca y de la DTI.

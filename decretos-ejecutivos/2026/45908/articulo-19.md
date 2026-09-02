@@ -1,0 +1,1 @@
+Artículo 19. Uso de licencias. El MINAE utilizará software adquirido legalmente y/o software de licencia libre evaluado y aprobado por la DTI. La DTI llevará un inventario actualizado de licencias y medios de instalación custodiados.

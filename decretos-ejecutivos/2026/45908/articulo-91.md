@@ -1,0 +1,2 @@
+Artículo 91. Prohibición de desarrollos no autorizados. Queda terminantemente prohibido a las dependencias, jefaturas o funcionarios del Ministerio de Ambiente y Energía (MINAE) desarrollar, instalar o promover sistemas, aplicaciones o herramientas tecnológicas no autorizadas por la DTI o UTI, ya sea mediante medios institucionales o recursos propios.
+El incumplimiento de esta disposición constituirá falta grave, de conformidad con lo establecido en los artículos 80 y 81 del presente Reglamento.

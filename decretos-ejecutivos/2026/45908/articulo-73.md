@@ -1,0 +1,1 @@
+Artículo 73. Gobernanza digital. La DTI, en coordinación con la Administración Superior, establecerá mecanismos de gobernanza digital que garanticen la planificación estratégica, interoperabilidad, transparencia y sostenibilidad tecnológica de los sistemas institucionales.

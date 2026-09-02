@@ -1,0 +1,1 @@
+Artículo 12. Traslado interno. Todo traslado interno de equipos informáticos deberá ser aprobado previamente por la DTI o las UTI y formalizado mediante el formulario institucional de Traslado de Bienes; la DTI actualizará el inventario institucional con la información del movimiento.

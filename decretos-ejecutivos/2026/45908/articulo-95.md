@@ -1,0 +1,1 @@
+Artículo 95. Uso de licencias abiertas. La aplicación de licencias de software de código abierto (ejemplo: MIT, GPL u otras equivalentes) sobre desarrollos institucionales requerirá autorización expresa de la DTI y la Dirección Ejecutiva, previa evaluación de compatibilidad legal y estratégica con los intereses del MINAE.

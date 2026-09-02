@@ -1,0 +1,1 @@
+Artículo 15. Préstamos temporales. En caso de indisponibilidad del equipo institucional por reparación, la DTI podrá otorgar, según disponibilidad, un equipo en calidad de préstamo temporal para garantizar la continuidad de la labor institucional. La devolución del equipo en préstamo se ajustará a los plazos y condiciones definidos por la DTI.

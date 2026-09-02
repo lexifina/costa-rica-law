@@ -1,0 +1,3 @@
+Artículo 29. Evaluación técnica previa. Toda adquisición, donación o cesión de equipos, periféricos o software requerirá el dictamen técnico previo y vinculante de la DTI o las UTI, mediante el cual se verificará que los bienes solicitados cumplen con las especificaciones institucionales y las necesidades reales de la dependencia.
+La DTI y las UTI podrán rechazar o reformular solicitudes que no se ajusten a los criterios técnicos, presupuestarios o de compatibilidad establecidos.
+Ningún procedimiento de compra o aceptación de donación podrá tramitarse ante la Unidad de Proveeduría o ante la Dirección Administrativa sin la aprobación técnica emitida por la DTI.

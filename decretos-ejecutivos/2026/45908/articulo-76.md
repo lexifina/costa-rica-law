@@ -1,0 +1,1 @@
+Artículo 76. Datos abiertos y servicios digitales. El MINAE promoverá la apertura de datos públicos conforme a lo dispuesto en los Artículos 1, 2, 4 y 17 del Decreto Ejecutivo N° 40199-MP, asegurando la calidad, seguridad y disponibilidad de los datos institucionales. Asimismo, impulsará el desarrollo de servicios digitales accesibles, seguros y centrados en la ciudadanía.

@@ -1,0 +1,1 @@
+Artículo 34. Acceso a Internet y bloqueos. La DTI determinará los servicios web y aplicaciones permitidas, los accesos bloqueados podrán ser requeridos formalmente por escrito y autorizados discrecionalmente por la DTI con aprobación del superior jerárquico si procede.

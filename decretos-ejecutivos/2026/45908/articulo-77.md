@@ -1,0 +1,1 @@
+Artículo 77. Evaluación y mejora continua. La DTI deberá evaluar periódicamente los avances en transformación digital, mediante indicadores de madurez tecnológica, innovación y satisfacción ciudadana, remitiendo informes anuales a la Administración Superior.

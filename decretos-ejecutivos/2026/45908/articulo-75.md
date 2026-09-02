@@ -1,0 +1,2 @@
+Artículo 75. Innovación pública y mejora de procesos. La DTI fomentará el uso de herramientas tecnológicas, análisis de datos, inteligencia artificial, automatización y servicios en la nube bajo criterios de eficiencia, transparencia y protección de la información.
+Las propuestas de innovación tecnológica deberán evaluarse en cuanto a viabilidad técnica, costo-beneficio y alineamiento con los objetivos institucionales.

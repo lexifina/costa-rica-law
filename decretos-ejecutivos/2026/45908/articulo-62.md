@@ -1,0 +1,1 @@
+Artículo 62. Acceso remoto y VPN. Todo acceso remoto a recursos institucionales deberá realizarse mediante redes privadas virtuales (VPN) autorizadas por la DTI, con controles de autenticación robusta, incluyendo autenticación multifactor.

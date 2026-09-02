@@ -1,0 +1,2 @@
+Artículo 48. Restricciones de uso personal de redes sociales. Los funcionarios del MINAE deberán abstenerse de utilizar equipos institucionales o recursos tecnológicos para acceder a cuentas personales de redes sociales durante la jornada laboral, salvo autorización expresa de su jefatura y la DTI para fines estrictamente institucionales.
+Asimismo, los funcionarios deberán abstenerse de divulgar, en sus cuentas personales, información sensible, confidencial o de carácter interno del Ministerio, o de emitir expresiones que perjudiquen la imagen o reputación institucional.

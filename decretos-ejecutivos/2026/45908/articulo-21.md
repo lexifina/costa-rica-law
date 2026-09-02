@@ -1,0 +1,1 @@
+Artículo 21. Prohibiciones en software. Se prohíbe la instalación de programas personales o de procedencia dudosa, la reproducción, distribución o instalación no autorizada de software protegido por derechos de autor y cualquier modificación no autorizada de configuraciones y sistemas.

@@ -1,0 +1,1 @@
+Artículo 57. Control de acceso. El principio de menor privilegio regirá la asignación de permisos a cuentas y recursos; cualquier elevación de privilegios deberá tramitarse y justificarse formalmente ante la DTI.

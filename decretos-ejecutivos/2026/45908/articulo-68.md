@@ -1,0 +1,1 @@
+Artículo 68. Conservación y eliminación. La retención, conservación y eliminación de datos se ajustará a las políticas de archivo institucionales y a la normativa de protección de datos; cuando proceda la eliminación de equipos, la DTI aplicará técnicas seguras de borrado o destrucción que garanticen la no recuperación de información.

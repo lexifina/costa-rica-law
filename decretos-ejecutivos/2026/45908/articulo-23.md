@@ -1,0 +1,1 @@
+Artículo 23. Procedimiento de atención. La DTI definirá procedimientos y plazos de atención, priorización de incidencias y canales de comunicación para la atención de averías, requerimientos y mantenimientos preventivos o correctivos.

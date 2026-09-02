@@ -1,0 +1,2 @@
+Artículo 102. Revisión. La DTI promoverá la revisión del presente Reglamento de forma periódica al menos cada cuatro años, con el fin de adaptarlo a cambios tecnológicos, normativos o de gestión que así lo requieran.
+Asimismo, podrán realizarse revisiones extraordinarias en cualquier momento, cuando se presenten cambios relevantes en el entorno tecnológico, disposiciones legales o necesidades institucionales.

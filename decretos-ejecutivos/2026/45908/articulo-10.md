@@ -1,0 +1,1 @@
+Artículo 10. Límite de asignación. Salvo autorización expresa y motivada de la DTI, cada funcionario podrá contar con un máximo de un equipo informático asignado por la Institución. La solicitud de equipos adicionales deberá formalizarse por escrito ante la DTI, la cual evaluará su procedencia y resolución conforme a criterios técnicos y de disponibilidad.

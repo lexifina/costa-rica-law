@@ -1,0 +1,1 @@
+Artículo 3. Principios. Las disposiciones contenidas en este Reglamento se rigen por los principios de legalidad, buena fe, responsabilidad, proporcionalidad, integridad, disponibilidad, confidencialidad, transparencia y conservación del patrimonio tecnológico institucional.

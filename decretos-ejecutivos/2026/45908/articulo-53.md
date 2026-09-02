@@ -1,0 +1,1 @@
+Artículo 53. Cuentas con fecha de caducidad. Las cuentas temporales o con fecha prevista se pasarán a inactivas en la fecha definida; si transcurrido un mes calendario no sesolicita renovación, la cuenta será eliminada definitivamente.

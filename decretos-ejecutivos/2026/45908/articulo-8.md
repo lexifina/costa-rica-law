@@ -1,0 +1,1 @@
+Artículo 8. Coordinación DTI-UTI. Las UTI coordinarán con la DTI las acciones técnicas y operativas relacionadas con la gestión, despliegue, mantenimiento y seguridad de los activos tecnológicos en sus respectivas dependencias.

@@ -1,0 +1,1 @@
+Artículo 55. Autenticación y contraseñas. Los usuarios deberán adoptar contraseñas robustas conforme a las políticas de la DTI; la autenticación multifactor será obligatoria en los sistemas que la DTI determine por su criticidad.

@@ -1,0 +1,1 @@
+Artículo 103. Derogatoria. Deróguese el Reglamento Interno No. 001-2020 Reglamento de Normas de Uso y Administración de las Tecnologías de Información y Comunicación del Ministerio de Ambiente y Energía de fecha dos de abril de dos mil veinte.

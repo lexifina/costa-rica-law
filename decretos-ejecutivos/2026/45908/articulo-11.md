@@ -1,0 +1,1 @@
+Artículo 11. Actualización y uso regular. Los equipos asignados deberán mantenerse actualizados en software y hardware en la medida en que la DTI lo determine y deberán utilizarse con regularidad para las actividades propias del cargo. Equipos prolongadamente inactivos podrán ser reclamados por la DTI para reasignación.

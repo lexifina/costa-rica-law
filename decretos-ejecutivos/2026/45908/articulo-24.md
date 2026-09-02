@@ -1,0 +1,1 @@
+Artículo 24. Mantenimiento y entrega a revisión. La DTI podrá solicitar la presentación física del equipo en sus instalaciones para efectuar mantenimiento o actualización; el funcionario deberá presentar el equipo dentro del plazo máximo de tres días hábiles contados desde la notificación.

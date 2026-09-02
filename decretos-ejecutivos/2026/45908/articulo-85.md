@@ -1,0 +1,2 @@
+Artículo 85. Presentación de solicitudes de automatización. Durante el segundo trimestre de cada año, la DTI invitará formalmente a las dependencias del MINAE a presentar solicitudes de automatización o mejora de procesos institucionales.
+Cada Dirección o jefatura deberá remitir, a más tardar el 30 de setiembre de ese año, las solicitudes fundamentadas en necesidades específicas, describiendo objetivos, alcance, beneficios y usuarios meta. Estas solicitudes constituirán el insumo principal para la planificación y priorización anual de proyectos tecnológicos.

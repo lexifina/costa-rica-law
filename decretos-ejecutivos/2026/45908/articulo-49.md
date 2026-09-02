@@ -1,0 +1,1 @@
+Artículo 49. Responsabilidad disciplinaria. El uso inadecuado del portal institucional, la creación no autorizada de sitios o perfiles, la publicación de información falsa, sensible o contraria a las políticas institucionales, constituirá falta grave y dará lugar a la aplicación de las sanciones previstas dispuesto en el artículo 81 del presente Reglamento.

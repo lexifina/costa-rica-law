@@ -1,0 +1,2 @@
+Artículo 89. Coordinación de despliegue e integración. La DTI o las UTI deberán coordinar la integración de nuevos sistemas con las plataformas institucionales existentes, garantizando la interoperabilidad, la estabilidad de la red, la protección de la información y la compatibilidad con los servicios actuales.
+Toda implementación deberá realizarse dentro de un plan formal de cambios y con la supervisión técnica directa de la DTI.

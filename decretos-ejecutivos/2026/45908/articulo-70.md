@@ -1,0 +1,1 @@
+Artículo 70. Responsabilidad. Los funcionarios serán responsables del manejo indebido de datos personales y de vulneraciones a la confidencialidad en que medie dolo o negligencia grave, sin perjuicio de las responsabilidades administrativas, civiles o penales que correspondan.

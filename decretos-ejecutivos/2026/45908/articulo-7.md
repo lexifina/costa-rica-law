@@ -1,0 +1,1 @@
+Artículo 7. Atribuciones de la Administración Superior. Corresponde a la Administración Superior proveer los recursos presupuestarios necesarios para la implementación de las políticas, programas y controles tecnológicos que demande el cumplimiento de este Reglamento y las obligaciones institucionales.

@@ -1,0 +1,1 @@
+Artículo 26. Donaciones y adquisiciones. Cualquier adquisición, donación o ingreso de equipos o software deberá ser comunicada y evaluada por la DTI antes de su aceptación, registro y puesta en producción.

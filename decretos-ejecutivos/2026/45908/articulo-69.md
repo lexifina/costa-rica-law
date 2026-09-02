@@ -1,0 +1,1 @@
+Artículo 69. Tratamiento por terceros. La contratación de terceros que, por razón del servicio, traten datos personales o accedan a sistemas, requerirá cláusulas contractuales que obliguen al cumplimiento de medidas de seguridad y privacidad, además de la supervisión por parte de la DTI.

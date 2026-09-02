@@ -1,0 +1,1 @@
+Artículo 20. Software de prueba. Sólo la DTI está autorizada a instalar licencias de evaluación o software temporal con fines de análisis o prueba; su uso deberá documentarse y establecerse un plazo de evaluación.

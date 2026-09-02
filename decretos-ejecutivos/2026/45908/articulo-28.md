@@ -1,0 +1,3 @@
+Artículo 28. Criterios técnicos mínimos. La DTI definirá y mantendrá actualizados los criterios técnicos mínimos y estándares institucionales aplicables a la adquisición de equipos, periféricos, software y licencias, conforme a las políticas nacionales en materia de Tecnologías de Información y las Normas Técnicas del MICITT.
+Dichos criterios deberán contemplar, entre otros aspectos, el rendimiento, la interoperabilidad, la compatibilidad con la infraestructura institucional, la eficiencia energética, la seguridad de la información y la sostenibilidad ambiental.
+Toda dependencia deberá respetar estos estándares al formular solicitudes o requerimientos de bienes tecnológicos.

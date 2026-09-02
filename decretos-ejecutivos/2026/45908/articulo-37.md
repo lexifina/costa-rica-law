@@ -1,0 +1,2 @@
+Artículo 37. Uso institucional de dispositivos móviles y portátiles. Los dispositivos móviles, portátiles y tabletas asignados por el MINAE son herramientas de trabajo institucional y deberán utilizarse exclusivamente para fines laborales, conforme a las disposiciones de este Reglamento y las directrices emitidas por la DTI.
+El usuario será responsable de su correcto uso, custodia, mantenimiento y conservación, así como de evitar su utilización para actividades personales o comerciales.

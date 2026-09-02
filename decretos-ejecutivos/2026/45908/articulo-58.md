@@ -1,0 +1,2 @@
+Artículo 58. Respaldo y continuidad. La DTI definirá las políticas de respaldo, incluyendo la periodicidad y custodia de las copias de seguridad, en un plazo máximo de seis meses contados a partir de la entrada en vigencia del presente reglamento.
+Asimismo, deberá definir e implementar los planes básicos de continuidad operativa y recuperación ante incidentes en un plazo máximo de doce meses, los cuales deberán contemplar al menos procedimientos de respaldo, restauración, gestión de incidentes y recuperación de servicios críticos.

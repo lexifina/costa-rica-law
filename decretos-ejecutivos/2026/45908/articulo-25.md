@@ -1,0 +1,1 @@
+Artículo 25. Inventario. La DTI y las UTI mantendrán un inventario centralizado de activos tecnológicos, incluyendo seriales, ubicación, usuario asignado, estado y licencias asociadas; cualquier movimiento deberá registrarse oportunamente.

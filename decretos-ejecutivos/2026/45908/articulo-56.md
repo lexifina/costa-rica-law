@@ -1,0 +1,1 @@
+Artículo 56. Bloqueo y cierre automático. Las estaciones de trabajo serán configuradas para bloquear sesión automáticamente tras períodos de inactividad según parámetros definidos por la DTI; el usuario deberá bloquear su equipo cuando se ausente.

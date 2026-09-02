@@ -1,0 +1,1 @@
+Artículo 33. Correo electrónico. Las cuentas de correo institucional deberán utilizarse con lenguaje y contenido apropiado, con finalidad laboral. El envío masivo requerirá autorización previa. El usuario es responsable del contenido enviado desde su cuenta y de mantenerla con uso racional y respaldos cuando así lo exija la DTI.

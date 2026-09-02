@@ -1,0 +1,1 @@
+Artículo 16. Estudio de necesidades. La DTI conducirá estudios periódicos de necesidades y vida útil de los equipos para planificar reposiciones, actualizaciones y adquisiciones conforme a criterios técnicos y de eficiencia.

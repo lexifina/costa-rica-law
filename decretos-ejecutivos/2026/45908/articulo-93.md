@@ -1,0 +1,1 @@
+Artículo 93. Derechos de los desarrolladores. Los desarrolladores que participen en la creación del software conservan los derechos morales sobre su obra, incluyendo el reconocimiento de autoría, pero no adquieren derechos patrimoniales, económicos o de explotación sobre el software, documentación o derivados generados para la institución.

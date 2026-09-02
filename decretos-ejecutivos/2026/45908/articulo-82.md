@@ -1,0 +1,3 @@
+Artículo 82. Medidas cautelares. En el marco de procesos disciplinarios o investigaciones, la autoridad competente podrá disponer, como medida cautelar, la suspensión temporal del acceso a cuentas y recursos tecnológicos.
+Estas medidas tendrán como finalidad prevenir la alteración, pérdida o acceso no autorizado a la información institucional, resguardar los activos tecnológicos, evitar la continuidad de la conducta investigada y garantizar la integridad del proceso, mientras se determina la eventual responsabilidad del funcionario.
+Las medidas cautelares deberán ser proporcionales, temporales y debidamente justificadas, garantizando el respeto al debido proceso y al derecho de defensa.

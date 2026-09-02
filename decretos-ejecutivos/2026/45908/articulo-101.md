@@ -1,0 +1,1 @@
+Artículo 101. Interpretación. Para efectos de interpretación del presente Reglamento, la DTI y la Administración Superior serán las instancias encargadas de dirimir dudas técnicas; los criterios institucionales finales corresponderán a la Administración Superior.

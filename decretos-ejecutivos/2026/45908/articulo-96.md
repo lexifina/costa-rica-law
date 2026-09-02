@@ -1,0 +1,2 @@
+Artículo 96. Restricciones de distribución. Queda prohibida la distribución, reproducción o transferencia del software institucional a terceros sin la autorización expresa de la DTI o las UTI.
+Cualquier uso externo deberá cumplir con lo establecido en los contratos de licenciamiento y uso del software, así como con las políticas y procedimientos internos del MINAE en materia de gestión de activos tecnológicos y uso de software, definidos por la DTI.

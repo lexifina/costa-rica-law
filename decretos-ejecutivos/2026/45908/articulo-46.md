@@ -1,0 +1,2 @@
+Artículo 46. Coordinación y publicación de contenido en redes sociales. El DECI y la DTI serán las instancias responsables de planificar, autorizar y difundir el contenido publicado en las redes sociales oficiales del Ministerio. Los mensajes deberán orientarse exclusivamente a la proyección institucional, la rendición de cuentas, la educación ambiental, la difusión de políticas públicas y la comunicación de interés ciudadana.
+Se prohíbe la publicación de contenido personal, político-partidario, comercial o ajeno a la función institucional.

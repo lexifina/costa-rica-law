@@ -1,0 +1,1 @@
+Artículo 52. Cuentas y habilitaciones. La Dirección de Gestión Institucional de Recursos Humanos y directores de las dependencias deberán informar a la DTI con, al menos, cinco días hábiles de anticipación sobre movimientos de personal (ingresos, egresos, licencias prolongadas) para gestionar la creación, inhabilitación o eliminación de cuentas institucionales.

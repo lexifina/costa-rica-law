@@ -1,0 +1,1 @@
+Artículo 94. Custodia de repositorios y credenciales. La Dirección de Tecnologías de la Información (DTI) será responsable de la custodia de todos los repositorios, credenciales y mecanismos de acceso al software institucional, garantizando integridad, disponibilidad y control de versiones.
