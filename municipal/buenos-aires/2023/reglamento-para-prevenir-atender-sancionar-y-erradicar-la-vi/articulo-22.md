@@ -1,0 +1,2 @@
+Artículo 22.- Criterios de aplicación. Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia. El plazo de vigencia estará determinado por resolución razonada: según las características de cada proceso. y podrán mantenerse vigentes durante la fase recursiva; si así Io determina el a que de manera expresa y fundamentada.
+En la aplicación de las medidas cautelares se deben procurar la seguridad personal de la mujer o mujeres afectadas y garantizar el pleno ejercicio de sus derechos políticos, como criterios de priorización.

@@ -1,0 +1,1 @@
+Transitorio l. Para efectos de garantizar el trámite de las denuncias, la Alcaldía capacitará sobre la Ley N 10.235 y este reglamento: de manera prioritaria: a la Oficina Municipal de la Mujer, al Departamento de Recursos Humanos, y a las personas que intervienen en los procedimientos, en un plazo no mayor a tres meses contados a partir de la entrada en vigencia de esta ley.

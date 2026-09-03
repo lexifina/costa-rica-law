@@ -1,0 +1,1 @@
+Artículo 43.- De los recursos contra lo resuelto por el Concejo Municipal. Contra lo resuelto por el Concejo Municipal, sobre sanciones disciplinarias, procederán los recursos dispuestos por el Código Municipal.

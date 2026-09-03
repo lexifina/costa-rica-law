@@ -1,0 +1,2 @@
+Artículo 38.- Registro de sanciones. Para efectos de levantar un registro de sanciones de acceso público por violencia contra las mujeres en la política, la resolución final sancionatoria en fine debe ser comunicada al Tribunal Supremo de Elecciones.
+El Tribunal Supremo de Elecciones debe comunicar a su vez las resoluciones finales sancionatorias al Instituto Nacional de las Mujeres, a efectos de que este levante un registro de sanciones completo.

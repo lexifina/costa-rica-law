@@ -1,0 +1,1 @@
+Articulo 24.-Deber de colaboración. Toda dependencia; funcionarios y funcionarias de la Municipalidad de Buenos Aires, están en la obligación de brindar su colaboración cuando así se solicite por el órgano instructor para facilitar su labor y el desempeño cabal del procedimiento.
