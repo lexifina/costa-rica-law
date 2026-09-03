@@ -1,1 +1,0 @@
-Artículo 24. (Nota de Sinalevi: En la publicación de la presente norma no aparece esta artículo. No obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

@@ -1,1 +1,0 @@
-Artículo 4 . .Del objetivo de la Comisión. Definir los Lineamientos generales, para la coordinación de las acciones sobre los temas que involucren simultáneamente dos o más direcciones del área de ingresos, de forma que las mismas mejoren la gestión tributaria.
