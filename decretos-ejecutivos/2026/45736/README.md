@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la Dirección General de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-04-27 | la propia norma |
+| 2 | 2026-09-03 | Decreto Ejecutivo 45936 (2026-09-03) |
