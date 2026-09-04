@@ -1,0 +1,1 @@
+Artículo 17.- Controles y custodia de documentos. El SP establecerá los lineamientos respecto de la documentación que deberá formar parte de los expedientes electrónicos del SDU de la contratación de bienes y servicios, los cuales resultarán de acatamiento obligatorio para los AC, quienes deberán mantenerlos actualizados.

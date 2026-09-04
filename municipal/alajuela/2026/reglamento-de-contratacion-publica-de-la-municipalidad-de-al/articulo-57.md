@@ -1,0 +1,1 @@
+Artículo 57.- Plazo para otorgar el refrendo interno. Una vez que el expediente esté listo para que se resuelva por el fondo la solicitud de refrendo interno, la Dirección del Área Jurídica emitirá el acto correspondiente en según los plazos que establece la ley.
