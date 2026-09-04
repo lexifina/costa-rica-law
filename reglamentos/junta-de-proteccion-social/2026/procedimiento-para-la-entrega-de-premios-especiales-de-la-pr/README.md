@@ -15,3 +15,4 @@ Procedimiento para la entrega de premios especiales de la Promoción de Lotería
 | --- | --- | --- |
 | 1 | 2026-03-27 | la propia norma |
 | 2 | 2026-08-21 | Reglamento 0 (2026-08-21) |
+| 3 | 2026-09-04 | Reglamento 0 (2026-09-04) |

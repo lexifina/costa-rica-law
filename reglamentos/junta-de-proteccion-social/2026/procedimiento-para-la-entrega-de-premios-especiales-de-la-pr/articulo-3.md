@@ -11,7 +11,8 @@ Las personas que nunca hayan activado por la APP JPS A SU ALCANCE, deberán:
 3. Una vez registrados, nada más con su cédula y contraseña podrán ingresar a la ventana "activación de productos" e ingresar a la ventana "activaciones".
 4. Escanear (tiquete por tiquete) la Lotería Electrónica. Para el escaneo correcto de cada uno de los tiquetes, deben posicionar la cámara en el código datamatrix que se ubica en el área del tiquete de Lotería Electrónica.
 Las personas que ya tienen una cuenta en la aplicación JPS A SU ALCANCE deberán ingresar con su cédula y contraseña y acceder a la ventana "activación de productos" e ingresar a la ventana "activaciones" y escanear (tiquete por tiquete) la Lotería Electrónica.
-Una persona solo podrá obtener un máximo de 50 participaciones para cada sorteo de Lotería Electrónica vigente, a su nombre. Entiéndase participaciones por cada ¢2.000 de apuesta.
+Una persona solo podrá obtener un máximo de 2.250 participaciones para cada uno de los sorteos de esta promoción definidos en el artículo cinco de este procedimiento, a su nombre. Entiéndase participaciones por cada ¢2.000 de apuesta.
+(Así reformado el párrafo anterior mediante CARTA JPS-GG-1660-2026 del 4 de setiembre del 2026)
 Se reitera que un tiquete solo podrá ser activado una vez durante el período de activaciones.
 El participante está en la obligación de registrar información veraz y exacta y es el único responsable de la veracidad y exactitud de los datos que registre para participar.
 Se aclara que los tiquetes activados para esta promoción NO podrán activarse para participar en cualquier otra promoción que se encuentre vigente, y viceversa.
