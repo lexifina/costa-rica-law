@@ -1,5 +1,2 @@
-ARTÍCULO 57.- Impedimento
-En ningún caso, los puestos de bolsa podrán asumir funciones de
-administradores de fondos de inversión ni de pensiones; tampoco,
-participar en el capital de las sociedades administradoras de dichos
-fondos.
+Artículo 57- Impedimento. En ningún caso, los puestos de bolsa podrán asumir funciones de administradores de fondos de inversión ni de pensiones; tampoco, participar en el capital de las sociedades administradoras de dichos fondos. La misma prohibición aplicará para los operadores remotos respecto de fondos de inversión o de pensiones organizados bajo las leyes de Costa Rica.
+(Así reformado por el artículo 4° de la Ley para facilitar la negociación de valores extranjeros en Costa Rica por implementación del reconocimiento de jurisdicción y la participación de inversionistas no domiciliados por medio de la operación remota de intermediarios bursátiles extranjeros, N° 10973 del 2 de setiembre de 2026)

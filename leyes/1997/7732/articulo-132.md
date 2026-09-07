@@ -1,11 +1,5 @@
-ARTÍCULO 132.- Régimen de funcionamiento del sistema
-La Superintendencia podrá regular, en todo lo no previsto en esta
-ley, el régimen de funcionamiento del Sistema, así como los servicios
-prestados por él.
-En particular, podrá emitir las normas necesarias para que las
-entidades que participen en las sociedades de compensación y liquidación
-puedan custodiar valores o llevar cuentas individualizadas,
-correspondientes a los valores de otras entidades no participantes.
-La Superintendencia podrá exigir a las entidades participantes en el
-Sistema cuanta información considere necesaria para supervisar el
-funcionamiento del mercado de valores.
+Artículo 132- Régimen de funcionamiento del sistema. La Superintendencia deberá regular, en todo lo no previsto en esta ley, el régimen de funcionamiento del sistema, así como los servicios prestados por él.
+En particular, deberá emitir las normas necesarias para que las entidades que participen en las sociedades de compensación y liquidación puedan custodiar valores o llevar cuentas individualizadas, correspondientes a los valores de otras entidades no participantes.
+La Superintendencia deberá exigir a las entidades participantes en el sistema cuanta información considere necesaria para supervisar el funcionamiento del mercado de valores.
+Las centrales de valores podrán establecer convenios, contratos o acuerdos con entidades nacionales y extranjeras, públicas o privadas, que desempeñen todas o algunas funciones análogas, entidades de contrapartida central u otras, con sujeción a lo dispuesto en esta ley y sus reglamentos. Estos convenios, contratos o acuerdos no alterarán el régimen de responsabilidad respecto del cumplimiento de sus obligaciones, ni podrán implicar la pérdida del control de sus funciones por parte de la central de valores.
+(Así reformado por el artículo 8° de la Ley para facilitar la negociación de valores extranjeros en Costa Rica por implementación del reconocimiento de jurisdicción y la participación de inversionistas no domiciliados por medio de la operación remota de intermediarios bursátiles extranjeros, N° 10973 del 2 de setiembre de 2026)
