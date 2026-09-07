@@ -1,0 +1,3 @@
+ARTÍCULO 7- Refórmese el artículo 128 de la Ley 7732, Ley Reguladora del Mercado de Valores, del 17 de diciembre de 1997. El texto es el siguiente:
+Artículo 128- Miembros liquidadores y accionistas. Podrán ser miembros liquidadores y accionistas de las sociedades de compensación y liquidación, los puestos de bolsa, los bancos, las centrales de valores autorizadas como custodios conforme a esta ley y las instituciones públicas que cumplan con los requisitos especiales que, para el efecto, la Superintendencia establezca.
+La Superintendencia podrá autorizar y, en tal caso, reglamentar la liquidación de las operaciones de mercados de derivados e instrumentos financieros por medio de sociedades y sistemas distintos de los previstos en este capítulo.
