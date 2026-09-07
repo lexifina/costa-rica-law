@@ -1,0 +1,1 @@
+Artículo 3. Se decreta mediante la presente resolución general el archivo de las deudas tributarias consideradas como monto exiguo, el cual consiste únicamente en no gestionar su cobro administrativo ni judicial, y registrarlas contablemente en su condición de cuenta provisional.

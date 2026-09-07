@@ -1,0 +1,1 @@
+Artículo 2. Se considerará para el monto exiguo la sumatoria de las deudas tributarias líquidas y exigibles acumuladas dentro del término de 24 meses por un mismo contribuyente en la respectiva esfera de competencia, dichos montos incluyen: principal, intereses corrientes y sanción por mora.
