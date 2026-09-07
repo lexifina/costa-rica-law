@@ -1,1 +1,0 @@
-Artículo 2° —Los vehículos de la Municipalidad de Garabito, de uso administrativo, llevarán permanentemente placas matricula oficial en los lugares donde reglamentariamente deben colocarse y un distintivo visible en sus costados, que los identifique con el nombre de la Municipalidad y la leyenda ("Uso Oficial").

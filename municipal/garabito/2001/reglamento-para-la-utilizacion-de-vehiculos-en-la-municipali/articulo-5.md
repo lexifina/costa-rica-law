@@ -1,2 +1,0 @@
-Artículo 5º—En el Departamento de Transportes de la Municipalidad de Garabito se llevará un registro actualizado y prontuario que contenga toda la información y record de los choferes con los que cuenta la institución, así como del personal que en caso especiales y por situaciones emergentes puedan desempeñarse como conductores.
-(Así reformado mediante publicación en La Gaceta N° 47 del 9 de marzo del 2015)

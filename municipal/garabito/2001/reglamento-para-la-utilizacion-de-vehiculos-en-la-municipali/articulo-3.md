@@ -1,2 +1,0 @@
-Artículo 3°—Los vehículos de toda clase que existan en la municipalidad solo podrán ser conducidos por aquellos funcionarios que estén nombrados como chóferes con los requisitos pertinentes, salvo en los casos en que por inopia
-- Se haya necesario ocupar otro personal para tal labor, el cual debe estar debidamente autorizado, se debe destacar que el vehículo de uso discrecional solo puede ser conducido por la persona a quien se le asigna.

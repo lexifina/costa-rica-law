@@ -1,1 +1,0 @@
-Artículo 19.—Prohibiciones del arreglo extrajudicial. Queda prohibido al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos oficiales, debiendo comunicar al particular que se apersone o se comunique con la municipalidad para efectuar las gestiones correspondientes.
