@@ -1,1 +1,0 @@
-Artículo 12.—La Municipalidad deberá llevar un control del kilometraje diario de los vehículos haciendo las anotaciones correspondientes antes de cada salida y a la llegada del vehículo, así como el recorrido efectuado.

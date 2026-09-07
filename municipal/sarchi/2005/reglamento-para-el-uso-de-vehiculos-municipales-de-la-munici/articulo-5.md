@@ -1,1 +1,0 @@
-Artículo 5º—En los vehículos de uso administrativo es prohibido que viajen personas ajenas a la Municipalidad, salvo aquellos casos en que, por los propósitos del viaje, el Alcalde Municipal lo autorice expresamente.

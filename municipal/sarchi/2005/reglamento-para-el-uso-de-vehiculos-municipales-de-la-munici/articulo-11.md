@@ -1,1 +1,0 @@
-Artículo 11.—La prestación del servicio de transporte para diligencias municipales debe organizarse de tal manera que en un mismo vehículo puedan viajar personas que lleven el mismo rumbo con el fin de aprovechar al máximo los recursos.

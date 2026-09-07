@@ -1,1 +1,0 @@
-Artículo 4º—Son vehículos de uso administrativo los demás automotores para uso de los diferentes departamentos municipales, sin que estén exclusivamente al servicio de ningún funcionario o empleado en particular, salvo disposición en contrario del señor Alcalde Municipal.
