@@ -1,0 +1,6 @@
+REFINADORA COSTARRICENSE DE PETRÓLEO S. A.
+Para su conocimiento y fines consiguientes, me permito comunicar el acuerdo tomado por la Junta Directiva de la Empresa, el cual consta en el artículo 06, de la sesión ordinaria N° 5521-011, celebrada el martes 21 de julio de 2026:
+De conformidad con la recomendación contenida en el oficio PEM-0544-2026 del 14 de julio de 2026, se acuerda.
+1. Agregar un inciso 15 al artículo 11 del Reglamento de Organización de la Refinadora Costarricense de Petróleo S. A. (PE-00-17-028), que dispondrá lo siguiente:
+“15. Coordinar, establecer, implementar y supervisar mediante el Oficial de Seguridad de la Información (CISO, por sus siglas en inglés) un sistema integral de la gestión de ciberseguridad, orientado a la protección de la infraestructura tecnológica, sistemas de información y datos empresariales; mediante la adopción de políticas, procesos, tecnologías y buenas prácticas, así como el fomento de una cultura organizacional que permita la prevención, detección y mitigación de riesgos y amenazas cibernéticas, garantizando la continuidad operativa”.
+2. Derogar el artículo 66 del Reglamento de Organización de la Refinadora Costarricense de Petróleo S. A. (PE-00- 17-028).
