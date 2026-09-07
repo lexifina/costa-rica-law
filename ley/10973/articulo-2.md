@@ -1,0 +1,4 @@
+ARTÍCULO 2- Refórmense los párrafos primero y segundo del artículo 27 de la Ley 7732, Ley Reguladora del Mercado de Valores, del 17 de diciembre de 1997. Los textos son los siguientes:
+Artículo 27- Objeto. Las bolsas de valores tienen por único objeto facilitar las transacciones con valores e instrumentos financieros, así como ejercer las funciones de autorización, fiscalización y regulación, conferidas por la ley, sobre los puestos y agentes de bolsa, y admitir y vigilar las operaciones de los operadores remotos.
+Se organizarán como sociedades anónimas y deberán ser propiedad de los puestos de bolsa que participen en ellas, con excepción de los operadores remotos. Su capital social estará representado por acciones comunes y nominativas, suscritas y pagadas entre los puestos admitidos a la respectiva bolsa.
+(...).

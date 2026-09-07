@@ -1,0 +1,1 @@
+TRANSITORIO I- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) deberá emitir en un plazo máximo de seis meses, contado a partir de la entrada en vigencia de esta ley, los reglamentos que le correspondan según esta ley.

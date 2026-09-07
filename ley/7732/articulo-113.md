@@ -1,8 +1,2 @@
-ARTÍCULO 113.- Responsabilidad solidaria
-Los puestos, los agentes de bolsa, las sociedades administradoras de
-fondos de inversión y demás personas autorizadas para colocar
-participaciones de fondos de inversión, serán responsables solidarios de
-los daños y perjuicios que sufra cualquier inversionista, cuando no haya
-sido advertido de los riesgos de las inversiones propuestas.
-La Superintendencia establecerá, vía reglamento, bajo cuáles
-condiciones deberán realizar dichas advertencias.
+Artículo 113- Responsabilidad solidaria. Los puestos, los agentes de bolsa, las sociedades administradoras de fondos de inversión, los operadores remotos, y demás personas autorizadas para colocar participaciones de fondos de inversión, serán responsables solidarios de los daños y perjuicios que sufra cualquier inversionista, cuando no haya sido advertido de los riesgos de las inversiones propuestas. La Superintendencia establecerá, vía reglamento, bajo cuáles condiciones deberán realizar dichas advertencias. Los operadores remotos se regirán, en su condición de intermediarios, por las reglas sobre responsabilidad establecidas en la normativa reguladora correspondientes al país donde se encuentran autorizadas.
+(Así reformado por el artículo 6° de la Ley para facilitar la negociación de valores extranjeros en Costa Rica por implementación del reconocimiento de jurisdicción y la participación de inversionistas no domiciliados por medio de la operación remota de intermediarios bursátiles extranjeros, N° 10973 del 2 de setiembre de 2026)

@@ -1,0 +1,2 @@
+ARTÍCULO 4- Refórmese el artículo 57 de la Ley 7732, Ley Reguladora del Mercado de Valores, del 17 de diciembre de 1997. El texto es el siguiente:
+Artículo 57- Impedimento. En ningún caso, los puestos de bolsa podrán asumir funciones de administradores de fondos de inversión ni de pensiones; tampoco, participar en el capital de las sociedades administradoras de dichos fondos. La misma prohibición aplicará para los operadores remotos respecto de fondos de inversión o de pensiones organizados bajo las leyes de Costa Rica.
