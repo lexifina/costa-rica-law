@@ -1,0 +1,5 @@
+REFINADORA COSTARRINCENSE DE PETRÓLEO S. A.
+Para su conocimiento y fines consiguientes, me permito comunicarles el acuerdo en firme tomado por la Junta Directiva de la Empresa, el cual consta en el Artículo 05 de la Sesión Ordinaria N° 5523-013, celebrada el martes 04 de agosto de 2026:
+1. Derogar el Reglamento de Gastos de Representación para Funcionarios de la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE), aprobado el artículo N° 5, de la sesión ordinaria Nº 4900-106 del 28 de setiembre del 2015 de la Junta Directiva de la empresa y publicado en el Diario Oficial La Gaceta N° 207 del 26 de octubre de 2015.
+2. Instruir al Departamento de Comunicación Empresarial para que proceda con la publicación del presente acuerdo en el Diario Oficial La Gaceta.
+3. Comisionar al Comité Editorial Web para que elimine de la página web empresarial el Reglamento de Gastos de Representación para Funcionarios de la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE), una vez publicado el presente acuerdo en el Diario Oficial La Gaceta.
