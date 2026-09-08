@@ -15,3 +15,4 @@ Reglamento de la Municipalidad de Turrialba sobre regulación y comercializació
 | --- | --- | --- |
 | 1 | 2018-01-08 | la propia norma |
 | 2 | 2023-01-24 | Reglamento municipal 143 (2023-01-24) |
+| 3 | 2026-09-08 | Reglamento municipal 124 (2026-09-08) |
