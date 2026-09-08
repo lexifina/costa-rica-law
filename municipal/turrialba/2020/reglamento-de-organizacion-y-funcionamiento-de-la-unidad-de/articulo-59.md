@@ -1,1 +1,0 @@
-Artículo 59.—Derogatoria. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Turrialba, publicado en La Gaceta N° 91 del 13 de mayo del 2008, y cualquier otra normativa interna que se contraponga al presente Reglamento.

@@ -1,2 +1,0 @@
-Artículo 57.—De las sanciones administrativas. Las sanciones administrativas serán de aplicación de conformidad a lo que establece la Ley General de Control Interno, Código Municipal o demás normativa conexa aplicable.
-La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

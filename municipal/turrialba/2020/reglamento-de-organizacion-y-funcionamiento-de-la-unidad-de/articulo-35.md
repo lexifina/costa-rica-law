@@ -1,1 +1,0 @@
-Artículo 35.—De la planificación anual operativa. La planificación anual operativa, se realizará conforme a los procedimientos para su formulación, en consideración al Plan Estratégico de la Auditoría Interna y al Plan Anual de Trabajo, conforme a la normativa interna vigente y la emitida por la Contraloría General de la República.

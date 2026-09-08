@@ -1,1 +1,0 @@
-Artículo 39.—Comunicación de resultados de los servicios preventivos. El auditor interno comunicará lo derivado de los servicios preventivos mediante oficios u otros medios que considere pertinentes, conforme a las disposiciones emitidas por la Contraloría General de la República

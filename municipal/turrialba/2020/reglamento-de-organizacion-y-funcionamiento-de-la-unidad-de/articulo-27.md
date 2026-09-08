@@ -1,1 +1,0 @@
-Artículo 27.—Potestades de los funcionarios. Las potestades de la Auditoría Interna están establecidas en la Ley General de Control Interno, Nº 8292, tales potestades serán ejercidas con debido cuidado profesional y efectividad. Todos los funcionarios institucionales deberán brindar la colaboración requerida para efectos del ejercicio de las actividades de la Auditoría Interna.

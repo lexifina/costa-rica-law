@@ -1,5 +1,0 @@
-CAPÍTULO II
-De la Administración de la Auditoría Interna
-SECCIÓN PRIMERA
-De la Organización de la Auditoría Interna
-Artículo 2º—Concepto y función. La auditoría interna es una parte integral y vital del sistema de control interno de la Municipalidad de Turrialba, siendo uno de sus componentes orgánicos, y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de este sistema. La auditoría interna contribuye a que se alcancen los objetivos institucionales mediante la evaluación de la efectividad y legalidad de la administración del riesgo, del control y de los procesos de dirección, proporcionando a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración, se ejecuta conforme al marco legal y técnico a las prácticas sanas.
