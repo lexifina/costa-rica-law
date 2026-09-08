@@ -1,4 +1,7 @@
-Artículo 5. Sesiones extraordinarias
-El Concejo Municipal sesionará extraordinariamente de acuerdo con los artículos 36 y 37 del Código Municipal y su objeto debe ser motivado por razones de necesidad y no de manera antojadiza.
-La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de anticipación a la sesión, mediante convocatoria realizada en sesión anterior, o mediante notificación a la dirección electrónica que hayan señalados los miembros y en caso de requerirse en forma personal.
-En sesiones extraordinarias, celebradas el mes, día y hora de la convocatoria, se conocerán exclusivamente los asuntos indicados expresamente en la convocatoria, salvo que por unanimidad de las personas regidoras propietarias presentes se decida conocer otros asuntos, previo a la orden del día que indique la presidencia Municipal.
+Artículo 5.- De las sesiones extraordinarias.
+El Concejo sesionará extraordinariamente de acuerdo con el artículo 36 del Código Municipal. Podrá celebrar las sesiones extraordinarias que se requieren y a ellas deberán ser convocados todos sus miembros.
+El orden del día para las sesiones remuneradas con dieta, según el artículo 30 del Código Municipal, se señalará mediante acuerdo municipal motivado, siempre que se refieran a asuntos cuya atención no pueda esperarse a que acontezca la sesión ordinaria más próxima.
+La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de anticipación a la sesión, mediante convocatoria realizada en sesión anterior, o mediante notificación a la dirección electrónica que hayan señalado los miembros y en caso de requerirse en forma personal. La convocatoria deberá incluir la totalidad de los documentos a analizar en cada asunto del orden.
+En sesiones extraordinarias se conocerán exclusivamente los asuntos indicados en la convocatoria, salvo que por unanimidad de las personas regidoras propietarias integrantes del Concejo, se decida conocer otros asuntos.
+De presentarse algún tema que requiera la atención urgente del Concejo, la persona que ocupe la Alcaldía, motu proprio o a petición de una tercera parte de los regidores, pueda convocar a sesión extraordinaria no remunerada, conforme a sus facultades y competencias.
+(Así reformado mediante acta N° 183-2026 del 8 de setiembre del 2026)

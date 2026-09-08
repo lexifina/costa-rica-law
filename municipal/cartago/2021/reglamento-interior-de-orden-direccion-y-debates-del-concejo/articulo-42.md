@@ -1,25 +1,16 @@
 Capítulo X. De las comisiones municipales
-Artículo 42. De la clasificación de las comisiones, nombramiento de las permanentes y creación de las especiales.
-Las comisiones de trabajo se clasifican en permanentes y especiales. De conformidad con el Código Municipal, será necesaria la existencia de nueve comisiones permanentes, a saber:
-1. Hacienda y presupuesto
-2. Obras públicas
-3. Asuntos sociales
-4. Gobierno y administración
-5. Asuntos jurídicos
-6. Asuntos ambientales
-7. Asuntos culturales
-8. Condición de la mujer y de accesibilidad
-9. Seguridad
-En la sesión del Concejo Municipal, posterior inmediata a la instalación de sus miembros la presidencia nombrará a los integrantes de las comisiones permanentes por dos años, sin perjuicio de su potestad de variar su integración anualmente.
-Las comisiones especiales serán aquellas que decida crear el Concejo, con el fin de estudiar un asunto específico, la presidencia será la encargada de su conformación. Estas comisiones nombrarán un presidente, un vicepresidente y un secretario y deberán atender únicamente el asunto específico encomendado por el Concejo Municipal en el respectivo acuerdo y elaborar el dictamen correspondiente en un plazo perentorio que será fijado por el Concejo en el acuerdo de su creación, sin perjuicio de que por razones debidamente justificadas por la comisión especial de que se trate, sea necesario prorrogar ese plazo por una sola vez. En todo caso, el plazo establecido no podrá superar el correspondiente al plazo restante en ejercicio del directorio político. En ausencia de indicación del plazo, el mismo se tendrá que corresponde a 15 días naturales.
-Sin perjuicio de otras comisiones especiales que acuerde el Concejo Municpal, existirán las siguientes.
-a. Comisión especial de asuntos del mercado municipal
-b. Comisión de seguimiento del Plan Regulador
-c. Comisión de ciudades hermanas
-d. Comisión especial de salarios
-e. Comisión de Concejos de Distrito, esta conocerá los siguientes asuntos:
-? Los asuntos que les remitan los Concejos de Distrito,
-? Calificar la idoneidad de las organizaciones que solicitan partidas específicas, conforme a lo dispuesto en el reglamento de Concejos de Distrito y partidas específicas,
-? Los relacionados con programas de capacitación para los miembros de los Concejos de Distrito,
-? Servir de órgano de coordinación entre los Concejos de Distrito y la Municipalidad y propiciará la asistencia que estos requieran en los proyectos que desarrollan, y
-? Los otros asuntos afines o que le asigne el Concejo para su conocimiento.
+Artículo 42.- De las comisiones municipales.
+Las comisiones municipales se clasifican en permanentes y especiales y su trabajo se rige por lo dispuesto en el Código Municipal y por las siguientes normas:
+a. Solo podrán conocer asuntos trasladados por el Concejo.
+b. Quien ejerza la presidencia del Concejo se encargará de integrarlas respetando el principio constitucional de paridad de género en su conformación.
+c. Es obligación de las personas regidoras propietarias y suplentes ser parte de al menos una comisión permanente.
+d. No podrán formar parte de las comisiones municipales las personas particulares, salvo que por disposición legal o reglamentaria así se disponga.
+e. Por acuerdo del Concejo las particulares podrán fungir como asesoras, sin derecho a voto.
+f. Las comisiones nombrarán una persona presidente, una vicepresidente y una secretaria.
+g. La asistencia a las comisiones no genera derecho al pago de dieta alguna para sus miembros.
+h. En el caso de las comisiones permanentes, la inasistencia injustificada a tres sesiones consecutivas constituirá incumplimiento de deberes. En el caso de las comisiones especiales, la inasistencia injustificada a tres sesiones consecutivas conlleva la remoción de la comisión.
+i. Si pasados quince minutos después de la hora de la convocatoria no se alcanza el quorum para sesionar, se dejará constancia en el libro de actas y se tomará la nómina de las personas integrantes presentes. En caso de que no asista ninguno de los integrantes, la persona funcionaria de la Secretaría que asiste a la Comisión procederá a comunicarlo a la presidencia del Concejo.
+j. La presidencia del Concejo deberá ser puesta en conocimiento de la ausencia injustificada y consecutiva a tres sesiones. La presidencia deberá otorgar audiencia escrita por el plazo de tres días hábiles al presunto ausente, a fin de que justifique, advirtiéndole de los efectos de comprobarse lo imputado. Oída la persona o vencido el plazo otorgado, la presidencia desestimará el reproche o lo tendrá por cierto. En el supuesto de estimación, removerá al infractor de la comisión especial y dispondrá su inmediata sustitución. En el caso de una comisión permanente, prevendrá al infractor de que si la falta se repite se deberá presentar denuncia penal por incumplimiento de deberes.
+k. Las comisiones podrán incorporar en sus dictámenes los criterios técnicos y legales que amparan su recomendación, en cuyo caso lo deberán hacer constar por escrito adjuntando copia del criterio.
+l. En caso de que una comisión dictamine un asunto en oposición al criterio técnico o jurídico solicitado, deberá razonar los motivos por los cuales se separa y el sustento legal o técnico en que se sostiene la separación.
+(Así reformado mediante acta N° 183-2026 del 8 de setiembre del 2026)

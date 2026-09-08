@@ -21,3 +21,4 @@ Reglamento interior de orden, dirección y debates del Concejo Municipal del Can
 | 6 | 2025-04-29 | Reglamento municipal 78 (2025-04-29) |
 | 7 | 2026-03-03 | Reglamento municipal 0 (2026-03-03) |
 | 8 | 2026-04-21 | Reglamento municipal 0 (2026-04-21) |
+| 9 | 2026-09-08 | Reglamento municipal 0 (2026-09-08) |

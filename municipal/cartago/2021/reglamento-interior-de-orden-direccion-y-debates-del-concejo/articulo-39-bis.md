@@ -1,0 +1,4 @@
+Artículo 39 bis.- Vacaciones y licencias de la persona Secretaria del Concejo.
+Las vacaciones y licencias de la persona secretaria del Concejo deberán ser conocidas y aprobadas por el Concejo. Quedan excluidos de esta disposición los permisos con goce de salario dispuestos en el artículo 153 del Código Municipal, en los cuales únicamente deberá comunicar al Concejo la circunstancia acaecida y el documento probatorio correspondiente.
+En los casos en que la solicitud de vacaciones o licencia no supere los tres días hábiles y responda a situaciones imprevistas y urgentes que no haya sido posible tramitar con anticipación ante el Concejo, podrá ser autorizada por la Alcaldía una vez valorada la oportunidad y conveniencia y que no se afecte negativamente la actividad del Concejo o la Secretaría. La Alcaldía deberá comunicar inmediatamente al Concejo el otorgamiento de las vacaciones o licencia.
+(Así adicionado mediante acta N° 183-2026 del 8 de setiembre del 2026)
