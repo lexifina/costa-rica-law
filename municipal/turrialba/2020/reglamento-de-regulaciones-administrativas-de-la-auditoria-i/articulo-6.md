@@ -1,1 +1,0 @@
-Artículo 6º—De la evaluación del desempeño. La evaluación del desempeño del Auditor Interno, será de responsabilidad del Concejo Municipal, como órgano colegiado, el cual deberá cumplir con un proceso sistemático, formal y técnico, de conformidad con la normativa jurídica y técnica.

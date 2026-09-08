@@ -1,2 +1,0 @@
-Artículo 4º—De las vacaciones. Las vacaciones del Auditor Interno cuando superen los cinco días hábiles deberán ser aprobados por el Concejo municipal.
-En el caso de que dichas vacaciones no superen el plazo indicado, se comunicará al Concejo Municipal, a través de la Secretaría Municipal y a la gestión de Recursos Humanos para lo que corresponda, sin que se requiera de forma previa autorización de ese Cuerpo Colegiado.
