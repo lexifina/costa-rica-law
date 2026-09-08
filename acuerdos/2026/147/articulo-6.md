@@ -1,0 +1,1 @@
+Artículo 6°—Acuerdos: La comisión podrá tomar acuerdos en el ejercicio de sus funciones para alcanzar el cumplimiento de los fines y objetivos del decreto ejecutivo 36499 “Reglamento para la elaboración de programas de gestión ambiental institucional en el sector público de Costa Rica”.
