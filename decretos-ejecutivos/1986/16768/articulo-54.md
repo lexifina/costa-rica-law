@@ -1,1 +1,0 @@
-Artículo 54.—Las licencias concedidas de acuerdo con lo anteriormente dispuesto lo serán únicamente por el tiempo necesario para concurrir a lecciones, debiéndose asistir al trabajo durante los períodos o los días en que no se concedan lecciones en el respectivo centro educacional.

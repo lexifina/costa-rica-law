@@ -1,1 +1,0 @@
-Artículo 14.—No están sometidos a los límites máximos de jornada de servicio, los servidores que se encuentran en los casos previstos en el artículo 143 del Código de Trabajo, a quienes se les podrá exigir una jornada de doce horas diarias, con una hora y media de descanso, según lo establece esa disposición legal.

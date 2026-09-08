@@ -1,1 +1,0 @@
-Artículo 78.—Se tendrán por no planteadas las gestiones que no hayan sido formuladas de conformidad con lo dispuesto en el artículo anterior. El servidor que no haya seguido el estricto orden Jerárquico en el planteamiento de sus reclamaciones o quejas, en caso de reincidencia, podrá ser sancionado según la gravedad de la falta.

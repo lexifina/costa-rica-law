@@ -1,1 +1,0 @@
-Artículo 63.—Los servidores del Ministerio están en la obligación de comunicar al jefe inmediato los hechos que merezcan sanciones disciplinarias y de los cuales tengan conocimiento con ocasión del ejercicio de sus cargos.

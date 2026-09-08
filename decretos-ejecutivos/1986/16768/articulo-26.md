@@ -1,1 +1,0 @@
-Artículo 26.—No interrumpirán la continuidad del trabajo las licencias sin goce de salario, la enfermedad justificada del servidor ni ninguna otra causa de suspensión legal de la relación del trabajo.

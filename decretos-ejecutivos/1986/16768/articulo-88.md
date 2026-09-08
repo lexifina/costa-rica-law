@@ -1,4 +1,0 @@
-Artículo 88.- Transcurrido el traslado de la denuncia, la Comisión Investigadora, dentro de un término que no podrá exceder de tres días hábiles, dictará resolución mediante la cual hará comparecer a las partes involucradas a una audiencia oral y privada, y ordenará recibir las probanzas que considere admisibles, con inclusión de declaraciones de testigos ofrecidos.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)
-(Corrida la numeración del artículo anterior por el artículo 4° del decreto ejecutivo N° 39404 del 15 de diciembre de 2015, que ordenó numerar el numeral 82 como artículo 102, y correr la numeración de los restante artículos, por lo que el artículo 89 paso a ser el 88)

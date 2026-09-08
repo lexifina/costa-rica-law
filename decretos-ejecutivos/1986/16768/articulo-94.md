@@ -1,4 +1,0 @@
-Artículo 94.— La persona servidora afectada por la discriminación por razones de diversidad sexual podrá plantear denuncia escrita ante la o el Viceministro, quien fungirá como órgano decisor de este procedimiento. El plazo para interponer la denuncia será de dos años y se computará a partir del último hecho consecuencia de la discriminación por razones de diversidad sexual o a partir de que cesó la causa justificada que le impidió denunciar.
-Igualmente, la persona denunciante podrá recurrir al Ministerio de Trabajo y Seguridad Social o directamente a la vía judicial.
-En los procedimientos internos administrativos la persona denunciante y la persona denunciada podrán hacerse representar por patrocinio letrado. También podrán hacerse acompañar del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.
-(Así adicionado por el artículo 5° del decreto ejecutivo N° 39404 del 1° de diciembre de 2015)

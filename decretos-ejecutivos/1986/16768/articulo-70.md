@@ -1,2 +1,0 @@
-Artículo 70.- Cuando las o los servidores cometan faltas que representen incumplimientos de las obligaciones, de las prohibiciones o de los deberes de la relación de servicio, se les aplicarán amonestaciones verbales si la naturaleza de la falta se considera leve en los procedimientos de conocimiento o constatación que se lleven a cabo para analizar los hechos ocurridos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)

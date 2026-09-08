@@ -1,1 +1,0 @@
-Artículo 67.—Sin perjuicio de las sanciones disciplinarias correspondientes a las llegadas tardías, las ausencias y el abandono de trabajo, éstas acarrearán la pérdida del salario correspondiente al tiempo no laborado.

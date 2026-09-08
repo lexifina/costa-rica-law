@@ -1,1 +1,0 @@
-Artículo 68.—En materia de sanciones, queda absolutamente prohibido descontar suma alguna del salario de los servidores por concepto de multa. La suspensión del trabajo sin goce de sueldo, no podrá decretarse antes de haber oído al interesado y apreciado las probanzas que éste aporte o indique, a menos que el servidor acepte expresamente la causa.

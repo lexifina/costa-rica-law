@@ -1,1 +1,0 @@
-Transitorio I.—Para todos los efectos pertinentes se considerará el 1° de febrero de 1986, como la fecha de ingreso al Régimen de Servicio Civil de los servidores del Fondo del Plan Nacional de Desarrollo.

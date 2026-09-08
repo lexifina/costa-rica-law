@@ -1,1 +1,0 @@
-Artículo 58.—En casos muy espaciales, podrán concederse licencias sin goce de sueldo para realizar estudios y otras actividades que a criterio del Ministerio justifiquen la concesión del beneficio, reservándose el Ministerio el derecho de cancelar dichas licencias en cualquier momento que lo estime necesario.

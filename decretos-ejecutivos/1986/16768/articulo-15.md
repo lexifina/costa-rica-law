@@ -1,1 +1,0 @@
-Artículo 15.—Los empleados del Ministerio estarán obligados al desempeño de sus cargos durante todos los días hábiles y las horas reglamentarias y no se podrán conceder privilegios, prerrogativas o licencias que autoricen una asistencia irregular, con excepción de lo establecido específicamente en este Reglamento y en otras disposiciones legales.

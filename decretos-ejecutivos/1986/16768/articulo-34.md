@@ -1,1 +1,0 @@
-Artículo 34.—Los funcionarios tendrán la posibilidad de que se les brinde la debida capacitación y adiestramiento complementario, mediante cursos, seminarios, becas, etc., por medio de la Unidad de Capacitación y Adiestramiento. Esta deberá hacer del conocimiento de todos los funcionarios en su oportunidad las posibilidades mencionadas.

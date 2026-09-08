@@ -1,1 +1,0 @@
-Artículo 65.—Todo lo relacionado con infracciones o sanciones será tramitado por el Departamento de Personal, el que dictará las normas y procedimientos a las cuales deberán sujetarse todos los funcionarios. Si se presentara un conflicto entre la jefatura de personal y otra jefatura, el caso se resolverá siguiendo el recurso jerárquico.

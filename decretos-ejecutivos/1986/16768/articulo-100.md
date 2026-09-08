@@ -1,3 +1,0 @@
-Artículo 100.— Toda disposición normativa deberá emplear lenguaje inclusivo para representar la composición diversa de la población, usando términos que no excluyan a ninguna persona. Toda referencia a lenguaje sexista, deberá rectificarse por lenguaje inclusivo. Los términos "servidor", "funcionario" o acepciones similares deberán leerse como "persona servidora" o "persona funcionaria.
-(Así adicionado por el artículo 5° del decreto ejecutivo N° 39404 del 1° de diciembre de 2015)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 40499 del 5 de mayo del 2017, que lo traspaso del antiguo artículo 101 al 100. Esto debido a que se ordena derogar el numeral 99 y correr la numeración restante)

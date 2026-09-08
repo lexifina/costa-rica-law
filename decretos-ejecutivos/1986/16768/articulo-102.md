@@ -1,2 +1,0 @@
-Artículo 102—(Nota de Sinalevi: El texto de este artículo puede consultarse en el numeral 101 del presente reglamento. Esto debido a que por el artículo 1° del decreto ejecutivo N° 40499 del 5 de mayo de 2017, se ordenó derogar el numeral 99 y correr la numeración restante)
-(Corrida la numeración del artículo anterior por los artículos 4° y 5° del decreto ejecutivo N° 39404 del 15 de diciembre de 2015, que ordenó numerar el numeral 92 como artículo 102, y correr la numeración de los restante artículos)
