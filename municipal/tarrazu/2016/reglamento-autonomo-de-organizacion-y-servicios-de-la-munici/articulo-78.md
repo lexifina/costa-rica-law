@@ -1,1 +1,1 @@
-Artículo 78. El procedimiento administrativo interno deberá ser llevado a cabo guardando confidencialidad absoluta de los hechos y sus participantes, respetando los principios que rigen la actividad administrativa y garantizando, ante todo, el debido proceso.
+Artículo 78. (Derogado por el artículo 24 del Reglamento interno para prevenir, investigar y sancionar el acoso y el hostigamiento sexual en la Municipalidad de Tarrazú, probado en sesión N° 124 del 9 de setiembre de 2026)

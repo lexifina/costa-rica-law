@@ -1,1 +1,1 @@
-Artículo 79. Cualquier infidencia de una persona que conforme el Órgano Director o de cualquier otro funcionario vinculado directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este reglamento.
+Artículo 79. (Derogado por el artículo 24 del Reglamento interno para prevenir, investigar y sancionar el acoso y el hostigamiento sexual en la Municipalidad de Tarrazú, probado en sesión N° 124 del 9 de setiembre de 2026)

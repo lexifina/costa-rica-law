@@ -1,2 +1,1 @@
-Artículo 80. De conformidad con lo dispuesto en el artículo 25 de la Ley N° 7476, las sanciones por hostigamiento sexual se aplicarán de conformidad con las reglas de la sana crítica racional.
-Considerando la gravedad de los hechos, se podrá sancionar de la siguiente forma amonestación escrita, suspensión sin goce de salario y despido, sin perjuicio de que se acuda a la vía correspondiente, cuando la conducta constituya hechos punibles según lo establecido en el Código Penal.
+Artículo 80. (Derogado por el artículo 24 del Reglamento interno para prevenir, investigar y sancionar el acoso y el hostigamiento sexual en la Municipalidad de Tarrazú, probado en sesión N° 124 del 9 de setiembre de 2026)
