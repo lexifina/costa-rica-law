@@ -14,3 +14,4 @@ Reglamento del concurso público para la elección y nombramiento de la secretar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-02 | la propia norma |
+| 2 | 2026-09-09 | Reglamento municipal 183 (2026-09-09) |

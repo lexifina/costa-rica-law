@@ -1,24 +1,29 @@
 Artículo 6º-Tabla de valoración de las ofertas. La tabla de valoración de las ofertas de las personas aspirantes se regirá por los parámetros o factores, que seguidamente se indican, y que serán ponderados a efecto de obtener las calificaciones finales de las ofertas que cumplan con todos los requisitos exigidos para el cargo:
-Criterio | Fases y Factor de Evaluación | Puntaje
-FASE NÚMERO 1: REQUISITOS DE ADMISIBILIDAD (CRITERIO NÚMERO 1 Y 2)
-Nro.1. Porcentaje máximo de criterio 30% | Experiencia laboral: Experiencia laboral como secretario (a) de Concejo Municipal por dos o más años y al menos un año ejerciendo supervisión de personal | 15%
-Experiencia laboral: Experiencia laboral como secretario (a) en el sector público por dos o más años y al menos un año ejerciendo supervisión de personal | 10%
-Experiencia laboral: Experiencia laboral como secretario (a) en el sector privado por dos o más años y al menos un año ejerciendo supervisión de personal | 5%
-Nro.2. Porcentaje máximo de criterio 5% | Licencia de Conducir B1 | 5%
-Criterio | Fases y Factor de Evaluación | Puntaje
-Nro.3. Porcentaje máximo de criterio 20% | Manejo de Programas Informáticos | 10%
-Nivel Académico requerido por el perfil de puesto | 10%
-Porcentaje total máximo acumulable en esta fase | 55%
-Nota: El incumplimiento de la totalidad de los requisitos de Experiencia Laboral (debe cumplir al menos con una de las escalas de puntaje) y/o Nivel Académico requerido imposibilitará a la persona participante para continuar el proceso de selección
-FASE NÚMERO 2: PRUEBA DE CONOCIMIENTOS
-Nro. 4. Porcentaje máximo de criterio 35% | Prueba escrita de conocimientos: Contenidos. a. las competencias de la Secretaría del Concejo, b. las competencias de Concejo Municipal, c. Sesiones de Concejo Municipal, d. Acuerdos de Concejo, e. libro de actas del Concejo Municipal y f. recursos contra los actos del Concejo Municipal | 35%
-Porcentaje total máximo acumulable en esta fase | 35%
-Nota: La nota mínima en la prueba de conocimientos para continuar en la fase número 3 será de 70.
-FASE NÚMERO 3: PRUEBA PSICO-COMPETENCIAL Y ENTREVISTA
-Nro. 5. Porcentaje máximo de criterio 35% | Prueba psico-competencial | 5%
-Entrevista | 5%
-Porcentaje total máximo acumulable en esta fase | 10%
-Total de Porcentajes Máximos acumulables por Etapas | 100%
+Criterio | Fases y factor de evaluación | Puntaje |
+Fase N° 1: Requisitos de admisibilidad |
+Nro. 1. Porcentaje máximo de criterio 30% | Experiencia Laboral: Experiencia laboral como Secretario(a) del Concejo Municipal un año y al menos seis meses ejerciendo supervisión de personal. | 15% |
+Experiencia Laboral: Experiencia laboral como Secretario(a) en el sector público por un año y al menos seis meses ejerciendo supervisión de personal. | 10% |
+Experiencia Laboral: Experiencia laboral como Secretario(a) en el sector privado por un año y al menos seis meses ejerciendo supervisión de personal. | 5% |
+Nro. 2. Porcentaje máximo de criterio 20% | Manejo de Programas Informáticos. | 10% |
+Nivel Académico requerido por el perfil de puesto. | 10% |
+Puntaje total máximo acumulable en esta fase. | 50% |
+Nota: El incumplimiento de la totalidad de los requisitos de Experiencia Laboral (debe cumplir al menos con una de las escalas de puntaje) y/o Nivel Académico requerido imposibilitará a la persona participante para continuar el proceso de selección. |
+Fase N° 2: Pruebas de conocimientos |
+| Criterio | Fases y factor de evaluación | Puntaje
+| Fase N° 1: Requisitos de admisibilidad
+| Nro. 3. Porcentaje máximo de criterio 35% | Prueba escrita de conocimientos: Contenidos: a. Las competencias de la Secretaria del Concejo. b. Las competencias de Concejo Municipal. c. Sesiones de Concejo Municipal. d. Acuerdos de Concejo. e. Libro de actas del Concejo Municipal y f. Recursos contra los actos del Concejo Municipal. | 35%
+| Puntaje total máximo acumulable en esta fase | 35%
+| Nota: La nota mínima de la prueba de conocimientos para continuar en la fase número 3 será de 70.
+| Fase N° 3: Prueba Psico-competencial y entrevista.
+| | Prueba Psico-competencial. | 5%
+| Nro. 4. Porcentaje máximo de criterio 35% | Entrevista | 10%
+| Puntaje total máximo acumulable en esta fase. | 15%
+| |
+| Total de porcentajes máximos acumulables por etapas. | 100%
+| |
+| La entrevista por competencias asociadas al perfil, será equivalente al restante 10% del componente número 4, esta entrevista será calificada por los integrantes de la Comisión Especial, según las condiciones a explicar.
+| | | | | |
+(Así reformada la tabla de Valoración de las Ofertas anterior mediante sesión N° 183 del 9 de setiembre de 2026)
 La Prueba psico-competencial; está compuesta por la batería de pruebas idóneas para el perfil del cargo, esta etapa será equivalente a un 5% del componente número 4, esta prueba será calificada por los funcionarios municipales expertos en el área.
 La entrevista por competencias asociadas al perfil; será equivalente al restante 5% del componente número 4, esta entrevista será calificada por los integrantes de la comisión especial según las condiciones a explicar.
 La entrevista se realizará en presencia de los funcionarios municipales expertos en el área, pero su participación activa en el proceso -por medio de la realización de preguntas-deberá ser autorizada previamente por la comisión especial.
