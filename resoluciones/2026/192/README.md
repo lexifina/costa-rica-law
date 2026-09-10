@@ -14,3 +14,4 @@ Reforma Procedimiento para la remisión al Poder Ejecutivo de recomendaciones t�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-08-04 | la propia norma |
+| 2 | 2026-09-10 | Resolución 245 (2026-09-10) |

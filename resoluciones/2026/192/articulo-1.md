@@ -696,14 +696,15 @@ Canal | Frecuencia | Canal primo | Frecuencia | Canal | Frecuencia | Canal primo
 8 | 7477 | 8’ | 7638 | 18 | 7547 | 18’ | 7708
 9 | 7484 | 9’ | 7645 | 19 | 7554 | 19’ | 7715
 10 | 7491 | 10’ | 7652 | 20 | 7561 | 20’ | 7722
-CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
+28. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 40 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
-1 | 7745 | 1’ | 8015
-2 | 7785 | 2’ | 8055
-3 | 7825 | 3’ | 8095
-4 | 7865 | 4’ | 8135
-5 | 7905 | 5’ | 8175
-6 | 7945 | 6’ | 8215
+1 | 7745 | 1’ | 8055
+2 | 7785 | 2’ | 8095
+3 | 7825 | 3’ | 8135
+4 | 7865 | 4’ | 8175
+5 | 7905 | 5’ | 8215
+6 | 7945 | 6’ | 8255
+(Así reformado el punto 28) anterior mediante resolución N° RCS-245-2026 del 10 de setiembre del 2026)
 CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 29.65 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 7747.7 | 1 | 8059.02
@@ -714,23 +715,26 @@ Canal | Frecuencia | Canal primo | Frecuencia
 6 | 7895.95 | 6 | 8207.27
 7 | 7925.6 | 7 | 8236.92
 8 | 7955.25 | 8 | 8266.57
-CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
+30. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 8293 | 1 | 8412
 3 | 8321 | 3 | 8440
-5 | 8349 | 5 | 8648
+5 | 8349 | 5 | 8468
 Canal | Frecuencia | Canal primo | Frecuencia
-2 | 8307 | 4 | 8426
-4 | 8335 | 5 | 8454
-6 | 8363 | 6 | 8482
-CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
-Canal | Frecuencia | Canal primo | Frecuencia
-1 | 8239 | 1 | 8412
 2 | 8307 | 2 | 8426
+4 | 8335 | 4 | 8454
+6 | 8363 | 6 | 8482
+(Así reformado el punto 30) anterior mediante resolución N° RCS-245-2026 del 10 de setiembre del 2026)
+31. CTR 036. Recomendación UIT-R F.386 para la banda de 7725 MHz a 8500 MHz con un ancho de banda de 14 MHz de asignación no exclusiva en el servicio fijo.
+Canal | Frecuencia | Canal primo | Frecuencia
+1 | 8293 | 1 | 8412
+2 | 8307 | 2 | 8426
+Canal | Frecuencia | Canal primo | Frecuencia
 3 | 8321 | 3 | 8440
 4 | 8335 | 4 | 8454
 5 | 8349 | 5 | 8468
-6 | 8363 | 6 | 8482
+6 | 8363 | 6 |
+(Así reformado el punto 31) anterior mediante resolución N° RCS-245-2026 del 10 de setiembre del 2026)
 32. CTR 037. Recomendación UIT-R F.747 para la banda de 10 GHz a 10,68 GHz con un ancho de banda de 28 MHz de asignación no exclusiva en el servicio fijo.
 Canal | Frecuencia | Canal primo | Frecuencia
 1 | 10168 | 1’ | 10518
