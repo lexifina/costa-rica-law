@@ -1,1 +1,0 @@
-Artículo 16.-Formalización del arreglo de pago. Se realizará ante la sección de cobros, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha sección para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta sección exija para tal gestión.
