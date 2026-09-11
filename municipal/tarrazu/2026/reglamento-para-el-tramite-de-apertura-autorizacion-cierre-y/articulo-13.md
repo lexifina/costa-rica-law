@@ -1,0 +1,4 @@
+CAPÍTULO V – DEL MANEJO Y CONTROL DE LOS LIBROS
+Artículo 13. Custodia
+La responsabilidad sobre la solicitud, custodia, manejo, administración y registro de la custodia de los folios y libros autorizados recaerá sobre los coordinadores de cada una de las comisiones o la persona que se le asigne esa función. En caso de cambio de presidente de alguna comisión, o de finalización del periodo de los regidores, éste deberá entregar el libro, con los registros y firmas al día (última que presidio) a la Secretaría del Concejo Municipal, para asegurar la continuidad del libro de dicha comisión, o en el periodo siguiente.
+En caso de comisionar o delegar el manejo o manipulación de los libros a otra persona, ambos son solidariamente responsable de su custodia, y por tal razón, de que a los mismos se les dé el uso debido, bajo apercibimiento de las eventuales sanciones por responsabilidad administrativa, penal y civil, según el caso, por su mal uso.

@@ -1,0 +1,3 @@
+Artículo 11. Verificaciones
+Salvo en los casos de autorización por primera vez, es requisito indispensable para la apertura de un libro o libros, que se demuestre haber efectuado el cierre correcto del tomo anterior, mediante la razón correspondiente, -si es que existe-, para garantizar la cronología de los hechos registrados y un control adecuado sobre los libros.
+En casos excepcionales de urgencia o de reposición de libros, deberá presentarse junto con la solicitud de apertura del nuevo libro una justificación escrita, en la que se indiquen las razones por las cuales no se presenta el libro anterior, para que la Auditoría Interna valore realizar o no la apertura del nuevo o nuevos libros.

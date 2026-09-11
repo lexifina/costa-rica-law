@@ -1,0 +1,2 @@
+Artículo 33. Modificaciones al Reglamento
+El Concejo Municipal según su competencia podrá hacer modificaciones al presente reglamento, sin embargo, dichas modificaciones deberán ser avaladas previamente por la Auditoría Interna, en lo que procede a sus funciones. Así mismo la Auditoría Interna, podrá proponer las modificaciones que considere oportunas al presente reglamento, las cuales serán elevadas al Concejo Municipal para su debido análisis y trámite de aprobación.

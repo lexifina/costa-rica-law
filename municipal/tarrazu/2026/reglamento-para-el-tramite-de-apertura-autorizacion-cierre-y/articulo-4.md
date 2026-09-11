@@ -1,0 +1,2 @@
+Artículo 4. Contenido y ámbito de aplicación
+Este reglamento establece los criterios mínimos que deben observar todas las dependencias, actuales o que en el futuro se establezcan, que se encuentren, administrativa, jerárquica o legalmente adscritas de la Municipalidad de Tarrazú, para la solicitud de autorización y cierre de libros de actas, de contabilidad y otros libros a legalizar, por parte de la Auditoría Interna.

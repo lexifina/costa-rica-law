@@ -1,0 +1,3 @@
+Artículo 16. Conservación documental
+La dependencia solicitante deberá disponer las condiciones sobre custodia, seguridad y ubicación física del libro en uso (hojas sueltas) y de los que hayan sido cerrados por la Auditoría Interna, con el fin de que su localización sea ágil, que se cumpla con el ordenamiento jurídico que rige en materia archivística y que se evite la presunción de que constituyen documentos carentes de valor informativo.
+Los libros deberán enviarse a empastar conforme a los parámetros de Archivo o del Gobierno Municipal, según proceda. Será responsabilidad de la persona encargada de llevar el libro el libro a empastar, verificar que no se hayan desprendido hojas o alterado de cualquier manera la encuadernación o foliación de los libros.
