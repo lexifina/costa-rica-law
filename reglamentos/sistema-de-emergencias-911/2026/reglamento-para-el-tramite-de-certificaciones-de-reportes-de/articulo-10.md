@@ -1,0 +1,2 @@
+CAPÍTULO IV – Entrega, archivo y seguimiento
+Artículo 10. Entrega de información. La Administración contará con un plazo de diez días hábiles a partir de la solicitud del usuario para la entrega de la información requerida. En caso de que por la complejidad de la solicitud y la institución necesita un plazo mayor para la atención de la gestión, deberá comunicarlo al solicitante dentro del plazo inicial de los diez días hábiles, con la debida justificación, e indicando de cuánto será la ampliación, la cual no podrá exceder de un mes.

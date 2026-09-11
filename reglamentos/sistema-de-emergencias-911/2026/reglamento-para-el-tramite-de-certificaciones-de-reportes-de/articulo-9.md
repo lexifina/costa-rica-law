@@ -1,0 +1,1 @@
+Artículo 9. Búsqueda de información. La persona encargada de certificaciones será la responsable de obtener la información relacionada con el evento de la solicitud de conformidad con el procedimiento interno para responder al usuario.

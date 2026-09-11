@@ -1,0 +1,1 @@
+Artículo 7. Asignación de consecutivo y apertura de expediente digital. Cada solicitud recibida se registrará bajos un número de consecutivo único y se creará una carpeta digital con la documentación respectiva, para garantizar la trazabilidad.

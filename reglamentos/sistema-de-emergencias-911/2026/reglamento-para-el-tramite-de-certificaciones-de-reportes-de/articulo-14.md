@@ -1,0 +1,1 @@
+Artículo 14. Plazo para retiro de certificado. Una vez emitida la certificación, estará disponible para ser retirada por un plazo de 30 días naturales. Pasado ese tiempo, se deberá presentar una nueva solicitud.
