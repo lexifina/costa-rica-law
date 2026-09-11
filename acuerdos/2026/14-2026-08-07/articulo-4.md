@@ -1,0 +1,1 @@
+Artículo 4.- Modifíquese el anexo 1 del Acuerdo SGV-A-257 “Información básica de las entidades supervisadas por la Superintendencia General de Valores” Actualizar en el Anexo 1 del artículo 5, los requerimientos de información para las Entidades de Registros Centralizados de Letras de Cambio y Pagarés Electrónicos.
