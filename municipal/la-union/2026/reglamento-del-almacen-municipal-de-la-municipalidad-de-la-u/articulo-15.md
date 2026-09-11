@@ -1,0 +1,1 @@
+Artículo 15º. —Diferencias detectadas mediante inventarios: Respecto a los faltantes y sobrantes que sean detectados mediante inventarios físicos realizados, los auxiliares del almacén realizarán la investigación para determinar las causas que han dado origen a tales diferencias.

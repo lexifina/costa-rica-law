@@ -1,0 +1,7 @@
+Artículo 43º. —Sanciones por inobservancia al Reglamento: Toda acción u omisión, que implique violación, negligencia, encubrimiento, culpa, dolo o cualquier otro tipo de conducta contraria a lo dispuesto en este Reglamento por parte de funcionarios municipales o proveedores, constituirá una falta administrativa disciplinaria o sancionatoria en materia de contratación pública, sin perjuicio de las responsabilidades civiles o penales que puedan derivarse de la inobservancia al presente reglamento.
+La gravedad de la falta se valorará de conformidad con la naturaleza del acto y sus consecuencias, aplicando lo dispuesto en:
+a) El Libro Segundo de la Ley General de la Administración Pública, en lo relativo al régimen disciplinario.
+b) El Código Municipal, respecto al régimen de responsabilidades de los funcionarios municipales.
+c) La Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, en los casos que así corresponda.
+d) La Ley de Contratación Pública y su reglamento, en los procesos sancionatorios.
+e) Ley de Control Interno, en materia de afectaciones a fondos públicos. Las sanciones aplicables a funcionarios podrán ir desde amonestaciones verbales o escritas, suspensión, hasta la destitución del cargo y en el caso de los proveedores sería Inhabilitación simple o Inhabilitación calificada, conforme a la normativa de contratación pública, sin perjuicio de la responsabilidad civil o penal en que incurriere el infractor.

@@ -1,0 +1,4 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 42º. —Observancia del Reglamento: Todos los servidores municipales están en la obligación de cumplir fielmente con las disposiciones contenidas en el presente Reglamento, en concordancia con el principio de legalidad establecido en al artículo 11 de la Constitución Política de la República, así como con lo dispuesto en el artículo 156 del Código Municipal y el artículo 11 de la Ley General de la Administración Pública.
+La Jefatura de Proveeduría será la unidad responsable de velar por el cumplimiento de este Reglamento. En caso de encontrarse infracciones, deberá comunicarlo de inmediato y por escrito a las dependencias administrativas competentes, para que se valore la calidad de la falta, la misma se valorará de conformidad con la naturaleza del acto y sus consecuencias, aplicando de ser el caso, lo dispuesto en artículo 43 del presente reglamento.

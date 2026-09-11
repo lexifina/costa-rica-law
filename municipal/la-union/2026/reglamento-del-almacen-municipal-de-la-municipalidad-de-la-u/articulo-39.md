@@ -1,0 +1,1 @@
+Artículo 39º. —Prohibición de préstamo o adelanto de bienes: Queda expresamente prohibido al jefe del almacén y logística o a cualquiera de sus subalternos la entrega, en calidad de préstamo o adelanto, de bienes o materiales.

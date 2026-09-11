@@ -1,0 +1,1 @@
+Artículo 32º. —Requisitos para el retiro de bienes, maquinaria o equipo: La solicitud y retiro de artículos del almacén deberá ser firmada con el nombre del funcionario público, que se encuentre debidamente autorizado por el ejecutor de cuenta para realizar la solicitud de salida y retiro de materiales, conforme al programa presupuestario a que pertenecieren los artículos.

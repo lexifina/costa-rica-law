@@ -1,0 +1,1 @@
+Artículo 14º. —Errores en la entrada o despacho de un artículo: Los auxiliares del almacén comunicarán mediante nota explicativa, al supervisor, inmediatamente que se detecten, errores al confeccionarse una entrada a bodega o por el mal despacho de un artículo, para que este indique los lineamientos a seguir en atención a la situación.

@@ -1,0 +1,1 @@
+Artículo 37º. —Requisito para el despacho de activos: Para el despacho activos, la dependencia que lo solicite deberá coordinar con el encargado de activos su respectivo “plaqueo”. Además, el almacén no despachará activos, si no se cumple con este requisito.

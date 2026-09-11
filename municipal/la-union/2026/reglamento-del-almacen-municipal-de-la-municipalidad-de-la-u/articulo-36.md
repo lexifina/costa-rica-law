@@ -1,0 +1,1 @@
+Artículo 36º. — Requisito para el despacho de artículos de otro departamento: Quedará sin efecto aquella línea o líneas de la requisición o solicitud cuyos artículos solicitados no fueron adquiridos por la unidad solicitante, según el manual respectivo que se emita y que, para todos los efectos del caso, se tenga como normativa complementaria de aplicación en su campo.

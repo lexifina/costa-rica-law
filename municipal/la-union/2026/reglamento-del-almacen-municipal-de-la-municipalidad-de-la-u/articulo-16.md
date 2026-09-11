@@ -1,0 +1,1 @@
+Artículo 16º. —Ajustes por desechos: Los ajustes por desechos generados a raíz del estado de deterioro o por encontrarse obsoletos los materiales, serán gestionados por el Almacén por medio del jefe del almacén y logística y siguiendo el reglamento de disposición de bienes, maquinaria y equipo en desuso resguardado en el Almacén Municipal, vigente.

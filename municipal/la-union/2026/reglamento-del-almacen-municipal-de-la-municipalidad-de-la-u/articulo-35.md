@@ -1,0 +1,1 @@
+Artículo 35º. —Casos en que queda sin efecto la requisición o solicitud: Quedará sin efecto toda requisición o solicitud cuyos artículos no fueren retirados en el término de 24 horas siguientes, según el manual respectivo que se emita y que, para todos los efectos del caso, se tenga como normativa complementaria de aplicación en su campo.

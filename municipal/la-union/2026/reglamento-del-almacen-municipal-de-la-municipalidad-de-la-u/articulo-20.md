@@ -1,0 +1,1 @@
+Artículo 20º. —Rechazo de bienes, maquinaria o equipo que no se ajuste a lo especificado: Los bienes, maquinaria o equipo que no se ajusten a lo especificado en el contrato respectivo deberán rechazarse, informando de inmediato al administrador del contrato, para que se proceda con el reclamo y seguimiento que resulte pertinente.

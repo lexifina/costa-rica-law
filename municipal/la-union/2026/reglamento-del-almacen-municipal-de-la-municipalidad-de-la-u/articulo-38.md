@@ -1,0 +1,1 @@
+Artículo 38º. — Prohibición de artículos pendientes: La solicitud y retiro de artículos del almacén deberá ser realizado de manera completa, sin dejar líneas pendientes de entrega. Para tales efectos si al momento de la entrega alguna línea queda pendiente se indicará cantidad cero “0” al momento de ejecutar el registro mediante el sistema institucional.

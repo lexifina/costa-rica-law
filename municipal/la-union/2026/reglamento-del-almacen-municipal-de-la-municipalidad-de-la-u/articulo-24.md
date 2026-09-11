@@ -1,0 +1,1 @@
+Artículo 24º. —Registros de bienes, maquinaria o equipo recibidos: Todos los bienes, maquinaria y equipo recibidos deberán registrarse con el procedimiento adecuado, establecido y vigente según el manual respectivo que se emita y que, para todos los efectos del caso, se tenga como normativa complementaria de aplicación en su campo.

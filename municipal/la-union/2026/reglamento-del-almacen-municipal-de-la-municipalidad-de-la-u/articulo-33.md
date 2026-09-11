@@ -1,0 +1,1 @@
+Artículo 33º. —Verificación de la solicitud: El auxiliar del almacén, antes de efectuar el despacho de bienes, deberá verificar las firmas consignadas en la solicitud respectiva, que se encuentre debidamente autorizado por el ejecutor de cuenta para realizar la solicitud de salida y retiro de materiales.

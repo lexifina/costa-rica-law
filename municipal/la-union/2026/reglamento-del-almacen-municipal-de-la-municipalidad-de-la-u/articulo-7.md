@@ -1,0 +1,1 @@
+Artículo 7º. —Obligatoriedad de informe del almacén: El Almacén deberá informar a Contabilidad, en el plazo de los primeros ocho días hábiles de cada mes, sobre los movimientos de entradas y salidas de los artículos que despacharon en el mes anterior.

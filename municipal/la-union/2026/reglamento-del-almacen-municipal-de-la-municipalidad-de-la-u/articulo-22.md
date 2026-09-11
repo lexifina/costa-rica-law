@@ -1,0 +1,1 @@
+Artículo 22º. —Caso de entregas parciales: Cuando se tratare de entregas parciales, el auxiliar del almacén registrará tanto en el sistema institucional como en el sistema digital unificado las cantidades entregadas, hasta completar el total que indica el contrato.
