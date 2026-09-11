@@ -1,0 +1,2 @@
+Artículo 9. Traslado a cobro judicial
+Cuando una deuda no sea recuperada en cobro administrativo/extrajudicial y el saldo sea superior a un (1) salario base (Artículo 2 de la Ley 7337), el Departamento de Cobro remitirá el expediente al proceso judicial con certificación de saldo. Los encargados de cobro judicial podrán solicitar, mediante acto fundado, no continuar la vía judicial cuando exista análisis costo-beneficio que demuestre que los montos a cobrar resulten mayores al costo para su recuperación.

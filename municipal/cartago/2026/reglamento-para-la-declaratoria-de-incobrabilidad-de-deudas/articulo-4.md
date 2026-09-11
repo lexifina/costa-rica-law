@@ -1,0 +1,2 @@
+Artículo 4. Fundamento legal
+El presente reglamento se sustenta en: Constitución Política, artículos 169 y 170; Ley Nº 7794, Código Municipal, artículos 4, 12, 13, 14, 74, 75 y 77 bis, Ley Nº 4755 Código de Normas y Procedimientos Tributarios, artículos 11, 14, 99 y concordantes, Ley Nº 7509 Ley del Impuesto sobre Bienes Inmuebles, artículo 3. Normas Internacionales de Contabilidad del Sector Público (NICSP), directrices de la Contraloría General de la República y normativa conexa aplicable.
