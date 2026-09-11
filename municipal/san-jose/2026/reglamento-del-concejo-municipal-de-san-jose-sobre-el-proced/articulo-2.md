@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Procedimiento aplicable.
+El procedimiento aplicable para la investigación de eventuales faltas y la determinación de la responsabilidad administrativa de los miembros de las Juntas de Educación y Juntas Administrativas de Educación será el procedimiento ordinario establecido en la Ley General de la Administración Pública N.º 6227, con las precisiones y disposiciones complementarias contenidas en este Reglamento.

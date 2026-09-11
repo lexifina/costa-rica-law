@@ -1,0 +1,3 @@
+ARTÍCULO 9.- Actividad procedimental defectuosa.
+Cuando corresponda, el Órgano director podrá, de oficio o a solicitud de parte, disponer el saneamiento o reposición de aquellas actuaciones que presenten defectos susceptibles de corrección, de conformidad con la Ley General de la Administración Pública y demás normativa aplicable.
+Siempre que sea jurídicamente posible, los defectos deberán ser saneados mediante la renovación del acto, la rectificación del error o el cumplimiento de la actuación omitida, procurando preservar la validez de las actuaciones realizadas y garantizar el derecho de defensa de las partes.

@@ -1,0 +1,9 @@
+ARTÍCULO 4.- Denuncias
+Cualquier persona podrá poner en conocimiento del Concejo Municipal, por medio de la Secretaría Municipal, hechos que considere irregulares relacionados con la actuación de los miembros de las Juntas de Educación, de manera física o mediante los medios electrónicos que estos autoricen correos autorizados, las cuales serán trasladadas a la Comisión de Gobierno y Administración de dicho órgano.
+La denuncia deberá presentarse por escrito, y deberá cumplir al menos los siguientes requisitos para su admisibilidad:
+a) Nombre, firma autógrafa y/o electrónica o huella dactilar del denunciante, en caso de tratarse de una denuncia nominativa, no así en las denuncias anónimas.
+b) Correo electrónico, mediante el cual autorizan recibir notificaciones, y de ser posible, los correos, teléfonos y/o direcciones de los denunciados.
+c) La narración expresa y clara de los hechos en los que se basa la denuncia, con la descripción de las circunstancias de modo, tiempo y lugar.
+d) Aportar los elementos de prueba, aun con carácter indiciario, con los que cuente la persona denunciante y soporten su aseveración, así como mencionar aquellas pruebas que no estén a su alcance, que se encuentren en poder de cualquier autoridad.
+La información, documentación y otras evidencias de las investigaciones que efectúe la Administración, cuyos resultados puedan originar la apertura de un procedimiento administrativo, serán confidenciales durante la formulación del informe respectivo.
+Una vez notificado el informe correspondiente y hasta la resolución final del procedimiento administrativo, la información contenida en el expediente será calificada como información confidencial, excepto para las partes involucradas, las cuales tendrán libre acceso a todos los documentos y las pruebas que obren en el expediente administrativo.

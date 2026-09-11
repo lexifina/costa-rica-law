@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Notificaciones.
+Las resoluciones y actuaciones que deban ser notificadas a las partes se comunicarán de conformidad con la Ley General de la Administración Pública y la Ley de Notificaciones Judiciales N.° 8687. Cuando corresponda, se comunicará a las autoridades del Ministerio de Educación Pública y a la administración del centro educativo al que pertenezcan los miembros de la Junta involucrados, para los efectos administrativos que procedan.

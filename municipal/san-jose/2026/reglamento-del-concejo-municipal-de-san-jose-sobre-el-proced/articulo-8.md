@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Conformación del Órgano director.
+El Concejo Municipal, en su condición de Órgano Decisor, designará el Órgano director encargado de la instrucción del procedimiento administrativo, de conformidad con las disposiciones de la Ley General de la Administración Pública y demás normativa aplicable.
+Excepcionalmente, cuando exista una justificación objetiva y debidamente fundamentada relacionada con la complejidad, especialidad o necesidad institucional del caso, podrá recurrirse a profesionales externos para integrar el Órgano director, observando para ello el régimen de contratación pública aplicable.

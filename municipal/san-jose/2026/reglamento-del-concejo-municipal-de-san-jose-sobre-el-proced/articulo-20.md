@@ -1,0 +1,3 @@
+ARTÍCULO 20.- Normativa supletoria. En todo lo no previsto expresamente en este Reglamento se aplicarán las disposiciones de la Ley de Juntas de Educación N.º 10631 y de la Ley General de la Administración Pública N.º 6227, según corresponda. En lo que resulte compatible con la naturaleza administrativa del procedimiento, podrán aplicarse supletoriamente las disposiciones del Código Municipal N.º 7794, la Ley de Notificaciones Judiciales N.º 8687, el Código Procesal Contencioso-Administrativo N.º 8508 y, en ausencia de regulación aplicable, las disposiciones del Código Procesal Civil.
+SEGUNDO: Rige a partir de su publicación.
+TERCERO: Notifíquese a la alcaldía San José, 02 de setiembre del 2026

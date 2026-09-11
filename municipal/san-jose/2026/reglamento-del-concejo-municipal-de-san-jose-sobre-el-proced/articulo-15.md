@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Acta y registro de la audiencia.
+EI Órgano director levantará un acta de la audiencia, la cual deberá incluirse en el expediente respectivo con la firma del mismo. Se podrá realizar una grabación de esta mediante cualquier mecanismo técnico. Dicha grabación deberá conservarse hasta la firmeza de la resolución final, sin detrimento de las reproducciones fidedignas que puedan realizar las partes. La falta o insuficiencia de la grabación no producirá, por sí misma. un motivo de impugnación de la resolución final.
