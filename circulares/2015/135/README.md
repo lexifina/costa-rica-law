@@ -13,3 +13,4 @@ Labores del Servicio Nacional de Facilitadoras y Facilitadores Judiciales como f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-07 | la propia norma |
+| 2 | 2026-09-11 | Circular 165 (2026-09-11) |
