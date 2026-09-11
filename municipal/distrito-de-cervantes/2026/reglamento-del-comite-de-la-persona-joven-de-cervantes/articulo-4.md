@@ -1,0 +1,1 @@
+ARTÍCULO 4.- A efectos de la aplicación de la presente normativa, el Gobierno Local definirá dentro de su estructura, la instancia municipal encargada de velar por la correcta aplicación de este reglamento.

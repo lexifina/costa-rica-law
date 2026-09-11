@@ -1,0 +1,2 @@
+ARTÍCULO 58.- Procedimiento y requisitos de Elección. Se elegirá preferentemente a un miembro propietario del Comité mediante votación de mayoría simple.
+Si ningún miembro del Comité postula su nombre en la sesión de junio, el Comité abrirá de inmediato una convocatoria pública dirigida a las organizaciones juveniles del distrito. La elección del representante externo deberá quedar en firme a más tardar en la segunda sesión de julio. En ambos casos, la persona electa debe tener entre 12 y 35 años y tener domicilio en el distrito de Cervantes.

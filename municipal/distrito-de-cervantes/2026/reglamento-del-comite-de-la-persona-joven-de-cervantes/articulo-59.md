@@ -1,0 +1,1 @@
+ARTÍCULO 59.- De la Reelección. La persona que ejerza la representación ante la ANPJ podrá ser reelecta. La reelección no es automática y requerirá de un nuevo proceso de votación y acuerdo firme del Comité.

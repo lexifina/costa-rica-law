@@ -1,0 +1,1 @@
+ARTÍCULO 72.- Sanción falta grave. Las faltas graves podrán dar lugar a la solicitud de remoción del miembro ante el Concejo Municipal de Distrito, quien resolverá lo correspondiente conforme al ordenamiento jurídico.

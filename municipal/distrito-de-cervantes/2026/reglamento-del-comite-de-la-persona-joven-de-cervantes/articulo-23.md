@@ -1,0 +1,1 @@
+ARTÍCULO 23.- De las organizaciones deportivas. El Comité Distrital de Deportes y Recreación deberá nombrar una persona joven representante de las organizaciones deportivas distritales, integrante de las mismas.

@@ -1,0 +1,1 @@
+ARTÍCULO 66.- Toda ausencia deberá justificarse mediante comunicación escrita dirigida a la Secretaría del Comité. Esta comunicación podrá realizarse de forma física o a través de medios electrónicos.

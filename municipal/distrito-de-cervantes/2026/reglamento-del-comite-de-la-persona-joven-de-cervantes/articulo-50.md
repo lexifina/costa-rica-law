@@ -1,0 +1,1 @@
+ARTÍCULO 50.- El acta debe incorporar a los miembros que han concurrido con su voto en la toma de la decisión de que se trate y señalar expresamente quiénes votaron en contrario y exponer los motivos de su oposición.

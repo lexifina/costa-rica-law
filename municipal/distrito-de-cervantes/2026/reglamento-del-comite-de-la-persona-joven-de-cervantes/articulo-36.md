@@ -1,0 +1,2 @@
+ARTÍCULO 36.- Quórum. Para que una sesión sea válida deberá contar con el quórum estructural al momento de iniciar la sesión, durante las deliberaciones y al momento de realizar las votaciones. Las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada en la convocatoria.
+Si transcurrido ese plazo no se cuenta con el quórum requerido, se levantará un acta consignando las personas presentes y la sesión se declarará desierta.

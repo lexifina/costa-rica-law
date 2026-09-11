@@ -1,0 +1,1 @@
+ARTÍCULO 92. Plazo- Deberá de llevarse a cabo en el mes de diciembre con fecha máxima el 20 de diciembre. Para lo cual, deberá solicitarse vía oficio una audiencia al Concejo Municipal donde se invitará a participar a las autoridades municipales. Durante la audiencia deberá estar presente al menos quien ocupe la presidencia y la secretaria.

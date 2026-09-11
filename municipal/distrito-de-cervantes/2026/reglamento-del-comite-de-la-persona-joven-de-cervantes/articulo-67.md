@@ -1,0 +1,1 @@
+ARTÍCULO 67.- Plazo de Presentación. El plazo máximo para presentar la justificación y los respaldos correspondientes será de 3 días hábiles posteriores a la realización de la sesión. En caso de no presentarse agotado este tiempo se consignará la ausencia como injustificada.

@@ -1,0 +1,1 @@
+ARTÍCULO 99.- Interpretación. La interpretación del presente reglamento corresponderá al Concejo Municipal de Distrito de Cervantes, de conformidad con el ordenamiento jurídico vigente, sin perjuicio de las interpretaciones operativas que el Comité realice para su aplicación interna.

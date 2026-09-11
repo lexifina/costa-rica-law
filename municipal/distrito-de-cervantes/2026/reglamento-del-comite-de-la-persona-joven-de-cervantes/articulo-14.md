@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Reelección. Las personas integrantes del Comité podrán ser reelectas, siempre que continúen cumpliendo los requisitos establecidos en este reglamento. En caso de aspirar a la reelección, deberán participar en el proceso de convocatoria y elección correspondiente a su sector, en igualdad de condiciones con las demás candidaturas.

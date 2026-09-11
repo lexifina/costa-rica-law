@@ -1,0 +1,1 @@
+ARTÍCULO 24.- Si en un sector se presenta únicamente una candidatura válida (o una nómina de dos en el caso estudiantil u organizaciones comunales), esta quedará automáticamente designada como representación de ese sector.

@@ -1,0 +1,2 @@
+ARTÍCULO 38.- Uso de la palabra. La Presidencia concederá el uso de la palabra siguiendo el orden en que ésta sea solicitada.
+Cuando una persona integrante haya solicitado la palabra en dos ocasiones consecutivas sin que le sea concedida, podrá solicitar al Comité que se someta a votación su derecho a intervenir. Con el fin de ordenar el debate, cada integrante del Comité contará con un máximo de quince minutos por intervención, salvo autorización expresa de la Presidencia o acuerdo del Comité.

@@ -1,0 +1,1 @@
+ARTÍCULO 30.- Las sesiones del Comité deberán efectuarse en el local sede acordado en la sesión inaugural dentro de las instalaciones municipales disponibles. Sin embargo, podrán celebrarse sesiones en cualquier lugar del distrito cuando se traten asuntos relativos a los intereses de la comunidad, previa aprobación por mayoría simple de los miembros del Comité.

@@ -1,0 +1,1 @@
+ARTÍCULO 85. – Audiencia. Cuando la persona investigada lo solicite, el Comité deberá realizar una audiencia para escuchar sus argumentos y valorar las pruebas aportadas. La audiencia será dirigida por la Presidencia o por quien el Comité designe para tal efecto. De todo lo actuado deberá levantarse acta formal.

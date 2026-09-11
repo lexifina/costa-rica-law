@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Cada organización tendrá derecho a inscribir una nómina de dos representantes, un hombre y una mujer. Sin perjuicio de que en la asamblea, los dos representantes en el caso de las organizaciones juveniles, sean electos para las dos representaciones del sector previstas en la ley.

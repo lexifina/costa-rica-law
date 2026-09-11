@@ -1,0 +1,1 @@
+ARTÍCULO 31.- Elección de la Presidencia y la Secretaría. El Comité elegirá en su primera sesión ordinaria, en el mes de enero de año impar, por mayoría simple, a las personas que ocuparán la presidencia y la secretaría.

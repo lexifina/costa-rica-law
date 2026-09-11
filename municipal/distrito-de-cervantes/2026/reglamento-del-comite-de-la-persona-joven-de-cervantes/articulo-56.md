@@ -1,0 +1,1 @@
+ARTÍCULO 56.- Funcionamiento de Comisiones. Las comisiones de trabajo elaborarán un plan de trabajo y cronograma de actividades que será aprobado por el Comité. Deberán presentar informes de avance y resultados en las sesiones ordinarias del Comité cuando así sea solicitado.

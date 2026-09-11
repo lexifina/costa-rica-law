@@ -1,0 +1,1 @@
+ARTÍCULO 89.- Administración de recursos. Los recursos transferidos por el Consejo de la Persona Joven para la ejecución de proyectos del Comité serán administrados por la Municipalidad conforme a la normativa presupuestaria y de control interno aplicable al sector público. El Comité participará en la formulación, seguimiento y evaluación de dichos proyectos.

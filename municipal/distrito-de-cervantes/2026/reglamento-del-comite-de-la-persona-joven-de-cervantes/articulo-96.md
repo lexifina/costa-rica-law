@@ -1,0 +1,1 @@
+ARTÍCULO 96.- La Municipalidad brindará un espacio al Comité para la realización de las reuniones de esta comisión, o brindará las herramientas tecnológicas para que puedan llevarse a cabo las sesiones desde la virtualidad en casos de que así sea requerido.

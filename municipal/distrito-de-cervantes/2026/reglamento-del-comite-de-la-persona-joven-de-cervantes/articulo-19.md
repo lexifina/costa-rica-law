@@ -1,0 +1,1 @@
+ARTÍCULO 19.- En la misma convocatoria antes descrita, el Concejo Municipal establecerá un plazo razonable para recibir candidaturas para la elección de su delegado ante el Comité y a su vez, en la misma convocatoria, el Concejo establecerá una fecha límite para designarlo.

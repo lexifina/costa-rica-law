@@ -1,0 +1,1 @@
+ARTÍCULO 26.- Se realizará una sola votación y quedarán electos los dos candidatos, hombre y mujer, que obtengan más votos en el caso de las Organizaciones Juveniles y la representación educativa. En el caso de las organizaciones religiosas, será quien obtenga más votos.

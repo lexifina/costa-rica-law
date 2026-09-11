@@ -1,0 +1,1 @@
+ARTÍCULO 91.- Es responsabilidad de la instancia municipal designada y del Concejo Municipal evaluar los resultados de dicha gestión, tomando en cuenta tanto el respeto de las disposiciones normativas aplicables como el cumplimiento de los objetivos y metas previamente establecidos con la consecuente responsabilidad en caso de incumplimiento.

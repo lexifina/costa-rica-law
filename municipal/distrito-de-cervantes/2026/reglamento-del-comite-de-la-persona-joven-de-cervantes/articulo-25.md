@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Si existen dos o más candidaturas válidas en un mismo sector, se convocará a una asamblea sectorial, la cual podrá realizarse de forma presencial o virtual. La organización y fiscalización estará a cargo del Comité vigente con acompañamiento de la Administración.

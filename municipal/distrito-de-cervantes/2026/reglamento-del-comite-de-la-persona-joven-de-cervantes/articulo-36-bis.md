@@ -1,0 +1,3 @@
+ARTÍCULO 36 bis.- Cuando una sesión ordinaria no pueda celebrarse por falta de quórum, la Presidencia podrá convocar una segunda sesión dentro de las veinticuatro horas siguientes. Cuando se tratase de asuntos de urgencia, la sesión podrá dar inicio media hora después de la primera convocatoria.
+En segunda convocatoria podrá sesionarse con tres miembros únicamente para conocer asuntos administrativos internos, sin capacidad para adoptar acuerdos que impliquen uso de recursos públicos, aprobación de proyectos o decisiones institucionales.
+En estos casos será obligatorio contar con el quórum estructural ordinario de cuatro miembros.

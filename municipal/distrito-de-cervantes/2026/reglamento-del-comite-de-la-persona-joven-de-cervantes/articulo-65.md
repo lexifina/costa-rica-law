@@ -1,0 +1,5 @@
+ARTÍCULO 65.- El Comité aceptará como motivos válidos para justificar una inasistencia los siguientes:
+a) Motivos de Salud: Enfermedad, accidente, citas médicas programadas o emergencias de salud del miembro o de familiares bajo su cuidado directo.
+b) Motivos Académicos: Exámenes, lecciones obligatorias, giras de estudio o actividades curriculares debidamente acreditadas que coincidan con el horario de la sesión. c) Motivos Laborales: Jornadas extraordinarias, cambios de turno imprevistos o cumplimiento de funciones propias de su empleo que no puedan ser postergadas.
+d) Casos de Fuerza Mayor: Situaciones imprevistas tales como fallecimiento de familiares (hasta segundo grado de consanguinidad o de afinidad), desastres naturales, fallas críticas en el transporte o fallas técnicas de conectividad y suministro eléctrico que impidan la participación en sesiones virtuales.
+e) Representación Oficial: Cuando el miembro se encuentre cumpliendo una labor delegada por el mismo Comité, el Concejo Municipal de Distrito u otra instancia oficial de juventud.

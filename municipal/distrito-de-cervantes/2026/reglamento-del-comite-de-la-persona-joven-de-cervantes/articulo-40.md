@@ -1,0 +1,1 @@
+ARTÍCULO 40.- Participación en sesiones. Cualquier persona joven puede estar presente y tener voz en las sesiones, a menos que se indique lo contrario por acuerdo de mayoría, pero solo los miembros del Comité tendrán derecho a voto.

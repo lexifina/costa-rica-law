@@ -1,0 +1,1 @@
+ARTÍCULO 55.- Las comisiones podrán incluir jóvenes externos según sea necesario para el proyecto en cuestión, los cuales participarán con voz pero sin voto. La participación de jóvenes externos deberá ser aprobada por el Comité y su inclusión estará orientada a enriquecer el debate y la formulación de propuestas.
