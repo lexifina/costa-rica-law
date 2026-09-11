@@ -1,0 +1,1 @@
+Artículo 40 - Participación en comisiones o grupos de trabajo. El Auditor(a) Interno(a) cuando así se solicite por la Administración Activa, podrá participar en comisiones o grupos de trabajo, exclusivamente en su calidad de asesor en asuntos de su competencia y no podrá ser de carácter permanente.

@@ -1,0 +1,1 @@
+Artículo 33 – Informe de fin de gestión. El Auditor(a) Interno(a), al igual que los funcionarios de la Administración Activa obligados a ello, deberá presentar el informe de fin de gestión establecido en el inciso e) del artículo Nº12 de la Ley Nº8292, considerando las directrices que al efecto emita la CGR y los entes y órganos competentes de la Administración Activa.

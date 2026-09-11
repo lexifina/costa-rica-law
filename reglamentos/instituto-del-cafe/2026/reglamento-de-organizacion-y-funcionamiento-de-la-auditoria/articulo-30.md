@@ -1,0 +1,1 @@
+Artículo 30 – Plan estratégico. El auditor interno y los funcionarios de la UAI, según proceda, deberán establecer una planificación estratégica, en la que se plasmen la visión y la orientación de la auditoría interna, y que sea congruente con la visión, la misión y los objetivos institucionales.

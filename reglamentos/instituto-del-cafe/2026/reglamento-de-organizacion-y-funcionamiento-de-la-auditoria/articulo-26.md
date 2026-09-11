@@ -1,0 +1,1 @@
+Artículo 26 - Cumplimiento de funciones. El Auditor(a) Interno(a) cumplirá sus funciones con idoneidad, independencia, objetividad, profesionalismo, integridad y gestión asesora, haciendo valer sus competencias con independencia funcional y de criterio. El Auditor(a) Interno(a) deberá ser vigilante de que el personal de la UAI responda de igual manera.

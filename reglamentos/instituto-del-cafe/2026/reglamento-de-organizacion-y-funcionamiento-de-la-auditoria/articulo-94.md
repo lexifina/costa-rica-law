@@ -1,0 +1,1 @@
+Artículo 94 - Confidencialidad. La identidad del denunciante, la información, la documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo Nº6 de la Ley Nº8292 y artículo Nº8 de la Ley Nº8422.

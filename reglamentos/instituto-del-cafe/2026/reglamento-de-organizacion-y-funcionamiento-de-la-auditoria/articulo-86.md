@@ -1,0 +1,1 @@
+Artículo 86 - Planteamiento de conflictos ante la CGR. Si la resolución del Jerarca ordena soluciones distintas de las recomendadas emitidas por la UAI, esta manifestará por escrito en caso de ser necesario su inconformidad, rigiéndose esta situación de conflicto por lo establecido en el artículo Nº38 de la Ley Nº8292.

@@ -1,0 +1,2 @@
+Sección H: Disposiciones finales
+Artículo 101 - Derogatoria. Se deroga el ROFAI de la Auditoría Interna del Icafé, que fue promulgado por la Junta Directiva de Icafé mediante acuerdo No. 13 de la sesión No. 2258 del 29/05/2019 y el acuerdo No.4 de la sesión No. 2259 del 12/06/2019 y aprobado por la CGR mediante oficio No. 08688 (DFOE-EC-0416) del 19 de junio del 2019 (aprobación anterior de la CGR fue mediante oficio Nº07475 (DAGJ-0790-2007) de 9 de julio del 2007).

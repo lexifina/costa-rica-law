@@ -1,0 +1,2 @@
+Artículo 27 - Delegación de funciones. El Auditor(a) Interno(a) podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública. El personal queda obligado a cumplir con el marco legal, reglamentario y técnico vigente.
+La delegación será respaldada en mecanismos formales establecidos para ese propósito. Los funcionarios de la UAI ejercerán sus funciones por delegación del Auditor(a) Interno(a) y no como una atribución propia del cargo.

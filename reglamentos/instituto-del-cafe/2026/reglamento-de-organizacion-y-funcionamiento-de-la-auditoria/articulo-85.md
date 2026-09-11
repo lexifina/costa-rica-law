@@ -1,0 +1,1 @@
+Artículo 85 - Objeciones de los informes dirigidos a los titulares subordinados. Las objeciones de los titulares subordinados se dirimirán conforme lo establecido en el artículo Nº36 “Informes dirigidos a los titulares subordinados” de la Ley Nº8292.

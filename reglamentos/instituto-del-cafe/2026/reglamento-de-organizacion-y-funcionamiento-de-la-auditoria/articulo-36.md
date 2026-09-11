@@ -1,0 +1,1 @@
+Artículo 36 - Establecimiento del programa de calidad. El Auditor(a) Interno(a) deberá establecer un programa de aseguramiento de la calidad, el cual, asegure todos los aspectos de la actividad de la Auditoría. El proceso estará definido en el Manual de Políticas y Procedimientos de la UAI.

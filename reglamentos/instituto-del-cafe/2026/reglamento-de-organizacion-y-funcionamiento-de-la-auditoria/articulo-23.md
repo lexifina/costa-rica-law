@@ -1,0 +1,1 @@
+Artículo 23 - Ausencia temporal o permanente del Auditor(a) Interno(a). El nombramiento por ausencia temporal o permanente del Auditor(a) Interno(a), se regirá conforme lo dispuesto en la Ley Nº8292, los “Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR” y políticas de la Unidad de Desarrollo Organizacional.

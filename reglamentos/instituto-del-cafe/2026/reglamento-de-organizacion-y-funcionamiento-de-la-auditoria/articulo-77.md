@@ -1,0 +1,1 @@
+Artículo 77 - Comunicación final. Una vez presentados y discutidos los informes versión borrador, incorporando los comentarios de parte de la Administración Activa o Junta Directiva, se procederá con la emisión y envío de la versión final del informe escrito.

@@ -1,0 +1,1 @@
+Artículo 92 - Procedimientos internos. La UAI establecerá en el Manual de Políticas y Procedimientos de la UAI los procedimientos internos que serán aplicables en la atención de las denuncias, conforme las regulaciones emitidas por la CGR.

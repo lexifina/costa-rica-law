@@ -1,0 +1,1 @@
+Artículo 102 - Aplicación del Reglamento. Las disposiciones de este Reglamento son de aplicación obligatoria en todas las dependencias que conforman el Icafé y Fonascafé u otros órganos pasivos relacionados en lo que corresponda.

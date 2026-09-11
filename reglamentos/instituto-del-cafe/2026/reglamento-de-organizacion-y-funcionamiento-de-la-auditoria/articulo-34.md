@@ -1,0 +1,1 @@
+Artículo 34 – Causales y sanciones administrativas. El Auditor(a) Interno(a) se regirá por lo dispuesto en los artículos Nº40 y Nº41 de la Ley Nº8292 y en los “Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR”.

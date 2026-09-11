@@ -1,0 +1,1 @@
+Artículo 55 – Asesoría de la Unidad de Asuntos Jurídicos. La Unidad de Asuntos Jurídicos de la Institución debe de manera obligatoria atender cualquier solicitud de la UAI en aras de colaboración y asesoramiento, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo Nº33, inciso c), de la Ley Nº8292.

@@ -1,0 +1,1 @@
+Artículo 25 - Funciones del Auditor(a) Interno(a). Las funciones del Auditor(a) Interno(a), estarán definidas en el perfil de puesto, que será gestionado a través de la Unidad de Desarrollo Organizacional de la Institución, en los formatos y demás condiciones que se establezcan por dicha Unidad.

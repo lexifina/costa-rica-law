@@ -1,0 +1,1 @@
+Artículo 60 - Objetividad. La labor de la UAI debe obedecer al cumplimiento de la normativa legal, técnica y ética que rige su competencia y su plan de trabajo y no deben subordinar su juicio al criterio de terceros, evitando conflictos de interés o incumplimiento a la ética profesional.

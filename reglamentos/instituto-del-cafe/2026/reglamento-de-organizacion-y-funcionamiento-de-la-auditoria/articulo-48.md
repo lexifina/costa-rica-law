@@ -1,0 +1,1 @@
+Artículo 48 - Cumplimiento de normativa jurídica y técnica. El personal de la UAI deberá cumplir con el ejercicio de sus competencias, con la normativa técnica y jurídica pertinente, así como con las políticas y demás disposiciones administrativas que sean aplicables en las instituciones auditadas.

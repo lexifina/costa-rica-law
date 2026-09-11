@@ -1,0 +1,1 @@
+Artículo 53 - Acceso al Jerarca. Debe existir comunicación entre el Auditor(a) Interno(a) y el Jerarca, para los aspectos de interés común, referentes al interés institucional. Este acceso se dará a petición de ambas partes, conforme sea requerido en el cumplimiento de la función de la UAI.

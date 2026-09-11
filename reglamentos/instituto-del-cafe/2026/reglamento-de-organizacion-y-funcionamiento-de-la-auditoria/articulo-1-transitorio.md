@@ -1,0 +1,1 @@
+Transitorio. La UAI contará con un plazo de doce meses a partir de la vigencia de este Reglamento para actualizar el Manual de Políticas y Procedimientos de la UAI, documento que se hará de conocimiento de la Junta Directiva y en lo que sea procedente al resto de la Administración de las instituciones auditadas.

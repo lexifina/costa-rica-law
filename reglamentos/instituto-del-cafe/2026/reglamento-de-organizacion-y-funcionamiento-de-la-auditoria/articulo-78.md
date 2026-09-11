@@ -1,0 +1,1 @@
+Artículo 78 - Errores y omisiones. Si una comunicación final contiene un error u omisión, el Auditor(a) Interno(a) debe comunicar la información corregida a todas las partes que recibieron la comunicación original y a su vez subsanar lo que corresponda en los papeles de trabajo.

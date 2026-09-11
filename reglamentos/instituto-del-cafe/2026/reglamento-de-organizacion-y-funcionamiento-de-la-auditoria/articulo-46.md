@@ -1,0 +1,1 @@
+Artículo 46 – Causales y sanciones administrativas. El personal de la UAI se regirá por lo dispuesto en los artículos Nº40 y Nº41 de la Ley Nº8292 y en los “Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR”.

@@ -1,0 +1,1 @@
+Artículo 47 - Participación en comisiones o grupos de trabajo. El personal de la UAI cuando así se solicite por la Administración Activa, podrá participar en comisiones o grupos de trabajo de la Administración Activa, la participación estará sujeta a la aprobación previa del Auditor(a) Interno(a), lo anterior en resguardo de la independencia y objetividad de la UAI.

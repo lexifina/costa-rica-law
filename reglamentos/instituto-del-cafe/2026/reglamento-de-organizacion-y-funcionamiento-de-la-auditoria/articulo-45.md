@@ -1,0 +1,1 @@
+Artículo 45 - Cumplimiento de funciones del personal de la UAI. El personal de la UAI cumplirá sus funciones con idoneidad, independencia, objetividad, profesionalismo, integridad y gestión asesora, haciendo valer sus competencias con independencia funcional y de criterio. El Auditor(a) Interno(a) deberá ser vigilante de que el personal de la UAI cumple con dichos principios.

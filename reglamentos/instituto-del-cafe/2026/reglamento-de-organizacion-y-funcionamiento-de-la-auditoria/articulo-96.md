@@ -1,0 +1,1 @@
+Artículo 96 - Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en el tanto aporten elementos orientadores que permitan realizar un análisis inicial de los hechos, en caso contrario, se desestimará y archivará.

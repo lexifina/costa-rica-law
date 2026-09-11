@@ -1,0 +1,1 @@
+Artículo 103 - Modificaciones y reformas al Reglamento. Las modificaciones al Reglamento se regirán por los lineamientos que al respecto emita la CGR. El Auditor(a) Interno(a) será el responsable de someter a aprobación del Jerarca y CGR las reformas que puedan ser necesarias para mantener vigente el Reglamento.

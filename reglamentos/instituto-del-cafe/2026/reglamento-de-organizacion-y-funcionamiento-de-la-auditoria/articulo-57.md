@@ -1,0 +1,1 @@
+Artículo 57 - Coordinación para la realización de labores especializadas. El Auditor(a) Interno (a) deberá coordinar cuando así lo estime necesario la incorporación de profesionales y técnicos internos o externos de diferentes disciplinas, para llevar a cabo labores de su especialidad en apoyo a los estudios de auditoría que se realicen.

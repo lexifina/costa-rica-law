@@ -1,0 +1,1 @@
+Artículo 81 - Comunicación a partes externas de la Institución. Cuando se envíen resultados de un estudio a partes externas a la Institución, solo podrá realizarse cuando se encuentre emitido en versión final. La comunicación debe estar sustentada en el Manual de Políticas y Procedimientos de la UAI.

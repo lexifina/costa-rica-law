@@ -1,0 +1,1 @@
+Artículo 44 - Funciones del personal de la UAI. Las funciones del personal de la UAI estarán definidas en el perfil de cada puesto, que será gestionado a través de la Unidad de Desarrollo Organizacional de la Institución, en los formatos y demás condiciones que se establezcan por dicha Unidad.

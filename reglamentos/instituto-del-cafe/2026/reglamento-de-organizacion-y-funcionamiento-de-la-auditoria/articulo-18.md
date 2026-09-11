@@ -1,0 +1,1 @@
+Artículo 18 - Plazas vacantes. El Auditor(a) Interno(a) deberá gestionar para que las plazas vacantes se llenen en un plazo máximo de tres meses, conforme lo dispone el artículo Nº28 de la Ley Nº8292.

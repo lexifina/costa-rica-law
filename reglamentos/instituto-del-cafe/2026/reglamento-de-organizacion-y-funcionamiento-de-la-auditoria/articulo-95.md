@@ -1,0 +1,1 @@
+Artículo 95 – Elementos orientadores para la presentación de denuncias ante la UAI. Dentro de los elementos se encuentran los establecidos en el inciso 1.4 de los “Lineamientos generales para el análisis de presuntos Hechos Irregulares”. Esos elementos son deseables, pero no pueden constituirse en una limitación para la tramitación de denuncias ante la UAI.

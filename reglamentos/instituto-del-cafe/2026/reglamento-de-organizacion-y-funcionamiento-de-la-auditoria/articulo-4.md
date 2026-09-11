@@ -1,0 +1,1 @@
+Artículo 4 – Responsabilidad por el sistema de control interno. Será responsabilidad del jerarca y del titular subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional. Asimismo, será responsabilidad de la Administración Activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.

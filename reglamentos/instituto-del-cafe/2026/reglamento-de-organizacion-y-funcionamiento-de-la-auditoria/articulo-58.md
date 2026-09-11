@@ -1,0 +1,3 @@
+Capítulo III Sobre el funcionamiento de la UAI
+Sección A: Competencias y principios
+Artículo 58 - Competencias. Compete a la UAI lo que corresponda por lo establecido en la Ley Nº8292, principalmente lo indicado en el artículo Nº22, además, de lo indicado en la Ley Nº9872 y su reglamento, la Ley Nº9630 y su reglamento, las disposiciones, directrices, circulares, lineamientos, resoluciones u otros documentos aplicables que emita la CGR. La UAI ejecutará las demás competencias que contemplan la normativa legal, reglamentaria y técnica aplicable, considerando las prohibiciones que establece el Artículo Nº34 de la Ley Nº8292.

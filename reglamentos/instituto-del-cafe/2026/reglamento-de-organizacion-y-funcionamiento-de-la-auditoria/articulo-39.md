@@ -1,0 +1,1 @@
+Artículo 39 - Asistencia del Auditor(a) Interno(a) a Junta de Liquidaciones. El Auditor(a) Interno(a) asistirá a las sesiones de la Junta de Liquidaciones, según lo establecido en el artículo Nº65 de la Ley Nº9872. Su participación en dichas sesiones será conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la CGR al respecto.

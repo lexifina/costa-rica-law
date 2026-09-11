@@ -1,0 +1,2 @@
+Sección E: Del personal de la UAI
+Artículo 42 - Subordinación del personal de la UAI. El personal de la UAI depende del Auditor(a) Interno(a) y es responsable ante él en el desempeño de sus funciones, las cuales, ejercen de conformidad con lo dispuesto en los artículos Nº24 y 25 de la Ley Nº8292, el ROFAI, las “Normas para el Ejercicio de la Auditoría Interna en el Sector Público”, las “Normas Generales de Auditoría para el Sector Público”, disposiciones emitidas por la CGR, instrucciones recibidas del Auditor(a) Interno(a), leyes y normas complementarias vigentes.

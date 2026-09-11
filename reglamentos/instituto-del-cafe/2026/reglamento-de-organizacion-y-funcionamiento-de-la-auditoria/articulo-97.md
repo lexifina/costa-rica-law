@@ -1,0 +1,1 @@
+Artículo 97 - Denuncias trasladadas por otros entes. Las denuncias trasladadas por otros entes hacia la UAI serán atendidas de acuerdo con este reglamento y procedimientos establecidos para tales fines.

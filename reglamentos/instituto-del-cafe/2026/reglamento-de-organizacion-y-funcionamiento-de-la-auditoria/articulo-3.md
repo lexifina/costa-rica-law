@@ -1,0 +1,7 @@
+Artículo 3 - Definiciones. Para efectos de este Reglamento se entenderá por:
+a) Jerarca: superior jerárquico de las Instituciones quienes ejercen la máxima autoridad. En el caso del Icafé corresponde a la Junta Directiva y en el caso de Fonascafé al Consejo Ejecutivo.
+b) Administración Activa: desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen al jerarca como última instancia.
+c) Titular subordinado: funcionario de la Administración Activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+d) Auditor interno: titular de la actividad de la UAI en el Icafé y Fonascafé, responsable de su gestión conforme a la normativa jurídica y técnica aplicable a esa actividad.
+e) Universo auditable: conjunto de elementos susceptibles a la prestación de los servicios de la UAI dentro de su ámbito de competencia institucional. Generalmente, contempla un detalle de unidades auditables que pueden agruparse de diferentes formas (por función, actividad, unidad organizacional, proyecto, proceso, etc.).
+f) Ciclo de auditoría: tiempo que requiere la UAI para cubrir todos los elementos de su universo auditable, dada su dotación de recursos, así como otras características particulares de la propia UAI y de las instituciones auditadas.

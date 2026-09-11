@@ -1,0 +1,1 @@
+Artículo 2 - Ámbito de aplicación. Este reglamento es de carácter obligatorio para los funcionarios de la UAI y de la Administración Activa y cualquier otro órgano o ente sujeto por mandato legal, en todos aquellos artículos que les sean aplicables, conforme lo dispuesto por la Ley Nº8292 y las disposiciones de la CGR.

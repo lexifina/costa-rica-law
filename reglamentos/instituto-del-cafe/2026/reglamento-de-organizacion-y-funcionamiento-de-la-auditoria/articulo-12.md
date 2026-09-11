@@ -1,0 +1,2 @@
+Sección C: Ubicación y estructura organizativa
+Artículo 12 - De la UAI. Es un órgano institucional, con dependencia orgánica de la Junta Directiva e independencia funcional y de criterio, que brinda servicios contribuyendo a que se alcancen los objetivos organizacionales. Es un elemento orgánico, integral y vital del sistema de control interno de las instituciones auditadas. Su valor agregado está directamente relacionado con la evaluación de la administración de riesgos, controles y procesos de dirección.
