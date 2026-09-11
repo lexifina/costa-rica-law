@@ -1,0 +1,2 @@
+Artículo 4° Deberes del personal
+El personal de la Administración Tributaria en el cumplimiento de sus funciones y sin perjuicio del ejercicio de su autoridad, ni del cumplimiento de sus tareas, guardará el debido respeto a los interesados (as) y al público en general e informará aquellos (as), tanto de sus derechos como de sus deberes, al igual que sobre la conducta que deben seguir en sus relaciones con la Administración Tributaria, orientándolos (a) en el cumplimiento de sus obligaciones.

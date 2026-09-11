@@ -1,0 +1,2 @@
+Artículo 18° Monto mínimo para realizar arreglos de pago
+Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a la octava parte del salario base, establecido en el artículo 2 de la Ley No. 7337, del 5 de mayo de 1993 el cual corresponde al monto equivalente al salario base mensual del "Oficinista 1" que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República.

@@ -1,0 +1,2 @@
+Artículo 6° Horario de actuaciones
+Los funcionarios de la Administración Tributaria actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria, previa autorización de la persona jerárquica correspondiente. De igual forma se podrá incorporar a la gestión de cobro a otras personas trabajadoras de las demás áreas de la Municipalidad.

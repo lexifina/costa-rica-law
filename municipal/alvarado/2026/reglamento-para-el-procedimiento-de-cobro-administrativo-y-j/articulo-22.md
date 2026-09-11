@@ -1,0 +1,12 @@
+CAPITULO III
+DE LOS (AS) ABOGADOS (AS) EXTERNOS (AS)
+SECCION I
+DISPOSICIONES GENERALES
+Artículo 22° De la designación
+Los abogados externos serán designados en virtud de concurso externo que realizará la municipalidad para su contratación, en cumplimiento de la normativa que establece la Ley General de Contratación Pública y su Reglamento para la contratación de este tipo de servicios. El número de abogados externos a contratar dependerá de la cartera de sujetos pasivos morosos que será remitida a la etapa de cobro judicial y será determinado por la Administración Tributara, asimismo, le corresponde a esa área analizar a los participantes en el concurso de antecedentes, realizar la evaluación respectiva y rendir un informe técnico a la proveeduría municipal para efectos de determinar quiénes serán las personas profesionales que serán contratadas por la municipalidad.
+a) Asignar a los abogados, en forma equitativa, los casos de cobro judicial, de conformidad con el procedimiento que defina esa gestión de cobros, tomando en cuenta los siguientes criterios: Número de casos y la cuantía
+b) Fiscalizar la labor de los abogados internos y externos, cuando ejecuten cobros; para ello compete a la gestión, recibir los informes trimestrales que realicen los abogados que laboran en forma externa, analizarlos y emitir trimestralmente un informe sobre los mismos para conocimiento de la Administración Tributaria. Le corresponderá, además, verificar mediante los informes u otros medios, que los procesos judiciales estén activos.
+c) Solicitar a la Administración Tributaria la aplicación de las sanciones que en este Reglamento se establecen a los abogados externos que incumplan con sus obligaciones.
+d) Informar sobre violaciones al contrato de gestión de los abogados externos, para disponer de las posibles sanciones que corresponda.
+e) Llevar un expediente de cada uno de los abogados externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente y demás documentos relacionados con su actuar, los cuales serán agregados al expediente de forma cronológica y foliados.
+f) Solicitar al departamento de Valoración Catastro el avaluó de los bienes inmuebles que garanticen las obligaciones vencidas, que a efectos de determinar si en fase de remate la Municipalidad estaría interesada en solicitar la adjudicación del bien.

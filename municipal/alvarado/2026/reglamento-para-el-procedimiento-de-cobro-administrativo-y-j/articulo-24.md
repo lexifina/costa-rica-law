@@ -1,0 +1,2 @@
+Artículo 24° No sujeción a plazo
+La contratación no estará sujeta a cumplir con un plazo determinado, sino que dependerá del plazo que dure la tramitación de los procesos judiciales asignados. Sin embargo, corresponderá a la gestión de cobros, verificar mediante los informes u otros medios, que los procesos judiciales están activos, de lo contrario, se aplicarán las sanciones que regula este reglamento contra el abogado externo que incumpla con esta obligación.
