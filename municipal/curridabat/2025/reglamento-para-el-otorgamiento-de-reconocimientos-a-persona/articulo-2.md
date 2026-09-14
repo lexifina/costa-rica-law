@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento se aplicará a todas las propuestas de reconocimientos a personas destacadas del cantón de Curridabat presentadas ante el Concejo Municipal de Curridabat.

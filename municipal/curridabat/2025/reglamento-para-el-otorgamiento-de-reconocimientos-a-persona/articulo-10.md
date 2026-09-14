@@ -1,0 +1,1 @@
+Artículo 10.—Si a criterio justificado del Concejo Municipal, ninguno de los propuestos reúne las condiciones requeridas para ser distinguido como “Persona Destacada del Cantón de Curridabat”, el Concejo tendrá la facultad de no efectuar nombramiento alguno durante ese año.

@@ -1,0 +1,1 @@
+Artículo 7º—El Concejo Municipal a través de la Comisión Permanente Ordinaria de Asuntos Culturales, emitirá el dictamen recomendativo acerca de cuál de los candidatos califica para el otorgamiento del reconocimiento.

@@ -1,0 +1,1 @@
+Artículo 4º—La propuesta del candidato/a deberá ser presentada por algún integrante del Concejo Municipal de conformidad con el artículo 16 del Reglamento Interior de Orden, Dirección, Debates y Votaciones del Concejo, sin embargo, también podrán las asociaciones comunales debidamente inscritas, alguna persona Curridabatense o un Concejo de Distrito podrá presentar la propuesta.

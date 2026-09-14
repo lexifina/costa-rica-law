@@ -1,0 +1,1 @@
+Artículo 13.—Solo se recibirán propuestas con plazo al 30 de abril y los reconocimientos se entregarán en sesión solemne del Concejo Municipal. La Alcaldía Municipal no podrá entregar reconocimientos que no hayan sido autorizados por el Concejo Municipal, salvo a los funcionarios municipales destacados.

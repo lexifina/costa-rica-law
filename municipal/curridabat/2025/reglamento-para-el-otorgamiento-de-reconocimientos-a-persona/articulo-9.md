@@ -1,0 +1,1 @@
+Artículo 9º—Recibido el dictamen de la Comisión Permanente de Cultura, el Concejo Municipal tomará el acuerdo que designe a la persona que será distinguida como “Persona Destacada del Cantón de Curridabat”.
