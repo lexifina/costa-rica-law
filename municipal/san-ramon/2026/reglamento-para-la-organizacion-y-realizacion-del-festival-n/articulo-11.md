@@ -1,0 +1,2 @@
+Artículo 11.—Expediente Administrativo Único. La Alcaldía Municipal, mediante la persona funcionaria que ésta designe, deberá gestionar la creación, el seguimiento y la conservación de un expediente administrativo en donde se documentará cronológicamente cada aspecto y detalle alusivo al Festival Navideño, en coordinación con la Comisión Organizadora.
+Se ordena a la Administración Municipal la creación de una directriz institucional para el debido manejo y regulación de este expediente, donde también se incluirá el control de los bienes reutilizables.

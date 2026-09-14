@@ -1,0 +1,1 @@
+Artículo 6º—Declaratoria de Fomento al emprendedor local. La Municipalidad procurará promover la participación de personas emprendedoras y del comercio local con la finalidad de considerar la inclusión, promoción y protección de los micro, pequeños y medianos emprendedores locales dentro de las actividades del Festival.

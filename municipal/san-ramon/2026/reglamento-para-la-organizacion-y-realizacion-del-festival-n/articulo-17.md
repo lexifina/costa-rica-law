@@ -1,0 +1,1 @@
+Artículo 17.—Manejo de residuos sólidos. Las actividades reguladas por este Reglamento procurarán desarrollar acciones orientadas al manejo adecuado de los residuos sólidos que se generen, de conformidad con la normativa nacional y la reglamentación municipal vigente que resulte aplicable.

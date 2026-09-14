@@ -1,0 +1,1 @@
+Artículo 15.—Contrataciones y adquisiciones Toda contratación de bienes, obras y servicios requerida para la organización y ejecución del Festival Navideño se realizará de conformidad con la Ley General de Contratación Pública, su reglamento y demás normativa nacional vigente que resulte aplicable.

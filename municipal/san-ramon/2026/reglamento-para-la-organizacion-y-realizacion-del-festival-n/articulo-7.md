@@ -1,0 +1,1 @@
+Artículo 7º—Del uso de espacios públicos. Se autoriza el uso de parques, plazas, bulevares y demás espacios municipales que cuenten con las condiciones para albergar eventos y actividades del Festival Navideño durante todo el mes de noviembre y diciembre de cada año.
