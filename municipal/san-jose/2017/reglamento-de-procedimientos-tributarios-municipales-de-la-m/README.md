@@ -17,3 +17,4 @@ Reglamento de procedimientos tributarios municipales de la Municipalidad de San 
 | 2 | 2018-07-24 | Reglamento municipal 117 (2018-07-24) |
 | 3 | 2019-11-05 | Reglamento municipal 184 (2019-11-05) |
 | 4 | 2021-08-31 | Reglamento municipal 69 (2021-08-31) |
+| 5 | 2026-09-16 | Reglamento municipal 124 (2026-09-16) |
