@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Salud realizará las actualizaciones administrativas, operativas y de gestión necesarias a fin de asegurar que los trámites previstos en el Decreto que se revoca se continúen gestionando, exclusivamente mediante la Plataforma de Ventanilla Única de Inversión (VUI).
