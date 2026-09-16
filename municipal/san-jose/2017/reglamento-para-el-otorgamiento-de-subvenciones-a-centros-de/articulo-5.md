@@ -1,4 +1,0 @@
-Artículo 5. Del otorgamiento de la subvención: La subvención para una entidad solicitante, se otorgará una única vez por año presupuestario, y no podrán los beneficiarios presentar una nueva solicitud, por el mismo concepto, en al menos dos años posteriores al otorgamiento del beneficio.
-En caso de tratarse de Juntas Educativas o Juntas Administrativas que representen dos o más centros educativos, éstas pueden realizar solicitudes de subvención para más de uno de ellos siempre que sea de manera consecutiva y que hayan liquidado conforme y satisfactoriamente los
-recursos asignados en la solicitud precedente.
-Será atribución del Concejo Municipal, definir las prioridades a las que se dirigirá el monto disponible para subvenciones, según las políticas institucionales, programas y/o proyectos aprobados en el Plan de Desarrollo Municipal, o considerados de interés municipal en un momento determinado.

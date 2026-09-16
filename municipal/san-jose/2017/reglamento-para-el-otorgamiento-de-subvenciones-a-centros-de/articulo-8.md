@@ -1,2 +1,0 @@
-Artículo 8. Del seguimiento. La Oficina de Mejoramiento de Barrios podrá realizar las visitas de seguimiento que considere necesarias a la entidad solicitante de subvención; por cuanto será responsable de la supervisión técnica de la ejecución y cierre del proyecto según el plan de trabajo aportado, así como del uso de los recursos conforme a los objetivos para los cuales fueron concedidos.
-La entidad beneficiaria deberá ejecutar los recursos otorgados conforme al plan de trabajo presentado y aprobado por el Concejo Municipal mediante Acuerdo.
