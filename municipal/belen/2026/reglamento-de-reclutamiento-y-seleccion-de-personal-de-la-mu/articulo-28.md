@@ -1,0 +1,1 @@
+Artículo 28. Comunicación de resultados. La Municipalidad únicamente notificará los resultados a las diez (10) personas que hayan avanzado más allá del filtro inicial. Esta comunicación se realizará mediante correo electrónico, y se documentará en el expediente del concurso.

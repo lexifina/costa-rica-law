@@ -1,0 +1,1 @@
+Artículo 27. Elaboración y envío de la nómina de elegibles. Con base en los resultados de los predictores aplicados, se elaborará una nómina de elegibles de al menos tres candidatos en orden descendente de calificación. Esta nómina será remitida por oficio a la Alcaldía para su valoración y eventual designación.

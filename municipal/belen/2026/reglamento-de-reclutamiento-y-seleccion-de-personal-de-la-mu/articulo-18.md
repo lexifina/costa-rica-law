@@ -1,0 +1,1 @@
+Artículo 18. Elaboración de nómina de elegibles. Con base en los resultados de las evaluaciones, se elaborará una nómina de al menos tres candidatos en estricto orden descendente de calificación, conforme lo dispuesto en el artículo 139 del Código Municipal. Esta será remitida mediante oficio a la Alcaldía para su análisis y resolución.

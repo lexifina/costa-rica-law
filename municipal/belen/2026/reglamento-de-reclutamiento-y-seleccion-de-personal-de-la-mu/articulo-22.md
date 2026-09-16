@@ -1,0 +1,1 @@
+Artículo 22. Presentación de ofertas. Los oferentes deberán presentar su postulación por medio del formulario electrónico establecido por la Municipalidad. Se aceptarán medios físicos solo en casos debidamente justificados. Será requisito obligatorio llenar la declaración jurada incluida en dicho formulario, la cual sustituye la presentación inmediata de atestados.

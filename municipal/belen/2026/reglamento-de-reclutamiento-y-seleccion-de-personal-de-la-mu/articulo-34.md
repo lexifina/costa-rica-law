@@ -1,0 +1,1 @@
+Artículo 34. Criterios de desempate. En caso de empate en la calificación final entre dos o más personas candidatas, se dará prioridad a quien haya obtenido mayor puntuación en el predictor de competencias. Si persiste el empate, se valorará el orden de recepción de la postulación. Todo desempate debe quedar debidamente documentado.

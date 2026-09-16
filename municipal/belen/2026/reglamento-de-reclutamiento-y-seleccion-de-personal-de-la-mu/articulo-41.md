@@ -1,0 +1,2 @@
+Capítulo VII: Otras Disposiciones
+Artículo 41. Confidencialidad de la información. Toda la información generada, obtenida o administrada durante los procesos de reclutamiento y selección deberá ser tratada con estricta confidencialidad. La Unidad de Gestión de Talento Humano será responsable de asegurar que los datos personales, resultados de pruebas y valoraciones no sean divulgados sin autorización expresa, salvo en los casos previstos por la ley.

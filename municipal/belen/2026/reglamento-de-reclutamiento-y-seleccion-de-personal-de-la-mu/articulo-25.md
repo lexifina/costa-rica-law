@@ -1,0 +1,1 @@
+Artículo 25. Evaluación de candidaturas. Las personas seleccionadas serán evaluadas con los mismos predictores utilizados para concursos internos, en los pesos establecidos en el artículo 16 del presente reglamento. Las evaluaciones podrán incluir pruebas técnicas, entrevistas y valoraciones psicométricas.

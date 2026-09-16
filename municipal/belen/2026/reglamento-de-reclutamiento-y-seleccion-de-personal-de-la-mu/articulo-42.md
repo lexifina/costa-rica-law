@@ -1,0 +1,1 @@
+Artículo 42. Prohibición de discriminación. Se prohíbe todo acto de discriminación por razones de sexo, edad, etnia, orientación sexual, identidad de género, estado civil, creencias religiosas, opiniones políticas, discapacidad o cualquier otra condición personal o social. El proceso deberá garantizar condiciones de igualdad efectiva para todas las personas postulantes.

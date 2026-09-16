@@ -1,0 +1,1 @@
+Artículo 10. Documentación del proceso. Cada etapa del proceso deberá ser debidamente documentada en un expediente físico o digital del concurso, conforme a los lineamientos de control interno y de gestión institucional. Esta documentación será resguardada por la Unidad de Gestión de Talento Humano.

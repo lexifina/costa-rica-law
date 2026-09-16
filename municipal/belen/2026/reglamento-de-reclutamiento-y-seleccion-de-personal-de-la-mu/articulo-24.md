@@ -1,0 +1,1 @@
+Artículo 24. Solicitud de atestados. Únicamente las personas que superen la prueba filtro y se encuentren entre las diez (10) postulaciones con mejores calificaciones serán convocadas a presentar los atestados correspondientes. La veracidad de los documentos será verificada por la Unidad de Gestión de Talento Humano.

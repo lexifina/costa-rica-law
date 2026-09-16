@@ -1,0 +1,1 @@
+Artículo 31. Calificación mínima requerida. Las personas postulantes deberán alcanzar una nota mínima de setenta (70) en las pruebas técnicas y entrevistas para ser consideradas elegibles. La evaluación de competencias no está sujeta a nota mínima excluyente, pues su finalidad es complementar el perfil integral del candidato.

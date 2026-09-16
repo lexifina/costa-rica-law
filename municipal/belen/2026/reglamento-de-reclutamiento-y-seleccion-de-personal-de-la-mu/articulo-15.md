@@ -1,0 +1,1 @@
+Artículo 15. Presentación de ofertas. Las ofertas deberán presentarse mediante correo electrónico a la dirección oficial que defina la Unidad de Gestión de Talento Humano. En casos debidamente justificados, se permitirá la entrega presencial. Toda oferta deberá incluir una manifestación expresa de interés y los atestados requeridos.

@@ -1,0 +1,1 @@
+Artículo 19. Nombramiento y notificación. La Alcaldía Municipal tomará la decisión final de nombramiento. Los resultados serán comunicados a los participantes por la Unidad de Gestión de Talento Humano mediante correo electrónico. Se notificará únicamente a las personas que participaron en las evaluaciones, priorizando aquellas que avanzaron a etapas finales.

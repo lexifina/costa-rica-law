@@ -1,0 +1,1 @@
+Artículo 7. Requisición del puesto vacante. Toda necesidad de cubrir una vacante deberá ser comunicada por la dependencia correspondiente a la Unidad de Gestión de Talento Humano mediante solicitud formal debidamente justificada. Esta solicitud debe incluir el código y denominación del puesto, ubicación organizacional, naturaleza del vínculo y tipo de jornada.

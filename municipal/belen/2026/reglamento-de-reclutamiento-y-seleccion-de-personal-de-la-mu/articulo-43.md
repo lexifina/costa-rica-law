@@ -1,0 +1,1 @@
+Artículo 43. Fiscalización y control interno. La Auditoría Interna de la Municipalidad podrá fiscalizar en cualquier momento los procesos de reclutamiento y selección, conforme a sus competencias legales. Para tales efectos, la Unidad de Gestión de Talento Humano deberá facilitar el acceso a los expedientes y registros necesarios.

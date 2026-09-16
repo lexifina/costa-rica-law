@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento es de aplicación obligatoria para todos los procesos de provisión de puestos vacantes dentro de la estructura organizacional de la Municipalidad de Belén, ya sea por ascenso, concurso interno o externo o nombramiento interino y será ejecutado por la Unidad de Gestión de Talento Humano.

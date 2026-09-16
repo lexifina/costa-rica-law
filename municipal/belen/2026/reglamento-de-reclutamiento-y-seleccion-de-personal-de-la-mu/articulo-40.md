@@ -1,0 +1,1 @@
+Artículo 40. Cierre del proceso de reclutamiento. Concluido el nombramiento y completadas las etapas de inducción y periodo de prueba, la Unidad de Gestión de Talento Humano deberá cerrar formalmente el concurso, dejando debida constancia en el expediente respectivo.

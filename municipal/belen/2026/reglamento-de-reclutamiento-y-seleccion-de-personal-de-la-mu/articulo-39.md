@@ -1,0 +1,2 @@
+Artículo 39. Evaluación del periodo de prueba. Todo nombramiento estará sujeto a la evaluación de un periodo de prueba conforme a la legislación laboral vigente. La duración, objetivos y criterios de evaluación serán establecidos por la Unidad de Gestión de Talento Humano y la jefatura inmediata.
+El resultado de esta evaluación podrá incidir en la confirmación o revocatoria del nombramiento provisional, de acuerdo con el debido proceso.

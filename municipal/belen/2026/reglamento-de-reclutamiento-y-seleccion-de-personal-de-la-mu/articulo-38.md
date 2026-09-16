@@ -1,0 +1,1 @@
+Artículo 38. Inducción institucional. Previo al inicio formal de funciones, la persona nombrada deberá participar en un proceso de inducción institucional, en el cual se le brindará información sobre la estructura organizativa, políticas internas, derechos y deberes, valores municipales, reglamentos institucionales y normativa legal aplicable.

@@ -1,0 +1,1 @@
+Artículo 11. Participación de unidades técnicas. La Unidad o Dirección solicitante del puesto deberá participar activamente en la definición de pruebas técnicas y entrevistas, así como en la aplicación de los predictores definidos para evaluar la idoneidad de los candidatos.
