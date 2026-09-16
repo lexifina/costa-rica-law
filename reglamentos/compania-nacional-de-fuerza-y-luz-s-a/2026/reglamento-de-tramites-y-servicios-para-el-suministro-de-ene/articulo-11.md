@@ -1,0 +1,1 @@
+Artículo 11. Calidad y continuidad del servicio. Es obligación de la CNFL dotar de un servicio de suministro de energía eléctrica con calidad y continuidad, salvo en casos de fuerza mayor o caso fortuito, así como por períodos de mantenimiento debidamente divulgados que afecten el área de cobertura de los(as) clientes.

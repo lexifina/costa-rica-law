@@ -1,0 +1,16 @@
+Artículo 18. Cambio conexión de voltaje del suministro de energía eléctrica. La CNFL presta el servicio de cambio de conexión de voltaje, cuando el suministro de energía eléctrica instalado requiere mayor voltaje.
+La solicitud del servicio cambio de conexión de voltaje se tramita de forma presencial en sucursales y agencias de la CNFL o de manera virtual en los diferentes canales, la cual puede realizar el titular del servicio eléctrico o la persona facultada legalmente, presentando los siguientes requisitos:
+Persona física:
+a. Cédula de identidad para nacionales.
+b. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte, para personas extranjeras.
+Persona Jurídica:
+a. Número de cédula jurídica, para consultar en línea y emisión de certificación de la personería jurídica inscrita en el Registro Nacional de la Propiedad, (verificación interna). Para tal efecto es requerido que la sociedad se encuentre al día con sus obligaciones legales y tributarias.
+b. Original de cédula de identidad de representante legal para nacionales.
+c. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte para personas extranjeras.
+Requisitos específicos:
+a. Pagos al día ante la CNFL, se consulta que no existan deudas pendientes del (de la) cliente en el sistema comercial de la empresa (verificación Interna).
+b. Número del NISE de referencia (número de contrato), localización o número de medidor.
+c. Número de “Solicitud de sellado de planos eléctricos” emitida por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica (CFIA), para consultar en línea ante el CFIA, el cumplimiento del requisito “Constancia de recibido”, referente a la presentación de los planos eléctricos. (verificación Interna).
+En los casos en que la carga solicitada sea mayor a la disponible en la red eléctrica, la CNFL solicita en su momento el “Diseño red eléctrica”, el cual puede requerir de un estudio de ingeniería del tipo "Diseño de distribución" cuyo costo se puede consultar en el sitio web de la CNFL: www.cnfl.go.cr.
+Al momento de la solicitud del cambio de conexión de voltaje, la instalación de la acometida debe estar terminada, ubicada en el límite de la propiedad catastral frente a vía pública, en cumplimiento con la Norma técnica AR-NT-SUINAC-2015 de la ARESEP y Decreto Ejecutivo 38440-MEIC del Código eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, así como su reglamento, este requisito es verificado en la inspección de primera visita de campo.
+La CNFL dispone de tres días hábiles para la resolución del cambio de conexión de voltaje requerido a partir del día siguiente, una vez cumplidos los requisitos técnicos y administrativos y en caso de incumplimiento de alguno de estos, debe prevenir al (a la) cliente por una única vez, de manera escrita sobre los requisitos omitidos (la prevención suspende el plazo de resolución cuando se emita un acto administrativo, de conformidad con el artículo 6 de la Ley N.° 8220).El presente servicio no tiene costo asociado.

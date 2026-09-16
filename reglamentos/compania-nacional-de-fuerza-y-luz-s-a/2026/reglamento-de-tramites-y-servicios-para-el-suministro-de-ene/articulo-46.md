@@ -1,0 +1,2 @@
+Artículo 46. Multas por facturas vencidas. Toda factura vencida puede ser cancelada en cualquiera de las sucursales, agencias de la CNFL y agencias recaudadoras autorizadas. Dicho recargo es del 3% mensual sobre el monto facturado, el cual se carga en la facturación del siguiente mes.
+Lo anterior, se rige conforme a lo establecido en el artículo 47 de la Norma Técnica Regulatoria AR-NTSUCOM emitida por la ARESEP.

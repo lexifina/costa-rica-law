@@ -1,0 +1,1 @@
+Artículo 39. Pagos anticipados para servicios modalidad pospago. La CNFL tramita a solicitud del (de la) cliente o parte interesada, el pago adelantado a su servicio de electricidad para cubrir el costo de este durante los meses que el (la) cliente defina, lo cual puede realizar de manera presencial en cualquiera de las sucursales o agencias de la CNFL.

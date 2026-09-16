@@ -1,0 +1,3 @@
+Artículo 44. Facturación del servicio. La CNFL factura al (a la) cliente el consumo mensual de energía y/o potencia según corresponda, así como los impuestos de ley afines al servicio y otros rubros aprobados por la ARESEP.
+De existir una consulta en el monto facturado y puesto al cobro, el (la) cliente presenta la solicitud de información sobre su caso en las sucursales y agencias, estableciendo un medio para recibir la respuesta de su trámite o puede hacerlo por los medios virtuales, establecidos en este reglamento.
+Este trámite se rige conforme a lo establecido en los artículos 40 y 58 de la Norma Técnica Regulatoria R-NT-SUCOM emitida por la ARESEP.

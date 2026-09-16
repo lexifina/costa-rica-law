@@ -1,0 +1,5 @@
+Artículo 30. Reparación y calibración equipos eléctricos. La CNFL brinda servicio de reparación y calibración de equipos eléctricos de medición para las empresas nacionales o extranjeras, con el fin de garantizar que los sistemas de medición de energía eléctrica de los(as) clientes sean seguros, confiables, exactos y precisos, contando con la debida certificación.
+Requisito específico:
+Completar el formulario digital para solicitar el servicio de reparación y calibración de equipos eléctricos que se encuentra en la página web de la CNFL: www.cnfl.go.cr, formulario digital Laboratorio de Sistemas de Medición de Energía Eléctrica (LASIMEE).
+La ejecución de este servicio se realiza según el día, hora y previa coordinación indicada por el (la) cliente, una vez completado el formulario digital Laboratorio de Sistemas de Medición de Energía Eléctrica (LASIMEE), según el sitio web de la CNFL: www.cnfl.go.cr.
+Este servicio tiene costos asociados que son cotizados de acuerdo con la solicitud del trámite y sus requerimientos.

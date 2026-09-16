@@ -1,0 +1,17 @@
+Artículo 19. Traslado de medidor. La CNFL proporciona el servicio de traslado de medidor por cambio de acometida eléctrica el cual gestiona el (la) cliente, sin que medie una modificación en las condiciones de diseño de la instalación eléctrica.
+La solicitud del servicio de traslado de medidor se tramita de forma presencial en sucursales y agencias de la CNFL o de manera virtual en los diferentes canales, la cual puede realizar el titular del servicio eléctrico o la persona facultada legalmente, presentando los siguientes requisitos:
+Persona física:
+a. Cédula de identidad para nacionales.
+b. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte, para personas extranjeras.
+Persona jurídica:
+a. Número de cédula jurídica, para consultar en línea y emisión de certificación de la personería jurídica inscrita en el Registro Nacional de la Propiedad, (verificación interna). Para tal efecto es requerido que la sociedad se encuentre al día con sus obligaciones legales y tributarias.
+b. Original de cédula de identidad de representante legal para nacionales.
+c. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte para personas extranjeras.
+Requisitos específicos:
+a. Pagos al día ante la CNFL, se consulta que no existan deudas pendientes del (de la) cliente en el sistema comercial de la empresa (verificación interna).
+b. Número del NISE de referencia (número de contrato), localización o número de medidor (verificación interna).
+c. Pago del servicio solicitado, el cual se cancela al momento de ser atendido en ventanilla para servicios de modalidad prepago o cargado en la próxima facturación para la modalidad pospago.
+d. Número de “Solicitud de sellado de planos eléctricos”, cuando aplique y se realicen modificaciones en el inmueble, emitida por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica (CFIA) para consultar en línea ante el CFIA, el cumplimiento del requisito “Constancia de recibido”, referente a la presentación de los planos eléctricos. (verificación interna).
+Ante la CNFL cualquier persona que cuente con la debida autorización, puede solicitar servicios y realizar trámites a nombre de un(a) cliente o titular del servicio, lo cual es otorgado de conformidad con el Artículo 283, de la Ley General de la Administración Pública o poder especial, general o generalísimo, conservando la CNFL el original, así como las certificaciones de los poderes.
+Al momento de la solicitud del traslado del medidor, la instalación de la acometida debe estar terminada, ubicada en el límite de la propiedad catastral frente a vía pública, en cumplimiento con la Norma técnica AR-NT-SUINAC-2015 y Decreto Ejecutivo N.O 38440-MEIC del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, así como su reglamento, este requisito es en la inspección de primera visita de campo.
+La CNFL dispone de cinco días hábiles para la resolución del servicio traslado del medidor requerido a partir del día siguiente una vez cumplidos los requisitos técnicos y administrativos y en caso de incumplimiento de alguno de estos, debe prevenir al (a la) cliente por una única vez, de manera escrita sobre los requisitos omitidos (la prevención suspende el plazo de resolución cuando se emita un acto administrativo, de conformidad con el artículo 6 de la Ley N.° 8220).

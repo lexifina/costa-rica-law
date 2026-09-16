@@ -1,0 +1,18 @@
+Artículo 34. Solicitud de reconocimiento de compensación de excedentes de energía. La CNFL realiza el reconocimiento de compensación de excedentes de energía generados e inyectados a la red de distribución por medio de recursos energéticos distribuidos para autoconsumo DER.
+Para acceder al trámite de reconocimiento de excedentes, la persona abonada que firmó el formulario F-070 Adenda al contrato de servicio de interconexión para recursos energéticos distribuidos (con el nombre de ese momento), bajo la modalidad Medición Neta Sencilla, debe finiquitarlo y firmar el contrato bajo la modalidad Medición Neta Completa, cumpliendo los requisitos correspondientes según lo establecido en la Ley N.° 10086 Promoción y regulación de recursos energéticos distribuidos a partir de fuentes renovables. Los clientes nuevos deben firmar el formulario F-070 Adenda al contrato para el suministro de servicio de energía eléctrica y la compensación de excedentes por interconexión DER bajo la modalidad Medición Neta Completa.
+Para realizar este trámite de reconocimiento de excedentes la persona abonada puede presentarse en cualquiera de nuestras sucursales o realizarlo de manera virtual desde los canales digitales de la CNFL, para lo cual necesariamente requiere contar con firma digital.
+Requisitos generales:
+Persona física:
+a. Cédula de identidad para nacionales.
+b. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte, para personas extranjeras.
+Persona jurídica:
+a. Número de cédula jurídica, para consultar en línea y emisión de certificación de la personería jurídica inscrita en el Registro Nacional de la Propiedad, (verificación interna). Para tal efecto es requerido que la sociedad se encuentre vigente y activa, así como al día con sus obligaciones legales y tributarias.
+b. Original de cédula de identidad de representante legal para nacionales.
+c. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte para personas extranjeras.
+Requisitos específicos:
+a. Pagos al día ante la CNFL, consulta sobre deudas pendientes del (de la) cliente en el sistema comercial de la empresa (verificación interna).
+b. Número de teléfono, dirección exacta y correo electrónico para futuras notificaciones.
+c. Número del NISE de referencia (número de contrato), localización o número de medidor.
+d. Firma del formulario F-129 Adenda al contrato para el suministro de servicio de energía eléctrica y la compensación de excedentes por interconexión DER, en el que se establecen las condiciones del pago de excedentes.
+e. Posterior al trámite de reconocimiento para el pago de excedentes, la persona abonada debe generar una factura electrónica mensual, por lo que debe estar inscrito y habilitado como contribuyente ante el Ministerio de Hacienda. La CNFL verifica este requisito en línea, realizando consulta por medio del sitio TRIBU-CR del Ministerio de Hacienda (Verificación interna).
+Ante la CNFL cualquier persona que cuente con la debida autorización, puede solicitar servicios y realizar trámites a nombre de un(a) cliente o titular del servicio, lo cual es otorgado de conformidad con el Artículo 283 de la Ley General de Administración Pública o poder especial, general o generalísimo, conservando la CNFL el original, así como las certificaciones de los poderes. (Si la persona que tramita firma el contrato del servicio, puede realizarlo con el poder general o generalísimo, o con la carta de autorización la cual debe indicar por escrito que está autorizado para dicho fin y la misma debe estar autenticada y timbrada por un(a) abogado(a)).

@@ -1,0 +1,1 @@
+Artículo 52. Incumplimiento personas trabajadoras. En caso de que alguna persona trabajadora de la CNFL incurra en una acción que contravenga lo dispuesto en este reglamento, se debe actuar conforme lo establecido en la normativa vigente y aplicable.

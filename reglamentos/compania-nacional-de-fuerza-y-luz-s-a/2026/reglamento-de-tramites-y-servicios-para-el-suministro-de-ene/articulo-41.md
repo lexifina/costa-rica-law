@@ -1,0 +1,2 @@
+Artículo 41. Cambio de tarifa. La CNFL en caso de verificar mediante aviso de la persona lectora, inspectora o por el (la) cliente o usuario(a), que hubo una variación en la actividad del servicio de suministro de energía eléctrica, debe realizar el cambio de tarifa, proceder con el ajuste y notificarlo por escrito al (a la) cliente.
+Se rige conforme a lo establecido en los artículos 49 y 50 de la Norma Técnica Regulatoria AR-NT-SUCOM emitida por la ARESEP.

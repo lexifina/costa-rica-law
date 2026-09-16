@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este reglamento establece los requisitos y obligaciones que debe cumplir la clientela que requieran efectuar un trámite o solicitar los servicios ante la CNFL, así como, es de acatamiento obligatorio para el personal de la CNFL que ejecuta y realiza labores de atención al (a la) cliente.

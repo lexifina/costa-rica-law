@@ -1,0 +1,21 @@
+Artículo 16. Cambio de servicio de suministro de energía eléctrica de provisional a definitivo.
+La CNFL proporciona a los(as) clientes que finalizan su proceso de construcción, remodelación o ampliación de bienes inmuebles como residencias, edificios comerciales e industriales, apartamentos, entre otros, un servicio definitivo.
+La solicitud del servicio se tramita de forma presencial en sucursales y agencias de la CNFL o de manera virtual en los diferentes canales, la cual puede realizar el titular del servicio eléctrico o la persona facultada legalmente, presentando los siguientes requisitos:
+Requisitos generales:
+Persona física:
+a. Cédula de identidad para nacionales.
+b. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte, para personas extranjeras.
+Persona Jurídica:
+a. Número de cédula jurídica, para consultar en línea y emisión de certificación de la personería jurídica inscrita en el Registro Nacional de la Propiedad, (verificación interna). Para tal efecto es requerido que la sociedad se encuentre al día con sus obligaciones legales y tributarias.
+b. Original de cédula de identidad de representante legal para nacionales.
+c. Documento de acreditación migratoria (DIMEX), carné de condición especial (otorgado por el Subproceso de Refugio de la Dirección General de Migración), pasaporte para personas extranjeras.
+Requisitos específicos:
+a. Pagos al día ante la CNFL, se consulta que no existan deudas pendientes del (de la) cliente en el sistema comercial de la empresa (verificación Interna).
+b. Número de “Solicitud de sellado de planos eléctricos” emitida por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica (CFIA), para consultar en línea ante el CFIA el cumplimiento del requisito “Constancia de recibido”, referente a la presentación de los planos eléctricos. (verificación Interna).
+c. Número del NISE (número de contrato), localización o número de medidor del servicio (verificación interna).
+d. Pago del ajuste de depósito de garantía, cuando aplique, cuyo monto es el establecido de acuerdo con la carga declarada en el visado eléctrico y a la tarifa vigente aprobada por la ARESEP, el cual se cancela al momento de ser atendido o cargado en la próxima facturación.
+e. Firma de contrato para el suministro de energía eléctrica, ya sea de forma manuscrita o digital (aplica para servicio definitivo), según el formulario F-083 Contrato para el suministro de energía eléctrica.
+Ante la CNFL cualquier persona que cuente con la debida autorización, puede solicitar servicios y realizar trámites a nombre de un(a) cliente o titular del servicio, lo cual es otorgado de conformidad con el Artículo 283, de la Ley General de Administración Pública o Poder Especial, General o Generalísimo, conservando la CNFL el original, así como las certificaciones de los poderes (si la persona que tramita firma el contrato del servicio, puede realizarlo con el poder especial, general o generalísimo, o con la carta de autorización la cual debe indicar por escrito que está autorizado para dicho fin y la misma debe estar autenticada y timbrada por un abogado(a)).
+Al momento de la solicitud del servicio eléctrico, la instalación de la acometida debe estar terminada, ubicada en el límite de la propiedad catastral frente a vía pública, en cumplimiento con la Norma técnica AR-NT-SUINAC-2015 y Decreto Ejecutivo 38440-MEIC del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, así como su reglamento, este requisito es verificado en la inspección de primera visita de campo.
+Según el artículo 29 de la Norma técnica regulatoria AR-NT-SUCOM, la CNFL dispone de cinco días hábiles para la conexión del servicio monofásico y un mes natural para la conexión del servicio trifásico requerido, una vez cumplidos los requisitos técnicos y administrativos y en caso de incumplimiento de alguno de estos, debe prevenir al (a la) cliente por una única vez, de manera escrita sobre los requisitos omitidos (la prevención suspende el plazo de resolución cuando se emita un acto administrativo, de conformidad con el artículo 6 de la Ley N.° 8220).
+Una vez que el servicio se facture como definitivo, el cargo por concepto de servicio provisional deja de cobrarse en la factura.

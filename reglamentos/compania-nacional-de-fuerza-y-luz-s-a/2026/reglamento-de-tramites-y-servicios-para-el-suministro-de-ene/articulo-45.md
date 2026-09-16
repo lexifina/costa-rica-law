@@ -1,0 +1,2 @@
+Artículo 45. Medios y formas de pago. La CNFL cuenta con sucursales y agencias, mediante las cuales se pueden efectuar los pagos de facturación eléctrica. Adicionalmente, ofrece a sus clientes la Agencia Virtual mediante la cual se pueden pagar facturas con tarjeta de crédito y débito.
+Por otra parte, existen recaudadores externos que brindan el servicio de recaudación, asimismo pueden efectuarse los pagos desde los sitios web, App CNFL- Sistema SINPE, cargo automático y banca telefónica.

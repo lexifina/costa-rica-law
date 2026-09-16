@@ -1,0 +1,1 @@
+Artículo 38. Devolución de depósito de garantía. El depósito en garantía es devuelto al (a la) cliente en caso de retiro del servicio, siempre y cuando se encuentre al día en sus obligaciones comerciales con la CNFL (no aplica para modalidad de servicios prepago).
