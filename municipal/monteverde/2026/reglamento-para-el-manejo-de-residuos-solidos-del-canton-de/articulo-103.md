@@ -1,0 +1,1 @@
+Artículo 103. Registro Estadístico. La Municipalidad deberá contar con un registro estadístico mensual de todos los residuos que se sometan a procesos de valorización, transformación, tratamiento, disposición final u alguna otra forma de gestión. Este registro deberá presentarse por tipo de material, en kilogramos y es responsabilidad de la Unidad de Gestión Ambiental.

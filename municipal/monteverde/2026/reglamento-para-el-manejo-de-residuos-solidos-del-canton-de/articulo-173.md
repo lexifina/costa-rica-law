@@ -1,0 +1,9 @@
+Artículo 173. Casos de excepción. Con apego a lo dispuesto por los numerales 8, 9, 10 de la Ley 8839, en los casos en que se determine que, debido a características geográficas y de viabilidad ambiental, sea más factible desde el punto de vista de traslados y condiciones de rutas, dispensar los residuos en un parque ambiental ubicado en otra región, respetando las distancias establecidas en el artículo 9 del presente reglamento y el plan municipal de gestión integral de residuos, será necesaria una justificación técnica que respalde esta decisión.
+Como mínimo, la justificación debe contener:
+1. Análisis técnico y económico que compare las alternativas disponibles, demostrando que la opción propuesta es la más viable en términos de costos operativos y eficiencia.
+2. Impactos potenciales y las medidas de mitigación para minimizar efectos negativos en la zona de origen y de destino.
+3. Proyección de volúmenes de residuos a trasladar, considerando la generación actual y futura en la región de origen.
+4. Acciones de reducción y valorización implementadas antes de la disposición final, detallando su impacto en la minimización de residuos transportados.
+5. Capacidad del sitio receptor.
+6. Plan logístico y de transporte, incluyendo rutas, frecuencias y mecanismos de monitoreo para asegurar la trazabilidad y minimizar el impacto del traslado.
+7. Acuerdos intermunicipales o contratos con operadores privados, si aplican. El Ministerio de Salud brindará apoyo técnico y supervisión en la implementación de estas acciones, garantizando que los sitios de separación, tratamiento, aprovechamiento y disposición final de residuos cumplan con el decreto ejecutivo No. 44421-S Reglamento de parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos de fecha 4 de marzo del 2024.

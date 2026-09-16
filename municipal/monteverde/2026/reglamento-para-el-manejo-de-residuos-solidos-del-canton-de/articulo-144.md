@@ -1,0 +1,17 @@
+CAPÍTULO XVIII
+Prohibiciones
+Artículo 144. Prohibiciones Absolutas. Se prohíbe absolutamente a los generadores de residuos, físicos o jurídicos, públicos o privados, o a cualquier otra persona, realizar las siguientes acciones:
+a) Depositar residuos en los cuerpos de agua, sus áreas de protección, laderas, terrenos desocupados, lotes o predios, edificaciones en ruinas, en la vía pública, sitios públicos (alcantarillas, calles, aceras, carreteras, derechos de vía, parques, áreas de juegos infantiles, áreas comunales) o cualquier otro sitio, público o privado, que no haya sido autorizado para tal fin por la Municipalidad.
+b) Colocar en el caño los residuos para ser recolectados por el sistema municipal de recolección.
+c) Quemar, incinerar, enterrar, almacenar o acumular al aire libre, sin ningún tipo de tratamiento preventivo, cualquier tipo de residuo.
+d) Colocar los residuos en el sitio de recolección con más de 12 horas de antelación al horario que establezca la Municipalidad o fuera del horario de recolección siempre y cuando exista un mecanismo de contención y no queden expuestos al ambiente, en caso no existir este método de contención el plazo no podrá ser mayor a 2 horas.
+e) Disponer los residuos en empaques no autorizados por este reglamento o que se encuentren rotos.
+f) Disponer de residuos sin empacar (excepto cuando se trata de residuos voluminosos).
+g) No contar con un sistema de almacenamiento colectivo de residuos en el caso de ser un generador que los deba utilizar según se determina en el Artículo 60 del presente reglamento.
+h) Remover las bolsas o recipientes contenedores de cualquier tipo de residuo, o extraer el contenido total o parcial de estos recipientes, una vez colocados en el sitio de recolección.
+i) Entregar cualquier tipo de residuos a personas físicas o jurídicas, vehículos o lugares no autorizados para la recepción de los mismos.
+j) Transportar y/o arrastrar todo tipo de residuo en carretillo, carreta, vehículos, camiones o cualquier otro artefacto no autorizado, para ser depositados en lugares no autorizados.
+k) Gestionar, almacenar, valorizar, tratar y disponer de residuos ordinarios en condiciones contrarias a las establecidas o en lugares no autorizados o aprobados por las autoridades competentes y el presente reglamento.
+l) Transportar al descubierto residuos biodegradables, que generen polvo o que puedan dejar caer objetos que puedan dañar a personas o vehículos en las vías públicas, en concordancia con la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, publicada el 26 de octubre de 2012.
+m) Acumular materiales, escombros de construcción, o cualquier residuo u objeto en la vía pública, en concordancia con el Artículo 47 inciso l) del presente reglamento y en concordancia con el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo, publicado el 22 de marzo de 2018, la Ley de Igualdad de Oportunidades para las Personas con Discapacidad No. 7600, publicada el 29 de mayo de 1996, así como cualquier otra normativa aplicable.
+n) En el caso de los residuos líquidos, aguas residuales y lixiviados vertidas a cuerpos de agua naturales, acequias, quebradas, ríos o similares, así como en el alcantarillado pluvial, estos deberán cumplir con los estándares que establece el Reglamento de Vertido y Reúso de Aguas Residuales, Decreto Ejecutivo Nº 33601-MINAE-S, publicado el 19 de marzo de 2007, y cualquier otra normativa conexa que al respecto se genere.

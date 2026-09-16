@@ -1,0 +1,1 @@
+Artículo 25. Residuos de Jardín. Corresponde a residuos del mantenimiento y podas de jardines o zonas verdes e incluye zacate, hojas, tallos raíces y ramas, frutos, y demás componentes de las plantas.

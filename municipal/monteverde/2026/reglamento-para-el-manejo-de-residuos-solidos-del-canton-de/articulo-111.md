@@ -1,0 +1,1 @@
+Artículo 111. Incumplimiento por parte del Usuario. Cuando se verifique el incumplimiento de las disposiciones contenidas en el art. 110. del presente reglamento, se mantendrá el cobro del servicio de limpieza de vías, por no ser responsabilidad de la Municipalidad la imposibilidad material para poder brindar el servicio.

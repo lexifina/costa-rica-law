@@ -1,0 +1,1 @@
+Artículo 12. Atribuciones del responsable de Limpieza de Vías. Es atribución y deber de la Unidad de Gestión Ambiental, a través de su personal y en coordinación con otras unidades municipales, de conformidad con su competencia, realizar la limpieza de vías en las vías públicas del Cantón. Los lineamientos de este servicio se establecen en el Capítulo XIV del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 35. Restos de Animales en la Vía Pública. La Municipalidad proveerá la gestión sanitaria de animales muertos que se encuentren en la vía pública o espacios públicos y cuyo generador se desconozca. Se prohíbe mezclar residuos ordinarios con restos de animales.

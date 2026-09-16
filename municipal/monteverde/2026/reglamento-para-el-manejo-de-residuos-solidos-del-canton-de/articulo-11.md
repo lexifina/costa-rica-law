@@ -1,0 +1,2 @@
+Artículo 11. Atribuciones del responsable de Mantenimiento de Zonas Verdes y Espacios Públicos.
+Es atribución y deber de la Unidad de Gestión Ambiental a través de su personal y en coordinación con otras unidades municipales, de conformidad con su competencia, realizar la limpieza de zonas verdes en lugares donde existen áreas de parques, juegos infantiles y zonas comunales sin construir, siempre ue sean propiedad municipal. Los lineamientos de este servicio se establecen en el Capítulo XIII del presente reglamento.

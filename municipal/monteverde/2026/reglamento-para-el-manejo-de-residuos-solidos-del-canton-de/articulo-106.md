@@ -1,0 +1,1 @@
+Artículo 106. La Municipalidad en cooperación con el Ministerio de Salud y demás instituciones pertinentes, deberán levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.

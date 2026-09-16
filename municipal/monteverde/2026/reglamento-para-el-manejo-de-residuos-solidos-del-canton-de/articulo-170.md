@@ -1,0 +1,2 @@
+Artículo 170. Fiscalización del cumplimiento del Plan Municipal de Gestión Integral de Residuos.
+Las Direcciones de Áreas Rectoras de Salud, anualmente deben presentar un informe detallado sobre el estado de cumplimiento del Plan Municipal de Gestión Integral de Residuos, incluyendo el cumplimiento al porcentaje anual de separación de los residuos orgánicos, el cual será remitido a la Contraloría General de la República para que esta proceda según sus competencias en la aplicación de medidas o acciones correspondientes a las Municipalidades que incumplan con este Plan.

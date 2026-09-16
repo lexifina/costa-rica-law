@@ -1,0 +1,1 @@
+Artículo 180. Divulgación. La Municipalidad tiene la responsabilidad de divulgar adecuadamente el presente reglamento una vez aprobado. Cualquier modificación posterior deberá seguir un procedimiento de consulta a la ciudadanía, publicación y difusión.

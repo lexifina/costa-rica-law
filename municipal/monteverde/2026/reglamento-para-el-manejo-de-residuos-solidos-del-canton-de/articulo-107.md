@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Servicio de Mantenimiento de Zonas Verdes y Espacios Públicos
+Artículo 107. Descripción del Servicio. La Municipalidad brindará el servicio de mantenimiento de zonas verdes en lugares donde existen áreas de parques, juegos infantiles o facilidades comunales sin construir, siempre que sean propiedad municipal. El servicio de mantenimiento de zonas verdes consiste en barrido, corta de césped, poda de árboles, arbustos y otros tipos de plantas, y recolección de los residuos producto de estas actividades. La Municipalidad podrá prestar este servicio con su propio equipo y personal, o podrá contratar los servicios de entidades externas para que presten este servicio en áreas definidas.

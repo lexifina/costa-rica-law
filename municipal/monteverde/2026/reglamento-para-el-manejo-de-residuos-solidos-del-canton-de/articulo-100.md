@@ -1,0 +1,1 @@
+Artículo 100. Fiscalización. La Municipalidad tendrá la potestad de realizar la fiscalización del cumplimiento de las condiciones estipuladas en la legislación vigente y podrá realizar las denuncias por incumplimiento ante las autoridades pertinentes.

@@ -1,0 +1,5 @@
+Artículo 66. Tipos de Gestores de Residuos. Los gestores de residuos en el cantón de Monteverde se clasifican de la siguiente manera:
+a) Gestores de Residuos Ordinarios: Son aquellos gestores que realizan el manejo de los residuos ordinarios, valorizables y no valorizables, tanto a nivel domiciliar, como comercial, industrial o de grandes generadores.
+b) Gestores de Residuos Voluminosos: Son aquellos gestores que realizan el manejo de residuos voluminosos o no tradicionales, o de residuos de construcciones y demoliciones.
+c) Gestores de Residuos Electrónicos: Son aquellos gestores especializados en el manejo de residuos electrónicos, según lo dispone el Reglamento para la Gestión Integral de Residuos Electrónicos Nº 35933-S.
+d) Gestores de Residuos de Manejo Especial y/o Peligrosos: Son aquellos gestores especializados en la gestión de residuos de manejo especial y residuos peligrosos, acorde a la Ley para la Gestión Integral de Residuos No. 8839, el Reglamento para la Declaratoria de Residuos de Manejo Especial No. 38272-S y el Reglamento General para la Clasificación y Manejo de Residuos Peligrosos No. 41527 -S-MINAE.

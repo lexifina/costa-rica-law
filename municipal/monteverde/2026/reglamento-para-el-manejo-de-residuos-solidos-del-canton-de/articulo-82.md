@@ -1,0 +1,2 @@
+Artículo 82. Función. Los centros de recuperación tendrán la función de almacenar temporalmente el material valorizable recuperado por el servicio de recolección de residuos valorizables o el material que los generadores del Cantón entreguen directamente en las instalaciones de los centros de recuperación.
+En estas instalaciones también se llevarán a cabo actividades de clasificación y preparación de los residuos valorizables.

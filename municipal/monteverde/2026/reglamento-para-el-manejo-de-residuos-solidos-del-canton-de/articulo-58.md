@@ -1,0 +1,1 @@
+Artículo 58. Transeúntes. Es responsabilidad de todo transeúnte no lanzar sus residuos en vía pública o sitios privados, excepto en lugares donde existan recipientes para tal fin. Debe prevalecer el principio de evitar la generación de residuos.

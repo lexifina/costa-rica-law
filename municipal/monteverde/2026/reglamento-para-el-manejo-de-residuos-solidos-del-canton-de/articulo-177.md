@@ -1,0 +1,2 @@
+Artículo 177. Consulta. De conformidad con lo establecido en el Artículo 43 del Código Municipal No. 7794, este reglamento se somete a consulta pública no vinculante por un lapso de diez días hábiles. Los interesados en hacer oposiciones al mismo, deberán dirigir sus planteamientos por escrito, en memorial razonado, ante la Secretaría del Concejo Municipal de la Municipalidad de Monteverde.
+Vencido este plazo, se evaluarán las observaciones recibidas y debidamente se incorporarán las que sean pertinentes y el nuevo texto será sometido a conocimiento del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 38. Gestores Autorizados. La única forma autorizada para la entrega y disposición de residuos de cualquier tipo es la que se detalla en el presente reglamento, por lo tanto, queda absolutamente prohibido entregar los residuos de cualquier categoría a gestores no autorizados por el Ministerio de Salud, y según las estipulaciones del Capítulo VI del presente reglamento.

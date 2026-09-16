@@ -1,0 +1,1 @@
+Artículo 175. La municipalidad de Monteverde deberá acatar las especificaciones técnicas y las metas de cumplimiento cobertura de recolección de residuos sólidos tanto valorizables como orgánicos acorde a lo especificado en el decreto ejecutivo No. 44974-S, en su artículo No. 14 anexo 1.

@@ -1,0 +1,1 @@
+Artículo 78. Sitios de Acopio de Residuos. El sitio de disposición temporal de residuos en el proceso de construcción, debe cumplir con los requisitos legales y evitar ser una molestia para los vecinos y los trabajadores, por lo que se prohíbe colocar este tipo de residuos sobre vía pública, aceras o lotes desocupados o no construidos.

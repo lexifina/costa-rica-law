@@ -1,0 +1,1 @@
+Artículo 118. Recargo por Morosidad. En caso de que el pago se realice fuera del término establecido, generará el cobro de los intereses, el cual será fijado según lo dispuesto en los Artículos 78 del Código Municipal No. 7794 y 57 del Código de Normas y Procedimientos Tributarios No. 4755.

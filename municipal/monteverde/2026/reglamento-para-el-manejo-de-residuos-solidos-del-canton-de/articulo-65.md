@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Gestores de Residuos
+Artículo 65. Garantía de Otorgamiento del Servicio. La Municipalidad garantizará que en el Cantón se provea el servicio de gestión de residuos en forma selectiva, accesible, periódica y eficiente para todos los generadores. De la misma manera, promoverá la colocación de sistemas alternativos para la recolección selectiva de residuos valorizables como contenedores o receptores. La Municipalidad podrá realizar la recolección de residuos con su propio equipo y personal, o podrá contratar los servicios de entidades externas para que presten este servicio en áreas definidas siempre que estén registrados como gestor autorizado por el Ministerio de Salud.

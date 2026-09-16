@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Disposición Final de los Residuos
+Artículo 98. Sitios de Disposición Final. Los residuos no valorizables solamente pueden ser depositados mediante un gestor autorizado acorde a las disposiciones del Reglamento de parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, decreto No. 44421-S. La Municipalidad podrá evaluar otras alternativas tecnológicas para la disposición de los residuos ordinarios no valorizables que se consideren factibles técnica y económicamente y que vayan de acuerdo con los objetivos del Plan Municipal de Gestión Integral de Residuos y con los valores de la Municipalidad.

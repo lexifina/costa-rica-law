@@ -1,0 +1,3 @@
+CAPÍTULO X
+Centros de Recuperación y Almacenamiento Temporal de Residuos
+Artículo 81. Centros de Recuperación y Almacenamiento Temporal. La Municipalidad tiene la facultad de instalar y operar centros de recuperación de materiales valorizables para la acumulación, clasificación, preparación y comercialización de los residuos. La Municipalidad promoverá la construcción, manejo y sostenibilidad de este tipo de centros de recuperación en el Cantón. Los centros de recuperación adoptarán el modelo de administración que más convenga a la Municipalidad, pudiendo ser de administración municipal, manejados en conjunto con terceros previamente calificados, manejados bajo una figura de alianza público-privada, como lo indica la Ley para la Gestión Integral de Residuos No. 8839.

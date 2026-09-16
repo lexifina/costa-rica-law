@@ -1,0 +1,1 @@
+Artículo 88. Fiscalización. La Municipalidad, a través de la Unidad de Gestión Ambiental, establecerá un registro de los centros de recuperación de residuos valorizables en el Cantón y fiscalizará su operación en conjunto con el Ministerio de Salud.
