@@ -15,3 +15,4 @@ Reglamento para el funcionamiento y operación del Centro de Cuido y Desarrollo 
 | --- | --- | --- |
 | 1 | 2013-10-03 | la propia norma |
 | 2 | 2015-06-08 | Reglamento municipal 23 (2015-06-08) |
+| 3 | 2026-09-16 | Reglamento municipal 0 (2026-09-16) |
