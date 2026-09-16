@@ -1,0 +1,2 @@
+Artículo 6º. —Inventario del Almacén Municipal: Como ejercicio de supervisión del Almacén se practicarán los inventarios de existencias de manera semestral, independientemente de las revisiones selectivas que se efectúen en cada almacén, todo ello conforme lo estipule el manual respectivo que se emita y que, para todos los efectos del caso, se tenga como normativa
+complementaria de aplicación en su campo.

@@ -1,0 +1,2 @@
+Artículo 16º. —De las convocatorias: las convocatorias para sesionar de forma ordinaria serán notificadas a los miembros del comité mediante el uso del correo electrónico institucional, con al menos cinco días hábiles de anticipación, indicando el lugar, fecha y hora de la sesión, así como el orden del día y documentos complementarios requeridos.
+Para sesiones extraordinarias, las convocatorias deberán realizarse al menos con dos días de anticipación, indicando el lugar, fecha y hora de la sesión, así como el orden del día y documentos complementarios requeridos.

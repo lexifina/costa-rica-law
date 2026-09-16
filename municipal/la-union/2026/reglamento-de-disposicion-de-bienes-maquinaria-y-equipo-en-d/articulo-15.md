@@ -1,0 +1,8 @@
+Artículo 15º.—Forma de sesionar: El comité sesionará de manera ordinaria y extraordinaria.
+Las sesiones ordinarias se llevarán a cabo al menos dos veces al año, conforme la convocatoria que realice el coordinador y en las que se atenderán asuntos programados y su seguimiento. En sesiones extraordinarias que podrán ser convocadas en cualquier momento, por parte del presidente o coordinador, conforme a las necesidades que se presenten para la atención de asuntos de carácter extraordinario y de alta importancia.
+Las sesiones podrán realizarse en forma presencial o virtual, dependiendo de la solicitud que realice el coordinador o por al menos dos de los miembros del comité.
+De cada sesión se levantará un acta, siguiendo el orden del día, la cual estará a cargo del secretario del comité y cuyos acuerdos adquirirán firmeza una vez formalizada, mediante firma, dicha acta.
+Las sesiones del comité podrán contar con la participación de otros funcionarios de la Institución cuando se estime necesaria y oportuna su presencia para ampliar información requerida en el proceso de toma de decisiones.
+Asimismo, el Comité podrá contar con la participación de asesores, expertos y/o especialistas externos en calidad de invitados, a efecto de que emitan consideraciones y/o sugerencias de orden técnico que permitan ampliar la información de la cual se dispone para decidir sobre determinado asunto.
+Los funcionarios, asesores, expertos y/o especialistas externos invitados, no tendrán derecho a voto.
+El comité de disposición de bienes, maquinaria y equipo en desuso contará con el apoyo logístico y administrativo de un rol secretarial, rol que será ejecutado por la persona que ocupe el puesto de secretaria de Proveeduría, o quien Proveeduría designe para este rol.

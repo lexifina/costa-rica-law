@@ -1,0 +1,1 @@
+Artículo 17º. —Del Quórum para sesionar: Para que las sesiones del comité se consideren legalmente constituidas, será necesaria la presencia de al menos la mitad más uno de sus miembros. La participación de sus miembros podrá realizarse de forma física o de manera virtual mediante el uso de herramientas tecnológicas establecidas por parte de la Institución para este fin.

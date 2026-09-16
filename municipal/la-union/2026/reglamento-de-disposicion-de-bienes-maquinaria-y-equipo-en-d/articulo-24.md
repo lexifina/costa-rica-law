@@ -1,0 +1,1 @@
+Artículo 24º. —Ejecución de acuerdos de disposición final: Luego de aprobada el acta del comité por parte de sus miembros, la ejecución de acuerdos será responsabilidad del almacén municipal mediante coordinación con las unidades competentes para tales fines según sea la disposición final acordada por el comité.

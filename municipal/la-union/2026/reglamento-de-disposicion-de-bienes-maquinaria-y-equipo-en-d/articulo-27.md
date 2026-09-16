@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 27º. —Observancia del Reglamento: Es obligación de todos los servidores municipales cumplir con la totalidad de las disposiciones que se establecen en el presente Reglamento, en concordancia con el principio de legalidad establecido en al artículo 11 de la Constitución Política de la República, así como con lo dispuesto en el artículo 156 del Código Municipal y el artículo 11 de la Ley General de la Administración Pública.
+El Almacén o cualquier colaborador velará por el debido cumplimiento del presente Reglamento, y en el caso de que se detecte cualquier infracción, se procederá de inmediato a informar por escrito a las dependencias administrativas correspondientes, para que se valore la calidad de la falta, la misma se valorará de conformidad con la naturaleza del acto y sus consecuencias, aplicando de ser el caso, lo dispuesto en artículo 26 del presente reglamento.

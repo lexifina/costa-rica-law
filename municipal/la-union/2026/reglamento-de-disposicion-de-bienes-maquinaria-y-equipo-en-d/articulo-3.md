@@ -1,0 +1,1 @@
+Artículo 3°. —Ámbito de aplicación: Este reglamento regula la disposición final de bienes, maquinaria y equipo en desuso resguardado en el Almacén Municipal y sus normas son de obligatorio cumplimiento para los funcionarios y usuarios de sus servicios.
