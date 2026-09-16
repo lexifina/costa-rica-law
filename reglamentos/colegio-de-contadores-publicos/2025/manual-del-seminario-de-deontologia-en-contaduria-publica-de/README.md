@@ -14,3 +14,4 @@ Manual del Seminario de Deontología en Contaduría Pública del Colegio de Cont
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-09-12 | la propia norma |
+| 2 | 2026-09-16 | Reglamento 16 (2026-09-16) |
