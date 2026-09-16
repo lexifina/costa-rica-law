@@ -1,0 +1,2 @@
+Artículo 22.- Depósito y Garantías de Cumplimiento.
+Como requisito imprescindible para la autorización de cualquier evento masivo, espectáculo o actividad de naturaleza privada o lucrativa, la persona organizadora deberá rendir un depósito o garantía de cumplimiento previo otorgamiento de la autorización de uso correspondiente. Dicho instrumento servirá para respaldar económicamente a la Municipalidad y la administración del estadio ante eventuales daños a la infraestructura o incumplimientos en la limpieza y el orden.

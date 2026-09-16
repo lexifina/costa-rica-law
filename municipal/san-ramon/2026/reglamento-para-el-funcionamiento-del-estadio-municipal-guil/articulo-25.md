@@ -1,0 +1,8 @@
+CAPÍTULO VIII
+RÉGIMEN DISCIPLINARIO Y DEBIDO PROCESO
+Artículo 25.- Clasificación de infracciones.
+Las transgresiones al presente Reglamento se clasifican jerárquicamente en leves, graves y muy graves, atendiendo al nivel de lesividad al patrimonio de la Municipalidad de San Ramón, el grado de dolo o culpa de la persona infractora, y el impacto sobre la continuidad del servicio público:
+a. Infracciones Leves: Aquellas conductas omisivas o activas que contravengan las directrices operativas dictadas por la Administración del Estadio, siempre que no causen daño material a la infraestructura ni afecten el normal desarrollo de los eventos programados.
+b. Infracciones Graves: La reincidencia en la comisión de faltas leves dentro de un mismo año calendario; el incumplimiento injustificado de los horarios de uso asignados en la agenda oficial; la omisión en la ejecución del Plan de Gestión Integral de Residuos Sólidos; y la alteración del orden público por negligencia en los controles internos del Organizador.
+c. Infracciones Muy Graves: Constituyen faltas de máxima gravedad y de resolución inmediata: la cesión, préstamo, traspaso o subarriendo —total o parcial, oneroso o gratuito— de
+los derechos de uso o espacios asignados sin la autorización expresa y escrita de la Administración; el daño material, deterioro o menoscabo doloso o culposo a la infraestructura, equipamiento o al terreno de juego (gramilla); el ingreso no autorizado de maquinaria pesada o vehículos automotores; la superación consciente del aforo máximo permitido; y la realización de actividades comerciales o lucrativas que carezcan de los permisos sanitarios vigentes.

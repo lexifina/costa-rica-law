@@ -1,0 +1,3 @@
+Artículo 17.- Prohibición de Cesión y Subarriendo.
+Los derechos de uso otorgados son de carácter estrictamente personal e intransferible. Queda absolutamente prohibido ceder, prestar, donar, traspasar o subarrendar, total o parcialmente, el espacio asignado a terceras personas o entidades, sin la previa y expresa autorización por escrito de la Administración del Estadio.
+El incumplimiento de esta disposición se tipifica como una falta muy grave, lo cual facultará a la Administración para declarar la revocatoria de la autorización de uso o la revocación inmediata del permiso, procediendo con el desalojo y sin perjuicio del cobro de los daños y perjuicios que correspondan mediante el procedimiento administrativo respectivo.

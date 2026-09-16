@@ -1,0 +1,4 @@
+Transitorio III.- Adecuación de los Permisos y Contratos Vigentes.
+Toda persona física, jurídica o club deportivo que, a la fecha de entrada en vigencia de este Reglamento, se encuentre haciendo uso de las instalaciones del Estadio al amparo de un permiso, contrato o autorización previa, contará con un plazo de gracia de treinta (30) días hábiles para adecuar su condición a las nuevas disposiciones normativas.
+Esto incluye, la suscripción de los nuevos formatos de autorización de uso, la rendición de los depósitos de garantía mediante los instrumentos autorizados y la presentación de las pólizas de responsabilidad civil exigidas. Vencido este plazo sin que se haya cumplido con la adecuación, la Administración podrá iniciar el procedimiento administrativo correspondiente para dejar sin efecto la autorización, garantizando el debido proceso.
+San Ramón, 09 de julio de 2026

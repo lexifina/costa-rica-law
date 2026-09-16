@@ -1,0 +1,7 @@
+Artículo 12.- Modalidades de uso.
+El uso del Estadio Municipal podrá autorizarse bajo las siguientes modalidades:
+a. Autorización de uso temporal: Para la realización de eventos o actividades específicas por un plazo determinado.
+b. Autorización de uso por temporada: Para la asignación de horarios y espacios destinados al desarrollo continuo de entrenamientos, competencias u otras actividades deportivas durante una temporada, conforme a la programación de la Administración del Estadio.
+c. Permiso de uso en precario: Acto administrativo unilateral, de carácter gratuito, otorgado para actividades de corta duración o uso esporádico. Por su naturaleza, será esencialmente precario y revocable en cualquier momento por razones de interés público o de urgencia operativa, sin que ello genere derechos adquiridos ni responsabilidad indemnizatoria para la Municipalidad o la Administración del Estadio.
+d. Permiso de uso por cooperación: Acto administrativo de carácter gratuito otorgado a instituciones públicas, asociaciones de desarrollo u organizaciones sin fines de lucro, para la realización de actividades de interés público orientadas al fomento del deporte, la recreación, la cultura o el desarrollo comunal.
+Las autorizaciones de uso temporal y por temporada estarán sujetas al pago de los cánones aprobados por el Concejo Municipal. Los permisos de uso en precario y por cooperación serán de carácter gratuito.

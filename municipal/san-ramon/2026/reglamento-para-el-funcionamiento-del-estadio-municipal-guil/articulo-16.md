@@ -1,0 +1,3 @@
+Artículo 16.- Prohibición de Ventas Ambulantes y Comercialización no Autorizada.
+En el ejercicio de las potestades de control y seguridad del recinto, queda terminantemente prohibida la comercialización no autorizada de productos, alimentos, bebidas o mercancías promocionales ( merchandising ) dentro de las instalaciones del Estadio y en sus zonas de acceso perimetral.
+Toda actividad comercial o lucrativa deberá estar expresamente autorizada por la Administración. El incumplimiento de esta disposición se considerará falta grave y facultará a la Administración y a la Policía Municipal para proceder con la suspensión inmediata de la actividad, el desalojo de los infractores y el decomiso de la mercadería.

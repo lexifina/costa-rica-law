@@ -1,0 +1,6 @@
+CAPÍTULO VII
+RÉGIMEN ECONÓMICO Y GARANTÍAS FINANCIERAS
+Artículo 21.- Fijación de Tarifas y Actualización.
+El establecimiento de las tarifas, los cánones y los precios públicos aplicables por el uso, la concesión de espacios, publicidad en el estadio o los derechos de transmisión en el Estadio, entre otros; es una potestad exclusiva e indelegable del Concejo Municipal.
+La fijación de tarifas deberá fundamentarse en estudios técnicos, económicos y financieros que permitan determinar criterios objetivos relacionados con los costos de administración, mantenimiento, conservación, operación y mejora del inmueble, garantizando en todo momento los principios de razonabilidad, proporcionalidad, igualdad y sostenibilidad financiera.
+Para garantizar la viabilidad económica y el mantenimiento óptimo de las instalaciones, el órgano administrador tendrá la obligación perentoria de presentar anualmente, para su respectiva aprobación, una propuesta de actualización tarifaria debidamente fundamentada con un estudio técnico. Esta propuesta deberá estar indexada de conformidad con la tasa de inflación o el Índice de Precios al Consumidor (IPC) emitido por el Instituto Nacional de Estadística y Censos (INEC).

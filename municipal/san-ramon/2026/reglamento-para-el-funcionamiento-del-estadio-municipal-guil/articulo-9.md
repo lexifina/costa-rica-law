@@ -1,0 +1,5 @@
+Artículo 9.- Uso de las instalaciones por temporada deportiva.
+Las asociaciones deportivas, clubes, ligas, federaciones y demás organizaciones deportivas legalmente constituidas podrán solicitar la asignación de horarios y espacios para el desarrollo de sus entrenamientos, competencias u otras actividades deportivas durante una temporada.
+La programación de los espacios será coordinada con la Administración del Estadio, de acuerdo con la disponibilidad de las instalaciones, el interés público, la adecuada conservación del inmueble y los criterios de distribución que ésta establezca.
+La autorización de uso por temporada no confiere derechos exclusivos sobre las instalaciones, podrá ser modificada cuando así lo exijan razones de interés público, necesidades institucionales o de mantenimiento, y no genera derecho de permanencia para temporadas posteriores.
+Las personas u organizaciones autorizadas deberán cancelar los cánones, tarifas o contraprestaciones que, para dichos usos, hayan sido fijados y aprobados por el Concejo Municipal, así como cumplir las disposiciones establecidas en este Reglamento y las instrucciones emitidas por la Administración del Estadio.
