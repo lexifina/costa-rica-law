@@ -1,1 +1,6 @@
-Transitorio I.-El RUM regulado en este Reglamento, al requerir de un componente informático, será obligatorio a partir del momento en que la Administración Municipal, haya podido desarrollar todos los sistemas e instrumentos necesarios para su puesta en ejecución y comunique mediante los medios oficiales, que el RUM está en ejecución.
+Transitorio I.—De la obligatoriedad del Registro Único Municipal (RUM) y su puesta en ejecución formal. La Administración Municipal podrá desarrollar, durante el período previo al 1 de febrero de 2027, las fases de implementación progresiva, validación de datos, pruebas funcionales, ajustes operativos, depuración de la información, capacitación institucional y demás actuaciones preparatorias necesarias para la adecuada puesta en funcionamiento del sistema.
+El período comprendido entre la entrada en vigor del presente reglamento y el 31 de enero de 2027 se entenderá como una fase de transición institucional y de gestión progresiva de la implementación del RUM.
+El Registro Único Municipal (RUM) entrará en ejecución formal y resultará obligatorio a partir del 1 de febrero de 2027.
+Durante la fase transitoria previa a dicha fecha, no resultará procedente la imposición de sanciones derivadas de obligaciones vinculadas exclusivamente al funcionamiento obligatorio del sistema RUM.
+Asimismo, la fase de transición no implicará la afectación de derechos adquiridos ni la modificación retroactiva de situaciones jurídicas consolidadas.
+(Así reformado en sesión N° 124 del 16 de setiembre de 2026)

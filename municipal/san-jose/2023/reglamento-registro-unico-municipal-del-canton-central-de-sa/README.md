@@ -14,3 +14,4 @@ Reglamento registro único Municipal del Cantón Central de San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-27 | la propia norma |
+| 2 | 2026-09-16 | Reglamento municipal 124 (2026-09-16) |
