@@ -14,3 +14,4 @@ Reglamentos de espectáculos públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-20 | la propia norma |
+| 2 | 2026-09-17 | Reglamento municipal 191 (2026-09-17) |
