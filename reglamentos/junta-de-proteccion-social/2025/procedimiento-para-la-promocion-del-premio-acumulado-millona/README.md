@@ -15,3 +15,4 @@ Procedimiento para la promoción del Premio Acumulado Millonario con los sorteos
 | --- | --- | --- |
 | 1 | 2026-02-16 | la propia norma |
 | 2 | 2026-04-13 | Reglamento 18 (2026-04-13) |
+| 3 | 2026-09-18 | Reglamento 0 (2026-09-18) |
