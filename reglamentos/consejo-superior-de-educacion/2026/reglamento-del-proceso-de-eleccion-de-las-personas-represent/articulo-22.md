@@ -1,0 +1,1 @@
+Artículo 22.- Cierre de la jornada electoral. Una vez concluida la votación y comunicados los resultados oficiales para cada cargo en elección, en la sesión presencial convocada para ello, se dará por finalizada la jornada electoral correspondiente.
