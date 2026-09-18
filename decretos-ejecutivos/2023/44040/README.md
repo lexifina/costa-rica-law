@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de certificados de nacionalidad para obras cinem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-29 | la propia norma |
+| 2 | 2026-09-18 | Decreto Ejecutivo 45943 (2026-09-18) |
