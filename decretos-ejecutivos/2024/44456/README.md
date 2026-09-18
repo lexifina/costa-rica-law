@@ -14,3 +14,4 @@ Reglamento del fondo para el fomento audiovisual y cinematográfico El Fauno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-28 | la propia norma |
+| 2 | 2026-09-18 | Decreto Ejecutivo 45943 (2026-09-18) |
