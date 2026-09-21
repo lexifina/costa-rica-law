@@ -1,1 +1,0 @@
-Artículo 5º-Propiedades de condueños. Cuando una propiedad pertenezca a varios condueños, cada uno pagará una parte de las tasas de los respectivos servicios, proporcionalmente a su derecho sobre el inmueble.
