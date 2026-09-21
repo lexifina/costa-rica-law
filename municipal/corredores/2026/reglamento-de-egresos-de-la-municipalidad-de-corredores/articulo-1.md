@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE CORREDORES
+El Concejo Municipal de Corredores, mediante el acuerdo N°14 aprobado por el Concejo Municipal de Corredores en sesión ordinaria N°104, celebrada el día 08 de junio del año 2026, acuerda por unanimidad aprobar y publicar por única vez la Reforma Integral del Reglamento de Egresos de la Municipalidad De Corredores
+En ejercicio de las facultades conferidas por el artículo 13, inciso e), del Código Municipal, el Concejo Municipal acuerda emitir la reforma integral del Reglamento de Egresos de la Municipalidad de Corredores, con base en el artículo 112 del Código Municipal y en los procedimientos de pago adoptados conforme a la normativa vigente.
+Artículo 1º—Este reglamento regula la competencia del Alcalde Municipal en cuanto la autorización y ejecución de los egresos de la Municipalidad de Corredores, que no estén sujetos a la aprobación del Concejo Municipal.

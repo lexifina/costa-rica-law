@@ -1,0 +1,1 @@
+Artículo 11º—Todos los egresos municipales deberán contar con la autorización del Alcalde o de quien lo sustituya, conforme a lo dispuesto en los artículos 89 y 90 de la Ley General de Administración Pública.

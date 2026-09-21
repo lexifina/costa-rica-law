@@ -1,0 +1,1 @@
+Artículo 3º—La ejecución de los egresos estará sujeta a las disposiciones de la Ley General de Contratación Pública (No. 9988) y su Reglamento, así como a las resoluciones, directrices y normativas emitidas por la Contraloría General de la República.

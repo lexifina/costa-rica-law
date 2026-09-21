@@ -1,0 +1,1 @@
+Artículo 10º—El Tesorero Municipal, o quien designe el Alcalde, será responsable del adecuado manejo de la Caja Chica, asegurando su uso eficiente, eficaz y transparente. Deberá implementar mecanismos de control y mantener actualizado el instrumento institucional de operación correspondiente.
