@@ -2,4 +2,5 @@ Artículo 14.-De los requisitos para el Reconocimiento "Ciudadana o Ciudadano Di
 a) Ser mayor de edad.
 b) Ser una persona residente del cantón de Goicoechea por al menos en forma permanente y continua, con un mínimo de diez años de residencia.
 c) Haber trabajado en cualquier campo del quehacer nacional, cantonal o comunal de forma destacada y continua.
-d) Que el trabajo nacional, cantonal o comunal realizado de forma voluntaria, represente un aporte aporte excepcional para el desarrollo o mejoramiento cualitativo del área en que se desempeñó y goce de reconocimiento público.
+d) Que el trabajo nacional, cantonal o comunal realizado de forma voluntaria, represente un aporte para el desarrollo o mejoramiento cualitativo del área en que se desempeñó y goce de reconocimiento público.
+(Así reformado el inciso anterior en sesión N° 38 del 21 de setiembre de 2026)

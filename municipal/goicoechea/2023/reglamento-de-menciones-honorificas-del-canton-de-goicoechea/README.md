@@ -14,3 +14,4 @@ Reglamento de menciones honoríficas del Cantón de Goicoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-17 | la propia norma |
+| 2 | 2026-09-21 | Reglamento municipal 38 (2026-09-21) |
