@@ -1,6 +1,0 @@
-CAPÍTULO IV
-Disposiciones relacionadas con el desarrollo
-de la actividad de tiro
-Artículo 20.-Uso del Campo de Tiro. El Campo de Tiro será utilizado exclusivamente para la capacitación, entrenamiento, prácticas de tiro diurno y nocturno y actividades relacionadas con la materia de armas de fuego. Además tendrán preferencia para su uso, el personal policial y el armero del Organismo de Investigación Judicial, los instructores oficiales designados, el personal de la Sección de Pericias Físicas, el personal de otros despachos judiciales que por la índole de sus funciones deba utilizar armas de fuego y cualquier servidor del Poder Judicial bajo las previsiones del caso y tomando las seguridades correspondientes.
-Las actividades de uso del Campo de Tiro deben ser programadas con anticipación y hacerse del conocimiento de la administración del mismo. En casos de urgencia, en los que no fuere posible la programación previa, se podrá autorizar el uso del Campo de Tiro a los peritos del Departamento de Ciencias Forenses para la realización de estudios y análisis periciales.
-Cualquier otra actividad no programada, quedará sujeta de manera secundaria a la disponibilidad de tiempo y espacio por parte del Instructor y el Encargado del Campo de Tiro.

@@ -1,1 +1,0 @@
-Artículo 18.-Zona de ingreso. Para ingresar al Campo de Tiro, se designa una sola entrada ubicada al costado sur del mismo. Se encuentre en uso o no, se debe reportar todo ingreso al Encargado del Campo de Tiro o en su defecto al personal de seguridad.

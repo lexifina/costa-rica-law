@@ -1,1 +1,0 @@
-Artículo 7°-Encargado del Campo de Tiro. El Encargado del Campo de Tiro será designado por el Secretario General del Organismo de Investigación Judicial y será su representante en el lugar. Este Encargado deberá poseer conocimientos generales básicos de armas de fuego y reglas de seguridad, así como conocimientos básicos y certificados de primeros auxilios.

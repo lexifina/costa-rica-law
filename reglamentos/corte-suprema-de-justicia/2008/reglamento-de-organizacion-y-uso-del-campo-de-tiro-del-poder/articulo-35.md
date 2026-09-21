@@ -1,1 +1,0 @@
-Artículo 35.-Ejercicios con alto grado de dificultad. En los ejercicios tácticos donde se requiera la participación simultánea de dos o más tiradores o cuyos niveles de dificultad sean mayores, cada tirador deberá ser acompañado por un instructor o asistente quien durante los ejercicios permanecerá ubicado siempre detrás del tirador.

@@ -1,2 +1,0 @@
-Artículo 26.-Equipo de protección personal. Toda persona que ingrese al Campo de Tiro, tirador o no, debe portar los lentes y protectores de oídos respectivos. En los casos de capacitación, la Escuela Judicial, a través de los Instructores, se encargará de suministrar este tipo de implementos.
-Una vez ubicado en la línea de tiro, cualquier persona que se encuentre en el Campo de Tiro debe asegurarse de utilizar protectores visual y auditivo. En caso del uso de armas cortas, debe utilizarse aditamentos como fundas y porta cargadores.

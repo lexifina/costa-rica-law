@@ -1,2 +1,0 @@
-Artículo 43.-Excepción. Lo dispuesto en el inciso b) del artículo anterior no rige para la realización de estudios o peritaciones forenses; pero, en todo caso, los peritos a cargo deberán informar debidamente al Encargado del Campo de tiro sobre las circunstancias especiales de las pruebas que se requieren realizar, a fin de que se tomen las previsiones correspondientes.
-De ninguna manera se podrán realizar análisis periciales que pongan en riesgo la integridad fisica de los funcionarios de la Institución o de cualquier otra persona.

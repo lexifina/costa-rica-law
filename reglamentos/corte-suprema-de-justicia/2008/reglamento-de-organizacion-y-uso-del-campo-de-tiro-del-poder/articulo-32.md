@@ -1,2 +1,0 @@
-Artículo 32.-Control de las actividades. Toda actividad que se realice en el Campo de tiro, debe contar con un plan de trabajo que facilite la distribución del tiempo adecuadamente y sirva como un proceso de control para el Organo de Administración y el Encargado del Campo de Tiro.
-El plan de trabajo indicado en el párrafo anterior no será necesario para los análisis periciales que requieran pruebas de armas o municiones.

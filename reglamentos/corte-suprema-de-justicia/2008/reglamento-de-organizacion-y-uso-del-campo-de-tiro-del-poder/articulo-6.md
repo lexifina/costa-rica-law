@@ -1,5 +1,0 @@
-Artículo 6°-Obligaciones del Órgano de Administración. Son obligaciones del Organo de Administración del Campo de Tiro del Poder Judicial:
-a) Gestionar ante la Dirección General de Armamento del Ministerio de Seguridad Pública la autorización que establece el artículo 2° del Reglamento para el funcionamiento de polígonos o campos de tiro para armas de fuego permitidas.
-b) Informar por escrito al Ministerio de Seguridad Pública sobre la designación de los Instructores de Tiro que tendrán bajo su responsabilidad la capacitación, los entrenamientos y las prácticas que se realicen en el Campo de Tiro, al igual que cualquier otro cambio de personal que se efectúe.
-c) Velar por el debido acatamiento de las disposiciones que emita la Dirección General de Armamento en tomo a las medidas de seguridad y demás aspectos contemplados en el Reglamento para el funcionamiento de polígonos o campos de tiro para armas de fuego permitidas.
-d) Solicitar a la Dirección General de Armamento la renovación del permiso de funcionamiento del polígono cada vez que éste venza.

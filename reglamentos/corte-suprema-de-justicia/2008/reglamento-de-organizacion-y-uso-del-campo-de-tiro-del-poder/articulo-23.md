@@ -1,1 +1,0 @@
-Artículo 23.-Control de ingreso. Toda persona que ingrese al Campo de Tiro debe ajustarse a las políticas planteadas respecto del uso del mismo y el deber de informarse sobre la reglamentación respectiva. Para ello, la Secretaría General del Organismo de Investigación Judicial se encargará de que la información se encuentre al alcance de todos los usuarios.

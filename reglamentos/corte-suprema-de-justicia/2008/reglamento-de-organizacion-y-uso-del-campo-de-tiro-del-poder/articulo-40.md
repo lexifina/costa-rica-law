@@ -1,7 +1,0 @@
-Artículo 40.-Activación del plan de emergencias. Una vez activado el plan de emergencias, se procederá a aplicar el siguiente procedimiento:
-a) Cualquier actividad que se realice dentro del Campo de Tiro, debe ser suspendida de inmediato con el fin de permitir, sin riesgo alguno, que sea atendida la situación de emergencia.
-b) En el momento que se presente una emergencia, el Encargado y los Instructores del Campo de Tiro procederán a suspender cualquier acción que se estuviere realizando. El personal activo en el lugar debe descargar y guardar las armas que se estén utilizando. Esto según proceda y acatando las órdenes respectivas; con base en el presente Reglamento.
-c) A efecto de garantizar la mejor atención hacia un paciente en caso de emergencia, el Encargado del Campo de Tiro deberá solicitar de inmediato la presencia de personal médico en las instalaciones.
-d) El personal médico indicará si es necesario o no la colaboración de otro personal para la atención primaria del paciente.
-e) Si se tratare únicamente de lesiones leves, el personal paramédico y en su defecto la Unidad de Salud Ocupacional del Complejo de Ciencias Forenses de San Joaquín de Flores, quien previo diagnóstico, coordinará con el Encargado del Campo de Tiro el traslado del paciente a un centro médico. Lo anterior si esto fuere necesario.
-f) Tratándose de una lesión o enfermedad que determine un tratamiento médico inmediato, se coordinará con la Unidad de Salud Ocupacional y personal médico a través del 911, para su atención inmediata y posterior traslado a un centro médico.

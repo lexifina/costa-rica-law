@@ -1,2 +1,0 @@
-Artículo 17.-Sistema de alarma. El Campo de Tiro contará con un sistema de alarma consistente en señales lumínicas giratorias de color rojo y alarma sónica con el objeto de llamar la atención inmediata de cualquier tipo de personal, indicándose una emergencia. Lo anterior sin perjuicio de utilizar además la vía telefónica, radio o cualquier otro tipo de sistema que coadyuve con el plan de emergencia.
-Se dispondrá de una línea telefónica con marcación directa y exclusiva para emergencias.
