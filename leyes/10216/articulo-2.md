@@ -1,0 +1,1 @@
+ARTÍCULO 2- Objetivo. El objetivo de esta ley es propiciar que las entidades públicas, que intervienen en los trámites y requisitos para la construcción de infraestructura del sector, trabajen de manera coordinada y con la mayor celeridad, con el propósito de incentivar la ampliación y la cobertura de las telecomunicaciones de todo el país bajo un marco eficiente y ordenado.

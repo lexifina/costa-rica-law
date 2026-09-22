@@ -1,0 +1,1 @@
+ARTÍCULO 4- Municipalidades. El Poder Ejecutivo, a través del rector de Telecomunicaciones, con los criterios técnicos correspondientes, establecerá vía reglamento las disposiciones técnicas relacionadas con el despliegue de infraestructura de telecomunicaciones, las cuales deberán ser acatadas por todas las municipalidades del país.

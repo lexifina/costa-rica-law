@@ -1,0 +1,1 @@
+TRANSITORIO IV- La Dirección General de Tributación del Ministerio de Hacienda, en el plazo máximo de seis meses a partir de la entrada en vigencia de la presente ley, emitirá la resolución donde se fije el monto del canon por uso de bienes inmuebles públicos.
