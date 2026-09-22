@@ -1,0 +1,1 @@
+Artículo 2º—Propiedad y Fines. La piscina es propiedad exclusiva de la Municipalidad de San Ramón. Su fin primordial es promover el bienestar físico y mental de los habitantes del cantón, mediante la práctica de la natación, actividades acuáticas recreativas, terapéuticas y el desarrollo de atletas de alto rendimiento.

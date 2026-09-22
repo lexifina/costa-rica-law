@@ -1,0 +1,1 @@
+Artículo 28.—Publicidad de Horarios. El horario oficial será colocado en un lugar visible en la entrada del recinto y divulgado en los medios digitales de la Municipalidad. Cualquier cambio temporal o permanente deberá ser comunicado a los usuarios con al menos 3 días de antelación, salvo emergencias o fuerza mayor.

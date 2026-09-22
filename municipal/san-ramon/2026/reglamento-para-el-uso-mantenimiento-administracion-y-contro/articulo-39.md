@@ -1,0 +1,3 @@
+CAPÍTULO X
+De las tarifas y alquileres
+Artículo 39.—Fijación de Tarifas. El Concejo Municipal revisará y aprobará anualmente las tarifas para usuarios particulares, mensualidades, alquileres y otros servicios que se cobrarán a los usuarios de éstas, basado en un estudio financiero (de costos operativos) presentado por la Administración, se podrá fijar y variar la tarifa por el uso de la piscina y corresponderá al Concejo Municipal la aprobación de dicha tarifa. El ámbito de aplicación de este artículo se regirá, además, bajo las disposiciones del artículo 83 del Código Municipal, N° 7794, del 30 de abril de 1998 y sus reformas.

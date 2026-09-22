@@ -1,0 +1,1 @@
+Artículo 41.—De las formas de pago. El pago se podrá realizar en las instalaciones de la piscina por los siguientes medios: datáfono, transferencia a las cuentas bancarias de la municipalidad, pago en efectivo y/o por sinpe móvil. Realizado el pago se emitirá el recibo respectivo.

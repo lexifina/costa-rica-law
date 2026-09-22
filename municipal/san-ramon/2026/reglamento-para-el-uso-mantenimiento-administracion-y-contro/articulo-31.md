@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+De las solicitudes de uso de las instalaciones
+para eventos especiales
+Artículo 31.—Plazos. La Administración recibirá solicitudes para permiso de uso de las instalaciones por parte de asociaciones de natación, Comité Cantonal de Deportes y Recreación o subcomités u otras organizaciones cantonales, así como personas físicas o jurídicas, para lo cual deberán aportar los calendarios respectivos. Dichas solicitudes serán trasladadas a la Alcaldía Municipal y ésta recomendará al Concejo Municipal la aprobación de las mismas con al menos 1 mes de antelación. El plazo de resolución para este tipo de solicitudes será de 30 días naturales.
+Asimismo, el solicitante deberá presentar una póliza de responsabilidad civil vigente y una declaración jurada donde manifieste que cumple con los requisitos para eventos masivos estipulados en el Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud, Decreto Ejecutivo 43432-S.

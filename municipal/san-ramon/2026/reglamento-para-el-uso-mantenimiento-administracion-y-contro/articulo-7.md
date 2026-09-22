@@ -1,0 +1,5 @@
+Artículo 7º—Del Personal Operativo. Para el adecuado funcionamiento, la administración podrá contar con el siguiente personal, según disponibilidad presupuestaria:
+a. Guardavidas: Personal certificado en Reanimación Cardiopulmonar (RCP) y rescate acuático. Los guardavidas serán los encargados de velar por la seguridad de los bañistas. Mientras se encuentren personas bajo su cuidado no podrán dedicarse a ninguna otra actividad. Deberá contar con el equipo exigido por los reglamentos que rigen las piscinas públicas y cualquier otro necesario para el buen desempeño de sus funciones. Asimismo, los guardavidas velarán porque sean acatadas las medidas de seguridad e higiene exigidas a los bañistas.
+b. Oficiales de Mantenimiento: Responsables de la limpieza de vestidores, zonas verdes y tratamiento químico del agua.
+c. Seguridad: Encargados del orden y resguardo de los activos y las instalaciones.
+d. Boletería: Encargado de cobrar y generar los recibos correspondientes por el uso de las instalaciones.

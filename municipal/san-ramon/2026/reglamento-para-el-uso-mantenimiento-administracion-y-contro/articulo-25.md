@@ -1,0 +1,1 @@
+Artículo 25.—Cierres Técnicos. La Administración se reserva el derecho de cerrar la piscina parcial o totalmente por mantenimiento preventivo, correctivo, tratamiento de choque químico o eventos de fuerza mayor, previo aviso a los usuarios, sin que esto genere responsabilidad de reembolso por días no disfrutados.

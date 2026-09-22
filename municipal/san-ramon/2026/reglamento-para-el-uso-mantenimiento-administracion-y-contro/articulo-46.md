@@ -1,0 +1,1 @@
+Artículo 46.—Responsabilidad. La Municipalidad de San Ramón se exime de toda responsabilidad civil o penal que se le pueda exigir por el uso individual o colectivo de las instalaciones o participación en sus actividades por los usuarios, como pérdida de objetos personales, robo o lesiones como consecuencia de la práctica recreativa o deportiva.

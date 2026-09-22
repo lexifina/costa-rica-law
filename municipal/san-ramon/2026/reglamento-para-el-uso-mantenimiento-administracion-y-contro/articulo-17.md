@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Uso de instalaciones y mejores prácticas
+Artículo 17.—Carriles de Nado. Para un mejor aprovechamiento en el uso cotidiano de la piscina, el Administrador o el instructor distribuirá los carriles por velocidad (lento, medio, rápido) o por actividad (clase, nado libre, terapia). Los usuarios deberán respetar esta señalización para evitar accidentes. En caso que haya más de dos personas en el carril debe nadar en forma circular en dirección opuesta a las manecillas del reloj. El personal de la piscina, regulará la cantidad de personas que la utilicen con el fin de lograr el mejor desenvolvimiento de las actividades docentes, deportivas y recreativas.

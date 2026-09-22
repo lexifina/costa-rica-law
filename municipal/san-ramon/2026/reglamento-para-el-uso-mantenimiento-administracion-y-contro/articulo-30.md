@@ -1,0 +1,1 @@
+Artículo 30.—Puntualidad y Cierre. Los usuarios deberán respetar estrictamente la hora de salida del agua indicada por el Guardavidas o la señal sonora (silbato). El ingreso de nuevos usuarios se detendrá 60 minutos antes de la hora de cierre final de las instalaciones.

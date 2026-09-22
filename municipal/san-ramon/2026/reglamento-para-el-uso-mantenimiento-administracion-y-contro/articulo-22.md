@@ -1,0 +1,3 @@
+Artículo 22.—Protocolos de Seguridad y Evacuación.
+a. Botón de Asistencia: Se informa a los usuarios sobre la ubicación y el uso exclusivo del botón de asistencia para notificar al personal de la piscina sobre una emergencia o requerir ayuda inmediata dentro de las instalaciones. El uso indebido del botón será causal de sanción.
+b. Ruta de Evacuación: Todos los usuarios, visitantes y personal deben familiarizarse y acatar de forma inmediata las indicaciones de la ruta de evacuación y los puntos de encuentro establecidos en caso de alarma o emergencia. El personal operativo tiene la obligación de guiar el proceso de evacuación.

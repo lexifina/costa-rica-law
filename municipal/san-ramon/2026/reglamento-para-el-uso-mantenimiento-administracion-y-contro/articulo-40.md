@@ -1,0 +1,1 @@
+Artículo 40.—Academias y Lucro. Queda prohibido que terceros (entrenadores privados o academias) lucren en las instalaciones municipales impartiendo clases y cobrando a usuarios sin un contrato o convenio formal con la Municipalidad. Dicha relación deberá ser adjudicada mediante los procedimientos de contratación pública o convenios de cooperación aprobados por el Concejo.

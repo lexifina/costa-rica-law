@@ -1,0 +1,1 @@
+Artículo 8º—Autoridad del Guardavidas. El Guardavidas tiene la máxima autoridad en la zona húmeda ( vaso y andenes). Sus instrucciones son de acatamiento inmediato y obligatorio para garantizar la seguridad de los bañistas. No podrá realizar otras funciones mientras tenga usuarios a su cargo.

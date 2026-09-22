@@ -1,0 +1,1 @@
+Artículo 24.—Aforo. El aforo máximo será el establecido por las disposiciones del Ministerio de Salud y por criterios técnicos de ICODER y la Municipalidad de San Ramón; a falta de los mismos, el aforo en la piscina será de 64 personas simultáneamente, calculando 8 nadadores por carril y para el área de las graderías será de 100 personas máximo.

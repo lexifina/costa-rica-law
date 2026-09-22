@@ -1,0 +1,4 @@
+Artículo 23.—Uso del estacionamiento. El área de estacionamiento es un servicio complementario destinado exclusivamente a facilitar el acceso de los usuarios a las instalaciones de la piscina. El uso del mismo implica la aceptación total de las normas aquí descritas, considerando también las siguientes:
+a. Velocidad Máxima: El límite de velocidad dentro del estacionamiento es de 10 km/h.
+b. Respeto de Espacios: Queda estrictamente prohibido estacionar en zonas señalizadas como: espacios para personas con discapacidad, salidas de emergencia, zonas de carga/descarga o bloqueando la circulación de otros vehículos. En la zona de estacionamiento para personas con discapacidad se permitirá el aparcamiento únicamente a los vehículos con la placa correspondiente a la condición.
+c. Identificación: Todo vehículo deberá estar debidamente registrado o identificado si la administración así lo solicita.

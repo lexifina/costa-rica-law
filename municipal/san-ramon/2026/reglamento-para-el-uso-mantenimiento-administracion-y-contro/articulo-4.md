@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de Aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para todos los funcionarios municipales, usuarios, visitantes, entrenadores, academias y cualquier persona física o jurídica que haga uso de las instalaciones.

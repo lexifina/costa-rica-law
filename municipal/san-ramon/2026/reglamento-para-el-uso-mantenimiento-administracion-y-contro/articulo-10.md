@@ -1,0 +1,1 @@
+Artículo 10.—Pago de Tarifas. Todo usuario deberá cancelar la tarifa correspondiente antes de ingresar, salvo aquellos que cuenten con beca parcial o total debidamente aprobada según el Capítulo IX de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Vestimenta. Se permite únicamente el uso de trajes de baño confeccionados en licra o materiales sintéticos diseñados para la natación. Queda prohibido el uso de ropa interior, camisetas de algodón, pantalones de mezclilla o prendas con botones y cierres metálicos que puedan dañar la infraestructura.

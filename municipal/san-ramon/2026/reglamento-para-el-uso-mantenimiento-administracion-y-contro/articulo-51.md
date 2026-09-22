@@ -1,0 +1,1 @@
+Artículo 51.—Cámaras de Seguridad. Para verificar el efectivo cumplimiento de las disposiciones de este reglamento y velar por la seguridad de los usuarios, la administración Municipal podrá instalar cámaras de seguridad en las diferentes áreas de la piscina.
