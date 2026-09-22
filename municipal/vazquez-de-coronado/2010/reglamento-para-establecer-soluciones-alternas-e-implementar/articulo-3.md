@@ -1,1 +1,0 @@
-3º—Que la determinación de la viabilidad para aplicar estas opciones deberá surgir como consecuencia de una inspección del Departamento de Ingeniería Municipal, que determine que las condiciones de imposibilidad o ruinosidad, anteriormente citadas, se verifiquen en el local inspeccionado.
