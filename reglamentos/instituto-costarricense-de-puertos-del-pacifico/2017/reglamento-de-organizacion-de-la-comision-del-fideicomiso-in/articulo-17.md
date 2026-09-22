@@ -1,1 +1,1 @@
-ARTÍCULO 17.- Los integrantes de la Comisión promoverán, en el ámbito de sus respectivas competencias, la coordinación e implementación de las acciones derivadas de los acuerdos tomados en el seno de la Comisión.
+ARTICULO 17.- Los integrantes de la Comisión promoverán, en el ámbito de sus respectivas competencias, la coordinación e implementación de las acciones derivadas de los acuerdos tomados en el seno de la Comisión.

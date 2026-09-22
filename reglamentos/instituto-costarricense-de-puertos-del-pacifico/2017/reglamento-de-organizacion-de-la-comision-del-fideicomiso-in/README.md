@@ -16,3 +16,4 @@ Reglamento de Organización de la Comisión del Fideicomiso INCOP-ICT-BNCR
 | 1 | 2017-04-19 | la propia norma |
 | 2 | 2018-02-06 | Reglamento 4147 (2018-02-06) |
 | 3 | 2026-02-06 | Reglamento 4514 (2026-02-06) |
+| 4 | 2026-09-22 | Reglamento 4537 (2026-09-22) |
