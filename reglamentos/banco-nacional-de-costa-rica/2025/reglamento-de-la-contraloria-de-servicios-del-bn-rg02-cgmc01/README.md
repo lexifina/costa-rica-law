@@ -14,3 +14,4 @@ Reglamento de la contraloría de servicios del BN (RG02-CGMC01), edición 01
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-12-19 | la propia norma |
+| 2 | 2026-09-22 | Reglamento 12826 (2026-09-22) |

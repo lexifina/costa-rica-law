@@ -19,6 +19,5 @@ Notificar al cliente o usuario la recepción de la gestión por el medio que és
 3. Cierre de la gestión.
 La Contraloría de Servicios del BN brinda el seguimiento respectivo, una vez que la gestión ha sido resuelta se procede a realizar el cierre del incidente en el sistema de control de gestiones.
 IV. Gobernabilidad
-La Contraloría de Servicios del BN es el ente responsable de atender las gestiones que presentan los clientes y usuarios del BN, asegurando su resolución y respuesta oportuna.
-Asimismo, será responsabilidad de las unidades de servicio de las sociedades anónimas del BN, tramitar las gestiones que presenten sus clientes, para lo cual deberán utilizar la plataforma prevista por el Banco Nacional para ese propósito.
+La Contraloría de Servicios del BN es el ente responsable de atender las gestiones que presentan los clientes y usuarios del BN, asegurando su resolución y respuesta oportuna. Asimismo, será responsabilidad de las unidades de servicio de las sociedades anónimas del BN, tramitar las gestiones que presenten sus clientes, para lo cual deberán utilizar la plataforma prevista por el Banco Nacional para ese propósito.
 Conforme a lo anterior, la CS posee canales de acceso de información que permite la consolidación de la totalidad de las gestiones presentadas por los clientes y usuarios.
