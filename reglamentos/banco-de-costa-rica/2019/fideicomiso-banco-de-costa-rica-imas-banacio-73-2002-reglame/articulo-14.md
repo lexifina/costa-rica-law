@@ -1,1 +1,1 @@
-Artículo 14.-Sede de sesión. Las sesiones del Comité Director se celebrarán en las oficinas de la Unidad Ejecutora, salvo que todos los miembros del Comité que cuenten con derecho a voto acuerden celebrar la reunión en un lugar distinto.
+Artículo 14.-Sede de sesión. Las sesiones del Comité Director se celebrarán en las oficinas de la Unidad Ejecutora, salvo que todas las personas integrantes del Comité que cuenten con derecho a voto acuerden celebrar la reunión en un lugar distinto o en formato virtual

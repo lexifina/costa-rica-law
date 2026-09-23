@@ -1,4 +1,4 @@
-Artículo 27.-De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta (mitad más uno) por los miembros del Comité Director, excepto en los casos siguientes:
-a) Declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de la votación favorable de no menos de cuatro personas miembros presentes.
-b) Adopción, modificación, derogatoria de reglamentación interna, en cuyo caso se requerirá la votación favorable de no menos de cuatro personas representantes del Comité Director.
-c) Cuando el Comité Director determine que en la adopción de acuerdos específicos se requiera un criterio de mayoría superior. Para adoptar o derogar un acuerdo que impone una regla de mayoría distinta a la absoluta (pero no inferior), se requerirá que el acuerdo sea adoptado por mayoría absoluta, es decir, tres personas miembros del Comité Director.
+Artículo 27.-De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta (mitad más uno) por las personas integrantes del Comité Director, excepto en los casos siguientes:
+a) Declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de la votación favorable de no menos de cuatro personas integrantes presentes.
+b) Adopción, modificación, derogatoria de reglamentación interna, en cuyo caso se requerirá la votación favorable de no menos de cuatro personas integrantes del Comité Director.
+c) Cuando el Comité Director determine que en la adopción de acuerdos específicos se requiera un criterio de mayoría superior. Para adoptar o derogar un acuerdo que impone una regla de mayoría distinta a la absoluta (pero no inferior), se requerirá que el acuerdo sea adoptado por mayoría absoluta, es decir, tres personas integrantes del Comité Director.

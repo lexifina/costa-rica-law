@@ -1,1 +1,2 @@
-Artículo 37.-Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración contra los acuerdos del Comité Director del Fideicomiso, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado.
+Artículo 37.-Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración contra los acuerdos del Comité Director del Fideicomiso, dentro del plazo legal.
+Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado.
