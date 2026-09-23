@@ -1,0 +1,1 @@
+Artículo 16.- Para la emisión de licencias de pesca por primera vez, el interesado deberá de presentar los requisitos establecidos en el inciso a) del artículo 117 del Decreto No. 36782-MINAETMAG- MOPT-TUR-SP-S-MTSS.

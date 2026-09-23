@@ -1,0 +1,1 @@
+Artículo 14. - En el caso de personas que presenten solicitudes en condiciones diferentes a las contempladas en el artículo 13, serán valoradas por la administración de conformidad con la normativa correspondiente.

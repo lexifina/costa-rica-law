@@ -1,0 +1,1 @@
+Artículo 53.- El permisionario al que se le hubiere otorgado la autorización de inactividad de la licencia de pesca, y que durante la vigencia esa inactividad reinicie las actividades o faenas de pesca, deberá de inmediato, conjuntamente con el reinicio de la actividad pesquera, comunicar al INCOPESCA el cese de su inactividad.

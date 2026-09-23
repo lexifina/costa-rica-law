@@ -1,0 +1,2 @@
+Artículo 17.- El titular de una licencia de pesca comercial en pequeña escala, podrá poseer únicamente una licencia de esta categoría. No obstante, el INCOPESCA podrá autorizarle
+adicionalmente un permiso especial para practicar la pesca turística, para el ejercicio alternativo de dicha actividad. El titular no podrá ser beneficiario de ningún otro tipo de licencia de pesca. Para la solicitud de esta modalidad, será requisito presentar el certificado de navegabilidad vigente, emitido para la realización de este tipo de actividad.

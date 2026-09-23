@@ -1,0 +1,1 @@
+Artículo 8.- Toda gestión relacionada con el trámite administrativo para las licencias de pesca contempladas en este reglamento, deberá ser realizada por el titular de la licencia de pesca, o por medio de su apoderado acreditado legalmente, salvo las excepciones que se establezcan en el presente reglamento.

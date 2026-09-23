@@ -1,0 +1,1 @@
+Artículo 25.- La vigencia para las licencias de pesca deportivas para embarcaciones extranjeras, no podrá superar la fecha de vencimiento del certificado de permanencia emitido por el Ministerio de Obras Públicas y Transportes y el Ministerio de Hacienda.

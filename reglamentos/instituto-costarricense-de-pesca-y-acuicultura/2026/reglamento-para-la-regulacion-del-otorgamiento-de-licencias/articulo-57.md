@@ -1,0 +1,2 @@
+Artículo 57.- El INCOPESCA verificará el cumplimiento de los requisitos indicados. De resultar conforme, la oficina competente emitirá la resolución administrativa correspondiente, mediante la cual se declarará la renuncia a la licencia de pesca y se deja constancia expresa de la desvinculación del permisionario respecto de los derechos y obligaciones asociados a dicha licencia, sin perjuicio de las responsabilidades pendientes que pudieran derivarse de hechos ocurridos con anterioridad a
+la cancelación.

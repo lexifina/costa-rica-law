@@ -1,0 +1,1 @@
+Artículo 44.- Se podrá autorizar sustituciones de embarcaciones en licencias de pesca comercial o deportiva, cuando el certificado de navegabilidad de encuentre vigente, y tenga la autonomía de navegación requerida para la licencia de pesca a la cual se le incluirá la embarcación.

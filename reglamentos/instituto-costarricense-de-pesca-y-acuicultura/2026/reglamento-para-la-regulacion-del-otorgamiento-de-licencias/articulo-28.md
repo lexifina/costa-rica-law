@@ -1,0 +1,1 @@
+Artículo 28.- El Departamento de Información Pesquera y Acuícola del INCOPESCA verificará que, para la prórroga de las licencias de pesca comercial en pequeña escala, el permisionario haya presentado la información estadística correspondiente a sus capturas.

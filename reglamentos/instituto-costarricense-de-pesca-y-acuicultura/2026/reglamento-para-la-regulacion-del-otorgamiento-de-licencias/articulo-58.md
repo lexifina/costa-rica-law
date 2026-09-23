@@ -1,0 +1,1 @@
+Artículo 58.- La oficina competente realizará las actualizaciones necesarias en los sistemas de información institucionales y en los registros administrativos correspondientes, a fin de dejar constancia formal y verificable del acto administrativo de renuncia de la licencia de pesca.

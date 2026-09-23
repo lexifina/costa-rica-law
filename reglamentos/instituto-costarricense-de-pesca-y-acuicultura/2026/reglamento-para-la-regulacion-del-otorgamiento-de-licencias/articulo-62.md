@@ -1,0 +1,1 @@
+Artículo 62.- La Presidencia Ejecutiva autorizará el inicio del procedimiento de reasignación de la licencia de pesca, así como el acto administrativo final mediante el cual se emita la licencia al nuevo permisionario.

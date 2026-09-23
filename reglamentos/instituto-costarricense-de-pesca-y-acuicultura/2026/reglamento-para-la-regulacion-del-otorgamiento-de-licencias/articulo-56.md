@@ -1,0 +1,2 @@
+CAPITULO VIII, RENUNCIA A LICENCIAS DE PESCA.
+Articulo 56.- El propietario de la embarcación a la cual se le haya asignado una licencia de pesca podrá solicitar, de manera voluntaria, la renuncia a dicha licencia. Para tales efectos, deberá presentar una solicitud escrita ante el INCOPESCA, mediante nota formal firmada por la persona permisionaria o representante legal debidamente acreditado de ser el caso. Dicha licencia de pesca deberá encontrarse vigente y al día.

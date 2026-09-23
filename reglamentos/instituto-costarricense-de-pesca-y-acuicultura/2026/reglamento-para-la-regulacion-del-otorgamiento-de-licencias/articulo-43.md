@@ -1,0 +1,1 @@
+Artículo 43.- Se podrá autorizar sustituciones de embarcaciones en licencias de pesca comercial o deportiva, cuando la licencia de pesca se encuentre vigente y al día, el permisionario demuestre la posesión legal de la nueva embarcación, estando la misma inscrita a su nombre en el Registro Nacional o bien, mediante contrato de arrendamiento ante Notario Público.

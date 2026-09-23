@@ -1,0 +1,1 @@
+Artículo 10.- En las embarcaciones con licencias de pesca turística, el certificado de Navegabilidad emitido por el Ministerio de Obras Públicas y Transportes deberá de encontrarse al día, además de contemplar la clase pasajeros.

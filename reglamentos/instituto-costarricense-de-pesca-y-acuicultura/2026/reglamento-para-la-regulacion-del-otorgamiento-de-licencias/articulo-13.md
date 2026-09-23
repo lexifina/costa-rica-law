@@ -1,0 +1,1 @@
+Artículo 13.- Para la emisión de licencias de pesca comercial y demás autorizaciones o permisos, el solicitante deberá contar con seguro como patrono o trabajador independiente, según corresponda, o en su caso, un convenio colectivo vigente y al día ante la CCSS. Para el caso de licencias artesanales en pequeña escala se permitirá la presentación del seguro voluntario.

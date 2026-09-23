@@ -1,0 +1,1 @@
+Artículo 9.- En las embarcaciones con licencias de pesca comercial, el certificado de Navegabilidad emitido por el Ministerio de Obras Públicas y Transportes deberá encontrarse al día, además de contemplar la clase pesca y uso comercial.

@@ -1,0 +1,1 @@
+Artículo 27.- Se podrá autorizar la prórroga con la presentación de los requisitos establecidos en el artículo 117, inciso b) y ch) según corresponda, del Decreto No. 36782-MINAET-MAG-MOPT-TURSP-S-MTSS.

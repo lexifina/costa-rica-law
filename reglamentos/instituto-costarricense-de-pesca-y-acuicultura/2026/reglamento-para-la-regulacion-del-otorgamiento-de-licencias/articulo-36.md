@@ -1,0 +1,3 @@
+Artículo 36.- Se podrá autorizar el traspaso de licencias de pesca inactivas sin que la embarcación esté en condiciones aptas para navegar. Para dichos efectos el propietario de la licencia de pesca debe:
+1. Presentar certificación del Registro Nacional y del MOPT que demuestre que la nueva embarcación se encuentra en óptimas condiciones de navegación.
+De conformidad con lo establecido por los procedimientos de INCOPESCA, la nueva embarcación debe ajustarse a las características propias de la categoría de la licencia de pesca respectiva. Una vez otorgada la licencia de pesca por traspaso bajo esta modalidad, cesarán los efectos de la inactividad de manera inmediata.

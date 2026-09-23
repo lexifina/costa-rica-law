@@ -1,0 +1,1 @@
+Artículo 29.- En la gestión de prórroga de licencias de pesca comerciales o deportivas no se variará las condiciones establecidas inicialmente, relacionadas con plazo, tipo de pesca, artes de pesca y notas técnicas asignadas.

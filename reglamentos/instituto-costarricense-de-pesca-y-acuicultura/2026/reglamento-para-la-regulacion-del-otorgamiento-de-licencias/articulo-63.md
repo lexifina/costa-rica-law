@@ -1,0 +1,1 @@
+Artículo 63.- Las licencias de pesca objeto de reasignación mantendrán las condiciones originalmente autorizadas, incluyendo, entre otras, las relativas a artes de pesca, modalidad o tipo de pesca, notas técnicas y plazo de vigencia, sin que proceda su modificación como resultado del proceso de reasignación.

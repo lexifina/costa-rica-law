@@ -1,0 +1,1 @@
+Artículo 54.- Durante la vigencia de la inactividad, el permisionario no podrá realizar faenas de pesca, caso contrario y mediante la realización del procedimiento respectivo, podrá hacerse acreedor a las sanciones administrativas correspondientes.

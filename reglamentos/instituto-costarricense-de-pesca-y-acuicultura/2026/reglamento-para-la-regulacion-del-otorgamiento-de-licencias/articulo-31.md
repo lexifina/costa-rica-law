@@ -1,0 +1,1 @@
+Artículo 31.- Se deberá solicitar la prórroga de las licencias de pesca que se encuentren con una inactividad vigente. Para ello, la persona interesada deberá presentar los requisitos que razonablemente pueda aportar, conforme a la justificación que dio origen a la autorización de inactividad.

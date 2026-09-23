@@ -1,0 +1,1 @@
+Articulo 39.- Para realizar la sustitución de embarcaciones en licencias de pesca, el permisionario requerirá la autorización del INCOPESCA, de previo a realizar las gestiones necesarias ante el Registro Nacional y la Capitanía de Puerto.

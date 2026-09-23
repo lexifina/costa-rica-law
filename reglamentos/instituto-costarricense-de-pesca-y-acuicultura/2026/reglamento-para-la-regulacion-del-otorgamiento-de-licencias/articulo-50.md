@@ -1,0 +1,1 @@
+Artículo 50.- Para realizar la inactividad de una licencia de pesca, la misma debe encontrarse vigente, en ninguna circunstancia se podrá realizar inactividades cuando la licencia se encuentre vencida o bien, no se encuentre al día con sus obligaciones con el INCOPESCA.

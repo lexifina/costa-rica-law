@@ -1,0 +1,1 @@
+Artículo 60.- La oficina competente deberá comunicar a la Presidencia Ejecutiva la disponibilidad de la licencia de pesca, para que se valore, conforme a la normativa vigente, su cancelación definitiva o su eventual reasignación a un nuevo permisionario.

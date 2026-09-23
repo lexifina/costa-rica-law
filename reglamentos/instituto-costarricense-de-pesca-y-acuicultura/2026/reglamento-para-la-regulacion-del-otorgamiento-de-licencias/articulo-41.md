@@ -1,0 +1,1 @@
+Artículo 41.- Para las licencias comerciales en pequeña escala que tengan autorizada la pesca en las Zonas A, A y B, B o Golfo Dulce, se permitirá la sustitución con embarcaciones con una eslora máxima de 8 metros y una autonomía de navegación de tres millas náuticas, siempre que en la embarcación no se varíe los tipos de artes de pesca autorizados en la licencia.

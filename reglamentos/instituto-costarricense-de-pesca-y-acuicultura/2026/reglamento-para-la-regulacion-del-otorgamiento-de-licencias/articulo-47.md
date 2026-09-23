@@ -1,0 +1,1 @@
+Artículo 47.- Para las licencias de pesca comercial en pequeña escala que tengan autorizada la actividad en las demás zonas del Mar Caribe y del Océano Pacífico, excepto aquellas otorgadas en las Zonas A, A y B, B del Golfo de Nicoya o en el Golfo Dulce, se permitirá una potencia máxima de motor de 150 HP.

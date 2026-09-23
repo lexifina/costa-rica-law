@@ -1,0 +1,1 @@
+Artículo 11.- En las embarcaciones con licencias de pesca deportiva, el certificado de Navegabilidad emitido por el Ministerio de Obras Públicas y Transportes deberá de encontrarse al día, además de contemplar la clase de pesca y uso deportivo o clase recreo o clase particular.

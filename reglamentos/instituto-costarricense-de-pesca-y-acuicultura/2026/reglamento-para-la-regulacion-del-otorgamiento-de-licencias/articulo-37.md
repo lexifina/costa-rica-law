@@ -1,0 +1,1 @@
+Artículo 37.- Las autorizaciones previas de traspaso de licencias de pesca tendrán una vigencia de seis meses calendario, contados a partir de la emisión de la autorización. El plazo otorgado podrá ser prorrogado por una única vez por el mismo periodo a solicitud expresa de ambas partes.
