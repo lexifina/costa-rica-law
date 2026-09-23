@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación y sujetos obligados.
+Quedan sujetos a este Reglamento todos los vehículos, maquinaria y equipo especial de la Municipalidad, así como los funcionarios, servidores y personeros municipales que los conduzcan, utilicen, administren, autoricen o custodien. El uso de estos bienes se orientará, en todos los casos, a la satisfacción del interés público y al cumplimiento de los fines institucionales.

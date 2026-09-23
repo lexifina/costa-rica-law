@@ -1,0 +1,2 @@
+Artículo 5. Prohibición de asignación discrecional o semidiscrecional a autoridades municipales.
+No procede la asignación de vehículos de uso discrecional o semidiscrecional a los alcaldes, vicealcaldes, regidores, síndicos ni a ninguna otra persona sometida al régimen municipal, por no estar contemplados en la lista taxativa de los artículos 237 y 238 de la Ley No. 9078. Se prohíbe toda práctica o condición que, aun sin denominarse formalmente así, se ajuste fácticamente a dichos supuestos.

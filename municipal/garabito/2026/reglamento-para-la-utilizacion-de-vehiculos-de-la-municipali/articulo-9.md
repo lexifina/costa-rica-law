@@ -1,0 +1,4 @@
+CAPÍTULO III
+DEL USO INSTITUCIONAL POR PERSONEROS MUNICIPALES
+Artículo 9. Traslado de personeros municipales para el cumplimiento de funciones oficiales.
+Los regidores, síndicos, el alcalde, los vicealcaldes y demás personeros municipales podrán ser trasladados en vehículos de uso administrativo o policial únicamente para el cumplimiento de funciones oficiales, comisiones y actos de representación institucional del gobierno local, cuando exista un acto administrativo formal y motivado que acredite el interés público del traslado y la vinculación directa de la actividad con las competencias municipales. Queda excluido de esta autorización el traslado entre la casa de habitación y la sede municipal o el lugar de celebración de las sesiones, conforme al artículo 6 de este Reglamento. La existencia de este supuesto no faculta la asignación permanente de vehículo a persona determinada.

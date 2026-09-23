@@ -1,0 +1,2 @@
+Artículo 12. Bitácoras, control de kilometraje y reportes.
+Todos los vehículos estarán sujetos a bitácoras de uso diario, control de recorrido y kilometraje, y a un reporte mensual del uso autorizado. El encargado de la flotilla municipal supervisará el cumplimiento de estos controles, sin perjuicio de las competencias de la Auditoría Interna. Los registros deberán conservarse y sistematizarse de forma que sirvan de base para la fiscalización y la toma de decisiones.

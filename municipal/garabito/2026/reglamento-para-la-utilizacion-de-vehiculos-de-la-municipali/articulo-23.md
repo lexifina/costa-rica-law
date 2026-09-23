@@ -1,0 +1,2 @@
+Artículo 23. - Normativa aplicable.
+Las infracciones al presente Reglamento serán sancionadas de conformidad con lo dispuesto en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, la Ley General de la Administración Pública, el Código Municipal, el Código de Trabajo y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor, y de las sanciones que procedan por faltas contra la normativa técnica o jurídica vigente.

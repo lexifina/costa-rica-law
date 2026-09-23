@@ -1,0 +1,2 @@
+Artículo 6. Improcedencia del traslado entre la casa de habitación y la sede o el lugar de labores.
+No se autorizará el uso de vehículos municipales para trasladar a funcionarios o personeros desde o hacia su casa de habitación, por constituir el traslado una obligación propia del funcionario no ligada intrínsecamente al ejercicio de sus funciones ni a la satisfacción del interés público. Por ninguna razón los vehículos de uso administrativo podrán quedar estacionados en una casa de habitación al finalizar la jornada.

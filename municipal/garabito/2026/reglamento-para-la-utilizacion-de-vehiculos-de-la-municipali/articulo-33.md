@@ -1,0 +1,2 @@
+Artículo 33. Derogatoria.
+El presente Reglamento deroga integralmente el Reglamento para la Utilización de Vehículos de la Municipalidad de Garabito, publicado en La Gaceta No. 42, del 28 de febrero de 2001 y sus reformas publicadas en La Gaceta No. 47 del 9 de marzo de 2015 y La Gaceta No. 146 del 6 de agosto de 2019, así como cualquier otra disposición reglamentaria de igual o inferior rango que se le oponga.
