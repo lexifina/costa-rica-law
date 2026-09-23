@@ -1,1 +1,0 @@
-8º—El Departamento de Protección y Registro, los Jefes de las Direcciones y Oficinas Regionales proporcionaran permanentemente a la Sección de Control y Administración del Combustible, la información pertinente sobre los permisos de inactividad concedidos al Instituto a los efectos del control de dicho beneficio.

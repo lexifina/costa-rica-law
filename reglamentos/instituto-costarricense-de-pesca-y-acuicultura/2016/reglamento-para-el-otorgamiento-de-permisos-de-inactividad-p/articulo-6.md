@@ -1,1 +1,0 @@
-6º—El permisionario al que se le hubiere otorgado permiso de inactividad de la licencia de pesca, puede en cualquier momento durante la vigencia de este, comunicar por escrito al INCOPESCA, el reinicio de sus actividades o faenas de pesca, en cuyo caso el plazo concedido y la inactividad cesarán de pleno derecho.
