@@ -1,1 +1,0 @@
-Artículo 16.—De la unidad solicitante. Corresponde a la unidad solicitante de la contratación, generar y presentar la decisión inicial y demás documentos de orden técnico que el Departamento de Proveeduría requiera para el trámite de contratación administrativa así como dar el adecuado seguimiento de la ejecución del contrato.

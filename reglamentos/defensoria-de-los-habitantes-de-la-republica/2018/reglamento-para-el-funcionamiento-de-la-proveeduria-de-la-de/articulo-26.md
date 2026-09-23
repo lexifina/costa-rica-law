@@ -1,1 +1,0 @@
-Artículo 26.—Confección de carteles. Los carteles serán confeccionados por el Departamento de Proveeduría en coordinación con las unidades solicitantes y la Comisión Técnica de Contratación Administrativa.
