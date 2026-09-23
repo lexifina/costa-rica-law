@@ -1,0 +1,1 @@
+Transitorio I.—En caso de que se mantengan libros de actas activos de la Comisión de Coordinación del Área de Ingresos del Ministerio de Hacienda creada en el Decreto Ejecutivo N° 39696-H, corresponderá a la Dirección General de Hacienda cerrarlos y depositar los libros ante la Auditoría Interna.

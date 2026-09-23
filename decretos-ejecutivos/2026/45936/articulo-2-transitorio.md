@@ -1,0 +1,1 @@
+Transitorio II.—Los asuntos que se encuentren en conocimiento de la Comisión de Coordinación del Área de Ingresos creada en el Decreto Ejecutivo N° 39696-H, al momento de la entrada en vigencia del presente Decreto Ejecutivo, serán asumidos y resueltos por el Viceministro de Ingresos o la instancia que este designe.
