@@ -1,0 +1,1 @@
+Artículo 7º—Condiciones en la gestión de los recursos: Los recursos identificados de conformidad con esta directriz, serán gestionados en un marco de colaboración interinstitucional y procurando la compatibilidad con la naturaleza institucional y de servicio del órgano o entidad receptora, así como apego a criterios de disponibilidad, finalidad y necesidad institucional.

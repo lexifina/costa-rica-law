@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de cobertura: La presente directriz será de aplicación obligatoria para las instituciones, órganos y entes comprendidos en el Sistema General de Empleo Público sujeto a la rectoría del Mideplan en materia de empleo público.

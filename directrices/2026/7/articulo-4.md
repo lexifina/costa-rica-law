@@ -1,0 +1,6 @@
+Artículo 4º—Tipos de recursos para cooperación. Los recursos identificados como susceptibles de ser compartidos para cooperación interinstitucional se comprenden en los siguientes tipos:
+a) Gestores de conocimiento: participación de personas facilitadoras, instructoras, expertas, mentoras o especialistas en actividades de capacitación y desarrollo.
+b) Infraestructura: aulas, salas de conferencias, laboratorios, auditorios, salas de grabación de audio y video, espacios abiertos acondicionados y otras instalaciones aptas para el desarrollo de actividades formativas.
+c) Recursos tecnológicos: sistemas, plataformas digitales, equipos, herramientas tecnológicas y otros recursos de naturaleza similar.
+d) Contenidos y conocimiento: cursos y materiales previamente diseñados, bibliotecas digitales, videos, podcast, instrumentos de evaluación, investigaciones, metodologías, buenas prácticas, lecciones aprendidas, experiencias institucionales, casos exitosos y modelos replicables, cupos en cursos, talleres, seminarios, conferencias y otras actividades formativas organizadas por las instituciones.
+e) Otros recursos: cualquier otro recurso que pueda ser compartido de conformidad con el ordenamiento jurídico, la disponibilidad institucional y las condiciones establecidas por la institución responsable.

@@ -1,0 +1,4 @@
+Artículo 6º—Gestión de la información y articulación interinstitucional: La DGSC, por medio del CECADES y dentro del ámbito de sus competencias, gestionará la información incorporada al repositorio interinstitucional de recursos, promoviendo su actualización, consulta y gestionando el aprovechamiento efectivo, así como la articulación entre instituciones.
+Para esos efectos, le corresponderá:
+a) Garantizar la depuración, organización y sistematización de la información sobre recursos para capacitación y desarrollo, lo cual incluye, dar seguimiento y comunicar a las instituciones sobre inconsistencias o necesidades de actualización que se identifiquen.
+b) Identificar y aplicar estrategias o mecanismos para el fomento y aprovechamiento de los recursos con base en criterios de igualdad, efectividad, conveniencia, oportunidad y urgencia, considerando las necesidades de capacitación y desarrollo identificadas.

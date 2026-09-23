@@ -1,0 +1,1 @@
+Artículo 9º—Las instituciones públicas que no se encuentren comprendidas en el ámbito de aplicación de esta directriz, igualmente podrán incorporarse al repositorio interinstitucional de recursos y participar en las acciones de cooperación interinstitucional reguladas en este instrumento.
