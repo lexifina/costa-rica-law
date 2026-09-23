@@ -1,0 +1,2 @@
+Artículo 4.- Sectores o Zonas
+Para efectos del plan piloto en la actividad de pesca artesanal, serán considerados los sectores del Golfo de Nicoya, ubicados en las AMPR y ASPM, de acuerdo con lo establecido en los respectivos Planes Generales de Manejo y Planes de Aprovechamiento, según los sectores priorizados por INCOPESCA o según los recursos disponibles para el desarrollo y ejecución del presente programa piloto.

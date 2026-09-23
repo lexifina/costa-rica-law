@@ -1,0 +1,2 @@
+Artículo 19.- De las Visitas de Control.
+Los órganos públicos participantes en el Programa Piloto de Pago por Servicios Ecosistémicos Marino Costeros deberán ejercer sus acciones de control y supervisión del cumplimiento de las obligaciones asumidas por las personas beneficiarias y coadyuvar al éxito del proyecto. En la medida de lo posible, estas acciones serán previamente coordinadas a efecto de lograr realizar visitas conjuntas y maximizar los recursos disponibles.

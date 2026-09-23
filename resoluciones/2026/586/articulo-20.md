@@ -1,0 +1,3 @@
+Capítulo VI. De las Actividades Sujetas a Pago por Servicios Ecosistémicos Marino Costeros de provisión de alimentos por la actividad de Pesca Artesanal de pequeña escala sostenible.
+Artículo 20. Actividades sujetas a reconocimiento
+Las actividades sujetas al reconocimiento del programa piloto de Pago por Servicios Ecosistémicos Marino Costeros de provisión de alimentos serán las establecidas en el artículo 10 del presente Manual. Estas acciones responden a mantener y mejorar el servicio ecosistémico de provisión de alimentos en ecosistemas ubicados en las áreas seleccionadas, AMPR y ASPM, asegurando el aprovechamiento en condiciones de sostenibilidad.

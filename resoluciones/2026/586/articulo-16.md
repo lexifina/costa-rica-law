@@ -1,0 +1,2 @@
+Artículo 16.- Del Expediente Administrativo.
+Para cada persona beneficiaria del contrato PSEM pesca artesanal, FONAFIFO llevará un expediente administrativo único, el cual mantendrá un formato digital, aunque existan documentos físicos, que serán soportados y custodiados por cada entidad competente. Este expediente de formato digital se encontrará en línea y su acceso estará disponible para todas las entidades involucradas; debiendo mantenerse actualizado por todos los actores involucrados.
