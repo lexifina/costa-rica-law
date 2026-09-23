@@ -1,0 +1,1 @@
+Artículo 10. Devolución obligatoria. Al finalizar la relación laboral por cualquier causa (renuncia, despido, jubilación, etc.), o al realizarse una reposición ordinaria, el funcionario tiene la obligación ineludible de devolver todas las prendas y distintivos institucionales que estén en su poder al Departamento encargado de la custodia y entrega.

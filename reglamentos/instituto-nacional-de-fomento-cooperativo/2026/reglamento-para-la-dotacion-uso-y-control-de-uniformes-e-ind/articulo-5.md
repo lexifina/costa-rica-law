@@ -1,0 +1,2 @@
+DE LA DOTACIÓN Y LA PLANIFICACIÓN PRESUPUESTARIA
+Artículo 5. Planificación y vinculación con el POI. Toda adquisición de uniformes deberá formularse al amparo de la Gestión para Resultados en el Desarrollo (GpRD) y estar técnicamente vinculada a los objetivos y metas del Plan Operativo Institucional (POI) y al Presupuesto por Programas, bajo los principios de la Ley N.º 8131. Queda prohibido financiar este rubro con superávit libre o endeudamiento.

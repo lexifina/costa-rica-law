@@ -1,0 +1,2 @@
+Artículo 6. Periodicidad y prohibición de reposición automática. La dotación de nuevas prendas no se realizará de forma automática por el simple transcurso del tiempo cronológico o de base anual.
+La reposición estará sujeta a la vida útil demostrada del textil y al desgaste real de la herramienta de trabajo. El Departamento de Desarrollo Humano, en coordinación con el Departamento Administrativo Financiero, podrá posponer la contratación o entrega de nuevas piezas si se demuestra técnicamente que las prendas anteriores se conservan en óptimo estado.

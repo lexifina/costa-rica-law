@@ -1,0 +1,2 @@
+DE LAS OBLIGACIONES Y RESPONSABILIDADES DEL FUNCIONARIO
+Artículo 9. Obligación de uso y custodia. Los funcionarios incluidos en el bloque de sujeción están obligados a usar el uniforme completo durante toda su jornada laboral, manteniéndolo en perfectas condiciones de limpieza y decoro. Asimismo, asumen la obligación de custodia y conservación de las prendas como bienes propiedad de la institución.
