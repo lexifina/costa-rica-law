@@ -1,10 +1,3 @@
-Artículo 14. Plazos para las actuaciones administrativas. Los estudios técnicos, legales y financieros requeridos como parte de la evaluación de ofertas deberán rendirse dentro de los plazos que establezca el
-Departamento de Proveeduría.
-Para los procedimientos ordinarios de contratación pública, se establecen los siguientes plazos:
-Procedimiento / Proceso | Plazo
-Promedio | Máximo
-Elaboración de Órdenes de Compra procedimientos bajo la modalidad según demanda | 5 días hábiles | 15 días hábiles
-Acto Final | Procedimiento
-Licitación Reducida | Licitación Menor | Licitación Mayor
-20 días hábiles máximo | 60 días hábiles máximo | 60 días hábiles mínimo
-| | | |
+Artículo 14. Plazos para las actuaciones administrativas. El procedimiento de contratación pública deberá ajustarse a los plazos establecidos por el Departamento de Proveeduría, de conformidad con los cronogramas definidos por la Dirección General de Contratación Pública (DCOP). Dichos plazos tendrán carácter vinculante para las dependencias responsables de su elaboración.
+Para las órdenes de pedido, bajo la modalidad según demanda, se establece el plazo de 15 días hábiles.
+(Así reformado mediante sesión ordinaria 2026-035 del 24 de setiembre de 2026

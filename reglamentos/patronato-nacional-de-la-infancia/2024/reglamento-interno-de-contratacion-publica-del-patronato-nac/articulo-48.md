@@ -1,4 +1,4 @@
-Artículo 48. Competente para tramitar los procedimientos sancionatorios contra los particulares. Los procedimientos sancionatorios contra los particulares serán tramitados por un órgano sancionador de proveedores, nombrado por la Presidencia Ejecutiva de, de acuerdo con lo dispuesto en la Ley N°9986, Ley General de Contratación Pública, y su Reglamento.
-De igual manera, serán tramitados por dicha dependencia los que además del procedimiento sancionatorio soliciten la resolución contractual y/o el resarcimiento de los daños y perjuicios ocasionados.
-El acto final debidamente motivado será emitido por la Presidencia Ejecutiva.
-Contra el acto final los particulares podrán interponer recurso de revocatoria y apelación. La revocatoria será conocida por la Presidencia Ejecutiva y la apelación por la Junta Directiva.
+Artículo 48. Procedimiento de Urgencia dentro del Sistema Digital Unificado.
+En caso de que la urgencia no afecte la continuidad del servicio, pero para evitar lesiones al interés público, daños graves a las personas o irreparables a las cosas, la Presidencia Ejecutiva o Junta Directiva autorizará que el procedimiento de urgencia se lleve a cabo dentro del Sistema Digital Unificado.
+Una vez aprobada la autorización de la contratación de urgencia, la Unidad Solicitante debe remitir al Departamento de Proveeduría, a más tardar dentro de los tres días hábiles siguientes a la aprobación, la decisión inicial con toda la información que sustenta el inicio del procedimiento, con los elementos técnicos que garanticen la necesidad institucional y su disponibilidad presupuestaria, para que la misma sea tramitada en el módulo dispuesto para tal fin en el citado Sistema.
+(Así reformado mediante sesión ordinaria 2026-035 del 24 de setiembre de 2026)

@@ -1,4 +1,5 @@
-Artículo 49. Solicitud de procedimiento sancionatorio contra particulares. La solicitud del procedimiento sancionatorio será realizada por el Departamento Proveeduría en aquellos casos en los cuales el contrato no haya iniciado la ejecución.
-Si el contrato se encuentra en ejecución, le corresponderá a la unidad solicitante realizar dicha solicitud, para lo cual deberá remitir el requerimiento al Departamento de Proveeduría, con la solicitud respectiva se deberá aportar el informe con la relación de hechos y toda la prueba pertinente, en los términos establecidos en la Ley N°9986 y su Reglamento.
-Si se solicita de manera conjunta el resarcimiento de daños y perjuicios la dependencia solicitante deberá indicar el hecho que lo motiva, la estimación y la cuantificación de éstos, así como aportar toda la prueba que lo acredite. De igual forma, deberá indicar si hay garantía de cumplimiento rendida y el monto.
-Igualmente, en los casos en que se solicite, de forma conjunta, la resolución contractual, la unidad solicitante, que corresponda, remitirá la relación de hechos con los presuntos incumplimientos contractuales y la prueba con la que se acredita, la cual se deberá adjuntar a la solicitud pertinente.
+Artículo 49. Competencia para emitir el acto final, en las contrataciones dentro del Sistema Digital Unificado.
+El acto final de las contrataciones de urgencia que se realicen dentro del Sistema Digital Unificado será emitido según el siguiente detalle:
+• En las contrataciones cuya cuantía no supere el umbral de la licitación reducida se delega en la Presidencia Ejecutiva.
+• En las demás contrataciones cuyo umbral supere el de la licitación reducida, la Junta Directiva se reserva el dictado final.
+(Así reformado mediante sesión ordinaria 2026-035 del 24 de setiembre de 2026)

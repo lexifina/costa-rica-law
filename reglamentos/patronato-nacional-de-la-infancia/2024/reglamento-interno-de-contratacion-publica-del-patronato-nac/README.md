@@ -14,3 +14,4 @@ Reglamento interno de contratación pública del Patronato Nacional de la Infanc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-05 | la propia norma |
+| 2 | 2026-09-24 | Reglamento 35 (2026-09-24) |
