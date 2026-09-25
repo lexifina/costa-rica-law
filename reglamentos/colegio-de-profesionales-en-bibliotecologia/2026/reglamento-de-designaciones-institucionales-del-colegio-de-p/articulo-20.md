@@ -1,0 +1,1 @@
+Artículo 20.- Requisitos para la postulación: Las personas postulantes deberán ser colegiadas activas, estar al día en sus obligaciones y no tener sanciones vigentes de ningún tipo con el Colegio, y cumplir con el perfil o los requisitos específicos establecidos para la representación, cuando corresponda.

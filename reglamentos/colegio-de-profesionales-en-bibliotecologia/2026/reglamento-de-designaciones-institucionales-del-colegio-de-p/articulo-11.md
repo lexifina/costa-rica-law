@@ -1,0 +1,1 @@
+Artículo 11.- Derecho al Reconocimiento Institucional por Designación. Las personas designadas tendrán derecho a solicitar el reconocimiento establecido en el Capítulo IV: Reconocimientos y Reembolsos, de este reglamento.

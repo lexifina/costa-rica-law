@@ -1,0 +1,1 @@
+Artículo 26.- Renuncia voluntaria: La persona podrá renunciar mediante nota escrita, con al menos cinco (5) y hasta diez (10) días hábiles de antelación, dirigida a la Junta Directiva, justificando los motivos.

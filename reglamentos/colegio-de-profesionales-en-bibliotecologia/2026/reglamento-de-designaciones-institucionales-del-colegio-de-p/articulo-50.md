@@ -1,0 +1,2 @@
+Artículo 50.- Designaciones ad honorem: Las personas colegiadas podrán optar voluntariamente por ejercer designaciones sin recibir remuneración alguna, siempre que quede constancia, mediante nota escrita, de la renuncia voluntaria al reconocimiento establecido en este Reglamento, indicando expresamente la designación específica y el período respecto de los
+cuales se renuncia a dicho reconocimiento.

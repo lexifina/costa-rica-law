@@ -1,0 +1,1 @@
+Artículo 6.- Se entenderá por designación institucional la designación formal realizada por la Junta Directiva del COPROBI, mediante acuerdo y posterior a su juramentación, para actuar en nombre del Colegio ante un ente, órgano o entidad, interna o externa.

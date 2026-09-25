@@ -1,0 +1,1 @@
+Artículo 22.- Criterios de selección: El Comité Evaluador valorará méritos académicos, experiencia profesional, vinculación con la temática de la designación, y disponibilidad para asistir a reuniones o actividades, según el perfil establecido para el puesto de representación.

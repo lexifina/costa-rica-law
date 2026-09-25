@@ -1,0 +1,1 @@
+Artículo 35.- Gastos autorizados y condiciones: El reembolso de los gastos será posterior a la aprobación por parte de la Junta Directiva, y estará sujeto a la presentación de la documentación oficial que acredite la invitación institucional recibida, del itinerario y de las facturas autorizadas.

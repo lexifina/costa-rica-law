@@ -1,0 +1,1 @@
+Artículo 27.- Sustitución de la representación: La Junta Directiva podrá nombrar una persona sustituta si el órgano lo permite, mediante acuerdo y cumpliendo el debido proceso, en casos de renuncia, incapacidad, fallecimiento, incumplimiento de funciones o cualquier otra causa que afecte el adecuado ejercicio de la representación.

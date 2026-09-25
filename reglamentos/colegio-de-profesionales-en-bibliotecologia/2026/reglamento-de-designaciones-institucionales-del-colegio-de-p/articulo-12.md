@@ -1,0 +1,1 @@
+Artículo 12.- Derecho de acceso a la información institucional. La persona designada podrá solicitar la información institucional necesaria para el adecuado cumplimiento de sus funciones, conforme a la normativa vigente y a las disposiciones del COPROBI.

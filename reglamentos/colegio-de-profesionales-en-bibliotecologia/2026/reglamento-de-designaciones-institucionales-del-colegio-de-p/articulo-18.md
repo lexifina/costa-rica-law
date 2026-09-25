@@ -1,0 +1,1 @@
+Artículo 18.- Uso correcto de los recursos: Toda persona designada deberá utilizar de forma eficiente, responsable y transparente los recursos que le sean asignados para el cumplimiento de sus funciones.

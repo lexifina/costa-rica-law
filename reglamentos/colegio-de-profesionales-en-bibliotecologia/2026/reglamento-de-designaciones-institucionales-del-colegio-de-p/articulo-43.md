@@ -1,0 +1,1 @@
+Artículo 43.- Control presupuestario: Los montos invertidos en designaciones serán registrados y supervisados por la Tesorería del COPROBI, junto con el acompañamiento de la Fiscalía, conforme al presupuesto aprobado.

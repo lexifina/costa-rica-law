@@ -1,0 +1,1 @@
+Artículo 17.- Confidencialidad y fidelidad institucional. La información a la que accedan las personas designadas en el ejercicio de sus funciones deberá ser tratada con confidencialidad, de conformidad con la normativa vigente y las disposiciones institucionales del COPROBI, resguardando los intereses del Colegio.

@@ -1,0 +1,1 @@
+Artículo 8.- Clasificación de las designaciones. Las designaciones institucionales podrán clasificarse como permanentes, temporales, nacionales o internacionales, de acuerdo con su naturaleza y alcance, duración y ámbito de actuación.

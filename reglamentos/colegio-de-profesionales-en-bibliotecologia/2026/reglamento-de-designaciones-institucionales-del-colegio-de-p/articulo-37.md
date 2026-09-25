@@ -1,0 +1,1 @@
+Artículo 37.- Liquidación de gastos: La persona designada deberá presentar, además del informe correspondiente de participación, en un plazo no mayor a quince (15) días naturales, todas las facturas autorizadas y la documentación oficial que respalde la erogación incurrida por el COPROBI.

@@ -1,0 +1,1 @@
+Artículo 23.- Plazo para resolver: El Comité Evaluador contará con un plazo máximo de diez (10) días hábiles posteriores al cierre de la convocatoria para emitir y trasladar la recomendación correspondiente a la Junta Directiva, la cual será valorada en la sesión más próxima.

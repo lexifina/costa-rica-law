@@ -1,0 +1,2 @@
+Artículo 46.- Fiscalización: Las denuncias sobre presuntas irregularidades en el ejercicio de una designación deberán ser elevadas a la Fiscalía para su investigación preliminar y la conformación del expediente correspondiente, para su presentación recomendativa ante la Junta Directiva y su posterior traslado al Tribunal de Honor, cuando corresponda.
+En caso de que la denuncia sea contra la Fiscalía, la misma debe ser elevado a directamente al Tribunal de Honor.

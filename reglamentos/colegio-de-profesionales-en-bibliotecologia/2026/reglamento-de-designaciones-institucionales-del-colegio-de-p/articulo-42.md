@@ -1,0 +1,1 @@
+Artículo 42.- Publicidad de la gestión: Con el fin de promover la transparencia institucional, la Junta Directiva podrá disponer la publicación de resúmenes ejecutivos de los informes de designación en los medios oficiales del COPROBI, resguardando la información confidencial y los datos personales conforme a la normativa vigente.

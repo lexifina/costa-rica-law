@@ -1,0 +1,1 @@
+Artículo 41.- Revisión de los informes: Todos los informes serán conocidos por la Junta Directiva en la sesión más próxima posterior a su entrega, la cual podrá darlos por recibidos, solicitar aclaraciones o requerir información adicional cuando lo considere necesario.

@@ -1,0 +1,2 @@
+CAPÍTULO VI: DISPOSICIONES FINALES Y TRANSITORIAS
+Artículo 48.- Reformas: Cualquier modificación a este reglamento deberá ser sometido a consulta de la comunidad colegiada, con el fin de promover la transparencia, la participación y el fortalecimiento de la normativa institucional. Las observaciones recibidas serán valoradas antes de remitir la versión final a la Asamblea General, para su aprobación conforme al artículo 15 de la Ley Orgánica.

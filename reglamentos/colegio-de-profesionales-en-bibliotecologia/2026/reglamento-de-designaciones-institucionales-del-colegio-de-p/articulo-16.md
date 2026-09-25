@@ -1,0 +1,1 @@
+Artículo 16.- Asistencia obligatoria: La participación en sesiones, reuniones o actividades oficiales será de carácter obligatorio, salvo causas debidamente justificadas, las cuales deberán ser comunicadas mediante correo electrónico a la entidad correspondiente, con copia a la Tesorería y a la Fiscalía de la Junta Directiva.

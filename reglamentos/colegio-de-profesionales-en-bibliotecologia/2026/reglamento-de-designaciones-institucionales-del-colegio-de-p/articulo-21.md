@@ -1,0 +1,1 @@
+Artículo 21.- Composición del Comité Evaluador: La Junta Directiva designará un Comité Evaluador conformado por al menos tres miembros, quienes actuarán con objetividad, imparcialidad y transparencia, absteniéndose de participar cuando exista conflicto de interés.

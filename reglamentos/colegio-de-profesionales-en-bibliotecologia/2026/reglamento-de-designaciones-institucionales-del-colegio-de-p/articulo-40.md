@@ -1,0 +1,3 @@
+CAPÍTULO V: CONTROL Y TRANSPARENCIA
+Sección 1: Rendición de Cuentas
+Artículo 40.- Informe de designación: Las personas designadas deberán presentar un informe por semestre, o bien al finalizar su gestión, ante la Junta Directiva del COPROBI, sobre las gestiones realizadas, los avances obtenidos y las actividades desarrolladas en el ejercicio de la designación institucional. Deberán adjuntar, respecto de cada reunión, los documentos oficiales correspondientes —convocatoria, actas y fotografías— junto con el informe semestral respectivo. Dicho informe, acompañado de un resumen ejecutivo, deberá remitirse a la Junta Directiva para que forme parte de la memoria institucional.

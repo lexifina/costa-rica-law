@@ -1,0 +1,1 @@
+Artículo 47.- Medidas disciplinarias: El incumplimiento comprobado de las personas designadas por la Junta Directiva podrá derivar, según la gravedad de la falta, en amonestación escrita o en la destitución de la designación por parte de la Junta Directiva. En ambos casos deberá seguirse el procedimiento administrativo correspondiente, con garantía del debido proceso.
