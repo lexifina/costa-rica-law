@@ -1,0 +1,2 @@
+Artículo 8º- Incorporación. Las instituciones, en el ámbito de sus competencias, prioridades institucionales y conforme a su disponibilidad presupuestaria, podrán incorporar las acciones contempladas en los planes de acción de la PNIECC en sus instrumentos de planificación institucional (POA/POI).
+Las instituciones participantes podrán considerar, como referencia orientadora, las acciones establecidas en el Primer Plan de Acción 2026-2030, sin que ello genere obligaciones adicionales a las previstas en el ordenamiento jurídico vigente.
