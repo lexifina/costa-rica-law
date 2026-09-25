@@ -1,0 +1,6 @@
+Artículo 4. Requisitos para ser persona usuaria
+Para adquirir la condición de persona usuaria del Programa de Compostaje de San José y acceder al uso de una compostera comunal, será requisito indispensable cumplir con lo siguiente:
+a) Inscripción formal: Inscribirse en el Programa de Compostaje de San José mediante comunicación al correo electrónico oficial serviciosambientales@msj.go.cr, y/o por medio de los Gestores Comunales de la Municipalidad de San José, conforme a los mecanismos habilitados para tal efecto.
+b) Capacitación obligatoria: Recibir y aprobar la capacitación básica impartida por la Municipalidad de San José sobre la correcta separación de los residuos orgánicos y el uso adecuado de la compostera.
+c) Situación tributaria al día: Que la propiedad donde se instalará y utilizará la compostera se encuentre al día en el pago de las tasas municipales y del impuesto sobre bienes inmuebles ante la Municipalidad de San José.
+d) Formalización de la participación: Suscribir el Acuerdo de Participación al Programa de Compostaje de San José, mediante el cual la persona usuaria acepta las condiciones, obligaciones y responsabilidades establecidas en el presente Reglamento y sus anexos.
