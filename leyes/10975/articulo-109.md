@@ -1,0 +1,2 @@
+ARTÍCULO 109- Cese de operaciones del buque de bandera costarricense
+En el caso de los buques de bandera costarricense, la desatención del plan correctivo o del acuerdo de compromiso ante faltas graves conllevará a la suspensión del certificado de navegabilidad e internacionales emitidos por la autoridad marítima nacional, hasta tanto sea presentado nuevo plan o acuerdo de compromiso aprobado por la autoridad designada. Dicho plan o acuerdo deberá contemplar su efectiva ejecución dentro de un plazo máximo de treinta días hábiles.

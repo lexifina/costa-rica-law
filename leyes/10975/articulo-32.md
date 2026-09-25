@@ -1,0 +1,2 @@
+ARTÍCULO 32- Niveles de protección
+El plan de protección de la instalación portuaria contemplará los tres niveles de protección que se definen en el capítulo dieciséis, parte A del Código de Protección de Buques e Instalaciones Portuarias, así como procedimientos detallados que claramente definan las actividades de preparación, prevención y respuesta que tendrán lugar en cada nivel de amenaza, a cumplir por la organización o el personal que será responsable de llevar a cabo esas actividades.

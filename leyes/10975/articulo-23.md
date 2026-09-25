@@ -1,0 +1,2 @@
+ARTÍCULO 23- Compromiso de confidencialidad
+Todos los miembros de los comités locales deberán firmar un acuerdo de confidencialidad, de forma que el manejo de la información solo pueda ser accedida y discutida entre los miembros y aquellas personas que el comité local autorice; asimismo, implementarán medidas que prevengan el acceso no autorizado a la información o documentación en materia de protección marítima.

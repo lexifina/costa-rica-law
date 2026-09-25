@@ -1,0 +1,4 @@
+ARTÍCULO 87- Funciones y habilitación de los oficiales de protección de la instalación, del buque y de la compañía
+El oficial de protección es la persona designada para asumir la responsabilidad de elaboración de la evaluación de protección, la elaboración, implementación, revisión y actualización del plan de protección respectivo, así como la coordinación con los otros tipos de oficiales indicados en el artículo anterior, en la interfaz buque-puerto, así como todas aquellas funciones detalladas en el manual.
+El oficial de protección deberá disponer de las condiciones laborales para poder ejercer a cabalidad sus funciones, y no podrán asignársele funciones que contravengan o debiliten el debido ejercicio de los controles propios de protección marítima.
+Cumplidas las exigencias normativas vigentes, la autoridad designada emitirá la disposición para la habilitación del oficial de protección.

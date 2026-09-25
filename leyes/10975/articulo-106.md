@@ -1,0 +1,2 @@
+ARTÍCULO 106- Suspensión de la Declaración de Cumplimiento de la Instalación Portuaria o del Certificado Internacional de Protección del Buque de bandera costarricense
+En el caso de desatención de los apercibimientos de las faltas determinadas sin causa fundamentada y la debida presentación del plan correctivo o acuerdo de compromiso dentro del plazo otorgado, se provocará inmediatamente la suspensión de la Declaración de Cumplimiento o Certificado Internacional de Protección del Buque de bandera costarricense, según corresponda.

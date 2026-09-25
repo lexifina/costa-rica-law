@@ -1,0 +1,2 @@
+ARTÍCULO 42- Objetivo del procedimiento de auditoría externa
+Los procedimientos de auditoría externa aplicados por parte del equipo auditor de la autoridad designada constituyen el medio para aprobar los planes de protección de la instalación portuaria o verificar que el plan de protección de la instalación portuaria cumple con los requerimientos establecidos en el Código de Protección de Buques e Instalaciones Portuarias, lo cual permitirá expedir, mantener, renovar o rechazar una Declaración de Cumplimiento de la Instalación Portuaria.

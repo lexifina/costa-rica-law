@@ -1,0 +1,2 @@
+ARTÍCULO 54- Elaboración de la evaluación de la protección del buque por parte de una organización de protección reconocida
+La autoridad designada, a solicitud de la compañía, podrá utilizar los servicios de una organización de protección reconocida autorizada por la autoridad marítima, para que realice la evaluación de protección del buque de un determinado buque de bandera costarricense, la cual deberá seguir el procedimiento de aprobación ordinario.
