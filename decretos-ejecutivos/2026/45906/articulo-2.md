@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones y dependencias del Sector Público, así como las entidades del Sector Privado, dentro del marco de sus competencias y disponibilidad de recursos, podrán colaborar con la realización del evento, sin detrimento del cumplimiento de sus fines institucionales.
