@@ -1,0 +1,3 @@
+ARTÍCULO 53- Obligatoriedad
+La compañía presentará a la autoridad designada una evaluación de protección del buque, la cual estará redactada en idioma español, para el correspondiente estudio, análisis y su eventual aprobación. Adicional al ejemplar en idioma español, se debe contar a bordo con un ejemplar redactado en el idioma o idiomas de trabajo del buque.
+En caso de que la evaluación de protección del buque no sea aprobada, la autoridad designada deberá indicar los aspectos de ampliación o mejora de la propuesta, para lo cual el solicitante dispondrá de un plazo de treinta días calendario para su nueva presentación.

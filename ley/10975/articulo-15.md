@@ -1,0 +1,3 @@
+ARTÍCULO 15- Compromiso de confidencialidad
+Todos los miembros del Comité Nacional de Protección Marítima deberán firmar un acuerdo de confidencialidad, de forma que el manejo de la información que se catalogue como de acceso restringido solo pueda ser accedida y discutida entre los miembros y aquellas personas que el Comité Nacional autorice.
+El Comité Nacional se asegurará de que los miembros o participantes deban conocer las evaluaciones o planes de protección concretos de las distintas instalaciones portuarias, asimismo, deberán estar capacitados para implementar medidas que prevengan el acceso no autorizado a esa documentación.

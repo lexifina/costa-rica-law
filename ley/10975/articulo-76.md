@@ -1,0 +1,2 @@
+ARTÍCULO 76- Clasificación de los hallazgos
+Estos hallazgos serán clasificados como conformidades o no conformidades, los cuales deberán estar apoyados por sus correspondientes evidencias objetivas verificables, las no conformidades e incumplimientos se pueden subclasificar para dar prioridad a la acción correctiva en: leves, graves y muy graves, conforme a la clasificación de faltas establecidas en la presente ley.

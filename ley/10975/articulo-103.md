@@ -1,0 +1,5 @@
+ARTÍCULO 103- Plan correctivo
+Una vez notificado el apercibimiento, dentro del plazo otorgado, la instalación portuaria o el buque deberá:
+a) En el caso de faltas leves, deberá presentar un plan correctivo de atención de las faltas señaladas y su implantación deberá disponer de un cronograma de ejecución, de forma que se cumpla antes de la siguiente auditoría anual externa de parte de la autoridad designada.
+b) En el caso de faltas graves, deberá presentar un plan correctivo de atención de las faltas señaladas y su implantación deberá disponer de un cronograma de ejecución en un plazo de treinta días hábiles, lo cual podrá ser prorrogado a solicitud del interesado por una única vez.
+c) En el caso de las faltas muy graves, se debe emitir un acuerdo de compromiso de parte del representante de la instalación portuaria o el buque de ejecución inmediata, donde definan las acciones de subsanación de las faltas identificadas, con un plazo máximo de implantación efectiva de treinta días hábiles.

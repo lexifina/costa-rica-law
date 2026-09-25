@@ -1,0 +1,3 @@
+ARTÍCULO 88- Funciones y habilitación de los oficiales de protección de la autoridad designada
+El oficial de protección de la autoridad designada es la persona encargada de vigilar y controlar el cumplimiento de los procedimientos y protocolos establecidos en los planes de protección de las instalaciones portuarias y los buques, así como todas aquellas funciones detalladas en el manual vigente.
+La autoridad designada deberá disponer en forma permanente de al menos dos oficiales de protección de autoridad designada por cada instalación portuaria, para ejercer a cabalidad las funciones indicadas y los turnos establecidos.

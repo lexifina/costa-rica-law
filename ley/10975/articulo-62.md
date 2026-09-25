@@ -1,0 +1,2 @@
+ARTÍCULO 62- Aprobación del plan de protección del buque
+El plan de protección del buque deberá ser aprobado por la autoridad designada, quien dispondrá de un plazo de treinta días hábiles para su revisión y comunicación del resultado. En caso de requerirse ampliaciones o mejoras, deberán notificarse al oficial de protección de la compañía, quien dispondrá de un mes calendario para atender las observaciones emitidas y remitir nuevamente a la autoridad designada.

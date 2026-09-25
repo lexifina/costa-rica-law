@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Evaluación de Protección de la Instalación Portuaria
+ARTÍCULO 24- Evaluación de Protección de la Instalación Portuaria
+La Evaluación de Protección de la Instalación Portuaria es un análisis del riesgo de todos los aspectos en las operaciones y condiciones de la instalación portuaria, para determinar qué elementos de estos permitan la eventual o inminente vulnerabilidad; el enfoque que adopte está determinado por la necesidad de tomar decisiones basadas en riesgos, con el fin de definir aquellas medidas imprescindibles para mantener un nivel de protección aceptable en la instalación portuaria.
+En caso de que la instalación portuaria combine operaciones con buques a los que no se les aplique los alcances del capítulo XI-2 del “Convenio Internacional para la Seguridad de la Vida Humana en el Mar”, Ley 8708, del 26 de febrero de 2009, y las normas complementarias vigentes, deberá contemplar en las etapas de evaluación, elaboración del plan de protección e implementación, procedimientos y protocolos relacionados con los buques no Solas.

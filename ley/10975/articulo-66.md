@@ -1,0 +1,2 @@
+ARTÍCULO 66- Resguardo de la documentación
+El plan de protección del buque se protegerá contra el acceso o las divulgaciones no autorizadas, distribuidos de la siguiente manera: dos copias del plan de protección del buque impresos y en formato digital; de ellas, una para la compañía y otra a bordo del buque; y una copia impresa y en formato digital para la autoridad designada. La versión digital deberá estar protegida mediante procedimientos destinados a evitar que se borre, destruya o altere sin autorización.

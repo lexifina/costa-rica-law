@@ -1,0 +1,2 @@
+ARTÍCULO 26- Elaboración de la Evaluación de Protección de la Instalación Portuaria por parte de una organización de protección reconocida
+La autoridad designada, a solicitud del operador portuario, podrá autorizar el uso de los servicios de una organización de protección reconocida, para que realice la evaluación de la protección de una determinada instalación portuaria situada en el territorio nacional, la cual deberá seguir el procedimiento de aprobación ordinaria.

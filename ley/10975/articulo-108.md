@@ -1,0 +1,2 @@
+ARTÍCULO 108- Cierre de operaciones de la instalación portuaria
+En el caso de las instalaciones portuarias, la desatención del plan correctivo o del acuerdo de compromiso ante faltas graves conllevará al cierre de operaciones del puerto, hasta tanto sea presentado nuevo plan o acuerdo de compromiso aprobado por la autoridad designada. Dicho plan o acuerdo deberá contemplar su efectiva ejecución dentro de un plazo máximo de treinta días hábiles.

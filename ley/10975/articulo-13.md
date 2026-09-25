@@ -1,0 +1,4 @@
+ARTÍCULO 13- Convocatoria y funcionamiento de las sesiones del Comité Nacional de Protección Portuaria
+El Comité Nacional sesionará de manera ordinaria al menos cada tres meses de cada año y, de manera extraordinaria, cuando alguno de sus miembros lo solicite a la autoridad designada.
+Durante el desarrollo de un evento de emergencia que afecte la protección marítima, se reunirá cuantas veces sean necesarias, con el objeto de formular recomendaciones que ayuden al fortalecimiento de las medidas de protección marítima, además de brindar una respuesta oportuna y efectiva al evento suscitado, con los recursos disponibles.
+Cuando la naturaleza de los asuntos a tratar lo amerite, el Comité Nacional podrá invitar a personas especializadas, entidades públicas o privadas y representantes de instituciones públicas o privadas, para participar con voz, pero sin voto, en temas específicos relacionados con sus competencias.

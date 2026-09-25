@@ -1,0 +1,2 @@
+ARTÍCULO 38- Resguardo de la documentación
+El plan de protección de la instalación portuaria se protegerá contra el acceso o divulgaciones no autorizadas, distribuidos de la siguiente manera: dos copias del plan de protección de la instalación portuaria impresos y en formato digital para el operador portuario y una copia impresa y en formato digital para la autoridad designada. La versión digital deberá estar protegida mediante procedimientos destinados a evitar que se borre, destruya o altere sin autorización.
