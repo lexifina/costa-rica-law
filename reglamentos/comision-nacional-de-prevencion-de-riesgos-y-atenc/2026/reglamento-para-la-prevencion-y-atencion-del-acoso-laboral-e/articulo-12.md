@@ -1,0 +1,1 @@
+Artículo 12°. Denuncia de acoso laboral en el lugar de trabajo: Las denuncias de acoso laboral en el lugar de trabajo se llevarán a cabo a partir de un procedimiento interno para la atención de denuncias por acoso laboral, definido con anterioridad e informado a las personas trabajadoras. (Anexo 1. Esquema Flujo proceso de denuncia de acoso laboral).

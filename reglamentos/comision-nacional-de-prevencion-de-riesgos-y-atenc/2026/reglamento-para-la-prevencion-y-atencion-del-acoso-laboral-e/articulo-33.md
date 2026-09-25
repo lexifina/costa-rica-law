@@ -1,0 +1,1 @@
+Artículo 33°. Designación de la persona Encargada de Denuncias: En un lapso de tres meses a partir de la publicación de este Reglamento, la Presidencia deberá designar a una persona encargada de la recepción de las denuncias previo a la conformación de la comisión investigadora.

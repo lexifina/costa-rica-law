@@ -1,0 +1,1 @@
+Artículo 23°. Plazo del Procedimiento Administrativo: El procedimiento de acoso laboral no podrá exceder el plazo de dos meses calendario, contados a partir de la interposición de la denuncia. Ello sin perjuicio de que se amplíe el plazo debidamente motivado según lo establece la Ley General de Administración Pública.

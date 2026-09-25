@@ -1,0 +1,3 @@
+Artículo 7º. Configuración del Acoso Laboral. Para que pueda configurarse el acoso laboral, se analizará la concurrencia de los siguientes elementos:
+a) La Naturaleza Lesiva de la Conducta: Se trata de un conjunto de comportamientos y prácticas inaceptables, o de amenazas de tales comportamientos y prácticas, que tengan por objeto, causar o sean susceptibles de causar un daño físico, psicológico o económico.
+b) La Frecuencia: Conforme a lo establecido en el Convenio 190 de la OIT, la conducta puede manifestarse una sola vez o de manera repetida. Un solo acto de especial gravedad que produzca un daño significativo será suficiente para constituir acoso laboral.

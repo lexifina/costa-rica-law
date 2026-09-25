@@ -1,0 +1,2 @@
+Artículo 37°. Emisión de Guía Técnica. En un plazo máximo de tres meses, contados a partir de la entrada en vigor del presente Reglamento, la Dirección Ejecutiva en conjunto con la Junta de Relaciones Laborales deberá elaborar, aprobar y/o modificar, la guía técnica orientada a la interpretación y aplicación de las disposicionesprocesales contenidas en este instrumento, una vez aprobado el documento final la Dirección Ejecutiva procederá con la publicación de la guía.
+ACUERDO APROBADO UNÁNIME FIRME
