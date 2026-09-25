@@ -1,1 +1,0 @@
-Artículo 7º-Órganos externos e internos: Se consideran órganos externos a entidades gubernamentales, organizaciones profesionales u otras instituciones ajenas a COPROBI; y órganos internos, a comisiones, juntas o instancias propias del colegio.

@@ -1,1 +1,0 @@
-Artículo 35.-Monto máximo permitido por representación: El pago total mensual no podrá superar el monto por mora de colegiatura vigente, salvo aprobación expresa de la Junta Directiva en casos excepcionales.

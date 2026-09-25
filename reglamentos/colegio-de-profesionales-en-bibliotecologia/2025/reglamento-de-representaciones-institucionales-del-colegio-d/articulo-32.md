@@ -1,1 +1,0 @@
-Artículo 32.-Se dará estipendio por sesión presencial, monto adicional a lo establecido en el artículo 31, pero por sesión presencial debidamente probada el monto será del 100% de la cuota colegiada mensual.
