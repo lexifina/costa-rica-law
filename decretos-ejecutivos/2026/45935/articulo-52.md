@@ -1,0 +1,2 @@
+Artículo 52.- El lugar de teletrabajo debe ser limpio, seguro, sano y protegido, así como bien resguardado en aspectos de higiene, ventilación e iluminación. Es obligación de las personas teletrabajadoras velar porque se den esas condiciones en todo momento del teletrabajo. El Ministerio podrá, en cualquier momento y dentro de la jornada laboral de teletrabajo, verificar que se den adecuadamente las mencionadas condiciones en el lugar de teletrabajo.
+Las personas teletrabajadoras deberán atender y colaborar en las visitas de verificación que se realicen.

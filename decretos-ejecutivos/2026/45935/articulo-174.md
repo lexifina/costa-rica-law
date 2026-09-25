@@ -1,0 +1,1 @@
+Artículo 174.- Ninguna persona que haya denunciado ser víctima de discriminación por razones diversidad sexual o haya testificado a favor de alguna de las partes, podrá sufrir por ello, perjuicio personal alguno en su empleo.

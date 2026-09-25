@@ -1,0 +1,2 @@
+Artículo 59.- El teletrabajo no modifica derechos adquiridos de las personas teletrabajadoras, salvo los indispensables ajustes que resulten necesarios adoptar para el desempeño del teletrabajo, según se acuerde en el contrato de teletrabajo.
+El teletrabajo no podrá propiciar, ni originar tratos discriminatorios entre las personas teletrabajadoras y las personas servidoras homólogas que laboran presencialmente en las instalaciones físicas del Ministerio.

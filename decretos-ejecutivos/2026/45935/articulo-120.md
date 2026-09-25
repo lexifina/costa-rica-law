@@ -1,0 +1,8 @@
+Artículo 120.- Se consideran conductas de acoso laboral:
+a) Discriminación laboral: Toda distinción, exclusión, restricción o preferencia fundada en razón de edad, sexo, orientación sexual, identidad de género, vestimenta, apariencia física, color, origen, cultura, nacionalidad, ciudadanía, idioma, credo religioso, ideología, filiación política o filosófica, estado civil, condición económica, social o de salud, profesión, ocupación u oficio, grado de instrucción, capacidades diferentes y/o discapacidad física, intelectual o sensorial o estado de embarazo, que carezcan de toda razonabilidad desde el punto de vista laboral.
+b) Desprotección de la integridad y seguridad laboral: aquellas acciones, conductas u omisiones, comportamientos o prácticas tendientes a poner en riesgo la integridad y la seguridad de la persona servidora.
+c) Entorpecimiento laboral: aquellas acciones, conductas u omisiones, comportamientos o prácticas tendientes a entorpecer el cumplimiento de la labor, hacerla más gravosa o retardarla, perjudicando a la persona servidora.
+d) Inequidad laboral: asignación de funciones ajenas al cargo, y a sus atribuciones específicas, en menosprecio de la persona servidora.
+e) Maltrato: aquellas acciones, conductas u omisiones, comportamientos o prácticas que impliquen violencia contra la integridad física y psíquica, contra las personas servidoras del Ministerio.
+f) Congelamiento o aislamiento: la minimización de las capacidades, conocimientos o potencialidades de la persona servidora del Ministerio y su aislamiento con el resto del personal.
+g) Toda afectación grave que se enmarque en el concepto de acoso u hostigamiento laboral estipulado en este Reglamento.

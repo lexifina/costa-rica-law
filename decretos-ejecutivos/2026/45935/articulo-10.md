@@ -1,0 +1,1 @@
+Artículo 10.- El Ministerio con cargo al Fondo del Plan Nacional de Desarrollo, podrá reconocer el pago de un sobresueldo a aquellas personas servidoras no cubiertos por el Régimen de Servicio Civil que fueren trasladados a prestar sus servicios de conformidad con lo establecido en el artículo 8° de la LPN.

@@ -1,0 +1,1 @@
+Artículo 93.- Si vencido el tiempo señalado por la respectiva institución educativa para concluir el plan de estudios de la disciplina cursada, la persona servidora beneficiaria requiriese más tiempo, se le podrá prorrogar la licencia hasta por un máximo de tres años.

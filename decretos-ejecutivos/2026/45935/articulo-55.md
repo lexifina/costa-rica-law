@@ -1,0 +1,1 @@
+Artículo 55.- Las personas teletrabajadoras deberán cumplir con el lugar de trabajo convenido, el horario establecido, la jornada laboral que corresponda y con estar disponibles para el Ministerio durante dicho horario. El incumplimiento de estas obligaciones será sancionado conforme las condiciones establecidas en el inciso d) del artículo 9 de la LRT.

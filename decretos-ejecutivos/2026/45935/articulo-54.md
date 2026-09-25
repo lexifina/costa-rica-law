@@ -1,0 +1,1 @@
+Artículo 54.- En cualquier momento, el Ministerio podrá exigir a las personas servidoras la presentación en las instalaciones -sede central u oficinas regionales-, o en algún otro lugar relacionado con los servicios institucionales. La fecha y hora de presentación tomará en cuenta las posibilidades de traslado de las personas teletrabajadoras.

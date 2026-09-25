@@ -1,0 +1,1 @@
+Artículo 5°. Todas aquellas personas servidoras que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante la o el Ministro de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

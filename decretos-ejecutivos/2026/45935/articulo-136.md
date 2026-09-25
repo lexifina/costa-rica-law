@@ -1,0 +1,1 @@
+Artículo 136.- El procedimiento de acoso u hostigamiento laboral no podrá exceder el plazo de dos meses calendario, contados a partir de la interposición de la denuncia. Ello sin perjuicio de que se amplíe el plazo, mediante acto debidamente motivado.

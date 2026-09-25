@@ -1,0 +1,1 @@
+Artículo 201.- Las autoridades a cargo de los procesos de contratación administrativa deberán adoptar las medidas de verificación necesarias para evitar violaciones al régimen de prohibiciones establecido en la Ley de General de Contratación Pública, N°9986 de 16 de febrero de 2021, conforme al Título I Aspectos Generales, Capítulo V Régimen de Prohibiciones.

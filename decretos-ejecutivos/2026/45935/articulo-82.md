@@ -1,0 +1,6 @@
+CAPÍTULO XIII
+Incapacidades
+Artículo 82.- En caso de incapacidad por enfermedad o riesgo profesional, el monto del subsidio será del 80% del salario ordinario que devengue la persona servidora durante los primeros treinta días naturales. Durante este período, el Ministerio como patrono reconocerá un subsidio del 80% por los primeros tres días. A partir del cuarto día y hasta el día treinta, el subsidio patronal será del 20% cuando la incapacidad sea emitida por la CCSS, cubriendo la diferencia para completar el 80% cuando sea otorgado por el INS.
+A partir del día treinta y uno, el subsidio será del 100% del salario ordinario. Durante este exceso, el Ministerio como patrono otorgará un subsidio del 40% cuando la incapacidad sea de la CCSS y pagará la diferencia para completar el 100% del subsidio que otorgue el INS.
+Bajo ninguna circunstancia, la suma de los subsidios otorgados por los órganos aseguradores y el monto a cargo del Ministerio podrá exceder el 100% del salario total de la persona servidora.
+La persona servidora en estado de gravidez, con independencia de si pertenece o no al Régimen de Servicio Civil, deberá tramitar su incapacidad por medio de su jefatura inmediata. Dicho trámite deberá realizarse con al menos quince días de anticipación a su retiro, conforme a la fecha señalada por el personal médico tratante.

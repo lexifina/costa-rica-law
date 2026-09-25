@@ -1,0 +1,1 @@
+Artículo 161.- La o el Ministro deberá informar, una vez recibida una denuncia de hostigamiento sexual, tanto a la Defensoría de los Habitantes de la República como a la Dirección Nacional e Inspección de Trabajo del MTSS, de conformidad con lo indicado en los artículos 7 y 8 de la LCHAS.

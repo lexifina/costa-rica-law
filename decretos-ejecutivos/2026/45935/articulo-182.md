@@ -1,0 +1,1 @@
+Artículo 182.- Ninguna persona servidora deberá patrocinar, representar o prestar servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a éstos o cualquier otro tipo de asunto.

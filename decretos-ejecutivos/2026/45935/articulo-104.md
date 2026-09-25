@@ -1,0 +1,1 @@
+Artículo 104.- Todo lo relacionado con infracciones o sanciones será tramitado por la OGEREH, el que dictará las normas y procedimientos a las cuales deberán sujetarse todas las personas funcionarias. Si se presentara un conflicto entre la Jefatura de la OGEREH y otra jefatura, el caso se resolverá siguiendo el recurso jerárquico.

@@ -1,0 +1,3 @@
+Artículo 137.- El expediente administrativo deberá encontrarse completo y ordenado, debidamente foliado en estricto orden cronológico y de forma consecutiva, para ello deberá contener toda la documentación referente a la denuncia, a la prueba recabada, a las resoluciones dictadas por el Comisión Investigadora, así como las actas de actuaciones y de notificación.
+Durante la tramitación del procedimiento administrativo, expediente será custodiado por la Comisión Investigadora.
+El expediente y la información contenida en él serán de carácter confidencial, excepto para las partes y su patrocinio letrado, los cuales tendrán acceso a todos los documentos y pruebas que lo conforman.

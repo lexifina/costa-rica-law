@@ -1,0 +1,3 @@
+Artículo 118.- Este Capítulo regula los procedimientos de prevención y sanciones de conductas y situaciones que constituyan acoso u hostigamiento laboral en las relaciones de empleo entre las personas servidoras y el Ministerio, incluye los puestos de confianza.
+Será de obligatoria observancia los Jerarcas, las Jefaturas y las personas servidoras del Ministerio del cumplimiento del presente Reglamento.
+También serán aplicables a las conductas de acoso u hostigamiento laboral que ejerzan las personas servidoras contra terceros que presten sus servicios en las instalaciones del Ministerio, oficinas regionales o instituciones adscritas.

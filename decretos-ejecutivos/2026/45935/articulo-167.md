@@ -1,0 +1,2 @@
+Artículo 167.- El procedimiento interno administrativo se llevará a cabo conforme los principios establecidos en este Reglamento.
+La valoración de la prueba tomará en consideración las reglas de la sana crítica, la lógica y la experiencia. Ante la inexistencia de prueba directa se deberá valorar la prueba indiciaria y todas las otras del derecho común, atendiendo los principios que rigen en materia de derechos humanos y fundamentales reconocidos en las normas internacionales de Derechos Humanos y en el ordenamiento jurídico costarricense.

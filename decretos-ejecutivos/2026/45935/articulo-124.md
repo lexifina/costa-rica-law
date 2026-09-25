@@ -1,0 +1,4 @@
+SECCIÓN II
+De la Comisión Institucional Permanente
+contra el Acoso u Hostigamiento Laboral y Sexual
+Artículo 124.- La o el Ministro podrá integrar una Comisión Institucional Permanente contra el Acoso u Hostigamiento Laboral y Sexual, conformada por siete personas servidoras del Ministerio, como sigue: una persona con formación en medicina y cirugía, una persona con formación en psicología, una persona con formación en salud ocupacional, una persona servidora de la Asesoría Jurídica, la Jefatura y una persona servidora de la OGEREH y la persona Directora Ejecutiva y Oficial Mayor, quien preside. La Jefatura de la OGEREH, presidirá en ausencia de la persona Directora Ejecutiva y Oficial Mayor. Las personas designadas deberán aceptar el nombramiento de manera expresa y comprometerse a garantizar la confidencialidad de todos los asuntos que conozcan en ejercicio de su cargo.

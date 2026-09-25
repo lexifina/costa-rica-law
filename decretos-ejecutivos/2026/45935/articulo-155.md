@@ -1,0 +1,2 @@
+Artículo 155.- En el procedimiento administrativo deberán seguirse los principios y procedimientos establecidos en Capítulo anterior, en lo conducente.
+En tratándose del procedimiento de hostigamiento sexual, en ningún caso, se podrá exceder el plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia, todo de conformidad con los dispuesto en el párrafo segundo del inciso segundo del artículo 5 de la LCHAS.

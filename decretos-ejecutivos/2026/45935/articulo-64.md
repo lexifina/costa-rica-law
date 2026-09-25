@@ -1,0 +1,2 @@
+Artículo 64.- Será responsabilidad de la persona teletrabajadora el pago de los servicios de energía, conectividad, telefonía, firma digital y otros recursos y medios de naturaleza similar que resulten necesarios o convenientes para el uso de las herramientas aplicadas al teletrabajo.
+La disponibilidad de un certificado de firma digital a nombre de las personas teletrabajadoras será indispensable para su desempeño y sólo podrá obviarse en aquellos casos en que su uso resulte absolutamente innecesario, según valore la jefatura inmediata.

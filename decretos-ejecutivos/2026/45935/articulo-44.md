@@ -1,0 +1,1 @@
+Artículo 44.- El Ministerio y las personas teletrabajadoras podrán incorporar de común acuerdo modificaciones a los contratos de teletrabajo, para asegurar el rendimiento de las labores asignadas o para generar la continuidad del teletrabajo cuando ocurran situaciones sobrevenidas que alteren las circunstancias consideradas originalmente.

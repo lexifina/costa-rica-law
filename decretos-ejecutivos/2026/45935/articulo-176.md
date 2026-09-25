@@ -1,0 +1,6 @@
+CAPÍTULO XX
+Regulaciones disciplinarias relacionadas con
+conductas ímprobas, fraudulentas y corruptas
+Artículo 176.- El deber de probidad le impone a las personas servidoras la obligación de evitar los conflictos de intereses o, en caso de su inevitabilidad, revelarlos y gestionarlos, para asegurar que las decisiones que adopte en cumplimiento de sus atribuciones se ajusten a la imparcialidad y a los objetivos propios de la institución en la que se desempeña, demostrando rectitud y buena fe en el ejercicio de las potestades que le confiere la ley. La persona servidora es la principal responsable de vigilar que sus intereses privados no afecten el buen desempeño de las funciones a su cargo por motivos de parcialidad, ni la confianza, credibilidad e imagen pública de la entidad en que labora, en consecuencia, debe:
+a) Evitar colocarse en situaciones de conflicto de intereses, mediante la realización de actividades privadas, actos o por relaciones con terceros, que menoscaben o pongan en riesgo su imparcialidad, independencia e integridad para el ejercicio de las funciones de su cargo o puedan generar dudas razonables acerca de su objetividad o independencia o la de la entidad en que labora.
+b) Adoptar todas las previsiones posibles y necesarias, para organizar sus asuntos privados de una manera adecuada a fin de prevenir los conflictos de intereses.

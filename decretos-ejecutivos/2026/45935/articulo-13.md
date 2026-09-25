@@ -1,0 +1,1 @@
+Artículo 13.- El Ministerio podrá modificar transitoriamente el horario, establecido en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause perjuicio al servicio público o a las personas servidoras.

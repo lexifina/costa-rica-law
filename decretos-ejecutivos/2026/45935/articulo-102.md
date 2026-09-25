@@ -1,0 +1,1 @@
+Artículo 102.- Las personas servidoras del Ministerio están en la obligación de comunicar a la Jefatura inmediata los hechos que merezcan sanciones disciplinarias y de los cuales tengan conocimiento con ocasión del ejercicio de sus cargos.

@@ -1,0 +1,1 @@
+Artículo 148.- La o el Ministro deberá informar a la Defensoría de los Habitantes de la República sobre las denuncias de acoso u hostigamiento laboral interpuestas, para conocimiento formal de éstas, acceso al expediente e intervención facultativa en los procedimientos administrativos. Asimismo, deberá remitirle la resolución final de los mismos.

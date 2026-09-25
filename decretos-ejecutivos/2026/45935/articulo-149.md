@@ -1,0 +1,1 @@
+Artículo 149.- Ninguna persona que haya denunciado ser víctima de acoso u hostigamiento laboral o haya testificado a favor de alguna de las partes, podrá sufrir por ello, perjuicio personal alguno en su empleo.

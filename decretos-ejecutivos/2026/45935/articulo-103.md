@@ -1,0 +1,2 @@
+Artículo 103.- Al decidir sobre la aplicación de toda sanción se tomarán en cuenta los antecedentes de la persona servidora, la naturaleza de la falta, la gravedad de los perjuicios causados, su rango jerárquico, la naturaleza de sus funciones y la prueba de descargo y demás documentos en el expediente.
+Toda sanción se aplicará una vez que se haya oído a la persona interesada y analizado los elementos de juicio aportados por el mismo en su descargo.

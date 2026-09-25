@@ -1,0 +1,3 @@
+Artículo 22.- Las respectivas Jefaturas, en coordinación con la OGEREH, señalarán la época en que las personas servidoras del Ministerio disfrutarán sus vacaciones, procurando hacer la fijación del cronograma dentro de las quince semanas posteriores al día en que se cumplan las cincuenta semanas de servicio continuo, tratando de que no se altere la buena marcha de las funciones encomendadas y que no sufra menoscabo la efectividad del descanso.
+Si transcurrido el plazo de quince semanas no se ha señalado la época del disfrute de sus vacaciones, éste deberá reclamarlas por escrito ante su Jefatura inmediata, con copia a la
+OGEREH, dentro de los tres meses siguientes a las quince semanas mencionadas.

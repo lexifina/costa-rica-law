@@ -1,0 +1,2 @@
+Artículo 183.- Las personas servidoras no deberán establecer intereses o relaciones con personas físicas o jurídicas que sean razonablemente inconvenientes o incompatibles con su
+cargo y con las atribuciones y funciones que tengan asignadas, así como evitar actuaciones que puedan dar motivo de duda razonable de que sus relaciones sociales, de negocios, de familia o de amistad influyen en alguna forma en sus labores en razón de su cargo.

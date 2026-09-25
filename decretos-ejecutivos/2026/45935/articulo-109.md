@@ -1,0 +1,1 @@
+Artículo 109.- Cuando las personas servidoras cometan faltas que representen incumplimientos de las obligaciones, de las prohibiciones o de los deberes de la relación de servicio, se les aplicarán amonestaciones verbales si la naturaleza de la falta se considera leve en los procedimientos de conocimiento o constatación que se lleven a cabo para analizar los hechos ocurridos.

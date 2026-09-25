@@ -1,0 +1,1 @@
+Artículo 106.- Sin perjuicio de las sanciones disciplinarias correspondientes a las llegadas tardías, a las salidas anticipadas, las omisiones de marca, las ausencias y el abandono de trabajo, éstas acarrearán la pérdida del salario correspondiente al tiempo no laborado.

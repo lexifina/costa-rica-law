@@ -1,0 +1,1 @@
+Artículo 62.- El Ministerio no proporcionará ningún tipo de mobiliario a las personas teletrabajadoras, será responsabilidad de las personas teletrabajadoras aportar el mobiliario que sea necesario para el teletrabajo, salvo casos excepcionales debidamente aprobados por el Jerarca Ministerial.

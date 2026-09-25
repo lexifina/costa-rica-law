@@ -1,0 +1,1 @@
+Artículo 177-. Las personas servidoras tienen terminantemente prohibido solicitar y aceptar, directa o indirectamente, regalos, comisiones, premios, donaciones que están prohibidas por la LCCEI, dádivas, favores, propinas o beneficios de cualquier tipo o valor económico, ofrecidos o entregados, en razón o con ocasión del desempeño de su cargo público.

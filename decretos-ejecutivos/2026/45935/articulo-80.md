@@ -1,0 +1,2 @@
+Artículo 80.- Las ausencias por enfermedad que excedan de cuatro días, deberá justificarlas la persona servidora con certificación médica o epicrisis extendida por la CCSS o por el INS.
+Las ausencias por enfermedad que no excedan de cuatro días dentro de un mismo mes calendario podrán ser justificadas por los servicios médicos de la CCSS o del INS. También podrán ser justificadas por medio de un certificado o dictamen médico extendido por un médico particular, debidamente inscrito y habilitado por el Colegio de Médicos y Cirujanos de Costa Rica.

@@ -1,0 +1,1 @@
+Transitorio I.- Las reformas relativas a llegadas tardías, salidas anticipadas, omisiones de marca, ausencias y abandono de trabajo, entrarán en vigencia el primer día del mes siguiente a su publicación.

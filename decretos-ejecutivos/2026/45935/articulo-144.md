@@ -1,0 +1,2 @@
+Artículo 144.- Concluido el procedimiento, la o el Ministro dictará el acto final en un plazo máximo de un mes. La resolución deberá ser notificada a las partes, en la forma y por cualquiera de los medios previstos por los artículos 239, 241, 243 y 262 inciso b) de la LGAP.
+Contra lo resuelto cabrán los recursos ordinarios establecidos en los artículos 343, 345, 346 y 349 la LGAP. La resolución indicará el plazo para presentar los recursos y ante quienes deberán ser interpuestos.

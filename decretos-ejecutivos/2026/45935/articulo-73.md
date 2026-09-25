@@ -1,0 +1,2 @@
+Artículo 73.- El registro de asistencia deberá realizarse única y exclusivamente por la persona servidora a quien corresponda, de forma veraz y puntual, asegurando que los datos queden registrados de manera clara en el sistema.
+Ninguna persona podrá registrar asistencia en nombre de otra, alterar o manipular el sistema o los datos que de él se deriven. El sistema deberá conservar los registros históricos como respaldo para eventuales verificaciones administrativas o auditorías internas.

@@ -1,0 +1,1 @@
+Artículo 114.- Todo procedimiento administrativo se realizará conforme las normas especiales previstas en el presente Reglamento, en lo no regulado, se aplicará supletoriamente lo que establece la LGAP en su Libro Segundo, concretamente en cuanto al procedimiento ordinario, así como lo establecido en los artículos 21 y 22 de LMEP, referente al procedimiento de despido.

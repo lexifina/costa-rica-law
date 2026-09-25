@@ -1,0 +1,1 @@
+Artículo 172.- Las sanciones por discriminación por razones diversidad sexual se aplicarán según la gravedad de los hechos y serán las siguientes: amonestación escrita, suspensión sin goce de salario y despido sin responsabilidad patronal.

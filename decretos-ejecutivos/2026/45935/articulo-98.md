@@ -1,0 +1,1 @@
+Artículo 98.- La OGEREH será responsable de velar por el cumplimiento de las normas anteriores y no dará trámite a nuevas licencias sin antes verificar que la persona servidora se haya hecho acreedor a ellas de conformidad con las prescripciones anteriores.

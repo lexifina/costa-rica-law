@@ -1,0 +1,1 @@
+Artículo 24.- Las vacaciones serán absolutamente incompensables, pero cuando por cualquier causa la personas servidora termina su relación de servicio con el Ministerio sin haber disfrutado total o parcialmente de sus vacaciones anuales, tendrá derecho al pago correspondiente.

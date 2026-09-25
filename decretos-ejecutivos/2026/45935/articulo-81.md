@@ -1,0 +1,1 @@
+Artículo 81.- En todos los casos la persona servidora deberá notificar lo antes posible a su Jefatura inmediata, verbalmente o por escrito, de las causas que le impiden asistir a su trabajo o cumplir con las labores en la modalidad de teletrabajo. Por ninguna razón, salvo la de fuerza mayor, podrá esperar hasta el segundo día para notificarla.

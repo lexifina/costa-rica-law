@@ -1,0 +1,2 @@
+Artículo 50.- Excepcionalmente, el Ministerio, por motivos de necesidad institucional establecidos mediante resolución razonada, podrá acordar con las personas teletrabajadoras un lugar donde se realice el teletrabajo fuera del territorio nacional, esto conforme lo define los artículos 2 y 11 de la LRT. En estos casos, el Ministerio deberá establecer y asumir todos los componentes adicionales y especiales que deberán acompañar el teletrabajo, tales como aseguramientos, control de riesgos, jurisdicción aplicable, extranjería, representaciones,
+horarios, viáticos y transporte.

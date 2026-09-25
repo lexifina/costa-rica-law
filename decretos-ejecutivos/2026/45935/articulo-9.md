@@ -1,0 +1,1 @@
+Artículo 9°. -El Ministerio está facultado para asignar a sus personas servidoras las labores que considere necesarias, siempre que éstas resulten compatibles con sus capacidades, preparación y los requisitos del puesto para el cual fueron nombrados.

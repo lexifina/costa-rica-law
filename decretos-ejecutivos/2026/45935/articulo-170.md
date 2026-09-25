@@ -1,0 +1,1 @@
+Artículo 170.- Transcurrido el traslado de la denuncia, la Comisión Investigadora, dentro de un término que no podrá exceder de tres días hábiles, dictará resolución mediante la cual hará comparecer a las partes involucradas a una audiencia oral y privada, y ordenará recibir las probanzas que considere admisibles, con inclusión de declaraciones de testigos ofrecidos.

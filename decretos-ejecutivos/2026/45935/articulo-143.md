@@ -1,0 +1,2 @@
+Artículo 143.- Concluida la audiencia y en un plazo máximo de quince (15) días hábiles la Comisión Investigadora, emitirá un informe debidamente fundado a la o el Ministro.
+En caso de que se compruebe la existencia del acoso u hostigamiento laboral denunciado, deberá incluir en el informe las recomendaciones y sanciones disciplinarias correspondientes que podrá la o el Ministro en contra de la parte denunciada y para que pueda resolver las peticiones de las partes.

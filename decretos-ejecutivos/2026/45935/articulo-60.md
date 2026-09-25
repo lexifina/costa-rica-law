@@ -1,0 +1,2 @@
+Artículo 60.- El Ministerio y las personas teletrabajadoras podrán acordar el préstamo por parte de la institución de aparatos y equipos telemáticos para ser utilizados en el teletrabajo.
+Al proporcionarse aparatos y equipos telemáticos para labores teletrabajables, la persona servidora asume las obligaciones de custodia y resguardo de bienes, las responsabilidades de velar, proveer y realizar obras de mantenimiento y los compromisos de aportar o recibir la capacitación adecuada para el uso correcto de los aparatos y equipos.

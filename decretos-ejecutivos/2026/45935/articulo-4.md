@@ -1,0 +1,1 @@
+Artículo 4°. Las relaciones de empleo entre el Ministerio y su personal se rigen por el Derecho Público. Se exceptúan los regímenes de empleo y las categorías de puestos, comprendidos los de confianza, que están excluidos del Régimen de Servicio Civil.

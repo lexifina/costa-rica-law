@@ -1,0 +1,6 @@
+Artículo 42.- La persona teletrabajadora tendrá que reincorporarse a la modalidad presencial cuando se dé alguna de las siguientes circunstancias:
+a) Cambio en las condiciones de la persona teletrabajadora: Cuando el Ministerio o la Jefatura inmediata conozca del incumplimiento de alguna de las condiciones o requisitos establecidos en este Reglamento o el contrato de teletrabajo.
+b) Por conveniencia institucional: Cuando se determine por el Ministerio o la Jefatura inmediata, que existe un interés institucional para que la persona teletrabajadora continúe sus labores presencialmente.
+c) Por interés de la Jefatura inmediata: La Jefatura inmediata deberá justificarlo debidamente ante el Ministerio, para que éste acuerde lo pertinente.
+d) Por interés de la persona teletrabajadora: Cuando la persona teletrabajadora solicite la reincorporación a la modalidad presencial deberá justificarlo oportunamente a su Jefatura inmediata y al Ministerio, para que se acuerde lo pertinente.
+Cuando la persona teletrabajadora no alcance los objetivos y metas planteadas en el plan de trabajo, la Jefatura inmediata hará un análisis de las causas que obstaculizaron el alcance de los objetivos y metas, en caso necesario gestionará las acciones que corresponda, en el marco de lo establecido en este artículo.

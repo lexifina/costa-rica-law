@@ -1,0 +1,1 @@
+Artículo 25.- No interrumpirán la continuidad del trabajo las licencias sin goce de salario, la enfermedad justificada de la persona servidora ni ninguna otra causa de suspensión de la relación del trabajo, conforme al artículo 74 del CT.

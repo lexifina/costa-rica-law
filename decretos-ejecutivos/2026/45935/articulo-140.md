@@ -1,0 +1,1 @@
+Artículo 140.- Por la naturaleza del procedimiento y de las relaciones de poder entre las partes, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento administrativo.

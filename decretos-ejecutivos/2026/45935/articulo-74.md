@@ -1,0 +1,3 @@
+Artículo 74.- La persona servidora que, por culpa o dolo, registre la asistencia de otra persona, permita que registren en su nombre o altere los datos del SIGUCA, incurrirá en falta grave sancionable conforme al régimen disciplinario descrito en el Capítulo XV del presente Reglamento.
+De igual manera, se considerará falta grave encomendar, inducir o permitir tales actos. Estas faltas podrán acumularse para efectos de reincidencia durante un período de tres meses.
+No obstante, no se aplicará sanción disciplinaria cuando la persona servidora comunique de inmediato el error a la Jefatura inmediata o a la OGEREH, a más tardar dentro de la jornada laboral siguiente al hecho.

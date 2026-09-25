@@ -1,0 +1,1 @@
+Artículo 180.- Las personas servidoras deberán rechazar cualquier tipo de invitación a agradecimientos, eventos recreativos, comidas y otras atenciones similares que se les hayan dirigido con motivo u ocasión del desempeño de su cargo público, que puedan interpretarse como intentos de influir sobre su independencia e integridad en el ejercicio de las funciones a su cargo.

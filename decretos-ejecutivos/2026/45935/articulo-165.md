@@ -1,0 +1,9 @@
+Artículo 165.- Según lo descrito en el artículo anterior, serán consideradas como manifestaciones de discriminación por razones de diversidad sexual, los siguientes comportamientos:
+a) Aquellas expresiones públicas que incitan o promueven la discriminación, la estigmatización o la hostilidad, hacia una persona, debido a la orientación sexual o identidad de género de la víctima.
+b) Uso de palabras escritas u orales de connotación discriminatoria por razones de diversidad sexual que resulten hostiles, humillantes y/o ofensivas para quien las recibe, debido a la orientación sexual o identidad de género de la víctima.
+c) Realización de gestos, ademanes o cualquier otra conducta no verbal de naturaleza o connotación discriminatoria por razones de diversidad sexual, indeseada por quien las recibe.
+d) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación, actual o futura de empleo o de estudio, debido a la orientación sexual o identidad de género de la víctima.
+e) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita o implícita, condición para el empleo o estudio, debido a la orientación sexual o identidad de género de la víctima.
+f) Agresiones físicas contra una persona, debido a la orientación sexual o identidad de género de la víctima.
+g) Acercamientos corporales y otros contactos físicos de naturaleza o connotación discriminatoria, debido a la orientación sexual o identidad de género de la víctima, indeseables u ofensivos para quien los reciba, siempre que no se traten de las conductas previstas en la LCHAS.
+h) Cualquier otra forma de discriminación reconocida, prohibida o tutelada por los instrumentos internacionales de derechos humanos ratificados por Costa Rica o por el ordenamiento jurídico costarricense.
