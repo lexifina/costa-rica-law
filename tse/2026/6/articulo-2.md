@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento será aplicable a las acciones formativas y de capacitación que organice el Tribunal Supremo de Elecciones, por intermedio del Instituto de Formación y Estudios en Democracia (IFED), cuyos gastos se financien, en todo o en parte, con el Fondo.
+Las actividades que realice el IFED, en cumplimiento de las atribuciones que le confiere el artículo 309 del Código Electoral, que no utilicen recursos del Fondo están excluidas de las disposiciones de este reglamento.
