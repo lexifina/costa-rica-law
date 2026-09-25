@@ -1,0 +1,2 @@
+Artículo 13. Asesoría Legal y Control Interno.
+La Asesoría Legal brindará criterio jurídico previo a la publicación en procedimientos complejos, a la adjudicación y a modificaciones contractuales de riesgo. El departamento de Control interno ejercerá su función de control en las etapas de planificación, preparación, tramitación, adjudicación, formalización, ejecución y liquidación de las contrataciones de bienes, servicios y obras de la Municipalidad de La Unión, conforme a la normativa aplicable.

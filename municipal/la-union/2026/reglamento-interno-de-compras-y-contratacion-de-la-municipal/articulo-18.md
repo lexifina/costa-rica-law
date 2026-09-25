@@ -1,0 +1,2 @@
+Artículo 18. Aprobación del pliego de condiciones y Acto final en procedimientos por excepción.
+En los procedimientos de contratación por excepción previstos en el artículo 3 de la Ley General de Contratación Pública y su Reglamento, la aprobación del pliego de condiciones, indiferentemente de la cuantía, corresponderá al administrador de contrato y el acto final, indiferentemente de la cuantía, corresponderá a la Alcaldía Municipal, con base en la recomendación de la Proveeduría y el Administrador del contrato.

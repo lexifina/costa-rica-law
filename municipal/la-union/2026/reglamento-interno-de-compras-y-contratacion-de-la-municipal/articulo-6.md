@@ -1,0 +1,3 @@
+Artículo 6. Prohibición de fraccionamiento.
+Se prohíbe fraccionar las contrataciones o dividir artificialmente una contratación en partes menores con el fin de alterar el procedimiento aplicable, eludir controles, reducir la publicidad o evitar los requisitos de un proceso de mayor cuantía. La planificación y el estudio de mercado deberán justificar la unidad técnica del objeto y los lotes, cuando corresponda.
+La separación de objetos será legítima cuando exista justificación técnica o presupuestaria documentada en el expediente, y siempre deberá tramitarse bajo el procedimiento que corresponda al monto total estimado de la contratación.

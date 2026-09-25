@@ -1,0 +1,2 @@
+Artículo 27. Presupuesto para profesionalización.
+Para asegurar el cumplimiento de lo anterior, la Municipalidad destinará anualmente, como mínimo, un 0,5% del presupuesto institucional de compras, con el fin de financiar programas de capacitación, certificación, adquisición de herramientas tecnológicas, participación en programas oficiales de formación y fortalecimiento de los procesos de contratación pública y almacenaje.

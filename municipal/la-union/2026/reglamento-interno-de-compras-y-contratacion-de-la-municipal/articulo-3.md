@@ -1,0 +1,2 @@
+Artículo 3. Marco normativo y supletoriedad.
+Las contrataciones municipales se regirán por la normativa nacional vigente en materia de compras públicas (ley, su reglamento y disposiciones complementarias), por el Código Municipal, por las directrices y lineamientos emitidos por las autoridades competentes y, supletoriamente, por este Reglamento. En caso de conflicto, prevalecerá la normativa de mayor jerarquía.

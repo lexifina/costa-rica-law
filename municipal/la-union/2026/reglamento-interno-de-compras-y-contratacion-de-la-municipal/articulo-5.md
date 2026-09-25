@@ -1,0 +1,2 @@
+Artículo 5. Sistema digital unificado.
+La Municipalidad realizará todas sus actuaciones en materia de contratación a través del sistema digital unificado oficial (SICOP u otro que lo sustituya), incluyendo planificación, publicaciones, recepción de ofertas, comunicaciones, trámites de recursos, actuaciones de ejecución contractual y archivo electrónico del procedimiento de contratación en sus diferentes etapas. La utilización de otros medios sólo procederá en los supuestos autorizados por la normativa y deberá quedar debidamente motivada y documentada.
