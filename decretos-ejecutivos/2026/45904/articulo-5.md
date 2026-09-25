@@ -1,0 +1,1 @@
+Artículo 5. Las personas dependientes que realicen actividades remuneradas en Costa Rica, estarán sujetas a la legislación del Estado en materia tributaria, laboral y de seguridad social en lo referente al ejercicio de dichas actividades.
