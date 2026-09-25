@@ -1,0 +1,1 @@
+Artículo 14-Otros funcionarios obligados a presentar caución. Deben presentar caución a favor de la Municipalidad de Cartago los funcionarios que sustituyan en sus cargos a los titulares obligados a presentar esta garantía, cuyo nombramiento sea igual o superior a un mes calendario.

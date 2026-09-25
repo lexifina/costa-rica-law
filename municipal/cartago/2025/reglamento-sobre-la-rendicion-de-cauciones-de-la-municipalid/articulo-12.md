@@ -1,0 +1,1 @@
+Artículo 12.-Caucionantes del Nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen puestos de: Proveedor (a), Subproveedor (a), Jefe (a) de Contabilidad y Tesorero (a) Municipal.

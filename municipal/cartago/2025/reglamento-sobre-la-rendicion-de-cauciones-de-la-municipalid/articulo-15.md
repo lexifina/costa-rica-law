@@ -1,0 +1,1 @@
+Artículo 15.-Ajuste de la caución. El funcionario que reciba un traslado de puesto, de un puesto a otro que implique una nueva ubicación en la clasificación de los niveles, debe ajustar el monto de la garantía conforme a la nueva condición, para lo cual cuenta con el mismo plazo que se establece en el artículo 5 de este reglamento.

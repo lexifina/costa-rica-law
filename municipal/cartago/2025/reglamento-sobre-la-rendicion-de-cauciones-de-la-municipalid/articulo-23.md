@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Procedimiento técnico para el cálculo de montos de caución
+Artículo 23.- Parámetros para el cálculo del monto de la caución. El monto de la caución se calculará con base en los siguientes criterios técnicos: a) Nivel de responsabilidad del cargo, b) Monto promedio anual de fondos o bienes administrados, c) Riesgo operativo asociado a la función, d) Salario base del funcionario. El Área Administrativa Financiera deberá documentar anualmente la metodología utilizada para la actualización de los montos, la cual deberá ser aprobada por la Alcaldía y comunicada al Departamento de Recursos Humanos.

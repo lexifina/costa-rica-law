@@ -1,0 +1,1 @@
+Transitorio l.-Los funcionarios que al momento de la entrada en vigor de este reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentarla ante la Tesorería Municipal para el trámite correspondiente.

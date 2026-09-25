@@ -1,0 +1,1 @@
+Artículo 9.-Sanciones disciplinarias. El Departamento de Recursos Humanos gestionará la aplicación de la sanción disciplinaria correspondiente en caso de que la garantía no se presente dentro del plazo definido, o se detecte alguna otra anomalía, siempre siguiendo el debido proceso.

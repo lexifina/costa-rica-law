@@ -1,0 +1,4 @@
+CAPÍTULO V
+Del monto a caucionar
+Articulo 18.- Caución mínima y actualización del monto de la caución. El monto mínimo de la garantía a favor de la Municipalidad de Cartago será de dos salarios base.
+Anualmente, la Dirección Financiera Municipal actualizará para cada nivel el monto por caucionar tomando como parámetro el salario base establecido en la Ley N° 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año, e informará a la Alcaldía como al Departamento de Recursos Humanos de los nuevos montos. Dicha actualización será comunicada por escrito a los funcionarios caucionantes por parte del Departamento de Recursos Humanos. Le corresponderá velar por dicha actualización del monto de garantía según las competencias asignadas en el capítulo tercero de este reglamento.

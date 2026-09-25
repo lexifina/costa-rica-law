@@ -1,0 +1,2 @@
+Artículo 7.-Momento para rendir la caución. Se otorga un plazo máximo de 05 días hábiles para que los funcionarios exigidos a presentar caución suscriban la póliza de fidelidad a favor de la Municipalidad y presenten al Departamento de Recursos Humanos una copia de los documentos de respaldo.
+El mismo plazo rige para los funcionarios que lleguen a ser nombrados en puestos de trabajo que este reglamento les exija la suscripción de la póliza de fidelidad.

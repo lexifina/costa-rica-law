@@ -1,0 +1,4 @@
+Artículo 17.-Revisión del listado de funcionarios obligados a caucionar. Una vez al año la Alcaldía Municipal, con la colaboración del Departamento de Recursos Humanos y el Área Administrativa Financiera, revisará el listado de funcionarios obligados a caucionar, referenciado en los artículos anteriores, para lo cual se deberá de considerar, entre otros aspectos:
+a) La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos, valores y bienes municipales.
+b) La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por el Área Administrativa Financiera.
+c) El nivel de responsabilidad, el monto administrado de fondos, valores y bienes municipales, y el salario correspondiente al caucionante.

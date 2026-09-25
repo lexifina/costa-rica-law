@@ -1,0 +1,1 @@
+Artículo 4.- Aplicación conforme a directrices de la Contraloría General de la República. Este reglamento se interpretará y aplicará conforme a las directrices, resoluciones y lineamientos vigentes emitidos por la Contraloría General de la República en materia de rendición de cauciones, así como a las disposiciones legales y técnicas que resulten aplicables.

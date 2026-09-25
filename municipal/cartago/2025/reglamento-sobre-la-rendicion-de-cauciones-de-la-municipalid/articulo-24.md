@@ -1,0 +1,1 @@
+Artículo 24.- Revisión y apelación. Todo funcionario podrá solicitar por escrito la revisión del nivel de clasificación asignado o del monto de caución requerido, ante el departamento de Recursos Humanos. La resolución deberá emitirse en un plazo máximo de 10 días hábiles, previa consulta al Área Administrativa Financiera y con aprobación de la Alcaldía.

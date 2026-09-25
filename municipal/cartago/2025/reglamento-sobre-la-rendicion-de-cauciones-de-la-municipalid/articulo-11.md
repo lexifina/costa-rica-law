@@ -1,0 +1,1 @@
+Artículo 11.-Caucionantes del Nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen el cargo de: alcalde (sa), Vicealcalde (sa) primero (a), Auditor (a) Interno (a), Titular Superior del Área Administrativa Financiera y Titular Superior del Área Tributaria y Titular Superior del Área de Operaciones.
