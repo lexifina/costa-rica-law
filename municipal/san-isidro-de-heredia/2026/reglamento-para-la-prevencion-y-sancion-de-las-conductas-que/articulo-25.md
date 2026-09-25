@@ -1,0 +1,1 @@
+Artículo 25.- Prueba a cargo de la Comisión Investigadora. Corresponderá a la Comisión Investigadora gestionar la obtención de la prueba, aunque la persona denunciante no la haya presentado con la denuncia.

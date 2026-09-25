@@ -1,0 +1,1 @@
+Artículo 36.- Denuncias falsas. En caso de que la persona denunciada considere que la denuncia presentada en su perjuicio califica dentro de la figura de las denuncias falsas en los términos del artículo 16 de la Ley No. 7476, podrá acudir a las instancias judiciales que correspondan para hacer valer sus derechos.

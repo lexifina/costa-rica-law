@@ -1,0 +1,1 @@
+Artículo 20.- Intervención de la persona denunciada. Antes de la apertura formal del procedimiento por parte de la Comisión Investigadora, no se otorgará audiencia ni se dará participación a la persona denunciada, sino hasta el momento procedimental oportuno.

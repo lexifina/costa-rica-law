@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la Comisión Investigadora
+Artículo 9.- Integración de la Comisión Investigadora. El conocimiento de las denuncias y su respectivo trámite será realizado por una Comisión Investigadora, designada por la Alcaldía Municipal, la cual estará integrada por tres personas funcionarias, de manera que se garantice la representación de la diversidad de género. Las personas integrantes deberán contar con conocimientos en al menos las siguientes materias: hostigamiento sexual, violencia de género, derechos humanos y/o régimen administrativo disciplinario.
+La Comisión Investigadora se regirá, como todo órgano colegiado, por las regulaciones previstas en la Ley General de la Administración Pública, excepto lo que respecta a las sesiones ordinarias y extraordinarias al tratarse de una comisión que actúa ante solicitudes concretas de la Alcaldía Municipal.

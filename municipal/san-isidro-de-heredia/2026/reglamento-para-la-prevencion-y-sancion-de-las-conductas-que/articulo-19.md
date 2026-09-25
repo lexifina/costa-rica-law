@@ -1,0 +1,5 @@
+Artículo 19.- Conformación del expediente y traslado de la denuncia. El Departamento de Igualdad de Género y Desarrollo Social dispondrá de un plazo de 24 a 48 horas, contado a partir de la recepción de la denuncia, para:
+a) Conformar y foliar un expediente, que debe contener al menos la denuncia formal así como las pruebas aportadas por la persona denunciante.
+b) Trasladar el expediente a la Alcaldía Municipal, con la finalidad de que se conforme la Comisión Investigadora.
+c) De conformidad con lo dispuesto en el artículo 7 de la Ley contra el hostigamiento o Acoso Sexual en el Empleo y la Docencia, No. 7476, cuando se presente una denuncia por hostigamiento sexual, deberá informar de dicha recepción a la Defensoría de los Habitantes de la República, en un plazo no mayor a los diez días hábiles.
+Una vez que la Alcaldía Municipal recibe la denuncia por parte del Departamento de Igualdad de Género y Desarrollo Social, contará con un plazo no mayor a cuarenta y ocho horas para llevar a cabo el nombramiento mediante resolución de la Comisión Investigadora y el traslado formal de la denuncia.

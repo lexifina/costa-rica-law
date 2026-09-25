@@ -1,0 +1,1 @@
+Artículo 33.- Sanciones para las personas electas popularmente. Las sanciones aplicables a las personas electas popularmente serán las de amonestación escrita, suspensión o pérdida de credencial, según corresponda.

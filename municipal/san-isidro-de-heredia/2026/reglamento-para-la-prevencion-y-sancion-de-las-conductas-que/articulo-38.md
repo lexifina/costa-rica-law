@@ -1,0 +1,1 @@
+Artículo 38.- Prescripción. El plazo para la aplicación de sanciones disciplinarias prescribirá de conformidad con lo establecido en el artículo 414 del Código de Trabajo. El cómputo, la suspensión, la interrupción y los demás extremos relativos a la prescripción se regirán por lo estipulado en el Código de Trabajo.

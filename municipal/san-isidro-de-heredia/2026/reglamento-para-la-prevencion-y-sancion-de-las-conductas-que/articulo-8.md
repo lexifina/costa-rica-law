@@ -1,0 +1,8 @@
+Artículo 8.- Responsabilidades del Comité para la Prevención del Hostigamiento Sexual.El Comité se encargará de velar por la ejecución de la Política de Prevención. Dentro de sus funciones están:
+a) Comunicar en forma escrita a las personas que laboran en la Municipalidad San Isidro de Heredia de la existencia de una política interna que prevenga, desaliente y evite las conductas de hostigamiento o acoso sexual.
+b) Establecer una estrategia de divulgación y promoción de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia y del presente reglamento.
+c) Brindar asesoría y orientación a las personas funcionarias de la Municipalidad de San Isidro de Heredia sobre la prevención y manejo de la situación del hostigamiento sexual en la Institución.
+d) Promover jornadas de capacitación, charlas, talleres, seminarios, conferencias y otras actividades tendientes a sensibilizar y capacitar a todo el personal de la institución para la prevención de conductas de hostigamiento sexual, así como tomar medidas necesarias o dirigidas a garantizar un ambiente libre de hostigamiento sexual.
+e) Establecer coordinaciones con todas las instituciones gubernamentales y no gubernamentales que trabajen con la misma problemática; así como coordinar todo tipo de medidas necesarias para evitar y erradicar el hostigamiento sexual.
+f) Establecer equipos interdisciplinarios para brindar asesoramiento y apoyo a las víctimas brindándoles la orientación necesaria.
+g) Velar por las relaciones entre las personas que trabajan en la institución y las usuarias de sus servicios, que estén fundadas en el respeto mutuo para evitar conductas de hostigamiento sexual.

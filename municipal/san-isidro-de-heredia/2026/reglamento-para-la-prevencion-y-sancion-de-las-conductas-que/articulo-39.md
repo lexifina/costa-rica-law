@@ -1,0 +1,1 @@
+Artículo 39.- Normativa supletoria. Para lo no regulado expresamente en este reglamento, se aplicarán supletoriamente las disposiciones del Reglamento Autónomo de Organización y Servicios de la Municipalidad San Isidro de Heredia, el Código de Trabajo y la Ley General de Administración Pública.
