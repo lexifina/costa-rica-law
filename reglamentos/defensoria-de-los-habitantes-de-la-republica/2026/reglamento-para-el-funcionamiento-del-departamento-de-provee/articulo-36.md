@@ -1,0 +1,1 @@
+Artículo 36.- De las derogatorias. Mediante el presente Reglamento se derogan los Acuerdos N° 2111 del 28 de febrero de 2018 y sus reformas, N° 2558 del 20 de enero de 2023, N° 2610 del 28 de julio de 2023 y cualquier otra disposición normativa interna que se le oponga.

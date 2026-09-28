@@ -1,0 +1,1 @@
+Artículo 20.- Del administrador de contrato. Le corresponde fiscalizar la adecuada ejecución del contrato, conforme los requerimientos establecidos en el pliego de condiciones y en el contrato, emitir el recibido conforme del objeto contractual cuando corresponda, y cumplir con las obligaciones que establece la normativa y los entes rectores en materia de contratación.

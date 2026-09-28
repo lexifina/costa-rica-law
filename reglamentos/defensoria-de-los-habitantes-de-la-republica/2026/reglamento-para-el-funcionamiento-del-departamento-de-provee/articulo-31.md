@@ -1,0 +1,1 @@
+Artículo 31.- De la fase de ejecución contractual. Es responsabilidad de la Jefatura de la unidad solicitante, o de quien éste formalmente designe, dar el seguimiento, supervisión y recepción del objeto contractual de conformidad con los términos acordados por las partes en el contrato administrativo.
