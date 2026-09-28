@@ -1,1 +1,0 @@
-Artículo 46.—Contratos. Con el objetivo de determinar las responsabilidades, alcances y obligaciones que deberá atender tanto el funcionario convocado a laborar extrafunciones, como el Teatro Nacional en tanto patrono, la Unidad de Recursos Humanos confeccionará un contrato de servicio entre la institución y el funcionario que laborará extrafunciones.

@@ -1,2 +1,0 @@
-Artículo 5º—Cargos de trabajo del personal de administración de servicios: el personal de Administración de Servicios que atiende los eventos del Teatro Nacional de Costa Rica al término de la jornada ordinaria, en días de descanso del personal y feriados, está conformado por los siguientes cargos de trabajo: personal de Boletería, de Limpieza y de Seguridad.
-(Así reformado mediante sesión ordinaria N° 013 del 22 de agosto del 2013)

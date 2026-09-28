@@ -1,2 +1,0 @@
-Artículo 26.—Forma de pago del tiempo laborado fijo para el personal de Administración de Servicios. El tiempo laborado fijo se pagará como hora extrafunción al personal de Administración de Servicios convocado, cada vez que haya que atender un evento programado por el Teatro Nacional de Costa Rica al término de la jornada ordinaria, en días libres o días feriados. Su reconocimiento se realizará según lo dispuesto en el artículo 16 del presente reglamento.
-(Así reformado mediante sesión N° 013 del 23 de agosto del 2013)

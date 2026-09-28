@@ -1,2 +1,0 @@
-Artículo 10.—Pago de la jornada ordinaria en días de descanso del personal o días feriados. El pago de la jornada laboral ordinaria en los días de descanso del personal que labora en horario de turismo, los días feriados, se realizará de acuerdo a lo estipulado en el Código de Trabajo, en el Reglamento para la Autorización, Reconocimiento y Pago del Tiempo Extraordinario en el Ministerio de Cultura y Juventud (Decreto Ejecutivo N° 34720-C de 18 de junio de 2008) y demás normativa laboral aplicable.
-(Así reformado mediante sesión ordinaria N° 013 del 22 de agosto del 2013)
