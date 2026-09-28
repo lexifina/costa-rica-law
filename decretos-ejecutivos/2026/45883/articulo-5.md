@@ -1,0 +1,4 @@
+Artículo 5
+Límites a la autorización
+1. La autorización para ejercer una actividad laboral en el Estado receptor finalizará en el momento en que el beneficiario deje de tener la condición de familiar conviviente y se concederá por un período no superior a la duración de la misión del funcionario diplomático, del funcionario consular o del miembro del personal técnico y administrativo de las Misiones Diplomáticas, de las Oficinas Consulares o de las Representaciones Permanentes ante Organizaciones Internacionales.
+2. La autorización estará sujeta a la condición de que el trabajo no esté reservado por ley exclusivamente a los nacionales del Estado receptor. No se concederá a personas que vayan trabajado ilegalmente en el Estado receptor o que hayan cometido en él infracciones de las leyes o reglamentos fiscales y de seguridad social. La autorización también podrá denegarse por razones de seguridad nacional.
