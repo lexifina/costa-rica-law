@@ -1,0 +1,1 @@
+Artículo 7.- Determinación del cobro. La Municipalidad de San Isidro cobrará la tarifa correspondiente, cuando tenga que realizar obras o prestar servicios a las personas propietarias o poseedoras de bienes inmuebles que omitan el cumplimiento de los deberes indicados en el artículo 84 del Código Municipal.

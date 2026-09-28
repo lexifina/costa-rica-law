@@ -1,0 +1,1 @@
+Artículo 18.- Del cobro administrativo y judicial. El cobro administrativo o judicial de las sumas o adeudos generados al amparo del presente reglamento deberá ajustarse a la normativa que al efecto emita la corporación municipal.

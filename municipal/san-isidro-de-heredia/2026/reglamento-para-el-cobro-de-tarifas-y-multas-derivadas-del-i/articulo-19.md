@@ -1,0 +1,1 @@
+Artículo 19.- Del pago y exoneración de los servicios brindados. La Municipalidad bajo ninguna circunstancia suministrará los servicios enunciados en el presente reglamento de forma gratuita, ni exonerará total o parcialmente el pago de cualquier multa, intereses o cuenta, salvo si existiere una disposición legal que lo autorice.
