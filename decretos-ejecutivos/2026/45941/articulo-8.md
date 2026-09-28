@@ -1,0 +1,4 @@
+Artículo 8.- Transparencia.
+La “Lista Oficial de Bienes relacionados con Riesgos Vinculados al Trabajo Forzoso u Obligatorio” será de acceso público y deberá publicarse en los sitios web oficial de los Ministerios de Comercio Exterior y de Trabajo y Seguridad Social.
+Si existiese información empleada en la elaboración o actualización de la Lista Oficial que por su naturaleza sea de acceso restringido o confidencial, conforme a la legislación costarricense, se deberá dejar constancia expresa en el expediente correspondiente de la elaboración de la Lista Oficial, que llevará al efecto el Ministerio de Comercio Exterior, de los motivos que impiden su libre acceso público.
+Toda información sensible que pudiera provenir del Ministerio de Hacienda, particularmente aquella de naturaleza tributaria, aduanera o fiscal; será tratada como confidencial de acuerdo con la normativa que regule la materia.

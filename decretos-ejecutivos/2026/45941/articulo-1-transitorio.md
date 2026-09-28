@@ -1,0 +1,1 @@
+Transitorio Único.- Los parámetros para la elaboración de la “Lista Oficial de Bienes relacionados con Riesgos Vinculados al Trabajo Forzoso u Obligatorio” deberán ser emitidos dentro de los sesenta (60) días naturales siguientes a la entrada en vigencia del presente Decreto Ejecutivo.

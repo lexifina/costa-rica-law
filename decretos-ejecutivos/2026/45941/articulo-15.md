@@ -1,0 +1,3 @@
+Artículo 15.- Cooperación interinstitucional y fortalecimiento de capacidades.
+El Estado costarricense podrá promover y participar en iniciativas de cooperación técnica y diálogo de fortalecimiento de capacidades con otros países y organizaciones internacionales, orientadas a mejorar las herramientas institucionales, técnicas y operativas para la prevención del trabajo forzoso en las cadenas de suministro internacional.
+Asimismo, se fomentará el desarrollo y la mejora de sistemas de control basados en riesgo, el intercambio de información interinstitucional y el fortalecimiento de las buenas prácticas de gestión coordinada de fronteras, con el fin de prevenir, detectar y abordar posibles casos de trabajo forzoso en el comercio internacional.

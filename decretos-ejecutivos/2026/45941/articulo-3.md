@@ -1,0 +1,2 @@
+Artículo 3.- Definición de Trabajo Forzoso u Obligatorio.
+De conformidad con el artículo 2 del Convenio N° 29 de la Organización Internacional del Trabajo, denominado “Convenio relativo al Trabajo Forzoso u Obligatorio”, aprobado mediante la Ley N° 2561 del 11 de mayo de 1960, y para efectos del presente Decreto Ejecutivo, “la expresión “trabajo forzoso u obligatorio” designa todo trabajo o servicio exigido a un individuo bajo la amenaza de una pena cualquiera y para el cual dicho individuo no se ofrece voluntariamente”, incluyendo trabajo forzoso infantil.

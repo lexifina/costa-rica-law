@@ -1,0 +1,2 @@
+Artículo 9.- Notas Explicativas.
+Para la debida aplicación de la “Lista Oficial de Bienes relacionados con Riesgos Vinculados al Trabajo Forzoso u Obligatorio”, los Ministerios de Comercio Exterior y de Trabajo y Seguridad Social podrán emitir notas explicativas sobre el alcance de la misma y los riesgos identificados, analizados y evaluados. Dichas notas también podrán establecer criterios y guías de orientación para la toma de decisiones basadas en la Lista Oficial.

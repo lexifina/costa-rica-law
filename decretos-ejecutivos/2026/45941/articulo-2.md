@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de Aplicación.
+El presente Decreto Ejecutivo será aplicable a los bienes incluidos en la “Lista Oficial de Bienes relacionados con Riesgos Vinculados al Trabajo Forzoso u Obligatorio” que pretendan ingresar al territorio nacional, que se encuentren bajo control aduanero o respecto de los cuales corresponda la actuación de las autoridades competentes, según la zona aduanera, la naturaleza de la mercancía y el ámbito material de competencia establecido en el ordenamiento jurídico.

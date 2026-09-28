@@ -1,0 +1,3 @@
+Artículo 14.- Reglas Internacionales.
+Las disposiciones del presente Decreto Ejecutivo se interpretarán y aplicarán de conformidad con las obligaciones laborales y comerciales internacionales asumidas por la República de Costa Rica, dentro del ámbito de las competencias de cada uno de los Ministerios de Gobierno firmantes.
+Las medidas previstas deberán aplicarse de manera objetiva, transparente, no discriminatoria y sustentadas en evidencia suficiente, evitando toda discriminación arbitraria o injustificable entre países en que prevalezcan las mismas condiciones y toda restricción encubierta al comercio internacional.

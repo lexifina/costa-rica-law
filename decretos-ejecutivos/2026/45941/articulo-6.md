@@ -1,0 +1,2 @@
+Artículo 6.- Estándar de Valoración.
+La valoración de la información relacionada con riesgos vinculados al trabajo forzoso u obligatorio se realizará con base en el estándar de razonabilidad, entendido como la existencia de información objetiva, verificable y suficiente que permita identificar, analizar y evaluar posibles riesgos vinculados a que los bienes en cuestión fueron total o parcialmente producidos, extraídos o manufacturados, en cualquier país o territorio aduanero, mediante trabajo forzoso u obligatorio.
