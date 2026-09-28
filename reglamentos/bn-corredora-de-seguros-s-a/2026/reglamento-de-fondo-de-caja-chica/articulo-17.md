@@ -1,0 +1,1 @@
+Artículo 17.—El formulario “Vale de Caja Chica” deberá contar con el VºBº de la Jefatura Administrativa Financiera. Quien solicita el adelanto de dinero debe de verificar con el encargado del contrato justo a tiempo, que el suministro que se pretende adquirir no existe en el almacén de la Corredora.

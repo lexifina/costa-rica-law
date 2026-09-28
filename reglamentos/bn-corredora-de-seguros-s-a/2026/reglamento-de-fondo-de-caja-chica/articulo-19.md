@@ -1,0 +1,1 @@
+Artículo 19.—Los adelantos y liquidaciones por concepto de viáticos se regirán de conformidad con el Reglamento de Gastos de Viajes dictado por la Contraloría General de la República y se utilizarán los formularios respectivos.

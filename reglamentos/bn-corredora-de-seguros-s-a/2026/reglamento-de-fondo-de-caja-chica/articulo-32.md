@@ -1,0 +1,1 @@
+Artículo 32.—Los casos no previstos en este Reglamento se resolverán de acuerdo con la jurisprudencia administrativa, la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley General de la Administración Pública, Reglamento de Gastos de Viajes y Transportes, Ley General de Contratación Pública y Reglamento General y demás leyes conexas.

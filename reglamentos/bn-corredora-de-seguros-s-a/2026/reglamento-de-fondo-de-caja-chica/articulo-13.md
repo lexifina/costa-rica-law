@@ -1,0 +1,1 @@
+Artículo 13.—El fondo de Caja Chica mantendrá únicamente dinero, cheques y los justificantes que respalden los trámites de compra de bienes y servicios, adelantos y gastos por viáticos efectuados por medio de este fondo.

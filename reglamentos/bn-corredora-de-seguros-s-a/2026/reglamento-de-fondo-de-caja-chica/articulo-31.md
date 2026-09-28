@@ -1,0 +1,1 @@
+Artículo 31.—La reincidencia en las actividades señaladas en el artículo anterior se considerarán como falta grave, previa sustanciación del procedimiento administrativo, a aquellos funcionarios responsables en el proceso de administración, control y correcta utilización de los fondos de Caja Chica.
