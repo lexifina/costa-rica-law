@@ -1,0 +1,12 @@
+PROMOTORA DEL COMERCIO EXTERIOR
+La Promotora del Comercio Exterior de Costa Rica (PROCOMER) comunica a las personas usuarias, terceras personas interesadas y al público en general el marco normativo vigente que se encuentra disponible para consulta en el sitio web de PROCOMER, en el apartado de Normativa, con el fin de garantizar su conocimiento, acceso y observancia: https://procomer.com/documentos/?ruta=politica-interna%2Fnormativa. Dentro de la normativa publicada se encuentran el Reglamento del Marco Institucional de la Ética (PRO-NOR-046), el Reglamento de Ética (Código de Ética) (PRO-NOR-016), la Norma para la Implementación de Trámites Electrónicos Internos y Externos “Norma Cero Papel” (PRO-NOR-028), la Norma para la Gestión de la Responsabilidad Social Empresarial de PROCOMER (PRO-NOR-050), la Norma de Igualdad y Equidad de Género (PRO-NOR-055), el Reglamento contra el Hostigamiento Laboral y la Discriminación de PROCOMER (PRO-NOR-063) y el Reglamento contra el Hostigamiento Sexual en PROCOMER (PRO-NOR-018).
+(Nota de Sinalevi: La Norma para la Gestión de la Responsabilidad Social Empresarial de PROCOMER (PRO-NOR-050) se extrajo del sitio web de la Promotora de Comercio Exterior y se transcribe a continuación:)
+Norma para la gestión de la
+Responsabilidad Social Empresarial
+de PROCOMER([1])([2][3])(3)
+PRO-NOR-050
+[1]En la sesión N°395-2022 del 28 de febrero de 2022, la Junta Directiva acordó incorporar lenguaje inclusivo en toda la normativa la institución, así como actualizar de las normas a la nueva estructura organizacional aprobada en las sesiones N° 393-2021 celebrada el 6 de diciembre de 2021, 394-2022 celebrada el 24 de enero del año 2022 y 395-2022 celebrada el 28 de febrero de 2022.
+[2] Se actualiza la nomenclatura con base en el Reglamento para la rendición de cuentas, aprobación de normativa interna y procedimientos operativos del SIG - Transitorio II.- Denominación de la normativa interna aprobada previamente por la Junta Directiva de PROCOMER. Reglamento aprobado por la Junta Directiva de PROCOMER N°435-2025.
+[3] En la sesión N° 446-2025 celebrada el 10 de noviembre de 2025, la Junta Directiva acordó actualizar la normativa a los ajustes de estructura organizacional y autorizó a la Administración para que actualice la normativa interna conforme a los cambios aprobados.
+Artículo 1.- Objeto
+Definir la estrategia de PROCOMER para gestionar la Responsabilidad Social Empresarial en todos los niveles de la Institución.
