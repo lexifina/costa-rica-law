@@ -1,5 +1,0 @@
-Artículo 9º—Representación externa e informes. Quien presida la CIIG representará al MOPT y rendirá los informes correspondientes de su participación en las siguientes Comisiones:
-a. Estrategia de Seguimiento a las Recomendaciones y Compromisos de la CEDAW, según Ley N° 6968 de 2 de octubre de 1984 de aprobación de la “Convención sobre la Eliminación de Todas las Formas de Discriminación contra la Mujer”.
-b. Comisión Técnica Interinstitucional de Coordinación y Ejecución de la Política de Igualdad y Equidad de Género (PIEG), según lo dispuesto en el artículo 10 del Decreto Ejecutivo N° 34729 de 3 de setiembre del 2008.
-c. Secretaría Técnica de Atención a las Mujeres en Condiciones de Pobreza, conforme lo establecido en el artículo 15 del Decreto Ejecutivo N° 30419 de 22 de enero del 2002.
-d. Comisión de Seguimiento del Sistema Nacional para la Atención y la Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar, según lo dispuesto en el artículo 10 de la Ley N° 8688 de 4 de diciembre del 2008.

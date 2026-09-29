@@ -1,1 +1,0 @@
-Artículo 5º—Organización interna de la CIIG. La CIIG podrá constituir grupos de trabajo para temas específicos, con participación de miembros de la propia Comisión y de otros invitados/as que se considere conveniente convocar. El aporte de cada grupo de trabajo será conocido según el informe respectivo en sesión de Comisión.
