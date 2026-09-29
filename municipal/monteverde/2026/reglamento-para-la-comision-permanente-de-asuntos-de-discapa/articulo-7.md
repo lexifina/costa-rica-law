@@ -1,0 +1,1 @@
+Artículo 7º—Quórum. El quórum para sesionar válidamente será la mayoría simple, la mitad de sus miembros integrantes más uno, que sería tres personas (estas tres personas serán las que tengan tanto voz como voto). Los acuerdos se tomarán por mayoría simple de los miembros presentes. En caso de empate la persona coordinadora tendrá voto de calidad para decidir.

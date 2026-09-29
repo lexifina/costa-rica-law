@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para todas las personas integrantes de la COMUDAM, la Oficina Municipal para personas con discapacidad que le sirva de auxilio, y en general, para todas las dependencias municipales en lo que les corresponda en relación con las acciones de la Comisión.

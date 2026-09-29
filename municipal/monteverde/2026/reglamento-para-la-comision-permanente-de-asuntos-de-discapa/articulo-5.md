@@ -1,0 +1,1 @@
+Artículo 5º—Coordinación. En su primera sesión, la COMUDAM elegirá de su seno a una persona coordinadora, quien será responsable de convocar y dirigir las sesiones, así como de velar por el cumplimiento de los acuerdos.
