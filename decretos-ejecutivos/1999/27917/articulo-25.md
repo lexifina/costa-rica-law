@@ -1,38 +1,40 @@
-Artículo 25.—Direcciones Regionales. El nuevo rol de la División de Obras Públicas obliga a una presencia real, efectiva y oportuna de sus funcionarios en los cantones, y así coadyuvar en la atención de sus necesidades. Esto condiciona a la División a fortalecer la cantidad y calidad de los grupos técnicos y operativos en el sitio.
+Artículo 25- Direcciones Regionales. El nuevo rol de la División de Obras Públicas obliga a una presencia real, efectiva y oportuna de sus funcionarios en los cantones, y así coadyuvar en la atención de sus necesidades. Se reorganiza la estructura territorial para fortalecer la cantidad y calidad de los grupos técnicos y operativos en el sitio.
 Con este propósito, se modifica el esquema organizativo existente a la fecha, y se sustituye por uno más acorde con la situación actual, a fin de constituir un número óptimo de Direcciones Regionales, adscritas en forma directa a la División de Obras Públicas.
-Cada Dirección Regional tendrá un Director, quien en casos calificados podrá designar a un Subdirector, más el recurso humano, profesional, técnico y operativo que fuere necesario para garantizar una efectiva actuación en el área geográfica de su competencia.
-Las Direcciones Regionales gozarán de un gran nivel de autonomía en su campo de acción. Sus titulares se constituyen en verdaderos Gerentes regionales, respetando la autoridad del Director General de la División y de otras instancias superiores.
-Sus principales funciones son:
-a. Programar y ejecutar los trabajos de construcción, rehabilitación, mejoramiento y mantenimiento de la Red Vial Nacional que le correspondan, así como otras obras civiles.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40687 del 14 de setiembre del 2017)
-b. Ordenar y velar por la ejecución eficiente de los trabajos de acuerdo con las normas de calidad, producción y costos consignados en los planes de trabajo.
-c. Participar en la formulación del presupuesto anual de la División de Obras Públicas.
-d. Dirigir, organizar, evaluar y fiscalizar las actividades que estén a su cargo, relacionadas con la Red Vial Nacional.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40687 del 14 de setiembre del 2017)
-e. Dirigir, organizar y controlar las actividades de la Dirección Regional en forma eficaz y eficiente.
-f. Participar en la atención de emergencias y desastres, así como en situaciones de caso fortuito o fuerza mayor que se susciten en su campo de acción.
-g. Mantener información actualizada de los proyectos que en materia de obras públicas y transportes se ejecutan en su región, así como coadyuvar cuando las circunstancias lo exijan, en representación del Ministerio.
-h. Las establecidas en el Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Decreto Ejecutivo N° 40137 y demás normativa concordante.
-(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40687 del 14 de setiembre del 2017)
-Para la constitución y ubicación de las Direcciones Regionales se han considerado variables geográficas, poblacionales, estado de la infraestructura local, así como el desarrollo socioeconómico de los cantones.
-Las Direcciones Regionales de Obras Públicas, para la atención directa de los cantones se agrupan así:
-· La Dirección Regional I- a los cantones de: San José, Tibás, Moravia, Vázquez de Coronado, Goicoechea, Montes de 0ca, Curridabat, Desamparados, Aserrí, Alajuelita, Escazú, Mora, Puriscal!, Acosta, Tarrazú, Dota, León Cortes, Turrubares y Santa Ana.
-· La Dirección Regional II- a los cantones de: Cartago, Oreamuno, Paraíso, El Guarco, La Unión, Alvarado, Turrialba, Jiménez.
-· La Dirección Regional III- a los cantones de: Alajuela, Grecia, Valverde Vega, Naranjo, Palmares, San Ramón, Atenas, Poás y Alfaro Ruiz.
-(Así reformado mediante artículo 2 del Decreto 32044 del 22 de julio del 2004, publicado en la gaceta N° 200 del 13 de octubre del 2004)
-· La Dirección Regional IV- (Eliminada)
-(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
-· La Dirección Regional V- a los cantones de: Heredia, Barva, Santo Domingo, Santa Bárbara, San Rafael, San Isidro, Belén. Flores, San Pablo y Sarapiquí.
-· Dirección Regional VI- (Eliminada)
-(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
-· Dirección Regional VII- (Eliminada)
-(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
-· La Dirección Regional VIII- a los cantones de: Limón, Matina Talamanca.
-· La Dirección Regional IX- a los cantones de: Guácimo, Pococi, Siquirres.
-· La Dirección Regional X- a los cantones de: Pérez Zeledón, Buenos Aires.
-· La Dirección Regional XI- a los cantones de: Corredores, Golfito, Osa y Coto Brus.
-· Dirección Regional XII- (Eliminada)
-(Eliminada mediante artículo 2 del Decreto 32044 del 22 de julio del 2004).
-· La Dirección Regional XIII- a los cantones de: Nicoya, Nandayure y Hojancha.
-(La Dirección Regional XIII fue eliminada tácitamente por el artículo 3 del Decreto Ejecutivo N° 32044 de 22 de julio de 2004).
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 28814 de 25 de julio de 2000).
+Cada Dirección Regional tendrá un Director, quien en casos calificados podrá designar a un Subdirector, más el recurso humano, profesional, técnico y operativo que fuere necesario para garantizar una efectiva actuación en el área geográfica de su competencia. Lo anterior en forma coordinada y según las competencias de la Dirección de Gestión Institucional de Recursos Humanos, en apego a lo establecido en los artículos 4 y 15 del Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transportes, Decreto Ejecutivo No. 36235-MOPT del 05 de julio de 2010 y sus reformas.
+El objetivo general de las Direcciones Regionales es planificar, formular, coordinar y evaluar los proyectos e intervenciones de obras viales y fluviales; con el fin de mejorar la transitabilidad, la conectividad territorial y así contribuir al desarrollo socio económico de cada región.
+Las funciones de las Direcciones Regionales son las siguientes:
+1) Planificar y coordinar con los entes competentes un programa de proyectos anuales mediante la modalidad de administración, convenio o contrato para la atención de la infraestructura vial y fluvial nacional, en la región definida.
+2) Proponer y asesorar a sus superiores inmediatos los criterios técnicos que permitan a la administración activa decidir y priorizar los problemas experimentados por la población, relacionados con la cantidad y calidad de infraestructura pública vial y fluvial, de la cual el MOPT es competente.
+3) Brindar soporte técnico y operativo, en las etapas de definición de iniciativas, selección, priorización y formulación de proyectos de inversión pública; acorde con los lineamientos institucionales definidos, así como el cumplimiento de las acciones que se requieran según las entidades rectoras vinculadas.
+4) Planificar, organizar y coordinar con la Dirección de la División de Obras Públicas y las dependencias asociadas, las gestiones que correspondan a los programas de cooperación técnica y financiera internacional, orientada a la mejora en la red vial.
+5) Velar porque las etapas de formulación, ejecución y evaluación de proyectos de inversión pública cumplan con todos los requerimientos normativos establecidos por el marco legal en los artículos 8 y 9 de la Ley No. 10441 del 13 de marzo de 2024 y su reforma denominada “Sistema Nacional de Inversión Pública”.
+6) Coordinar las acciones necesarias que involucren la participación de la Dirección Regional para satisfacer una necesidad imperiosa, mandato judicial, y/o justificante, con instituciones externas, tales como: Asociación Desarrollo Integral (ADIS), Asociación Administradores de los Sistemas de Acueductos y Alcantarillados (ASADAS), Federaciones Municipales, Gobiernos Locales, Consejo Nacional de Vialidad (Conavi) o Poder Judicial.
+7) Coordinar y ejecutar con las organizaciones competentes a nivel nacional, las actividades relacionadas en materia de prevención y atención de emergencias y desastres, incidentes en casos fortuitos y de fuerza mayor para la atención de la infraestructura vial y fluvial.
+8) Mantener registros adecuados que permitan controlar eficientemente el gasto y la distribución de los materiales a los diferentes centros de producción y del equipo disponible, a nivel nacional.
+9) Brindar información y colaboración a la Dirección de Equipo y Maquinaria que permita y facilite la gestión del mantenimiento preventivo y correctivo del equipo asignado a la Dirección Regional.
+10) Asesorar a las Municipalidades, en la aplicación de la norma técnica que emita el Ministerio de Obras Públicas y Transportes.
+11) Tramitar y autorizar las solicitudes de materiales, insumos y servicios que soliciten las municipalidades para la atención de la red vial cantonal, y coordinar su envío.
+12) Brindar información, insumos y soporte necesario a la División de Obras Públicas en la aplicación de metodologías asociadas a la evaluación social y ambiental en los proyectos de infraestructura vial y fluvial.
+13) Participar en los comités de Consejos Cantonales de Coordinación Institucional (CCCI), Comités Intersectoriales Regionales (CIR), Agencias Regionales de Desarrollo (AREDES), Comité Regional de Emergencias (CRE), Comité Municipal de Emergencias (CME) y otras designaciones realizadas por la División de Obras Públicas.
+14) Coordinar con la División de Obras Públicas y las Municipalidades, las fiscalizaciones de los proyectos de la red vial cantonal, de acuerdo con el Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Decreto Ejecutivo No. 40137-MOPT del 12 de diciembre de 2016 y sus reformas y el Plan Anual de la División de Obras Públicas según lo regulado en el artículo 18 del Decreto Ejecutivo No. 27917-MOPT del 31 de mayo de 1999 y sus reformas.
+15) Coordinar con el Departamento de Producción: 1) la entrega de los insumos para la producción de mezcla asfáltica y tratamientos bituminosos; 2) la verificación y cumplimiento de las especificaciones técnicas de los insumos suministrados por las instituciones interesadas para la manufactura de la mezcla asfáltica; 3) el retiro del producto terminado en conjunto con la institución solicitante.
+16) Coordinar con las dependencias institucionales responsables de otorgar licencias, permisos, avales y en general autorizaciones administrativas en las que se requiera la labor de fiscalización, inspección y/o verificación por parte de la Dirección Regional.
+17) Definir las acciones administrativas necesarias, así como los controles y vigilancia efectiva y eficiente de los recursos asignados para cumplir con las metas y deberes de la Dirección Regional.
+Para tales efectos, se crean las siguientes Direcciones Regionales de Obras Públicas, para la atención directa de los cantones, Concejos Municipales de Distrito (CMD) y distritos según se indica a continuación:
+a) Dirección Regional Central Oeste, atiende los cantones: Acosta, Alajuelita, Aserrí, Curridabat, Desamparados, Escazú, Goicoechea, Montes de Oca, Mora, Moravia, Puriscal, San José, Santa Ana, Tibás, Vázquez de Coronado, Alajuela, Atenas, Grecia, Poás, Sarchí, Barva, Belén, Flores, Heredia, San Isidro, San Pablo, San Rafael, Santa Barbara y Santo
+Domingo.
+b) Dirección Regional Central Este, atiende los siguientes cantones y Consejos Municipales de Distrito (CMD): Alvarado, Cartago, El Guarco, Jiménez, La Unión, Oreamuno, Paraíso, Turrialba, Dota, León Cortés, Tarrazú, Tucurrique CMD y Cervantes CMD.
+c) Dirección Regional Brunca, atiende a los siguientes cantones: Buenos Aires, Pérez Zeledón, Corredores, Coto Brus, Golfito, Puerto Jiménez y Osa.
+d) Dirección Regional Chorotega, atiende a los siguientes cantones y Concejos Municipales de Distrito (CMD): Abangares, Colorado (CMD), Bagaces, Cañas, Carrillo, Hojancha, La Cruz, Liberia, Nandayure, Nicoya, Santa Cruz y Tilarán.
+e) Dirección Regional Huetar Caribe, atiende los siguientes cantones: Limón, Matina, Talamanca, Guácimo, Pococí, Siquirres y Sarapiquí.
+f) Dirección Regional Huetar Norte, atiende los siguientes cantones y Concejos Municipales de Distrito (CMD): Guatuso, Los Chiles, San Carlos, Upala, Río Cuarto, Zarcero, San Ramón, Naranjo, Palmares y Peñas Blancas CMD.
+g) Dirección Regional Pacífico Central, atiende los siguientes cantones y distritos: Esparza, Garabito, Montes de Oro, Orotina, Parrita, Puntarenas, Quepos, Turrubares, Monteverde, Cobano, Lepanto, Paquera y San Mateo.
+La distribución de los edificios u oficinas denominados “Sedes o Planteles” de la División de Obras Públicas se asignarán a las Direcciones Regionales de la siguiente forma:
+a) Dirección Regional Central Oeste, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: Colima, Puriscal, Heredia y Alajuela.
+b) Dirección Regional Central Este, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: Cartago, Turrialba y Santa María.
+c) Dirección Regional Brunca, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: San Isidro, Río Claro, Buenos Aires, El Hoyón, Sabalito y Río Lagarto.
+d) Dirección Regional Chorotega, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: Liberia, Nicoya y Cañas.
+e) Dirección Regional Huetar Caribe, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: Guácimo, Sandoval y Sarapiquí.
+f) Dirección Regional Huetar Norte, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: San Carlos, San Ramón, Santa Clara.
+g) Dirección Regional Pacífico Central, utilizará para el ejercicio de sus funciones públicas los siguientes planteles ubicados en: Puntarenas y Turrubares.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45972 del 29 de setiembre del 2026)

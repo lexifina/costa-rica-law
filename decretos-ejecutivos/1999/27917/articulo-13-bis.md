@@ -1,0 +1,4 @@
+Artículo 13 bis- Unidad Ejecutora de Programa de Infraestructura Vial y Movilidad Urbana: Conectividad Resiliente. Créese la Unidad Ejecutora de Programa de Infraestructura Vial y Movilidad Urbana: Conectividad Resiliente, como una dependencia del nivel operativo dependiente jerárquicamente del Despacho del Ministro de Obras Públicas y Transportes.
+Esta dependencia no contará con subdivisión en unidades menores y cumplirá las funciones establecidas en el Reglamento Operativo del Programa (ROP) relacionado con el Contrato de Préstamo 5823/OC-CR.
+La dependencia dispondrá del personal y especialistas en: adquisiciones, legal, financiero, planificación y monitoreo, ambiental y social, de acuerdo con lo establecido en el ROP, según se indica en la Cláusula 3.01 del contrato de préstamo 5823/OC-CR.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 45972 del 29 de setiembre del 2026)
