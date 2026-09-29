@@ -1,0 +1,2 @@
+Artículo 11.- Denuncia de la Gerencia General o el Auditor Interno de PROCOMER
+Si la persona denunciada por acoso sexual es la Gerencia General o el Auditor Interno de PROCOMER, la Dirección de Gente & Cultura remitirá la denuncia junto con el informe correspondiente dentro del mismo plazo cinco días hábiles a la Junta Directiva; quien será competente para nombrar al Órgano Director del procedimiento administrativo. En estos casos, la denuncia también podrá ser presentada directamente a la Junta Directiva.

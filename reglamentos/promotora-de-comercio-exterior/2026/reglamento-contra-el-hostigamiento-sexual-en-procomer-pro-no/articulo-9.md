@@ -1,0 +1,4 @@
+Artículo 9.- Presentación de la denuncia
+La persona denunciante de acoso u hostigamiento sexual podrá plantear su denuncia en forma verbal o escrita ante la Dirección de Gente & Cultura, quien deberá remitir el caso junto con un informe de la situación a la Gerencia General, dentro de los cinco días hábiles siguientes a su recepción. Así mismo, deberá informar de la denuncia a la Dirección Nacional e Inspección de Trabajo del Ministerio de Trabajo y Seguridad Social.
+El plazo para interponer la denuncia se considerará de dos años y se computará a partir del último hecho consecuencia del hostigamiento sexual a partir de que cesó la causa justificada que le impidió denunciar. El plazo de prescripción se computará de conformidad con el artículo 411 del Código de Trabajo.
+Así reformado por Junta Directiva en la sesión N° 386-2021 del 28 de junio de 2021.
