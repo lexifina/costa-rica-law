@@ -1,1 +1,0 @@
-Artículo 4º—Modifíquese el artículo 10, inciso c) del Decreto Ejecutivo N° 30263-MOPT de 5 de marzo del 2002 para que diga "El Ingeniero Director de la Macroregión o Región o en su defecto el Ingeniero en que éste delegue dicha responsabilidad".
