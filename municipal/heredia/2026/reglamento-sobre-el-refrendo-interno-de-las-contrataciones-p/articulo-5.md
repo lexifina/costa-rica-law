@@ -1,0 +1,1 @@
+Artículo 5º—Alcance del Análisis de los contratos. La valoración a cargo de la Dirección de Asesoría y Gestión Jurídica de la Municipalidad de Heredia para determinar la procedencia del refrendo interno a un contrato administrativo garantiza que sea de legalidad y no de oportunidad o conveniencia.

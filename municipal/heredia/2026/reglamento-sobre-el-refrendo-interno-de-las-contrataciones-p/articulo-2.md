@@ -1,0 +1,1 @@
+Artículo 2º—Unidad Interna competente. Será competencia de la Dirección de Asesoría y Gestión Jurídica otorgar el refrendo interno al contrato administrativo, además, se encargará de verificar que el contrato se ajuste al bloque de legalidad de conformidad con la normativa vigente.

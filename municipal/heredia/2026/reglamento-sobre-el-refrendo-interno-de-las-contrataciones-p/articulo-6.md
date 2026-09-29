@@ -1,0 +1,1 @@
+Artículo 6º—Procedimientos ordinarios. El procedimiento de contratación para bienes, servicios y obra pública se determinará de acuerdo con los umbrales que defina la Contraloría General de la República anualmente, pudiendo ser Licitación mayor, Licitación menor y Licitación reducida.
