@@ -1,0 +1,2 @@
+Artículo 31.- Presentación de documentos físicos
+Cuando por la naturaleza de la solicitud sea necesario la presentación de documentos físicos emitidos por otra Institución o un tercero, en virtud de la equivalencia funcional reconocida en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, la persona interesada podrá adjuntar el documento digitalizado y remitirlo como un documento adjunto en su solicitud.

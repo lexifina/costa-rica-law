@@ -1,0 +1,2 @@
+Artículo 15.- Integridad e inalterabilidad de la información
+Los sistemas electrónicos de PROCOMER conservarán los documentos enviados y recibidos sin ningún tipo de alteración. Dichos sistemas dejarán constancia en sus bitácoras de todas las transacciones y los mensajes generados; además, permitirán el acceso a éstos y su reproducción en forma impresa, cuando la persona usuaria lo considere necesario. Todos estos actos deberán constar en el expediente electrónico de cada trámite.

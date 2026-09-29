@@ -1,0 +1,2 @@
+Artículo 20.- Responsabilidad del funcionario público por el uso de la firma digital y las claves de acceso al sistema
+Queda prohibido a las personas funcionarias de PROCOMER así como a las personas físicas y jurídicas que realizan trámites electrónicos ante PROCOMER, revelar sus claves o permitir que terceros utilicen su firma digital certificada. Esta conducta será considerada falta grave, sin perjuicio de lo previsto en el artículo 10 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos.

@@ -1,0 +1,2 @@
+Artículo 6.- Uso de firma digital
+Todos los actos jurídicos y demás trámites electrónicos que sean realizados por las personas físicas o jurídicas que realicen trámites ante PROCOMER deberán estar respaldados por una firma digital certificada, emitida al amparo de lo dispuesto en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento. Tal firma también será utilizada en los contratos electrónicos y demás documentos electrónicos que surtan efectos hacia terceros.

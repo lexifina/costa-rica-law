@@ -1,0 +1,4 @@
+Artículo 10.- Domicilio electrónico permanente
+Las empresas e instituciones que realicen trámites electrónicos ante PROCOMER deberán señalar una dirección de correo electrónico como su domicilio legal para la recepción de notificaciones relacionadas con los citados trámites. Este señalamiento deberá realizarse mediante una manifestación expresa. La seguridad y la seriedad de la cuenta seleccionada son responsabilidad de la empresa.
+El señalamiento de domicilio electrónico podrá ser variado o revocado en cualquier tiempo, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento.
+Asimismo, los trámites que se realicen entre las distintas Direcciones, Gerencias y Departamentos de PROCOMER se notificarán a la dirección de correo electrónico definida al efecto por cada dependencia.

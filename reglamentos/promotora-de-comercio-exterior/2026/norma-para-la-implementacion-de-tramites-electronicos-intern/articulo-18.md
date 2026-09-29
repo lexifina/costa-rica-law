@@ -1,0 +1,2 @@
+Artículo 18.- Seguridad de los sistemas electrónicos
+Los sistemas electrónicos de PROCOMER deberán garantizar la integridad, la inalterabilidad y el registro de fecha y hora de los documentos electrónicos que se tramiten en los mismos, así como la identidad del emisor por medio del uso de la firma digital. Asimismo, deberá establecer los mecanismos que garanticen la seguridad de los datos y la información que se gestionen en el sistema.

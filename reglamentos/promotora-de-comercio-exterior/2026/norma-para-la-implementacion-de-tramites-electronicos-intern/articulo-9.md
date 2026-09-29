@@ -1,0 +1,4 @@
+Artículo 9.- Registro de poderes especiales
+Las empresas que realizan trámites electrónicos ante PROCOMER están obligadas a registrar en el SER o cualquier otro sistema electrónico habilitado por PROCOMER al efecto, los datos de sus personas representantes y colaboradoras previo realizar los trámites.
+También, deberán gestionar electrónicamente en tales sistemas los poderes no inscribibles en el Registro Nacional, a efectos de que los apoderados especiales puedan realizar los actos ante Procomer. Para ello, SER dispondrá de los formularios y constituirá un registro, el cual será de acceso público.
+Será responsabilidad de quien otorga el poder especial declarar que cuenta con las facultades suficientes para ese acto, lo cual no obsta para que cualquier interesado verifique la información en el registro correspondiente.
