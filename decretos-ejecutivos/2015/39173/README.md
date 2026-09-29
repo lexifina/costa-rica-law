@@ -17,3 +17,4 @@ Reorganización estructural del Proceso de Planificación Sectorial e Institucio
 | 2 | 2016-04-27 | Decreto Ejecutivo 39702 (2016-04-27) |
 | 3 | 2024-09-18 | Ley 10524 |
 | 4 | 2025-08-08 | Decreto Ejecutivo 45163 (2025-08-08) |
+| 5 | 2026-09-29 | Decreto Ejecutivo 45972 (2026-09-29) |
