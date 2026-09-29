@@ -1,0 +1,2 @@
+Artículo 32.- Patrocinio letrado y apoyo de otros tipos
+Durante todo este proceso, las partes podrán hacerse representar por patrocinio letrado y de apoyo emocional y/o psicológico de su confianza, pero en este último caso si el apoyo lo constituye una persona colaboradora de PROCOMER, este último deberá suscribir un convenio de confidencialidad sobre los hechos que conozca a partir de esta intervención, que debe ser totalmente voluntaria previa solicitud expresa de la presunta víctima.

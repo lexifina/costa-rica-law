@@ -1,0 +1,2 @@
+Artículo 45.- Acciones disciplinarias por denuncias falsas
+La denuncia falsa constituye una falta a las obligaciones laborales, por lo que se tomarán las acciones disciplinarias correspondientes ante este tipo de denuncias. Lo anterior sin perjuicio de las acciones legales que el denunciado decida emprender.

@@ -1,0 +1,2 @@
+Artículo 43.- Obstáculos o atrasos de la investigación
+Se considerará que incurre en falta grave, a los efectos de aplicación del régimen disciplinario, quien obstaculice o atrase injustificadamente la investigación, negándose a declarar o brindar información sobre los hechos investigados de manera injustificada. En caso de que se logre determinar la existencia de una falta se tomarán las acciones disciplinarias correspondientes, según lo dispuesto por la legislación laboral costarricense.
