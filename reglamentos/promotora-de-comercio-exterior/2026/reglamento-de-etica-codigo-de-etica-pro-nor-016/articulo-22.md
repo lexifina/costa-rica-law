@@ -1,0 +1,2 @@
+Artículo 22.- Tráfico de influencias
+Sin perjuicio de la regulación legal y reglamentaria existente en la materia, las personas funcionarias de PROCOMER no se aprovecharán de su posición ni utilizarán influencias personales en favor propio o de persona alguna, física o jurídica, para la contratación de personal, la adquisición de bienes o servicios, así como para la realización de negocios sobre la base de vínculos familiares o intereses personales.

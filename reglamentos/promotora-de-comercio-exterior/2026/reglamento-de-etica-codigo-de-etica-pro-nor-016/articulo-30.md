@@ -1,0 +1,2 @@
+Artículo 30.- Manipulación de información
+Queda prohibido a las personas funcionarias modificar o manipular información estratégica de la Institución, así como información relacionada con las personas clientes, para ser utilizada con fines fraudulentos o malintencionados, o bien, para generar algún beneficio propio o a favor de terceras personas. Asimismo, es responsabilidad de cada persona funcionaria minimizar en sus labores la exposición al robo o a la destrucción de información propiedad de PROCOMER.

@@ -1,0 +1,2 @@
+Artículo 16.- Deber de mejoramiento continuo
+Las personas funcionarias de PROCOMER, especialmente las jefaturas, Direcciones y Gerencias de área, así como las personas que conforman la Junta Directiva, están obligados a implementar con la celeridad debida, la corrección de las deficiencias de control interno y otras debilidades reportadas por la Auditoría Interna, los entes de fiscalización superior y los órganos de control administrativo.

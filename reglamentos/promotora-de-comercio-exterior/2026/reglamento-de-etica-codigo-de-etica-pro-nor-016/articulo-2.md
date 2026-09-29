@@ -1,0 +1,2 @@
+Artículo 2.- Alcance
+El presente Código enmarca la conducta de las personas funcionarias de PROCOMER en el desempeño de sus funciones, cualquiera que sea la jerarquía que se ostente o la denominación del puesto que desempeñe, y tiene como fin fomentar la confianza y la credibilidad de las personas usuarias de la Institución, siendo por tanto obligación de todos los integrantes de PROCOMER, conocerlo y cumplirlo en todos sus principios.

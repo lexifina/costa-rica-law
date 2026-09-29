@@ -1,0 +1,2 @@
+Artículo 42.- Competencia de la Auditoría Interna
+Las reglas establecidas en el Capítulo III de este Reglamento no excluyen la competencia legal asignada a la Auditoría Interna de PROCOMER, en materia de atención de denuncias y confección de recomendaciones, conforme a lo establecido al efecto en la Ley Orgánica de la Contraloría General de la República y Ley General de Control Interno, así como en la demás normativa especial que resulte aplicable.

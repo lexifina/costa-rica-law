@@ -1,0 +1,3 @@
+Artículo 24.- Utilización de documentos
+Las personas funcionarias no sacarán, sin la debida autorización, documentación interna de las instalaciones de PROCOMER, cuya divulgación pueda causar perjuicio a éste.
+En todo caso, siempre deberá guardarse constancia escrita en el archivo correspondiente, de la documentación cuya salida fue autorizada. Las personas funcionarias que empleen computadoras portátiles que por la índole de sus funciones almacenen la clase de datos antes dicha, serán personalmente responsables de cualquier abuso realizado por personas terceras, siempre y cuando éste sea imputable a estas por razón de negligencia o culpa grave.

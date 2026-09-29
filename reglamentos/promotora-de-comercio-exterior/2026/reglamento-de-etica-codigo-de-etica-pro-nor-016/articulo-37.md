@@ -1,0 +1,6 @@
+Artículo 37.- Denuncia ante la Dirección de Gente & Cultura
+La Dirección de Gente & Cultura analizará previamente la denuncia para determinar si procede o no la tramitación de un procedimiento administrativo, dentro de un plazo máximo de 3 días hábiles. Si la denuncia es infundada, se archivará el caso por medio de una resolución razonada.
+Si por el contrario la denuncia tiene sustento, solicitará a la Gerencia General el nombramiento de un órgano director, a efecto de que se lleve a cabo el procedimiento administrativo correspondiente, en cumplimiento del debido proceso.
+El órgano director actuará con total independencia de criterio y deberá emitir un informe sobre el presunto incumplimiento a la Gerencia General, para que resuelva sobre la aplicación del régimen disciplinario respectivo. De lo resuelto, la Dirección de Gente & Cultura llevará un registro de verificación de cumplimiento.
+Cuando se trate de una denuncia interna o externa contra la Dirección de Gente & Cultura, el Auditor Interno, de la Gerencia General o de alguna persona que integra la Junta Directiva, será competencia de la Junta Directiva aplicar el régimen disciplinario respectivo, así como el nombramiento del Órgano director.
+Así modificado por la Junta Directiva en la sesión 362-2019 del 17 de junio del 2019.

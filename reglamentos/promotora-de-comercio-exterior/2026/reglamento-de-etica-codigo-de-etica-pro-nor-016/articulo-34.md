@@ -1,0 +1,6 @@
+CAPÍTULO III Responsabilidades, denuncias y sanciones
+(Capítulo reformado mediante acuerdo de Junta Directiva en la sesión N°314-2014 del 5 de marzo de 2014)
+Artículo 34.- Responsabilidad de la Dirección de Gente & Cultura
+Es responsabilidad de la Dirección de Gente & Cultura con el apoyo de la Comisión del Marco Ético y Valores la divulgación del presente Código de Ética, así como de los principios éticos en él comprendidos, con el fin de concientizar a todos las personas funcionarias sobre la importancia de incorporarlos a su vida cotidiana, acción que llevará a cabo mediante circulares y charlas que se brindarán a todo el personal de la Institución, entre otros medios.
+Asimismo, será responsabilidad de la Dirección de Gente & Cultura, cuando así sea requerido, brindar asesoría a las personas funcionarias de la Promotora sobre las diferentes situaciones tuteladas en el presente código, así como en el caso de las situaciones donde la persona funcionaria tenga dudas sobre si existe un conflicto de interés o cualquier otra situación relacionada con la aplicación de las disposiciones éticas previstas en el presente Código
+Así modificado por la Junta Directiva en la sesión N° 362-2019 del 17 de junio de 2019.

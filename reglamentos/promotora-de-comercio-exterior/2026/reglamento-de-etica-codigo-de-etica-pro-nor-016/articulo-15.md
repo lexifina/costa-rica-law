@@ -1,0 +1,2 @@
+Artículo 15.- Deber de integridad
+Las personas funcionarias de PROCOMER serán responsables por todas aquellas situaciones irregulares en las que participen, con las que menoscaben la integridad y la reputación de PROCOMER en las áreas en las que opera la Institución, las que pongan en entredicho el cumplimiento estricto de la normativa y regulación por parte de la Promotora y aquellas que la expongan a sanciones, multas, costos adicionales y erogaciones que no corresponden a su actividad ordinaria.

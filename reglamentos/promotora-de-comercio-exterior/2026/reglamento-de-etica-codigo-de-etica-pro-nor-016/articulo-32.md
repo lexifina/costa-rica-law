@@ -1,0 +1,2 @@
+Artículo 32.- Neutralidad política
+Las personas integrantes de PROCOMER deben mantener la neutralidad política en el ejercicio de sus funciones, abstenerse de utilizar los recursos de la Institución para la promoción de partidos políticos o grupos específicos y por lo tanto, conservar su independencia con respecto a las influencias políticas para desempeñar con imparcialidad sus responsabilidades.
