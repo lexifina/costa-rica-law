@@ -14,3 +14,4 @@ Reforma Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-01 | la propia norma |
+| 2 | 2026-09-29 | Decreto Ejecutivo 45972 (2026-09-29) |
