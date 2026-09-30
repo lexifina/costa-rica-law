@@ -1,0 +1,1 @@
+Artículo 5º—Cargas y deducciones. Por su naturaleza salarial, al salario escolar se le aplicarán las cargas sociales y demás deducciones que legalmente correspondan. Su tratamiento tributario se regirá por la legislación vigente al momento de efectuarse el pago.

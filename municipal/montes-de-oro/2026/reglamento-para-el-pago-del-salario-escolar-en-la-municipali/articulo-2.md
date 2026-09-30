@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El salario escolar será aplicable a las personas servidoras municipales respecto de las cuales resulte jurídicamente procedente, de conformidad con el régimen remunerativo aplicable a cada relación de empleo, lo dispuesto en el artículo 43 del Reglamento a la Ley Marco de Empleo Público y demás normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 6º—Cálculo y contenido presupuestario. La Oficina de Recursos Humanos, en coordinación con el Departamento de Contabilidad, realizará los cálculos correspondientes del salario escolar que resulte jurídicamente procedente. Previo a su pago deberá verificarse la existencia de contenido presupuestario suficiente y disponible.

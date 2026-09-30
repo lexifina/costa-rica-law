@@ -1,0 +1,1 @@
+Artículo 3º—Determinación y cálculo del salario escolar. La determinación, cálculo y monto del salario escolar se realizará de conformidad con lo dispuesto en el artículo 43 del Reglamento a la Ley Marco de Empleo Público y demás normativa aplicable, atendiendo al régimen remunerativo correspondiente a cada relación de empleo.
