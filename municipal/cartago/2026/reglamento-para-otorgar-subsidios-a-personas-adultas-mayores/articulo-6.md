@@ -1,0 +1,1 @@
+Artículo 6º—Todo funcionario público tiene el deber de denunciar ante la Administración Municipal cualquier inconsistencia, irregularidad o incumplimiento relacionado con el otorgamiento de los subsidios, conforme a lo establecido en el presente reglamento y demás disposiciones aplicables.

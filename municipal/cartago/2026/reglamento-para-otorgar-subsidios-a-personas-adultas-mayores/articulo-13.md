@@ -1,0 +1,1 @@
+Artículo 13.—Las asociaciones de personas adultas mayores, encargadas de los centros diurnos municipales y que forman parte de la Red de Cuido Municipal, serán las encargadas de administrar el correspondiente expediente de solicitudes y susidios aprobados, de acuerdo con las prácticas de control administrativo que se apliquen institucionalmente.

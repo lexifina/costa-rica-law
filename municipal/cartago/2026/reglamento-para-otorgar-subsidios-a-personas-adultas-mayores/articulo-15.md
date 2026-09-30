@@ -1,0 +1,1 @@
+Artículo 15.—El profesional en Trabajo Social será el funcionario competente que a nombre y por cuenta de la Municipalidad de Cartago verificará los requisitos, y condiciones y emitirá el criterio profesional en cuanto a la aprobación, suspensión y revocación del subsidio.

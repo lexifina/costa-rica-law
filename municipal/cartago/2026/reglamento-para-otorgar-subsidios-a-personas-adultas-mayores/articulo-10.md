@@ -1,0 +1,1 @@
+Artículo 10.—La aprobación del subsidio se realizará por medio de un estudio socioeconómico con estricto apego al cumplimiento de los requisitos y criterios de selección establecidos en el presente reglamento.
