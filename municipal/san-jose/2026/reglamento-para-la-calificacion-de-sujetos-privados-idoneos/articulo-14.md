@@ -1,0 +1,2 @@
+Artículo 14. Conformación del expediente administrativo.
+De cada solicitud, la Comisión de Calificación de Idoneidad, debe conformar un expediente administrativo debidamente ordenado con toda la documentación presentada por el Sujeto Privado, así como aquella que se genere durante la tramitación del procedimiento de calificación de idoneidad. Dicho expediente permanecerá bajo la custodia de la presidencia de la comisión.

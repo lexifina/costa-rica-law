@@ -1,0 +1,5 @@
+Artículo 18. Resolución del Alcalde Municipal.
+Corresponde exclusivamente al Alcalde Municipal dictar mediante resolución administrativa debidamente motivada, la aprobación o rechazo de la calificación de idoneidad solicitada, fundamentada en el informe técnico recomendativo de la Comisión de Calificación de Idoneidad.
+La resolución será notificada al interesado por el medio señalado para tales efectos.
+La resolución que otorgue la calificación de idoneidad no generará por sí misma derecho a la asignación o giro de recursos públicos municipales, los cuales quedarán sujetos a la existencia de contenido presupuestario, al cumplimiento de los requisitos legales aplicables, y a la valoración y aprobación del plan de inversión o proyecto que presenten ante la administración los sujetos privados interesados en recibir fondos municipales.
+En caso de apartarse de la recomendación emitida por la Comisión, la resolución deberá motivar expresamente las razones jurídicas y técnicas que justifican dicha decisión.

@@ -1,0 +1,2 @@
+Artículo 13. Subsanación o aclaración de requisitos.
+La Comisión de Calificación de Idoneidad será la instancia encargada para verificar la información presentada por el solicitante, en caso de detectar omisiones, inconsistencias o información incompleta, podrá prevenirle, por una única vez por escrito, para que complete, aclare o subsane los requisitos correspondientes, dentro del plazo máximo de 5 días hábiles.

@@ -1,0 +1,3 @@
+Artículo 12. Obligación de informar cambios en la información suministrada.
+Todo sujeto de derecho privado declarado idóneo por la Municipalidad de San José para recibir fondos públicos municipales deberá comunicar a la Alcaldía Municipal, dentro de un plazo no mayor a cinco días hábiles, cualquier modificación relevante en la información suministrada durante el proceso de calificación de idoneidad.
+Cuando la nueva información comunicada pueda afectar el cumplimiento de los requisitos de idoneidad o las condiciones bajo las cuales fue otorgada dicha calificación, la Alcaldía Municipal adoptará las medidas que correspondan, conforme a la normativa vigente y garantizando el debido proceso.

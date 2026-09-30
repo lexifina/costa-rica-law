@@ -1,0 +1,3 @@
+Artículo 3. De la disponibilidad presupuestaria.
+El otorgamiento de recursos públicos municipales mediante transferencias sin contraprestación, regulado en el presente reglamento estará condicionado, en todo momento, a la existencia de disponibilidad presupuestaria debidamente incorporada en el presupuesto municipal aprobado.
+La determinación de los recursos disponibles para estos fines se realizará conforme al Presupuesto Ordinario y Extraordinario de la Municipalidad de San José, aprobado por el Concejo Municipal y sujeto a los controles y autorizaciones que corresponden, según la normativa vigente.

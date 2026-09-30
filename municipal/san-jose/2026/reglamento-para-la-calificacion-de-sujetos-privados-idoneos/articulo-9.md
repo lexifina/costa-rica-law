@@ -1,0 +1,12 @@
+Artículo 9. Documentación adjunta requerida.
+Junto con la solicitud indicada en el artículo anterior, el solicitante deberá aportar la siguiente documentación:
+1. Declaración jurada simple rendida en documento privado en la que se indique por parte del representante legal del sujeto privado, que la entidad se encuentra activa y ejecutando de manera regular proyectos y actividades acordes con la finalidad para la cual fue constituida, así como que conoce y acepta las disposiciones del presente reglamento.
+2. Descripción detallada de los programas, proyectos u obras que se pretenden financiar total o parcialmente con fondos públicos municipales, indicando el monto estimado, plan de trabajo y presupuesto correspondiente, conforme a los formularios que disponga la Administración Municipal en caso de que estén establecidos o bien la información con el mayor nivel con que cuente la entidad solicitante.
+3. Presentar original y fotocopia de la escritura constitutiva de la entidad y de sus reformas, emitida por Notario Público o por el órgano competente.
+4. Certificación de personería jurídica vigente que puede ser aportada por el interesado o consultada por la administración en la base de datos del Registro Nacional.
+5. Cuando se trate de sujetos privados beneficiarios de fondos provenientes de la Ley N.º 7972, la municipalidad verificará a lo interno la certificación vigente del Instituto Mixto de Ayuda Social (IMAS) que los acredite como organización de bienestar social, conforme a lo dispuesto en el artículo 18 de dicha ley.
+6. Declaración jurada simple rendida en documento privado en la que se indique la situación del solicitante respecto a sus obligaciones de presentación de presupuestos y liquidaciones ante la Contraloría General de la República, en caso de haber recibido fondos públicos con anterioridad.
+7. Certificación de liquidación satisfactoria de los fondos públicos recibidos en los dos años anteriores, cuando corresponda.
+8. Al menos dos cartas de recomendación emitidas por organizaciones reconocidas de su área geográfica de influencia.
+9. Encontrarse al día con las obligaciones tributarias y de la Caja Costarricense del Seguro Social, requerimientos que se verificarán a lo interno por parte de la administración.
+10. Declaración jurada simple rendida en formato ante funcionario público de contar con una estructura administrativa financiera mínima que permita una adecuada gestión de los recursos asignados.

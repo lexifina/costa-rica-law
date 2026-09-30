@@ -1,0 +1,4 @@
+Artículo 10. Requisitos adicionales para sujetos privados obligados ante la Contraloría General de la República.
+Los sujetos de derecho privado que, conforme a la normativa vigente, se encuentren obligados a presentar presupuestos, informes de ejecución y liquidaciones presupuestarias ante la Contraloría General de la República, deberán aportar adicionalmente la siguiente documentación:
+1. Presentar original y copia de la nota u oficio mediante el cual acredite que se haya presentado ante la Contraloría General de la República el informe de ejecución y la liquidación presupuestaria, en la que conste el recibido del ente contralor.
+2. Oficio, nota o certificación emitida por la Contraloría General de la República en la que conste la aprobación de la última liquidación presupuestaria presentada por el solicitante.

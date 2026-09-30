@@ -1,0 +1,16 @@
+Artículo 2. Definiciones.
+Para fines de interpretación, se tendrán las siguientes definiciones:
+a) Cantón: Cantón San José.
+b) Municipalidad: Municipalidad de San José, en su condición de ente público concedente, responsable de otorgar, administrar, fiscalizar y controlar los beneficios patrimoniales financiados con recursos públicos municipales.
+c) Comisión Técnica de Idoneidad: Órgano técnico-administrativo interno de la Municipalidad encargado de verificar el cumplimiento de los requisitos establecidos en este reglamento, analizar la información aportada por los solicitantes y emitir el informe técnico correspondiente dentro del procedimiento de calificación de idoneidad.
+d) Fondos públicos: Conjunto de recursos, valores, bienes y derechos que integran la Hacienda Pública, independientemente del sujeto que los administre, cuando mantengan su naturaleza pública conforme al ordenamiento jurídico vigente.
+e) Reglamento: Instrumento normativo aprobado por el Concejo Municipal de San José, que regula el procedimiento de calificación de idoneidad para la administración de beneficios patrimoniales gratuitos o sin contraprestación otorgados a sujetos privados.
+f) Sujeto privado: Persona jurídica de naturaleza privada que solicita o recibe beneficios patrimoniales otorgados por la Municipalidad de San José.
+g) Sujeto privado idóneo: Sujeto privado que ha sido calificado favorablemente por la Municipalidad, al acreditar capacidad legal, administrativa y financiera suficiente para administrar fondos públicos conforme a lo dispuesto en este reglamento.
+h) Beneficio patrimonial: Toda transferencia gratuita de recursos públicos, en dinero o en especie, otorgada por la Municipalidad a un sujeto privado, sin contraprestación directa, con fundamento legal y orientada al cumplimiento de fines de interés público.
+i) Transferencia: Modalidad de beneficio patrimonial que consiste en el traslado de recursos públicos de carácter gratuito y sin contraprestación a favor de un sujeto privado, para la ejecución de fines de interés público.
+j) Subvención: Tipo de transferencia gratuita destinada a apoyar programas, proyectos, actividades o servicios de interés público cantonal, sin que exista contraprestación directa a favor de la Municipalidad.
+k) Valoración de idoneidad: Proceso técnico de análisis mediante el cual la Municipalidad evalúa la capacidad legal, administrativa y financiera del sujeto privado solicitante, a fin de determinar su aptitud para administrar fondos públicos.
+l) Bloque de legalidad: Conjunto integrado por la Constitución Política, las leyes, reglamentos, las disposiciones vinculantes de la Contraloría General de la República y las demás normas aplicables.
+m) Recursos públicos municipales otorgados sin contraprestación: Recursos que la Municipalidad entrega a un sujeto privado mediante transferencias autorizadas por el ordenamiento jurídico, sin obligación de contraprestación directa a favor de la Municipalidad.
+Las definiciones contenidas en este artículo serán aplicables exclusivamente a beneficios patrimoniales otorgados sin contraprestación, quedando expresamente excluidos de su alcance los supuestos derivados de contratación administrativa, convenios con obligaciones recíprocas u otros regímenes jurídicos regulados por normativa especial.
