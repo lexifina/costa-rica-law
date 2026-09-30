@@ -1,0 +1,9 @@
+Transitorio dos: Hasta tanto no se apruebe una nueva categorización de tarifas de conformidad con lo indicado en el artículo 13-14-15 del presente reglamento, se aplicarán las siguientes categorías tarifarias
+• Tarifa Residencial, público y religioso: es la tasa básica a aplicar a toda unidad habitacional, institución pública o religiosa, en la cual la generación estimada de residuos sólidos ordinarios sea igual o menor a 201 kg por trimestre. En esta categoría el factor de generación es igual a 1. Será considerada como la tarifa mínima y es la base de referencia para el cálculo de las tarifas de las demás categorías.
+• Tarifa Categoría A: es la tasa a aplicar a todo aquel comercio donde la generación estimada de residuos sólidos ordinarios sea igual o menor a 402 kg por trimestre. En la Categoría A el factor de generación es igual a 2.
+• Tarifa Categoría B: es la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios sea mayor a 402 kg, pero menor a 804 kg por trimestre. En la Categoría B el factor de generación es igual a 4.
+• Tarifa Categoría C: es la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios sea mayor a 804 kg pero menor a 1.206 kg por trimestre. En la tarifa Categoría C el factor de generación es igual a 6.
+• Tarifa Categoría D: es la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios sea mayor a 1.206 kg por trimestre. En la tarifa Categoría D el factor de generación es igual a 8.
+En la siguiente tabla se presenta un resumen de la escala tarifaria vigente, en la cual se describe la Columna #1: Nombre de la categoría, Columna #2: Factor de generación (siendo la tarifa base=1) y Columna #3: Rangos de generación promedio en kilogramos por trimestre (kg/trimestre).
+[imagen]
+San Isidro de Heredia, 24 de agosto de 2026

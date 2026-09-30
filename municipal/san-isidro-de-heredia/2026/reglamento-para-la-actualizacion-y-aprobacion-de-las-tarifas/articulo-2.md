@@ -1,0 +1,1 @@
+Artículo 2- Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas, jurídicas, públicas o privadas, generadoras de residuos sólidos de competencia municipal, que se encuentren localizados dentro del ámbito territorial del cantón de San Isidro y para quienes estén fuera del territorio, pero utilicen los servicios municipales incluidos en el mismo.

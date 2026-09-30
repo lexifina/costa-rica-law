@@ -1,0 +1,2 @@
+Artículo 5- Sobre el hecho generador. El cobro de la tarifa establecida por usuario surge en la medida en que se dé la prestación efectiva del servicio, conforme a la definición de la capacidad y condición del servicio definida por la municipalidad independientemente de si el usuario quiere o no que se le dé el servicio o si las unidades habitacionales se encuentren habitadas o deshabitadas.
+En caso de tratarse de inmuebles con destino comercial, será responsabilidad del propietario del servicio se encuentre o no en uso.
