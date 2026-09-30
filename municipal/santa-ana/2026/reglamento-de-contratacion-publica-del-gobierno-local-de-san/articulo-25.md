@@ -1,0 +1,2 @@
+Artículo 25. Acto de final. El acto final del procedimiento de contratación pública resolverá sobre la adjudicación a la oferta que resulte mejor evaluada o declarará el procedimiento de contratación público desierto o infructuoso, según sea el caso.
+El acto final deberá estar debidamente motivado y fundamentado con indicación sobre los insumos e informes técnicos que sirvieron de base para fundamentar la decisión y deberá demitirse por funcionario competente de conformidad con las competencias establecidas en el presente reglamento.

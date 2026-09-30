@@ -1,0 +1,1 @@
+Artículo 29. Prórrogas al plazo de ejecución del contrato. La prórroga debe ser solicitada y concedida durante la vigencia del contrato. El administrador del contrato no podrá otorgar ningún tipo de prorroga una vez terminado el plazo contractual, a pesar de que la solicitud haya sido planteada con antelación al vencimiento.

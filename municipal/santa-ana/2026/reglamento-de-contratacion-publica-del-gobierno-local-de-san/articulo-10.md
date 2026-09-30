@@ -1,0 +1,2 @@
+Del órgano técnico en materia de contratación pública
+Artículo 10. Designación del órgano técnico. El Proceso de Proveeduría es la dependencia técnica responsable de la instrumentalización los procedimientos de contratación pública, así como de la fiscalización y asesoría técnica durante todas las etapas del procedimiento de contratación pública, de manera que su intervención estará orientada a asegurar procedimientos de contratación pública eficientes, oportunos, estandarizados y acordes al bloque de legalidad.

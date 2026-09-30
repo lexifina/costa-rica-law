@@ -1,0 +1,1 @@
+Artículo 24. Recomendación de adjudicación. En todos los procedimientos de Contratación Pública, la recomendación de adjudicación deberá ser brindada por al Proceso de Proveeduría y por la unidad solicitante involucrada en el procedimiento de contratación pública. Se deberá adjuntar toda la documentación que sirvió de fundamento para determinar el acto de adjudicación.

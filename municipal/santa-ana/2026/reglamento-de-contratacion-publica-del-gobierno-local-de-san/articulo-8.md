@@ -1,0 +1,1 @@
+Artículo 8. Competencia residual. Cuando existan dudas sobre el órgano competente o cuando se emplee un mecanismo de adquisición no previsto en el artículo anterior, la competencia recaerá sobre el Concejo Municipal, el cual mediante acuerdo municipal podrá delegar esa competencia y, únicamente para el caso particular, al titular de la Alcaldía.

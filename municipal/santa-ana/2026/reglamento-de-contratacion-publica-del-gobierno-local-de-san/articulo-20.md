@@ -1,0 +1,1 @@
+Artículo 20. Contenido del pliego de condiciones. El pliego de condiciones será realizado por el Proceso de Proveeduría a partir de la información proporcionada en la decisión inicial cuando se trate de licitaciones mayores. En el caso de licitaciones menores y reducidas, la decisión inicial seguirá las formas y tendrá el mismo contenido exigido para el pliego de condiciones.

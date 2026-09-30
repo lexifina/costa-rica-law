@@ -1,0 +1,4 @@
+Análisis de las ofertas
+Artículo 21. Subsanación aspectos técnicos. Una vez vencido el plazo de recepción de ofertas, el Proceso de Proveeduría procederá con la apertura y traslado de todas las ofertas recibidas a la unidad solicitante para que proceda a indicar al Proceso de Proveeduría, por una única vez, las subsanaciones sobre las especificaciones técnicas que sea necesarias solicitar al oferente.
+En caso de que alguna oferta presente un precio por debajo o encima de las bandas de tolerancia establecidas a partir del estudio de mercado, se deberá solicitar al oferente que justifique las razones por cuales su precio no se ajusta a las bandas de precio determinadas, de conformidad con el artículo 44 y 106 del Reglamento de la Ley General de Contratación Público.
+Las subsanaciones requeridas, deberán ser sobre aspectos subsanables y en los plazos legales establecidos para tales fines, de conformidad con la Ley General de Contratación Pública y su reglamento.

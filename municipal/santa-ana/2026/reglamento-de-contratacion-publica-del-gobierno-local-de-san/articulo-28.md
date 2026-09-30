@@ -1,0 +1,2 @@
+Artículo 28. Registro de la fecha de inicio. En el pliego de condiciones se deberá indicar la forma en cómo se computará la fecha de inicio del contrato. En la etapa de ejecución contractual, se deberá registrar la fecha de inicio en la forma prevista dentro del sistema digital unificado para tales fines.
+En caso de aprobar prórrogas que varíen el plazo de entrega, la fecha de inicio registrada deberá ser modificada cada vez que sean aprobadas prórrogas.
