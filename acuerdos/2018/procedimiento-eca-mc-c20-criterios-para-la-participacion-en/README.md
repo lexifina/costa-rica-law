@@ -17,3 +17,4 @@ Procedimiento ECA-MC-C20: Criterios para la participación en ensayos de aptitud
 | 2 | 2019-10-31 | Acuerdo 11 (2019-10-31) |
 | 3 | 2023-02-08 | Acuerdo 1 (2023-02-08) |
 | 4 | 2024-05-21 | Acuerdo 5 (2024-05-21) |
+| 5 | 2026-09-30 | Acuerdo 10 (2026-09-30) |
