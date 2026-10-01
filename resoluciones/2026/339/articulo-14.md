@@ -1,0 +1,2 @@
+Artículo 14. Superarán la idoneidad general (Fase I), las personas oferentes que hayan obtenido una calificación mínima de setenta (70%) tendrán derecho a continuar a las siguientes fases del concurso.
+El Área de Gestión de Empleo de la DGSC comunicará a la OGEREH la condición de idoneidad alcanzada por las personas sometidas a evaluación. La OGEREH comunicará a las personas oferentes la condición de idoneidad obtenida.

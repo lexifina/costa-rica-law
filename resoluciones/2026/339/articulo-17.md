@@ -1,0 +1,1 @@
+Artículo 17. Únicamente aprobarán la comprobación de idoneidad específica (Fase II) las personas oferentes que hayan obtenido una calificación mínima de setenta (70%), y continuarán en la fase concursal.

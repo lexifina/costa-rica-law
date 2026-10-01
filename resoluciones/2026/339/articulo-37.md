@@ -1,0 +1,1 @@
+Artículo 37. Si transcurridos tres meses desde que se comunicó a la DGSC la alternativa seleccionada para resolver la(s) plaza(as) vacante( s ) , sin que se haya iniciado, la institución solo podrá resolverla solicitando nómina a la DGSC, siempre y cuando esta cuente con registros de elegibles disponibles.

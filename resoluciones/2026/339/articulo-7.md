@@ -1,0 +1,2 @@
+Artículo 7. La publicación o divulgación de la información del concurso interno podrá efectuarse por correo electrónico institucional, página web, intranet o cualquier otro medio de divulgación nacional. Para las personas servidoras que laboran en lugares de difícil acceso a esos medios, la institución lo publicará por medio de afiches en sus instalaciones.
+El plazo mínimo para que las personas servidoras manifiesten su interés será al menos de cinco (5) días hábiles.

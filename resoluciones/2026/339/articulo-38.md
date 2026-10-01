@@ -1,0 +1,5 @@
+Artículo 38. Una persona que haya manifestado interés o que ya haya sido considerada candidata en un concurso interno, deberá ser excluida del mismo, indistintamente de la etapa en la que se encuentre, cuando se cumpla cualquiera de los siguientes supuestos:
+38.1. Cuando cese su relación laboral.
+38.2. Cuando sea nombrada en propiedad en otro puesto, si el nombramiento es en otra institución. Si el nombramiento es en la misma institución, únicamente deberá ser excluida de los puestos con clasificación inferior, igual o equivalente.
+La exclusión se concretará una vez superado el período de prueba, cuando la persona previamente ostenta un nombramiento en propiedad en otro puesto de la misma institución, caso contrario, la exclusión se hará de manera inmediata al momento en que se haga efectivo el nombramiento.
+38.3. Cuando durante la ejecución del proceso concursal sea nombrada en otra institución y no mantenga un nombramiento en propiedad en la institución en la cual se realiza el concurso.

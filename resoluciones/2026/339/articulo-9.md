@@ -1,0 +1,6 @@
+Artículo 9. Las personas oferentes deberán cumplir con los siguientes requisitos:
+9.1. Mantener una relación de empleo público en la institución que realice el concurso interno, o bien en la institución o instituciones a las que este se amplíe.
+La OGEREH incluirá en la fase concursal a las personas servidoras que tengan una relación de empleo público y que al inicio o durante el desarrollo del concurso interno, se encuentren disfrutando de licencias con o sin goce de salario, incapacidades, vacaciones, y cualquier otra situación de similar naturaleza que suspenda temporalmente la prestación de servicios.
+Asimismo, incluirá a las personas servidoras con una relación de empleo público vigente en la institución en la que este se realiza, pero que al inicio o desarrollo del concurso, se encuentren prestando servicios en otra institución, ya sea por convenios de préstamo o instrumentos similares.
+9.2. Manifestar expresamente su interés de participar en el concurso dentro del plazo establecido en el cartel.
+9.3. Contar con un grado artístico. En caso de que una persona oferente participe para una subespecialidad distinta al grado artístico que posee, la OGEREH coordinará con la Comisión Artística para que esta revise los atestados de la persona participante y asigne el grado que corresponda.

@@ -1,0 +1,5 @@
+Artículo 23. Para cada puesto vacante sujeto a concurso interno, se procederá con las siguientes reglas para la conformación de la nómina de elegibles:
+23.1. La Administración decidirá la cantidad de personas elegibles que conformarán la nómina, pero no podrán ser menos de tres (3) personas candidatas. Si el registro conformado es menor a tres (3) personas candidatas, la nómina se podrá conformar con la totalidad de este.
+En el caso de los puestos reservados para personas con discapacidad para el cumplimiento de la Ley N° 8862, las nóminas podrán conformarse con menos de tres personas, incluso con una sola persona candidata.
+23.2. En caso de empate en la calificación final de dos o más personas que conformen el registro de elegibles, estas ocuparán la misma posición en la nómina. Si el empate es en la última posición de la nómina, ambas se incluirán generándose una nómina ampliada.
+23.3. Cuando existan varios puestos vacantes de una misma clase, especialidad y subespecialidad artística, se podrá conformar una sola nómina, considerando la cantidad de personas elegibles que la Administración estime necesaria para resolver el nombramiento en cada puesto.

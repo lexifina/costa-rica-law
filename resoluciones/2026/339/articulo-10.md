@@ -1,0 +1,3 @@
+Artículo 10. La OGEREH verificará el cumplimiento de requisitos de cada persona oferente, previo a la fase de comprobación de idoneidad.
+En caso de que la persona servidora no cumpla con la totalidad de los requisitos para la clase, especialidad y subespecialidad u otros requisitos del (de los) puesto (s) para el que manifieste interés, la OGEREH se lo comunicará por el medio que determine.
+Las personas oferentes en situación de discapacidad pueden optar por todo tipo de puestos, pero en el caso de puestos reservados para el cumplimiento de la Ley N° 8862 Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público, deben acreditar la condición mediante el carné o la certificación que emite CONAPDIS.

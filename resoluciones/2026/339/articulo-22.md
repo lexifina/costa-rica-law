@@ -1,0 +1,4 @@
+Artículo 22. Etapa conclusiva del concurso interno. En esta etapa se ejecutarán las siguientes acciones:
+22.1. Conformar un registro de elegibles que incluirá la información de las personas concursantes que hayan obtenido la nota de setenta (70%) de calificación en las pruebas de idoneidad en estricto orden descendente, según la puntuación obtenida.
+Además, la información de las clases de puesto artísticas con sus respectivas especialidades y subespecialidades, o bien, por cargo y puesto, según el alcance del concurso. Previa justificación se podrá utilizar el registro de elegibles para cubrir otros cargos similares, de la misma clase y especialidad y subespecialidad, hasta que este se extinga o se decida caducarlo según las opciones previstas en esta resolución.
+22.2. Declarar el registro de elegibles institucional por resolución emitida por la Jefatura de la OGEREH.
