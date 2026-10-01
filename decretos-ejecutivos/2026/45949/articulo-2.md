@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo N° 45830-H del 5 de junio de 2026, publicado en el Alcance N° 82 en La Gaceta N° 118 del 26 de junio de 2026, a partir de la vigencia del presente Decreto Ejecutivo.
