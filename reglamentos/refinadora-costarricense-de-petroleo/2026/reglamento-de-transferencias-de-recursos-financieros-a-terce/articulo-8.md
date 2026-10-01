@@ -1,0 +1,2 @@
+Artículo 8. De la aprobación de la solicitud.
+Una vez emitidos los dictámenes favorables resultantes del procedimiento de evaluación del artículo 7 del presente reglamento, la Gerencia de Administración y Finanzas consolidará el expediente administrativo y lo remitirá a la Presidencia. Corresponderá a esta última elevar la gestión a conocimiento y resolución definitiva de la Junta Directiva, la cual decidirá considerando los informes técnicos, el alineamiento con el interés público y la capacidad financiera empresarial para atender la erogación.

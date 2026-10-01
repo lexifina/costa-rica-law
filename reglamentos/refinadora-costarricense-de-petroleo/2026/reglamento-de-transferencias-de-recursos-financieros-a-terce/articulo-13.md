@@ -1,0 +1,1 @@
+Artículo 13. Autonomía y responsabilidad en la gestión de adquisiciones Sin perjuicio del deber de fiscalización de RECOPE, la planificación y ejecución de las contrataciones financiadas con los recursos transferidos serán competencia de la Entidad Beneficiaria, bajo el amparo de la ley habilitante.

@@ -1,0 +1,2 @@
+Artículo 15. Derogatoria
+Se deroga de forma integral el "Reglamento de Transferencias de Recursos Financieros a Terceros", aprobado mediante el artículo 4 de la Sesión Ordinaria N° 3636-381, celebrada el 02 de mayo del 2002. Asimismo, quedan sin efecto todas aquellas disposiciones internas, directrices o normas de igual o menor rango que se opongan o contradigan lo establecido en el presente cuerpo normativo.

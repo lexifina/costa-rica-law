@@ -1,0 +1,3 @@
+Artículo 10. Responsabilidad de seguimiento y fiscalización
+La Gerencia de Administración y Finanzas designará formalmente a la dependencia responsable de fiscalizar el uso de los recursos. Dicha designación deberá realizarse de forma obligatoria previo al inicio del desembolso de los fondos, con el fin de garantizar el seguimiento continuo desde la etapa inicial del proyecto.
+El responsable designado deberá incorporar los recursos y su documentación en la fase correspondiente ya sea la de formulación, variaciones presupuestarias o presupuestos extraordinarios, Dicho responsable deberá establecer los controles pertinentes sobre los recursos transferidos a la Entidad Beneficiaria y conformar, mantener y custodiar el expediente administrativo de la transferencia.
