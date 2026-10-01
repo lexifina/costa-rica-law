@@ -1,0 +1,1 @@
+Artículo 3º—Coordinación transitoria. El Ministerio de Cultura y Juventud podrá realizar las actuaciones estrictamente necesarias para coordinar con la Municipalidad de Alajuelita, la Notaría del Estado y demás instancias públicas involucradas, el proceso de formalización de la donación, entrega documental y transición administrativa derivada de la Ley N° 10865.

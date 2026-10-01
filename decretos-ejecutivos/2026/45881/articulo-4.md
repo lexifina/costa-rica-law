@@ -1,0 +1,1 @@
+Artículo 4º—Respeto a la autonomía municipal. Las actuaciones de coordinación que realice el Ministerio de Cultura y Juventud deberán respetar la autonomía municipal de la Municipalidad de Alajuelita y no podrán entenderse como una potestad de administración ordinaria, dirección, operación o gestión permanente del inmueble una vez formalizada e inscrita la donación respectiva.
