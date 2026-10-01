@@ -1,0 +1,1 @@
+Artículo 4.- La OGEREH del MCJ, deberá identificar y estudiar los puestos de su estructura ocupacional, y determinar si existen puestos afectados por la creación de la clase incluida en el artículo 1 de la presente resolución, y realizará las acciones para asignarlos en la nueva clase, según corresponda.

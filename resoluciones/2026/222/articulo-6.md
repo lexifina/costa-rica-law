@@ -1,0 +1,1 @@
+Artículo 6.- En caso de reubicación de personas funcionarias por reestructuración, esta debe ajustarse a las normas vigentes y atender los procedimientos técnicos definidos por la Administración Activa, quien es la responsable de ejecutar el traslado, la ubicación y el control de los puestos afectados por la modificación que nos ocupa.

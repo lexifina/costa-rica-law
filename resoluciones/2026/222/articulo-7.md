@@ -1,0 +1,1 @@
+Artículo 7.- Comunicar al Ministerio de Planificación Nacional y Política Económica, lo resuelto en la presente resolución, con la finalidad de que determine el Salario Global de la clase institucional recién creada.

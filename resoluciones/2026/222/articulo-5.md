@@ -1,0 +1,1 @@
+Artículo 5.- Atendiendo lo estipulado en el artículo 232 del ESC, el rige de los actos derivados de la aplicación de las modificaciones al Manual de Clases Artísticas conforme a lo resuelto en la presente resolución, es el contenido en los artículos 105 inciso c) y 115 RESC.
