@@ -1,6 +1,6 @@
-Artículo 10.- Fíjase un impuesto específico de cero coma cuatro colones (¢0,4) por cada mililitro de alcohol absoluto a favor del Inder, sobre la cerveza nacional y extranjera. Igualmente, se fija un impuesto específico de cero coma dos ocho dos siete uno colones ¢ 0,28292 (**) por cada mililitro de alcohol absoluto, a favor del Instituto de Fomento y Asesoría Municipal (IFAM)(*) sobre la cerveza nacional y extranjera.
-(**) (Así actualizado el impuesto anterior por el artículo 1 y 2 de la resolución N° DE-RE-A-22-2026 del 25 de mayo del 2026 de 2026, " Establece monto de ¢ 0,28292 (cero coma dos ocho dos nueve dos colones) al impuesto específico otorgado a favor del IFAM que regirá a partir del 01 de julio del 2026".)
-(*) (Mediante resolución N° 017-2013 del 25 de noviembre del 2013, se establece lo siguiente: "... Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
+Artículo 10.- Fíjase un impuesto específico de cero coma cuatro colones (¢0,4) por cada mililitro de alcohol absoluto a favor del Inder, sobre la cerveza nacional y extranjera. Igualmente, se fija un impuesto específico de cero coma dos ocho cuatro tres tres colones ¢ 0,28433 (**) por cada mililitro de alcohol absoluto, a favor del Instituto de Fomento y Asesoría Municipal (IFAM)(*) sobre la cerveza nacional y extranjera.
+(**) (Así actualizado el impuesto anterior por el artículo 1 y 2 de la resolución N° DE-RE-A-30-2026 del 25 de agosto del 2026, "Establece monto de ¢ 0,28433 (cero coma dos ocho cuatro tres tres colones) al impuesto específico otorgado a favor del IFAM que regirá a partir del 01 de octubre del 2026.")
+(*) (Mediante resolución N° 017-2013 del 25 de noviembre del 2013, se establece lo siguiente: "...Se actualiza el impuesto específico otorgado a favor del IFAM, según se detalla a continuación:
 Cálculo para el primer trimestre de 2014 (enero a marzo)
 | octubre-2013 | julio-2013
 IPC | 161,357 | 162,306
