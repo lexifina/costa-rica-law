@@ -1,0 +1,1 @@
+Artículo 12.—En la determinación del costo efectivo, la Municipalidad tomará como base el costo real o efectivo que, por la actividad de mantenimiento de parques, ornato y zonas verdes, establezca la Administración Tributaria de la Municipalidad.

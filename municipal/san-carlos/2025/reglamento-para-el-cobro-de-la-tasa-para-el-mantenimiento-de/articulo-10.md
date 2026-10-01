@@ -1,0 +1,1 @@
+Artículo 10.—Lo recaudado por este servicio, se destinará para las mejoras y el mantenimiento de los parques, ornato, zonas verdes, el servicio y demás elementos existentes en los parques del distrito correspondiente.
