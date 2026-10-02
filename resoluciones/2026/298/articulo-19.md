@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones especiales y finales
+Artículo 19.—Confidencialidad, acceso y custodia. La identidad de la persona denunciante y la información, documentación y evidencias estarán sujetas al régimen de confidencialidad aplicable. El acceso al expediente se limitará a las personas integrantes habilitadas para conocer el caso, la Secretaría y las autoridades legalmente autorizadas. Las personas suplentes accederán únicamente a los expedientes para los cuales sean formalmente convocadas. La custodia y conservación se realizarán mediante mecanismos seguros y conforme a la normativa archivística y de protección de datos.

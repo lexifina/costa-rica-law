@@ -1,0 +1,1 @@
+Artículo 18.—Comunicación. La persona denunciante identificada será informada, dentro de los cinco días hábiles siguientes, sobre la admisión, prevención, traslado, desestimación, archivo o conclusión de la investigación, en la medida permitida por el régimen de confidencialidad y la protección de los derechos de terceros.

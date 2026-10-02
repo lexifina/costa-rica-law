@@ -1,0 +1,1 @@
+Artículo 3º—Principios. La atención de las denuncias se regirá por los principios de legalidad, objetividad, imparcialidad, celeridad, oficiosidad, economía, proporcionalidad, confidencialidad, protección de datos personales, prohibición de represalias y respeto de los derechos de las personas involucradas.

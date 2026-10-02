@@ -1,0 +1,1 @@
+Artículo 22.—Protección frente a represalias. Las personas denunciantes y testigos de actos de corrupción gozarán de la protección establecidas en la Ley N° 10437. La Comisión comunicará inmediatamente a la autoridad competente cualquier indicio de represalia y orientará a la persona afectada sobre los mecanismos disponibles.

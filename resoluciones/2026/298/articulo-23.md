@@ -1,0 +1,1 @@
+Artículo 23.—Derogatoria y vigencia. Derógase la Resolución DG-RES-247-2025 del 30 de julio de 2025. El presente protocolo rige a partir de su publicación en el Diario Oficial La Gaceta y deberá divulgarse mediante el sitio web institucional y los demás canales oficiales.

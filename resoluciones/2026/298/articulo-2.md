@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este protocolo será aplicable a las denuncias comprendidas en su objeto, sin perjuicio de los procedimientos especiales y de las competencias atribuidas a la Auditoría Interna, la Contraloría General de la República, la Procuraduría de la Ética Pública, el Ministerio Público y otras autoridades.

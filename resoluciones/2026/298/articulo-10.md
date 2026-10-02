@@ -1,0 +1,1 @@
+Artículo 10.—Impedimentos y sustitución. Las personas integrantes deberán revelar oportunamente cualquier circunstancia que pueda comprometer su imparcialidad y separarse del conocimiento del asunto cuando corresponda. La abstención, recusación y sustitución se tramitarán conforme a la Ley General de la Administración Pública y a lo dispuesto en el artículo 6 de este protocolo.

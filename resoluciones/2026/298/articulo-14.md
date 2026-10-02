@@ -1,0 +1,1 @@
+Artículo 14.—Denuncias anónimas. Las denuncias anónimas serán analizadas cuando contengan elementos objetivos, verosímiles y suficientes para identificar los hechos o posibles fuentes de prueba. Si existe mérito, la Comisión recomendará actuar de oficio; en caso contrario, dispondrá su archivo motivado.
