@@ -1,0 +1,6 @@
+Artículo 9
+Todo Miembro deberá adoptar una legislación que exija a los empleadores tomar medidas apropiadas y acordes con su grado de control para prevenir la violencia y el acoso en el mundo del trabajo, incluidos la violencia y el acoso por razón de género, en particular, en la medida en que sea razonable y factible:
+a) adoptar y aplicar, en consulta con los trabajadores y sus representantes, una política del lugar de trabajo relativa a la violencia y el acoso;
+b) tener en cuenta la violencia y el acoso, así como los riesgos psicosociales asociados, en la gestión de la seguridad y salud en el trabajo;
+c) identificar los peligros y evaluar los riesgos de violencia y acoso, con participación de los trabajadores y sus representantes, y adoptar medidas para prevenir y controlar dichos peligros y riesgos, y
+d) proporcionar a los trabajadores y otras personas concernidas, en forma accesible, según proceda, información y capacitación acerca de los peligros y riesgos de violencia y acoso identificados, y sobre las medidas de prevención y protección correspondientes, inclusive sobre los derechos y responsabilidades de los trabajadores y otras personas concernidas en relación con la aplicación de la política mencionada en el apartado a) del presente artículo.

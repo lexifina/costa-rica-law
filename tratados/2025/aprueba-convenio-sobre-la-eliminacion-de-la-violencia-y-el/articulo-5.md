@@ -1,0 +1,2 @@
+Artículo 5
+Con objeto de prevenir y eliminar la violencia y el acoso en el mundo del trabajo, todo Miembro deberá respetar, promover y llevar a efecto los principios y derechos fundamentales en el trabajo, a saber, la libertad de asociación y el reconocimiento efectivo del derecho de negociación colectiva, la eliminación de todas las formas de trabajo forzoso u obligatorio, la abolición efectiva del trabajo infantil y la eliminación de la discriminación en materia de empleo y ocupación, así como fomentar el trabajo decente y seguro.

@@ -1,0 +1,2 @@
+Artículo 6
+Todo Miembro deberá adoptar una legislación y políticas que garanticen el derecho a la igualdad y a la no discriminación en el empleo y la ocupación, incluyendo a las trabajadoras, así como a los trabajadores y otras personas pertenecientes a uno o a varios grupos vulnerables, o a grupos en situación de vulnerabilidad que están afectados de manera desproporcionada por la violencia y el acoso en el mundo del trabajo.
