@@ -13,3 +13,4 @@ Modificación de la circular 137-2026 sobre la “Competencia territorial defini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-09-08 | la propia norma |
+| 2 | 2026-10-02 | Circular 173 (2026-10-02) |
