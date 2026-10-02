@@ -14,3 +14,4 @@ Competencia territorial definitiva del Juzgado de Ejecución Laboral en los cant
 | --- | --- | --- |
 | 1 | 2026-08-06 | la propia norma |
 | 2 | 2026-09-08 | Circular 160 (2026-09-08) |
+| 3 | 2026-10-02 | Circular 173 (2026-10-02) |
