@@ -1,3 +1,0 @@
-Recepción de evidencia
-Artículo 4º—Con el propósito de reforzar los controles en el manejo de la evidencia, cada despacho deberá designar una persona encargada de la recepción, registro, custodia y disposición de la evidencia. Esta función se debe rotar semestralmente entre el personal del despacho con el fin de cumplir con la normativa de Control Interno.
-Para ese cometido, se deberá contar con un espacio apropiado para la recepción de la evidencia, en un lugar de acceso restringido al público. Una vez recibida la misma, deberá disponerse su traslado inmediato al área de custodia, la cual debe contar con medidas de seguridad que garanticen la integridad de los bienes recibidos.

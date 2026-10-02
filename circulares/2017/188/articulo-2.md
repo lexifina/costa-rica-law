@@ -1,1 +1,0 @@
-Artículo 2º—El Depósito de Objetos Decomisados es la oficina encargada por ley, para recibir y custodiar los objetos, así como las demás pruebas decomisadas de las causas judiciales que se encuentren en trámite durante todo el proceso penal. Será responsable de la conservación de los mismos, de forma que éstos se mantengan en las mejores condiciones.

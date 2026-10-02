@@ -1,2 +1,0 @@
-Artículo 13.—Según sea el destino de la evidencia, se deberán preparar los documentos correspondientes, de manera que si el destino de la misma es el Depósito de Objetos Decomisados, deberá coordinarse la preparación de las Fórmulas de Inventario de Objetos Decomisados (F.23).
-Cuando se trate de evidencias que deben ser trasladas al Departamento de Ciencias Forenses, se adjuntarán los respectivos oficios o solicitudes de Dictamen Criminalístico.

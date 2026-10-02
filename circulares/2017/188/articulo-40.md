@@ -1,2 +1,0 @@
-Artículo 40.—Cada año, el Depósito de Objetos Decomisados, deberá remitir un oficio de consulta a los diferentes despachos judiciales, con el propósito de solicitar información sobre la situación jurídica de las evidencias que se encuentren bajo su custodia.
-En caso de que se determine, que una evidencia ha pasado a la orden de otra dependencia, se proceder á a realizar los cambios correspondientes en el sistema de cómputo, para que en lo sucesivo, la responsabilidad sobre esos bienes recaiga sobre el despacho que está tramitando la causa.

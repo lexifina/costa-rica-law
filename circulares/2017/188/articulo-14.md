@@ -1,1 +1,0 @@
-Artículo 14.—De igual forma, es necesario que se considere la existencia de leyes especiales, que obligan a la autoridad judicial que conoce la causa, a remitir la evidencia a un destino específico, diferente del Depósito de Objetos Decomisados, atendiendo a la naturaleza del bien que se trate.

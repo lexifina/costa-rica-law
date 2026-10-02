@@ -1,5 +1,0 @@
-Estado jurídico de las evidencias en el depósito de objetos decomisados
-Artículo 39.—Las jefaturas del Organismo de Investigación Judicial o los funcionarios judiciales que tienen a su cargo la tramitación del respectivo proceso penal, deberán informar en el plazo de quince días hábiles, sobre cualquier variación en el estado jurídico de las evidencias almacenadas en el Depósito de Objetos.
-En ese sentido, cuando tengan certeza que los bienes remitidos al Depósito no tienen ningún interés procesal, debe gestionarse lo pertinente para la devolución a sus legítimos propietarios, según corresponda en derecho. En caso de que no sea posible, o que no sea legalmente procedente hacer la devolución, deberá remitirse un oficio autorizando al Depósito para disponer la devolución, destrucción o donación de la evidencia, el cual debe contener lo siguiente:
-a) Motivo y fecha de finalización del proceso para efectos de la aplicación de lo establecido en la Ley N° 6106, y
-b) Indicación de que se puede disponer del objeto para su donación o destrucción.

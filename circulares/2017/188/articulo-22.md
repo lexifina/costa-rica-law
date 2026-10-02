@@ -1,2 +1,0 @@
-Artículo 22.—Cada artículo deberá ser descrito en líneas separadas. En ese sentido, cuando se trate de un bolso, caja, bolsa, maletín, valija, entre otros, con distintos artículos en su interior, los mismos deberán describirse de forma individual y en líneas separadas.
-Cabe mencionar que por artículo se refiere a todo aquel que venga separado de otro, por más pequeño que sea, un pedacito de papel, una argolla para llaves, un llavero, llaves y otros por el estilo.
