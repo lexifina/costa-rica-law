@@ -1,0 +1,1 @@
+Artículo 54. Reformas sustantivas. La creación de nuevas modalidades permanentes de ayuda, el cambio de la finalidad del FAE, la modificación de sus fuentes de financiamiento o la ampliación de los límites económicos establecidos en este Reglamento requerirán aprobación de la Asamblea General, salvo que una norma superior disponga otra cosa.

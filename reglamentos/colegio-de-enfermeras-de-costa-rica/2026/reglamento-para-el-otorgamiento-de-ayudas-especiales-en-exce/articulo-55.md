@@ -1,0 +1,1 @@
+Artículo 55. Normativa supletoria. En lo no previsto se aplicarán la Ley Orgánica del Colegio de Enfermeras de Costa Rica, su Reglamento, la Ley General de la Administración Pública, la normativa presupuestaria y de control interno aplicable y los principios generales del Derecho Público, en cuanto resulten compatibles con la naturaleza del CECR y del Fondo de Ayudas Especiales.

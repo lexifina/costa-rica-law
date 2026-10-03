@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones de este Reglamento serán aplicables a las personas profesionales en Enfermería incorporadas al Colegio de Enfermeras de Costa Rica que soliciten una Ayuda Especial y cumplan los requisitos establecidos en esta normativa.

@@ -1,0 +1,1 @@
+Artículo 7. Interpretación restrictiva de las excepciones. Las disposiciones que permiten acceder al Fondo de Ayudas Especiales en situaciones no expresamente tipificadas o para regularizar obligaciones colegiales deberán interpretarse restrictivamente y de conformidad con la finalidad social y la sostenibilidad del FAE.

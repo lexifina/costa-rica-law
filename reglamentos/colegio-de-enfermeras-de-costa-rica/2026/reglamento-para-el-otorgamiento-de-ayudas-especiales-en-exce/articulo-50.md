@@ -1,0 +1,1 @@
+Artículo 50. Prohibición de conflicto de interés. Las personas integrantes de la Junta Directiva o funcionarios de enfermería que tengan interés personal, familiar o cualquier conflicto de interés respecto de una solicitud deberán abstenerse de participar en su conocimiento o decisión conforme al ordenamiento jurídico aplicable.

@@ -1,0 +1,1 @@
+Artículo 3. Principios. La interpretación y aplicación de este Reglamento se regirá por los principios de legalidad, solidaridad, excepcionalidad, temporalidad, subsidiariedad, objetividad, proporcionalidad, igualdad de trato, razonabilidad, sostenibilidad financiera, transparencia, rendición de cuentas, buena fe, confidencialidad y uso responsable de los recursos.

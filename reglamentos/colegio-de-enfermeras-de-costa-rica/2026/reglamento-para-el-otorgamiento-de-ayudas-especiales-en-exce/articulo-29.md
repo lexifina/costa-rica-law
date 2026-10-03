@@ -1,0 +1,1 @@
+Artículo 29. Límite global por evento. Cuando un mismo evento permita valorar más de una modalidad, la Junta Directiva podrá combinarlas si existe justificación, pero la suma total de la ayuda asociada al mismo hecho generador no podrá exceder tres salarios base. La aplicación de cuotas y costo de renovación de licencia formará parte de ese límite global.

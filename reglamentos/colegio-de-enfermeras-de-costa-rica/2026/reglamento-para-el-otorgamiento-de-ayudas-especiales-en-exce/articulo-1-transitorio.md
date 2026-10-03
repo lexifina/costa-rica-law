@@ -1,0 +1,4 @@
+TRANSITORIOS
+TRANSITORIO I. Implementación inmediata. A partir de la aprobación y entrada en vigencia del presente Reglamento, la Dirección Administrativa queda autorizada para recibir y tramitar solicitudes de ayudas especiales, aun cuando se encuentren en proceso de actualización los formularios, procedimientos, matrices de valoración u otros instrumentos administrativos.
+Mientras se completa dicha actualización, podrán utilizarse los formularios existentes, realizarse las adecuaciones necesarias o recibirse las solicitudes mediante escrito formal, siempre que se aporte la información y documentación indispensable para su valoración.
+Dentro de los treinta días naturales siguientes a la entrada en vigencia, la Dirección Administrativa deberá completar la actualización de los instrumentos necesarios para la ejecución del Reglamento.

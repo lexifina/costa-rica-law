@@ -1,0 +1,1 @@
+Artículo 46. Recursos administrativos. Contra el acto final procederán los recursos administrativos que correspondan conforme al ordenamiento jurídico aplicable. La resolución deberá informar a la persona interesada los recursos, plazos y autoridad competente.

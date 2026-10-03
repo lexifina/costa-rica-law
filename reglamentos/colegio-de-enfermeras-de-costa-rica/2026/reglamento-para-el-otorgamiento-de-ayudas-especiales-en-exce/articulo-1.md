@@ -1,0 +1,17 @@
+COLEGIO DE ENFERMERAS DE COSTA RICA
+REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS ESPECIALES EN EXCEPCIONAL
+ESTADO DE NECESIDAD DEL COLEGIO DE ENFERMERAS DE COSTA RICA
+La Asamblea General del Colegio de Enfermeras de Costa Rica, en ejercicio de sus competencias y con el propósito de regular de manera integral, objetiva, sostenible y transparente el Fondo de Ayudas Especiales, acuerda aprobar el siguiente Reglamento:
+CONSIDERANDO
+I. Que el artículo 3 de la Ley Orgánica del Colegio de Enfermeras de Costa Rica, Ley N.° 2343, contempla dentro de los fines de la Corporación la promoción del desarrollo de la Enfermería, la protección de su ejercicio y la defensa de los derechos de sus integrantes, así como su mejoramiento económico.
+II. Que el artículo 11, inciso f), de la Ley N.° 2343 atribuye a la Junta Directiva la administración de los fondos del Colegio, función que debe ejercerse dentro del marco legal, presupuestario y reglamentario aplicable.
+III. Que el Reglamento a la Ley Orgánica del Colegio de Enfermeras de Costa Rica, Decreto Ejecutivo N.° 37286-S, regula la organización y funcionamiento de la Corporación y las competencias de sus órganos.
+IV. Que la Asamblea General Extraordinaria celebrada el 25 de agosto de 2018 dispuso destinar recursos provenientes de la colegiatura a un fondo de ayuda social, cuya administración y uso deben responder a la finalidad social aprobada por la Asamblea General.
+V. Que las personas colegiadas pueden verse afectadas por desastres, fenómenos naturales, incendios, emergencias, contingencias de salud u otros acontecimientos extraordinarios que provoquen un estado temporal y grave de necesidad económica y que justifiquen una respuesta solidaria de la Corporación.
+VI. Que la naturaleza solidaria del fondo de ayuda especial exige, al mismo tiempo, proteger su sostenibilidad y evitar que sea utilizado para atender dificultades económicas ordinarias, obligaciones recurrentes o situaciones que cuentan con mecanismos institucionales distintos, tales como los arreglos de pago.
+VII. Que resulta necesario prever, de manera excepcional y estrictamente regulada, la posibilidad de aplicar una ayuda especial a obligaciones económicas con el propio Colegio cuando la mora sea consecuencia directa de una contingencia extraordinaria, sin que ello constituya condonación, exoneración o dispensa de los requisitos legales para el ejercicio profesional.
+VIII. Que la asignación de ayudas debe sujetarse a criterios objetivos de excepcionalidad, causalidad, necesidad, proporcionalidad, subsidiariedad, disponibilidad financiera, transparencia, igualdad de trato y rendición de cuentas.
+IX. Que corresponde establecer un procedimiento uniforme para la recepción, valoración, resolución, ejecución, liquidación, control y fiscalización de las ayudas especiales.
+X. Que la protección social de las personas colegiadas debe armonizarse con la adecuada administración del patrimonio institucional, de forma que toda ayuda otorgada tenga respaldo técnico, presupuestario y documental suficiente.
+DISPOSICIONES GENERALES
+Artículo 1. Objeto. El presente Reglamento regula la finalidad, financiamiento, administración, requisitos, modalidades, procedimiento, control y fiscalización del Fondo de Ayudas Especiales del Colegio de Enfermeras de Costa Rica, destinado a brindar apoyo económico temporal a personas colegiadas que enfrenten un excepcional estado de necesidad debidamente acreditado.

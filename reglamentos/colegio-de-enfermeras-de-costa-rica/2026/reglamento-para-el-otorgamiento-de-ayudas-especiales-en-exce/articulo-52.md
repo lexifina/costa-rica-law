@@ -1,0 +1,1 @@
+Artículo 52. Revisión periódica. La viabilidad, sostenibilidad, suficiencia de controles y efectividad del FAE y de este Reglamento deberán revisarse al menos cada dos años, con informe conjunto de la Dirección Administrativa y del Departamento Financiero Contable y las observaciones de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 35. Plazo para solicitar. La solicitud deberá presentarse dentro de los sesenta días naturales siguientes al acontecimiento a la fecha en que se produzca o pueda determinarse razonablemente la afectación económica. La Junta Directiva podrá admitir solicitudes extemporáneas por una única vez cuando exista causa justificada y la naturaleza del evento lo amerite.

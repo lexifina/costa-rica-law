@@ -1,0 +1,3 @@
+CAPÍTULO V
+MODALIDADES DE AYUDA ESPECIAL
+Artículo 25. Daños en vivienda habitual. Podrá otorgarse ayuda para atender necesidades inmediatas derivadas de pérdida total o parcial, incendio u otros daños graves en la vivienda habitual de la persona colegiada causados por desastre natural, fenómeno, accidente o causa humana extraordinaria. La ayuda podrá cubrir alojamiento temporal, reparaciones indispensables o reposición básica directamente vinculada con la habitabilidad, hasta un máximo total de tres salarios base. Cuando exista seguro o cobertura de tercero, solo podrá cubrirse la parte no cubierta, salvo urgencia debidamente motivada.

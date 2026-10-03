@@ -1,0 +1,1 @@
+Artículo 17. Fiscalización. La Fiscalía del CECR ejercerá la fiscalización del cumplimiento de este Reglamento dentro de sus competencias. Podrá solicitar expedientes, informes y respaldos, formular recomendaciones y promover las acciones que correspondan ante eventuales irregularidades.

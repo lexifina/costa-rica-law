@@ -1,0 +1,2 @@
+Artículo 36. Prevención y subsanación. Si la solicitud está incompleta, la Dirección Administrativa prevendrá por una sola vez a la persona solicitante para que subsane dentro de diez días hábiles.
+Por causa justificada podrá concederse una prórroga razonable. La falta de subsanación permitirá archivar el trámite, sin perjuicio de una nueva solicitud si el plazo del artículo anterior aún lo permite.

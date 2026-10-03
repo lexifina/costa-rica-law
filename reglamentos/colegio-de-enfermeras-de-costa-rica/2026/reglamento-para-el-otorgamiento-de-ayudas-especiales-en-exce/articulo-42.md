@@ -1,0 +1,1 @@
+Artículo 42. Recuperación de sumas. La Junta Directiva fijará, mediante resolución motivada, el monto a reintegrar y el plazo de pago. El CECR podrá adoptar las acciones administrativas o judiciales que correspondan para la recuperación de recursos, respetando el debido proceso.

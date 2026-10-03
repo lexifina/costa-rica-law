@@ -1,0 +1,1 @@
+Artículo 45. Denegatoria. La denegatoria deberá expresar de forma clara las razones de hecho, técnicas, financieras o jurídicas que la sustentan. La falta de disponibilidad presupuestaria suficiente podrá constituir motivo de denegatoria o de aprobación parcial, sin que ello genere derecho adquirido frente a períodos presupuestarios posteriores.

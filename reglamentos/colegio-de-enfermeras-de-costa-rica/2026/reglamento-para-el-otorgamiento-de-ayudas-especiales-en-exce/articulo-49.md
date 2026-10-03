@@ -1,0 +1,1 @@
+Artículo 49. Confidencialidad. La información personal, socioeconómica y de salud será tratada con carácter confidencial y únicamente para la tramitación, control y fiscalización de la ayuda, conforme a la legislación aplicable. Los informes públicos y de rendición de cuentas utilizarán datos agregados o anonimizados.
