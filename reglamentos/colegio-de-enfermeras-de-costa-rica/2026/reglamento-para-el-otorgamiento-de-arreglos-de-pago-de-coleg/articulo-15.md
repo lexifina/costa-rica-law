@@ -1,0 +1,1 @@
+Artículo 15. Expediente de arreglo de pago. La Dirección Administrativa o quien esta delegue deberá llevar un registro y crear un expediente por cada persona colegiada que solicite y que se le otorgue un arreglo de pago, en donde consten los documentos solicitados en el presente reglamento, así como todos los posteriores trámites, incluyendo los pagos realizados.

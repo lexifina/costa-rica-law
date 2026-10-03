@@ -1,0 +1,1 @@
+Artículo 12. Activación. En aquellos casos donde la persona colegiada se encuentre suspendido por morosidad, y se aprueba el arreglo de pago, para proceder con el levantamiento de la suspensión de forma inmediata, el beneficiario deberá cancelar en ese mismo momento tanto la primera cuota del arreglo de pago como la colegiatura mensual que se encuentre a cobro.

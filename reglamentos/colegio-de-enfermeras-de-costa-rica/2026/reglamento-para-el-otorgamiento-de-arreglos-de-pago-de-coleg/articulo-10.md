@@ -1,0 +1,1 @@
+Artículo 10. Plazo. El plazo máximo de un arreglo de pago será definido según acuerdo con la Dirección Administrativa y según sea la capacidad económica de la persona colegiada al momento de la solicitud, no pudiendo superar en ningún caso más de seis meses para el pago total de las cuotas del arreglo.

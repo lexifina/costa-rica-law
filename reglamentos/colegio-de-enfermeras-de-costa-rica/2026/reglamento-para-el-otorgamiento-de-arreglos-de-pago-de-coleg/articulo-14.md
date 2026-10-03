@@ -1,0 +1,3 @@
+CAPÍTULO III
+DOCUMENTACIÓN Y REGISTRO
+Artículo 14. Registros de colegiada(o)s morosos y suspendidos por morosidad. La Unidad de Cobros será la encargada de llevar un registro contable de aquellas personas colegiadas que se encuentran en su condición de morosos y suspendidos por morosidad, debiendo reportar mensualmente estos casos a la Fiscalía y a la Dirección Administrativa. En el registro contable se debe detallar como mínimo el nombre completo de la persona colegiada, número de identificación (cédula nacional, de residencia o extranjera), número de licencia, la cantidad de colegiaturas vencidas y el monto total adeudado.

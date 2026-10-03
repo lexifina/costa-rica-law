@@ -1,0 +1,1 @@
+Artículo 3. Cobertura. No proceden los arreglos de pago por concepto de: emisión de licencia por primera vez, renovación de licencia, cuota de incorporación, alquiler de salones, auditorios, cabañas y demás deudas que adquiera la colegiada(o) con la corporación.

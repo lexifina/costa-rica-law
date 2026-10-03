@@ -1,0 +1,1 @@
+Artículo 8. Vigencia. Los arreglos de pago iniciarán su período de vigencia el día de la formalización del mismo y hasta la fecha de cumplimiento de las obligaciones contraídas. Se tendrán por revocados en el momento en que se incumpla el pago de las cuotas del arreglo sin necesidad de notificación previa a la persona colegiada.

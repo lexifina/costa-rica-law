@@ -1,0 +1,1 @@
+Artículo 20. Prohibición. Se prohíbe que, ante el incumplimiento de un arreglo de pago de la persona colegiada, pueda acceder a este beneficio durante los doce meses posteriores a su incumplimiento salvo casos excepcionales debidamente motivados y valorados por la Junta Directiva.

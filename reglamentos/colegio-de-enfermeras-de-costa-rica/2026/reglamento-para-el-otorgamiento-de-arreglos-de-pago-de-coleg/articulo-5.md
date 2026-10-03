@@ -1,0 +1,2 @@
+Artículo 5. Vigilancia y Autorización. La Dirección Administrativa serán los encargados de ejecutar y velar por el cumplimiento del presente reglamento.
+Se delega en la Dirección Administrativa la firma de los arreglos de pago formalizados con las colegiada(o)s. Deberá presentar un informe mensual a la Junta Directiva, con el detalle de los arreglos de pago vigentes tramitados, los que se hayan cancelado por pago o incumplimientos y demás información relevante sobre la materia.

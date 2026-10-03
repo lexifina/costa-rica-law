@@ -1,0 +1,1 @@
+Artículo 4. Limitantes. La colegiada(o) que haya incumplido con un arreglo de pago previo no podrá solicitar nuevamente el beneficio. Se exceptúan los casos en que se demuestre justa causa sobrevenida que haya tornado imposible el cumplimiento pactado, en estos casos se requerirá la aprobación expresa de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 13. Vencimiento de las cuotas del arreglo. Las cuotas del arreglo de pago vencerán de la misma forma que las colegiaturas, es decir, mensualmente, independientemente de la fecha en la que se haya formalizado el arreglo de pago.

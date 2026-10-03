@@ -1,0 +1,1 @@
+Artículo 9. Pago de cuotas ordinarias. Los arreglos de pago se realizarán únicamente sobre las cuotas de colegiatura vencidas, debiendo la persona colegiada continuar con el pago al día de las cuotas mensuales de colegiatura. El no pago de las cuotas mensuales de colegiatura dará por terminado el arreglo de pago y se aplicarán las sanciones que resulten pertinentes.

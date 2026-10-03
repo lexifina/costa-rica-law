@@ -1,0 +1,1 @@
+Artículo 18. Compromiso de pago y Declaración Jurada. Al momento de formalizar el arreglo de pago, la persona colegiada deberá firmar el compromiso de pago y declaración jurada, mismo que contendrá las condiciones del arreglo acordado. Este documento deberá de ser firmado por la persona colegiada y quien ocupe el cargo de la Dirección Administrativa.
