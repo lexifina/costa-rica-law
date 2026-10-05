@@ -14,3 +14,4 @@ Reglamento sobre sociedades fiduciarias que administren fideicomisos emisores de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-03 | la propia norma |
+| 2 | 2026-10-05 | Reglamento 2055 (2026-10-05) |
