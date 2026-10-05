@@ -1,0 +1,1 @@
+Artículo 89. Como parte de las actividades necesarias para la aceptación o recibimiento por parte de la Municipalidad de las áreas de cesión e infraestructura pública, se deberán realizar inspecciones al sitio, para verificar que cumplen con la propuesta de diseño aprobada por el Municipio de Santa Ana.

@@ -1,0 +1,1 @@
+Artículo 146. Área Común para recreación y esparcimiento. Todo condominio industrial tendrá un área común, dentro de la cual deberá contarse con espacios destinados a áreas recreativas y de esparcimiento para los trabajadores. Como mínimo debe destinarse un 7% de la finca matriz para este fin y al menos un 3% de esta área será destinada a actividades al aire libre.

@@ -1,0 +1,1 @@
+Artículo 193. Cesión de área para uso público parque y facilidades comunales. El porcentaje mínimo de cesión para este destino es de 12%. Para el acondicionamiento de estas zonas deben acatarse las normas del Título IV Áreas recreativas.

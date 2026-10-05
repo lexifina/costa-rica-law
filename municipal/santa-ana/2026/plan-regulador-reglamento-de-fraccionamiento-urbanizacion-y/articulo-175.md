@@ -1,0 +1,1 @@
+Artículo 175. En caso de condominio vertical las calles internas deben tener como mínimo 7 metros de ancho, y no podrán sobrepasar el 10% del área total del lote. Las calles se consideran como parte del área de cobertura.

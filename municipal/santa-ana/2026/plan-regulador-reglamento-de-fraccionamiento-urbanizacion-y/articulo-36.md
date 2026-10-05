@@ -1,0 +1,1 @@
+Artículo 36. El sistema vial de las urbanizaciones debe sujetarse a una vía pública reglamentaria según corresponda por su clasificación, además cumplirá con los lineamientos establecidos en el Reglamento de Vialidad.

@@ -1,0 +1,3 @@
+Artículo 49. Toda urbanización debe contar con sus respectivas áreas destinadas a parques y facilidades comunales.
+a. Áreas de parque: Por lo menos un tercio del porcentaje fijado deberá ser destinado indefectiblemente al uso de parque y juegos infantiles. Lo anterior, con prioridad para las zonas de juego infantil, en una proporción no menor que de 10 m² por lote.
+b. Combinación de parques y facilidades comunales. Se permite desarrollar una combinación de estos espacios de manera tal que en un solo lugar se tenga juegos infantiles, parque y facilidades comunales. Lo anterior con la condición de que se conserven las áreas mínimas de cesión para cada destino y sus disposiciones.

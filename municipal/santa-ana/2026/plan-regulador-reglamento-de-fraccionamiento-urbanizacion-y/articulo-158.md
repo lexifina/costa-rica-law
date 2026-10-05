@@ -1,0 +1,1 @@
+Artículo 158. La inspección y la aceptación de las obras públicas no relevan al desarrollador de realizar por su cuenta, la reparación de los defectos de construcción descubiertos durante los 18 meses siguientes al recibo municipal de las obras.

@@ -1,0 +1,1 @@
+Artículo 67. Obras de retención de pluviales se calculan según los señalado en el Capítulo 4 Aspectos Hidrogeológicos, Hidrológicos y Deslizamientos del Reglamento de Construcciones del Plan Regulador

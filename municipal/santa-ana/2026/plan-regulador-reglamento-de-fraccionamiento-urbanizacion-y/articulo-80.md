@@ -1,0 +1,1 @@
+Artículo 80. Al menos un 50% de las especies arbóreas utilizadas en parques y facilidades comunales deben ser nativas. Para ello se recomienda utilizar el Reglamento de Arborización de la Municipalidad de Santa Ana.

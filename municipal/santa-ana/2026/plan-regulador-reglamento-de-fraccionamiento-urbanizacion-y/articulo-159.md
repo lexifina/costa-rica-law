@@ -1,0 +1,1 @@
+Artículo 159. Garantía de Cumplimiento. El desarrollador entregará a la Municipalidad este documento que lo compromete a velar por la entrega satisfactoria de las obras. El incumplimiento de dicha garantía conlleva a la no autorización de la licencia de construcción.

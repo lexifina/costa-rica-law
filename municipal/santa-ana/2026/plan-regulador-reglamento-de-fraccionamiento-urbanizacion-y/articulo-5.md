@@ -1,0 +1,1 @@
+Artículo 5. Requisitos para el visado municipal para fraccionamientos o segregaciones. El interesado deberá cumplir con todo lo establecido en el Reglamento Municipal para obtener licencia de construcciones, así como con los requisitos adicionales definidos en el presente Reglamento. En el caso de fraccionamiento con fines urbanísticos se requiere del visado del INVU.

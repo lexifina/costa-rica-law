@@ -1,0 +1,3 @@
+Artículo 190. Cobertura. La cobertura máxima permitida en un proyecto de interés social es:
+a. Un 75% si la vivienda se encuentra dentro de una configuración donde se trabaja con un sistema de tratamiento individual (tanques sépticos u otro) con drenajes colectivos, o si se tiene planta de tratamiento, cualquier sistema de tratamiento de aguas servidas que no dependa de la capacidad de absorción del suelo.
+b. Si la vivienda utiliza un tanque séptico y la zona de absorción se encuentra dentro del mismo lote, la cobertura máxima no será mayor al 70%, debe tener una relación directa con la capacidad de percolación del suelo. Este porcentaje está sujeto a la tasa de percolación del suelo.

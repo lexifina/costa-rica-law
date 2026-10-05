@@ -1,0 +1,1 @@
+Artículo 75. Todos los accesos, infraestructura y equipamiento de los componentes para parques y facilidades comunales del cantón de Santa Ana deben acatar los lineamientos de la Ley 7600 de la Igualdad de Oportunidades para las Personas con Discapacidad, su reglamento y reformas.

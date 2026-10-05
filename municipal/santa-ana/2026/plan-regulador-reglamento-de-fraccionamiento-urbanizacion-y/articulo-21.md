@@ -1,0 +1,1 @@
+Artículo 21. Cesión para parque y facilidades comunales en Zona No Urbanizada. Todo fraccionador de terrenos localizados en la zona no urbanizada debe ceder un porcentaje mínimo del terreno a fraccionar destinado a parque y facilidades comunales.

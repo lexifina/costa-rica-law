@@ -1,0 +1,1 @@
+Artículo 141. Las restricciones referentes a tamaño máximo de finca matriz, frente mínimo de finca matriz y cantidad máxima de filiales para condominios de uso industrial son las establecidas según la zona.

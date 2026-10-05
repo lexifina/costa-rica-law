@@ -1,0 +1,1 @@
+Artículo 35. Toda urbanización debe brindar libre ingreso a todos los ciudadanos mediante redes viales continuas. Está terminantemente prohibido cerrar al público el acceso a cualquier calle de una urbanización.

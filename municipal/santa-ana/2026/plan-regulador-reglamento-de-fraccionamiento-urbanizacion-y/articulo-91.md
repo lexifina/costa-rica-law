@@ -1,0 +1,1 @@
+Artículo 91. Cesión de parques y facilidades comunales en fraccionamientos: Para determinar los porcentajes a ceder para parques y facilidades comunales establecidos según el tipo de área en la que se encuentran deben acatar el porcentaje establecido en el Capítulo 4. Cesión para uso público por fraccionamientos del presente documento.

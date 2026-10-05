@@ -1,0 +1,1 @@
+Artículo 125. En caso de que los condominios utilicen un sistema de alcantarillado sanitario con planta de tratamiento, deberá acatar las disposiciones y normas indicadas en el Reglamento de Construcciones

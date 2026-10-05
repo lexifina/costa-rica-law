@@ -1,0 +1,2 @@
+Artículo 37. Toda nueva urbanización tiene que respetar y sujetarse a las vías propuestas, ejes viales y regulaciones indicadas en el Reglamento de Vialidad del presente Plan Regulador.
+Todo desarrollador está en la obligación de construir aquellas vías proyectadas en el Plan Regulador, que atraviesen la propiedad a urbanizar. Las obras que se deben construir son sistema pluvial, sistema sanitario, alumbrado, público, aceras y calzada.

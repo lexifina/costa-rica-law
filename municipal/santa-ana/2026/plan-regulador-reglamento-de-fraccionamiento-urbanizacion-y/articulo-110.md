@@ -1,0 +1,1 @@
+Artículo 110. El desarrollador deberá realizar un estudio de impacto vial para determinar el impacto del proyecto sobre la vialidad, además este estudio debe aportar las recomendaciones para disminuir cualquier impacto negativo que se genere.

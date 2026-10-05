@@ -1,0 +1,1 @@
+Artículo 78. En el caso de que el parque y/o facilidad comunal se encuentre ubicado de forma inmediata a una quebrada o río, canal o calle primaria, y en general cualquier lugar que sea presente riesgo para los usuarios, deberá contar con malla, seto, u otro sistema que ofrezca seguridad.

@@ -1,0 +1,1 @@
+Artículo 136. No se permite condominio dentro de condominio en las siguientes zonas: zonas Mixto Salitral, Residencial Salitral, Predominantemente Residencial Salitral 1 y Predominantemente Residencial Salitral 2

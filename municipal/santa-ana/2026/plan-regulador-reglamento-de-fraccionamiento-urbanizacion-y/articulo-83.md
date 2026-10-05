@@ -1,0 +1,1 @@
+Artículo 83. Para la construcción de urbanizaciones y condominios, el desarrollador debe presentar la propuesta de diseño y las especificaciones del conjunto de parques y facilidades comunales a la Municipalidad de Santa Ana, quien deberá aprobarla de previo a que se realicen las obras respectivas.

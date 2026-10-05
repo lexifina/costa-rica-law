@@ -1,0 +1,19 @@
+CAPÍTULO 3. FRACCIONAMIENTO SIMPLE Y FRACCIONAMIENTO CON FINES
+URBANÍSTICOS
+Consideraciones Específicas
+1. El fraccionamiento implica dividir determinada extensión de terreno en unidades más pequeñas, mediante amanzanamientos o lotificaciones y con los debidos accesos para cada lote; por eso se considera que propicia el crecimiento urbano en una determinada zona.
+2. En las zonas urbanas la medida de lote no busca promover segregaciones mínimas, sino establecer un tamaño tal que la población tenga la posibilidad de adquirir un lote.
+3. Para las zonas residenciales 1 y 2 los tamaños de lote son diferentes, esto obedece, entre otras cosas a los tamaños existentes, los cuales son mayores a 300 m² en urbanizaciones como Valle del Sol y Río Oro.
+4. En la zona Comercial-Logística se exigen mayores dimensiones pues el tipo de actividad comercial e industrial requiere para su operación áreas más extensas, de manera que se puedan desarrollar las actividades dentro del predio reduciendo los impactos negativos, principalmente a nivel vial.
+5. Los tamaños mínimos de lote permitidos en el sector montañoso al sur del cantón buscan, proteger la vida humana ante amenazas naturales, la conservación de zonas vulnerables ambientalmente, reservar tierras para la protección del recurso hídrico, salvaguardar terrenos para la agricultura, entre otras.
+6. También para estas zonas es indispensable proteger el desarrollo de las actividades productivas agrícolas y artesanales, así como las que puedan generarse gracias a la conservación ambiental. Por estos motivos se establece una diferencia entre las segregaciones en zonas urbanas y no urbanas del cantón, en función de las distintas actividades que se dan en cada zona.
+7. En Brasil las zonas De Almacenamiento, así como Logística y Talleres tienen tamaños de lote mayores que los de los alrededores con el fin de consolidar los usos industriales que se han desarrollado en la zona.
+8. La medida de frente de lote mínimo prevé un mínimo de ventilación e iluminación natural a los espacios internos que se vayan a construir. En este aspecto, la relación proporcional ideal es de 1:3, es decir el fondo debe medir como máximo 3 veces el frente. Sin embargo, el plan regulador admite proporciones hasta 1:5 en zonas urbanas y hasta 1:7 en zonas no urbanas.
+9. A cada propiedad resultante de un fraccionamiento debe garantizársele servicios básicos, un acceso adecuado a la vía pública, así como lo establecido en el artículo 40 de la Ley de Planificación Urbana. Por este motivo, es preciso que el fraccionamiento se realice frente a una calle pública existente. De no existir ésta, el fraccionador debe ceder a la Municipalidad la calle que haya creado con el fin de dar acceso a las propiedades resultantes. En las zonas urbanas solamente como un caso excepcional se aceptarán fraccionamientos mediante acceso excepcional de uso residencial.
+Regulaciones
+Artículo 11. Fraccionamientos simples Los fraccionamientos simples de predios, son permitidos siempre que los lotes resultantes del fraccionamiento cumplan las siguientes condiciones:
+a. Estar ubicados dentro de un cuadrante urbano, o dentro de un área previamente urbanizada que haya realizado la respectiva cesión de área para uso público. Según lo indicado en el Mapa 1. Zonas para la aplicación de la cesión de área de uso público por fraccionamiento.
+b. Tener acceso directo a vía pública.
+c. Contar con disponibilidad de servicios públicos indispensables: agua y electricidad.
+d. Cumplir con las disposiciones definidas en este Reglamento, en relación con áreas y frentes mínimos, sin perjuicio de la regulación local vigente.
+e. Estar libres de afectaciones o limitaciones urbanísticas, emitidas por las instituciones competentes, que impidan su aprovechamiento; de lo contrario, que éstas puedan conciliarse con el fraccionamiento propuesto.

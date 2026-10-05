@@ -1,0 +1,3 @@
+Artículo 50. Incentivos por infraestructura complementaria. El área ocupada por las siguientes instalaciones podrá contabilizarse como facilidades comunales, reservando al menos la mitad del porcentaje correspondiente a facilidades comunales para otros usos:
+a. Planta de tratamiento. Del área abarcada por las instalaciones de la planta de tratamiento se reconocerá hasta un 50% del área a ceder por concepto de facilidades comunales.
+b. Lagunas colectivas de retención de aguas pluviales. Del área abarcada por las instalaciones de retención de pluviales se reconocerá hasta un 50% del área a ceder por concepto de facilidades comunales.

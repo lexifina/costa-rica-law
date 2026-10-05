@@ -1,0 +1,1 @@
+Artículo 129. Cobertura. La cobertura máxima de la finca matriz se establece de acuerdo con lo señalado en el Reglamento de Zonificación del Plan Regulador. Esta cobertura debe ser distribuida entre las fincas filiales y las áreas comunes. La distribución debe indicarse en el diseño de sitio.

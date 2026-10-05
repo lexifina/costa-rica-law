@@ -1,0 +1,1 @@
+Artículo 145. Estacionamientos. Con respecto a áreas de estacionamiento dentro de los condominios industriales, se deben seguir los lineamientos establecidos en el Reglamento de Vialidad del presente Plan Regulador.

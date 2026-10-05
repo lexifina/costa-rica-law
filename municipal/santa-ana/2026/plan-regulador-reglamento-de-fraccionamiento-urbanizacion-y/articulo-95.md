@@ -1,0 +1,1 @@
+Artículo 95. Cualquier área verde, recreativa y/o comunal en una urbanización deberá estar ubicada en un rango de 200 - 600 metros, medidos sobre calle, de la última casa a la que sirve. No se deben cruzar vías primarias para llegar a un parque o facilidad comunal.

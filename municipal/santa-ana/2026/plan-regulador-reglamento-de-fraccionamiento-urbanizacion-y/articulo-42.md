@@ -1,0 +1,1 @@
+Artículo 42. Toda urbanización con más de 45 unidades habitacionales o lotes debe contar como mínimo con dos accesos vehiculares claramente diferenciados entre sí, con una separación de al menos 80 metros uno del otro, cada acceso debe tener al menos dos carriles, uno de entrada y uno de salida.

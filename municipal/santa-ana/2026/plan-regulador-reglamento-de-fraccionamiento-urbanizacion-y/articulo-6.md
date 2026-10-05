@@ -1,0 +1,7 @@
+Artículo 6. Disposiciones generales. El desarrollo de terrenos mediante su fraccionamiento o urbanización será permitido siempre que reúna las siguientes condiciones:
+a. Los lotes que se originen deberán cumplir con el área y frente mínimos respectivos para la zona donde se ubiquen.
+b. Los lotes resultantes de un fraccionamiento o urbanización deben ser, en la medida de lo posible de tipo regular según lo establecido en la definición del artículo 1 para lote regular.
+c. Deben tener un acceso adecuado a la vía pública.
+d. Los lotes resultantes deben tener disponibilidad de servicios públicos indispensables como: agua potable y electricidad entre otros.
+e. Los terrenos deberán estar libres de afectaciones legales o limitaciones físicas y de lo contrario, éstas deberán poder conciliarse con el desarrollo propuesto, caso contrario no será autorizado el fraccionamiento o urbanización.
+f. Cuando se da la vecindad a urbanizaciones, fraccionamientos o ambos es obligatorio que se contemple la continuidad de las calles mediante una adecuada integración física y funcional, además se debe contemplar las características naturales del terreno o la alteración que a éstas puedan ocasionar las obras a realizar. La persona profesional responsable deberá ofrecer una garantía previsible contra riesgos de inundación, derrumbes o deslizamientos, al realizar los estudios pertinentes tomando en cuenta las características biofísicas y/o biogeográficas del sitio.

@@ -1,0 +1,9 @@
+CAPÍTULO 9. CESIÓN DE ÁREA PARA USO PÚBLICO POR URBANIZACIÓN
+Consideraciones Específicas
+1. La obligación de ceder áreas para el uso público se encuentra establecida en el artículo 40 de la Ley de Planificación Urbana, número 4240 y tiene como como fin satisfacer las necesidades de parque y facilidades comunales que la propia actividad urbanística crea.
+2. De acuerdo con lo establecido en la Ley de Planificación Urbana, la cesión de área para uso público que se genera como resultado del desarrollo de una urbanización, debe destinarse a calles públicas, parques y facilidades comunales.
+3. La autorización de descontar del terreno de cesión de facilidades comunales el terreno ocupado por la planta de tratamiento y las obras de retención de aguas pluviales busca que en estas zonas se dé un manejo más sinérgico y paisajístico del sitio.
+4. A diferencia de una laguna convencional, el nivel del agua en la laguna de retención va a aumentar cuando llueva. Por esta razón la zona inundable debe estar señalizada para prevenir el ingreso de las personas, en particular los niños, a este sector. Esta precaución debe ir acompañada de la debida rotulación que advierta sobre el funcionamiento de la laguna. Se recomienda la utilización de setos u otro tipo de barrera que delimite la zona inundable.
+5. Podrá considerarse hasta la mitad del área que estas instalaciones abarcan parte del porcentaje del terreno que debe cederse para uso público por concepto de facilidades comunales. Se reserva la otra mitad para asegurar un mínimo de terreno destinado a satisfacer otras necesidades de la comunidad que vendrá a ocupar la nueva urbanización, tales como salud y educación.
+Regulaciones
+Artículo 46. Todas las urbanizaciones deben ceder áreas para uso público destinado a vías, parques y facilidades comunales de acuerdo con las normas que se establecen en el presente capítulo. El acondicionamiento mínimo de las áreas de parque se establece en el TÍTULO IV.

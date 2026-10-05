@@ -1,0 +1,1 @@
+Artículo 108. Se establece la obligación de que todo terreno que se desarrolle como condominio deberá alinearse y construir las vías proyectadas por la Municipalidad, así como las propuestas viales establecidas en el presente Plan Regulador que afecten la propiedad, estas vías serán calles públicas. El derecho de vía corresponderá al establecido en el Reglamento de Vialidad.

@@ -1,0 +1,1 @@
+Artículo 31. En el caso que la reunión de fincas implique una obstrucción total o parcial de alguna vía pública existente o proyectada o bien el acceso a algún espacio público se rechaza el visado hasta que se haga entrega del terreno correspondiente a esa vía proyectada o el acceso a algún espacio público.

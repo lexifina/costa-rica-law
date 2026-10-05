@@ -1,0 +1,1 @@
+Artículo 54. En el supuesto de que sea autorizada la reducción indicada en el artículo anterior, el 10% de área cedido para uso público se deberá distribuir en 5% para parque y 5% para facilidades comunales.

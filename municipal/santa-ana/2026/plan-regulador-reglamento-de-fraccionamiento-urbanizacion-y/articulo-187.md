@@ -1,0 +1,1 @@
+Artículo 187. La pendiente longitudinal máxima para carreteras primarias y secundarias en urbanizaciones de interés social será de 12%. Para carreteras terciarias se permiten pendientes de hasta 20% en distancias menores a 50 metros y una pendiente máxima de hasta 15% en todos los demás tramos.

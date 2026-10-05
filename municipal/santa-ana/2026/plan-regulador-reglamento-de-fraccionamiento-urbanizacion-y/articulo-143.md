@@ -1,0 +1,2 @@
+Artículo 143. Vialidad y accesos. La configuración y geometría de los accesos y salidas del condominio industrial deben ser tal que minimicen los impactos en el flujo vehicular de la
+zona. Todos los giros y maniobras de los vehículos asociados al condominio industrial deben realizarse dentro de los límites de la propiedad donde se establecerá el régimen de condominio industrial, y nunca afectar de manera negativa las vías nacionales o las carreteras cantonales.

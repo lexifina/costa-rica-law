@@ -1,0 +1,1 @@
+Artículo 155. Aceptación de obras. La aceptación de las obras y de las áreas públicas (mejoras a vías y calles proyectadas) se debe efectuar conforme a las disposiciones vigentes de la Municipalidad y los demás organismos públicos que al respecto ejerzan funciones de control.

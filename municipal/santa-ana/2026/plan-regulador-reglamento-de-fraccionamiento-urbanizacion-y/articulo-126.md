@@ -1,0 +1,1 @@
+Artículo 126. Las alturas permitidas y los retiros de la finca matriz se regirán de acuerdo con lo que establece el Reglamento de Zonificación y Uso del Suelo del presente Plan Regulador de acuerdo con la zona en la que se ubique el condominio.

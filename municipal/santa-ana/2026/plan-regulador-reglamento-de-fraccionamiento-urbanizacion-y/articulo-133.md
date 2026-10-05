@@ -1,0 +1,1 @@
+Artículo 133. Al menos el 40% del área destinada a los usos señalados en el artículo 54 del Reglamento a la Ley Reguladora de la Propiedad en Condominio, Decreto Ejecutivo 32303 y sus reformas, deberá mantenerse sin impermeabilizar. En el caso de condominios verticales el restante podrá localizarse en uno de los pisos del edificio o en azoteas.

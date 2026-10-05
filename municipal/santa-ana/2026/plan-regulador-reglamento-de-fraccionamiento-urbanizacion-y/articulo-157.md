@@ -1,0 +1,1 @@
+Artículo 157. El desarrollador y el profesional responsable que firman la solicitud de visado de los planos de construcción del condominio, son garantes de la estricta conformidad de las obras con los requisitos reglamentarios jurídicamente exigibles.

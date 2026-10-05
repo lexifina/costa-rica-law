@@ -1,0 +1,1 @@
+Artículo 88. Para las áreas a ceder, el desarrollador deberá contemplar la posibilidad de incluir en el diseño del área verde y recreativa a ceder los usos preestablecidos por los usuarios de la zona tales como senderos, accesos y usos deportivos o recreativos.

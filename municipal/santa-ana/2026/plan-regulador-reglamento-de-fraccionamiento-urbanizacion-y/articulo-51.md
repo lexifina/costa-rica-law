@@ -1,0 +1,2 @@
+Artículo 51. A diferencia de una laguna convencional, el nivel del agua en la laguna de retención va a aumentar cuando llueva. Por esta razón la zona inundable debe estar señalizada para prevenir el ingreso de las personas, en particular los niños, a este sector.
+Esta precaución debe ir acompañada de la debida rotulación que advierta sobre el funcionamiento de la laguna. Se recomienda la utilización de setos u otro tipo de barrera que delimite la zona inundable

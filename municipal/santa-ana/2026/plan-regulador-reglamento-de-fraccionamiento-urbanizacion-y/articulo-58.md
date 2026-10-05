@@ -1,0 +1,1 @@
+Artículo 58. Las restricciones urbanísticas, correspondientes a altura, cobertura y retiros, que rigen para las construcciones en la urbanización son las establecidas en el Reglamento de Zonificación.

@@ -1,0 +1,1 @@
+Artículo 90. La Municipalidad podrá rechazar los elementos de las áreas de parque y facilidades comunales que proponga el desarrollador, si se considera que atenta contra la seguridad de los usuarios o no cumple con alguna de las condiciones según las categorías y sus componentes antes dispuestas para las áreas verdes y recreativas, del presente título.

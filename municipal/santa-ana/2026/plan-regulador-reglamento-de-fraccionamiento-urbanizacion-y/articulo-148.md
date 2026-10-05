@@ -1,0 +1,6 @@
+Artículo 148. Adicionalmente a los lineamientos establecidos en la Ley Reguladora de Propiedad en Condominio N° 7933 y su respectivo Reglamento N° 32303, los planos deben contener:
+a. Planos de distribución: en estos planos se debe incluir el área común destinada a zona verde, juegos infantiles, parques y áreas recreativas.
+b. Planos constructivos: en estos planos se deben incluir el alineamiento a las vías proyectadas, cuando aplique.
+c. Planos estructurales: en cuanto a normas de seguridad contra incendio debe estar en concordancia con lo que se estipula en el Reglamento de Construcciones del presente Plan Regulador y a la normativa nacional vigente en la materia.
+d. Planos mecánicos y eléctricos: en cuanto a normas de seguridad contra incendio debe estar en concordancia con lo que se estipula en el Reglamento de Construcciones del presente Plan Regulador y a la normativa nacional vigente en la materia.
+e. Cuadro de distribución de áreas la cual debe contener como mínimo: el porcentaje de impermeabilización correspondiente a la finca matriz, áreas comunes y fincas filiales; distribución de las áreas comunes, el área común destinada a zona verde, juegos infantiles, parques y áreas recreativas; área dedicada a vías.

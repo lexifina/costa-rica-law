@@ -1,0 +1,1 @@
+Artículo 186. En caso de que deban construirse calles de las propuestas en el Reglamento de Vialidad, las mismas podrán diseñarse según la clasificación dada en dicho reglamento, siempre y cuando se observe lo que respecta a la creación de calles primarias.

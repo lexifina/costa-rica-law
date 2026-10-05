@@ -1,0 +1,1 @@
+Artículo 189. Las restricciones urbanísticas de una urbanización de interés social realizada a partir de la vigencia de este plan regulador son las señaladas en este capítulo. No aplican para estos proyectos las restricciones establecidas en el Reglamento de Zonificación.

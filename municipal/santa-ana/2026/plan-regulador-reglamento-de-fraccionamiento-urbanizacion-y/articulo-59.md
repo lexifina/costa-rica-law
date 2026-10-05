@@ -1,0 +1,8 @@
+CAPÍTULO 12. SERVICIOS PÚBLICOS
+Consideraciones Específicas
+1. Toda urbanización estará provista de los servicios de alcantarillado pluvial, alcantarillado sanitario, acueductos y electricidad o en su defecto proveer soluciones alternativas para sustituirlas, siempre dentro del marco de la salubridad pública. Es obligación del urbanizador proveer de dichos servicios.
+2. Debe garantizarse a los usuarios que dichos servicios tengan la calidad suficiente para satisfacer las necesidades básicas.
+3. Es necesario que el urbanizador entregue el desarrollo con los servicios requeridos de telecomunicaciones, electrificación y alumbrado público. Los diseños de estos sistemas deben tener en cuenta los lineamientos dados por el ICE o cualquier otra entidad competente. Además, se deben acatar las disposiciones de protección contra incendios e hidrantes para garantizar la seguridad humana.
+4. Para definir el sistema de tratamiento de aguas residuales idóneo para la urbanización se debe realizar un estudio del tipo de condiciones de suelo que presenta el terreno y de acuerdo con la normativa vigente en materia de aguas residuales: Reglamento de Vertido y Reuso de Aguas Residuales Decreto N° 33601 y sus reformas, y sus reformas, y demás normas relacionadas conexas. Para los sistemas de tratamiento colectivo e individual se deberá acatar las disposiciones y normas indicadas en el Reglamento de Construcciones.
+Regulaciones
+Artículo 59. Alcantarillado y acueductos. Las regulaciones en cuanto a acueductos, alcantarillados sanitarios y drenaje pluvial se regirán por las normas que fije el Instituto Costarricense de Acueductos y Alcantarillados o la entidad competente.
