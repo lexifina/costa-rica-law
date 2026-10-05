@@ -1,0 +1,1 @@
+Artículo 173º—Rendición cuentas de las donaciones: las donaciones mencionadas en el artículo anterior, deben estar consignadas en un informe de rendición de cuentas y presentadas al CCDRC, en un plazo máximo de 30 días naturales posterior a la fecha de conclusión de la ejecución de la donación.

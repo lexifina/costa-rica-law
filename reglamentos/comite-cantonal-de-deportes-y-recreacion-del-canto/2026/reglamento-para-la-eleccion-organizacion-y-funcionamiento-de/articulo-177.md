@@ -1,0 +1,1 @@
+Artículo 177º—Los colores oficiales del deporte en el Cantón de Corredores, son el amarillo y el blanco, pudiendo integrarse el color azul sin perjuicio del diseño artístico y estético con los dos colores anteriores, como un complemento.

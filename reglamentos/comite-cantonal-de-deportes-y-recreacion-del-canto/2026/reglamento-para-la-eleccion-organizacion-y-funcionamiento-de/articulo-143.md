@@ -1,0 +1,1 @@
+Artículo 143º—En el caso de los comités distritales o comunales quedarán adscritos al CCDRC a partir de su nombramiento y juramentación por parte de la Junta Directiva del CCDRC, por lo que no están sujetos a los requisitos citados en el artículo anterior.

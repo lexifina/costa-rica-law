@@ -1,0 +1,1 @@
+Artículo 164º—Todos los miembros de las organizaciones o agrupaciones deportivas adscritas son responsables por el buen uso de los implementos deportivos o bienes duraderos entregados y tendrán la obligación de denunciar el mal uso de estos.

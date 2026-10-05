@@ -1,0 +1,1 @@
+Artículo 152º—Toda organización o agrupación que administre instalaciones deportivas municipales, contará con un Reglamento específico de uso y mantenimiento, que deberá ser propuesto por cada organización administradora y puesto al conocimiento del CCDRC quien una vez avalado lo remitirá al Concejo Municipal para su aprobación.

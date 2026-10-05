@@ -1,0 +1,3 @@
+Artículo 171º—La Organización o Agrupaciones Deportiva o Recreativa que no acaten las disposiciones del CCDRC o del presente Reglamento, previo debido proceso, no podrá participar en eventos de programación cantonal y se le suspenderá o eliminarán los beneficios (instalaciones, ayudas y otros).
+Igual sanción se impondrá a los equipos deportivos y deportistas que muestren reiteradamente una actitud bélica o abiertamente irrespetuosa de las normas que regulan la actividad deportiva o lo que regula el presente reglamento.
+Los miembros de la junta directiva del CCDRC, serán sancionados previo debido proceso por el incumplimiento de lo establecido en el presente reglamento u cualquier otra norma relacionada.

@@ -1,0 +1,1 @@
+Artículo 41º—En el caso de que las personas menores de edad a las que se refiere el artículo anterior cumplan su mayoría de edad encontrándose en el ejercicio del cargo, podrán ostentar la representación judicial y extrajudicial del Comité Cantonal de Deportes de Corredores y contraer obligaciones legales.

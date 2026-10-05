@@ -1,0 +1,1 @@
+Artículo 93º—El CCDRC, someterá en la última semana de julio de cada año a conocimiento del Concejo Municipal su programa anual de actividades, obras, e inversión antes de aprobarse los presupuestos ordinarios de la Municipalidad para el siguiente ejercicio económico. También deberá presentar un informe de los resultados de la gestión correspondiente al año anterior.

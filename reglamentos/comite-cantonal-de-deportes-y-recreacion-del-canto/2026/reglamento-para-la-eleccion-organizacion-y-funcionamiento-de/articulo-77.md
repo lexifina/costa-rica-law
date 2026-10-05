@@ -1,0 +1,1 @@
+Artículo 77º—El miembro de Junta Directiva que participe virtualmente en la sesión respectiva deberá coordinar con el funcionario de planta del CCDRC, con el tiempo suficiente previo a la hora de inicio de la sesión, para asegurarse que cuenta con la funcionalidad de los equipos y las condiciones necesarias para participar de forma segura en la sesión.

@@ -1,0 +1,1 @@
+Artículo 135º—Los ingresos por concepto de alquileres, se destinará exclusivamente a la instalación deportiva de la comunidad donde ingresó, la cual se utilizará para gastos operativos de luz, agua, recorte de césped, mantenimiento, mejoras y obras en la instalación deportiva correspondiente.

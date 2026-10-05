@@ -1,0 +1,1 @@
+Artículo 150º—Las actividades organizadas por el CCDRC, Distrital o Comunal estarán exentas de pago de tarifas. Las competencias y campeonatos promovidos por órganos u organismos deportivos nacionales deberán incluirse en la programación anual del uso de instalaciones.

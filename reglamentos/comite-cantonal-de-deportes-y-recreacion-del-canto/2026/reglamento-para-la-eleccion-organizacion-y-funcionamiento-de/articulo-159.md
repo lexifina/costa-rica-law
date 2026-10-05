@@ -1,0 +1,1 @@
+Artículo 159º—Las solicitudes de entrega de implementos o bienes deberán ser presentadas ante la Junta Directiva del CCDRC, quien será en última instancia la que apruebe o rechace la gestión, en caso de rechazo deberá fundamentar las razones de este, según los requisitos y procedimientos definidos en el artículo 172 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 132º— Los Comités Distritales o Comunales podrán realizar comisiones de apoyo, para asuntos específicos. La cual pueden ser nombrados por acuerdo de Junta Directiva del Comité Distrital o Comunal y estipulado en el libro de actas respectivo.

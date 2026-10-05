@@ -1,0 +1,1 @@
+Artículo 160º—La Junta Directiva girará las instrucciones para que autorice la salida de los implementos de la bodega del CCDRC, junto con una copia de la solicitud y el acuerdo de Junta Directiva para que por medio de una requisición de materiales de bodega se le entreguen los implementos deportivos a la persona debidamente autorizada por la organización o agrupación.

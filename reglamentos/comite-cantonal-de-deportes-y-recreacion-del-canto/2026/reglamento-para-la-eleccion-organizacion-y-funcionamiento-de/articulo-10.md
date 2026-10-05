@@ -1,0 +1,1 @@
+Artículo 10º—Los miembros de la Junta Directiva tomaran posesión de sus cargos el 1 de enero, cada cuatro años. En su primera sesión la persona miembro de mayor edad dirigirá el órgano, para que se realice la designación de los siguientes puestos: una presidencia, una vicepresidencia, una secretaria, una tesorería y tres vocalías.

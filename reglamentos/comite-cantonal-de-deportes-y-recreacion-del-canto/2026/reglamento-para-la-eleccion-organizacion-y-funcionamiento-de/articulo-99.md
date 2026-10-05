@@ -1,0 +1,1 @@
+Artículo 99º.—Deberá el CCDRC, presentar en la última semana de enero de cada año un informe financiero de lo ejecutado de conformidad con el plan general, detallando los ingresos obtenidos, las partidas ejecutadas, los superávits provocados, así como los déficits que se hayan producido y sus orígenes. Este informe debe presentarlo ante el Concejo Municipal para su conocimiento.

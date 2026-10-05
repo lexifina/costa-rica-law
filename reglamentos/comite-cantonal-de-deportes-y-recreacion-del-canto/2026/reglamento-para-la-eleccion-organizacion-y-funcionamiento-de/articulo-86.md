@@ -1,0 +1,1 @@
+Artículo 86º—El acta se pondrá a disposición de los miembros del órgano, por el mismo medio telemático utilizado para la convocatoria, y se entregará en la sesión ordinaria presencial inmediata siguiente para su aprobación e incorporación al libro de actas de sesión y su respectiva firma en original.

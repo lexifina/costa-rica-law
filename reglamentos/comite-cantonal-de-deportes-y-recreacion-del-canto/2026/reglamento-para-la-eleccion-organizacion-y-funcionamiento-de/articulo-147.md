@@ -1,0 +1,1 @@
+Artículo 147º—En las instalaciones deportivas propiedad de la Municipalidad o administradas por el CCDRC está prohibido fumar y promover el consumo de licor. También está prohibido el ingreso de armas de fuego, armas punzo cortantes, envases de lata y de vidrio, así como banderas con su base de madera, metal o cualquier otro que se pueda utilizar como arma.

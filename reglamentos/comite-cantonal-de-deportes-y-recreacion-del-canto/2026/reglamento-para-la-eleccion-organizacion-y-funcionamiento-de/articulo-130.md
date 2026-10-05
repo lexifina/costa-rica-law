@@ -1,0 +1,1 @@
+Artículo 130º—Los miembros de los Comités Distritales o Comunales durarán en su cargo cuatro años, podrán ser reelegidos consecutivamente durante dos periodos y no devengarán dietas ni remuneración alguna.

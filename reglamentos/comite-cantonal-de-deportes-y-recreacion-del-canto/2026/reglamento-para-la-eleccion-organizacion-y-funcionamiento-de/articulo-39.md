@@ -1,0 +1,8 @@
+Artículo 39º—El miembro del inciso c) del artículo 34 del presente reglamento, será elegido de la siguiente manera.
+Se entenderá por organizaciones comunales, son todas aquellas organizaciones o agrupaciones comunitarias que actúan en el marco del deporte, recreación y estilos de vida saludable.
+La convocatoria a la Asamblea General para elegir al representante y su suplente de las organizaciones o agrupaciones comunales restantes, con al menos 60 días hábiles anteriores al vencimiento de su periodo.
+En esta Asamblea General participarán dos delegados con voto por cada organización o agrupación comunal que cumpla los requisitos dispuestos en el artículo 21 de este Reglamento.
+La designación del representante electo se realizará por la mayoría simple de los presentes y se deberá respetar en todo momento los principios de representatividad, transparencia y publicidad, de modo que se maximice la participación en estos procedimientos.
+De la Asamblea General se levantará un acta que debe ser comunicada mediante oficio al Concejo Municipal dentro de los ocho días hábiles siguientes a la elección, junto al registro de asistencia de los miembros presentes en la Asamblea.
+Una vez notificado el Concejo Municipal, ese órgano comunicará la fecha en que se deben hacer presente los miembros electos por las organizaciones deportivas para su respectiva juramentación.
+En caso de que los postulantes no reúnan los requisitos establecidos, el Concejo Municipal tendrá la potestad para elegir por mayoría simple a dichos representantes, para lo cual deberá tomar como referencia la lista de personas que participaron de dicha Asamblea.
