@@ -1,0 +1,1 @@
+Artículo 21. Las construcciones o edificaciones frente a carreteras existentes o proyectadas, no deben interferir con la conectividad de la red vial. La Municipalidad estará en la obligación de denegar permisos de construcción a edificaciones frente a vías nacionales o cantonales que no cumplan con esta disposición.

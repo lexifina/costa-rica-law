@@ -1,0 +1,1 @@
+Artículo 15. En urbanizaciones de interés social se permitirá que las calles terciarias tengan características diferentes a las señaladas en el artículo anterior, esto siempre que cumplan con las regulaciones específicas establecidas al efecto en el Reglamento de Fraccionamiento y Urbanizaciones de este Plan Regulador.

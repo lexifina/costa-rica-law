@@ -1,0 +1,1 @@
+Artículo 17. El ancho de la calzada debe ser igual a la distancia entre los caños derecho e izquierdo. Tanto el MOPT como la Municipalidad deben habilitar el ancho total disponible en cada tramo de calle para el paso de vehículos o para otras necesidades del sistema de transportes como bahías o paradas de autobuses, ciclo vías, o ampliación de aceras.

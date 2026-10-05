@@ -1,0 +1,1 @@
+Artículo 75. En los estacionamientos se deben garantizar radios de giro para vehículos liviano de al menos 7,3 metros y un radio de 4,66 metros para la trayectoria de la saliente trasera del vehículo.

@@ -1,0 +1,2 @@
+Artículo 9. Cuando se construya cualquier tipo de desarrollo en terrenos contiguos a una vía de acceso restringido existente o proyectada, se debe separar el tránsito propio de dicho
+desarrollo, respecto al de dicha vía por medio de calles marginales. Es obligación del desarrollador aportar el terreno necesario y construir las obras necesarias, incluyendo los accesos a estas vías marginales desde la vía pública. Para efectos de diseño deben considerarse como calles secundarias.

@@ -1,0 +1,1 @@
+Artículo 49. Estacionamientos para motocicletas. Deberá haber un mínimo de 5% del área de estacionamientos para motocicletas, dichos espacios deben estar achurados y rotulados con la leyenda “MOTOS”, con una orientación que permitan que sea legible en la dirección de entrada de las motocicletas.

@@ -1,0 +1,1 @@
+Artículo 112. Excepción para anchos de acera y franja verde. Para todos los casos de usos educacionales en los que el lote ocupe frentes de cuadra completos, deberá cumplirse lo establecido en el Capítulo 25 Edificios para la Educación del Reglamento de Construcciones del presente Plan Regulador.

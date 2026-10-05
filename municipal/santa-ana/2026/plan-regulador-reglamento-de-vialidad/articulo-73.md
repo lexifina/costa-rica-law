@@ -1,0 +1,1 @@
+Artículo 73. Carriles de circulación. Todo estacionamiento deberá contar con carriles de circulación que permitan el transito fluido y seguro de los vehículos, dentro del espacio destinado a estacionamiento. Para este fin no podrán aprovecharse los derechos de vía de vías nacionales y cantonales.

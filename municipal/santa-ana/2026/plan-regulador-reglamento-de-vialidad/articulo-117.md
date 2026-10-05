@@ -1,0 +1,1 @@
+Artículo 117. Todas las calles que no poseen aceras deberán contar con un espaldón a ambos lados de la calzada. Este espaldón deberá tener como mínimo un ancho de 1,8 metros a cada lado de la calzada.

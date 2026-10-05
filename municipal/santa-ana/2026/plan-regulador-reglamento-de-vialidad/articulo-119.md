@@ -1,0 +1,1 @@
+Artículo 119. Todas las ciclovías de bicicletas deberán ser creadas con base en lo estipulado en La Guía técnica de diseño para infraestructura ciclística. MOPT-03-05-01-0917-2019 en su última versión o la normativa que la suceda.

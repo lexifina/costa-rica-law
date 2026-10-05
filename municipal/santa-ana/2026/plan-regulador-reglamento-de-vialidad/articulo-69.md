@@ -1,0 +1,1 @@
+Artículo 69. Además de la tabla del artículo anterior, la cantidad de carriles del acceso y su configuración geométrica se debe ajustar a las condiciones geométricas de la vía pública en la cual desemboca el acceso.

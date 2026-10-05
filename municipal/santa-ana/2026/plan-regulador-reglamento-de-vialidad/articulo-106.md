@@ -1,0 +1,11 @@
+CAPÍTULO 9. REGULACIONES PARA LA CREACIÓN DE NUEVAS ACERAS
+Regulaciones para la creación de nuevas aceras
+Consideraciones específicas
+1. Para lograr la consolidación del sistema de aceras es necesaria la intervención de todos los tramos donde haya un faltante de aceras; los criterios para establecer la prioridad de intervención consisten en la vinculación con flujos peatonales importantes, sitios de concentración de personas y relación con áreas recreativas.
+2. La escogencia y el diseño del mobiliario urbano tiene una importante incidencia en el buen funcionamiento y utilización de las aceras, ya que este conjunto de elementos debe ser concebido cuidando que sus dimensiones, ubicación y características no obstruyan el libre paso o flujo de peatones y permitan la utilización eficiente por parte de todos los posibles usuarios.
+3. El manejo de la vegetación como parte del diseño del sistema de aceras aporta muchos beneficios al paisaje urbano y a los transeúntes como: mejora de la imagen de la ciudad, confort climático, barrera acústica, aporte de oxígeno, entre otros.
+4. El diseño, escogencia y planeación de la vegetación para sendas peatonales debe tomar en consideración las características biológicas de las diferentes especies vegetales para evitar problemas como la obstrucción del libre tránsito, acumulación de hojas o frutos en las sendas peatonales que puedan provocar que las personas resbalen o la fractura de las aceras a causa del crecimiento excesivo de raíces. Para lo anterior, se recomienda consultar el Reglamento municipal de Arborización y recuperación ambiental de los espacios públicos (aceras y parques comunales) y áreas degradadas en el cantón de Santa Ana.
+5. Para garantizar la accesibilidad de todos los usuarios a la infraestructura peatonal es vital mantener la coherencia en términos de dimensiones y continuidad de superficie entre los tramos de aceras existentes y aquellos que vayan a crearse, de manera que una vez consolidadas las aceras, estas no presenten obstáculos para el usuario.
+Regulaciones
+Artículo 106. En todos los trabajos de creación de aceras, deben aplicarse las mismas medidas y componentes establecidos en el Artículo 14 de este Reglamento, según el tipo de vía al que se encuentren asociados los tramos a crear.
+[imagen]

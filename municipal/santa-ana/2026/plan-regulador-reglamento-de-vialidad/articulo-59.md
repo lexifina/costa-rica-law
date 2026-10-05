@@ -1,0 +1,1 @@
+Artículo 59. En la Zona Comercial Logística, definida en el Reglamento de Zonificación de este Plan Regulador, se podrán impermeabilizar totalmente los retiros laterales, frontales y posteriores para ser utilizados como accesos o patios de maniobras, siempre que se cumpla con el porcentaje de cobertura máximo establecido para la zona.

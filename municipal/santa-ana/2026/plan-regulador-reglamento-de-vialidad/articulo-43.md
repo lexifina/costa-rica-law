@@ -1,0 +1,1 @@
+Artículo 43. Paradas de bus. La infraestructura que se coloca para la parada de bus no deberá interrumpir el tránsito de los peatones, por lo que se deben colocar de forma que quede libre un espacio de circulación de al menos 1,2 metros.

@@ -1,0 +1,1 @@
+Artículo 20. Si en la ejecución de una obra debe ocuparse temporalmente una vía o acceso público, el subsuelo o el espacio aéreo de la misma, se debe obtener un permiso de ocupación de vía por parte de la Municipalidad de Santa Ana o del MOPT, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 110. Los diseños de nuevas aceras deben incluir o contemplar la incorporación de mobiliario urbano y vegetación adecuada dentro de la franja verde, según los criterios establecidos en el Artículo 104 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 39. Si la sala de espera es utilizada por varias rutas a la vez, el valor de VEspera será la suma de la cantidad esperada de usuarios para todas las rutas, durante los quince minutos más críticos del día, que corresponde al cuarto de hora en que sale el mayor número de autobuses.

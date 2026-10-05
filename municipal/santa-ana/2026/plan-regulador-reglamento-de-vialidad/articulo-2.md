@@ -1,0 +1,44 @@
+Artículo 2. Para el presente reglamento aplican las siguientes definiciones:
+5. Acera: Parte de la vía pública, normalmente ubicada en sus orillas, que se reserva para el tránsito de peatones.
+6. Alero: Parte inferior del tejado, que sale de la pared y sirve para desviar de ella las aguas de lluvia.
+7. Alineamiento: Línea fijada por la entidad competente que determina el límite o proximidad máxima del emplazamiento de una construcción con respecto a la vía pública, ríos o poliductos, entre otros.
+8. Andén: Zona definida para estacionamiento de los autobuses para el abordo o descenso de pasajeros.
+9. Área de espera para el público: En un estacionamiento público, es el área destinada para la espera de los usuarios frente a la caseta de control para realizar el pago que corresponde por el tiempo de estacionar dentro del mismo.
+10. Autobús: Unidad de transporte que consiste en un vehículo con capacidad de transportar al menos 70 pasajeros ya sea sentados o de pie, que posee 2 puertas de ingreso y salida. Pueden tener distintas configuraciones y capacidades, como autobuses de piso bajo, de dos pisos o articulados.
+11. Bahía: Carril adicional en una carretera, de extensión limitada y cuyo propósito es el estacionamiento temporal de autobuses, taxis u otros vehículos para separarlos del flujo vehicular.
+12. Calzada: Es la franja comprendida entre cordones, cunetas o zanjas de drenaje, destinada al tránsito de vehículos.
+13. Calles locales: Vías públicas incluidas dentro del cuadrante de un área urbana, no clasificadas como travesías urbanas de la Red Vial Nacional.
+14. Calles locales primarias: Aquellas que constituyen una red vial continua, sirven para canalizar otras vías locales hacia sectores de la ciudad o bien, hacia carreteras de enlace entre el desarrollo propuesto y otros núcleos poblados o que se considere que puedan llegar a tener esa función.
+15. Calles locales secundarias: Aquellas vías colectoras de vías internas.
+16. Calles locales terciarias: Aquellas vías que complementan la función colectora de las vías secundarias y aumentan la eficiencia local de la red de transportes cantonal.
+17. Calles marginales: Calles secundarias paralelas a carreteras de altos flujos vehiculares y separadas de estas. Permiten separar flujos vehiculares regionales de los flujos locales y las maniobras de acceso a propiedades aledañas a la vía de la carretera principal.
+18. Caminos no clasificados: Caminos públicos de la red vial cantonal no clasificados dentro de las categorías de calles locales o caminos vecinales, tales como caminos de herradura, sendas, veredas, que proporcionen acceso a muy pocos usuarios, quienes sufragarán los costos de mantenimiento y mejoramiento.
+19. Caminos vecinales: Caminos públicos que suministren acceso directo a fincas y a otras actividades económicamente rurales; unen caseríos y poblados con la Red Vial Nacional y se caracterizan por tener bajos volúmenes de tránsito y altas proporciones de viajes locales de corta distancia.
+20. Caseta de control: Dentro de un estacionamiento público, es el área destinada para el personal que brinda seguridad en dicho estacionamiento, donde también se realiza el cobro por el tiempo de estacionamiento.
+21. Contrahuella de escalera: En una escalera o grada, consiste en la altura de ascenso y descenso entre peldaños.
+22. Cuadra: Espacio urbano edificado o destinado a la edificación, generalmente cuadrangular, delimitado por el derecho de vía por todos sus lados.
+23. Derecho de vía: Franja de terreno propiedad del Estado, de naturaleza demanial, destinada para la construcción de obras viales, para la circulación de vehículos y otras obras relacionadas con la seguridad, el ornato y el uso peatonal, generalmente comprendida entre los linderos que la separa de los terrenos públicos o privados adyacentes a la vía, no susceptible de uso, ocupación o apropiación particular o con fines particulares, con excepción de los casos de nomenclatura vial, rótulos indicativos de destinos turísticos, actividades y servicios y las paradas para el transporte público o parabuses.
+24. Esquina: Lugar en que dos calles se cruzan y forman un ángulo. También conocido como vértice de calle.
+25. Estacionamiento: Aquellos lugares públicos o privados, ya sea en edificios o lotes destinados a guardar vehículos temporalmente. En esta categoría se incluyen los garajes privados de las viviendas. En algunos casos se menciona como espacios de estacionamiento.
+26. Estacionamiento de carga compartido: Espacio de estacionamiento destinado al uso de vehículos de carga en los horarios autorizados por la Municipalidad y que fuera de dichos horarios podrán ser ocupados por vehículos particulares. Se ubican en los sitios de estacionamiento en la vía pública.
+27. Estacionamiento en la vía pública: Estacionamiento temporal o prolongado de vehículos sobre la calzada en espacios autorizados para tal uso.
+28. Estacionamiento perpendicular: aquel que se encuentra dentro de una propiedad privada contigua a la vía pública, en el espacio inmediatamente adyacente y cuyo acceso se hace directamente desde la vía. El ángulo entre el alineamiento de la calle y el vehículo estacionado es de 90º.
+29. Estacionamiento cuasiperpendicular dentro de la propiedad: aquel que se encuentra dentro de una propiedad privada contigua a la vía pública, en el espacio inmediatamente
+adyacente y en que se ingresa directamente desde la vía. El ángulo entre el alineamiento de la calle y el vehículo estacionado tiene menos de 90º pero más de 45º.
+30. Estacionamientos públicos: Lotes, edificaciones o partes de alguna edificación dedicados al alquiler de espacios de estacionamiento al público en general y a locales comerciales por diferentes períodos de tiempo.
+31. Estacionamientos privados: Lotes, edificaciones o partes de alguna edificación de un local comercial, dedicados para proveer espacios de estacionamiento únicamente a los usuarios de dicho local, de acuerdo con los requerimientos de espacios que se exigen en este reglamento según el uso.
+32. Franja para infraestructura de transportes: Dentro del derecho de vía, es el espacio destinado a construcciones relacionadas con el transporte, tales como paradas para autobuses, aceras, ciclo rutas, ciclo puntos, señalización y mobiliario urbano.
+33. Franja verde: Espacio ubicado junto a la acera o ciclovía, destinado predominantemente a vegetación, en el cual se puede colocar infraestructura urbana. Permite también separar el tráfico de vehículos motorizados y no motorizados de las circulaciones peatonales.
+34. Intersección: Lugar en donde convergen dos o más vías públicas.
+35. Lote baldío: Terreno que se encuentra libre de construcciones, cultivos u otro uso.
+36. Mobiliario urbano: Conjunto de objetos y piezas de equipamiento, los cuales no incluyen publicidad exterior de ningún tipo, instalados en la vía pública como: bancas, basureros, buzones, paradas de bus, cabinas telefónicas, quioscos, lámparas y bebederos de agua.
+Los puentes peatonales no se consideran mobiliario urbano.
+37. Municipalidad: Persona jurídica estatal con jurisdicción territorial sobre el cantón de Santa Ana. Le corresponde la administración de los servicios e intereses locales, con el fin de promover el desarrollo integral del cantón en armonía con el desarrollo nacional. En algunas ocasiones se menciona como Gobierno Local o Municipio.
+38. Orientación de espacios de estacionamiento: Ángulo entre el alineamiento de la calle y el vehículo estacionado.
+39. Parada de bus: estructura de diseño autorizado por la autoridad competente, ubicada en el derecho de vía de las carreteras nacionales para ser utilizadas por los usuarios del servicio público de transporte remunerado de personas en puntos autorizados y debidamente señalizadas por la entidad competente, en la cual se puede incluir información institucional y/o comercial.
+40. Rampa: Plano inclinado dispuesto para subir y bajar por él.
+41. Señalización vial: dispositivo instalado a nivel del camino, por encima o sobre él, destinado a reglamentar, informar o advertir al tránsito mediante palabras o símbolos.
+42. Supercuadra: Zona urbana que se encuentra formada por cuadras y rodeada por vías principales que permiten la integración de la ciudad.
+43. Transporte público: sistemas de transporte que operan con ruta fijas y horarios predeterminados y que pueden ser utilizados por cualquier persona a cambio del pago de una tarifa previamente establecida.
+44. Vía pública: Es todo terreno de dominio público y de uso común, que por disposición de la autoridad administrativa se destinare al libre tránsito de conformidad con las leyes y reglamentos de planificación; incluye aquel terreno que de hecho esté destinado ya a ese uso público. En algunos casos se menciona como camino o calle pública.
+45. Vías proyectadas: Aquellas nuevas vías propuestas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 94. Cuando se solicite la ampliación de cualquier tipo de uso o actividad y esto implique un aumento en el total de espacios estacionamiento requerido, el propietario estará obligado a proveer el espacio adicional requerido como una condición para que la Municipalidad le otorgue el permiso de construcción respectivo.

@@ -1,0 +1,1 @@
+Artículo 115. La municipalidad deberá garantizar la creación de espacios de estacionamiento para bicicletas así como de las sendas para bicicletas. En los artículos 49 y 50 del presente Reglamento se establece que actividades deberán proveer espacios de estacionamiento para bicicletas y la cantidad mínima de dichos espacios.

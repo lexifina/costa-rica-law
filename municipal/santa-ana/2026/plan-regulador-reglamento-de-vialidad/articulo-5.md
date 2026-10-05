@@ -1,0 +1,1 @@
+Artículo 5. Las conexiones entre las calles marginales y la carretera principal tendrán una rampa de transferencia de la carretera a la vía marginal y viceversa. Estas rampas de transferencia deberán cumplir con los requisitos del Manual Centroamericano de Normas para el Diseño Geométrico de Carreteras de SIECA.

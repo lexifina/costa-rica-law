@@ -1,0 +1,2 @@
+Artículo 84. Debe instalarse al menos un servicio sanitario para hombres y otro para mujeres con su respectivo distintivo, acatando los requisitos que se indican en el Capítulo 15 del
+Reglamento de Construcciones de este Plan Regulador. Al menos uno de los baños debe servir para uso de personas con discapacidad.

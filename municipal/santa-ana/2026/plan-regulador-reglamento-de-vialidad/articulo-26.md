@@ -1,0 +1,1 @@
+Artículo 26. En las obras de pavimentación se deberán seguir las especificaciones vigentes para pavimentación de carreteras establecidas por el Ministerio de Obras Públicas y Transportes de Costa Rica o cualquier otra entidad competente para ello.

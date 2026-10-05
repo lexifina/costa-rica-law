@@ -1,0 +1,1 @@
+Artículo 8. Las vías que aparecen en los mapas 1 y 2 de Vialidad proyectada, marcadas como vías primarias, secundarias y terciarias, deberán cumplir con las características de ancho de derecho de vía, calzada, aceras y franja verde que se definen en el Artículo 14 de este reglamento.

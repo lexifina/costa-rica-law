@@ -1,0 +1,1 @@
+Artículo 107. Para el diseño y ejecución de los nuevos tramos de aceras se deben aplicar los criterios de accesibilidad universal establecidos en la Ley 7600, Ley De Igualdad de Oportunidades para las Personas con Discapacidad, su reglamento decreto número 26831 y sus reformas.

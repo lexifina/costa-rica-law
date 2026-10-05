@@ -1,0 +1,1 @@
+Artículo 85. En caso de que exista ventanilla de pago, frente a ella debe construirse una acera con un ancho mínimo de 1,2 metros y con una elevación mínima de 15 centímetros. Si fuese necesario solventar diferencias en elevación esto se realizará mediante rampas.

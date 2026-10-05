@@ -1,0 +1,1 @@
+Artículo 48. Todo estacionamiento, público o privado deberá cumplir con lo establecido en la Ley de Igualdad de Oportunidades para Personas con Discapacidad N° 7600, su reglamento, decreto ejecutivo N° 26831 y sus reformas.

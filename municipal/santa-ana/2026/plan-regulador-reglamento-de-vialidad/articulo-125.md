@@ -1,0 +1,1 @@
+Artículo 125. Los soportes para el estacionamiento de bicicletas a colocar en todos los espacios designados para estacionamiento deben ser seleccionados previendo el mayor grado de seguridad para los usuarios y sus vehículos.

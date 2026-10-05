@@ -1,0 +1,2 @@
+Artículo 91. En los patios de contenedores se deberá mantener un espacio para que los vehículos pesados realicen las maniobras fuera de la vía pública, el cual puede tener cualquiera de las configuraciones que se muestran en la siguiente figura. Este espacio deberá estar libre de cualquier obstáculo y las dimensiones y radios de giro de los camiones se debe diseñar de acuerdo con las características de los camiones especificadas en el Manual Centroamericano de Normas para el Diseño Geométrico de Carreteras, versión 2011 o la más reciente.
+[imagen]

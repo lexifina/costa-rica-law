@@ -1,0 +1,2 @@
+Artículo 54. Estacionamientos con acceso directo desde vía pública. Los espacios de estacionamiento con acceso directo desde vía pública deben ser cuasiperpendiculares o paralelos, siguiendo las dimensiones que se muestra en las siguientes figuras. Si se trata de usos habitacionales, también se permitirán los estacionamientos perpendiculares. En todos los usos deberá dejarse libre el área de la acera y la franja verde.
+[imagen]
