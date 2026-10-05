@@ -15,7 +15,7 @@ f.) Las emisiones que formen parte de un programa, que a la entrada en vigencia 
 Transitorio g. Desmaterialización de los valores
 Mientras entra en operación una central de anotación en cuenta para el registro de valores de emisores privados, cualquier emisión que se someta para la autorización de oferta pública deberá ser representada mediante macrotítulo.
 (Así adicionado el transitorio g) mediante sesión N° 1101-2014 del 8 de abril del 2014)
-Transitorio h. Títulos físicos emitidos a la fecha de entrada en operación de la Central de Anotación en Cuenta (Derogado mediante sesión N° 1692-2021 del 4 de octubre del 2021)
+Transitorio h. Títulos físicos emitidos a la fecha de entrada en operación de la Central de Anotación en Cuenta(Derogado mediante sesión N° 1692-2021 del 4 de octubre del 2021)
 (Así adicionado el transitorio h) mediante sesión N° 1101-2014 del 8 de abril del 2014)
 Transitorio i. Cambio en la forma de representación de los macrotítulos emitidos a la fecha de entrada en operación de la Central de Anotación en Cuenta
 Los depositarios de valores y los emisores que mantengan emisiones representadas mediante macrotítulos a la fecha de entrada en operación de una central de anotación en cuenta para el registro de valores de emisores privados, disponen de seis meses para proceder a realizar el cambio en la forma de representación, de acuerdo con el procedimiento que defina SUGEVAL.
@@ -29,3 +29,9 @@ k. Los emisores accionarios que aún tengan acciones representadas en físico de
 (Así reformado el inciso anterior mediante sesión N° 1990-2025 del 15 de diciembre de 2025)
 L. Las solicitudes de intermediarios financieros para la inscripción de emisiones en el Registro Nacional de Valores e Intermediarios que se remitan de previo a la primera publicación del resultado del Indicador de Suficiencia Patrimonial, en el Sitio Web de la Superintendencia General de Entidades Financieras, deben indicar como parte de dicha solicitud, para uso exclusivo y reservado en el trámite de autorización, el resultado del Indicador de Suficiencia Patrimonial de la entidad, con corte al último mes disponible de acuerdo con los plazos de presentación y condiciones dispuestos en la normativa establecida por la Sugef.
 (Así adicionado el transitorio L) anterior mediante sesión N° 1794-2023 del 11 de abril del 2023)
+Transitorio M.
+Los emisores con emisiones ya inscritas en el Registro Nacional de Valores e Intermediarios, excepto entidades supervisadas por alguna de las Superintendencias, organismos internacionales con participación del Estado costarricense, empresas cuyas acciones cotizan en un mercado organizado e instituciones públicas no bancarias, deben presentar la información sobre la estructura de propiedad en el plazo de seis meses a partir de la entrada en vigencia de las modificaciones al presente Reglamento, para cumplir con los requisitos del artículo 24, incisos h) e i)
+(Así adicionado el transitorio m) anterior mediante sesión N° 2055-2026 del 5 de octubre de 2026)
+Transitorio N.
+Los emisores con emisiones ya inscritas en el Registro Nacional de Valores e Intermediarios, excepto entidades supervisadas por alguna de las Superintendencias, organismos internacionales con participación del Estado costarricense, empresas cuyas acciones cotizan en un mercado organizado e instituciones públicas no bancarias, deben presentar la información sobre miembros del órgano de dirección, alta gerencia, y representantes legales en el plazo de seis meses a partir de la entrada en vigencia de las modificaciones al presente Reglamento, para cumplir con los requisitos del artículo 24, incisos h) e i)
+(Así adicionado el transitorio n) anterior mediante sesión N° 2055-2026 del 5 de octubre de 2026)

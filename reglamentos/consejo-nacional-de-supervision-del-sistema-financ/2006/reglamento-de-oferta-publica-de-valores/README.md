@@ -35,3 +35,4 @@ Reglamento de Oferta Pública de Valores
 | 20 | 2023-04-11 | Reglamento 1794 (2023-04-11) |
 | 21 | 2023-12-18 | Reglamento 1843 (2023-12-18) |
 | 22 | 2025-12-15 | Reglamento 1990 (2025-12-15) |
+| 23 | 2026-10-05 | Reglamento 2055 (2026-10-05) |
