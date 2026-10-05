@@ -14,3 +14,4 @@ Integración de las Comisiones de Altas por donación y de Bajas por donación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-02 | la propia norma |
+| 2 | 2026-10-05 | Decreto Ejecutivo 45967 (2026-10-05) |
