@@ -1,0 +1,1 @@
+Artículo 31. Remoción de Miembros. Los miembros de la Junta serán removidos de sus puestos por lo funcionarios miembros del JEPT, cuando exista una falta comprobada a la ética o a las funciones otorgadas por el presente Reglamento.

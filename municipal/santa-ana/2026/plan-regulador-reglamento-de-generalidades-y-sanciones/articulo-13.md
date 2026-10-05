@@ -1,0 +1,1 @@
+Artículo 13. La Municipalidad de Santa Ana está obligada a poner en conocimiento de las autoridades judiciales a los particulares que sean acreedores de sanciones civiles y penales, provenientes de la infracción a las regulaciones urbanísticas vigentes. La Municipalidad le dará seguimiento al trámite de la denuncia interpuesta.

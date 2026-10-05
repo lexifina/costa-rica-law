@@ -1,0 +1,1 @@
+Artículo 2. Todas las regulaciones del Plan Regulador del Cantón de Santa Ana son de acatamiento obligatorio para todas las personas físicas y jurídicas, públicas y privadas, con las excepciones que prevén el ordenamiento jurídico costarricense.

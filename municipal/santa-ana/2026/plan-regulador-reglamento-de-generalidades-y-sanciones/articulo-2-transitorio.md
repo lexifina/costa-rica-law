@@ -1,0 +1,1 @@
+Transitorio segundo. Después de la entrada en vigor del presente Plan Regulador, la primera sesión de la Junta debe realizarse, como máximo, quince días hábiles posteriores a la notificación de la designación como miembros de la Junta, a todos sus integrantes. En esta sesión se elegirá al presidente y secretario de la Junta de entre sus miembros.

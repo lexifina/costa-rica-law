@@ -1,0 +1,1 @@
+Artículo 26. Recursos para el funcionamiento de la Junta. Para el funcionamiento administrativo, la Junta tendrá apoyo directo del Departamento de Gestión de Ordenamiento Territorial y de los recursos que el Concejo Municipal le asigne, para los gastos de operación, papelería, artículos y equipos de oficina.

@@ -1,0 +1,2 @@
+Artículo 12. La Municipalidad comunicará a las instituciones públicas competentes en las áreas de servicios públicos, vialidad, salud, ambiente u otras, los incumplimientos a las regulaciones cometidas en estas materias en el territorio del Cantón de Santa Ana.
+También estará facultada para coordinar con las diferentes instancias la aplicación de las respectivas sanciones administrativas, en los casos en que esto sea necesario.

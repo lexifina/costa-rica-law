@@ -1,0 +1,3 @@
+Artículo 6. Normativa aplicable. Además de las disposiciones contenidas en el Plan Regulador, las personas físicas y jurídicas, públicas y privadas, deberán cumplir con la normativa nacional vigente que resulte aplicable al caso concreto.
+El certificado de uso de suelo indicará, para efectos informativos, la normativa nacional que resulte aplicable o que pueda incidir en el uso solicitado, con el propósito de que la persona interesada tenga conocimiento de esta al momento de valorar y adoptar las decisiones relacionadas con el desarrollo de la actividad, obra o proyecto correspondiente.
+La indicación contenida en el certificado no exime a la persona interesada del cumplimiento de cualquier otra disposición normativa que resulte aplicable al caso concreto.

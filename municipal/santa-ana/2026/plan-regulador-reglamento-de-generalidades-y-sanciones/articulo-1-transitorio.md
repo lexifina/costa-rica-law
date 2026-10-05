@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio primero. La designación de los primeros funcionarios municipales miembros de la Junta, deberá realizarse dentro de los dos meses siguientes a la entrada en vigencia del presente Plan Regulador. La primera función de los funcionarios municipales miembros de la Junta será iniciar el proceso de selección de los restantes miembros de la Junta; este proceso no podrá superar el plazo de un mes después de la designación de los funcionarios.

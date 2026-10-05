@@ -1,0 +1,1 @@
+Artículo 11. La Municipalidad de Santa Ana está facultada para imponer las sanciones administrativas establecidas, a las que se hagan acreedores los administrados que incumplan con las normas contenidas en los Reglamentos que conforman el presente Plan Regulador, ello previo a la realización del procedimiento correspondiente.

@@ -1,0 +1,1 @@
+Artículo 4. La administración y aplicación del Plan Regulador estará a cargo de las dependencias administrativas municipales competentes en las materias normadas por los distintos reglamentos de desarrollo urbano.

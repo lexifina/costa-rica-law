@@ -1,0 +1,18 @@
+TÍTULO II. JUNTA ESTRATÉGICA DE PLANIFICACIÓN TERRITORIAL
+Consideraciones generales
+1. La creciente necesidad de incluir a los pobladores del cantón en las actividades de los gobiernos locales se ha plasmado tanto en la normativa como en la práctica, a través de la conformación de diversos mecanismos de participación ciudadana.
+2. El artículo 169 de la Constitución Política, otorga a los gobiernos municipales plena competencia para ordenar y administrar los intereses de su cantón.
+3. El Código Municipal, Ley N° 7794, establece la obligación de promover un desarrollo local participativo e inclusivo, que contemple la diversidad de necesidades e intereses de la población.
+4. La Ley de Planificación Urbana, Ley N°4240, establece la posibilidad de crear juntas o comisiones para integrar a la comunidad en la aplicación del Plan Regulador.
+5. La jurisprudencia de la Sala Constitucional es consecuente con el ordenamiento jurídico costarricense, en donde los artículos 1, 9, 26, 27 y 169 de la Constitución Política de la República de Costa Rica de 1949, 113 y 114 de La Ley General de Administración Pública N° 6227, 1, 4 y 5 del Código Municipal N° 7794, dan sustento firme a la participación ciudadana a través de la observancia de la ejecución de la función pública.
+6. A través de la materialización del Principio de Legalidad, se crea en las normas del Plan Regulador la figura de la Junta Estratégica de Planificación Territorial (JEPT), con el objetivo de potenciar la participación ciudadana en la fiscalización, cumplimiento y aplicación de la normativa local referente al ordenamiento territorial.
+7. Con la creación de esta Junta se busca, principalmente, reforzar los mecanismos de participación ciudadana ya existentes, determinando un medio por el cual los habitantes del cantón puedan manifestar su opinión antes de la toma de decisiones por parte del Gobierno Municipal en relación con temas específicos de desarrollo urbano de Santa Ana.
+8. En el desarrollo de su labor, la Junta ejercerá sus funciones en apego a las competencias que le serán asignadas, respetando para ello, las competencias legales tanto de la Municipalidad de Santa Ana, como de otros entes u organizaciones locales o nacionales.
+CAPÍTULO 1. Conformación y Funcionamiento
+Consideraciones específicas
+1. Al proponer un sistema a través del cual se permita una interacción entre la ciudadanía y el gobierno local, la JEPT busca acortar las distancias entre los pobladores y los funcionarios municipales, a través de la cooperación en la toma de decisiones atinentes a la aplicación del Plan Regulador.
+2. La Junta está conformada tanto por representantes de la comunidad de Santa Ana como por funcionarios municipales, quienes, en conjunto, emitirán criterios no vinculantes sobre la aplicación del Plan Regulador.
+3. Los criterios de la Junta son documentos a través de los cuales esta se pronuncia sobre un tema en concreto, relacionado con la aplicación del presente Plan Regulador, o sobre la aprobación de un proyecto que se pretende desarrollar en el cantón.
+4. Los criterios de la Junta no tienen carácter vinculante. Pero, en ciertas temáticas es obligatorio que se le realice la consulta, al tratarse de proyectos de cierta envergadura e impacto, determinándose esto en la normativa de desarrollo urbano.
+Regulaciones
+Artículo 23. Creación y Principios. La Junta será un canal de comunicación entre la población del cantón y la Municipalidad, con la cual se busca promover la participación ciudadana en temas de ordenamiento territorial, a través de la formulación de criterios en los supuestos autorizados en el presente Plan Regulador.

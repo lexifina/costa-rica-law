@@ -1,0 +1,1 @@
+Artículo 14. Los funcionarios a quienes, previa realización del proceso correspondiente, se les acredite la responsabilidad por el incumplimiento de las normas contenidas en el presente Plan Regulador, serán sancionados con las medidas administrativas, disciplinarias, civiles y penales correspondientes, contempladas en el ordenamiento jurídico costarricense.

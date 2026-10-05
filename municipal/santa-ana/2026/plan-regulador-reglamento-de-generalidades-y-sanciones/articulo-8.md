@@ -1,0 +1,1 @@
+Artículo 8. En caso de ser necesaria la interpretación del contenido de alguna norma del Plan Regulador, el funcionario competente deberá tener en cuenta lo establecido en los respectivos considerandos asociados a las regulaciones. Asimismo, tendrá la potestad de consultar sobre ello a la Junta Estratégica de Planificación Territorial.

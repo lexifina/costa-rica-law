@@ -1,0 +1,1 @@
+Artículo 15. En el momento que la Municipalidad de Santa Ana tenga conocimiento de la existencia de una infracción a las normas establecidas en los Reglamentos del presente Plan Regulador, u otras normas vigentes y aplicables en la materia, deberá dar curso al procedimiento administrativo para imponer y ejecutar la sanción respectiva, según corresponda.

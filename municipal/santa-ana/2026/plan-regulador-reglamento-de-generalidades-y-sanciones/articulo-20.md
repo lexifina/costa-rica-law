@@ -1,0 +1,1 @@
+Artículo 20. En el supuesto de que se ejecuten construcciones sin la licencia previamente emitida por parte de la Municipalidad de Santa Ana, se aplicará lo establecido en los artículos 93, 94, 95 y 96 de la Ley de Construcciones, Ley N°833 y sus reformas.
