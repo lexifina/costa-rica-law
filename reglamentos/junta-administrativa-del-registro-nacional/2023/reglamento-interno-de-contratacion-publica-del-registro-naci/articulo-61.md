@@ -1,0 +1,6 @@
+Capítulo XXI
+(Así adicionado el capítulo anterior mediante sesión ordinaria N°33-2026 del 5 de octubre del año 2026)
+Artículo 61°-De la derogatoria del Reglamento anterior. Se deroga el Reglamento Interno de Compras que se publicó el 4 de junio del 2019 en el Alcance N°123 de la Gaceta N°103.
+(Así reformado el párrafo anterior mediante sesión ordinaria N°32-2023 del 13 de noviembre del año 2023)
+Este Reglamento comenzará a regir a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación de la Junta Administrativa del Registro Nacional. San José, a las diecisiete horas con cincuenta y seis minutos del 22 de mayo de 2023. Gerald Valverde Campos, Ministro de Justicia y Paz y Presidente de la Junta Administrativa del Registro Nacional.
+(Así modificada su numeración mediante sesión ordinaria N°33-2026 del 5 de octubre del año 2026, que lo traspasó del antiguo artículo 56) al artículo 61))

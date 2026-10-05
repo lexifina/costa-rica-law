@@ -1,3 +1,3 @@
-CAPÍTULO X
-Transitorio y derogatoria del Reglamento anterior.
-Artículo 55°- Transitorio único. Los procedimientos de contratación pública y los contratos en ejecución iniciados de previo a la entrada en vigencia de la Ley N° 9986, Ley General de Contratación Pública, su Reglamento y el presente cuerpo reglamentario, se concluirán conforme a las disposiciones vigentes en el momento en que se aprobó en el sistema digital unificado, la solicitud de inicio de la contratación.
+Artículo 55.- De la instauración del procedimiento ordinario para atender el reclamo administrativo por daños y/o perjuicios en contratos derivados de procedimientos con montos equivalentes al de licitación menor y mayor
+Una vez presentado el reclamo por la parte contratista o excontratista ante la Administración y conocido este por la Junta Administrativa del Registro Nacional, dicho órgano colegiado en apego a sus potestades nombrará el órgano instructor del procedimiento que estará integrado por personas funcionarias de la Asesoría Jurídica de la Dirección General garantizando la observancia del debido proceso establecido en los artículos 308 siguientes y concordantes de la Ley General de la Administración Pública.
+(Así adicionado mediante sesión ordinaria N°33-2026 del 5 de octubre del año 2026)

@@ -1,1 +1,4 @@
-Artículo 53°-De la atención de asuntos relacionados. El Departamento de Proveeduría como instancia especializada en contratación pública, tendrá plena competencia para resolver y tramitar los diferentes asuntos sometidos a su gestión y competencia, conforme a las normas dispuestas en la Ley N° 9986, Ley General de Contratación Pública y su Reglamento, promoviendo la colaboración que requiera en su gestión a través de las unidades técnicas correspondientes e informando a la Dirección General o a la Junta Administrativa cada vez, en razón de la naturaleza del procedimiento de contratación que corresponda.
+Artículo 53.-Del plazo de prescripción para presentar los reclamos administrativos por daños y/o perjuicios ante la Administración
+Proveeduría Institucional
+El derecho a reclamar el desagravio por concepto de daños y/o perjuicios a la Administración prescribirá en el plazo de cinco años de conformidad con el artículo 107 de la Ley General de la Contratación Pública, contados a partir del acaecimiento del hecho.
+(Así adicionado mediante sesión ordinaria N°33-2026 del 5 de octubre del año 2026)

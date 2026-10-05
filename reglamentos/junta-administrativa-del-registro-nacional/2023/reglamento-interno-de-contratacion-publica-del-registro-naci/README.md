@@ -15,3 +15,4 @@ Reglamento interno de contratación pública del Registro Nacional
 | --- | --- | --- |
 | 1 | 2023-05-23 | la propia norma |
 | 2 | 2023-11-13 | Reglamento 32 (2023-11-13) |
+| 3 | 2026-10-05 | Reglamento 33 (2026-10-05) |
