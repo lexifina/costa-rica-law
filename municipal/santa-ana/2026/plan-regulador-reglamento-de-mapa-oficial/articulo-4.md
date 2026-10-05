@@ -1,0 +1,1 @@
+Artículo 4. Condiciones. Para la compra, venta, permuta, expropiación y reserva de terrenos para usos públicos o de interés público establecido en este Reglamento se seguirá la normativa vigente y aplicable según sea el caso.

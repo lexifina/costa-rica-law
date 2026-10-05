@@ -1,0 +1,1 @@
+Artículo 3. Complementariedad. El inventario de las propiedades municipales públicas y vías cantonales está compuesto por las tablas contenidas en el presente título y los Mapas Oficiales anexos al presente reglamento. Todos deben ser interpretados de manera complementaria y no excluyente.
