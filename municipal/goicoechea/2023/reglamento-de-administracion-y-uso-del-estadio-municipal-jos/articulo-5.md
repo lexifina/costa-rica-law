@@ -1,1 +1,0 @@
-Artículo 5º-De las mejoras. Se leerá de la siguiente manera: Las obras que se realicen en el inmueble, independientemente de su naturaleza, quedarán a favor del Estadio como bien inmueble propiedad de la Municipalidad sin que el Comité Cantonal o quien designe el Concejo Municipal para su administración pueda reclamar derecho o compensación alguna en su beneficio

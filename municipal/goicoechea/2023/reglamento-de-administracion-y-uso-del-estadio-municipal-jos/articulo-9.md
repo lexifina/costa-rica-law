@@ -1,1 +1,0 @@
-Artículo 9º-De la entrada gratuita a personas menores de doce años. Toda persona menor de doce años podrá presenciar cualquier evento deportivo en forma gratuita, siempre que venga acompañada de la persona adulta responsable de esta. Tal circunstancia deberá ser tomada en cuenta, a la hora de la suscripción de convenios de uso del Estadio.
