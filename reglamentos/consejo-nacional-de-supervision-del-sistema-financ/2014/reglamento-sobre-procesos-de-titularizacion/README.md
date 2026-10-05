@@ -17,3 +17,4 @@ Reglamento sobre procesos de titularización
 | 2 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
 | 3 | 2021-04-26 | Reglamento 1658 (2021-04-26) |
 | 4 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
+| 5 | 2026-10-05 | Reglamento 2055 (2026-10-05) |
