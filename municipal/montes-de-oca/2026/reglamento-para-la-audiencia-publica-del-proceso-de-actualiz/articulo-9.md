@@ -1,0 +1,1 @@
+Artículo 9. Accesibilidad. La Municipalidad adoptará las medidas de accesibilidad que resulten necesarias y razonables para facilitar la participación de personas con discapacidad y de otras personas que requieran condiciones de acceso, incluyendo la accesibilidad física del recinto y los ajustes de comunicación conforme a las necesidades identificadas y a la normativa aplicable.

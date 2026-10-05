@@ -1,0 +1,2 @@
+Artículo 8. Registro de Participantes. La Municipalidad habilitará un mecanismo de inscripción previa para las personas interesadas en realizar intervenciones orales durante la audiencia. La convocatoria indicará el mecanismo y el plazo para efectuar dicha inscripción.
+Las intervenciones se realizarán conforme al orden de inscripción y a las reglas para el uso de la palabra que comunique la Presidencia del Concejo Municipal al inicio de la audiencia y de conformidad con lo dispuesto en este Reglamento.

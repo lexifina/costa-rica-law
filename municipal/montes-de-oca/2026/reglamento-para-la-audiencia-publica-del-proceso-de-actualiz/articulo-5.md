@@ -1,0 +1,4 @@
+Artículo 5. Disponibilidad de la Documentación. La documentación correspondiente al proyecto de actualización y modificación del Plan Regulador sometida a audiencia estará disponible para consulta pública desde la publicación de la convocatoria y hasta la realización de la audiencia.
+La documentación disponible comprenderá, según corresponda, el texto íntegro de la propuesta, sus reglamentos, la resolución o documentación de viabilidad ambiental de SETENA, la cartografía, los anexos y los estudios técnicos y ambientales que formen parte del proyecto sometido a audiencia.
+La Municipalidad facilitará su consulta mediante el sitio web institucional, procurando que la documentación se encuentre disponible en formatos legibles y descargables, y podrá habilitar adicionalmente mecanismos de consulta presencial u otros medios que considere convenientes.
+La convocatoria indicará claramente dónde y cómo podrá consultarse la documentación.

@@ -1,0 +1,5 @@
+Artículo 16. Informe de la audiencia pública. Vencido el plazo para la presentación de observaciones establecido en el artículo 13, el equipo consultor con apoyo de la CEET, sistematizará y analizará las observaciones verbales y escritas recibidas y elaborará un informe de audiencia pública para lo cual contará con 30 días hábiles para hacerlo. La valoración y consolidación institucional de las observaciones corresponderá a las instancias municipales competentes.
+El informe permitirá identificar las observaciones recibidas, su valoración y tratamiento, indicando cuáles fueron incorporadas total o parcialmente y cuáles no fueron incorporadas.
+Cuando se determine que una observación no debe ser incorporada, se indicará la razón técnica, jurídica o administrativa debidamente fundamentada.
+El informe será puesto en conocimiento del Concejo Municipal, se incorporará íntegramente al expediente del proceso de actualización y modificación del Plan Regulador y se pondrá a disposición pública por los medios institucionales.
+Una vez aprobado el Plan Regulador por todas las instancias correspondientes se realizará una presentación pública de este a la comunidad.

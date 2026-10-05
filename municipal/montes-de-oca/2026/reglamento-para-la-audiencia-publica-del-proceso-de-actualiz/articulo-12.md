@@ -1,0 +1,4 @@
+Artículo 12. Observaciones Verbales. Las personas participantes podrán formular verbalmente por una única vez sus observaciones sobre el proyecto.
+La Presidencia concederá el uso de la palabra conforme al orden establecido y podrá fijar un tiempo máximo para cada intervención, atendiendo al número de personas que hayan solicitado intervenir y procurando garantizar condiciones equitativas de participación. En ningún caso el tiempo de intervención por persona podrá exceder los 10 minutos.
+Las intervenciones deberán guardar estricta relación con el objeto de la audiencia.
+La Presidencia podrá llamar al orden o retirar el uso de la palabra cuando una persona exceda el tiempo concedido, se aparte manifiestamente del objeto de la audiencia, utilice vocabulario soez o inapropiado o impida su adecuado desarrollo.
