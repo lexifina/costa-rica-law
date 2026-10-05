@@ -1,0 +1,1 @@
+Artículo 20. Educacional Técnico y Artístico: Uso que contempla la realización de todas aquellas actividades educativas en temas técnicos, tales como: el arte, la música, idiomas, informática y otros tipos siempre que sean de carácter distinto a la educación universitaria.

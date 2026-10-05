@@ -1,0 +1,1 @@
+Artículo 165. Cualquier tipo de mobiliario urbano a colocar debe regirse según lo establecido en el Anexo de Publicidad exterior y mobiliario urbano para el sector de conservación patrimonial de Santa Ana del documento de Propuestas no vinculantes y anexos.

@@ -1,0 +1,4 @@
+Artículo 48. Zonas de intensidad moderada: Se clasifican en tres categorías de acuerdo con el nivel de intensidad de la zona, cuentan con áreas tanto dentro como fuera del cinturón de contención de la GAM.
+a- Zona de intensidad moderada: Zona con una porción de su área dentro del cinturón de contención, se permiten actividades de comercio y turismo junto la actividad habitacional, corresponde al sector de la carretera vieja hacia Escazú.
+b- Zona de intensidad moderada baja: Zona ubicada al borde oeste de Santa Ana colindante con el cantón de Mora, donde se establecen actividades de carácter turístico y de recreo con una intensidad menor a la zona de intensidad moderada.
+c- Zona de intensidad moderada baja sector Pozos: Zona con características similares a la Zona de intensidad moderada baja, pero que permite con fraccionamientos de mayor tamaño.

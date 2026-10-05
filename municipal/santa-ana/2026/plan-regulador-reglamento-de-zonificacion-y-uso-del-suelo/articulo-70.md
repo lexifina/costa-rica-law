@@ -1,0 +1,1 @@
+Artículo 70. Manufactura de artículos de hule y plástico. Uso industrial que incluye aquellas actividades relacionadas con la manufactura, reparación y reciclado de productos de hule y/o plástico. Bajo esta categoría se permiten únicamente las siguientes actividades:

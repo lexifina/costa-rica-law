@@ -1,0 +1,1 @@
+Artículo 80. Manufactura de bicicletas y similares. Uso industrial que incluye las actividades relacionadas con la manufactura de bicicletas o bienes similares y sus componentes. Bajo esta categoría se permiten las siguientes actividades:

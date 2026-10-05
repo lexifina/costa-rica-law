@@ -1,0 +1,1 @@
+Artículo 103. Para todos los lotes, independientemente de la zona en la cual se ubiquen, el máximo de altura permitido para las edificaciones se reducirá en tres metros cuando la diferencia entre el nivel oficial de piso y el nivel donde se va a ubicar la construcción sea igual o superior a tres metros por encima del nivel de la calle.

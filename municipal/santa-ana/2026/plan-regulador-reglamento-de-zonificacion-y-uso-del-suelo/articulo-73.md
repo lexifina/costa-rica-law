@@ -1,0 +1,1 @@
+Artículo 73. Manufactura de productos de concreto, cerámica y similares: Uso industrial que incluye las actividades relacionadas con la manufactura de productos de concreto, cerámica y otros artículos similares como yeso, piedra, entre otros. Bajo esta categoría se permiten las siguientes actividades:

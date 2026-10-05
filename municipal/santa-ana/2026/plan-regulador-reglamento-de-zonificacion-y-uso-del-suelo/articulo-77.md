@@ -1,0 +1,1 @@
+Artículo 77. Manufactura de productos electrónicos y de alta tecnología. Uso industrial que incluye las actividades a través de las cuales se manufactura equipo electrónico y tecnológico con fines de uso industrial o uso cotidiano como implementos electrónicos, excluyendo los equipos de uso personal. Bajo esta categoría se permiten las siguientes actividades:

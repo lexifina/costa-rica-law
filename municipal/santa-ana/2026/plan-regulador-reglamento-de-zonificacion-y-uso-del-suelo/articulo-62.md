@@ -1,0 +1,1 @@
+Artículo 62. Los usos estipulados en el Cuadro 2, han sido divididos por tamaño, este tamaño corresponde al área de construcción excluyendo estacionamientos y accesos. Para el otorgamiento de uso del suelo, este se realiza con respecto a la zona en la que se encuentra y al tamaño de la construcción a realizar.

@@ -1,0 +1,1 @@
+Artículo 102. En el Mapa 2 se establecen las zonas que deberán pedir la autorización de la Dirección General de Aviación Civil y demás entidades competentes, previo a la solicitud del permiso de construcción. En caso de que la construcción sea igual o inferior a 2 pisos o 9 m no requerirá de dicho aval.

@@ -1,0 +1,5 @@
+Artículo 50. Zonas con limitaciones para el crecimiento: Representan los sectores más restrictivos de Santa Ana y se dividen de acuerdo con su nivel de protección en las siguientes categorías:
+a- Zona Montañosa con limitaciones para el crecimiento: Se ubica al este de Santa Ana, en el sector colindante con Escazú, cuenta con desarrollos inmobiliarios y presenta problemas de accesibilidad, se establecen actividades de baja intensidad y usos mixtos.
+b- Zona de intervención media: Se ubica en el distrito de Uruca, permite algunos desarrollos habitacionales, actividades turísticas y de hospedaje.
+c- Zona de intervención baja: Presenta niveles de restricción que permiten una oferta de hospedaje limitada con posibilidades de turismo de aventura y otras actividades de baja intensidad.
+d- Zona montañosa de intervención muy baja: Es el sector más frágil de Santa Ana, contempla las zonas de deslizamiento del Cerro Tapezco y Chitaría, se permite la actividad habitacional pero no así el desarrollo de condominios o urbanizaciones. Esta zona se encuentra destinada a ecoturismo sin hospedaje en el sitio.

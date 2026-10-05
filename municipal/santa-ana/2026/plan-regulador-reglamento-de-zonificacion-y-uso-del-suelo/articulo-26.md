@@ -1,0 +1,1 @@
+Artículo 26. Guardería: Uso que incluye todos aquellos establecimientos educativos, ya sean de administración pública o privada, que están dedicados al cuidado de niños que todavía no han alcanzado la edad de escolarización.

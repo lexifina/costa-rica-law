@@ -1,0 +1,1 @@
+Artículo 21. Entretenimiento: Uso que incluye aquellas actividades para el esparcimiento que por sus impactos deben realizarse fuera de las zonas urbanas y las actividades bajo esta categoría son: clubes campestres, campos escuelas para convivencias, campamentos parques de atracciones y parque temático.

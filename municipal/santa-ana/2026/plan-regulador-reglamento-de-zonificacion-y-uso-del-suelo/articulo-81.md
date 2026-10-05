@@ -1,0 +1,1 @@
+Artículo 81. Actividades para abastecimiento de servicios. Uso industrial que agrupa las actividades que corresponden a generación, captación, distribución y depuración, en caso de que amerite, de energía eléctrica o agua.

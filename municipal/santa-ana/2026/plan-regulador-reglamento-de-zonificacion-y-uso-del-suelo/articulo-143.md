@@ -1,0 +1,1 @@
+Artículo 143. La posibilidad de transferir derechos de construcción será otorgada por la Municipalidad únicamente a los propietarios de edificaciones declaradas como patrimonio por el Ministerio de Cultura y Juventud.

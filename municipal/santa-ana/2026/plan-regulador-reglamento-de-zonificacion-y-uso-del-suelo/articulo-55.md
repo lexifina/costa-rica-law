@@ -1,0 +1,7 @@
+Artículo 55. Certificados de uso del suelo (CUS): Para efectos del otorgamiento de certificados de uso del suelo se establecen estos tres casos:
+a- El otorgamiento de certificados de uso del suelo, de acuerdo con las siguientes condiciones:
+a.1 Uso conforme: Uso permitido dentro de la zonificación del plan regulador en que se ubica el inmueble.
+a.2 Uso no conforme: Uso no permitido dentro de la zonificación en que se ubica el inmueble.
+a.3 Uso existente no conforme: Aplica para aquellas actividades que contaban con autorización para funcionar de previo a la publicación del presente plan regulador y que, por las normas contenidas en éste, ahora se consideran no conforme con la zona en la cual se ubican podrán seguir funcionando, debiendo hacerse constar su circunstancia como usos existentes no conforme, siempre que no amplíen su área constructiva.
+a.4 Uso no listado: Se encuentra en esta categoría, toda aquella actividad que no se encuentre en el listado contenido en el TÍTULO II actividades permitidas de acuerdo con la zonificación del presente reglamento. Deberán ser analizadas por la administración municipal y según sus características (incluyendo impacto ambiental e impacto en la salud), usar las restricciones de la actividad que más se le asemeje. De previo a la toma de la decisión, el funcionario municipal a cargo deberá consultar a la Junta Estratégica de Planificación Territorial de Plan Regulador.
+b- El cambio de uso del suelo se permite únicamente cuando el uso solicitado sea conforme en la zonificación.

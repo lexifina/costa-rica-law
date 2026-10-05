@@ -1,0 +1,3 @@
+Artículo 41. Transportes: Uso que contiene todas aquellas actividades relacionadas con el servicio de transporte en general está dividido en las siguientes categorías:
+a- Transportes Tipo 1: son aquellas actividades que ofrecen servicios a los vehículos automotores, incluyendo el transporte público: Estacionamientos de vehículos livianos, terminal de buses y taxis, lavaderos de carros y expendios de combustible públicos o privados.
+b- Transportes Tipo 2: son aquellas actividades que por su tamaño promedio y tipo de actividad deben realizarse en zonas específicas y centralizadas, incluye: Estacionamientos de buses, plantel y estacionamiento de vehículos pesados.

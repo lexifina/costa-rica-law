@@ -1,0 +1,2 @@
+Artículo 39. Servicios Tipo A: Uso que incluye las actividades destinadas a la oferta de servicios especializados para la comunidad y que generan impactos mayores sobre ella en
+comparación con los Uso Servicios Tipo B. Producen mayores molestias por ruido, flujos vehiculares y en algunos casos son actividades que requieren edificaciones de mayor tamaño. Las actividades bajo esta categoría son: instituciones públicas, organismos internacionales, bancos, alquiler de vehículos o maquinaria, alquiler de mobiliario.

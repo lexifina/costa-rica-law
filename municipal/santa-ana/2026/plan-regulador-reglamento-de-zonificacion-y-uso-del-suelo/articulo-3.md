@@ -1,0 +1,2 @@
+Artículo 3. Agropecuario urbano: uso que agrupa aquellas actividades relacionadas con lo agropecuario cuya localización es compatible además con zonas urbanas. Estas actividades corresponden a: clínicas veterinarias, peluquerías caninas, guarderías caninas, venta de insumos agropecuarios, venta de plantas, viveros, viveros orgánicos y subastas ganaderas.
+Los viveros orgánicos corresponden a aquellos debidamente certificados como tales por una certificadora autorizada en Costa Rica.

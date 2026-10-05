@@ -1,0 +1,1 @@
+Artículo 34. Manejo de fauna silvestre: incluye aquellas actividades dedicadas al manejo, conservación o exposición de especies animales silvestres. Son los Zoológicos definidos y con requisitos listados en Reglamento a la Ley de Conservación de la Vida Silvestre decreto 32633 y sus reformas.

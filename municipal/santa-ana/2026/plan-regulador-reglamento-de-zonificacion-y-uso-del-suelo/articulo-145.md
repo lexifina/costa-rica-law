@@ -1,0 +1,1 @@
+Artículo 145. El procedimiento de transferencia de derechos de construcción podrá realizarse una única vez por cada edificación patrimonial. Para ello, la municipalidad deberá crear un registro de las edificaciones que han transferido derechos de construcción.

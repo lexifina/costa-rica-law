@@ -1,0 +1,1 @@
+Artículo 147. La Zona Comercial y Logística es el área destinada para recibir estos derechos de transferencia, los mismos permiten aumentar el área construible hasta un máximo de un piso adicional respecto a la altura máxima permitida.

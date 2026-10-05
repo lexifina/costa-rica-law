@@ -1,0 +1,1 @@
+Artículo 153. La instalación de cualquier tipo de estructura independiente a la edificación, ya sean escaleras, elevadores, para instalaciones mecánicas o eléctricas, o equivalentes, no puede sobre pasar los límites de altura señalados en los artículos 148 y 149 del presente reglamento, según la zona de conservación en la que se ubique.

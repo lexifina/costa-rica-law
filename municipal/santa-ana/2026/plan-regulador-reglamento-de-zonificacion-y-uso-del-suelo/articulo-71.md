@@ -1,0 +1,1 @@
+Artículo 71. Actividades de fundición y metalurgia. Uso industrial que incluye las actividades relacionadas con el procesamiento de los metales, los cuales son fundidos para desarrollar un producto determinado. También se incluyen en este uso, las actividades de tratamiento de desechos metálicos, excepto centros de acopio.

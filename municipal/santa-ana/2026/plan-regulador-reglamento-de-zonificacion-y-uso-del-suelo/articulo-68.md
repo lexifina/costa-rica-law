@@ -1,0 +1,1 @@
+Artículo 68. Actividades con papel y cartón: Uso industrial que incluye la fabricación y manufactura de productos y bienes con base de pasta de madera, papel o cartón. Se catalogan también dentro de este uso las actividades relacionadas con la publicación de materiales impresos o medios grabados, así como aquellas actividades de servicio relacionadas con las imprentas.

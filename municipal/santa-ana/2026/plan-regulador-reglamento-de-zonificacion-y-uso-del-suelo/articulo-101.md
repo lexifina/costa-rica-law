@@ -1,0 +1,1 @@
+Artículo 101. Para las zonas afectadas por el cono de aproximación del Aeropuerto Juan Santamaría, las alturas máximas establecidas, se encuentran condicionadas en cada caso específico, a la autorización de la Dirección General de Aviación Civil y demás entidades competentes.

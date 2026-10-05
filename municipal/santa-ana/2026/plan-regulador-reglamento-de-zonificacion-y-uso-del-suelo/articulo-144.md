@@ -1,0 +1,1 @@
+Artículo 144. Para la transferencia de derechos de construcción el propietario del inmueble deberá suscribir un pacto con la Municipalidad en el que se compromete a conservar las características que le dan al inmueble su valor patrimonial.

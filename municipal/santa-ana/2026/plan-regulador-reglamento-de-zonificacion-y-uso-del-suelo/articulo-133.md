@@ -1,0 +1,1 @@
+Artículo 133. Prohibición de uso de las vías públicas y retiros. Para cualquier tipo de construcción subterránea, se prohíbe el uso de las vías públicas para aumentar el área utilizable de la construcción, así mismo, los niveles subterráneos deberán respetar los retiros y porcentajes de cobertura establecidos para las construcciones por encima del nivel de piso oficial.

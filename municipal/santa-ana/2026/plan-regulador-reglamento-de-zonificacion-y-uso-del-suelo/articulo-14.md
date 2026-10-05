@@ -1,0 +1,1 @@
+Artículo 14. Comunal: Uso referente a las instalaciones en las que se realizan todas aquellas actividades destinadas al disfrute de los miembros de una comunidad o vecinos, con el fin de beneficiarlos.

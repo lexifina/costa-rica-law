@@ -1,0 +1,1 @@
+Artículo 97. Las restricciones urbanísticas para Santa Ana son las establecidas en el Cuadro 6. La justificación de cada restricción así como los detalles de la aplicación se señalan en los artículos comprendidos entre el CAPÍTULO 9 ALTURAS y el CAPÍTULO 13 RESTRICCIONES URBANÍSTICAS PARA CONSTRUCCIONES SUBTERRÁNEAS, del presente reglamento.

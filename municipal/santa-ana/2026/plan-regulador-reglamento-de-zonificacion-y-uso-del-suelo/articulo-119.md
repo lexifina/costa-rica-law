@@ -1,0 +1,3 @@
+Artículo 119. Disposiciones generales para retiro posterior. Independientemente de la zonificación, los retiros laterales y posteriores, deberán cumplir con las siguientes disposiciones:
+a- Puede ser una franja paralela a la colindancia posterior o ser sustituido por jardines internos que provean de suficiente ventilación e iluminación natural a los distintos espacios. Todo jardín interno correspondiente al retiro posterior debe tener una dimensión mínima de 3 m por 3 m.
+b- Puede intercambiar la relación numérica con el retiro frontal en caso de que, por condiciones topográficas de pendiente, sea necesario para la colocación del sistema de tratamiento de aguas residuales.

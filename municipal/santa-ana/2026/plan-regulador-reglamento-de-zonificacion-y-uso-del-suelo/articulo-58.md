@@ -1,0 +1,1 @@
+Artículo 58. Los usos estipulados en el Cuadro 1 han sido clasificados debido al tamaño del área de construcción, excluyendo estacionamientos y accesos. El otorgamiento del uso del suelo se realiza con respecto a la zona en la que se encuentra y al tamaño de la construcción a realizar.

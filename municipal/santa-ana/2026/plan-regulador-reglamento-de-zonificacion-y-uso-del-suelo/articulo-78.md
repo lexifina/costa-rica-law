@@ -1,0 +1,1 @@
+Artículo 78. Fabricación de artículos varios. Uso industrial se incluye las actividades relacionadas con la fabricación y manufactura de herramientas, equipos e instrumentos de mano. Bajo esta categoría se permiten las siguientes actividades:

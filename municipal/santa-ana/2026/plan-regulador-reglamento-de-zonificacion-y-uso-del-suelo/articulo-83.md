@@ -1,0 +1,1 @@
+Artículo 83. En los artículos siguientes se definen los usos especiales permitidos en la Zona Comercial y Logística, los cuales rigen de forma específica para el presente Plan Regulador y se sintetizan en el Cuadro 4 del presente Reglamento.

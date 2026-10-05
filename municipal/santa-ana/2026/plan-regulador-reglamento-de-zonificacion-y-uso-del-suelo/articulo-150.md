@@ -1,0 +1,1 @@
+Artículo 150. Sector de Conservación Indirecta: Comprende por los lotes más cercanos al “Sector de conservación directa” indicados en el Mapa 3. Sectores de Conservación Patrimonial, distrito de Santa Ana.

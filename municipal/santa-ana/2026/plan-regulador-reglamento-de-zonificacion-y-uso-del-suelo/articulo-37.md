@@ -1,0 +1,1 @@
+Artículo 37. Salud Avanzado: Uso que incluye las actividades de atención especializada de pacientes, recuperación de estos o para ser internados en el lugar como hospitales, clínicas, laboratorios clínicos, centros de rehabilitación en caso de accidentes, fisioterapia, centros de estética (spa) y hoteles-clínica.

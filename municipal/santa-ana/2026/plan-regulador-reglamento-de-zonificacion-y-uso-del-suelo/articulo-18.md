@@ -1,0 +1,3 @@
+Artículo 18. Educacional Avanzado: Uso que contempla todas aquellas actividades de enseñanza para la formación de profesionales en las diversas áreas del conocimiento humano y aquellas dedicadas a la investigación. Se clasifica en los siguientes usos:
+a. Instituciones de Educación Superior: Uso que contempla todas aquellas instituciones en las que se brinde preparación académica para la formación de profesionales o técnicos en diversas áreas. Se incluyen Universidades e Instituciones Parauniversitarias.
+b. Centros de Investigación Científica: Uso destinado a la realización de actividades científicas y de investigación, ya sean públicos o privados.

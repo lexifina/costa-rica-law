@@ -1,0 +1,4 @@
+Artículo 162. Incentivos para la creación de parqueos públicos: aquellos lotes que se destinen a disponer espacios de parqueo público dentro del sector de conservación directa podrán gozar de alguno de los siguientes beneficios en acuerdo previo con la municipalidad:
+a. Adquirir un espacio de publicidad en otro sector del distrito, como en terrenos baldíos, paradas de autobuses, entre otros, mediante estructuras de rótulos múltiples administrados por la municipalidad. Este espacio de publicidad estará libre de impuestos por un periodo de un año y debe solicitar la licencia para publicidad exterior según se establece en el Reglamento de Publicidad Exterior para el cantón de Santa Ana.
+b. Reducir la distancia de retiro frontal a 2 metros.
+c. Aumentar el porcentaje de cobertura de la superficie en un 5% más.

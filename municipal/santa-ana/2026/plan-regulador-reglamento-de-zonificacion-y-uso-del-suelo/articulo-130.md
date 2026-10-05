@@ -1,0 +1,1 @@
+Artículo 130. Para las zonas Zona de intervención media, Zona de intervención baja y Zona montañosa de intervención muy baja, la cantidad máxima de unidades habitacionales serán las definidas en el Cuadro 6.

@@ -1,0 +1,1 @@
+Artículo 6. Balnearios: Uso que contempla los complejos recreativos que contienen piscinas y todas las instalaciones relacionadas y necesarias para brindar este servicio de entretenimiento, para el cual se va a realizar el cobro de entrada y/o membresía.

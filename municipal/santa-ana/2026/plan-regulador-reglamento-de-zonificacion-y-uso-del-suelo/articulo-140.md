@@ -1,0 +1,7 @@
+Artículo 140. Ampliaciones de usos conformes que sobrepasan el porcentaje de cobertura estipulado en el presente Plan Regulador. Para el supuesto de aquellas construcciones que hayan obtenido su permiso de construcción antes de la entrada en vigor del presente Plan Regulador en el cual se les haya autorizado construir con valores de cobertura más altos que los aquí estipulados, podrán aumentar su área constructiva siempre y cuando no aumenten su porcentaje de cobertura actual. Dicho aumento en el área constructiva deberá darse bajo las siguientes condiciones:
+c.1 En usos habitacionales:
+• Si el porcentaje de cobertura actual es menor al 85% podrá ampliarse en no más del 75% del área de construcción actual.
+• Para el caso de aquellas construcciones con más del 85% de cobertura, la ampliación máxima será de un 50% del área de construcción actual.
+• Aquellas viviendas cuya área constructiva sea menor a 90m² podrán ampliar hasta en un 100% su área de construcción, independientemente si son parte del primer o segundo caso.
+c.2 En usos no habitacionales, para el caso de usos no habitacionales donde el porcentaje de cobertura es mayor al 90% podrán ampliarse como máximo en un 75% del área de construcción actual.
+c.3 Donde se modifique el porcentaje de cobertura. En aquellos casos que la persona interesada decida hacer una modificación en su cobertura actual y adaptarla a los valores establecidos en el Plan Regulador, no tendrá limitaciones para hacer la ampliación de la edificación, siempre que no sobrepase la cantidad de pisos permitidos en la zona.

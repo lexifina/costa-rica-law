@@ -1,0 +1,1 @@
+Artículo 76. Manufactura de equipo médico y suministros. Uso industrial que incluye las actividades donde se realiza la manufactura de muebles, accesorios, aparatos, equipos, prótesis y suministros especializados de uso médico, quirúrgico y odontológico.

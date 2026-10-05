@@ -1,0 +1,14 @@
+TÍTULO V. EDIFICACIONES PATRIMONIALES
+CAPÍTULO 16. CAPÍTULO ÚNICO
+Consideraciones específicas
+1. El tema de patrimonio se integra a la actualización del Plan Regulador a través de incentivos para el mantenimiento de edificaciones declaradas como patrimoniales.
+2. Los edificios declarados como patrimonio arquitectónico están sujetos a normativa que limita cualquier cambio que afecte las condiciones que le dan valor. El Plan Regulador puede generar normas que acompañen la protección del patrimonio del cantón.
+3. La “transferencia de potencial constructivo”, es un incentivo que se otorga a aquellos propietarios de edificios declarados patrimonio, a través del cual se pretende otorgar a estos edificios la autorización de transferir el potencial constructivo a cambio del compromiso de preservar la edificación.
+4. Los derechos de transferencia plantean la posibilidad de que un edificio patrimonial transfiera el derecho a construir determinada área, que debido a la preservación del inmueble no será posible (por ejemplo, un segundo piso), a otra edificación localizada en lo que se denomina zona receptora.
+5. El objetivo del contrato de incentivos para conservar patrimonio arquitectónico o para la de generar una limitación sobre la propiedad que se mantenga con el tiempo,
+independientemente del cambio de dueño. Esto como una garantía de que las condiciones por las cuales se generó el incentivo otorgado por la Municipalidad se van a mantener.
+6. Por esta razón, se busca que la Municipalidad genere de común acuerdo con el propietario del inmueble la constitución de un tipo de obligación conocida como propter rem o " a causa de la cosa”, la cual, si bien es una obligación constituida por el titular del bien, ya una vez creada queda ligada a la cosa u objeto y no a la persona que la constituyó, por lo cual a pesar de que exista un cambio de dueño esta obligación continuará ligada al bien.
+7. Así las cosas, se propone la suscripción de un contrato entre la Municipalidad y el particular interesado en optar por el incentivo, a través del cual se garantice la no modificación del inmueble con valor histórico arquitectónico o bien la condición de acceso público a la parte el inmueble respectiva.
+8. El contrato sería plasmado en una escritura pública, la cual se inscribiría en el Registro Público generando efectos para terceros, de manera tal que se genera una limitación que pesará sobre la propiedad mientras esté vigente el contrato.
+Regulaciones
+Artículo 142. Transferencia de derechos de construcción. Se denomina transferencia de derechos de construcción al procedimiento mediante el cual una edificación declarada patrimonio transfiere el potencial constructivo restante del lote a otra edificación localizada en la denominada zona receptora. De esta forma la segunda edificación podrá aumentar su área construible, mientras que la edificación patrimonial obtiene recursos económicos para su mantenimiento y conservación.

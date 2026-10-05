@@ -1,0 +1,6 @@
+Artículo 28. Condominios: Actividad inmobiliaria que agrupa a proyectos urbanizadores desarrollados bajo el régimen de condominio cuyo uso no incluye la parte habitacional. Entre
+estos están:
+a- Uso comercial en condominios: Uso que agrupa a aquellos proyectos urbanizadores desarrollados y aprovechados bajo el régimen de condominio cuyo uso es exclusivamente comercial.
+b- Combinado: es un proyecto donde se combinan diferentes usos y tipos de edificaciones, que deben ser compatibles entre sí y ajustarse a la normativa que regula la zona donde se localicen, existen dos categorías condominio combinado habitacional-comercial y condominio combinado, este último comprende otros usos como el industrial y de almacenamiento. Para más detalles ver Reglamento de fraccionamiento, urbanizaciones y condominios de presente plan regulador.
+c- Uso industrial en condominio: Uso que agrupa a aquellos proyectos urbanizadores desarrollados y aprovechados bajo el régimen de condominio cuyo uso es exclusivamente de proceso y manufactura industrial.
+d- Uso industrial de almacenamiento en Condominio: Uso que abarca a proyectos de bodegas desarrollados y aprovechados bajo el régimen de condominio cuyo uso es exclusivamente de almacenamiento y depósito de productos y maquinaria industriales.

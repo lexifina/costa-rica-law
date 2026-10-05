@@ -1,0 +1,1 @@
+Artículo 35. Religioso: Uso que contempla todas aquellas actividades destinadas a rendir culto religioso y/o realización de rituales religiosos, esta categoría contempla: templos para culto religioso, funerarias, conventos y seminarios, capillas de velación con o sin funerarias y crematorios, y capillas de oración.

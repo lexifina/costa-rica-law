@@ -1,0 +1,3 @@
+Artículo 47. Zonas de recuperación: Corresponden a zonas que han trabajado la explotación de recursos minerales, que actualmente se encuentran degradadas y es necesario recuperar dichos espacios para la ciudad, estas zonas poseen una concesión para la explotación de los recursos, sin embargo, en el momento del vencimiento de dicha concesión cuando no se solicite renovación entrará a regir la zonificación establecida en el presente plan regulador. Se dividen en:
+a- Zona de recuperación 1: Está al norte de Pozos, se permiten diversidad de usos combinados con actividad habitacional.
+b- Zona de recuperación 2: Corresponde al Cerro Minas, su intensidad es más baja que la zona de recuperación 1, permite tanto la actividad habitacional como la comercial.
