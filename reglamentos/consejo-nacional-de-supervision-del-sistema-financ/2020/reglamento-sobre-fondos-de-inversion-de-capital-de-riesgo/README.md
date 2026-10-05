@@ -18,3 +18,4 @@ Reglamento sobre fondos de inversión de capital de riesgo
 | 3 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
 | 4 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
 | 5 | 2025-09-16 | Reglamento 1970 (2025-09-16) |
+| 6 | 2026-10-05 | Reglamento 2055 (2026-10-05) |
