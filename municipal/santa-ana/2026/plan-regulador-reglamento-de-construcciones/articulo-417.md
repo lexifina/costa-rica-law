@@ -1,0 +1,1 @@
+Artículo 417. Protección contra polvo. En los establecimientos industriales que produzcan polvo, el aire deberá salir por chimeneas que tengan por lo menos 5m de elevación sobre la edificación más alto en un radio de 10m, con filtros o precipitadores que garanticen que el aire no contendrá más de trescientos millones de partículas por metro cúbico, ni más de 40% de sílice.

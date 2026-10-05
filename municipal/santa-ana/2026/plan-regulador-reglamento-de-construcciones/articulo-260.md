@@ -1,0 +1,1 @@
+Artículo 260. Para cualquier construcción subterránea que cuente con condiciones habitables y requiera la instalación de un sistema de alcantarillado sanitario, éste debe evacuar adecuadamente las aguas residuales de conformidad con la normativa vigente en el tema.

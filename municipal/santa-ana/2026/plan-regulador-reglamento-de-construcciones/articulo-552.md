@@ -1,0 +1,1 @@
+Artículo 552. Sitios de expendio de alimentos. Se considerarán para los fines de este Reglamento como sitios de expendio de alimentos las carnicerías, pescaderías, verdulerías y cualquier otro establecimiento catalogado como de expendio de alimentos por el MINSA u otra entidad competente.

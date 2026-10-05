@@ -1,0 +1,1 @@
+Artículo 461. Escaleras. Los tramos serán rectos, los escalones tendrán huellas no menores de 28 centímetros y contrahuellas no mayores de 18 centímetros. Los barandales deberán estar a una altura mínima de 1,07 metros, medidos a partir de la arista de los escalones.

@@ -1,0 +1,1 @@
+Artículo 133. Usos permitidos. La ubicación de edificaciones con diferentes usos será de la forma en que se detalla en el Reglamento de Zonificación y el Mapa Oficial, del Plan Regulador Cantonal de Santa Ana.

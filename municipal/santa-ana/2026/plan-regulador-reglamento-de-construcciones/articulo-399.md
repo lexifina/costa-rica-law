@@ -1,0 +1,1 @@
+Artículo 399. Puertas de salida. El ancho mínimo de puertas de salida será de 1,2 metros, la anchura de las salidas y los pasillos deberán permitir el desalojo de la sala en tres minutos, por lo que se deben acatar las disposiciones del Artículo 166 del CAPÍTULO 7 de Disposiciones Generales para Edificaciones.

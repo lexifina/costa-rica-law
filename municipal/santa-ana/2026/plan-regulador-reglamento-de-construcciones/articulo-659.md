@@ -1,0 +1,1 @@
+Artículo 659. Declaración jurada. Se debe aportar una Declaración Jurada, tanto del propietario solicitante como del profesional responsable de la obra, en la cual manifiesten que conocen todos los requerimientos del presente Plan Regulador, los cuales se han valorado e incluido en el diseño de la obra, por lo que se materializarán en su posterior construcción.

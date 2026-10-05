@@ -1,0 +1,1 @@
+Artículo 360. Protecciones y espacios de circulación. Las áreas donde estén ubicados los aparatos mecánicos deberán estar cercadas debidamente para protección del público y los espacios de circulación tendrán anchuras no menores de 3,0 metros.

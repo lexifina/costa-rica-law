@@ -1,0 +1,1 @@
+Artículo 421. Aguas residuales. Los entes generadores de aguas residuales deberán contar con la infraestructura necesaria para su tratamiento, cumpliendo con Reglamento de Aprobación y Operación del Sistemas de Tratamiento de Aguas Residuales, Decreto N.º 31545-S-MINAE, y tratarlas de conformidad con el Reglamento de Reúso y Vertido de Aguas Residuales, Decreto N.º 33601-MINAE-S.

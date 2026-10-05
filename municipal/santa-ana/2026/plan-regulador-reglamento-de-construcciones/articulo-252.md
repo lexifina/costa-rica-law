@@ -1,0 +1,1 @@
+Artículo 252. Altura máxima. La altura permitida para edificaciones construidos con contenedores debe cumplir las disposiciones establecidas para el tema de la altura en el reglamento de Zonificación del presente Plan Regulador.

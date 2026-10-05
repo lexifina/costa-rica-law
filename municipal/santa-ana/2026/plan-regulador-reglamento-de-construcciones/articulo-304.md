@@ -1,0 +1,4 @@
+Artículo 304. Instalaciones sanitarias. Las características de las instalaciones sanitarias en sitios de reunión pública serán las siguientes:
+a- Deberán estar separados para cada sexo. En el vestíbulo común o en el propio de cada uno habrá, por lo menos, una fuente de agua potable. Si el sistema de suministro de agua consta de depósitos de almacenamiento, éstos deben tener capacidad mínima de dos litros por persona, considerando la capacidad máxima del local.
+b- En los pisos deben usarse materiales impermeables, con drenajes adecuados. Las paredes deben recubrirse hasta una altura mínima de 1,6 metros, con azulejos o material semejante que sean impermeables, lisos, de fácil aseo, con ángulos y esquinas de paredes redondeados o achaflanados, con el fin de que sean fáciles de limpiar y mantener.
+c- La cantidad de instalaciones sanitarias se calculará de acuerdo con el cuadro 8 del Artículo 311 de este Reglamento.

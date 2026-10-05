@@ -1,0 +1,1 @@
+Artículo 649. Inicio de una obra. Una vez entregado el permiso de construcción por parte de la Municipalidad, la persona interesada podrá iniciar las obras constructivas, según las disposiciones del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 610. Retiros frontales. Del área de retiro frontal se podrá impermeabilizar hasta un 50% para ser utilizada en los accesos a la zona de parqueo o las rampas de acceso de los estacionamientos con acceso directo desde vía pública.

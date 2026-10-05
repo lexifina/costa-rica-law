@@ -1,0 +1,1 @@
+Artículo 202. Ventilación e iluminación. Las edificaciones para vivienda deberán cumplir con los aspectos de ventilación e iluminación establecidos en el CAPÍTULO 7 de Disposiciones generales para edificaciones del presente Reglamento.

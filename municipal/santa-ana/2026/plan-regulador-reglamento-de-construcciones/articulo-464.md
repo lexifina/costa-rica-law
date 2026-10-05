@@ -1,0 +1,1 @@
+Artículo 464. Pasillos. Los pasillos tendrán como mínimo un ancho de 2,40 metros para los primeros 400 metros cuadrados de planta útil y se aumentarán a razón de 0,60 metros por cada 100 metros cuadrados adicionales o fracción. No deberán colocarse gradas aisladas en ellos. La altura de los barandales cuando los hubiere serán mínimo de 0,90 metros y máximo 1 metro.

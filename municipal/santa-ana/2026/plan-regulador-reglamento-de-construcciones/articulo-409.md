@@ -1,0 +1,1 @@
+Artículo 409. Pasillos y escaleras. En lo referente a pasillos y escaleras, las edificaciones industriales deberán cumplir con los requisitos indicados en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones, de este Reglamento.

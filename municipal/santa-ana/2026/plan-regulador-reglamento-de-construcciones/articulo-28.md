@@ -1,0 +1,2 @@
+Artículo 28. Resistencia al fuego de los medios de egreso. Todos los medios de egreso deben ser resistentes al fuego de conformidad a las especificaciones emitidas por el Cuerpo de Bomberos.
+Además, las salidas, cerramientos de salida y cerramientos de escalera deben estar separados de la edificación, mediante muros con resistencia al fuego. No deben generarse aberturas o penetraciones entre la edificación y los cerramientos de salida. También, los acabados interiores en los cerramientos de salida deben ser incombustibles.

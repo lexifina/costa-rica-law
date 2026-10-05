@@ -1,0 +1,1 @@
+Artículo 633. Si la terminal posee un edificio de más de un piso, el número de instalaciones sanitarias por nivel será de acuerdo con los usos que se permitan y los requerimientos que se indican en este Reglamento.

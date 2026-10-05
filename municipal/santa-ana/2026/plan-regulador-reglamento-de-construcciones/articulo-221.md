@@ -1,0 +1,1 @@
+Artículo 221. Protección contra incendio. Todo apartamento deberá cumplir con las siguientes normas de protección contra incendios establecidas en el Reglamento nacional de protección contra incendios del CUERPO DE BOMBEROS DE COSTA RICA

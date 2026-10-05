@@ -1,0 +1,1 @@
+Artículo 197. La Municipalidad de Santa Ana deberá controlar y fiscalizar que las disposiciones establecidas en la Ley 7600 y su Reglamento se cumplan en todos sus extremos cuando éstas sean pertinentes.

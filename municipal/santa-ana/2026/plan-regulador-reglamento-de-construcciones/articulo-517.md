@@ -1,0 +1,1 @@
+Artículo 517. Autorización. Para otorgar la licencia de construcción, o modificación de un edificio que se dedique parcial o totalmente para los usos de hospedaje, será requisito indispensable que previamente se apruebe su ubicación conforme al Reglamento de Zonificación del presente Plan Regulador.

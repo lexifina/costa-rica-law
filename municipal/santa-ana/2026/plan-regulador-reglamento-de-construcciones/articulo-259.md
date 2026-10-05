@@ -1,0 +1,1 @@
+Artículo 259. En toda construcción subterránea, se debe hacer uso adecuado de los materiales de construcción de manera que protejan la obra. Éstos deben ser impermeables y deben proteger del ataque químico por suelos o aguas subterráneas (ataque ácido, sulfatos, cloruros, entre otros).

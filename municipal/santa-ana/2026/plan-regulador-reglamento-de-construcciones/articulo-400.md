@@ -1,0 +1,1 @@
+Artículo 400. Guardarropa para el personal del establecimiento. Cuando el personal en un mismo turno excede de 5 personas, se dispondrá de un local destinado a guardarropa independiente para cada sexo y debidamente identificado. Estarán equipados con armarios individuales.

@@ -1,0 +1,1 @@
+Artículo 571. Además de las regulaciones establecidas en este capítulo, deberá cumplirse complementariamente con las determinadas en el CAPÍTULO 23 de Establecimientos Industriales, del presente Reglamento, en aquello que no se contradiga.

@@ -1,0 +1,1 @@
+Artículo 435. Área del lote. El área del lote destinado a edificio para educación dependerá del tipo de enseñanza y programa educativo. Su dimensionamiento estará regido por los lineamientos de la DIEE.

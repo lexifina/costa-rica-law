@@ -1,0 +1,1 @@
+Artículo 168. Puertas giratorias. Las puertas giratorias tendrán un radio no menor del ancho de una puerta de giro común, según el tipo de edificación fijado en los capítulos respectivos de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 381. Instalaciones sanitarias. Para efectos de diseño y construcción las dimensiones mínimas serán las estipuladas en el CAPÍTULO 16 de Instalaciones Sanitarias de Uso Público, del presente Reglamento. En cuanto a las características y número de instalaciones sanitarias, debe acatarse lo establecido en el Artículo 311 del presente Reglamento.

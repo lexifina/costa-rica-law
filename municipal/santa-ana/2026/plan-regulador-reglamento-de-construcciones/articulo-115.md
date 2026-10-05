@@ -1,0 +1,1 @@
+Artículo 115. Para otorgar el permiso de construcción a terraceos o rellenos con su nivel por debajo del de la calle, se requiere la construcción de drenajes con grava u otros sistemas similares de control de aguas que no aumenten la erosión. Dichos sistemas deben ser indicados en el plano constructivo.

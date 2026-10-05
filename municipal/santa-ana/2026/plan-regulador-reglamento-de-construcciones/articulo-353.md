@@ -1,0 +1,1 @@
+Artículo 353. Iluminación. El sitio donde se realice la feria o turno debe estar adecuadamente iluminado si funciona de noche, ya sea mediante alumbrado público o uso de instalaciones temporales creadas para tal fin.

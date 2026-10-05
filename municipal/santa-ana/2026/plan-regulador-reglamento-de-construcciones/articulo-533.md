@@ -1,0 +1,1 @@
+Artículo 533. Accesorios de agua para consumo humano. Todos los accesorios para proveer agua para consumo humano deben asegurar su potabilidad sin peligro de contaminaciones y en cantidades suficientes para su correcto funcionamiento.

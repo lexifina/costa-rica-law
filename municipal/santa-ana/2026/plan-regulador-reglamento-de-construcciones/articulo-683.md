@@ -1,0 +1,1 @@
+Artículo 683. En caso de ejecución de construcciones sin licencia constructiva, previamente emitida por la Municipalidad, se aplicará lo establecido en los artículos 93, 94, 95 y 96 de la Ley de Construcciones número N°833 y sus reformas.

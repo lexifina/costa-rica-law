@@ -1,0 +1,1 @@
+Artículo 682. En caso de construcciones desarrolladas en contravención a lo establecido en el presente Plan Regulador, la Municipalidad se encuentra facultada para realizar todas aquellas acciones necesarias para el restablecimiento de la realidad física del sitio, anterior a la transgresión, siempre que estas acciones se encuentren autorizadas por el ordenamiento jurídico.

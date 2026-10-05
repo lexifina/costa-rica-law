@@ -1,0 +1,1 @@
+Artículo 77. Pruebas de percolación. Para toda edificación, deberán realizarse las pruebas de percolación juntamente con los estudios preliminares de la edificación. En este tema, deberá cumplirse con todo lo indicado en la regulación correspondiente, emitida por el MINSA o cualquier otra entidad competente y sus reformas.

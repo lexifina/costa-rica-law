@@ -1,0 +1,1 @@
+Artículo 460. Ventilación. Las ventanas deberán permitir regular la ventilación debiendo abrirse por lo menos una tercera parte de ellas, ubicadas de tal manera que permitan la ventilación natural cruzada.

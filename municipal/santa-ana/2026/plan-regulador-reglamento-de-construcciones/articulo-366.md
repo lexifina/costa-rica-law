@@ -1,0 +1,1 @@
+Artículo 366. Aislamiento acústico. Todo tipo de gimnasios deberán contar con aislamiento acústico de forma tal que se cumpla con el Reglamento para el control del ruido ambiental Decreto Ejecutivo 44486-S

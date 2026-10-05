@@ -1,0 +1,1 @@
+Artículo 101. Para la determinación de la franja de protección de ríos, quebradas, sean éstas intermitentes o no, y acequias, se deberán seguir las reglas establecidas en los artículos 33 y 34 de la Ley Forestal N°7575, su reglamento y reformas. Los alineamientos que deban tramitarse en relación con estas áreas serán realizados por el Instituto Nacional de Vivienda y Urbanismo.

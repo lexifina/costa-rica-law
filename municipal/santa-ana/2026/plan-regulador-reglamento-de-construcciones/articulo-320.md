@@ -1,0 +1,6 @@
+CAPÍTULO 17. SALONES COMUNALES Y MULTIUSO
+Consideraciones Específicas
+1. Los salones comunales y multiuso son construidos generalmente por asociaciones de vecinos, organizaciones comunales, gobiernos locales, entre otros, movidos por la necesidad de contar con instalaciones para realizar actividades varias de carácter social, cultural, religioso o recreativo. Para el debido funcionamiento de estos salones, es importante contar con requisitos físicos mínimos e instalaciones adecuadas para poder abastecer las necesidades de Las personas usuarias en la realización de las actividades específicas.
+2. Los tipos de espacios de los salones comunales y multiusos pueden variar dependiendo del fin que le quiera dar la comunidad, por ejemplo, algunos salones comunales pueden estar equipados con escenarios y graderías, mas no es un requisito obligatorio. Sin embargo, todos deben acatar las regulaciones de confinamiento del ruido y del equipamiento de instalaciones mínimas.
+Regulaciones
+Artículo 320. Autorización y clasificación. Para otorgar licencia de construcción, ampliación, adaptación o modificación de salones comunales, éstos deberán estar ubicados de conformidad con el Reglamento de Zonificación del Plan Regulador Cantonal del cantón de Santa Ana.

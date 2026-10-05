@@ -1,0 +1,1 @@
+Artículo 165. La Municipalidad de Santa Ana estará en la obligación de designar y capacitar a los funcionarios municipales para la fiscalización del cumplimiento de las exigencias sobre iluminación, accesorios de bajo consumo, diseño bioclimático y ecoalbergues, contenidas en el presente Reglamento.

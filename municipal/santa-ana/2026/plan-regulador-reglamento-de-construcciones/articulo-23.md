@@ -1,0 +1,11 @@
+CAPÍTULO 3. DISPOSICIONES SOBRE SEGURIDAD HUMANA Y PROTECCIÓN CONTRA
+INCENDIOS
+Consideraciones Específicas
+1. En los proyectos de construcción es necesario incluir requerimientos de protección contra incendio utilizando normativas y tecnologías modernas en constante mejoramiento. Estas medidas reducirán las consecuencias del fuego en la estructura y minimizarán la posibilidad de pérdida de vidas.
+2. Dado que la evidencia estadística ha demostrado que la prevención es la mejor estrategia para prevenir los desastres, es necesario considerar la normativa sobre el tema de protección de incendios y seguridad humana.
+3. La normativa de acatamiento obligatorio es el Reglamento a la Ley N° 8228 del Benemérito Cuerpo de Bomberos de Costa Rica N° 37615-MPEl, en el cual hace referencia al Reglamento Nacional de Protección Contra Incendios del Benemérito Cuerpo de Bomberos de Costa Rica
+4. En el TÍTULO IV de construcciones subterráneas se incluye regulación específica para la protección y seguridad, ante alguna emergencia, de una edificación con espacios subterráneos.
+5. Los diseños de sistemas de riego contra incendio se regulan de acuerdo con el Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones y el Reglamento de Normas Técnicas del Instituto Costarricense de Acueductos y el folleto Tanque Sépticos Conceptos Técnicos Base y Aplicaciones del Centro de Investigaciones en Vivienda y Construcción del Instituto Tecnológico de Costa Rica.
+Regulaciones
+Artículo 23. Normativa aplicable. La normativa que establece el Cuerpo de Bomberos; en materia de prevención, seguridad humana y protección contra incendios es de aplicación obligatoria en todo proyecto de construcción, edificación existente o cualquier lugar, sea este temporal o permanente. Deben acatarse todas las normas que dicte este órgano en particular las concernientes a las instalaciones, construcciones, obras civiles, o plantas industriales según se establece en el Reglamento Nacional de Protección contra incendios con sus reformas o la normativa que lo sustituya.
+Además, se deben acatar las medidas establecidas en el Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022 y sus reformas o la normativa que lo sustituya.

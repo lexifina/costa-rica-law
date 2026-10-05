@@ -1,0 +1,1 @@
+Artículo 590. Configuración geométrica de accesos. Además de lo indicado sobre cantidad de carriles del acceso expresado en el cuadro 15 su configuración geométrica se debe ajustar a las condiciones geométricas de la vía pública en la cual desemboca dicho acceso.

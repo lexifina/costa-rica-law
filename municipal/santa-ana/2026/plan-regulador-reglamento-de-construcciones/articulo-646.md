@@ -1,0 +1,1 @@
+Artículo 646. La municipalidad va a definir reglamentariamente, dependiendo de la complejidad y costo del trabajo de mantenimiento, si este debe pasar a cumplir con los requisitos para la obtención de una licencia de construcción, así como la necesidad de contar con un profesional responsable del trabajo.

@@ -1,0 +1,1 @@
+Artículo 430. El Reglamento de Zonificación del Plan Regulador Cantonal de Santa Ana, establece la ubicación y las restricciones por área de construcción para este tipo de edificaciones, mismas que deberán ser acatadas en todos sus extremos.

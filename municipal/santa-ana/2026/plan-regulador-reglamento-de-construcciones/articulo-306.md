@@ -1,0 +1,2 @@
+Artículo 306. Previsiones contra incendio. Será aplicable lo establecido al respecto en el Reglamento nacional de protección contra incendios del Benemérito Cuerpo de Bomberos.
+Además, deberán contar con sistema de combate de incendios de acuerdo con la normativa vigente del Departamento de Ingeniería de Bomberos del INS. Así mismo, deberán acatarse las disposiciones sobre sistemas de detección y alarma contra incendios.

@@ -1,0 +1,4 @@
+Artículo 100. Posibilidad de construir de acuerdo con el porcentaje de pendiente. Se permitirá la construcción una vez que se otorguen los permisos respectivos por parte de la Municipalidad de Santa Ana, de acuerdo con lo establecido en el Artículo 658 del presente Reglamento y tomando en consideración las siguientes reglas con respecto a pendientes:
+a- Se permitirá construir en terrenos con pendientes menores a 15%.
+b- Si el terreno tiene una pendiente entre 15% y 40%, se podrá solicitar permiso de construcción siempre que se presente un estudio de suelos en que se determine que es posible realizar la edificación planeada.
+c- Si el terreno tiene pendientes iguales o mayores a 40% además del estudio de suelos mencionado en el inciso anterior, se deberán presentar las soluciones geotécnicas y de ingeniería estructural que aseguren la estabilidad y seguridad de la edificación.

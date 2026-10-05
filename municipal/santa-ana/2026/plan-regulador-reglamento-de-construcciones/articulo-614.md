@@ -1,0 +1,4 @@
+Artículo 614. Renovación de aire en estacionamientos. Para todo estacionamiento, incluyendo los ubicados en sótanos o semisótanos, deberá existir un adecuado sistema de ventilación ya sea natural o mecánico, cumpliendo siempre con las siguientes dos condiciones:
+a- En períodos pico, la concentración de monóxido de carbono debe ser inferior a 50 partes por millón (ppm).
+b- En todo momento se debe realizar una renovación mínima de aire exterior de 12 metros cúbicos por hora y por metro cuadrado de superficie, incluida el área de circulación, manteniendo el mínimo de cambio completo de aire cada 12 minutos.
+Para esto deberá realizarse el estudio respectivo, y presentar el informe a la Municipalidad en el momento de solicitar el permiso de construcción, así indicado en el Artículo 664 del presente Reglamento. El profesional respectivo deberá velar por la veracidad de dicho informe.

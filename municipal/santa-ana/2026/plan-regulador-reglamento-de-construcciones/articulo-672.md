@@ -1,0 +1,3 @@
+Artículo 672. Prórroga. Se autoriza la posibilidad de prórroga, para aquellas obras inconclusas cuya construcción fue iniciada durante el año de vigencia de la licencia de construcción, de acuerdo con las siguientes disposiciones:
+a- Las construcciones menores a 2000 metros cuadrados: podrán solicitar la prórroga por una única vez para concluir la obra, por el plazo de un año, adicional al establecido en la licencia de construcción.
+b- Las construcciones mayores a 2000 metros cuadrados: podrán solicitar la prórroga por una única vez para concluir la obra, por el plazo de dos años, adicionales al establecido en la licencia de construcción.

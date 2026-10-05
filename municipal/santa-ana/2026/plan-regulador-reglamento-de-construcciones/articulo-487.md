@@ -1,0 +1,1 @@
+Artículo 487. Residuos hospitalarios. Los establecimientos médicos deben manejar y disponer de forma adecuada los residuos hospitalarios generados, ya sean de tipo biomédicos, punzo cortantes, anatomopatológicos, tóxicos, comunes o cualquier otro tipo de residuo, cumpliendo en todo momento con la normativa nacional vigente aplicable a la materia.

@@ -1,0 +1,1 @@
+Artículo 638. Iluminación. La iluminación natural o artificial de las edificaciones de terminales deberá acatar el Artículo 153 y el Artículo 154 del presente reglamento. En caso de que la iluminación artificial deba permanecer encendida por más de 6 horas diarias se deberán utilizar bombillos led.

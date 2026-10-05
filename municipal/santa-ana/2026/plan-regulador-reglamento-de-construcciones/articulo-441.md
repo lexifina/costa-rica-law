@@ -1,0 +1,1 @@
+Artículo 441. Para el uso educacional técnico, la edificación deberá cumplir con el Reglamento para el control del ruido ambiental Decreto Ejecutivo 44486-S y sus reformas; en caso superar los límites allí establecidos, se deberá contar con aislamiento acústico que reduzca el ruido.

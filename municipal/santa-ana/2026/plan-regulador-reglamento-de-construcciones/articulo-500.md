@@ -1,0 +1,1 @@
+Artículo 500. Entradas en hospitales. Las entradas a cualquier hospital deberán contar con un carril especial que facilite el acceso a los vehículos de emergencia, a fin de minimizar los impactos sobre los flujos vehiculares.

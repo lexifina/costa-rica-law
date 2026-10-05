@@ -1,0 +1,1 @@
+Artículo 207. Instalaciones de agua. Todas las edificaciones para vivienda estarán provistas de instalaciones de agua potable que tengan capacidad para abastecer las dotaciones indicadas en el Manual Técnico del Departamento de Aguas del IMN, publicado en La Gaceta Nº 98 del 20 de mayo del 2004 y sus modificaciones. Bajo ningún concepto estas tuberías serán de asbesto cemento.

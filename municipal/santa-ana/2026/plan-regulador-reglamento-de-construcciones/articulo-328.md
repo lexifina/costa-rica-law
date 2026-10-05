@@ -1,0 +1,1 @@
+Artículo 328. Varios. Deberá cumplirse lo establecido en el CAPÍTULO 15 de Sitios de Reunión Pública de este Reglamento, en los artículos que se regulen aspectos que tienen la misma aplicación para salones comunales y multiuso, por lo cual se debe hacer referencia a los mismos y cumplir con las especificaciones dadas.

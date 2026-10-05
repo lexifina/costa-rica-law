@@ -1,0 +1,1 @@
+Artículo 370. Drenaje pluvial. Los terrenos destinados a complejos deportivos o polideportivos deben contar con un sistema adecuado de drenaje pluvial, tal y como se establece en el CAPÍTULO 4 Aspectos Hidrogeológicos, Hidrológicos y Deslizamientos del presente Reglamento.

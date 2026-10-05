@@ -1,0 +1,1 @@
+Artículo 440. Aceras. Para el uso educacional básico, se deberán construir aceras amplias. Si el lote ocupa frentes de cuadra completos deben proveerse anchos de acera de al menos 2,4 metros, más un metro de franja verde, utilizando arborización. Para estas obras deberá consultarse el Título IV Peatones y bicicletas del Reglamento de Vialidad del presente Plan Regulador.

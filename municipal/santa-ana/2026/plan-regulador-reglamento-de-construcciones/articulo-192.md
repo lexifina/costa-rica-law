@@ -1,0 +1,1 @@
+Artículo 192. Instalaciones sanitarias para personas con alguna discapacidad física. Las instalaciones sanitarias para personas con alguna discapacidad física deben cumplir con las características establecidas en el Artículo 318.

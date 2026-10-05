@@ -1,0 +1,2 @@
+Artículo 583. Instalaciones sanitarias para el personal del establecimiento. Las estaciones de expendio de combustible deberán tener mínimo una instalación sanitaria para el personal, equipada con un inodoro y un lavatorio, y deberá ser independiente de las del público.
+Además, deberá proveerse una ducha para el personal del establecimiento ubicada en un cubículo independiente. Dichas instalaciones deberán cumplir con las disposiciones para personas con alguna discapacidad física indicadas en el Artículo 318 del presente Reglamento.

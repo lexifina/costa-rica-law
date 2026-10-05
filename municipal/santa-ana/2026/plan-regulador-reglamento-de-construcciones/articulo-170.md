@@ -1,0 +1,1 @@
+Artículo 170. Escaleras de emergencia y salidas de emergencia. Serán las que indique el Reglamento Nacional de protección Contra Incendios Benemérito Cuerpo de Bomberos de Costa Rica en su versión más reciente, para cada tipo de Edificación y uso.

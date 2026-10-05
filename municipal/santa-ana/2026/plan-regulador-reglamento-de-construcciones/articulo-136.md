@@ -1,0 +1,1 @@
+Artículo 136. En viviendas individuales y usos habitacionales, las dimensiones mínimas para un espacio de estacionamiento serán de 5,5 metros de largo por 2,5 metros de ancho. Además, deberá cumplirse lo establecido en el Capítulo 5 Regulaciones por zonificación y vialidad del Reglamento de Vialidad del presente Plan Regulador.

@@ -1,0 +1,1 @@
+Artículo 14. Áreas comunes no cubiertas. Cuando dos o más propietarios establezcan servidumbre recíproca o acceso excepcional para formar patios de luz o de ventilación comunes, deberán cumplir individualmente con los requerimientos mínimos de cobertura especificados en el Reglamento de Zonificación de este Plan Regulador.

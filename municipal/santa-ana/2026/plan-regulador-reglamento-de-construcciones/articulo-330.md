@@ -1,0 +1,1 @@
+Artículo 330. Cocina. En caso de que exista una cocina dentro del salón multiuso o comunal debe acatar los requerimientos que se dan en el CAPÍTULO 30 de Expendio de Alimentos, del presente Reglamento.

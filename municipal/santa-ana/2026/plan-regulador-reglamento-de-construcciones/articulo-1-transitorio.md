@@ -1,0 +1,1 @@
+TRANSITORIO I. Todo permiso de construcción concedido antes de la entrada en vigor del presente Plan Regulador se mantendrá bajo las condiciones que fue otorgado. Una vez vencido su plazo de vigencia, el particular deberá solicitar un nuevo permiso de construcción de conformidad con las normas, plazos y condiciones establecidos en este Plan.

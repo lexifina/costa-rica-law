@@ -1,0 +1,1 @@
+Artículo 263. Para la determinación de la cantidad de niveles subterráneos y altura, deberá seguirse los lineamientos establecidos en el Capítulo 9 de Restricciones Urbanísticas para construcciones subterráneas del Reglamento de Zonificación y Uso del Suelo del presente Plan Regulador.

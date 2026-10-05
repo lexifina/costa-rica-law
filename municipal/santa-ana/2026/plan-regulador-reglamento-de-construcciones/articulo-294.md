@@ -1,0 +1,1 @@
+Artículo 294. Pasillos interiores. La anchura mínima de los pasillos longitudinales con asientos en ambos lados deberá ser de 1,2 metros; con asientos en un solo lado, de 0,9 metros en su origen; agregando 5 centímetros por cada metro de longitud del pasillo, desde su origen hasta una puerta de salida o hasta un pasillo principal.

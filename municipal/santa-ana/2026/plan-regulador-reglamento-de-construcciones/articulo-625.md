@@ -1,0 +1,1 @@
+Artículo 625. Las butacas deberán estar fijadas al piso; no podrán ponerse más de siete butacas seguidas si solo hay un pasillo lateral de acceso a ellas. Las filas de butacas que tengan dos pasillos laterales de acceso no tendrán más de catorce butacas.

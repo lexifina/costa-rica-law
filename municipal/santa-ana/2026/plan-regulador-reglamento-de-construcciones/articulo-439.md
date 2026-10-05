@@ -1,0 +1,1 @@
+Artículo 439. Centros de enseñanza para personas con discapacidad. En el caso de centros de enseñanza especial, el diseño del espacio se deberá realizar de conformidad con las normas especiales vigentes en la materia dictado por los organismos competentes, garantizando en todo momento que el espacio sea adecuado para el desarrollo de los procesos educativos.

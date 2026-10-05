@@ -1,0 +1,1 @@
+Artículo 177. Calderas. Las instalaciones de calderas, calentadores de agua y aparatos similares, se harán de manera que no causen molestias ni pongan en peligro a los habitantes, de acuerdo con las normas establecidas por el Reglamento de Calderas, Decreto N.º 26789 y sus reformas, del Ministerio de Trabajo y Seguridad Social.

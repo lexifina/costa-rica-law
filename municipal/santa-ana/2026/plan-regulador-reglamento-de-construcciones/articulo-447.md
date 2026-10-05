@@ -1,0 +1,1 @@
+Artículo 447. Iluminación de emergencia. Además de lo indicado en el Reglamento Nacional de Protección contra Incendios, en las edificaciones que se utilicen en horario nocturno, las escaleras deberán contar con un sistema de alumbrado de emergencia.

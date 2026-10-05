@@ -1,0 +1,1 @@
+Artículo 644. Previsiones contra incendio. Las terminales deberán cumplir los requerimientos contenidos en el Reglamento Nacional de Protección Contra Incendios y sus reformas, la Ley del Cuerpo de Bomberos del Instituto Nacional de Seguros N° 8228 y sus reformas, además de las normas contenidas en el Reglamento Nacional de Protección contra Incendios.

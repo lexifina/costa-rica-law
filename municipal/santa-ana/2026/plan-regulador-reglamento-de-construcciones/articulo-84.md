@@ -1,0 +1,1 @@
+Artículo 84. Si el sistema de tratamiento de aguas residuales de cualquier proyecto no contempla la inclusión de un alcantarillado sanitario y una planta de tratamiento, se deberá demostrar que la solución que se propone es técnicamente viable, cumpliendo con las regulaciones expuestas en los artículos Artículo 74 al Artículo 83.

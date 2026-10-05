@@ -1,0 +1,1 @@
+Artículo 666. Inmuebles con valor patrimonial. En el caso de inmuebles declarados de valor patrimonial, para otorgar la licencia de construcción, además de los requisitos establecidos en el Artículo 658, se debe presentar a la Municipalidad el visto bueno de la obra por parte del Centro de Cultura y Patrimonio del Ministerio de Cultura y Juventud.

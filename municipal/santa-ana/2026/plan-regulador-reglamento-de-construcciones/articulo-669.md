@@ -1,0 +1,1 @@
+Artículo 669. Perforación de pozos. En caso de perforación de pozos, se debe acatar la zonificación establecida en el Mapa vigente de Características Hídricas Especiales de Perforación del Valle Central realizado por SENARA.

@@ -1,0 +1,1 @@
+Artículo 173. Altura de controles. Salvo en casas de habitación, la altura de cerraduras de puerta, apagadores eléctricos, botones adecuados de timbre, controles de alarmas o de otra índole, de uso general, tendrá un mínimo de 0,80 metros y un máximo de 1,0 metro.

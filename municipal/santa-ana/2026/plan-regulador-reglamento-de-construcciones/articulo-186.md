@@ -1,0 +1,1 @@
+Artículo 186. Características de escaleras. Para todos los aspectos de huella, contrahuella, anchos de escaleras, alturas de barandales, entre otros, deberá cumplirse en lo establecido en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones, de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 200. Piezas habitables y no habitables. El MINSA y el Municipio podrán considerar piezas habitables, aquellas cuyo uso por ubicación y dimensiones, pueda presumirse razonablemente, aun cuando no aparezca así declarado en los planos.

@@ -1,0 +1,7 @@
+CAPÍTULO 5. PROTECCIÓN DE CAUCES DE RÍOS Y MOVIMIENTOS DE TIERRA
+Consideraciones Específicas
+1. Las zonas de riesgo fuera de centros urbanos se visualizan como una zona con un potencial para la recreación, que con la mínima construcción de infraestructura puede ser aprovechado como sitio de reunión pública tal como: un gran parque lineal, una ciclovía, en caso de que la topografía lo permita canchas, áreas deportivas públicas, campo ferial, explanadas para actividades artísticas, anfiteatros u otros usos públicos.
+2. El tener construcciones que evidentemente han invadido el cauce del río, infringiendo el área de protección establecida en la Ley Forestal N°7575, aumenta significativamente la vulnerabilidad de las zonas urbanas ante inundaciones y deslizamientos. El hacer cumplir esta normativa ampliaría el cauce, eliminando efectos de cañón en el mismo, y por lo tanto disminuyendo la velocidad del agua significativamente, con esto, se disminuiría la capacidad de arrastre de los ríos y las socavaciones en las orillas por la corriente.
+3. Es importante considerar, además, la posibilidad de crear ciclovías en las orillas de los ríos, no sólo con el propósito de fomentar un uso recreativo en zonas de inundación sino también de utilizar el río como un elemento paisajístico e integrador en la ciudad.
+Regulaciones
+Artículo 99. Lo establecido en este capítulo debe entenderse de conformidad con los Artículos 33 y 34 de la Ley Forestal N.º 7575 y sus reformas, referente a Áreas de Protección.

@@ -1,0 +1,1 @@
+Artículo 204. Paredes comunes. Los tabiques que separen unidades habitacionales unas de otras, o que separen las unidades habitacionales de los pasillos comunes, o de secciones destinadas a otros usos, deberán ser de un material con coeficiente retardatorio al fuego de un mínimo de una hora, hasta la altura de la cubierta de techo. Articulo 130

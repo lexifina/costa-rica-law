@@ -1,0 +1,1 @@
+Artículo 89. Encargado del diseño del sistema de retención de agua pluvial. Los estudios técnicos y el diseño de sistemas de retención de agua pluvial deben ser realizados por un profesional, debidamente inscrito ante su colegio profesional correspondiente, capacitado para realizar diseños hidrológicos, hidráulicos y de obras civiles.

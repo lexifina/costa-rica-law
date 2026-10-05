@@ -1,0 +1,1 @@
+Artículo 128. Horarios de trabajo para construcciones. En cuanto a la luminosidad y el ruido que se genere en las construcciones, regirá el horario nocturno establecido en el Reglamento para el Control de la Contaminación por Ruido N° 39428-S.

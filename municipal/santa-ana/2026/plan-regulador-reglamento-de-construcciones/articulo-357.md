@@ -1,0 +1,8 @@
+Artículo 357. Seguridad de los aparatos. En la instalación y el funcionamiento de aparatos mecánicos en atracciones de diversión, se deberá cumplir con los siguientes requisitos:
+a- Todos los aparatos mecánicos, que por su funcionamiento y velocidad puedan causar lesiones a Las personas usuarias, deberán contar con dispositivos para asegurar firmemente a la persona, como cinturones, barras de seguridad y similares. Este requisito incluye todos los aparatos mecánicos para uso infantil;
+b- Los aparatos mecánicos, plantas eléctricas y cajas de distribución eléctricas deberán encontrarse cercados o con barandales que impidan el paso libre de personas hacia zonas de riesgo, además de contar con la señalización de seguridad requerida;
+c- Contar con extintores portátiles de incendio del tipo y capacidad que señalen las normas técnicas, en áreas de planta eléctrica, aparatos mecánicos y en las de riesgo de incendio;
+d- El cableado eléctrico para alimentación de aparatos mecánicos, instalado en el suelo y en zonas de circulación de personas, deberán ser para uso rudo o encontrarse debidamente canalizado;
+e- Los aparatos mecánicos para uso infantil deberán indicar, en letrero colocado en el acceso, la altura mínima permitida que deben tener los niños para utilizar el aparato sin peligro;
+f- Los aparatos mecánicos que por su funcionamiento y velocidad pudieran afectar a personas con padecimientos del corazón, cuello y columna, así como a mujeres embarazadas, deberán contar con el letrero visible de advertencia con acceso a Las personas usuarias;
+g- Los aparatos mecánicos instalados cercanos a líneas aéreas de distribución eléctrica deberán mantener una distancia de seguridad no menor a tres metros lineales entre aparato y línea eléctrica.

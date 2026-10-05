@@ -1,0 +1,1 @@
+Artículo 591. Accesos peatonales. Para la entrada y salida de los peatones al estacionamiento, deberá existir una acera libre, con anchura mínima de 1 metro y altura mínima de 15 centímetros que cumpla con los requisitos establecidos en la ley 7600 de la Igualdad de Oportunidades para las Personas con Discapacidad su Reglamento Decreto Ejecutivo N° 26831 y sus reformas.

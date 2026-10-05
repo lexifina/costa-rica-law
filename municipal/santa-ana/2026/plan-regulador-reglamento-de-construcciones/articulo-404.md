@@ -1,0 +1,1 @@
+Artículo 404. Iluminación artificial. Cuando no sea posible iluminar satisfactoriamente todas las salas con luz natural, se empleará la artificial eléctrica, con la intensidad que se establece en el Artículo 154 del presente Reglamento.

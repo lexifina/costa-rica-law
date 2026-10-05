@@ -1,0 +1,1 @@
+Artículo 378. Distancia mínima a gradería. La distancia mínima que debe dejarse entre la línea de borde de la zona de juego y el inicio de la gradería, en caso de no haber desnivel entre ambas, será de 5 metros.

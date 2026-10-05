@@ -1,0 +1,1 @@
+Artículo 166. Salidas a circulaciones interiores y al exterior. Las salidas a circulaciones interiores, así como distancias de recorrido al exterior deben cumplir con las disposiciones establecidas en el Reglamento Nacional de Protección Contra Incendios del Benemérito Cuerpo de Bomberos de Costa Rica versión 2013, y sus reformas.

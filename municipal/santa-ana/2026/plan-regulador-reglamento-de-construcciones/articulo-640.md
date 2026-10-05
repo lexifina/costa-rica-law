@@ -1,0 +1,1 @@
+Artículo 640. En terminales de más de un piso se debe cumplir con los requerimientos sobre escaleras y ascensores del CAPÍTULO 7 de Disposiciones Generales para Edificaciones, del presente Reglamento.

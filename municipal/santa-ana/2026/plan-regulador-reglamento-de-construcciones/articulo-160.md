@@ -1,0 +1,1 @@
+Artículo 160. Es posible el uso de vegetación como estrategia de diseño bioclimático para generación de sombra. En todo tipo de edificación se podrán aprovechar las especies arbóreas y el uso de pantallas verdes para brindar sombra a las edificaciones, permitiendo a la vez, el enfriamiento de las brisas y belleza en el paisaje.

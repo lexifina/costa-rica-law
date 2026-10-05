@@ -1,0 +1,1 @@
+Artículo 484. Acabados de instalaciones sanitarias y cocinas. Para los materiales y acabados en instalaciones sanitarias y cocinas regirá lo especificado en el CAPÍTULO 16 de Instalaciones Sanitarias de Uso Público.

@@ -1,0 +1,1 @@
+Artículo 6. Las edificaciones de propiedad pública, pertenecientes al Gobierno Central o instituciones descentralizadas, quedan también sujetos a las normas que establece este Reglamento, con excepción de lo establecido por otros cuerpos normativos de mayor rango.

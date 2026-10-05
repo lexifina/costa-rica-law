@@ -1,0 +1,1 @@
+Artículo 288. Taquillas. Las taquillas para la venta de boletos no deberán obstruir la circulación por las entradas y se localizarán en sitios visibles. Estarán ubicadas de tal forma que no interfieran la libre circulación por la acera pública ni por las calles.

@@ -1,0 +1,1 @@
+Artículo 351. Estacionamientos para obras temporales. Toda obra temporal destinada a cualquier uso o actividad deberá contemplar la cantidad de espacios de estacionamiento, según lo indicado en el Cuadro 7 del Artículo 97 del Reglamento de Vialidad del presente Reglamento.

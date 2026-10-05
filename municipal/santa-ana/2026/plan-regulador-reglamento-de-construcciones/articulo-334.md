@@ -1,0 +1,1 @@
+Artículo 334. En redondeles para espectáculos taurinos se deben acatar las normas contenidas en la Ley para asegurar, en los espectáculos públicos espacios, exclusivos para personas con discapacidad sus modificaciones o normativa que la sustituya.

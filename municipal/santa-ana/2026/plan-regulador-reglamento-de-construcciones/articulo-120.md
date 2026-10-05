@@ -1,0 +1,1 @@
+Artículo 120. Carga y descarga de materiales. Para el estacionamiento de vehículos que carguen o descarguen en la vía pública se debe cumplir con los lineamientos especificados en el Reglamento de Vialidad del presente Plan Regulador.

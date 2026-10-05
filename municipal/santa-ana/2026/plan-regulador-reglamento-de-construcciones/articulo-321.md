@@ -1,0 +1,1 @@
+Artículo 321. Actividades y usos permitidos. Las actividades y los usos que se le den al salón están condicionados a los usos permitidos en el Reglamento de Zonificación, así como al acondicionamiento físico que cuente el salón.

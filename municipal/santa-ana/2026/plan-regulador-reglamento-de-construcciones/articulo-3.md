@@ -1,0 +1,1 @@
+Artículo 3. A lo largo del desarrollo del proceso constructivo, el profesional responsable deberá hacer cumplir las normas referentes a higiene, seguridad y salud ocupacional que se contemplen a nivel nacional, así como lo indicado por el CFIA y cualquier otra emitida por organismos vigentes en la materia.

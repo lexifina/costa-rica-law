@@ -1,0 +1,1 @@
+Artículo 359. En caso de que los equipos mecánicos y las instalaciones no cumplan con lo establecido en los Artículo 356 y Artículo 357 y del presente Reglamento, la Municipalidad podrá revocar en cualquier momento la autorización establecida en el artículo anterior.

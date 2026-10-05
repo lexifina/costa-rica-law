@@ -1,0 +1,1 @@
+Artículo 499. Escaleras de emergencia. Todo edificio de asistencia hospitalaria con más de un piso deberá instalar escaleras de emergencia, las cuales deben cumplir con las características establecidas en el Artículo 170 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 482. Cocinas. Las áreas destinadas a preparación de alimentos tendrán las dimensiones mínimas establecidas para el caso de los hoteles del CAPÍTULO 29 de Edificaciones para Hospedaje del presente Reglamento.

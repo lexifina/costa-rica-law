@@ -1,0 +1,1 @@
+Artículo 151. Instalaciones sanitarias. En todo edificio las instalaciones sanitarias públicas deberán ubicarse a distancias máximas de 75 metros entre ellos, y serán diseñados según las normas establecidas en el presente Reglamento.

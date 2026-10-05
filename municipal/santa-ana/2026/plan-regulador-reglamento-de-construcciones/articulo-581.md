@@ -1,0 +1,1 @@
+Artículo 581. En las zonas en que el uso sea permitido, las estaciones de expendio de combustible deberán cumplir con lo establecido en el Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022

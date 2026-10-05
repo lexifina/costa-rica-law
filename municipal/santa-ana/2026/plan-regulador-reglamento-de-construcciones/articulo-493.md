@@ -1,0 +1,1 @@
+Artículo 493. Ascensores. En caso de contar con más de un piso de altura, se deberá proveer por lo menos un ascensor para el traslado de enfermos en sus camas o de una rampa con una pendiente máxima de 8%.

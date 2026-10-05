@@ -1,0 +1,1 @@
+Artículo 594. Carriles de circulación. Todo estacionamiento deberá contar con carriles de circulación interna que permitan el tránsito fluido y seguro de los vehículos dentro del espacio destinado a estacionamiento. Para este fin no podrán aprovecharse los derechos de vías nacionales ni vías cantonales.

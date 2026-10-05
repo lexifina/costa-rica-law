@@ -1,0 +1,7 @@
+CAPÍTULO 20. DISPOSICIONES GENERALES PARA INSTALACIONES DEPORTIVAS
+Consideraciones Específicas
+1. Este capítulo está basado en las regulaciones del Reglamento de Construcciones del INVU, sin embargo, se han realizado pequeñas modificaciones y actualizaciones.
+2. Las instalaciones deportivas dedicadas a realizar ejercicios con música (gimnasia, aeróbicos, acondicionamiento físico, u otros) son recurrentes en causar molestias a vecinos por el ruido, por este motivo deben cumplir con el Reglamento para el control del ruido ambiental Decreto Ejecutivo 44486-S y cualquier normativa vigente sobre este tema.
+3. Es importante regular características constructivas, aspectos sanitarios y de seguridad (incluyendo calidad del agua) para las piscinas, pues son áreas que deben cumplir con medidas de salud y seguridad para reducir posibles accidentes y contagios en usuarios. En el Reglamento sobre Manejo de Piscinas, Decreto Ejecutivo N.º 35309-S, se establecen las disposiciones a que deben someterse las piscinas públicas, públicas de uso restringido, así como las piscinas privadas.
+Regulaciones
+Artículo 362. Instalaciones deportivas. La infraestructura de toda instalación deportiva, pública o privada deberá cumplir con las especificaciones establecidas en este Reglamento. Los proyectos de construcción de instalaciones públicas destinadas a la educación física, al deporte y recreación, deberán presentarse al ICODER o a cualquier otra entidad competente, quien deberá dar el visto bueno a los planos constructivos.

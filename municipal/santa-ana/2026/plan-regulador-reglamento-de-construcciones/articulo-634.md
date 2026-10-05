@@ -1,0 +1,1 @@
+Artículo 634. Sitios de expendio, preparación y/o consumo de alimentos. En caso de que dentro de la terminal se cuente con locales comerciales donde se expendan, preparen y/o consuman alimentos, se deberá cumplir con lo que corresponda a estos sitios, según el CAPÍTULO 30 de Sitios de Expendio, Preparación y/o Consumo de Alimentos del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 518. Instalaciones. Las instalaciones eléctricas, sanitarias de maquinaria u otras de servicio en los establecimientos indicados en este Capítulo, deberán cumplir con lo que fije este Reglamento y lo indicado en el Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad y en el Reglamento de Instalaciones Eléctricas vigente.

@@ -1,0 +1,1 @@
+Artículo 427. En relación con las granjas porcinas y avícolas, deberá acatarse lo establecido en la normativa específica respectiva: Reglamento sobre granjas porcinas, Decreto N°37155- MAG y sus reformas y Reglamento sobre granjas avícolas, Decreto N°31088-S y sus reformas.

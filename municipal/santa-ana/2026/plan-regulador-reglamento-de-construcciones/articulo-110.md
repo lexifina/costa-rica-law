@@ -1,0 +1,1 @@
+Artículo 110. La capa vegetal que se remueva durante los movimientos de tierra podrá utilizarse después del tratamiento final de los suelos como capa superficial. No podrá ser utilizada para la conformación de rellenos donde se pretenda construir en el futuro ni donde se pretenda ubicar zonas verdes.

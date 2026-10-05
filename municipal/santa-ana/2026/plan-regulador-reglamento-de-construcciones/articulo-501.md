@@ -1,0 +1,1 @@
+Artículo 501. Estacionamientos. La cantidad de espacios de estacionamientos en edificaciones de asistencia hospitalaria y consulta externa se establecen en el Título III Estacionamiento del Reglamento de Vialidad de este Plan Regulador.

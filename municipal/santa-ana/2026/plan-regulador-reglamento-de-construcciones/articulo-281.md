@@ -1,0 +1,1 @@
+Artículo 281. Puertas giratorias. Se permitirá el uso de puertas giratorias o corredizas siempre y cuando existan en otros sitios de la edificación, suficientes puertas de emergencia que garanticen la rápida evacuación de la edificación ante situaciones de emergencia.

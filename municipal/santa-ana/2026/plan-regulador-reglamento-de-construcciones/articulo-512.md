@@ -1,0 +1,1 @@
+Artículo 512. Instalaciones. Cuando exista posibilidad de contacto con las instalaciones de agua caliente, éstas deberán aislarse. Las regaderas tendrán termostato para control automático de la temperatura. Todos los controles de temperatura de agua tendrán una altura máxima entre 0,90 y 1,20 metros y mínima de 0,60 metros y serán de fácil manejo.

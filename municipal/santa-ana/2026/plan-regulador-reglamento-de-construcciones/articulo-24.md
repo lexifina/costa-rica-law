@@ -1,0 +1,2 @@
+Artículo 24. Clasificación de la ocupación en una edificación. Toda edificación debe ser clasificada por los tipos de ocupación de acuerdo con las disposiciones del Cuerpo de Bomberos establecidas en el Reglamento Nacional de Protección contra incendios. Según el tipo de ocupación obtenida, cada edificación debe cumplir con los requerimientos técnicos en materia de seguridad humana y protección contra incendios.
+Para efectos de equivalencia entre las ocupaciones y los usos presentados en el Plan Regulador se debe consultar con el Cuerpo de Bomberos.

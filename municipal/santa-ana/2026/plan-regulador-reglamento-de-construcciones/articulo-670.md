@@ -1,0 +1,1 @@
+Artículo 670. Publicidad Exterior. Para la solicitud de licencia de colocación de publicidad exterior, se debe seguir los lineamientos establecidos en el Capítulo 10 de Disposiciones Generales para la colocación de publicidad exterior del presente Plan Regulador.

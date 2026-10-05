@@ -1,0 +1,1 @@
+Artículo 59. Sistemas fijos de protección contra incendios. Los sistemas fijos de protección contra incendios deben instalarse dependiendo del tipo de ocupación de la edificación según las disposiciones establecidas por el Cuerpo de Bomberos. Todo sistema fijo debe contar con documentos y planos de construcción, revisados por el Cuerpo de Bomberos.

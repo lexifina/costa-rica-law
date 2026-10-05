@@ -1,0 +1,2 @@
+Artículo 90. Planos del sistema de retención de agua pluvial. El sistema de retención de aguas pluviales debe detallarse y dimensionarse en los planos constructivos del proyecto.
+De lo contrario la Municipalidad no deberá visar los planos constructivos.

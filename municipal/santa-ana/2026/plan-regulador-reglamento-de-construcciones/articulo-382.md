@@ -1,0 +1,1 @@
+Artículo 382. Estacionamiento. En cuanto al número y dimensiones de los estacionamientos exigidos para gimnasios deberá acatarse lo establecido en el Capítulo 5 de Regulaciones por zonificación y vialidad y el Capítulo 6 de Regulaciones por tipo de uso del suelo correspondientes al Reglamento de Vialidad del presente Plan Regulador.

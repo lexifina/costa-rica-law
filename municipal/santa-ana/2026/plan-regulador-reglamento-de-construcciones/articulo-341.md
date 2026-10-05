@@ -1,0 +1,8 @@
+CAPÍTULO 19. INSTALACIONES TEMPORALES
+Consideraciones Específicas
+1. Las instalaciones temporales son todas aquellas instalaciones dedicadas a actividades comerciales temporales, las cuales requieren diversas necesidades básicas de espacio y seguridad para abastecer las necesidades de los consumidores o espectadores.
+2. Dependiendo de las actividades a realizar y el público meta que asistirá, así se deberá definir la cantidad de instalaciones sanitarias en el sitio. En el Artículo 311 del CAPÍTULO 15 de Sitios de Reunión Pública del presente Reglamento, se presenta el cuadro 8 donde se contemplan diversas actividades de reunión pública y la cantidad de instalaciones sanitarias mínimas por cantidad de hombres y mujeres asistentes al sitio.
+3. En el caso de ferias con aparatos (juegos) mecánicos, éstos deben encontrarse en perfecto estado mecánico, pues están disponibles para el uso público y deben ser seguras para el usuario. El permiso para funcionamiento debe ser emitido por la Municipalidad y el MINSA.
+4. En las instalaciones temporales, principalmente en aquellas que brindan servicios de alimentación o comercializan alimentos, se generan muchos residuos sólidos, tanto orgánicos como inorgánicos. Estos residuos deben ser dispuestos de la mejor manera colocados en un centro de acopio para su debida recolección.
+Regulaciones
+Artículo 341. Será obligación del profesional responsable brindar una declaración jurada, donde haga constar que la instalación a ubicar se encuentra en debidas condiciones de seguridad para sus usuarios y que su acondicionamiento cumple con los requisitos que fija el presente Reglamento.

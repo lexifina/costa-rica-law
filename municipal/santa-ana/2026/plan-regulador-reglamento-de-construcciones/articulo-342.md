@@ -1,0 +1,1 @@
+Artículo 342. Obra temporal. local, puesto, tramo o estructura de tipo provisional que se encuentra en el espacio público o privado, para la realización de una actividad comercial temporal. Pueden ser fijadas al suelo o móviles.

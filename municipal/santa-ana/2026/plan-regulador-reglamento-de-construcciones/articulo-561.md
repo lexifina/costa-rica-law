@@ -1,0 +1,1 @@
+Artículo 561. Manejo y disposición de aguas residuales. En el tema de manejo y disposición de aguas residuales, deberá acatarse lo indicado del Artículo 85 al Artículo 98 del CAPÍTULO 4 Aspectos Hidrogeológicos, Hidrológicos y Deslizamientos del presente Reglamento.

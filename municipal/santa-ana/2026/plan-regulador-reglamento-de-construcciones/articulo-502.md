@@ -1,0 +1,1 @@
+Artículo 502. Para todos los aspectos no previstos en este capítulo, se deberá cumplir con los requisitos establecidos en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones del presente Reglamento.

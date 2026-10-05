@@ -1,0 +1,1 @@
+Artículo 323. Confinamiento de ruido. Todo salón comunal y multiuso deberá cumplir con el Reglamento para el control del ruido ambiental Decreto Ejecutivo 44486-S y cualquier normativa vigente sobre este tema.

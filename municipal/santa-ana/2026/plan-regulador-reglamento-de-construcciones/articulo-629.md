@@ -1,0 +1,1 @@
+Artículo 629. En los locales comerciales donde se sirven y expenden alimentos, se exigirá la construcción de instalaciones sanitarias independientes a las de la terminal, si el área destinada para consumo es mayor a los 75 metros cuadrados. De acuerdo con lo establecido al Artículo 618 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 592. Espacios de espera. Todo establecimiento de lavado de autos debe incluir espacios con la infraestructura adecuada para que los clientes puedan permanecer mientras esperan, cumpliendo con las disposiciones de butacas del Artículo 623.

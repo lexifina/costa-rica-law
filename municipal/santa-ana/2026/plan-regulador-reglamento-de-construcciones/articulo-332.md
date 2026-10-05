@@ -1,0 +1,1 @@
+Artículo 332. De no contar con los requisitos establecidos en el artículo anterior al momento de solicitar la autorización para la ampliación, ésta podrá llevarse a cabo siempre que se haga en conjunto con las mejoras necesarias para cumplir con dichos requisitos.

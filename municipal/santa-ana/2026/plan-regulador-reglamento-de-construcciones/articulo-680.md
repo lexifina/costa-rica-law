@@ -1,0 +1,1 @@
+Artículo 680. Contenido del Certificado de Cumplimiento Urbanístico. El Certificado de Cumplimiento Urbanístico deberá contener como mínimo: el nombre del propietario de la obra, el nombre del profesional responsable, el tipo de obra construida, la ubicación exacta por calles y avenidas, la fecha de expedición; y el nombre, puesto y firma del funcionario que lo expide.

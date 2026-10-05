@@ -1,0 +1,1 @@
+Artículo 232. Cuarto de pilas o lavandería. En caso de que los apartamentos carezcan de un cuarto de pilas para cada unidad habitacional, podrá crearse un núcleo de lavandería que sirva a todos los apartamentos o a los que no dispongan de este espacio dentro de su distribución interna.

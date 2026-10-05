@@ -1,0 +1,1 @@
+Artículo 338. Seguridad y buen aspecto. Las plazas de toros quedarán sujetas a la estricta vigilancia de la Municipalidad, en lo que se refiere a sus condiciones de seguridad y buen aspecto. Antes de la celebración de una actividad la Municipalidad debe inspeccionar cuidadosamente todas sus dependencias.

@@ -1,0 +1,1 @@
+Artículo 356. Ferias con aparatos mecánicos. Las áreas con aparatos mecánicos sólo podrán ubicarse donde lo permita la Municipalidad y el MINSA. Deben estar en sitios donde no se obstruya el libre tránsito de vehículos, o en su defecto que éstos tengan posibilidad de circular por rutas alternas.

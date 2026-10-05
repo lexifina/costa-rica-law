@@ -1,0 +1,1 @@
+Artículo 178. Calentadores de agua. Todo calentador de agua a utilizar debe cumplir con las normas nacionales sobre ahorro energético emitidas por el MINAE o cualquier otra entidad competente en la materia. Se sugiere la utilización de calentadores solares de agua o cualquier otra tecnología eficiente.

@@ -1,0 +1,1 @@
+Artículo 162. El o la profesional de diseño estará en libertad de innovar las estrategias de diseño bioclimático distintas a las descritas en el Artículo 159, siempre que demuestre la efectividad del sistema propuesto.

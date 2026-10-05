@@ -1,0 +1,7 @@
+CAPÍTULO 21. GIMNASIOS DEPORTIVOS Y ESTADIOS
+Consideraciones Específicas
+1. Los gimnasios deportivos y estadios pueden utilizarse tanto a nivel recreacional, como a nivel profesional. Dependiendo del tipo de actividad deportiva para la cual se destina su uso, será el ICODER quien establezca las dimensiones mínimas y los requisitos básicos para cumplir con su función. Así mismo, cuando corresponda, estas instalaciones deben cumplir con las regulaciones incluidas en el CAPÍTULO 20 de Disposiciones Generales para Instalaciones Deportivas del presente Reglamento.
+2. Tanto los gimnasios deportivos como los estadios, al ser instalaciones deportivas de mayor tamaño, con capacidad para albergar gran cantidad de personas, es muy importante contemplar todos los aspectos de accesos y salidas para una adecuada evacuación en caso de emergencia. Para esto, se deben seguir los requerimientos establecidos en Reglamento Nacional de Protección contra Incendios del Benemérito Cuerpo de Bomberos.
+3. Con el objetivo de proteger a espectadores y jugadores, tanto en los gimnasios deportivos como en los estadios, deberá existir siempre una distancia mínima entre la gradería y el campo de juego.
+Regulaciones
+Artículo 375. Dimensiones. En cuanto a las dimensiones que debe tener un gimnasio para desarrollar las actividades deportivas, sea en forma profesional o recreacional, es el ICODER quien se encargará de hacer las recomendaciones pertinentes, en función del tipo de deporte que se desee desarrollar.

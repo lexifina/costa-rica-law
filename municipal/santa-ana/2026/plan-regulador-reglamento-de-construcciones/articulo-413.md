@@ -1,0 +1,1 @@
+Artículo 413. Protección contra vapores. Las edificaciones que provoquen molestias por emisión de vapor deberán contar con las instalaciones necesarias para condensarlos y evitar, en lo posible, que salgan al exterior.

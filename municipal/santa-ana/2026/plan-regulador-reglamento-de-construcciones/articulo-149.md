@@ -1,0 +1,1 @@
+Artículo 149. Ventanas a colindancia. En lo que respecta a las regulaciones que aplican para la apertura de ventanas hacia el lote vecino debe aplicarse el Reglamento de Zonificación y el Reglamento de Fraccionamiento, Urbanizaciones y Condominios del Plan Regulador Cantonal de Santa Ana, según corresponda.

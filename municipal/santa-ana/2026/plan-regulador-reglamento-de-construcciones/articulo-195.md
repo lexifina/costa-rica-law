@@ -1,0 +1,1 @@
+Artículo 195. Ventilación e iluminación. La ventilación e iluminación de las edificaciones para comercio y oficinas deberá cumplir lo establecido en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones del presente Reglamento.

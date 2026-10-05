@@ -1,0 +1,1 @@
+Artículo 468. Salidas. Todos los centros de investigación acatarán las regulaciones relativas a salidas y salidas de emergencia establecidas en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones.

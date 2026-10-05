@@ -1,0 +1,7 @@
+Artículo 663. Requisitos específicos en el tema de estabilidad de suelos y placas tectónicas. Dependiendo de las particularidades del terreno, así deberán presentarse los estudios técnicos correspondientes:
+a- Terrenos con pendientes pronunciadas. En caso de que la construcción se realice en un terreno con pendientes entre 15% y 40%, se debe presentar el estudio de suelos, aprobados por un profesional en la materia, en que se determine que es posible realizar la edificación planeada. En pendientes mayores a 40%, además del estudio de suelos se debe presentar ante la Municipalidad las soluciones geotécnicas y de ingeniería estructural necesarias para la estabilidad y seguridad de la construcción a realizar.
+b- Zonas de relleno. Para las zonas de relleno, se debe presentar estudios de suelo y estabilidad geotécnica aprobados por un profesional en la materia.
+c- Zonas de escarpe de fallas. Los que soliciten permiso de construcción en propiedades ubicadas en las zonas de escarpe de fallas, establecidas en el Mapa Oficial del presente Plan Regulador, deben presentar a la Municipalidad una declaración jurada donde asuman la responsabilidad profesional de la obra, así como el cumplimiento con los lineamientos del presente reglamento, además de un estudio neotectónico como requisito para aprobar la obra, en el que se debe indicar como mínimo:
+c.1 Posibilidad de construcción en el sitio.
+c.2 Tipo de infraestructura que es conveniente construir.
+c.3 Recomendaciones que abarquen las fases de diseño, construcción y mantenimiento de la obra.

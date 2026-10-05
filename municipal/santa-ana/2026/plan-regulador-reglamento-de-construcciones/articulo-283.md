@@ -1,0 +1,1 @@
+Artículo 283. Cuando un sitio de reunión o parte del mismo se encuentre a distinto nivel que el terreno, se considerarán como salidas solamente las escaleras o rampas que estén dirigidas directamente al exterior o a un pasillo que dé al exterior.

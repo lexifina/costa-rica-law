@@ -1,0 +1,1 @@
+Artículo 105. Las áreas de protección indicadas en el artículo anterior podrán entregarse como parte del porcentaje a ceder al Municipio para uso público. En este caso, deberán tener las características, equipamiento y destino establecido en el Título V del Reglamento de Fraccionamientos, Urbanizaciones y Condominios del presente Plan Regulador.

@@ -1,0 +1,1 @@
+Artículo 279. Altura libre. El volumen de las salas de espectáculos, centros sociales y templos se calculará a razón de 2,5 metros cúbicos por espectador como mínimo. La altura libre de las mismas, en ningún punto será menor de 3,0 metros. Estas dimensiones podrán ser variadas si el MINSA u otro órgano o institución pública competente así lo establece.

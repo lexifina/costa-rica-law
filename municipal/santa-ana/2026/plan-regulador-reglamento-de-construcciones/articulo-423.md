@@ -1,0 +1,1 @@
+Artículo 423. Áreas de servicio. Todo establecimiento industrial debe tener un espacio acondicionado para la preparación y consumo de alimentos de sus trabajadores, acatando las regulaciones establecidas del Artículo 552 al Artículo 559 del CAPÍTULO 30, y las regulaciones del MINSA pertinentes.

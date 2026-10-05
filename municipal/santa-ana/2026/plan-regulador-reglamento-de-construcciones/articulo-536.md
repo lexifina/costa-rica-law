@@ -1,0 +1,1 @@
+Artículo 536. Tanto los cubículos para inodoros como para duchas tendrán recubrimientos de material impermeable en pisos y muros hasta una altura mínima de 1,20 metros. El resto de las paredes deberá ser recubierto con materiales resistentes al agua.

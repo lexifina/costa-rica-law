@@ -1,0 +1,1 @@
+Artículo 285. Puertas de emergencia. Para las puertas de emergencia será obligatorio el cumplimiento de los requisitos establecidos en el Reglamento Nacional de Protección Contra Incendios y sus reformas, así como cualquier otra normativa de acatamiento obligatorio que se decrete.

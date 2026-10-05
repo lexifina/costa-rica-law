@@ -1,0 +1,1 @@
+Artículo 613. Estacionamientos en sótanos o semisótanos. Además de lo indicado anteriormente en este capítulo, deberá revisarse lo indicado en el TÍTULO IV de Sótanos y Semisótanos del presente Reglamento.

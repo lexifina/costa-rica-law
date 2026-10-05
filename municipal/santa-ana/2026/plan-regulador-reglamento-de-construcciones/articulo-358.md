@@ -1,0 +1,1 @@
+Artículo 358. Autorización de funcionamiento. Para poner en funcionamiento aparatos mecánicos se requerirá autorización del departamento municipal competente o del MINSA, la cual se dará con base en los resultados de las pruebas de seguridad que se efectúen.

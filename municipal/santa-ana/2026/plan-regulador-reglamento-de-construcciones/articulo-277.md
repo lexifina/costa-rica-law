@@ -1,0 +1,1 @@
+Artículo 277. Capacidad. La capacidad de los sitios de reunión pública se calculará de acuerdo con lo indicado en el cuadro 8 del Artículo 311 del presente Reglamento, de acuerdo con las actividades a realizar.

@@ -1,0 +1,1 @@
+Artículo 379. Ventilación. Será obligatorio establecer ventilación natural en los gimnasios, aunque adicionalmente puede hacerse uso de ventilación por medios mecánicos o por medio de estrategias de climatización pasiva, siempre que se cumpla con lo establecido en el CAPÍTULO 15 de Sitios de Reunión Pública, del presente Reglamento.

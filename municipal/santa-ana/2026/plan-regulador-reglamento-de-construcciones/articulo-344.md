@@ -1,0 +1,1 @@
+Artículo 344. Ubicación. Las áreas para ferias o turnos sólo podrán ubicarse donde lo permita la Municipalidad. Deben estar en sitios donde no se obstruya el libre tránsito de vehículos, o en su defecto que éstos tengan posibilidad de circular por rutas alternas.

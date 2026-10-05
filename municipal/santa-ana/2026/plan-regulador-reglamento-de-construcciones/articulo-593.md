@@ -1,0 +1,2 @@
+Artículo 593. Rampas de acceso desde una vía exterior. El desnivel para acceso al estacionamiento desde una vía exterior debe salvarse con rampas construidas en la franja verde, o bien si la franja verde no existiera, tendría una longitud máxima de 50 centímetros.
+Los desniveles que se generan en los costados también deben salvarse con rampas, de pendiente no mayor a un 30% de la que tiene la acera.

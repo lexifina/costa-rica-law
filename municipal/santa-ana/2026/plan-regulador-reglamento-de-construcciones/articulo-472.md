@@ -1,0 +1,2 @@
+Artículo 472. Ubicación de edificaciones de asistencia hospitalaria y consulta externa. La ubicación de cualquier edificio de asistencia hospitalaria y consulta externa debe ser conforme con el Reglamento de Zonificación y Uso del Suelo del presente Plan Regulador.
+Adicionalmente, deberá cumplirse con las distancias de separación a estaciones de servicio, según lo establece el Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022 y sus reformas o normativa que los sustituya.

@@ -1,0 +1,1 @@
+Artículo 348. Normas de seguridad. En los comercios en la vía pública se deberán instalar Sistemas de Protección a base de extintores, los cuales cumplirán las normas del Reglamento Nacional de Protección Contra Incendios del Cuerpo de Bomberos de Costa Rica y sus modificaciones.

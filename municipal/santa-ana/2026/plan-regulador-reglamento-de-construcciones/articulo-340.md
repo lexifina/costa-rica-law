@@ -1,0 +1,1 @@
+Artículo 340. Estacionamientos. Todo redondel deberá contar con la cantidad de espacios de estacionamiento según lo indicado en el Artículo 97, Cuadro 7 del Reglamento de Vialidad para la categoría de uso de suelo de Entretenimiento Familiar del presente Plan Regulador.

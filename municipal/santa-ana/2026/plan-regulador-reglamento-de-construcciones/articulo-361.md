@@ -1,0 +1,1 @@
+Artículo 361. Instalaciones sanitarias para ferias con aparatos mecánicos. Deberán contar con instalaciones sanitarias, cuyo número señalará oportunamente la Municipalidad de acuerdo con las disposiciones contenidas en el Artículo 311 del presente Reglamento, o según el criterio del MINSA para cada caso concreto.

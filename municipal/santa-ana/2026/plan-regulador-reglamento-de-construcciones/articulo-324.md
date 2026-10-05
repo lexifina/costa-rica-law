@@ -1,0 +1,1 @@
+Artículo 324. Equipamiento e instalaciones mínimas obligatorias. Todo salón comunal y multiuso debe contar con: un salón, instalaciones sanitarias con ducha y cocina. Para el dimensionamiento deben seguirse las recomendaciones del Artículo 325 al Artículo 332.

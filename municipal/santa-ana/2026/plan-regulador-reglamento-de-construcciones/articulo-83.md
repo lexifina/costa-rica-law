@@ -1,0 +1,3 @@
+Artículo 83. Todos los proyectos constructivos podrán construir alcantarillado sanitario y su respectiva planta de tratamiento, según le corresponda de acuerdo con la normativa nacional vigente. Será obligatorio únicamente para aquellos proyectos ubicados en sitios que cumplan con al menos una de las siguientes condiciones:
+a- Que el nivel freático sea muy superficial, de acuerdo con lo que estipulen los reglamentos mencionados en el Artículo 74.
+b- Que el suelo tenga una tasa de percolación que no se encuentre en el rango adecuado para el drenaje de las aguas residuales, establecido por el Código de Instalaciones Hidráulicas y Sanitarias del CFIA.

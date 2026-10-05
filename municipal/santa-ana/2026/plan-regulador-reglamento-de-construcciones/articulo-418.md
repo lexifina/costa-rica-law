@@ -1,0 +1,1 @@
+Artículo 418. Protección de estructuras contra incendio y aspectos de seguridad humana. Es de acatamiento obligatorio cumplir con las disposiciones que se establecen en el Reglamento Nacional de Protección contra Incendios

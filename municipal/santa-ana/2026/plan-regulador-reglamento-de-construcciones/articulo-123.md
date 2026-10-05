@@ -1,0 +1,1 @@
+Artículo 123. Instalaciones en derecho de vía. Para colocar estructuras de cualquier tipo o hacer instalaciones de carácter provisional en las vías públicas urbanas, el interesado, sea público o privado, debe obtener la previa autorización municipal.

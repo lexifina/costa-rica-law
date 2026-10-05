@@ -1,0 +1,1 @@
+Artículo 182. Altura de piso a cielo. La altura mínima de piso a cielo para oficinas y locales será de 2.40 metros medidos desde el nivel de piso terminado, esto para casos donde la estructura de techo cuente con material de aislante térmico. En caso de que no haya cielo raso y el techo no tenga aislante térmico la altura mínima será de 2,7 metros.

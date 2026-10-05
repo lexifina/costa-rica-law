@@ -1,0 +1,1 @@
+Artículo 373. En caso de que las instalaciones deportivas también se utilicen para espectáculos o eventos deportivos, deberán cumplir con las disposiciones establecidas en el CAPÍTULO 15 sobre Sitios de Reunión Pública del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 475. Espacios y alturas requeridas. La altura de los locales destinados a salas de espera, vestíbulos y salas de curaciones no será inferior a 3,0 metros y la superficie mínima de estas últimas será de 6,0 metros cuadrados.

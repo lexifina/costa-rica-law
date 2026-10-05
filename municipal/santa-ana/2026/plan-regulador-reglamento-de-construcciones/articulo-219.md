@@ -1,0 +1,1 @@
+Artículo 219. Baños completos accesibles (inodoro, ducha y lavatorio). Cuando se requiera instalar un baño completo accesible, sus dimensiones serán las siguientes: área mínima de 5 metros cuadrados, con un ancho mínimo de 2,20m.

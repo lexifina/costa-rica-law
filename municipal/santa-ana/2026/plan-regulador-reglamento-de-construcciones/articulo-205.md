@@ -1,0 +1,4 @@
+Artículo 205. Escaleras de uso común. Las edificaciones para vivienda de más de un piso tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores, las mismas deberán construirse bajo las siguientes características:
+a- Cada escalera podrá servir a veinte unidades habitacionales, como máximo, en cada piso.
+b- Las escaleras interiores tendrán una anchura mínima libre de 90 centímetros, y de 1,2 metros las de servicio general.
+c- La huella no será menor de 28 centímetros ni la contrahuella mayor de 18 centímetros debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben protegerse con barandales de una altura mínima de 1,07 metros medidos desde la superficie de la huella. Pueden agregarse barandas adicionales a una altura de 60 centímetros para el uso de personas de baja estatura y niños.

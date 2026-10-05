@@ -1,0 +1,1 @@
+Artículo 492. Resistencia al fuego. Los materiales constructivos de un edificio de asistencia hospitalaria, deberán ser resistentes al fuego con un coeficiente retardatorio no menor de tres horas. En lo demás deberán cumplir con lo indicado en el Reglamento Nacional de Protección contra Incendios.

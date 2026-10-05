@@ -1,0 +1,1 @@
+Artículo 296. Desniveles en pasillos internos. No se usarán escalones dentro de los pasillos internos, en su lugar, se deben construir rampas de superficie antiderrapante y con pendiente menor de 1 en 10.

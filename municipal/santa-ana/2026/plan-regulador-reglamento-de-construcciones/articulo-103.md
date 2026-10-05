@@ -1,0 +1,1 @@
+Artículo 103. Los desarrolladores deben acondicionar la franja de protección de ríos que les corresponde, garantizando la estabilidad geotécnica. También deben corregir los problemas de erosión que presente dicha franja.

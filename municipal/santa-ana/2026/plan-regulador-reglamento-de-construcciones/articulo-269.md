@@ -1,0 +1,1 @@
+Artículo 269. Iluminación en sótanos o semisótanos. En todo sótano o semisótano, deberá existir un sistema de iluminación adecuado, de manera que cuente con las condiciones de iluminación necesarias para la actividad a desarrollar en el sitio. Los niveles mínimos de luxes serán los indicados en el Artículo 154 del presente Reglamento.

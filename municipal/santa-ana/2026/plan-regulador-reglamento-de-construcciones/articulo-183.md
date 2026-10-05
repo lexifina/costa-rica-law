@@ -1,0 +1,1 @@
+Artículo 183. Materiales. En paredes interiores, tabiques que separen unidades habitacionales unas de otras, o las separen de pasillos comunes, así como en el cielo raso, se usarán materiales que tengan un coeficiente retardante al fuego de no menos de una hora.

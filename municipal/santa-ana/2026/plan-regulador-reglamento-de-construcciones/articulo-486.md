@@ -1,0 +1,1 @@
+Artículo 486. Salas mortuorias o capillas de velación. En caso de que exista una sala mortuoria o capilla de velación, esta deberá ubicarse alejada de las habitaciones de los enfermos y con acceso directo a alguna salida de la edificación.

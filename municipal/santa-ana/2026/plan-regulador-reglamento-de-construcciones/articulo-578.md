@@ -1,0 +1,1 @@
+Artículo 578. Escaleras, pasillos y salidas. Todo supermercado acatará las regulaciones referentes a escaleras, pasillos y salidas establecidas en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 282. Salidas. Será aplicable lo establecido al respecto en el CAPÍTULO 7 de Disposiciones Generales para Edificaciones, de este Reglamento. Además, ninguna de las puertas de salida que se coloquen para este fin podrá obstaculizar la vía pública.

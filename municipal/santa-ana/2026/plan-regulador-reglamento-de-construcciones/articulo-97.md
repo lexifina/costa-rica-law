@@ -1,0 +1,1 @@
+Artículo 97. Localización del alcantarillado pluvial. El paso de redes de alcantarillado pluvial deberá estar localizado en los derechos de vía, a través o sobre áreas de uso público. Se permitirá su colocación a través o sobre servidumbres de paso, mantenimiento y uso, únicamente cuando las servidumbres están debidamente constituidas como Municipales en planos de catastro.

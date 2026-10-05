@@ -1,0 +1,1 @@
+Artículo 345. Materiales de construcción en obras temporales. Para toda obra temporal se emplearán materiales y sistemas constructivos que faciliten su remoción y que garanticen seguridad, higiene y buen aspecto.

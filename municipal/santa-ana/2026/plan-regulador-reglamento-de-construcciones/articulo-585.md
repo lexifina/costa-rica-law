@@ -1,0 +1,1 @@
+Artículo 585. Instalaciones sanitarias para uso público. Las estaciones de expendio de combustible deberán tener mínimo dos cubículos de instalaciones sanitarias, uno para cada sexo. Estará cada uno equipado con un inodoro y un lavatorio, cumpliendo con las disposiciones para personas con alguna discapacidad física indicadas en el Artículo 318 del presente Reglamento.

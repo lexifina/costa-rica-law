@@ -1,0 +1,1 @@
+Artículo 685. Para la aplicación de sanciones, a falta de proceso específico previamente establecido, se debe efectuar el procedimiento ordinario señalado en la Ley General de la Administración Pública, número 6227 y sus reformas.

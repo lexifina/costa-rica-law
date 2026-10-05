@@ -1,0 +1,1 @@
+Artículo 521. Comunicación con la vía pública. Deberán tener acceso y salida directa a la vía pública o comunicarse con ellas por pasillos con una anchura mínima igual a la suma de las anchuras de todos los pasillos que den a él.

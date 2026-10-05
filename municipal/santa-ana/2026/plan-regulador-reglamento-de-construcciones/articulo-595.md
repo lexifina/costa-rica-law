@@ -1,0 +1,1 @@
+Artículo 595. Espacio para maniobras. El espacio destinado para las maniobras de entrada y salida de vehículos entre la vía pública y el estacionamiento, en ningún caso puede ser utilizado como espacio de estacionamiento. Deberá estar libre de construcciones y vegetación que impidan las maniobras de los vehículos.

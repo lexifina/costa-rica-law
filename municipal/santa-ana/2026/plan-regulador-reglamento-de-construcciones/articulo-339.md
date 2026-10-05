@@ -1,0 +1,1 @@
+Artículo 339. Instalaciones sanitarias. Deberán establecerse instalaciones sanitarias para el público en general y participantes, en el número que se calcula según lo dispuesto en el Artículo 311 del presente Reglamento; cumpliendo con las características físicas de las instalaciones según las especificaciones del CAPÍTULO 16 de Instalaciones Sanitarias de Uso Público.

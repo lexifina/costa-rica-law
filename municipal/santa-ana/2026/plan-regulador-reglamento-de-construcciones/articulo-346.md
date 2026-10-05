@@ -1,0 +1,1 @@
+Artículo 346. Espacios de circulación. Los espacios de circulación para los comercios en la vía pública tendrán anchuras no menores de 3 metros. Así mismo, se deben considerar accesos y pasillos principales de anchura mínima de 5,0 metros, suficiente para la circulación de vehículos de emergencia.

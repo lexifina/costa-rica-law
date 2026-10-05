@@ -1,0 +1,1 @@
+Artículo 174. Áreas comunes no cubiertas. Cuando dos o más propietarios establezcan servidumbre recíproca o un acceso excepcional para formar patios de luz o de ventilación comunes, deberán cumplir individualmente con los requerimientos mínimos para el porcentaje de cobertura especificados en el Reglamento de Zonificación de este Plan Regulador.

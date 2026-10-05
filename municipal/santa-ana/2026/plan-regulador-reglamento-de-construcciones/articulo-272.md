@@ -1,0 +1,1 @@
+Artículo 272. Drenaje para el uso de rociadores automáticos contra incendio. En caso de que un nivel de sótano o semisótano cuente con rociadores automáticos de agua como sistema contra incendios, debe contar con un sistema de alcantarillado y drenaje en cada nivel, con capacidad de evacuar el caudal de agua máximo previsto para incendios a máximo rendimiento del sistema.

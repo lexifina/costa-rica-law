@@ -1,0 +1,1 @@
+Artículo 276. En apego a lo establecido en la Ley 7600 de la Igualdad de Oportunidades para las personas con Discapacidad y sus reformas, se establece que todo edificio en donde se desarrollen actividades culturales, deportivas o recreativas deberá ser accesible para todas las personas, esto incluyendo sitios de reunión pública e instalaciones deportivas en general.

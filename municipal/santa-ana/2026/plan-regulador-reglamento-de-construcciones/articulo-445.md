@@ -1,0 +1,2 @@
+Artículo 445. Iluminación natural. Además de lo establecido en el Artículo 153 del CAPÍTULO 7 sobre Disposiciones Generales para Edificaciones del presente Reglamento, la luz natural que reciban los espacios educativos deberá ser directa, de preferencia proveniente del norte.
+Si dicha orientación no es posible, los ventanales se tratarán con la protección adecuada contra la radiación solar. No se podrá utilizar como único recurso la iluminación cenital.

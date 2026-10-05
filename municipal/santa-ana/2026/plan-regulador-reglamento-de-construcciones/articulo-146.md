@@ -1,0 +1,1 @@
+Artículo 146. Aguas Residuales. Para toda construcción, se deben acatar todas las normas establecidas en el CAPÍTULO 4 del presente Reglamento, así como las vigentes en la materia sobre aguas residuales.

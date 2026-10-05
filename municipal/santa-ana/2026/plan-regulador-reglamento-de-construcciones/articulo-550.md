@@ -1,0 +1,1 @@
+Artículo 550. Seguridad y protección ante emergencias. En el tema de protección contra incendio y seguridad de la edificación ante una emergencia, todo edificio de hospedaje deberá cumplir las indicaciones para hoteles, establecidas en el Reglamento Nacional de Protección Contra Incendios, del Benemérito Cuerpo de Bomberos de Costa Rica versión 2013.

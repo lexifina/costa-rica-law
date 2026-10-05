@@ -1,0 +1,1 @@
+Artículo 505. Garaje. Se proveerá un espacio de garaje o cochera con entrada directa y sin gradas a la residencia, con una anchura mínima de 3,5 metros y cerrojo de accionar eléctrico si existe portón.

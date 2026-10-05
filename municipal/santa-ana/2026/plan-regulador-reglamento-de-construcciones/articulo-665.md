@@ -1,0 +1,4 @@
+Artículo 665. Torres de Telecomunicaciones Permanentes y Temporales. Adicional a lo indicado en el Artículo 658, debe presentarse los siguientes requisitos:
+a- Declaración Jurada que haga constar que no existe una torre de telecomunicaciones a una distancia menor a 250 metros desde el centro de la torre propuesta. Esta distancia mínima no se aplicará cuando las antenas se ubiquen en postes, azoteas o vallas existentes por lo cual no deberá presentarse la declaración jurada indicada.
+b- Declaración Jurada en que conste que las obras constructivas tienen capacidad para ser compartidas por un mínimo de tres emplazamientos de antenas y equipos.
+c- Documentación que acredite el derecho de uso, goce y disfrute del inmueble respectivo, en la cual debe hacerse constar el consentimiento del propietario cuando se pretenda establecer las Obras Constructivas en inmuebles propiedad de un tercero que no sea el solicitante de la Licencia de construcción.

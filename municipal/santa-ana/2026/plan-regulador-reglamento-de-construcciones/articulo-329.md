@@ -1,0 +1,6 @@
+Artículo 329. Instalaciones sanitarias. Para efectos de diseño y dimensiones de las instalaciones sanitarias, deberá cumplirse lo establecido en el CAPÍTULO 16 de Instalaciones Sanitarias de Uso Público, además en el cuadro del Artículo 311 del presente Reglamento. La cantidad de instalaciones sanitarias en salones multiuso y comunales se calcularán de acuerdo con las normas siguientes:
+a- Hombres: Mínimo un inodoro, tres orinales y dos lavatorios por cada 400 usuarios o fracción de la capacidad máxima. Debe existir mínimo un cubículo diseñado para personas con discapacidad.
+b- Mujeres: Mínimo cuatro inodoros y dos lavatorios por cada 400 espectadoras o fracción de la capacidad máxima. Debe existir mínimo un cubículo diseñado para personas con discapacidad.
+c- Capacidad del servicio de duchas: Para efectos de diseño, la capacidad mínima será una ducha y un vestidor por cada cuatro usuarios.
+d- Según la actividad a desarrollar en el salón, cuando aplique se deberá cumplir con los requerimientos de instalaciones sanitarias incluidas en los Cuadros del Artículo 311 del presente Reglamento.
+e- Para actividades de venta, preparación y/o consumo de alimentos, deberá cumplirse con lo indicado en el CAPÍTULO 30 de Sitios de expendio, preparación y/o consumo de alimentos.

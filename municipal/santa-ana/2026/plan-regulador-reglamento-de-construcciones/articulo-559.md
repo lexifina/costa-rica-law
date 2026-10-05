@@ -1,0 +1,1 @@
+Artículo 559. Capacidad de carga de los sitios de consumo de alimentos. Se considera un área mínima por persona igual a 1,50 metros cuadrados, o lo que es equivalente a una mesa para cuatro personas por cada 6 metros cuadrados, área donde se contempla un ancho de noventa centímetros entre mesas para garantizar el paso entre las mismas.

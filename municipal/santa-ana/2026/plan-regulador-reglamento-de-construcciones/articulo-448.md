@@ -1,0 +1,1 @@
+Artículo 448. Ventilación. Además de lo establecido del Artículo 158 al Artículo 162 del presente Reglamento, los muros opuestos a las ventanas deberán tener aberturas ubicadas de tal manera que permitan la ventilación cruzada.

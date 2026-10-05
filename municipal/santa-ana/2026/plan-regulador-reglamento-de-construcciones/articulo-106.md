@@ -1,0 +1,1 @@
+Artículo 106. Para todos terrenos ubicados en zonas de protección de ríos y de nacientes, se recomienda valorar la creación de un plan de reforestación aprobado por la Dirección Forestal del MINAE. Se debe valorar que la vegetación sea al menos el 50% nativa de la zona y que la estabilidad del terreno no se vea afectada, sino mejorada.

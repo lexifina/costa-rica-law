@@ -1,0 +1,1 @@
+Artículo 140. Acometida eléctrica. Para todo lo referente a la acometida eléctrica, se debe cumplir con todas las especificaciones de la Norma Técnica emitida por las potestades de la Ley N.º 7593 denominada Instalación y Equipamiento de Acometidas Eléctricas (AR-NTACO) de la ARESEP, Resolución 2444 del 21 de diciembre de 2001 y sus modificaciones.

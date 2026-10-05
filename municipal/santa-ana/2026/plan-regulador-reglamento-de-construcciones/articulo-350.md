@@ -1,0 +1,1 @@
+Artículo 350. Redondeles temporales. Los redondeles temporales deberán cumplir complementariamente con lo dispuesto en el presente capítulo y el CAPÍTULO 18 de Redondeles permanentes del presente reglamento.

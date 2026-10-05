@@ -1,0 +1,1 @@
+Artículo 231. El profesional responsable deberá procurar utilizar alternativas que sean adecuadas a las necesidades y tomar en cuenta nuevos sistemas y tendencias constructivas que permitan la debida protección contra ruido en la estructura.

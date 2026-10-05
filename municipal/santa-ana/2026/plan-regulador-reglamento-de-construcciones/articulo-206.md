@@ -1,0 +1,1 @@
+Artículo 206. Escaleras y salidas de emergencia. Todas las edificaciones para vivienda deberán cumplir con los requisitos establecidos en el CAPÍTULO 7 de Disposiciones Generales del presente Reglamento.

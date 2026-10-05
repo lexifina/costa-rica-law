@@ -1,0 +1,1 @@
+Artículo 377. En el CAPÍTULO 15 de Disposiciones Generales para Sitios de Reunión Pública, del presente Reglamento, están normados aspectos que tienen la misma aplicación para gimnasios deportivos o estadios, tales como: accesibilidad, taquillas, vallas para hacer fila, butacas, gradas, circulaciones en edificaciones deportivas, entre otros.

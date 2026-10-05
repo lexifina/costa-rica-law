@@ -1,0 +1,1 @@
+Artículo 676. Vigencia de la licencia de construcción con movimientos de tierra vinculados al proceso constructivo. Los movimientos de tierra vinculados al proceso constructivo deben realizarse dentro del plazo de vigencia de la licencia de construcción.

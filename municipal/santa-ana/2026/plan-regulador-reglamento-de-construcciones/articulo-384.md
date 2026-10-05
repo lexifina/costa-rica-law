@@ -1,0 +1,1 @@
+Artículo 384. Salidas. En lo que referente a salidas y salidas de emergencia en estadios deberá cumplirse con lo establecido en el CAPÍTULO 15 de Sitios de Reunión Pública, del presente Reglamento. Los accesos y salidas de escaleras no deben tener obstáculos y la pendiente máxima permitida, en los mismos, será de 10%.

@@ -1,0 +1,4 @@
+Artículo 335. Puertas, escaleras y graderías. Todo redondel, específicamente para plazas de toros, se deberán cumplir las siguientes disposiciones generales:
+a- Las puertas de entrada estarán dispuestas en pareja, serán amplias de dimensiones no menores a 1 metro cada una y en número suficiente para evitar aglomeraciones, dispuestas en tal forma que permitan el acceso al interior fácilmente.
+b- Las escaleras que conduzcan a las localidades estarán convenientemente distribuidas para favorecer la pronta ocupación o abandono de los tendidos. Ninguna butaca, en gradería para espectadores, podrá ubicarse a más de 7 metros de la escalera más próxima, ésta tendrá una anchura mínima de 1,2 metros, huella mínima de 30 centímetros y contrahuellas de 20 centímetros.
+c- Las graderías tendrán pasillos, paralelos a la gradería, suficientes para que rápidamente pueda llegarse a cualquier localidad. El ancho mínimo para cada pasillo será de 1,2 metros.

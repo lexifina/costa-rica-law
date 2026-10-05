@@ -1,0 +1,1 @@
+Artículo 415. Protección contra temperatura. En los establecimientos con temperaturas extremas, que produzcan problemas, los aparatos caloríficos o frigoríficos estarán separados de los muros colindantes por la distancia que fije en cada caso el MINSA y de no ser suficiente ese alejamiento, se revestirán el muro colindante, o el aparato, con material aislante de la temperatura.

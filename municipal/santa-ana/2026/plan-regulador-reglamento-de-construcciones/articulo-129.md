@@ -1,0 +1,1 @@
+Artículo 129. Límites de niveles de ruido durante la realización de construcciones. Los límites de niveles de ruido quedarán regulados por el Reglamento para el control del ruido ambiental Decreto Ejecutivo 44486-S, tanto para horario nocturno como para horario diurno.

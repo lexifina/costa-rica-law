@@ -1,0 +1,1 @@
+Artículo 314. Instalaciones sanitarias públicas. Deben estar separadas para cada sexo, además deben contar como mínimo con un inodoro para personas con discapacidad por sexo y acatar el Artículo 189 y el Artículo 312 del presente reglamento.

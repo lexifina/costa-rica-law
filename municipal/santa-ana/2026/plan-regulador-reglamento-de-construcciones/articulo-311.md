@@ -1,0 +1,21 @@
+Artículo 311. El diseño de la capacidad para las construcciones para sitios de reunión pública y para desarrollo de actividades deportivas, se hará de acuerdo con el área y la cantidad de personas, según lo establecido en el Capítulo de Sitios de reunión pública el cual muestra condiciones particulares de acuerdo con el uso y la categoría establecidas en el Reglamento de Zonificación del presente Plan Regulador.
+Hoja extra, no imprimir
+Cuadro 8. Sitios de reunión pública y para desarrollo de actividades deportivas
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]

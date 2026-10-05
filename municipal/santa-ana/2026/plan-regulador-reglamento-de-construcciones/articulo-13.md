@@ -1,0 +1,1 @@
+Artículo 13. Ventanas a colindancia. En lo que respecta a las regulaciones que aplican para la apertura de ventanas hacia el lote vecino, debe aplicarse la regulación correspondiente a retiros laterales incluida tanto en el Reglamento de Zonificación como en el Reglamento de Fraccionamiento, Urbanizaciones y Condominios del presente Plan Regulador, según corresponda.

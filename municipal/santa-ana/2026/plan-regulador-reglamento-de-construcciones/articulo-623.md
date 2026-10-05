@@ -1,0 +1,4 @@
+Artículo 623. Butacas. En las salas de espera de una terminal, sólo se permitirá la instalación de butacas como mobiliario para sentarse. La anchura mínima de las butacas será de 0,50 metros. Si se colocan butacas a ambos lados de un eje longitudinal, la distancia mínima entre el frente de una fila de asientos y el frente de la otra será de 0,90 metros (ver Figura 5).
+Igualmente, si se colocan a un solo lado de un eje longitudinal, pero con los asientos viéndose de frente, también se mantendrá la distancia mínima de 0,90 metros. Si las butacas se colocan viendo en la misma dirección, la distancia mínima deberá ser de 0,60 metros entre el frente de un asiento y el respaldo del próximo (ver Figura 6).
+[imagen]
+Figura 6. Esquema de ubicación de butacas, en una hilera sencilla, y ancho de pasillos.

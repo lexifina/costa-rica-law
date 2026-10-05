@@ -1,0 +1,1 @@
+Artículo 363. Centros de acondicionamiento físico. Todo centro de acondicionamiento físico deberá cumplir con lo estipulado en el Manual de Normas para la Habilitación de Centros de Acondicionamiento Físico, Decreto N.º 33532-S.

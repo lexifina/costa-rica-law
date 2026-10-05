@@ -1,0 +1,2 @@
+Artículo 374. Estacionamientos. En cuanto al número y dimensiones de los estacionamientos exigidos para los usos Deportivo 1 y Deportivo 2, deberá acatarse lo establecido en el
+Capítulo 5 de Regulaciones por zonificación y vialidad, y el Capítulo 6 de Regulaciones por tipo de uso del suelo correspondientes al Reglamento de Vialidad del presente Plan Regulador. En ninguna circunstancia podrá hacerse uso de la vía pública para el estacionamiento de vehículos, excepto en los casos en que se cuente con espacios de parqueo demarcados debidamente por la institución competente.

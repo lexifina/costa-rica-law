@@ -1,0 +1,1 @@
+Artículo 395. Cobertura, retiros, alturas. Con respecto a la cobertura de los terrenos, los retiros requeridos y las alturas permitidas debe cumplirse con lo establecido en el Reglamento de Zonificación del presente Plan Regulador, para las zonas industriales.

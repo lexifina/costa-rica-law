@@ -1,0 +1,8 @@
+Artículo 153. Iluminación Natural. Para efectos de iluminación natural, se seguirán los siguientes lineamientos:
+a- El medio para brindar iluminación natural deberá tener un porcentaje de área mínima según el área de piso de la habitación o cualquier otro espacio que se requiere iluminar, así como se indica en el cuadro a continuación:
+Cuadro 1. Porcentajes de ventanas para iluminación según el uso de los espacios
+[imagen]
+b- Toda abertura deberá estar orientada directamente a patios, espacios de retiros no techados o al espacio público.
+c- En el caso de Residencias Estudiantiles y Edificaciones con Áreas Comunes, Establecimientos Industriales, Edificaciones para la Educación y Centros de Investigación Científica, el porcentaje mínimo de área para iluminación de las piezas habitables será del 20% del área de piso.
+d- Los porcentajes de área mínima para iluminación que se indican en el cuadro 1 podrán cumplirse por medio de ventanas o de tragaluces, o por una combinación de los dos anteriores, excepto para edificaciones correspondientes a los usos: Habitacional, Comunal, Hospedaje, Ecoalbergue, Guarderías, Salud Básico y Servicio Pequeño (ubicados fuera de centros comerciales), para los cuales será obligatorio que los porcentajes de área de iluminación mínimos, se cumplan obligatoriamente mediante área de ventanas.
+e- Toda edificación correspondiente a los usos: Habitacional, Comunal, Hospedaje, Ecoalbergue, Educacional (excepto Centros de Investigación), Guarderías, Salud Básico y Servicio pequeño, que cuenten con más de una pared al exterior, será obligatorio distribuir el porcentaje de área indicado en el Cuadro 1 en más de una pared exterior, si es posible colocándose en paredes opuestas entre sí.

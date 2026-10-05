@@ -1,0 +1,1 @@
+Artículo 126. Construcciones provisionales. Toda edificación aun cuando tenga carácter provisional, deberá contar previamente con autorización municipal. Se emplearán materiales y sistemas constructivos que faciliten su remoción y que garanticen seguridad, higiene y buen aspecto.

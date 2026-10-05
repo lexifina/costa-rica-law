@@ -1,0 +1,1 @@
+Artículo 152. Dimensión menor de ventana. La dimensión menor de cada ventana, para efectos de ventilación e iluminación no podrá ser inferior a 30 centímetros, las aperturas en muros y paredes que no necesariamente constituyan una ventana podrán contabilizar para tales efectos siempre y cuando sean capaces de ventilar e iluminar.

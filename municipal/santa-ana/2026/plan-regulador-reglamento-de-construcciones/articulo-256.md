@@ -1,0 +1,1 @@
+Artículo 256. Todo proyecto realizado con contenedores debe incluir la memoria de cálculo por parte del profesional responsable del proyecto, donde se asegure el buen comportamiento estructural de la construcción.
