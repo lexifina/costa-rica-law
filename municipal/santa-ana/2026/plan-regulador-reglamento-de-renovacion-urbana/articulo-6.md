@@ -1,0 +1,1 @@
+Artículo 6. Prioridades de Inversión. Las prioridades de inversión municipal en relación con la adquisición y/o equipamiento de las zonas de renovación urbana en Santa Ana, serán las determinadas por la Municipalidad de acuerdo con los intereses del cantón.

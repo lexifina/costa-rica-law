@@ -1,0 +1,1 @@
+Artículo 40. Reconfiguración Predial con participación de los propietarios y la Municipalidad: El objetivo es el reordenamiento de las fincas existentes y la instalación de infraestructura pública en cualquiera de los sectores que integran la Zona de Renovación Urbana.

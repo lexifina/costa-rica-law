@@ -1,0 +1,2 @@
+CAPÍTULO 14. DISPOSICIONES FINALES
+Artículo 49. Para cada uno de los sectores que integran la Zona de Renovación Urbana serán aplicables las restricciones para fraccionar y construir establecidas en el artículo 52 de la Ley de Planificación Urbana Nº4240. El periodo de cinco años de restricción establecido en el, mismo artículo 52 será contabilizado a partir de la aprobación municipal e INVU del Plan y Proyecto de renovación urbana específico para cada sector.

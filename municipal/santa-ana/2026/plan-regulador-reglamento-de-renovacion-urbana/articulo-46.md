@@ -1,0 +1,1 @@
+Artículo 46. Incentivos para Reconfiguración Predial con participación de desarrolladores y Municipalidad: En este caso el incentivo será equivalente a un piso más, el cual podrá ser canjeable en el mismo lote.

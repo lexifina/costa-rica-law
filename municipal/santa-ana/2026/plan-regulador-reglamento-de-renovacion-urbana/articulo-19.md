@@ -1,0 +1,1 @@
+Artículo 19. Disposiciones Constructivas. Las instalaciones deportivas y de soporte construidas dentro de las áreas recreativas deberán acatar las disposiciones señaladas en título de Sitios de Reunión Pública y para Desarrollo de Actividades Deportivas del Reglamento de Construcciones de este Plan Regulador.

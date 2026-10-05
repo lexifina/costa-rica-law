@@ -1,0 +1,3 @@
+Artículo 30. Incentivos. La Municipalidad deberá promover los incentivos descritos en el Capítulo 9 Alturas del Reglamento de Zonificación. con el objetivo de lograr la creación de áreas recreativas, facilidades comunales e infraestructura pública en el cantón y podrá intervenir a través de los mecanismos debidamente autorizados por el ordenamiento jurídico, así como los previstos por los distintos reglamentos del Plan Regulador. Las prioridades para la adquisición de estos terrenos para uso público son las siguientes:
+a. Prioridad 1: Terrenos para planta de tratamiento de aguas residuales.
+b. Prioridad 2 Lote en el centro de Santa Ana.

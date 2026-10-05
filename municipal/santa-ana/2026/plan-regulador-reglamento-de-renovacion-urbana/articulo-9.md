@@ -1,0 +1,1 @@
+Artículo 9. Ubicación. La Subzona de Renovación por Riesgo de Amenazas Naturales está delimitada y ubicada en el Mapa de Zonificación del presente Plan Regulador y en el Mapa de Zonas de Renovación Urbana del presente reglamento.

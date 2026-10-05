@@ -1,0 +1,1 @@
+Artículo 4. Ubicación. La Zona de Renovación Urbana se encuentra debidamente ubicada y delimitada en el Mapa de Zonificación del Plan Regulador, así como en el Mapa de Zonas de Renovación Urbana que es parte integral del presente Reglamento y comprende cuatro subzonas de renovación.

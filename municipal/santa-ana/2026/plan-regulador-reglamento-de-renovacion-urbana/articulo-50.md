@@ -1,0 +1,1 @@
+Artículo 50. Dentro del periodo comprendido entre la publicación y entrada en vigor del presente reglamento y la aprobación municipal e INVU del Plan y Proyecto de renovación urbana de cada sector, así como una vez transcurrido 5 años desde su aprobación, serán aplicables los parámetros urbanísticos específicos establecidos en el Reglamento de Zonificación.

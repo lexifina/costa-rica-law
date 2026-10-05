@@ -1,0 +1,1 @@
+Artículo 18. Componentes. Para la selección de los componentes que integrarán las áreas con potencial recreativo y facilidades comunales, se aplicarán las disposiciones del Reglamento de Fraccionamiento, Urbanizaciones y Condominios, en lo que corresponde con las especificaciones para Parques y Facilidades Comunales.

@@ -1,0 +1,7 @@
+CAPÍTULO 12. RECONFIGURACIÓN PREDIAL EN ZONAS DE ATENCIÓN ESPECIAL
+Consideraciones Específicas
+1. La Reconfiguración Predial como herramienta de planificación urbana ha estado presente en la legislación del país, específicamente en la Ley de Planificación Urbana, pero la misma no se le ha implementado. En el Cantón de Santa Ana, se promueve esta figura con la finalidad de poder reordenar y mejorar algunos sectores que actualmente presentan a algunas deficiencias como las evidenciadas en Subzona de Atención Especial.
+2. La Reconfiguración Predial puede ser privado o pública según sus participantes. Sin embargo, en este Plan Regulador se promueve la Pública ya que en esta la Municipalidad puede aliarse con otros participantes privados en diversos proyectos.
+3. En el caso de que se los participantes privados procedan con la Reconfiguración Predial dependiendo de cuál sea el caso se establecen una serie de incentivos urbanísticos. En el Anexo 2. Incentivos aplicables a la Reconfiguración Predial por caso, en procesos de Renovación Urbana, se describen los incentivos, aportes y beneficios para el mejoramiento del cantón y Municipalidad.
+Regulaciones
+Artículo 37. Se permitirá la Reconfiguración Predial Pública únicamente para las Subzonas de Atención Especial definidas para el cantón de Santa Ana y ubicadas en el Mapa de Zonificación y en el Mapa de Zonas de Renovación del presente reglamento.

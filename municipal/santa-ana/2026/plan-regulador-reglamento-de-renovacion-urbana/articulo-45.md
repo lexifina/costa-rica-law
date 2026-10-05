@@ -1,0 +1,1 @@
+Artículo 45. Incentivos para Reconfiguración Predial con participación propietarios y Municipalidad: En este caso el incentivo será la dotación de Infraestructura y la posibilidad de poder usar un 5% más de la cobertura establecida en la zona.

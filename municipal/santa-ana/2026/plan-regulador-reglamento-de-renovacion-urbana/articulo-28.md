@@ -1,0 +1,7 @@
+CAPÍTULO 10. REQUERIMIENTOS PARA LA ADQUISIÓN DE ZONAS RECEPTORAS
+EN ZONAS DE RENOVACIÓN URBANA
+Consideraciones generales
+1. La Municipalidad puede adquirir las zonas de renovación mediante la compra directa, expropiación o bien a través de los incentivos en altura en las zonas incluido en el Reglamento de Zonificación, y bajo las condiciones que establece este Reglamento.
+2. Otra herramienta con la cual la Municipalidad puede adquirir las zonas de renovación definidas en el Mapa 7. Zonas Receptoras de área pública en zonas de renovación son los incentivos en altura. Los incentivos en altura se encuentran en el Reglamento de Zonificación y permiten optar por más pisos, especialmente si se encuentran vinculados a zonas receptoras en fincas diferentes a aquellas donde se realizará la construcción de la obra, y estos deben corresponder a los distintos valores de la tierra.
+3. Las zonas de renovación que son aptas para ser zonas receptoras son las zonas de renovación para planta de tratamiento de aguas residuales y zonas de renovación por potencial recreativo y facilidades comunales Regulaciones
+Artículo 28. Administración del territorio. La Municipalidad será la encargada de generar los lineamientos sobre la localización de la porción a ceder, en busca de consolidar un área útil a partir de las sucesivas cesiones de terrenos. Por lo cual priorizará únicamente en las zonas receptoras definidas en el Mapa 7. Zonas Receptoras de área pública.

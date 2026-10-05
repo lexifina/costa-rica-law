@@ -1,0 +1,1 @@
+Artículo 51. La posibilidad de construir y fraccionar bajo los parámetros específicos establecidos en el Reglamento de Zonificación podrá mantenerse durante la vigencia de permiso de construcción, siempre que el mismo se otorgue y ejecute dentro de los cinco años de renovación urbana y que se haya realizado la aceptación de las áreas respectivas.
