@@ -1,0 +1,1 @@
+Artículo 19.—Planificación de Obras Públicas con Enfoque Climático: Los proyectos municipales de infraestructura se diseñarán bajo criterios de resiliencia climática y sostenibilidad ambiental, con un enfoque prospectivo para escenarios extremos.

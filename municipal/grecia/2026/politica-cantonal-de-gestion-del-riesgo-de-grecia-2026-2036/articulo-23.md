@@ -1,0 +1,5 @@
+CAPÍTULO V:
+Financiamiento de proyectos de prevención
+con enfoque de gestión del riesgo
+Artículo 23.—Uso de los recursos del fondo de emergencia: De conformidad con lo establecido en el artículo 46 bis de la Ley Nacional de Emergencias y Prevención del Riesgo N.° 8488 y sus reformas, las municipalidades y los concejos municipales de distrito deberán calcular un tres por ciento (3%) del superávit presupuestario libre, según lo dispuesto en el artículo anterior, con base en la liquidación presupuestaria al 30 de junio del año en curso, una vez concluidos los compromisos efectivamente adquiridos del período anterior, conforme al artículo 116 del Código Municipal, Ley N.° 7794 del 30 de abril de 1998.
+En atención a lo anterior, la Municipalidad de Grecia promoverá y ejecutará proyectos preventivos en las zonas más vulnerables del cantón, con el propósito de fortalecer la resiliencia comunitaria y atender de forma oportuna y eficiente aquellas situaciones que representen un riesgo para la vida, la integridad física o los bienes de la población y visitantes del territorio cantonal.

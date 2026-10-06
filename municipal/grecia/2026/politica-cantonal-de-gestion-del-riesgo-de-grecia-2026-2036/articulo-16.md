@@ -1,0 +1,1 @@
+Artículo 16.—Zonificación y Clasificación del Suelo: Se establecerán zonas especiales de protección ambiental, áreas de restricción por riesgo de inundación, deslizamientos y amenazas volcánicas, con regulaciones estrictas sobre el uso del suelo.

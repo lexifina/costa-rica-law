@@ -1,0 +1,1 @@
+Artículo 12.—Evaluación de Vulnerabilidades: Se debe evaluar la condiciones geofísicas y ambientales que aumentan la exposición al riesgo en cada distrito, al menos cada 5 años a fin de poder monitorearlos.

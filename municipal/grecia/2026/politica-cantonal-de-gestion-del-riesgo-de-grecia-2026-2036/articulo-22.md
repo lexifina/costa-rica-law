@@ -1,0 +1,1 @@
+Artículo 22.—Participación Ciudadana en la Planificación Urbana: Se promoverá la inclusión de la comunidad en la toma de decisiones sobre el ordenamiento territorial mediante consultas públicas y participación activa en los procesos de planificación.

@@ -1,0 +1,1 @@
+Artículo 6º—Código Municipal: La política se ampara en el Código Municipal, que otorga a los Gobiernos Locales la facultad de regular y promover el bienestar y seguridad de los habitantes en materia de gestión del riesgo.

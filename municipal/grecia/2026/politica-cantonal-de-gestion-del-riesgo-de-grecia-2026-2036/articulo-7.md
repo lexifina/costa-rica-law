@@ -1,0 +1,1 @@
+Artículo 7º—Agenda 2030 y Objetivos de Desarrollo Sostenible: La gestión del riesgo se alineará a los Objetivos de Desarrollo Sostenible (ODS), específicamente los objetivos 11 - Ciudades y Comunidades Sostenibles y el objetivo 13 - Acción por el Clima.

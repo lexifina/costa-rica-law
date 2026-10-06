@@ -1,0 +1,1 @@
+Artículo 20.—Regulación y Supervisión de Obras: Se establecerá un sistema de monitoreo permanente para verificar que las construcciones urbanas cumplan con los lineamientos de seguridad y resiliencia establecidos en esta política.

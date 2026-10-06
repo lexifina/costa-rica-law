@@ -1,0 +1,1 @@
+Artículo 5º—Ley Nacional de Emergencias y Prevención del Riesgo (Nº 8488): Define el Sistema Nacional de Gestión del Riesgo y el Plan Nacional de Gestión del Riesgo, articulando las competencias de instituciones públicas y privadas en materia de reducción y manejo del riesgo.

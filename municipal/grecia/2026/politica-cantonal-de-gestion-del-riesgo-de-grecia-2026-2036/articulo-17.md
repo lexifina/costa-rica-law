@@ -1,0 +1,1 @@
+Artículo 17.—Gestión de Cuencas y Espacios Verdes: La planificación urbana deberá integrar la gestión de cuencas hidrográficas y la creación de espacios verdes urbanos como mecanismos naturales de mitigación y contención ante eventos extremos.

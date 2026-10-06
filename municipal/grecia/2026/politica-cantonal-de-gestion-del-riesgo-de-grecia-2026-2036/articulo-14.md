@@ -1,0 +1,1 @@
+Artículo 14.—Diagnóstico Sectorial: Se desarrollará un análisis por distritos para para identificar las vulnerabilidades existentes, con posible afectación en: vivienda, infraestructura vial y pluvial, educación, salud, entre otras; que por competencia la municipalidad deba trabajar en prevenirlas.
