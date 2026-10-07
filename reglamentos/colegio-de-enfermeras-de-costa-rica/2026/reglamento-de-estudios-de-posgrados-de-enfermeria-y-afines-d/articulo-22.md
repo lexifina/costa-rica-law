@@ -1,0 +1,1 @@
+Artículo 22. Publicación y actualización del registro oficial. El Registro Oficial de Estudios de Posgrado Reconocidos será aprobado por la Junta Directiva y administrado por la Unidad de Desarrollo Profesional y se mantendrá permanentemente actualizado. El Colegio garantizará que dicho registro se mantendrá de acceso público a través de los medios institucionales formales.

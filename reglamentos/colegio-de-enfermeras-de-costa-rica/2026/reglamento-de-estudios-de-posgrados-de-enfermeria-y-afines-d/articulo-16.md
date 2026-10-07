@@ -1,0 +1,2 @@
+Artículo 16. Plazo de revisión. La Unidad de Desarrollo Profesional dispondrá de un plazo de treinta días hábiles, contados a partir de la recepción de la solicitud completa o de la subsanación de los requisitos prevenidos, para efectuar el análisis técnico correspondiente y emitir una recomendación a la Junta Directiva sobre la aprobación o denegación de la solicitud.
+Cuando la complejidad del caso requiera información adicional o criterio especializado, el plazo podrá suspenderse mientras se recibe la información solicitada, dejando constancia de ello en el expediente.

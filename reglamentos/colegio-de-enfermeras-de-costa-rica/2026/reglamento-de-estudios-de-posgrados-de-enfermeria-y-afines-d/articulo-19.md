@@ -1,0 +1,1 @@
+Artículo 19. Certificación. El Colegio de Enfermeras de Costa Rica extenderá certificaciones del registro del posgrado correspondiente con vista en el tomo y folio de incorporaciones de profesionales de Enfermería.

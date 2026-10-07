@@ -1,0 +1,1 @@
+Artículo 20. Licencia. Una vez aprobado y registrado el estudio de posgrado, el Colegio incorporará dicha información en la licencia profesional. La anotación deberá consignar la denominación oficial del grado académico reconocido.

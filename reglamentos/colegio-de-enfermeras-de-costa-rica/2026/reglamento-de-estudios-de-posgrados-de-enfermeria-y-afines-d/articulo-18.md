@@ -1,0 +1,2 @@
+Artículo 18. Registro de posgrados. Una vez firme la resolución que apruebe el reconocimiento del estudio de posgrado, el Colegio procederá a realizar la inscripción correspondiente en los registros institucionales.
+Asimismo, se incorporará al expediente profesional de la persona agremiada la información relativa al grado académico reconocido, indicando la denominación oficial del título, la institución que lo otorgó y la fecha de aprobación por parte de la Junta Directiva.

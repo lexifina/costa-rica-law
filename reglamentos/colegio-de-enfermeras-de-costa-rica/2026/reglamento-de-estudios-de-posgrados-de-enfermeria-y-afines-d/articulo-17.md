@@ -1,0 +1,1 @@
+Artículo 17. Recursos. Contra la resolución de la Junta Directiva procederán los recursos ordinarios de revocatoria y apelación en subsidio, los cuales deberán interponerse dentro del plazo de tres 3 días hábiles contados a partir del día siguiente a la notificación de la resolución.

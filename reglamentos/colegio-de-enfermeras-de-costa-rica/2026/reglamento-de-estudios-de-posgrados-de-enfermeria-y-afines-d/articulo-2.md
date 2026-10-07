@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Las disposiciones de este Reglamento serán aplicables a las personas profesionales en Enfermería incorporadas al Colegio de Enfermeras de Costa Rica que soliciten el reconocimiento y registro de estudios de posgrado obtenidos en instituciones nacionales o extranjeras.

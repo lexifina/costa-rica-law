@@ -1,0 +1,6 @@
+Artículo 10. Requisitos para el reconocimiento y registro de programas de posgrado no registrados previamente. Cuando el programa de posgrado respecto del cual se solicita el reconocimiento no haya sido registrado previamente ante el Colegio de Enfermeras de Costa Rica, la persona solicitante deberá aportar, además de los requisitos establecidos en los artículos anteriores, la siguiente documentación:
+a) Plan de estudios completo incluyendo: fundamentación epistemológica del plan, objeticos, perfil académico-profesional, requisitos de ingreso y de graduación, cursos, contenidos, créditos u horas académicas que integran el programa.
+b) Copia del Perfil de egreso del programa de posgrado emitido por la institución de educación superior correspondiente.
+c) Información oficial sobre la modalidad de estudio, duración y grado académico otorgado.
+d) Cualquier otra información académica que la Unidad de Desarrollo Profesional considere necesaria para determinar si el posgrado corresponde a un programa propio de la Enfermería o afín al ejercicio profesional de la disciplina.
+Esta valoración se realizará por única vez para cada programa académico, sin perjuicio de que la Junta Directiva pueda solicitar una nueva revisión cuando existan modificaciones sustanciales en el plan de estudios o en las condiciones de otorgamiento del grado académico.

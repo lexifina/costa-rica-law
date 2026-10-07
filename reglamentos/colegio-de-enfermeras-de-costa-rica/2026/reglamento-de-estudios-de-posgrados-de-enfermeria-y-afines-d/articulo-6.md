@@ -1,0 +1,2 @@
+Artículo 6. De las resoluciones. Corresponderá a la Junta Directiva del Colegio de Enfermeras de Costa Rica resolver las solicitudes de reconocimiento y registro de estudios de posgrado, previo análisis técnico y recomendación emitida por la Unidad de Desarrollo Profesional.
+La Junta Directiva podrá aprobar, denegar o solicitar información adicional cuando lo considere necesario para una adecuada resolución del caso.

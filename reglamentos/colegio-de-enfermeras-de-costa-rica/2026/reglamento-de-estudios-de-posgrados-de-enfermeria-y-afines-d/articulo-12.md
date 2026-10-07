@@ -1,0 +1,6 @@
+Artículo 12. Correspondencia académica. El programa de posgrado sometido a valoración deberá demostrar una correspondencia mínima del 70% respecto de los contenidos académicos de los programas de referencia registrados en el Colegio, correspondientes al área de conocimiento objeto de análisis.
+La correspondencia académica de los programas de posgrado sometidos a reconocimiento será determinada mediante la comparación de la carga horaria de los contenidos académicos del programa en estudio con respecto al programa o programas de referencia previamente registrados por el Colegio de Enfermeras de Costa Rica en el área de conocimiento correspondiente. La valoración se realizará conforme a las siguientes reglas:
+a) Se identificarán las áreas temáticas y contenidos académicos comunes entre ambos programas.
+b) Se contabilizarán únicamente las horas efectivas de formación correspondientes a los contenidos considerados equivalentes.
+c) La equivalencia de contenidos se determinará cuando exista coincidencia sustancial en objetivos, competencias, resultados de aprendizaje o contenidos temáticos.
+d) No se considerarán para la medición actividades administrativas, ceremonias de graduación, requisitos de admisión, ni otras actividades que no formen parte del proceso formativo del programa.
