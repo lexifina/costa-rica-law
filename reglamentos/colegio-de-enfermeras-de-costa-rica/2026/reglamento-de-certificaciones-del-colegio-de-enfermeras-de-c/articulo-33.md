@@ -1,0 +1,1 @@
+Artículo 33. Vigencia. La publicación de este Reglamento de Certificaciones del Colegio de Enfermeras de Costa Rica fue aprobada en Asamblea General Extraordinaria del 28 de agosto de 2026. Rige a partir de su publicación en el Diario Oficial La Gaceta.

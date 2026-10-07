@@ -1,0 +1,9 @@
+Artículo 24. De las apelaciones. En el caso de las apelaciones por alguno de los requisitos abordados en el artículo 8 de este reglamento, se debe seguir el siguiente proceso:
+a) Presentación de la Apelación: La persona interesada debe presentar un documento formal dirigido a la Junta Directiva del Colegio de Enfermeras de Costa Rica en un plazo no mayor a 10 días hábiles posterior a recibida la notificación.
+La apelación debe incluir la identificación de la persona solicitante, la certificación en cuestión, la resolución apelada y una justificación detallada de la inconformidad.
+b) Recepción y Registro: La apelación será recibida por la Plataforma de Servicios del Colegio de Enfermeras de Costa Rica. Se verificará que el documento esté completo y cumpla con los requisitos establecidos.
+c) Revisión por la Unidad de Desarrollo Profesional: La Unidad de Desarrollo Profesional analizará la solicitud y emitirá un informe con una recomendación sobre la apelación en un plazo de 10 días hábiles. Si la apelación es válida, se revisará el caso y se considerará una nueva evaluación o revisión de documentos.
+d) Traslado a la Junta Directiva: La Junta Directiva revisará la apelación junto con el informe de la Unidad de Desarrollo Profesional. Se tomará una decisión sobre la aprobación o denegación de la apelación.
+e) Notificación de la Resolución: La Junta Directiva emitirá una resolución final sobre la apelación, la cual será comunicada a la persona interesada en un plazo de 30 días hábiles. En caso de rechazo de la apelación, se indicarán las razones específicas y se cerrará el proceso.
+f) Acciones posteriores: Si la apelación es aceptada, se procederá a la corrección de la resolución inicial y se otorgará la certificación si corresponde.
+Si la apelación es denegada, la persona interesada podrá volver a iniciar el proceso de certificación en un periodo de seis meses calendario.

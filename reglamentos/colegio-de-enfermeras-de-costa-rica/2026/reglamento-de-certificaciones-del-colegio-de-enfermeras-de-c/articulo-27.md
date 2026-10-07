@@ -1,0 +1,2 @@
+Artículo 27. De la Resolución Final. Posterior a la toma del acuerdo de Junta Directiva y traslado a la Unidad de Desarrollo Profesional, este órgano gestor emitirá una resolución final por medio de oficio a la persona solicitante. Este oficio indicará la aprobación o rechazo de la solicitud de forma final.
+En caso de los rechazos, se incluyen los criterios que justifican este. A partir de esta notificación, la persona solicitante podrá iniciar nuevamente con el proceso de entrega de documentación.

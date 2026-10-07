@@ -1,0 +1,1 @@
+Artículo 22. De la remisión del expediente. Cuando en las solicitudes de certificación una vez prevenidas y contestadas, persista la inconsistencia detectada, la Unidad de Desarrollo Profesional emitirá un acto administrativo de archivo definitivo y el expediente será archivado de manera inmediata sin informar o notificar a la persona solicitante.

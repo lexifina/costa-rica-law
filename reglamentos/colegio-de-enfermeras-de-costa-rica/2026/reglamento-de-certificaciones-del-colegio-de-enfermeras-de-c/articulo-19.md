@@ -1,0 +1,1 @@
+Artículo 19. Validación de requisitos. Una vez recibidos los documentos completos en la Plataforma de Servicios, se traslada el expediente correspondiente a la Unidad de Desarrollo Profesional para la revisión y validación de los requisitos.

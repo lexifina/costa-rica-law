@@ -1,0 +1,3 @@
+Artículo 18. Fechas y horario para recepción de documentos. La recepción de documentos físicos se realizará únicamente en horario hábil establecido por la institución. Se considerarán inhábiles los períodos de cierre institucional por vacaciones colectivas u otras disposiciones administrativas oficiales emitidas por la Junta Directiva.
+En el caso de documentos digitales, estos podrán ser enviados en cualquier momento, pero se considerará como fecha efectiva de recepción el primer día hábil posterior al envío, sujeto a los horarios de revisión dispuestos por el Colegio.
+Las personas interesadas deberán considerar los plazos establecidos en este reglamento para la revisión, validación y respuesta correspondiente sobre las solicitudes de certificación.

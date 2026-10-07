@@ -1,0 +1,1 @@
+Artículo 23. Aprobación. Una vez revisada la documentación respectiva y habiéndose llegado a una recomendación, se remite a la Junta Directiva quien tomará la decisión de aprobación o rechazo y lo hará constar en actas.
