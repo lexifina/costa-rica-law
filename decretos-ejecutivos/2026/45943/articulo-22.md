@@ -1,0 +1,1 @@
+ARTÍCULO 22. Fondo para el Fomento Audiovisual y Cinematográfico. El Fondo para el Fomento Audiovisual y Cinematográfico El Fauno, se guiará por lo establecido en el Reglamento del Fondo para el Fomento Audiovisual y Cinematográfico El Fauno”, Decreto Ejecutivo No. 44456-C del 10 de abril del 2024.
