@@ -1,0 +1,1 @@
+Artículo 3.- Cartel. Se autoriza al Departamento de Recursos Humanos y al Departamento de Asesoría Legal para que, de forma inmediata tras la firmeza del presente acuerdo, procedan a la confección y publicación del cartel del Concurso Público Abierto para el puesto de Gerente General, ajustado estrictamente a las reglas del Capítulo Especial aquí aprobado.
