@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE TIBÁS
+ADHESIÓN AL MANUAL DE VALORES BASE
+UNITARIOS POR TIPOLOGÍA CONSTRUCTIVA
+La Administración Tributaria, de conformidad con lo dispuesto en los artículos 3° y 12 inciso c) de la Ley del Impuesto sobre Bienes Inmuebles, Ley N° 7509 y sus reformas; el artículo 26 de su Reglamento, Decreto Ejecutivo N° 44414-H; la sentencia N° 1073-2010 del Tribunal Contencioso Administrativo, Sección Tercera; y la resolución N° 2011-003075 de la Sala Constitucional del 9 de marzo de 2011, en aras de dar cumplimiento a su competencia, procede a publicar su adhesión al Manual de Valores Base Unitarios por Tipología Constructiva 2023, publicado en el Alcance N° 187 al Diario Oficial La Gaceta N° 178 del 28 de setiembre de 2023, documento elaborado por la Dirección del Órgano de Normalización Técnica del Ministerio de Hacienda.
+Asimismo, la Municipalidad de Tibás se adhiere a la Resolución MH-DGT-TEMPORAL-RES-0004-2025, emitida por la Dirección General de Tributación y publicada en el Alcance Digital N° 154 a La Gaceta N° 226 del 2 de diciembre de 2025, mediante la cual se amplía el Manual de Valores Base Unitarios por Tipología Constructiva 2023, publicado en el Alcance N° 187 a La Gaceta N° 178 del 28 de setiembre de 2023.
+La presente adhesión regirá a partir de su publicación en el Diario Oficial La Gaceta.
