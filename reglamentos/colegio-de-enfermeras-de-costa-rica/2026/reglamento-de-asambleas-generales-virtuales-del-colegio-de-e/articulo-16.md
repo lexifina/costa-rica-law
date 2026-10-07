@@ -1,0 +1,1 @@
+Artículo 16. Seguridad digital y protección de datos. El Colegio adoptará medidas razonables de seguridad digital (cifrado, control de accesos, registro de eventos) y garantizará el tratamiento de los datos personales conforme a la Ley N.º 8968. Queda prohibida la divulgación, reproducción o uso no autorizado de las grabaciones, credenciales o datos personales.

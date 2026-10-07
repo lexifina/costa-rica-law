@@ -1,0 +1,1 @@
+Artículo 6. Registro previo. Toda persona agremiada deberá registrarse previamente para participar en la asamblea, según el procedimiento dispuesto en la convocatoria. El registro será individual, personal e intransferible, y generará credenciales únicas de acceso.

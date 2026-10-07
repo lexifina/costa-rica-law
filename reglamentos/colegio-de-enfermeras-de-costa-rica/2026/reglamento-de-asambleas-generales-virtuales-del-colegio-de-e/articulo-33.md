@@ -1,0 +1,1 @@
+Artículo 33. Expediente administrativo. Las actas, grabaciones, respaldos digitales y demás documentos relacionados con las asambleas serán custodiados por la dependencia institucional competente conforme a las políticas de archivo, conservación documental y protección de datos aplicables.

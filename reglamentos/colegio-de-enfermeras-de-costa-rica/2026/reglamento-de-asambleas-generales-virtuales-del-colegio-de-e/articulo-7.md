@@ -1,0 +1,1 @@
+Artículo 7. Verificación de identidad. La identidad de las personas agremiadas podrá verificarse mediante documento vigente y oficial, así como la licencia profesional vigente u otros mecanismos tecnológicos razonables que permitan su identificación.

@@ -1,0 +1,1 @@
+Artículo 14. Acta notarial. La totalidad de la asamblea será grabada, conforme a las disposiciones legales. El acta notarial debidamente protocolizada será la que indicará el desarrollo de la asamblea con sus incidencias y acuerdos adoptados.

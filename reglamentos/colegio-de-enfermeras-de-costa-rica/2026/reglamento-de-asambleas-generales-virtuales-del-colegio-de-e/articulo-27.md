@@ -1,0 +1,1 @@
+Artículo 27. Auditoría del sistema de votación. Los resultados del sistema electrónico de votación de la asamblea virtual serán reportados mediante un informe técnico que se anexará al expediente administrativo de la asamblea.

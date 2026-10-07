@@ -1,0 +1,1 @@
+Artículo 15. Interrupciones y contingencias técnicas. Ante fallas técnicas que afecten la continuidad de la asamblea, la Presidencia decretará un receso de hasta treinta (30) minutos. Si la falla no se restablece, la Junta Directiva convocará a continuar la asamblea en un plazo no mayor a diez (10) días hábiles, manteniendo el quórum y las decisiones adoptadas hasta ese momento.

@@ -1,0 +1,1 @@
+Artículo 22. Uso de la palabra. Las intervenciones tendrán una duración máxima de hasta cinco (5) minutos, salvo ampliación autorizada y fundamentada, por un periodo menor o igual, por parte de la Presidencia de la Asamblea cuando las circunstancias lo justifiquen.

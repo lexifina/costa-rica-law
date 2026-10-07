@@ -1,0 +1,1 @@
+Artículo 30. Juramentación. Las personas electas serán juramentadas en el mismo acto de la asamblea. La juramentación se realizará con cámara y micrófono activos, y quedará registrada íntegramente en la grabación oficial, salvo caso fortuito de fuerza mayor.

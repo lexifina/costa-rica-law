@@ -1,0 +1,1 @@
+Artículo 37. Interpretación. Las dudas que surjan en la aplicación de este Reglamento serán resueltas por la Junta Directiva, conforme a los principios rectores del artículo 4 y al marco legal vigente.

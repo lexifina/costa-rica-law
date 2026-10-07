@@ -1,0 +1,1 @@
+Artículo 26. Empate en las votaciones. En caso de empate en cualquier votación, se realizará una segunda votación de inmediato. Si el empate persiste, la Presidencia de la Junta Directiva tendrá voto de calidad para dirimir. En asuntos de elección de cargos, el empate se resolverá conforme al procedimiento establecido por el Tribunal Electoral Interno.

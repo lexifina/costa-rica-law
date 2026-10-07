@@ -1,0 +1,1 @@
+Artículo 29. Postulaciones. Las postulaciones para cargos de elección deberán presentarse en los plazos y con los requisitos dispuestos por el Tribunal Electoral Interno del Colegio. La Asamblea procederá a la votación conforme al procedimiento electoral vigente.

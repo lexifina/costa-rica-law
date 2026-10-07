@@ -1,0 +1,1 @@
+Transitorio III. Los instructivos técnicos y operativos, para las asambleas generales virtuales previstos en el presente Reglamento deberán ser aprobados por la Junta Directiva dentro del plazo establecido en el Transitorio I.

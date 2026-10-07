@@ -1,0 +1,1 @@
+Artículo 23. Gestión de la palabra. La plataforma tecnológica llevará un registro cronológico de las solicitudes, visible para la Presidencia. La Presidencia concederá la palabra respetando el orden de inscripción. En caso de que la persona agremiada se aparte de la discusión respectiva, podrá llamarle al orden.

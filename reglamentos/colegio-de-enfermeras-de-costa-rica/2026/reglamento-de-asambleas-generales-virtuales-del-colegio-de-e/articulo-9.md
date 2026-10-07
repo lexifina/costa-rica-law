@@ -1,0 +1,1 @@
+Artículo 9. Cierre del registro. El registro se cerrará al inicio de la asamblea, una vez verificado el quórum. Quienes se incorporen con posterioridad al inicio de la asamblea podrán participar con voz y voto, sin afectar la validez de los acuerdos previamente adoptados.

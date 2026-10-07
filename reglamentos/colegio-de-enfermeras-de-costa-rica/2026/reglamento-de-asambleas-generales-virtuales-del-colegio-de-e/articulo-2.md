@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones de este Reglamento son de acatamiento obligatorio para la Junta Directiva, los Tribunales Internos, las personas agremiadas, las comisiones y comités, el personal administrativo y el personal técnico que participe en la organización y celebración de Asambleas Generales.
