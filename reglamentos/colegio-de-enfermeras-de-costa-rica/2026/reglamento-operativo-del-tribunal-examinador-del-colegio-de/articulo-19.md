@@ -1,0 +1,1 @@
+Artículo 19. Inconformidad al resultado. El postulante podrá solicitar copia de su evaluación y presentar recurso de revocatoria con apelación en subsidio ante el Tribunal Examinador. En caso de rechazarse la revocatoria del Tribunal Examinador trasladará a la Junta Directiva el recurso de apelación.

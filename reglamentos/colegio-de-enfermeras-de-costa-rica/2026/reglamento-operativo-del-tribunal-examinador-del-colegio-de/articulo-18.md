@@ -1,0 +1,2 @@
+Artículo 18. Sobre la entrega de resultados. El Tribunal Examinador publicará los resultados, de forma individual en un plazo no mayor de diez días hábiles posterior a la realización de la prueba.
+Para lo cual el postulante contara con cinco días hábiles a partir de la notificación para emitir su inconformidad al resultado.

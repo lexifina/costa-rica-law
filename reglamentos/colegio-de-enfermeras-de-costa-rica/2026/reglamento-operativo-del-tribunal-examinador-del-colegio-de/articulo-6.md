@@ -1,0 +1,1 @@
+Artículo 6. Solicitudes completas. Recibida la solicitud y comprobado el cumplimiento de los requisitos del artículo 3 de este Reglamento; el Tribunal Examinador procederá a continuar con el proceso de evaluación.

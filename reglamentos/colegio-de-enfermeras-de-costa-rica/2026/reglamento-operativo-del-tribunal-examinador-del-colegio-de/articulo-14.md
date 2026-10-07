@@ -1,0 +1,1 @@
+Artículo 14. Calendarización del examen práctico. El examen práctico se convocará dos veces al año. Presentarse quince minutos antes de la hora programada y se dará quince minutos para dar tiempo a los postulantes por algún imprevisto. La primera convocatoria será el cuarto viernes de mayo y la segunda convocatoria será el cuarto viernes de noviembre.

@@ -1,0 +1,1 @@
+Artículo 5. Custodia del expediente. Vencido el plazo que indica el artículo 4 de este Reglamento, el Tribunal procederá de oficio a enviar el expediente al archivo central de la Corporación en un plazo impostergable de cinco días hábiles.
