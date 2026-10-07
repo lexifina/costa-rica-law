@@ -1,0 +1,1 @@
+Artículo 5. Uso de medios electrónicos. Todos los procedimientos de contratación de bienes, servicios y obras deberán, sin excepción, desarrollarse por medios electrónicos, mediante el Sistema Digital Unificado. Salvo las excepciones contenidas en el Artículo 16 LGCP, todas las comunicaciones, tanto internas como externas, deberán llevarse a cabo mediante dicho Sistema.

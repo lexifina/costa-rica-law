@@ -1,0 +1,3 @@
+Artículo 40. Finiquito contractual. Es responsabilidad del Administrador del Contrato gestionar la formalización del documento por medio del cual las partes ponen fin a su relación contractual. El finiquito es facultativo en los casos de contrataciones cuyo objeto son bienes o servicios y obligatorio en los contratos de obra pública.
+El finiquito no se puede realizar bajo protesta, como tampoco se le pueden incorporar enmiendas posteriores, y ello se explica dado que, una vez firmado el finiquito, se impiden los reclamos futuros, con excepción de la responsabilidad por vicios ocultos de la obra.
+El finiquito debe ser firmado por el Gerente General.

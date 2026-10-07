@@ -1,0 +1,9 @@
+Artículo 14. Responsabilidades de la Dirección de Administración y Finanzas. La DAF tendrá a su cargo las siguientes funciones relacionadas con los procesos de contratación:
+a. Proporcionar los insumos de índole financiero a la Proveeduría Institucional en el cumplimiento de sus funciones.
+b. De conformidad con el artículo 38 de la LGCP deberá autorizar el inicio de un procedimiento sin disponer de recursos presupuestarios totales o parciales por medio de una Carta de Compromiso Presupuestario.
+c. Autorizar las contrataciones de conformidad con el artículo 15 del reglamento a la LGCP, para proceder con la excepción de Reparaciones Indeterminadas, cuando se trate de casos calificados y de no existir un registro de oferentes precalificados como resultado de una licitación.
+d. Realizar el adecuado registro y control de las donaciones.
+e. Emitir el criterio técnico respecto del tipo de arrendamiento de bienes muebles, como equipo, maquinaria, con opción de compra o sin ella, cuando la Administración requiera optar por este tipo de contratos. Para ello deberá seguir los lineamientos en materia de registros contables o financieros que emita la Dirección General de Contabilidad Nacional o el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIFF) según el marco jurídico aplicable.
+f. Justificar la conveniencia y oportunidad de emplear las modalidades de arrendamiento frente a otras posibles opciones para satisfacer una determinada necesidad, conforme a la normativa aplicable.
+g. En el caso de procedimientos de contratación que tenga de por medio un contrato de arrendamiento operativo o financiero, un esquema de valoración del costo por medio de flujos de las cuotas del arrendamiento más la opción de compra traídos a valor presente a una tasa de descuento razonada para cada procedimiento de compra.
+h. Cualquier otra derivada de la Ley General de Contratación Pública, Nº 9986, su Reglamento y cualquier otra normativa aplicable.
