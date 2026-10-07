@@ -1,0 +1,3 @@
+Artículo 19.—Todas las sesiones del concejo de distrito serán públicas, pudiendo participar en ellas los (as) vecinos (as), en calidad de representantes de organizaciones comunales o en su calidad particular, para tal efecto cada concejo de distrito, establecerá hasta diez minutos para participaciones de organizaciones distritales, mediante el representante designado.
+En caso de participantes individuales de los vecinos dispondrán de hasta cinco minutos.
+Cuando se trate de la exposición de proyectos, se contará con hasta quince minutos por parte de la organización proponente, corresponderá a la presidencia regular el uso de la palabra.

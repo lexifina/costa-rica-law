@@ -1,0 +1,2 @@
+Artículo 12.—El síndico propietario fungirá como presidente del concejo de distrito, de su seno, el concejo de distrito elegirá a un(a) secretario(a) de manera pública por mayoría simple, quien durará en su cargo dos años, iniciando el primero de mayo del año electoral municipal y finalizando dos años posteriores a la elección como fecha máxima el treinta de abril, pudiendo ser reelecto.
+Asimismo, podrá constituir comisiones auxiliares de trabajo necesarias para la mejor atención de los problemas y soluciones de cada comunidad.

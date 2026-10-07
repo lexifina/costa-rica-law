@@ -1,0 +1,2 @@
+Artículo 7º—Los concejos de distrito impulsarán la mayor participación de los ciudadanos y las organizaciones sociales del distrito, en los temas que les afecten o interesen, y colaborarán en la vigilancia del buen desempeño de la gestión municipal.
+Los concejos de distrito deberán convocar a rendición de cuentas al menos una vez al año, en la primera quincena del mes de noviembre, con las organizaciones comunales del distrito y los vecinos que deseen participar para brindarles un informe de sus labores.

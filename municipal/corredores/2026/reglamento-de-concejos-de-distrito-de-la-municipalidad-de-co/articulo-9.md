@@ -1,0 +1,1 @@
+Artículo 9º—Las asociaciones de desarrollo y las organizaciones sociales sin fines de lucro podrán asistir a los concejos de distrito por medio de un representante, participando con voz en las sesiones del concejo de distrito, previa aprobación del presidente del concejo distrito y debidamente agendado.

@@ -1,0 +1,1 @@
+Artículo 2º—El propósito del presente Reglamento es regular el funcionamiento de los concejos de distrito del cantón de Corredores, las Comisiones Especiales que sean necesarias, proyectos de cooperación nacionales y privado atinente a los distritos que los atiende y el trámite de las partidas específicas asignadas al cantón.

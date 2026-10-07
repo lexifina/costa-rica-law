@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones ordinarias deben efectuarse en el domicilio aprobado, pudiendo celebrar sesiones extraordinarias en otros distritos del mismo cantón para tratar asuntos interdistritales, o fuera del cantón para tratar temas de interés zonal, regional, provincial o nacional.
