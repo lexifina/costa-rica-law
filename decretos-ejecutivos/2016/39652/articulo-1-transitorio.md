@@ -1,2 +1,0 @@
-Transitorio I.—El periodo de tiempo de transición para que las Instituciones del Sector Salud se ajusten y cumplan con las normas y estándares de interoperabilidad definidos en el Capítulo V de este Decreto Ejecutivo será de 2 años.
-Las normas y estándares que deberán adoptar serán las que correspondan según los procesos y sistemas que tengan cada una de las instituciones de dentro de sus funciones y en apego estricto en lo establecido en el Capítulo V del presente decreto.
