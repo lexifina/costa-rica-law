@@ -1,0 +1,13 @@
+Artículo 27.- Derecho de autodeterminación informativa e información sobre consultas. Las personas titulares de los datos podrán ejercer los derechos reconocidos por la legislación vigente en materia de protección de datos personales, por lo que podrán solicitar información sobre las consultas realizadas respecto de sus datos en el sistema regulado por este Reglamento.
+La solicitud deberá presentarse ante la Dirección General del Registro Civil por los medios que esta habilite. La persona solicitante deberá acreditar su identidad e indicar el período respecto del cual requiere la información. Cuando la gestión sea presentada por representante, deberá acreditarse la representación correspondiente.
+Verificada la identidad y la legitimación de la persona solicitante, la Dirección General del Registro Civil consultará las bitácoras del sistema y emitirá un informe dentro del plazo establecido en la legislación aplicable.
+El informe contendrá, según la información disponible:
+a) La fecha y hora de cada consulta registrada.
+b) El tipo de perfil utilizado para realizar la consulta.
+c) La institución, organización o dependencia pública vinculada con la cuenta consultante, cuando esa información conste en el sistema.
+d) Cuando la consulta haya sido realizada mediante un perfil diferenciado, la identificación de la persona usuaria que la efectuó y de la entidad con la cual se encuentre vinculada. En las consultas generales, se informará el tipo de cuenta y los demás datos necesarios para acreditar la trazabilidad.
+e) El tipo de consulta realizada o las categorías de datos visualizadas, cuando esa información conste en la bitácora.
+La información suministrada se limitará a los datos que consten en las bitácoras y registros de trazabilidad del sistema. La Dirección General del Registro Civil podrá reservar total o parcialmente información cuando su entrega afecte derechos de terceras personas, comprometa la seguridad del sistema o pueda perjudicar una investigación administrativa, disciplinaria, policial o judicial en curso.
+En el caso de perfiles diferenciados que correspondan a funcionarios públicos se facilitará el código del servidor que efectúo la consulta. La asociación de este código con la identidad de la persona funcionaria pública será responsabilidad de la entidad pública titular de la autorización.
+Toda denegatoria total o parcial deberá constar en resolución motivada y señalar los recursos administrativos procedentes.
+La Dirección General del Registro Civil habilitará formularios y canales accesibles para la presentación y seguimiento de estas solicitudes.

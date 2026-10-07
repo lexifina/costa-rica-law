@@ -1,0 +1,2 @@
+Artículo 9.- Minimización, enmascaramiento y servicios automatizados. El sistema aplicará técnicas de minimización, enmascaramiento parcial y demás medidas funcionales que reduzcan riesgos sin impedir la finalidad legítima del servicio.
+No podrán habilitarse servicios de descarga masiva, reutilización automatizada, extracción sistemática, indexación por motores de búsqueda o interfaces de programación que comprendan datos personales.

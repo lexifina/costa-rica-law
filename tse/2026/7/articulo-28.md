@@ -1,0 +1,2 @@
+Artículo 28.- Coordinación institucional. La Dirección General del Registro Civil y la Dirección General de Estrategia Tecnológica coordinarán las acciones necesarias para el adecuado funcionamiento del sistema, la protección de la información, la trazabilidad de las consultas y la atención de las personas usuarias.
+Asimismo, ambas dependencias promoverán la mejora continua de los mecanismos de autenticación, control y supervisión previstos en este Reglamento.

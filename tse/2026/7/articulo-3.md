@@ -1,0 +1,1 @@
+Artículo 3.- Finalidades. El sistema de consulta de datos personales tendrá por finalidad agilizar la comprobación de hechos vitales y actos civiles inscritos, atender necesidades de identificación y verificación jurídicamente legítimas, así como apoyar el ejercicio de competencias públicas o profesionales que requieran información registral civil.

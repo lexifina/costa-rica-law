@@ -1,0 +1,2 @@
+Artículo 18.- Examen de admisibilidad y prevención. La Dirección General del Registro Civil verificará la competencia, identidad, integridad documental y precisión de la finalidad. Si la solicitud presenta defectos subsanables, prevendrá a la parte interesada por una sola vez su corrección, indicando de manera clara lo requerido y el plazo aplicable conforme al ordenamiento administrativo.
+El incumplimiento de la prevención permitirá archivar la solicitud, mediante resolución motivada, sin perjuicio de una nueva gestión.

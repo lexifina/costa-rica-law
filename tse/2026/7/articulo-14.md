@@ -1,0 +1,2 @@
+Artículo 14.- Acceso general. El perfil de acceso general se asignará a la persona que complete satisfactoriamente el registro, la validación de identidad y la aceptación de las condiciones de uso.
+El Tribunal Supremo de Elecciones podrá establecer límites razonables de frecuencia, volumen y simultaneidad para prevenir abusos y proteger la disponibilidad del servicio. Tales límites deberán ser objetivos, no discriminatorios y compatibles con las necesidades ordinarias de consulta.

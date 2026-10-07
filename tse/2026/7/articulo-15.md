@@ -1,0 +1,1 @@
+Artículo 15.- Auto consulta de datos personales. El Tribunal Supremo de Elecciones permitirá acceder, además de la información de acceso general, a los datos excluidos de la consulta pública, tales como nombres de hijas e hijos, el detalle de matrimonios, divorcios, separaciones, viudez, al titular de sus datos personales.

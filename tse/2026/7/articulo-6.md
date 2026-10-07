@@ -1,0 +1,2 @@
+Artículo 6.- Regla de clasificación La condición pública de un registro no convierte automáticamente todos los datos que contiene en datos de acceso irrestricto. La determinación del nivel de acceso atenderá a la ley, a la finalidad registral, al contexto de publicación, al riesgo de afectación de derechos y a los principios de necesidad y proporcionalidad.
+En caso de duda razonable sobre la procedencia de la exposición abierta deun dato, se aplicará preventivamente el nivel de acceso más restrictivo.

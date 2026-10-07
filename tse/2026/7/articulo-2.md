@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación. Sus disposiciones son aplicables a toda persona física, institución pública, organización privada o profesional que consulte datos personales por medio del sistema web institucional, así como a las dependencias del Tribunal que administren, autoricen, desarrollen, mantengan, auditen o supervisen ese servicio.
+En ningún caso, los accesos diferenciados implicarán una transferencia de datos y solamente se limitarán a una consulta de mayor alcance que la genérica.

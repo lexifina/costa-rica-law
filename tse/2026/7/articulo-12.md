@@ -1,0 +1,2 @@
+Artículo 12.- Términos y condiciones de uso. Previo a la habilitación de la cuenta, el Tribunal Supremo de Elecciones informará de manera clara y accesible los términos y las condiciones de uso del sistema de consulta. La aceptación de estas condiciones acreditará el conocimiento y compromiso de la persona usuaria respecto de las reglas del servicio.
+Cada acceso al sistema efectuado por la persona usuaria constituirá un nuevo acuerdo de aceptación de los términos y condiciones de uso del sistema.
