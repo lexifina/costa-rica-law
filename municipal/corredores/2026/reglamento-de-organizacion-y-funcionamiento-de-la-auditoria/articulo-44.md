@@ -1,0 +1,1 @@
+Artículo 44. DOCUMENTACIÓN DE LA AUDITORÍA. Todos los hallazgos, conclusiones y recomendaciones deben ser documentados adecuadamente en los papeles de trabajo de la auditoría. Estos documentos deben ser completos, claros y concisos, y deben permitir la verificación independiente de los resultados de la auditoría.

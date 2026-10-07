@@ -1,0 +1,1 @@
+Artículo 27. MOVIMIENTO DE PRESUPUESTO. Los movimientos de recursos asignados a la Auditoría Interna deben contar con la autorización por escrito del Auditor Interno y considerar el criterio del titular de dicha unidad.

@@ -1,0 +1,4 @@
+Artículo 64. CIERRE Y CONTROL DE LAS DENUNCIAS. La Auditoría Interna llevará un registro y control de las denuncias recibidas, tramitadas y concluidas, de conformidad con la normativa emitida por la Contraloría General de la República.
+Este control incluirá la documentación de las gestiones realizadas, la resolución administrativa o la relación de hechos emitida, así como el registro de los traslados efectuados a las instancias competentes.
+Las denuncias no generan recomendaciones ni seguimiento posterior, salvo la verificación documental de que las actuaciones hayan sido comunicadas correctamente a las autoridades correspondientes.
+La Auditoría Interna deberá conservar los expedientes bajo las condiciones de confidencialidad establecidas por la Ley General de Control Interno y las normas archivísticas nacionales.

@@ -1,0 +1,2 @@
+Artículo 62. APROBACIÓN Y DISTRIBUCIÓN DEL INFORME. El informe de investigación será revisado y aprobado por el Auditor Interno antes de su distribución. Una vez aprobado, el informe será comunicado a la administración y al jerarca correspondiente.
+Los informes que involucren presuntos hechos de corrupción deberán ser presentados al Concejo Municipal y a la Contraloría General de la República, conforme a lo establecido en el Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 32333.

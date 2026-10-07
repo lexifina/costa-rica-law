@@ -1,0 +1,3 @@
+Artículo 14. PROGRAMA ASEGURAMIENTO Y MEJORA DE LA CALIDAD. La Auditoría Interna desarrollará e implementará un programa de aseguramiento y mejora de la calidad de la actividad de auditoría, conforme a las Directrices R-CO-33-2008 y los lineamientos de la Contraloría General de la República.
+Este programa comprenderá la realización de autoevaluaciones internas anuales y evaluaciones externas al menos cada cinco años o cuando así lo disponga la Contraloría.
+Los resultados deberán ser comunicados al Concejo Municipal y a la Contraloría General de la República, sirviendo de base para la mejora continua de la función de auditoría interna.

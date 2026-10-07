@@ -1,0 +1,1 @@
+Artículo 46. SEGUIMIENTO DE RECOMENDACIONES. La Auditoría Interna debe dar seguimiento a las recomendaciones emitidas en los informes de auditoría para asegurarse de que se implementen adecuadamente. El seguimiento debe incluir la verificación de las acciones correctivas tomadas y la evaluación de su efectividad.

@@ -1,0 +1,1 @@
+Artículo 59. PROCEDENCIA DE LA DENUNCIA. Si la denuncia es considerada procedente, la Auditoría Interna procederá a la investigación conforme a los criterios establecidos en los lineamientos y el reglamento mencionado. En caso contrario, se archivará la denuncia y se informará al denunciante, si es posible.

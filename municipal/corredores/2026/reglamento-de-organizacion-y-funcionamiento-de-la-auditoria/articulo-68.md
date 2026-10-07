@@ -1,0 +1,1 @@
+Artículo 68. INTERPRETACIÓN. Cualquier duda o discrepancia en la interpretación de las disposiciones contenidas en el presente reglamento será resuelta por el Concejo Municipal, con base en la normativa aplicable y los principios generales del derecho administrativo.

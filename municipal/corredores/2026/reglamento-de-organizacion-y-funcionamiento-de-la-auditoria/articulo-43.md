@@ -1,0 +1,1 @@
+Artículo 43. EJECUCIÓN DEL TRABAJO DE AUDITORÍA. La ejecución del trabajo de auditoría debe realizarse de acuerdo con las Normas para el Ejercicio de la Auditoría Interna en el Sector Público emitidas por la Contraloría General de la República. Los auditores deben obtener y analizar la evidencia suficiente y apropiada para respaldar sus conclusiones.

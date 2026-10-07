@@ -1,0 +1,1 @@
+Artículo 18. PROTECCIÓN AL PERSONAL. Cuando el personal de auditoría, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, la institución dará todo su respaldo, tanto jurídico como técnico, y cubrirá los costos para atender ese proceso hasta su resolución final, conforme a lo dispuesto en la Ley General de Control Interno.

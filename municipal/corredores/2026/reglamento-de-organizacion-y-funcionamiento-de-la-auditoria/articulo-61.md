@@ -1,0 +1,11 @@
+Artículo 61. CONCLUSION DEL PROCESO DE INVESTIGACIÓN. Las investigaciones realizadas por la Auditoría Interna como resultado de denuncias se documentarán de conformidad con los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares (R-DC-102-2019), la R-DC-082-2020 “Lineamientos para la atención de denuncias presentadas ante la Contraloría General de la República”, y el Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Decreto Ejecutivo N.º 32333-MP-PLAN-JG).
+Una vez concluidas las diligencias, la Auditoría Interna elaborará un informe interno de cierre de investigación, en el cual se dejará constancia de las actuaciones realizadas, las evidencias recopiladas y las conclusiones obtenidas, sin emitir recomendaciones, ya que este proceso no constituye una auditoría ni un estudio de control interno.
+Cuando de las diligencias practicadas se deriven elementos suficientes para considerar, al menos en grado de probabilidad, la ocurrencia de hechos presuntamente irregulares, la Auditoría Interna elaborará una Relación de Hechos, de conformidad con el artículo 17 del Decreto 32333, documento que deberá contener:
+a) La identificación del asunto y de las personas involucradas (cuando proceda).
+b) Una descripción objetiva y cronológica de los hechos verificados.
+c) Las normas presuntamente vulneradas.
+d) Los elementos probatorios que sustentan la relación.
+e) La indicación de la autoridad competente a la que se traslada el caso.
+Dicha relación de hechos tendrá carácter confidencial y reservado y se remitirá a la instancia competente según la naturaleza del hecho (Contraloría General, Ministerio Público, Procuraduría General de la República o jerarquía administrativa), conforme a los artículos 14 al 18 del Reglamento a la Ley 8422.
+En los casos en que no se acrediten elementos suficientes para presumir una irregularidad, la Auditoría Interna emitirá una resolución administrativa de archivo, debidamente motivada, en observancia del principio de objetividad y proporcionalidad.
+Las diligencias, relaciones de hechos y resoluciones de archivo deberán conservarse en expedientes individuales bajo estrictas condiciones de confidencialidad, según lo dispone la Ley General de Control Interno, la Ley 8422 y el Reglamento citado.

@@ -1,0 +1,1 @@
+Artículo 69. PUBLICACIÓN Y DIFUSIÓN. El presente reglamento deberá ser publicado en el Diario Oficial y difundido a través de los medios de comunicación institucionales para asegurar su conocimiento por parte de todos los funcionarios y partes interesadas. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

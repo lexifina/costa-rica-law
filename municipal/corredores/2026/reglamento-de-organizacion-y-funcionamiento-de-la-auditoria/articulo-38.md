@@ -1,0 +1,2 @@
+SECCIÓN TERCERA - De la planificación y programación del trabajo de auditoría
+Artículo 38. PLAN ANUAL DE TRABAJO. La Auditoría Interna deberá preparar cada año un plan anual de trabajo basado en los lineamientos establecidos por la Contraloría General de la República, el cual deberá estar alineado con el Plan Anual Operativo y el Plan Estratégico Institucional. El plan anual de trabajo debe incluir las auditorías y estudios especiales a realizarse, así como las actividades preventivas y demás servicios que prestará la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 66. MODIFICACIONES. Las modificaciones al presente reglamento deberán ser aprobadas por el Concejo Municipal, previa autorización de la Contraloría General de la República, y se realizarán conforme a lo establecido en la normativa vigente.

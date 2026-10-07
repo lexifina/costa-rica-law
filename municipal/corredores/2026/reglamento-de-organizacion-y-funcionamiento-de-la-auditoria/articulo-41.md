@@ -1,0 +1,1 @@
+Artículo 41. COORDINACIÓN CON OTRAS INSTANCIAS. La Auditoría Interna debe coordinar sus actividades con otras instancias de control interno y externo para evitar duplicidades y asegurar una cobertura eficiente y eficaz de las áreas de riesgo. Esta coordinación incluye el intercambio de información y la realización de auditorías conjuntas cuando sea pertinente.

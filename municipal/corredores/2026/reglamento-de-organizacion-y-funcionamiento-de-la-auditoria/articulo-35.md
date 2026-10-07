@@ -1,0 +1,2 @@
+Artículo 35. TIPOS DE SERVICIOS. Los servicios brindados por parte de la Auditoría Interna se dividen en servicios de auditoría y servicios preventivos.
+Los funcionarios de Auditoría Interna diseñarán, según las circunstancias, documentarán e implantarán los procesos de los servicios que preste, así como elaborarán y actualizarán el Manual de Políticas y Procedimientos de la Auditoría Interna de la Municipalidad de Corredores para su correcta administración.

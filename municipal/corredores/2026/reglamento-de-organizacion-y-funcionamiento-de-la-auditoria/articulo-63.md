@@ -1,0 +1,1 @@
+Artículo 63. PROTECCIÓN DEL DENUNCIANTE. La Auditoría Interna garantizará la confidencialidad de la identidad del denunciante y protegerá a los denunciantes de cualquier represalia. Las denuncias anónimas también serán aceptadas y tramitadas conforme a lo establecido en la normativa vigente, incluyendo los lineamientos y el reglamento aplicables.
