@@ -1,2 +1,2 @@
-Artículo 26.-Derogatoria. El presente reglamento deroga cualquier otra norma anterior que se le oponga.
-Rige a partir de su publicación en el diario oficial La Gaceta.
+Artículo 26.—Modalidad abierta y garantía de libre concurrencia. Para proveer el puesto de Gerente General, se autoriza la convocatoria a un Concurso Público Abierto. En dicho concurso podrán participar, en condiciones de absoluta igualdad, libre concurrencia y no discriminación, tanto las personas funcionarias regulares e interinas de la Asamblea Legislativa como personas aspirantes externas a la institución. Todos los participantes concursarán sometidos a los mismos requisitos, predictores, pruebas técnicas e instrumentos de evaluación.
+(Así adicionado en sesión N° 023 del 7 de octubre de 2026)

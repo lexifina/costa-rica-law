@@ -1,0 +1,2 @@
+Artículo 32.- Agotamiento del registro de elegibles. El registro de elegibles que resulte de este concurso se agotará de manera definitiva e inmediata en el momento en que el Directorio Legislativo efectúe el nombramiento formal de la persona Gerente General. Ante cualquier vacancia futura, la Administración deberá convocar a un nuevo concurso público.
+(Así adicionado en sesión N° 023 del 7 de octubre de 2026)

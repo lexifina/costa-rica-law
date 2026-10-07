@@ -14,3 +14,4 @@ Reglamento de selección y nombramiento de personal mediante concursos de la Asa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-11-28 | la propia norma |
+| 2 | 2026-10-07 | Reglamento 23 (2026-10-07) |

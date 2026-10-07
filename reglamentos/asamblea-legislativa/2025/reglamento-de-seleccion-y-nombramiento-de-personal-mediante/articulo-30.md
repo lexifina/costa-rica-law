@@ -1,0 +1,4 @@
+Artículo 30.- Período de prueba y consecuencias jurídicas. La persona designada asumirá el cargo sujeto a un período de prueba de seis meses; que podría prorrogarse hasta por un periodo igual por una sola vez, por tratarse de un cargo de alta dirección pública.
+Durante dicho período, su gestión será evaluada mediante los Indicadores Clave de Rendimiento fijados por el Directorio en el acuerdo de nombramiento.
+Si la persona seleccionada fuere funcionaria regular en propiedad de la Asamblea Legislativa y no aprobare el período de prueba, retornará de inmediato a su puesto de origen en la carrera legislativa. Si la persona proviniere del sector externo o no ostentare titularidad previa en la institución, la no aprobación del período de prueba acordará el cese inmediato de la relación de servicio sin responsabilidad patronal.
+(Así adicionado en sesión N° 023 del 7 de octubre de 2026)
