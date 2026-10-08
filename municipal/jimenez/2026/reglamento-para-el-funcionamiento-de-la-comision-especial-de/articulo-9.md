@@ -1,0 +1,1 @@
+Artículo 9º—Las sesiones de la Comisión Especial del Plan Regulador serán públicas y se transmitirán en vivo a través del medio digital oficial determinado en su primera sesión, al menos, una vez al mes.

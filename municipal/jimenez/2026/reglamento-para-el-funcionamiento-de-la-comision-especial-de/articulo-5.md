@@ -1,0 +1,3 @@
+Artículo 5º—No podrán integrar la Comisión Especial del Plan Regulador los funcionarios que ocupen los puestos de: Tesorero Municipal, Auditor Municipal, Contador Municipal y Dirección de Hacienda Municipal, así como sus cónyuges o parientes hasta el segundo grado de consanguinidad o afinidad, ya sean directos o colaterales.
+Lo mismo aplica para los cónyuges y familiares —bajo los mismos términos de parentesco— del alcalde municipal, vicealcaldes, regidores del Concejo Municipal, así como del intendente, viceintendente y concejales del Concejo Municipal de Distrito.
+Esta prohibición de integración se extiende igualmente a todas las personas miembros que hayan sido nombradas para conformar el Comité Técnico del Plan Regulador.

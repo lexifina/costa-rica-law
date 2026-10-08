@@ -1,0 +1,1 @@
+Artículo 12º—Las sesiones de la Comisión deberán iniciarse dentro de los quince minutos siguientes a la hora señalada para el inicio de la misma, conforme el reloj del local donde se lleve a cabo la sesión de comisión.

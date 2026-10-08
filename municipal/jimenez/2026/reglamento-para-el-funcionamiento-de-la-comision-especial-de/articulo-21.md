@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se produzca alguna destitución de un miembro de esta Comisión, el Concejo deberá comunicar mediante acuerdo a la persona destituida y a las demás partes intervinientes en el proceso de Plan Regulador. Una vez el acto de destitución se encuentre en firme, se realizará el procedimiento de elección conforme a lo dispuesto en este reglamento.
