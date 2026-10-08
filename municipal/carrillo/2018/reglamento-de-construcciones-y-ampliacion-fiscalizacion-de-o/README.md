@@ -16,3 +16,4 @@ Reglamento de construcciones y ampliación fiscalización de obras, movimiento d
 | 1 | 2018-07-20 | la propia norma |
 | 2 | 2021-08-10 | Reglamento municipal 32 (2021-08-10) |
 | 3 | 2022-01-13 | Reglamento municipal 1 (2022-01-13) |
+| 4 | 2026-10-08 | Reglamento municipal 44 (2026-10-08) |
