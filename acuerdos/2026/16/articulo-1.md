@@ -1,0 +1,25 @@
+SUPERINTENDENCIA GENERAL DE VALOR
+A-16-2026. modificación del apartado “Condiciones para Valores de Renta Fija” del Punto 4a.1 De la Sección “Política de Inversión y Disposiciones Operativas” del Anexo 1, contenido en el acuerdo SGV-A-158 “Guía para la Elaboración y Remisión de Prospectos de Fondos de Inversión”. Despacho del Intendente. A las dieciséis horas y veintisiete minutos del tres de setiembre del 2026.
+Considerando que:
+1. De conformidad con el artículo 8 de la Ley Reguladora del Mercado de Valores, corresponde al Superintendente General de Valores adoptar las acciones necesarias para el cumplimiento efectivo de las funciones de regulación, fiscalización y supervisión que competen a la Superintendencia General de Valores.
+2. El Consejo Nacional de Supervisión del Sistema Financiero, mediante el artículo 9 del acta de la sesión 1970-2025, celebrada el 16 de setiembre de 2025, publicado en el Alcance N° 125 a La Gaceta del 30 de setiembre de 2025, aprobó un conjunto de modificación al Acuerdo SUGEVAL 08-09, Reglamento sobre Sociedades Administradoras y Fondos de Inversión.
+3. A partir de estas modificaciones, y de acuerdo con lo dispuesto en el artículo 56 -Diversificación- del citado reglamento, para cada fondo de inversión se debe revelar, en la política de inversión, una exposición clara y detallada de su estrategia de diversificación, que al menos se refiera a los siguientes elementos:
+a. Los tipos de valores, emisores, monedas y mercados aceptables para invertir.
+b. Los límites mínimos y máximos por tipo de valor, por tipo de emisor, por moneda y por mercado.
+c. En el caso de fondos de inversión abiertos, niveles mínimos y máximos de recursos necesarios para gestionar el riesgo de liquidez y especificar los instrumentos que se utilizan para gestionar la liquidez.
+d. La política en relación con los depósitos a la vista.
+e. Duración mínima, máxima y promedio de las inversiones tratándose de valores de renta fija.
+4. Mediante Acuerdo SGV-A-11-2026 del 18 de mayo de 2026 se modificó la Guía para la elaboración y remisión de prospectos de fondos de inversión, contenida en el Acuerdo SGV-A-158 para adecuar su contenido al nuevo marco regulatorio, según las normas aprobadas por el Conassif en la sesión 1970-2025 del 16 de setiembre de 2025.
+5. La duración promedio de los activos de renta fija, refleja una característica de la cartera en un momento determinado y puede variar, entre otros factores, por movimientos en las tasas de interés, cambios en la valoración de los instrumentos, vencimientos, suscripciones, reembolsos y operaciones propias de la gestión del portafolio, consecuentemente, la revelación del promedio en el prospecto constituye un valor objetivo de gestión, hacia el cual debe orientarse la administración de la cartera, y no un límite puntual de cumplimiento permanente, como sí lo son los límites mínimo y máximo establecidos en el prospecto.
+6. Los términos en que se requiere la revelación de la Duración promedio en días, en la guía de prospectos sugiere el cumplimiento de un valor permanente, por lo que es necesario modificar su descripción de manera que se recoja el carácter variable del dato.
+7. De acuerdo con lo dispuesto en el artículo 361 de la Ley General de la Administración Pública, Ley 6227, mediante el oficio C03/1489, del 17 de agosto de 2026, la Superintendencia General de Valores remitió en consulta el proyecto de modificación del apartado “Condiciones para valores de renta fija” del punto 4A.1 de la sección “Política de inversión y disposiciones operativas” del Anexo 1 “Guía para la elaboración de prospectos de fondos de inversión”, contenido en el Acuerdo SGV-A-158, a las entidades que podrían resultar afectadas por la disposición, con el propósito de que expusieran su parecer dentro del plazo concedido; sin que a su vencimiento se recibieran observaciones.
+8. Mediante la resolución SGV-R-99-2024 del 23 de mayo del 2024, publicada en La Gaceta N° 101 del miércoles 5 de junio del 2024, el Superintendente ordenó la delegación parcial de las competencias señaladas en el artículo 8 de la Ley Reguladora del Mercado de Valores indicadas para el Superintendente General de Valores en el Intendente General de Valores, con carácter de excepción y por casos específicos.
+Dispone:
+SGV-A-16-2026. Modificación del apartado “Condiciones para valores de renta fija” del punto 4A.1 de la Sección “Política de Inversión y Disposiciones Operativas” del Anexo 1, contenido en el acuerdo SGV-A-158 “Guía para la Elaboración y Remisión de Prospectos de Fondos de Inversión”.
+Único: Modificar lo dispuesto en el apartado “Condiciones para valores de renta fija” del punto 4A.1 de la sección “Política de inversión y disposiciones operativas” del Anexo 1 “Guía para la elaboración de prospectos de fondos de inversión”, contenido en el Acuerdo SGV-A-158, de conformidad con el siguiente texto:
+“2. Política de Inversión y Disposiciones Operativas.
+4A. Política de inversión.
+4A. 1 En el caso de que el fondo invierta en activos financieros:
+[imagen]
+[imagen]
+Rige a partir de su comunicación.
