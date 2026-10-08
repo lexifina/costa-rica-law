@@ -13,3 +13,4 @@ Adición a la Circular N° 138-2021, referente al "Procedimiento para el uso y a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-25 | la propia norma |
+| 2 | 2026-10-08 | Circular 181 (2026-10-08) |
