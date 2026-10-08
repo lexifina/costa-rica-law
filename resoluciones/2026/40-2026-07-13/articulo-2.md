@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número MH-DGH-RES-0025-2026 del 09 de abril de 2026, publicada en La Gaceta número 74 del 23 de abril de 2026.
