@@ -14,3 +14,4 @@ Reglamento Municipal para la gestión integral de residuos sólidos en el cantó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-19 | la propia norma |
+| 2 | 2026-10-08 | Reglamento municipal 44 (2026-10-08) |
