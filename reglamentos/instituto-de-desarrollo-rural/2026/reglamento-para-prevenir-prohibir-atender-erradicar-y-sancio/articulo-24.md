@@ -1,0 +1,2 @@
+Artículo 24- De los apoyos y ajustes razonables para la interposición de denuncias por parte de personas con discapacidad.
+El Instituto deberá garantizar la recepción de denuncias en condiciones de accesibilidad, mediante la aplicación de los apoyos necesarios y ajustes razonables, para que las personas con discapacidad puedan interponer la denuncia, tanto de forma oral como escrita, en condiciones de igualdad y no discriminación, de conformidad con la normativa vigente. La ausencia de dichos apoyos no podrá constituirse en un obstáculo para la recepción de la denuncia.

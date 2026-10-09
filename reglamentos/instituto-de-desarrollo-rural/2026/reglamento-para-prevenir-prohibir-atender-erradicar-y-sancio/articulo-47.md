@@ -1,0 +1,5 @@
+SECCIÓN IV. ADMINISTRACIÓN DE FALTAS Y SANCIONES.
+Artículo 47- Sanciones.
+Las sanciones por hostigamiento sexual para personas funcionarias del Instituto son las indicadas en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia N° 7476: amonestación escrita, suspensión de días sin goce de salario y despido. Las sanciones serán aplicadas, según los principios constitucionales de razonabilidad y proporcionalidad, entre otros, de forma tal que las mismas correspondan a la gravedad del hecho.
+Las sanciones disciplinarias aplicadas por hostigamiento sexual de conformidad a lo dispuesto en el párrafo anterior se realizarán sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo establecido en el Código Penal. Conforme a la Ley No. 9969, Ley para garantizar la publicidad de las sanciones firmes impuestas por conductas de hostigamiento sexual.
+El órgano director determinará la gravedad conforme lo establecido en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia N° 7476.

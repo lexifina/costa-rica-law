@@ -1,0 +1,6 @@
+Artículo 18- Denuncias por parte de menores de edad.
+En el caso de las personas menores de edad, en todos los procedimientos disciplinarios especiales por presunto hostigamiento sexual el órgano director tendrá la obligación de notificarle al PANI para que esta estime si participa o no como coadyuvante del procedimiento.
+Cuando la persona presunta víctima de hostigamiento sexual sea menor de edad podrá interponer la denuncia personalmente. También podrán interponer la denuncia sus padres, sus representantes legales o el Patronato Nacional de la Infancia (PANI).
+a) Si se trata de una persona mayor de quince años, pero menor de dieciocho, estará legitimada para constituirse como parte del procedimiento de conformidad con el Código de la Niñez y la Adolescencia.
+b) Si se trata de una persona menor de quince años podrá ser representada por sus padres, sus representantes legales o por el Patronato Nacional de la Infancia.
+Dentro del procedimiento especial por presunto hostigamiento sexual que involucre como partes a personas menores de edad, el órgano director deberá cumplir con las disposiciones del Código de la Niñez y la Adolescencia, siempre y cuando las condiciones institucionales así lo permitan.

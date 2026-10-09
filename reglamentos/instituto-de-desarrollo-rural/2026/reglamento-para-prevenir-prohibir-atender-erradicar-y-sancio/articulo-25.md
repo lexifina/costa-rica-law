@@ -1,0 +1,3 @@
+Artículo 25- Del plazo para interponer la denuncia y prescripción del procedimiento.
+El plazo para interponer la denuncia será de ocho años de conformidad con la Ley 10029 y se computará a partir del último acto que constituya hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar; en el caso de las personas menores de edad, este plazo se computará a partir del momento en el que alcancen la mayoría de edad.
+El plazo de prescripción una vez que se inicie el Procedimiento especial por presunto hostigamiento sexual se computará de conformidad con las disposiciones del Código de Trabajo y de la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia, N° 7476.

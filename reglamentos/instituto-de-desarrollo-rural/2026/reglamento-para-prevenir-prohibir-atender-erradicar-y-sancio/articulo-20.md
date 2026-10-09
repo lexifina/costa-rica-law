@@ -1,0 +1,5 @@
+Artículo 20- De las denuncias contra personas que conforman los Consejos Territoriales, estudiantes que realizan proyectos académicos en el Instituto o personas trabajadoras de las organizaciones sociales del Instituto.
+Las denuncias preferiblemente deberán ser presentadas por escrito ante la Presidencia Ejecutiva del Instituto, ya sea de forma física o de forma digital mediante la dirección de correo electrónico exclusiva para este fin. Según sea el caso, con las siguientes copias:
+a) En el caso de miembros de los Consejos Territoriales, y dependiendo de quien sea la persona denunciada con copia a la fiscalía o a la Presidencia de dicho Consejo. Para el trámite administrativo correspondiente.
+b) En el caso de estudiantes que realizan proyectos académicos en el Instituto, con copia a Capital Humano para el trámite administrativo correspondiente ante el Centro Educativo.
+c) En el caso de las personas trabajadoras de las organizaciones sociales del Instituto, con copia a la fiscalía o a la Presidencia de la Junta Directiva, Comité Ejecutivo o Consejo de Administración según sea el caso, para el trámite administrativo correspondiente.

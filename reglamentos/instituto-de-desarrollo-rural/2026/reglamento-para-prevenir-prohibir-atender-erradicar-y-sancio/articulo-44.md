@@ -1,0 +1,2 @@
+Artículo 44- De los aspectos que debe contener la resolución final y la entidad responsable de emitirla.
+Concluido el procedimiento especial por presunto hostigamiento sexual y rendida la recomendación final por parte del órgano director, el presidente ejecutivo en su condición de órgano decisor dictará la resolución final, la cual contendrá la misma estructura del informe recomendativo del órgano director. -

@@ -1,0 +1,2 @@
+Artículo 55- Normativa complementaria.
+En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Constitución Política, Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia, N° 7476, Ley General de Administración Pública N° 6227, Código de Trabajo, Reglamento Autónomo de Servicios del Instituto, y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia en el país

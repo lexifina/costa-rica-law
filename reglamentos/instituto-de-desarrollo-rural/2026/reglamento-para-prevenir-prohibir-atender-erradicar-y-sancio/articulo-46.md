@@ -1,0 +1,3 @@
+Artículo 46- De las condiciones para la presentación de recursos de apelación y plazos para ello.
+Contra las resoluciones del órgano director y del órgano decisor procederán los recursos ordinarios y extraordinarios establecidos en la Ley General de la Administración Pública, los cuales deberán ser planteados dentro de los términos y plazos de ley.
+Contra el acto final dictado por el órgano decisor del procedimiento (presidente ejecutivo del Instituto) se dispondrá de los recursos ordinarios que correspondan según la Ley General de la Administración Pública, teniendo las partes un plazo de 5 días hábiles para interponer el recurso respectivo.

@@ -1,0 +1,3 @@
+Artículo 9- De la implementación de la política para la prevención del hostigamiento sexual.
+La Presidencia Ejecutiva del Instituto de Desarrollo Rural será la responsable de garantizar la implementación de la presente política. La coordinación operativa estará a cargo de la Unidad de Capital Humano, con el apoyo de las jefaturas, la Comisión Institucional de Género, de las comisiones de salud ocupacional y demás instancias competentes.
+Capital Humano y Relaciones Laborales podrán convocar espacios de articulación inter-sedes (presenciales o virtuales) para intercambio de buenas prácticas y homologación de criterios.
