@@ -14,3 +14,4 @@ Declara como Secreto de Estado y reserva por razones de interés público, segur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-08-10 | la propia norma |
+| 2 | 2026-10-09 | Decreto Ejecutivo 45962 (2026-10-09) |
