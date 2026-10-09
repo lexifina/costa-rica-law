@@ -1,0 +1,11 @@
+Artículo 12.—Deberes de las personas integrantes. Las personas integrantes del Comité de Auditoría deberán ejercer sus funciones con apego al ordenamiento jurídico, independencia de criterio, objetividad, diligencia, probidad y responsabilidad, procurando que sus actuaciones contribuyan al adecuado cumplimiento de las competencias asignadas al Comité.
+Para tales efectos, tendrán los siguientes deberes:
+a) Asistir puntualmente a las sesiones del Comité y participar activamente en las deliberaciones y adopción de acuerdos.
+b) Analizar previamente la documentación relacionada con los asuntos incluidos en el orden del día, a fin de emitir criterios y adoptar decisiones debidamente fundamentadas.
+c) Emitir sus opiniones y ejercer su derecho al voto con independencia de criterio, objetividad y debida fundamentación técnica, considerando la información disponible, la normativa aplicable y los antecedentes del asunto sometido a conocimiento del Comité.
+d) Actuar con la diligencia y el cuidado que demanda el ejercicio de las funciones encomendadas al Comité, procurando el adecuado funcionamiento del Sistema de Control Interno Institucional y el cumplimiento de los objetivos institucionales, de conformidad con el ordenamiento jurídico aplicable.
+e) Guardar confidencialidad respecto de la información, documentación y asuntos de acceso restringido o confidencial que conozcan con ocasión del ejercicio de sus funciones, de conformidad con el ordenamiento jurídico aplicable.
+f) Informar oportunamente al Comité cualquier circunstancia sobreviniente que pueda comprometer su independencia, objetividad o imparcialidad, o generar un conflicto de interés respecto de un asunto sometido a su conocimiento.
+g) Abstenerse de participar en el análisis, deliberación y votación de los asuntos respecto de los cuales concurra una circunstancia que pueda comprometer su independencia, objetividad o imparcialidad, de conformidad con el ordenamiento jurídico aplicable.
+h) Plantear, cuando corresponda, la recusación de otra persona integrante cuando concurra una circunstancia que pueda comprometer su independencia, objetividad o imparcialidad respecto de un asunto determinado, de conformidad con el ordenamiento jurídico aplicable.
+i) Cumplir las disposiciones establecidas en este Reglamento y en el ordenamiento jurídico aplicable al ejercicio de sus funciones.

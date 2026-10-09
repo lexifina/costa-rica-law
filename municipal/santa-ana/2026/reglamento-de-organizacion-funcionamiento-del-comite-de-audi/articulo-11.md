@@ -1,0 +1,6 @@
+Artículo 11.—Derechos de las personas integrantes. Con el propósito de garantizar el adecuado ejercicio de las funciones asignadas al Comité de Auditoría, las personas integrantes tendrán los siguientes derechos:
+a) Participar con voz y voto en las sesiones del Comité, intervenir en las deliberaciones y emitir libremente su criterio técnico respecto de los asuntos sometidos a conocimiento del órgano, de conformidad con el presente Reglamento.
+b) Recibir, con antelación, la convocatoria, el orden del día y la documentación necesaria para el análisis de los asuntos que serán conocidos por el Comité.
+c) Solicitar al Comité la incorporación de asuntos dentro de sus competencias al orden del día, así como requerir la información o documentación que resulte necesaria para el adecuado análisis de los temas sometidos a consideración, de conformidad con el ordenamiento jurídico aplicable.
+d) Solicitar que su voto razonado, voto disidente o cualquier observación relacionada con los asuntos conocidos sea consignado íntegramente en el acta de la sesión correspondiente.
+e) Contar con las condiciones administrativas y los recursos institucionales razonablemente necesarios para el adecuado ejercicio de sus funciones, de conformidad con las posibilidades de la Administración y la normativa aplicable.

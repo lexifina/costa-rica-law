@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia del nombramiento. Las personas designadas como integrantes del Comité de Auditoría permanecerán en el ejercicio de sus funciones mientras mantengan las condiciones de idoneidad exigidas por el presente Reglamento y no concurra alguna de las causales de cese previstas en este cuerpo normativo.

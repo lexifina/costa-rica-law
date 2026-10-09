@@ -1,0 +1,7 @@
+Artículo 13.—Conflictos de interés. Para efectos del presente Reglamento, las personas integrantes del Comité de Auditoría deberán identificar y comunicar cualquier situación que pueda comprometer o afectar su independencia de criterio, objetividad o imparcialidad en el conocimiento de los asuntos sometidos a consideración del Comité.
+Sin perjuicio de lo dispuesto en el ordenamiento jurídico aplicable, podrán constituir circunstancias que comprometan la independencia u objetividad de una persona integrante, entre otras, las siguientes:
+a) Cuando el asunto sometido a conocimiento del Comité se relacione directamente con funciones, actuaciones, decisiones, procesos o dependencias bajo su responsabilidad o dirección.
+b) Cuando la persona integrante haya intervenido, participado, emitido criterio técnico, elaborado, aprobado, ejecutado, supervisado o evaluado el asunto que posteriormente deba conocer el Comité.
+c) Cuando exista un interés personal, familiar, patrimonial, profesional o de cualquier otra naturaleza que pueda influir, o razonablemente percibirse que influye, en el ejercicio independiente e imparcial de sus funciones.
+d) Cuando concurra cualquier otra circunstancia que, conforme al ordenamiento jurídico o a las circunstancias particulares del caso, pueda comprometer la objetividad, independencia o imparcialidad de la persona integrante.
+La existencia de cualquiera de estas circunstancias dará lugar a la aplicación de las disposiciones establecidas en el presente Reglamento, sin perjuicio de lo dispuesto en el ordenamiento jurídico aplicable.
