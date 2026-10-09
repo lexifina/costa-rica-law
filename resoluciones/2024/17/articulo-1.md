@@ -8,7 +8,7 @@ RESULTANDO:
 I. Que el 26 de octubre de 2012, se publicó en el Alcance Digital N°165, a La Gaceta N°207, la "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial", Ley N°9078.
 II. Que el 21 de diciembre de 2016, mediante el Decreto Ejecutivo Nº40136- MOPT, se dispuso el "Modelo Tarifario para el Ajuste de Tarifas del Servicio de Revisión Técnica Vehicular (RTV) a cargo de Riteve SyC, S. A. y disposiciones complementarias para su aplicación". Dicho Decreto, se publicó el 20 de enero de 2017, en el Alcance Nº14, a La Gaceta N°15.
 III. Que el 16 de marzo de 2020, con el oficio OF-0242-RG-2020, y el 17 de marzo de 2020, mediante el oficio OF-0108-CDR-2020, la Dirección General Centro de Desarrollo de la Regulación (CDR), conformó la Fuerza de Tarea para la elaboración de la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular". (IRM-011-2023, folios 355 a 356 y 357)
-IV. Que el 9 de junio de 2023, mediante el oficio OF-0188-CDR-2023, el CDR, remitió al Regulador General, el informe IN-0023-CDR-2023, de la propuesta conceptual para el desarrollo de la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular", para el aval correspondiente. (IRM-011-2023, folios 519 a 520 y 330 a 383) V. Que el 20 de junio de 2023, mediante el oficio OF-0811-RG-2023, el Regulador General, comunicó al CDR, el aval correspondiente para el inicio de la elaboración de la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular". (IRM-011-2023, folio 521)
+IV. Que el 9 de junio de 2023, mediante el oficio OF-0188-CDR-2023, el CDR, remitió al Regulador General, el informe IN-0023-CDR-2023, de la propuesta conceptual para el desarrollo de la propuesta de la "Metodologíatarifaria del servicio de inspección técnica vehicular", para el aval correspondiente. (IRM-011-2023, folios 519 a 520 y 330 a 383) V. Que el 20 de junio de 2023, mediante el oficio OF-0811-RG-2023, el Regulador General, comunicó al CDR, el aval correspondiente para el inicio de la elaboración de la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular". (IRM-011-2023, folio 521)
 VI. Que el 11 de setiembre de 2023, mediante el informe IN-0053-CDR-2023, la Fuerza de Tarea, remitió al Director General del CDR, el "Informe técnico de la propuesta de Metodología tarifaria del servicio de inspección técnica vehicular". (IRM-011-2023, folios 522 a 596)
 VII. Que el 12 de setiembre de 2023, mediante el oficio OF-0298-CDR-2023, el Director General del CDR, convocó a la presentación para explicar la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular" a la Intendencia de Transporte (IT), al Consejero del Usuario y la Dirección General de Atención al Usuario (DGAU), a realizarse el 21 de setiembre de 2023. (IRM-011-2023, folios 358 a 359)
 VIII. Que el 21 de setiembre de 2023, en reunión virtual realizada a las 14:00 horas, el CDR, presentó la propuesta de la "Metodología tarifaria del servicio de inspección técnica vehicular" a la IT y a la DGAU.
@@ -201,14 +201,14 @@ Para las estaciones fijas, además, se debe contar con los siguientes equipos:
 -Frenómetro de motos.
 3. El Manual de Procedimientos para la Revisión Técnica de Vehículos establece las especificaciones generales para las revisiones y procedimientos de inspección técnica de vehículos en el país.
 4. Prestación actual del servicio
-El 24 de agosto de 2022, por medio de la resolución 2022-001022 del Ministerio de Obras Públicas y Transportes se otorgó el permiso de uso en precario del servicio de inspección técnica vehicular a la empresa Consorcio Dekra CR.
+El 24 de agosto de 2022, por medio de la resolución 2022-001022 del Ministerio deObras Públicas y Transportes se otorgó el permiso de uso en precario del serviciode inspección técnica vehicular a la empresa Consorcio Dekra CR.
 El servicio actualmente cuenta con 13 estaciones fijas y 3 estaciones móviles:
 Tabla 1. Estaciones fijas
 Tabla 1. Estaciones fijas
 Ítem | Estación | Líneas | Ubicación | Tamaño (m2)
 1 | Heredia | 6 | Barreal, 150 metros E de la bomba UNO. | 10 000
 2 | Alajuela | 6 | El Coyol, 1Km O de la planta Dos Pinos. | 8 574
-3 | Cartago | 6 | El Tejar del Guarco, 250 metros O y 100 metros N del restaurante El Quijongo. | 12 687
+3 | Cartago | 6 | El Tejar del Guarco, 250 metros O y100 metros N del restaurante El Quijongo. | 12 687
 4 | San José Sur (Alajuelita) | 6 | Barrio Aurora, San Felipe, antiguo plantel de Metrocoop. | 8 501
 5 | San José Norte (Santo Domingo de Heredia) | 6 | En el 2º cruce de San Miguel de Santo Domingo de Heredia sobre la autopista Braulio Carrillo. | 10 083
 6 | Puntarenas | 2 | Barranca: frente a las bodegas de la Liga de la Caña, autopista Costanera. | 6 229
@@ -243,7 +243,7 @@ Foso de revisión o elevador hidráulico
 Opacímetro. Para verificación de motores diésel
 Analizador de cuatro gases. Para verificación de motores gasolina
 Verificador de taxímetros*
-Frenómetro de motos*
+Frenómetrode motos*
 *Nota: Solo en estaciones fijas
 Fuente: Reglamento para la Revisión Técnica Integral de Vehículos Automotores que circulen por las vías públicas, N.º 30184-MOPT
 De acuerdo con el citado "Manual de Procedimientos para la Revisión Técnica de Vehículos en Estaciones de RTV", estos equipos en el artículo 4, se distribuyen por tipo de vehículo de la siguiente manera:
@@ -270,7 +270,7 @@ d) Motos, bicimotos y similares
 - Regloscopio
 - Analizador de gases
 - Frenómetro
-La inspección técnica vehicular se divide, además, en dos tipos de seguridad: activa y pasiva. La seguridad activa conlleva la revisión de los siguientes elementos: frenos, sistema de suspensión, sistema de dirección, llantas, luces y señalización. La seguridad pasiva revisa los siguientes elementos: cinturones y reposacabezas, pruebas de emisiones e identificación.
+La inspección técnica vehicular se divide, además, en dos tipos de seguridad:activa y pasiva. La seguridad activa conlleva la revisión de los siguientes elementos:frenos, sistema de suspensión, sistema de dirección, llantas, luces y señalización.La seguridad pasiva revisa los siguientes elementos: cinturones y reposacabezas,pruebas de emisiones e identificación.
 Las características del equipo se detallan a continuación:
 1. Fosas o sistemas para la inspección inferior
 En cada línea de inspección de cada CIVE, salvo las que sean exclusivas para motocicletas, deberá instalarse un sistema de fosa, o de elevador de vehículos, o ambos; tanto para vehículos livianos como para pesados según especificaciones técnicas que indique el COSEVI.
@@ -400,7 +400,7 @@ Con el objeto de garantizar la competencia técnica de su personal y la validez 
 c. Análisis de oferta y demanda
 Para el caso de las inspecciones vehiculares se dispone de información anual clasificada por tipo de vehículo para el periodo comprendido entre 2014 y 2021. La cantidad total de inspecciones corresponde a la suma de las inspecciones periódicas por año y las inspecciones no periódicas del mismo año.
 Los datos de inspecciones totales presentan una tendencia creciente a lo largo del periodo bajo estudio, como se muestra en el gráfico siguiente. Al ajustar un modelo de regresión lineal simple se obtiene un ajuste considerablemente bueno (R2 superior a 0,9), por lo cual a partir del modelo de regresión lineal se procede a estimar las inspecciones totales para 2022 y 2023.
-El modelo de regresión utilizado corresponde a 𝑦 = ?78.788.397 + 39687𝑥.
+El modelo de regresión utilizado corresponde a ?? = ?78.788.397 + 39687??.
 [imagen]
 En este caso, a parte del dato total de inspecciones, es necesario saber cuántas corresponden a cada tipo de vehículo. Para ello se procede a calcular la proporción que representa cada tipo de vehículo con respecto al total para cada año (2014-2021). En el siguiente gráfico se presenta la distribución porcentual por tipo de vehículo. En estos años se ha presentado una composición considerablemente constante, por lo que, se estima el promedio de estos datos y se emplea estos promedios para hacer la distribución de las inspecciones totales para los años 2022 y 2023.
 [imagen]
@@ -419,7 +419,7 @@ Fuente: Bases de datos e información de Aresep.
 En el caso de los rechazos se dispone de información entre 2015 y 2021 correspondiente al porcentaje de inspecciones periódicas por año y el porcentaje de rechazo de inspecciones no periódicas por año. A partir de estos dos valores se calcula el porcentaje de rechazo total calculado de la siguiente manera:
 [imagen]
 Con el fin de pronosticar el porcentaje de rechazo total para 2022 y 2023 se ajusta una recta de regresión con los datos existentes. Al ajustar un modelo de regresión lineal simple se obtiene un ajuste considerablemente bueno (R2 superior a 0,9), por lo cual a partir del modelo de regresión lineal se procede a estimar el porcentaje de rechazo total para 2022 y 2023.
-El modelo de regresión utilizado corresponde a 𝑦 = ?0,0107𝑥 + 22,138.
+El modelo de regresión utilizado corresponde a ?? = ?0,0107?? + 22,138.
 [imagen]
 A continuación, se presenta el porcentaje de rechazo total para los años bajo estudio y con los datos de 2022 y 2023 proyectados.
 Tabla 6: Porcentaje de rechazo total
@@ -459,7 +459,7 @@ c. Costo indirecto máximo anual del servicio (CIt) ............................
 d. Costo directo mínimo anual del servicio (CDt(min)) ..................................................................57
 e. Costo indirecto mínimo anual del servicio (CIt(min)).................................................................57
 f. Rendimiento sobre la base tarifaria (RSBTt).............................................................................58
-7. Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, en el mercado (Pt, i) ......68
+7. Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, enel mercado (Pt, i) ......68
 8. Aplicación general ..............................................................................................................................69
 8.1. Tipo de fijación tarifaria.............................................................................................................69
 8.2. Requisitos de admisibilidad.......................................................................................................69
@@ -485,17 +485,17 @@ Establecer un procedimiento claro y transparente para la fijación de las bandas
 3. Definiciones empleadas en la metodología Centro de Inspección Técnica Vehicular (CIVE): Distribución física compuesta por naves para la inspección técnica vehicular, oficinas administrativas, zonas
 verdes y parqueos, etc., con el fin de brindar el servicio Inspección Técnica Vehicular.
 Costo promedio ponderado de capital (en inglés, Weighted Average Cost of Capital, WACC): Mecanismo que se utiliza para determinar la tasa de rentabilidad al servicio regulado. Combina los pesos y costos del capital propio (patrimonio) y el capital financiado mediante deuda.
-Fecha de corte: Corresponde a la fecha que se utiliza como referencia para la obtención de todas las variables a utilizar para realizar el cálculo tarifario y será la fecha de cierre fiscal establecido a nivel nacional (el 31 de diciembre del año anterior), o en su defecto el cierre fiscal nacional que se establezca vía Ley, con base en la información de estados financieros auditados y la generada por la contabilidad regulatoria.
+Fecha de corte: Corresponde a la fecha que se utiliza como referencia para la obtención de todas las variables a utilizar para realizar el cálculo tarifario y será la fecha de cierre fiscal establecido a nivel nacional (el 31 de diciembre del año anterior), o en su defecto el cierre fiscal nacional que se establezca vía Ley, conbase en la información de estados financieros auditados y la generada por la contabilidad regulatoria.
 Inspección técnica vehicular (IVE): Prueba mediante la cual se verifican las condiciones técnico-mecánicas y el control de emisiones de los vehículos automotores. De conformidad con la normativa vigente al efecto.
 Inicio del estudio tarifario: Se entiende como la fecha al momento de la apertura del expediente.
 Ley de tránsito: Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N°: 9078, publicada en el Alcance 165 de la Gaceta 207 del 26 de octubre del 2012, y sus reformas.
 Líneas de inspección vehicular: Distribución de espacio físico compuesto por el equipo adecuado para realizar la inspección completa de los parámetros técnicos de los vehículos que establece el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de Revisión Técnica Vehicular.
-Media aritmética: Es la medida de posición empleada con mayor frecuencia. Se define como el resultado de sumar todas las observaciones de un conjunto de datos y dividirlo por la cantidad de valores. Puede ser influenciada por los valores extremos lo cual puede brindar una imagen distorsionada del conjunto de datos. Si 𝑥𝑖 es cada uno de los elementos del conjunto de datos y 𝑛 es la cantidad total de elementos en el conjunto de datos, la media o promedio se calcula como se detalla a continuación.
+Media aritmética: Es la medida de posición empleada con mayor frecuencia. Se define como el resultado de sumar todas las observaciones de un conjunto de datos y dividirlo por la cantidad de valores. Puede ser influenciada por los valores extremos lo cual puede brindar una imagen distorsionada del conjunto de datos. Si ???? es cada uno de los elementos del conjunto de datos y ?? es la cantidad total de elementos en el conjunto de datos, la media o promedio se calcula como se detalla a continuación.
 [imagen]
 Modelo de Valoración de Activos de Capital (en inglés, Capital Asset Pricing Model (CAPM)): Método para la determinación del costo promedio del capital financiado con recursos propios de la industria. Sirve para determinar la tasa de rentabilidad requerida para un activo que forma parte de un portafolio de inversiones (conjunto de activos) y se utiliza como aproximación de la prima que se le paga a los prestadores como rentabilidad por sus inversiones.
 Modelo de zonificación: Es la división geográfica del país donde se determinan las zonas en las cuales deben existir centros de inspección técnica vehicular de acuerdo con la propuesta del COSEVI.
 Prestador de servicio público: Sujeto público o privado que presta servicios públicos por concesión, permiso o ley.
-Reinspección técnica vehicular: prueba mediante la cual se verifican las condiciones técnico-mecánicas y el control de emisiones de los vehículos automotores que no aprobaron la IVE. De conformidad con la normativa vigente al efecto.
+Reinspeccióntécnica vehicular: prueba mediante la cual se verifican las condiciones técnico-mecánicas y el control de emisiones de los vehículos automotores que no aprobaron la IVE. De conformidad con la normativa vigente al efecto.
 4. Disposiciones generales de la metodología
 La metodología tarifaria para determinar el precio máximo y mínimo por tipo de vehículo para el servicio de inspección técnica vehicular se establece para la industria, mediante el reconocimiento de inversión, costos y gastos promedio de acuerdo con:
 a. Información regulatoria que solicite la Aresep a los prestadores, de manera específica y la que se obtenga por medio de los estados financieros o de la contabilidad regulatoria cuando esté disponible, para definir y actualizar las variables, y parámetros de referencia.
@@ -508,7 +508,7 @@ La fecha de corte de todas las variables a utilizar para realizar el cálculo ta
 La estructura de costos del servicio de inspección técnica vehicular se compone de los costos operativos que son considerados como un costo directo, y los costos administrativos y los gastos por depreciación, que son considerados como costos indirectos. Por último, el rendimiento sobre la base tarifaria se pondera proporcionalmente entre costos directos e indirectos.
 Para calcular el precio máximo y mínimo por categorías de inspección o reinspección vigentes, para el servicio de inspección técnica vehicular, primeramente se obtiene para cada prestador del servicio una banda tarifaria por categoría de inspección y reinspección vigentes, posteriormente dado que las bandas tarifarias se fijan para la industria, se procede a ponderar las diferentes bandas tarifarias con la demanda asociada a cada prestador y así obtener la banda tarifaria de la industria que podrá cobrar cada CIVE.
 5. Fórmula general
-La presente metodología establece el proceso de cálculo del precio máximo y mínimo por categorías de inspección o reinspección vigentes, para el servicio de inspección técnica vehicular, el cual se obtiene al ponderar la banda tarifaria de cada empresa (𝐵𝐴𝑁𝑡,𝑖) por su participación en el mercado.
+La presente metodología establece el proceso de cálculo del precio máximo y mínimo por categorías de inspección o reinspección vigentes, para el servicio de inspección técnica vehicular, el cual se obtiene al ponderar la banda tarifaria de cada empresa (????????,??) por su participación en el mercado.
 El valor de la banda máxima corresponde al límite superior de la banda tarifaria y equivale a la tarifa máxima por categoría de inspección o reinspección vigentes que podrá ser inclusive igual a ese valor.
 El valor de la banda mínima corresponde al límite inferior de la banda y la tarifa mínima por categoría de inspección o reinspección vigentes a cobrar por el operador deberá ser mayor a este valor.
 Es decir, las tarifas (T) por categoría de inspección o reinspección vigentes se deberán ubicar dentro de la banda tarifaria calculada de la siguiente forma: BANmax ? T > BANmin.
@@ -565,7 +565,7 @@ CTI t,i(min) = Costo tarifario indirecto mínimo anual, por categoría de inspec
 i = Cada una de las categorías de inspección o reinspección vigentes.
 Según se muestra en la "Tabla 1: Categorías de inspección o reinspección para los CIVE".
 t = Índice que representa cada prestador de inspección técnica vehicular.
-6.3. Determinación de los costos directos máximos 𝑪𝑻𝑫𝒕,𝒊(𝒎𝒂𝒙) y mínimos 𝑪𝑻𝑫𝒕,𝒊(𝒎𝒊𝒏 ) e indirectos máximos 𝑪𝑻𝑰𝒕,𝒊(𝒎𝒂𝒙) y mínimos 𝑪𝑻𝑰𝒕,𝒊(𝒎𝒊𝒏) a. Costo tarifario directo máximo 𝑪𝑻𝑫𝒕,𝒊(𝒎𝒂𝒙)
+6.3. Determinación de los costos directos máximos ????????,??(??????) y mínimos ????????,??(?????? ) e indirectos máximos ????????,??(??????) y mínimos ????????,??(??????) a. Costo tarifario directo máximo ????????,??(??????)
 El costo tarifario directo máximo por categoría de inspección o reinspección vigentes "i", del prestador "t", corresponde a la sección de la tarifa que se compone de aquellos costos directos operativos incluyendo una proporción del rendimiento sobre la base tarifaria y el factor de tiempo de servicio. El cálculo del costo tarifario directo máximo por categoría de inspección o reinspección vigentes, se efectúa de la siguiente forma:
 [imagen]
 Donde:
@@ -578,7 +578,7 @@ i = Cada una de las categorías de inspección o reinspección vigentes.
 Según se muestra en la "Tabla 1: Categorías de inspección o reinspección para los CIVE".
 n = Cantidad total de las categorías de inspección o reinspección vigentes.
 t = Índice que representa cada prestador de inspección técnica vehicular.
-b. Costo tarifario indirecto máximo 𝑪𝑻𝑰𝒕,𝒊(𝒎𝒂𝒙)
+b. Costo tarifario indirecto máximo ????????,??(??????)
 El costo tarifario indirecto máximo por categoría de inspección o reinspección vigentes "i", del prestador "t", corresponde a la sección de la tarifa que se compone de aquellos costos indirectos, como los costos administrativos, la depreciación incluyendo una proporción del rendimiento sobre la base tarifaria entre la cantidad de servicios de inspección y reinspección total anual, y distribuidos equitativamente entre cada categoría tarifaria. El cálculo del costo tarifario indirecto máximo por categoría de inspección o reinspección vigentes, se efectúa de la siguiente forma:
 [imagen]
 Donde:
@@ -586,7 +586,7 @@ CTIt,i(max) = Costo tarifario indirecto máximo anual por categoría de inspecci
 CIt(max) = Costo indirecto máximo anual de cada prestador "t". El procedimiento para obtener este costo se detalla en la sección 6.4., inciso "c. Costo indirecto máximo anual del servicio (CIt)".
 QTt = Cantidad total de servicios de inspección y reinspección, del prestador "t". Esta variable se determina con base en la cantidad de vehículos atendidos de los últimos 12 meses previos a la fecha de corte, y este dato se obtiene de las estadísticas del servicio remitidas a la Aresep o mediante solicitud al COSEVI para cada prestador.
 t = Índice que representa cada prestador de inspección técnica vehicular.
-c. Costo tarifario directo mínimo 𝑪𝑻𝑫𝒕,𝒊(𝒎𝒊𝒏)
+c. Costo tarifario directo mínimo ????????,??(??????)
 El costo tarifario directo mínimo por categoría de inspección o reinspección vigentes "i", del prestador "t", corresponde a la sección de la tarifa que se compone de aquellos costos directos operativos excluyendo el rendimiento sobre la base tarifaria, por el factor de tiempo de servicio. El cálculo del costo tarifario directo mínimo por categoría de inspección o reinspección vigentes, se efectúa de la siguiente forma:
 [imagen]
 Donde:
@@ -599,7 +599,7 @@ i = Cada una de las categorías de inspección o reinspección vigentes.
 Según se muestra en la "Tabla 1: Categorías de inspección o reinspección para los CIVE".
 n = Cantidad total de las categorías de inspección o reinspección vigentes.
 t = Índice que representa cada prestador de inspección técnica vehicular.
-d. Costo tarifario indirecto mínimo 𝑪𝑻𝑰𝒕,𝒊(𝒎𝒊𝒏)
+d. Costo tarifario indirecto mínimo ????????,??(??????)
 El costo tarifario indirecto mínimo por categoría de inspección o reinspección vigentes "i", del prestador "t", corresponde a la sección de la tarifa que se compone de aquellos costos indirectos, como los costos administrativos y la depreciación excluyendo el rendimiento sobre la base tarifaria, entre la cantidad de servicios de inspección y reinspección total anual. El cálculo del costo tarifario indirecto mínimo por categoría de inspección o reinspección vigentes, se efectúa de la siguiente forma:
 [imagen]
 Donde:
@@ -813,7 +813,7 @@ KDt = Costo promedio del endeudamiento, por prestador "t".
 Dt,w = Monto de la deuda para la obligación con costo financiero "w", por prestador "t". Es el monto en colones de la obligación de largo plazo con costo financiero "w" formalizada mediante documentos oficiales.
 Este dato de cada préstamo asociado a cada uno de los pasivos de largo plazo con costo financiero se obtiene de los estados financieros con el correspondiente detalle, de cada uno de los prestadores del servicio, o del dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
 Rt,w = Tasa de interés en colones de la deuda "w", por prestador "t". Es la tasa de interés en colones, de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales de cada uno de los prestadores del servicio. El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
-Cuando la tasa de interés del endeudamiento se encuentre expresado en dólares se debe aplicar el procedimiento descrito en la ecuación 24 para obtener la equivalencia a colones y el resultado obtenido "Rw" se incorpora a este cálculo.
+Cuando la tasa de interés del endeudamiento se encuentre expresado en dólares se debe aplicar el procedimiento descrito en la ecuación 24 para obtener la equivalencia a colones y el resultado obtenido "Rw"se incorpora a este cálculo.
 w = Cada obligación con costo financiero que se encuentra pendiente de pago.
 QF = Total de obligaciones de largo plazo con costo financiero que se encuentra pendiente de pago.
 t = Índice que representa cada prestador de inspección técnica vehicular.
@@ -908,7 +908,7 @@ BTt = Base tarifaria del servicio, del prestador "t".
 AFNOt = Activo fijo neto en operación del servicio, del prestador "t". Se utiliza el dato consignado en los estados financieros, o el dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
 t = Índice que representa cada prestador de inspección técnica
 vehicular.
-7. Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, en el mercado (𝑷𝒕,𝒊)
+7. Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, en el mercado (????,??)
 El cálculo de la participación porcentual de cada prestador "t", por categoría tarifaria de inspección o reinspección vigentes "i", en el mercado, se realiza de la siguiente manera:
 [imagen]
 Donde:
@@ -994,35 +994,35 @@ Nótese que la única diferencia, es la notación, y se toma ? = KE$ ? ED.
 4 Krugman, P., & Obstfeld, M. (1999). Economía internacional: teoría y política. México: McGraw-Hill.
 10.2. Anexo 2. Resumen de ecuaciones utilizadas en la metodología
 Descripción | ECUACIÓN N° | Notación
-Fórmula general | 1 | 𝑝 𝐵𝐴𝑁𝑖(𝑚𝑎𝑥,𝑚𝑖𝑛) = ?(𝐵𝐴𝑁𝑡,𝑖(𝑚𝑎𝑥,𝑚𝑖𝑛) 𝑡=1 ? 𝑃𝑡,𝑖)
-Banda tarifaria máxima (BANt,i (max)) | 2 | 𝐵𝐴𝑁𝑡,𝑖(𝑚𝑎𝑥) = 𝐶𝑇𝐷𝑡,𝑖(𝑚𝑎𝑥) + 𝐶𝑇𝐼𝑡,𝑖(𝑚𝑎𝑥)
-Banda tarifaria mínima (BANt,i (min)) | 3 | 𝐵𝐴𝑁𝑡,𝑖(𝑚𝑖𝑛) = 𝐶𝑇𝐷𝑡,𝑖(𝑚í𝑛) + 𝐶𝑇𝐼𝑡,𝑖(𝑚í𝑛)
-Costo tarifario directo máximo (CTDt.i.(max)) | 4 | 𝐶𝐷𝑡(𝑚𝑎𝑥) 𝐶𝑇𝐷𝑡,𝑖(𝑚𝑎𝑥) = 𝐹𝑇𝑖 ? (?𝑛 (𝐹𝑇 ? 𝑄 ) 𝑖=1 𝑖 𝑡,𝑖)
-Costo tarifario indirecto máximo (CTIt.i.(max)) | 5 | 𝐶𝐼𝑡(𝑚𝑎𝑥) 𝐶𝑇𝐼𝑡,𝑖(𝑚𝑎𝑥) = 𝑄𝑇 𝑡
-Costo tarifario directo mínimo (CTDt.i.(min)) | 6 | 𝐶𝐷𝑡(𝑚í𝑛) 𝐶𝑇𝐷𝑡,𝑖(𝑚í𝑛) = 𝐹𝑇𝑖 ? (?𝑛 (𝐹𝑇 ? 𝑄 )) 𝑖=1 𝑖 𝑡,𝑖
-Costo tarifario indirecto mínimo (CTIt.i.(min)) | 7 | 𝐶𝐼𝑡(𝑚í𝑛) 𝐶𝑇𝐼𝑡,𝑖(𝑚í𝑛) = 𝑄𝑇 𝑡
-Factor de tiempo de servicio (FTi) | 8 | 𝑃𝑃𝑇𝑖 𝐹𝑇𝑖 = 𝑃𝑃𝑇 𝑚
-Promedio ponderado del tiempo de servicio (PPTi) | 9 | 𝑇𝑃𝑖 𝑃𝑃𝑇𝑖 = ?𝑛 𝑇𝑃 𝑖=1 𝑖
-Costo directo máximo anual del servicio (CDt(max)) | 10 | 𝐶𝑜𝑡 𝐶𝐷𝑡(𝑚𝑎𝑥) = 𝐶𝑜𝑡 + 𝑅𝑆𝐵𝑇𝑡 ? ( ) 𝐶𝐴𝑇𝑡
-Cálculo del costo operativo (Cot) | 11 | 𝐶𝑜𝑡 = 𝐶𝑝𝑜𝑡 + 𝐺𝑜𝑡
-Costo anual total (CATt) | 12 | 𝐶𝐴𝑇𝑡 = 𝐶𝑜𝑡 + 𝐶𝑎𝑡 + 𝐷𝑒𝑝𝑡
-Costo indirecto máximo anual del servicio (CIt) | 13 | 𝐶𝑎𝑡 + 𝐷𝑒𝑝𝑡 𝐶𝐼𝑡(𝑚𝑎𝑥) = 𝐶𝑎𝑡 + 𝐷𝑒𝑝𝑡 + 𝑅𝑆𝐵𝑇𝑡 ? ( 𝐶𝐴𝑇 ) 𝑡
-Cálculo del costo administrativo (Cat) | 14 | 𝐶𝑎𝑡 = 𝐶𝑝𝑎𝑡 + 𝐺𝑎𝑡 + 𝐶𝑎𝑛𝑜𝑛𝑡
-Canon (Canont) | 15 | 𝐶𝑎𝑛𝑜𝑛𝑡 = 𝐶𝑎𝑛𝐴𝑟𝑒𝑠𝑒𝑝,𝑡 + 𝐶𝑎𝑛𝐶𝑜𝑠𝑒𝑣𝑖,𝑡
-Costo directo mínimo anual del servicio (CDt(min)) | 16 | 𝐶𝐷𝑡(𝑚í𝑛) = 𝐶𝑜𝑡
-Costo indirecto mínimo anual del servicio (CIt(min)) | 17 | 𝐶𝐼𝑡(𝑚𝑖𝑛 ) = 𝐶𝑎𝑡 + 𝐷𝑒𝑝𝑡
-Rendimiento sobre la base tarifaria (RSBTt) | 18 | 𝑅𝑆𝐵𝑇𝑡 = 𝑅𝑡 ? 𝐵𝑇𝑡
-Tasa de rentabilidad (Rt) | 19 | 𝑉𝐷𝑡 𝑉𝐶𝑃𝑡 𝑅𝑡 = 𝐾𝐷𝑡 ? (1 ? 𝑇𝐼) ? 𝑉𝐷 + 𝑉𝐶𝑃 + 𝐾𝐸 ? 𝑉𝐷 + 𝑉𝐶𝑃 𝑡 𝑡 𝑡 𝑡
-Costo del endeudamiento (KDt) | 20 | ?𝑄𝐹 𝐷𝑡,𝑤 ? 𝑅𝑡,𝑤 𝐾𝐷𝑡 = 𝑤=1 ?𝑄𝐹 𝐷𝑡,𝑤 𝑤
-Procedimiento para colonizar las tasas en dólares (Rw) | 21 | 𝑅𝑤 = 𝑇𝐵$𝑤 ? 𝐸𝐷 + (𝑇𝐵$𝑤 + 𝐸𝐷)
-Costo del capital propio (KE) | 22 | 𝐾𝐸 = 𝑅𝐹 + 𝛽𝐴 ? (𝑃𝑀𝐸)
+Fórmula general | 1 | ??????????(??????,??????) = ?(????????,??(??????,??????)??=1? ????,??)
+Banda tarifaria máxima (BANt,i(max)) | 2 | ????????,??(??????) = ????????,??(??????) + ????????,??(??????)
+Banda tarifaria mínima (BANt,i(min)) | 3 | ????????,??(??????) = ????????,??(??í??) + ????????,??(??í??)
+Costo tarifario directo máximo (CTDt.i.(max)) | 4 | ??????(??????)????????,??(??????) = ?????? ? (??? (???? ? ?? )??=1 ?? ??,??)
+Costo tarifario indirecto máximo (CTIt.i.(max)) | 5 | ??????(??????)????????,??(??????) = ??????
+Costo tarifario directo mínimo (CTDt.i.(min)) | 6 | ??????(??í??)????????,??(??í??) = ?????? ? (??? (???? ? ?? ))??=1 ?? ??,??
+Costo tarifario indirecto mínimo (CTIt.i.(min)) | 7 | ??????(??í??)????????,??(??í??) = ??????
+Factor de tiempo de servicio (FTi) | 8 | ?????????????? = ????????
+Promedio ponderado del tiempo de servicio (PPTi) | 9 | ?????????????? = ??? ??????=1 ??
+Costo directo máximo anual del servicio (CDt(max)) | 10 | ????????????(??????) = ?????? + ?????????? ? ( )????????
+Cálculo del costo operativo (Cot) | 11 | ?????? = ???????? + ??????
+Costo anual total (CATt) | 12 | ???????? = ?????? + ?????? + ????????
+Costo indirecto máximo anual del servicio (CIt) | 13 | ?????? + ??????????????(??????) = ?????? + ???????? + ?????????? ? ( ?????? )??
+Cálculo del costo administrativo (Cat) | 14 | ?????? = ???????? + ?????? + ????????????
+Canon (Canont) | 15 | ???????????? = ??????????????????,?? + ??????????????????,??
+Costo directo mínimo anual del servicio (CDt(min)) | 16 | ??????(??í??) = ??????
+Costo indirecto mínimo anual del servicio (CIt(min)) | 17 | ??????(?????? ) = ?????? + ????????
+Rendimiento sobre la base tarifaria (RSBTt) | 18 | ?????????? = ???? ? ??????
+Tasa de rentabilidad (Rt) | 19 | ?????? ???????? ???? = ?????? ? (1 ? ????) ? ???? + ?????? + ???? ? ???? + ???????? ?? ?? ??
+Costo del endeudamiento (KDt) | 20 | ????? ????,?? ? ????,???????? = ??=1 ????? ????,????
+Procedimiento para colonizar las tasas en dólares (Rw) | 21 | ???? = ????$?? ? ???? + (????$?? + ????)
+Costo del capital propio (KE) | 22 | ???? = ???? + ???? ? (??????)
 [imagen]
 | |
-Beta apalancado (?A) | 23 | 𝑉𝐷𝑡 𝛽𝐴 = 𝛽𝐷 ? [1 + (1 ? 𝑇𝐼) ? ] 𝑉𝐶𝑃𝑡
-Prima de riesgo de mercado (PME) | 24 | 𝑃𝑀𝐸 = 𝑃𝑀𝐸$ ? 𝐸𝐷 + (𝑃𝑀𝐸$ + 𝐸𝐷)
-Base tarifaria (BTt) | 25 | 𝐵𝑇𝑡 = 𝐴𝐹𝑁𝑂𝑡
-Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, en el mercado (P(t,i)) | 26 | 𝑝 (𝑄𝑡,𝑖) 𝑃𝑡,𝑖 = ? (𝑄 + ? 𝑄 + ? 𝑄 ) 𝑡=1 𝑡,𝑖 𝑡+1,𝑖 𝑝,𝑖
-Rendimiento sobre la Base Tarifaria, para la primera aplicación (RSBT) | 27 | 𝑅𝑆𝐵𝑇 = 𝐾𝐸 ? (𝐶𝑜 + 𝐶𝑎)
+Beta apalancado (?A) | 23 | ?????????? = ???? ? [1 + (1 ? ????) ? ]????????
+Prima de riesgo de mercado (PME) | 24 | ?????? = ??????$ ? ???? + (??????$ + ????)
+Base tarifaria (BTt) | 25 | ?????? = ??????????
+Participación porcentual de cada prestador, por categoría de inspección o reinspección vigentes, en el mercado (P(t,i)) | 26 | ??(????,??)????,?? = ? (?? + ? ?? + ? ?? )??=1 ??,?? ??+1,?? ??,??
+Rendimiento sobre la Base Tarifaria, para la primera aplicación (RSBT) | 27 | ???????? = ???? ? (???? + ????)
 [imagen]
 10.3. Anexo 3. Resumen de variables utilizadas en la metodología
 Variables | Descripción
@@ -1199,7 +1199,7 @@ RESPUESTA:
 Sobre este tema en particular, en la propuesta de metodología lo que se indica es que el tiempo promedio de revisión técnica para inspección y reinspección se determina desde que inicia en la línea de inspección hasta que finaliza, sin considerar los trámites iniciales de reserva, revisión de documentos del vehículo, cobro del servicio y los demás trámites finales como parte de la explicación del resultado, consultas e inquietudes a los clientes. Estos rubros se incluyen en los costos y gastos reconocidos dentro de la metodología.
 El tiempo promedio de revisión técnica se obtiene para una primera aplicación de la información disponible que cuenta la Aresep y que haya brindado el COSEVI a Aresep, sin embargo, esta variable debe ser actualizada al primer año, una vez que los prestadores hayan iniciado operación y luego una vez cada tres años como mínimo, y pueden utilizarse datos que reporten los prestadores, el COSEVI o mediante estudios técnicos de Aresep, tal y como se indica en la propuesta de metodología tarifaria, apartado "Determinación del factor de tiempo de servicio, costos y rentabilidad. a. Factor de tiempo de servicio (FTi)":
 "(...)
-El valor de la variable tiempo promedio de revisión técnica para inspección (minutos) y tiempo promedio de revisión técnica para reinspección (minutos), (…), estará sujeto a variación con los valores que se obtienen mediante solicitud a los prestadores, o al COSEVI para cada prestador o con los estudios técnicos ejecutados, contratados o avalados por la Aresep.
+El valor de la variable tiempo promedio de revisión técnica para inspección (minutos) y tiempo promedio de revisión técnica para reinspección(minutos), (…), estará sujeto a variación con los valores que se obtienen mediante solicitud a los prestadores, o al COSEVI para cada prestador o con los estudios técnicos ejecutados, contratados o avalados por la Aresep.
 El valor de esta variable se actualizará, por primera vez, al primer año en que los operadores hayan iniciado la prestación del servicio de inspección técnica vehicular y luego como mínimo una vez cada tres años, a partir de la fecha de entrada en vigor de la resolución. (...)"
 Por lo anterior, se recomienda rechazar este argumento.
 2.8. Elaboración de Costo Indirecto
@@ -1212,11 +1212,11 @@ Se consulta:
 para la prestación del servicio, en propiedad del prestador del servicio, en los que se hizo una inversión y que defina el COSEVI.". Se solicita a la Aresep aclarar por qué en esta metodología tarifaria difiere de otras utilizadas para otros servicios públicos, y no le otorga al prestador del servicio un RSBT completo y no multiplicado por un factor menor a 1.
 RESPUESTA:
 Se aclara que el rendimiento sobre la base tarifaria (RSBT) se reconoce en la propuesta de metodología, lo que se hace es separar el RSBT en costos indirectos y directos. Para los costos indirectos máximos se asigna un porcentaje del RSBT como se observa en la fórmula 13:
-𝑪𝒂𝒕 + 𝑫𝒆𝒑𝒕 𝑪𝑰𝒕(𝒎𝒂𝒙) = 𝑪𝒂𝒕 + 𝑫𝒆𝒑𝒕 + 𝑹𝑺𝑩𝑻𝒕 ? ( 𝑪𝑨𝑻 ) 𝒕 | Fórmula 13
+?????? + ??????????????(??????) = ?????? + ???????? + ?????????? ? ( ?????? )?? | Fórmula 13
 Y la otra proporción del RSBT se asigna a los costos directos máximos, como se observa en la fórmula 10:
-𝑪𝒐𝒕 𝑪𝑫𝒕(𝒎𝒂𝒙) = 𝑪𝒐𝒕 + 𝑹𝑺𝑩𝑻𝒕 ? (𝑪𝑨𝑻 ) 𝒕 | Fórmula 10
+????????????(??????) = ?????? + ?????????? ? (?????? )?? | Fórmula 10
 También se aclara que el RSBT es el resultado de la tasa de rentabilidad multiplicado por la base tarifaria, tal y como se muestra en la fórmula 18:
-𝑹𝑺𝑩𝑻 = 𝑹𝒕 + 𝑩𝑻𝒕 | Fórmula 18
+???????? = ???? + ?????? | Fórmula 18
 El RSBT también se utiliza para definir los límites de la banda tarifaria, la banda tarifaria máxima comprende los costos directos e indirectos máximos y la banda mínima los costos directos e indirectos mínimos, la propuesta de metodología en la sección 8.3. Fórmula General, indica que:
 "El valor de la banda máxima corresponde al límite superior de la banda tarifaria y equivale a la tarifa máxima por categoría de inspección o reinspección vigentes que podrá ser inclusive igual a ese valor.
 El valor de la banda mínima corresponde al límite inferior de la banda y la tarifa mínima por categoría de inspección o reinspección vigentes a cobrar por el operador deberá ser mayor a este valor.
@@ -1251,7 +1251,7 @@ En el apartado 8.4.4. a. Factor de tiempo de servicio (FT), de la propuesta de m
 De esta forma, el tiempo promedio de revisión técnica para inspección y reinspección se determina desde que inicia la etapa de inspección hasta que finaliza, sin considerar los trámites iniciales y los finales como la explicación del resultado, consultas e inquietudes a los clientes."
 Ahora bien, el beta apalancado (?A) es una variable para obtener el rendimiento sobre la base tarifaria (RSBT). El rendimiento sobre la base tarifaria forma parte del costo directo y el factor tiempo se aplica a todas las variables que componen el costo directo de la misma forma.
 En la propuesta de metodología, el rendimiento sobre la base tarifaria (RSBT), se obtiene de la metodología del costo promedio ponderado de capital (Rt) y para calcular el costo del capital propio (KE) se utiliza el método de valoración de activos de capital (CAPM), según se detalla en la sección f. Rendimiento sobre la base tarifaria (RSBT), (iv) Costo de capital propio (KE)
-"Se empleará para el cálculo del CAPM la información relacionada con el beta y la prima de riesgo de mercado publicada por el Dr. Aswath Damodaran de la Universidad de New York, en la dirección de Internet http://www.stern.nyu.edu/~adamodar y de los bonos del tesoro de los Estados Unidos de América publicada por el Departamento del Tesoro de Estados Unidos.
+"Se empleará para el cálculo del CAPM la información relacionada con el betay la prima de riesgo de mercado publicada por el Dr. Aswath Damodaran de la Universidad de New York, en la dirección de Internet http://www.stern.nyu.edu/~adamodar y de los bonos del tesoro de los Estados Unidos de América publicada por el Departamento del Tesoro de Estados Unidos.
 Dado que la información utilizada está basada en tasas expresadas con moneda en dólares americanos, se considera necesario realizar una equivalencia a colones, ya que la parte de la fórmula del WACC que compone el endeudamiento KD está expresado en colones, por lo que se propone utilizar, de modo análogo, la paridad cubierta de tasas de interés (.)"
 Según lo indicado en la propuesta de metodología se establece para cada variable una fuente de información a utilizar, en el caso particular del beta, dado que el mercado accionario en Costa Rica es poco profundo y los prestadores del servicio no cotizan en la Bolsa de Valores de Costa Rica, se utiliza los datos del beta desapalancado "unlevered beta" del sector denominado "Business and Consumer Services", esto debido a que empresas que ofrecen el servicio de inspección técnica vehicular son ubicadas dentro de este sector, y se calcula como el promedio simple de los datos de los 60 meses anteriores previos a la fecha de corte. Esta información se toma de la publicación que se realiza en el sitio web del profesor Aswath Damodaran, la cual es una referencia internacional reconocida de finanzas corporativas. En caso de que el beta se publique de modo anual, se empleará la información de los últimos 5 datos más recientes, al momento del cálculo del promedio
 Por lo anterior, se recomienda rechazar este argumento.
@@ -1260,7 +1260,7 @@ ARGUMENTO:
 Se solicita aclarar la construcción de la variable "prima de riesgo" en la metodología tarifaria, incluyendo los elementos que la componen, si se emplean factores de mercados mundiales o de la industria (con especificación de cuál industria), y la temporalización de dicha prima de riesgo.
 RESPUESTA:
 En la propuesta de metodología, en el apartado f. Rendimiento sobre la base tarifaria (RSBT), (v) Beta Apalancado ((?A), para obtener la prima de riesgo de mercado (PME), se debe realizar la equivalencia a colones, a partir de la prima de riesgo de mercado en dólares que textualmente señala:
-"Prima de riesgo de mercado, en dólares. Dado que en Costa Rica el mercado de capitales no es un mercado profundo, para determinar esta prima de riesgo de mercado se utiliza una aproximación obtenida de la publicación que se realiza en el sitio web del profesor Aswath Damodaran denominada "Country Default Spreads and Risk Premiums".
+"Prima de riesgo de mercado, en dólares. Dado que en Costa Rica el mercado de capitales no es un mercado profundo, para determinar esta prima de riesgo de mercado se utiliza una aproximación obtenida de la publicación que se realiza en el sitio web del profesor Aswath Damodarandenominada "Country Default Spreads and Risk Premiums".
 Se debe utilizar el dato para Estados Unidos correspondiente al "Total Equity Risk Premium" que no incluya volatilidad adicional. Se calcula como el promedio simple de los datos de los 60 meses anteriores previos a la fecha de corte."
 Por lo anterior, se recomienda rechazar este argumento.
 2.13. Sensibilización sobre tamaño del oferente
@@ -1272,9 +1272,9 @@ Rendimiento sobre la base tarifaria (RSBT), (ii) Costo del endeudamiento (KDt), 
 "(...)
 [imagen]
 Donde:
-KDt = Costo promedio del endeudamiento, por prestador "t".
-Dt,w = Monto de la deuda para la obligación con costo financiero "w", por prestador "t". Es el monto en colones de la obligación de largo plazo con costo financiero "w" formalizada mediante documentos oficiales. Este dato de cada préstamo asociado a cada uno de los pasivos de largo plazo con costo financiero se obtiene de los estados financieros con el correspondiente detalle, de cada uno de los prestadores del servicio, o del dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
-Rt,w = Tasa de interés en colones de la deuda "w", por prestador "t". Es la tasa de interés en colones, de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales de cada uno de los prestadores del servicio.
+KDt= Costo promedio del endeudamiento, por prestador "t".
+Dt,w= Monto de la deuda para la obligación con costo financiero "w", por prestador "t". Es el monto en colones de la obligación de largo plazo con costo financiero "w" formalizada mediante documentos oficiales. Este dato de cada préstamo asociado a cada uno de los pasivos de largo plazo con costo financiero se obtiene de los estados financieros con el correspondiente detalle, de cada uno de los prestadores del servicio, o del dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
+Rt,w= Tasa de interés en colones de la deuda "w", por prestador "t". Es la tasa de interés en colones, de los pasivos de largo plazo con costo financiero, producto de obligaciones formalizadas mediante documentos oficiales de cada uno de los prestadores del servicio.
 El dato de la tasa de interés se obtiene de los contratos con el acreedor de la deuda, o el dato de la contabilidad regulatoria e información complementaria a esta, que la Aresep establezca.
 Cuando la tasa de interés del endeudamiento se encuentre expresado en dólares se debe aplicar el procedimiento descrito en la fórmula 24 para obtener la equivalencia a colones y el resultado obtenido "Rw" se incorpora a este cálculo.
 W = Cada obligación con costo financiero que se encuentra pendiente de pago.
@@ -1397,6 +1397,29 @@ Vehículo tipo remolques o semirremolques | 14,70 | 10,01
 Inspección en sitio primer nivel comercialización (por artículo 5 de la ley de tránsito 9078 y decreto 30751-MOPT) | 5,00 | -
 Servicios especiales (reposición de documentos, inspección de cambios de características registrales) | 5,00 | -
 En cuanto a incorporar dentro de la variable "Factor de tiempo", con el desglose porcentual por etapas de inspección, se aclara que el tiempo de reinspección es más amplio que solamente llevar a cabo puntualmente la inspección de una etapa en particular, dado que conlleva un tiempo adicional de seguimiento y logística del vehículo dentro de la línea que no es considerado, por lo que se aleja de la realidad del verdadero tiempo operativo, por lo anterior se rechaza este argumento.
+(Nota de Sinalevi: Mediante resolución N° RE-0131-IT-2026 del 9 de octubre de 2026, se acordó acoger el informe IN-0349-IT-2026 del 9 de octubre de 2026 sobre la fijación tarifaria extraordinaria que considera la variación en el valor del canon de regulación, conforme a la sección 8.8 de la metodología tarifaria vigente y proceder a fijar las bandas tarifarias máximas y mínimas para el servicio de inspección técnica vehicular de la siguiente manera:
+Categoría de vehículo | Banda Tarifaria Máxima (colones) | Banda Tarifaria Mínima (colones)
+Inspección
+Vehículo peso menor 3.5T | 6 077 | 5 138
+Vehículo peso mayor 3.5T | 7 271 | 6 148
+Taxis | 7 291 | 6 164
+Autobuses-buseta-microbús | 7 095 | 5 999
+Motocicletas | 4 628 | 3 913
+Equipo especial (Maquinaria obras, agrícola) | 4 638 | 3 921
+Vehículos eléctricos, históricos y por decreto 30709-MAG-MOPT | 4 765 | 4 029
+Vehículo tipo remolques o semirremolques | 4 941 | 4 178
+Inspección en sitio primer nivel comercialización (por artículo 5 de la ley de tránsito 9078 y decreto 30751-MOPT) | 3 061 | 2 588
+Servicios especiales (reposición de documentos, inspección de cambios de características registrales) | 3 061 | 2 588
+Reinspección
+Vehículo peso menor 3.5T | 4 745 | 4 012
+Vehículo peso mayor 3.5T | 5 117 | 4 327
+Taxis | 5 254 | 4 443
+Autobuses, buseta, microbús | 5 294 | 4 476
+Motocicletas | 3 942 | 3 333
+Equipo especial (Maquinaria obras, agrícola) | 4 324 | 3 656
+Vehículos eléctricos, históricos y por decreto 30709-MAG-MOPT | 3 919 | 3 313
+Vehículo tipo remolques o semirremolques | 4 040 | 3 416
+)
 III. Instruir a la Secretaría de Junta Directiva de la Aresep, para que proceda a notificar al Consejero del Usuario de Aresep, al Consejo de Seguridad Vial y a Dekra Costa Rica S.A., la presente resolución.
 IV. Instruir a la Secretaría de Junta Directiva de la Aresep, para que proceda a realizar la publicación de la presente resolución en el diario oficial La Gaceta.
 V. Instruir a la Dirección General Centro de Desarrollo de la Regulación que coordine con el Departamento de Comunicación Institucional la divulgación de la presente metodología, en la página web institucional.

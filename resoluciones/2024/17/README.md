@@ -14,3 +14,4 @@ Metodología tarifaria del servicio de inspección técnica vehicular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-25 | la propia norma |
+| 2 | 2026-10-09 | Resolución 131 (2026-10-09) |
