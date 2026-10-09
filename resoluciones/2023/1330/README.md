@@ -14,3 +14,4 @@ Reglas para aplicar la paridad horizontal en cargos municipales uninominales de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-14 | la propia norma |
+| 2 | 2026-10-09 | Resolución 9202 (2026-10-09) |
