@@ -14,3 +14,4 @@ Reglamento para el trámite y pago de tiempo extraordinario de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-07-30 | la propia norma |
+| 2 | 2026-10-12 | Reglamento municipal 138 (2026-10-12) |

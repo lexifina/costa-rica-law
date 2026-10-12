@@ -1,7 +1,9 @@
-CAPÍTULO IV
+CAPÍTULO V
 De las faltas
+(Así corregida la numeración del capítulo anterior en sesión N° 138 del 12 de octubre de 2026)
 Artículo 23. Sin perjuicio de otras disposiciones establecidas en el ordenamiento jurídico en materia de sanciones, las siguientes constituyen faltas graves y en consecuencia serán sancionadas conforme corresponde de acuerdo con la gravedad de la falta:
-1. Ejecutar labores extraordinarias sin que exista una autorización previa, por parte de su jefatura inmediata, en los casos en que sea procedente.
+1. Ejecutar labores extraordinarias sin que exista una autorización previa, en los casos que sea procedente.
+(Así reformado el inciso anterior en sesión N° 138 del 12 de octubre de 2026)
 2. No realizar la proyección o estimación de los montos con que se cubrirá el tiempo extraordinario del personal a su cargo, cuando sea una necesidad imperiosa debido a la naturaleza de las labores realizadas.
 3. Autorizar la ejecución de labores en jornada extraordinaria, sin que existan recursos presupuestarios suficientes para respaldar el pago.
 4. Autorizar o laborar jornada extraordinaria, para la ejecución de tareas que se aparten de la naturaleza excepcional del tiempo extraordinario y de su esencia.

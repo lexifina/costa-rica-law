@@ -1,5 +1,6 @@
-CAPÍTULO III
+CAPÍTULO IV
 De las responsabilidades
+(Así corregida la numeración del capítulo anterior en sesión N° 138 del 12 de octubre de 2026)
 Artículo 20. Será responsabilidad única y exclusiva de las jefaturas inmediatas que autorizan la jornada extraordinaria:
 • Incluir en su Plan Anual Operativo una proyección o estimación de los montos con que se cubrirá el tiempo extraordinario para el período presupuestario siguiente, en virtud de proyectos o actividades programadas con anticipación o situaciones imprevisibles.
 • Realizar la solicitud de autorización de tiempo extraordinario, conforme a lo señalado en el artículo 10° de este Reglamento.

@@ -1,3 +1,5 @@
-CAPÍTULO V
+CAPÍTULO VI
 Disposiciones finales
-Artículo 24. Es una obligación ineludible para todo servidor municipal, laborar tiempo extraordinario, cuando la necesidad así lo obligue, lo cual será comunicado con la anterioridad posible, salvo en casos muy calificados de emergencia en algunos de los servicios indispensables que presta la institución y que esté perjudicando la seguridad y la salud de los ciudadanos, en cuyo caso se obviará la comunicación previa.
+(Así corregida la numeración del capítulo anterior en sesión N° 138 del 12 de octubre de 2026)
+Artículo 24.—Cuando por necesidades excepcionales, imperiosas e impostergables del servicio público resulte necesario, las personas servidoras municipales estarán obligadas a laborar tiempo extraordinario, de conformidad con los límites, condiciones y excepciones establecidos en el Código de Trabajo y en el presente Reglamento. La jornada extraordinaria deberá ser debidamente justificada y autorizada por la autoridad competente, de conformidad con el procedimiento establecido en este Reglamento. La comunicación al servidor deberá efectuarse con la antelación posible, salvo aquellos casos de emergencia, siniestro o riesgo inminente en los que, por la naturaleza de la situación, no resulte posible realizarla previamente. En todo caso, la jornada extraordinaria deberá mantenerse dentro de los límites legalmente establecidos y conservar su carácter excepcional y temporal.
+(Así reformado en sesión N° 138 del 12 de octubre de 2026)
