@@ -15,3 +15,4 @@ Reforma Crea el Sistema Nacional de Identificación Individual y Rastreabilidad 
 | --- | --- | --- |
 | 1 | 2026-04-27 | la propia norma |
 | 2 | 2026-05-05 | Decreto Ejecutivo 45789 (2026-05-05) |
+| 3 | 2026-10-12 | Resolución 29 (2026-10-12) |
