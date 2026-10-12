@@ -14,3 +14,4 @@ Reglamento de sesiones del concejo municipal de Parrita y sus comisiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-08-26 | la propia norma |
+| 2 | 2026-10-12 | Reglamento municipal 48 (2026-10-12) |

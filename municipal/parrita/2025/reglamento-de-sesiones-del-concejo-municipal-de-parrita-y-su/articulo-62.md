@@ -1,3 +1,4 @@
 CAPITULO VIII
 Del Secretario del Concejo
-Artículo 62. - El Concejo Municipal contará con un secretario, cuyo nombramiento, suspensión o destitución serácompetencia del Concejo Municipal. El secretario únicamente podrá ser suspendido o destituido de su cargo, si existiere justa causa, previo el debido proceso.
+(Derogado el capítulo anterior en sesión N° 048 del 12 de octubre de 2026)
+Artículo 62. (Derogado en sesión N° 048 del 12 de octubre de 2026)
