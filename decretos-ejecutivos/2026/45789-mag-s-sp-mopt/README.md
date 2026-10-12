@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 45675 del 18/03/2026, "Reforma Crea el Sistema Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-05-07 | la propia norma |
+| 2 | 2026-10-12 | Resolución 29 (2026-10-12) |
