@@ -14,3 +14,4 @@ Reglamento de gestión del departamento de cobro de la Municipalidad de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-07 | la propia norma |
+| 2 | 2026-10-13 | Reglamento municipal 190 (2026-10-13) |
