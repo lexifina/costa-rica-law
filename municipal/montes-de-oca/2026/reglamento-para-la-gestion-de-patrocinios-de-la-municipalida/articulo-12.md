@@ -1,0 +1,2 @@
+Artículo 12.—Fase preparatoria. En la fase preparatoria, la unidad promotora definirá de manera general la actividad o proyecto a patrocinar, incluyendo su naturaleza, alcance, tipo de actividad y necesidades de patrocinio.
+Los aspectos técnicos, operativos y las condiciones específicas aplicables se desarrollarán en los instrumentos o documentos que se emitan para cada caso, conforme a las disposiciones internas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 22. — Informe de cierre. Al concluir el patrocinio, deberá cargarse en el SDU un informe de cierre que incluya al menos: a) valor económico total recibido por la Municipalidad, según corresponda; b) grado de cumplimiento de obligaciones; c) resultados e impacto; d) lecciones aprendidas; e) constancias de publicidad y transparencia.

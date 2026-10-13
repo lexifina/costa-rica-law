@@ -1,0 +1,1 @@
+Artículo 5º—Principios. Este reglamento y las actuaciones bajo su amparo se rigen por los principios de legalidad, razonabilidad, publicidad y trazabilidad digital, libre concurrencia compatible con la naturaleza del patrocinio, costo-beneficio, integridad, control interno, rendición de cuentas y archivo.

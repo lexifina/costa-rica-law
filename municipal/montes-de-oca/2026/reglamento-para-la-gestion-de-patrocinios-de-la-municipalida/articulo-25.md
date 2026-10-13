@@ -1,0 +1,1 @@
+Artículo 25.—Uso de marca e imagen institucional. Toda pieza o material deberá ser preaprobado por el departamento de Comunicación; se respetará identidad visual, restricciones de uso, ubicaciones y plazos definidos en el convenio o procedimiento en el SDU.

@@ -1,0 +1,3 @@
+CAPÍTULO V.
+Modalidades Especiales de Patrocinio
+Artículo 26.—Programas institucionales de patrocinio. La Municipalidad podrá establecer, mediante lineamientos aprobados por la Alcaldía, programas institucionales de patrocinio para promover la participación del sector privado en el desarrollo, construcción, rehabilitación, mejoramiento, conservación, mantenimiento o embellecimiento de infraestructura, equipamiento, bienes inmuebles, –entre ellos edificaciones municipales–, equipamiento y espacios públicos de propiedad municipal o cuya administración haya sido legalmente encomendada a la Municipalidad. Los lineamientos definirán las condiciones técnicas, los criterios de selección, las modalidades de reconocimiento institucional y los mecanismos de seguimiento y control.

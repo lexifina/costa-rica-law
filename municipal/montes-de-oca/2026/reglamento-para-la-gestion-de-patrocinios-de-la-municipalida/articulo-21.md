@@ -1,0 +1,1 @@
+Artículo 21. — Ejecución y seguimiento. La unidad promotora implementará el plan de ejecución y reconocimientos (previa aprobación de piezas por el departamento de Comunicación), cargará en el SDU evidencias de aportes y de reconocimientos, y reportará avances y cierre.

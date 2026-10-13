@@ -1,0 +1,7 @@
+Artículo 3º—Definiciones.
+1) Acto motivado: Resolución del órgano competente (o de quien éste delegue, cuando corresponda) mediante la cual se acredita la procedencia del patrocinio, la conveniencia institucional de la actuación y, cuando corresponda, la selección de la opción más favorable para satisfacer la necesidad administrativa.
+2) LA/FT: Acrónimo de Lavado de Activos y Financiación del Terrorismo.
+3) Patrocinio: Es el mecanismo mediante el cual una municipalidad puede recibir o brindar apoyo económico, material, técnico o logístico o en especie para la realización de proyectos, programas, actividades culturales, deportivas, científicas o de interés, mediante un instrumento jurídico que establezca las obligaciones, aportes y beneficios de las partes.
+4) Reconocimientos: Menciones, inclusión de marca, presencia institucional en eventos o piezas de difusión, según el manual de identidad institucional y las condiciones pactadas.
+5) Sistema Digital Unificado (SDU): Plataforma digital unificada de Costa Rica para la gestión electrónica de contrataciones públicas, administrada técnicamente por RACSA a través del Sistema Integrado de Compras Públicas (SICOP).
+6) Sondeo de posibles patrocinadores: Actuación documentada realizada mediante las plataformas oficiales de comunicación de la Municipalidad u otros medios idóneos, destinada a identificar patrocinadores potenciales y sus condiciones, con el fin de motivar la selección de la opción más favorable.

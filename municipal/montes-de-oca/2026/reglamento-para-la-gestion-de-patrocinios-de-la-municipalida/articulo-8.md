@@ -1,0 +1,1 @@
+Artículo 8º—Asesoría Legal. Deberá emitir criterio jurídico previo a la aprobación y a la formalización (idoneidad del patrocinio, reconocimiento permitido, uso de marca, conflictos de interés, cláusulas de integridad, y compatibilidad con la excepción y con el SDU). El uso de marca deberá contar con el visto bueno del departamento de Comunicaciones.

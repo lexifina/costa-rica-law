@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento es aplicable a todas las dependencias municipales que gestionen, negocien, acepten, ejecuten, administren u otorguen patrocinios en representación de la Municipalidad, cualquiera sea su forma (dinero, especie o servicios).
+Los órganos desconcentrados y comités adscritos se sujetarán a este Reglamento cuando actúen en representación de la Municipalidad o cuando los aportes sean administrados mediante cuentas, bienes o procedimientos institucionales.

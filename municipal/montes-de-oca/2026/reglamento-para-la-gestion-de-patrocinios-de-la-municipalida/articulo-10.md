@@ -1,0 +1,1 @@
+Artículo 10.—Presupuesto y Contabilidad. Corresponde a las unidades de Presupuesto y Contabilidad registrar contablemente los aportes recibidos y los recursos destinados a patrocinios otorgados por la Municipalidad, incluyendo la valoración económica de los aportes en especie o servicios, y remitir los informes respectivos al órgano competente, conforme a la normativa aplicable.

@@ -1,0 +1,1 @@
+Artículo 31.—Conflictos de interés. Los posibles conflictos deberán declararse y gestionarse (abstención, sustitución de responsables o medidas de mitigación), dejando constancia en el SDU o en el convenio si corresponde.

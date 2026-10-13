@@ -1,0 +1,2 @@
+Artículo 9º—Proveeduría. Corresponde a la Proveeduría gestionar y administrar el expediente en el SDU, verificar la completitud documental y brindar apoyo metodológico en la realización del sondeo y la publicidad proporcional.
+Asimismo, le corresponderá realizar las actuaciones de trámite y registro necesarias para la gestión del expediente en el SDU, conforme al acto motivado y a la recomendación técnica correspondiente, sin sustituir las competencias decisorias del órgano competente.

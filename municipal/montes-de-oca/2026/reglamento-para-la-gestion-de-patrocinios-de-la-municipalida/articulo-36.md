@@ -1,0 +1,1 @@
+Artículo 36.—Rescisión por interés público. La Municipalidad podrá rescindir unilateralmente, mediante acto motivado, por razones sobrevenidas de interés público, caso fortuito o fuerza mayor, con la debida notificación al patrocinador.

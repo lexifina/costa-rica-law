@@ -1,0 +1,1 @@
+Artículo 33.—Transparencia activa. La Municipalidad mantendrá un registro público de patrocinios recibidos u otorgados, indicando objeto, patrocinador, patrocinado, valor estimado, vigencia, reconocimientos, unidad responsable y estado de ejecución, resguardando la información confidencial, los secretos comerciales y los datos protegidos por el ordenamiento jurídico.

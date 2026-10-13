@@ -1,0 +1,1 @@
+Artículo 7º—Unidad promotora. La dependencia responsable del programa, proyecto o actividad que se realice mediante el patrocinio deberá completar los formularios e informes requeridos según el procedimiento interno definido.
