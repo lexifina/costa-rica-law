@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-21 | la propia norma |
+| 2 | 2026-10-13 | Resolución 370 (2026-10-13) |
