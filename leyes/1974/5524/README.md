@@ -1,6 +1,6 @@
 # Ley Orgánica del Organismo de Investigación Judicial (OIJ)
 
-Ley N° 5524 del 1974-05-07. SINALEVI, ficha 16037: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=16037&param2=151773&param3=1>.
+Ley N° 5524 del 1974-05-07. SINALEVI, ficha 16037: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=16037&param2=152720&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2017-02-01 | SINALEVI | 2017-02-01 |
 | 4 de 6 | 2019-11-29 | Ley 9753 | 2019-10-23 |
 | 5 de 6 | 2026-06-10 | Ley 10905 | 2026-05-12 |
+| 6 de 6 | 2026-10-13 | Ley 10941 | 2026-05-12 |
