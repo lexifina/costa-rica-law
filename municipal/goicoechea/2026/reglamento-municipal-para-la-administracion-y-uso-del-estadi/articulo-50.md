@@ -1,0 +1,1 @@
+Artículo 50.—Protección de datos: El tratamiento y publicación de información personal deberá cumplir la legislación de protección de datos personales. La transparencia no autoriza la divulgación irrestricta de datos sensibles, datos de personas menores de edad, información confidencial o información cuya reserva se encuentre establecida por ley.

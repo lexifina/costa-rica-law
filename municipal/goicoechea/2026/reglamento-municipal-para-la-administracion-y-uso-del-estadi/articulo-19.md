@@ -1,0 +1,4 @@
+Artículo 19.—Gestión mixta y alianzas público-privadas: La Municipalidad podrá estructurar modelos de gestión mixta o de colaboración público-privada para el Estadio cuando exista una justificación técnica, jurídica, económica y de interés público.
+La alianza público-privada no constituye por sí misma un único título jurídico.
+Podrá instrumentarse mediante convenio cuando la contraparte se encuentre legal o reglamentariamente habilitada para recibir el inmueble en administración y exista una verdadera relación de colaboración orientada a un fin público común.
+Cuando el esquema implique inversión privada recuperable mediante explotación económica, contraprestaciones, derechos exclusivos, prestación de servicios a la Administración, transferencia significativa de riesgos económicos o una relación de mercado, deberá utilizarse el procedimiento contractual, concesional o de colaboración público-privada que resulte legalmente aplicable.

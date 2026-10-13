@@ -1,0 +1,1 @@
+Artículo 33.—Seguros: El instrumento de administración determinará las pólizas y coberturas necesarias y obligatoria según la naturaleza de la gestión, actividades, infraestructura y riesgos. Los organizadores de eventos serán obligados a mantener pólizas adicionales de responsabilidad civil cuando resulte razonable y proporcional.

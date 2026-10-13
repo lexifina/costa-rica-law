@@ -1,0 +1,1 @@
+Transitorio I: Dentro de los tres meses siguientes a la entrada en vigencia de este Reglamento, la Administración Municipal deberá levantar o actualizar el inventario integral del Estadio, incluyendo infraestructura, bienes muebles, estado de conservación y necesidades prioritarias de mantenimiento.

@@ -1,0 +1,2 @@
+Transitorio II: Dentro de los tres meses siguientes a la entrada en vigencia de este Reglamento, la Administración deberá revisar los convenios, permisos, autorizaciones y contratos vigentes relacionados con el Estadio, informar los plazos por los cuales se mantienen vigentes, la entrada en vigencia de este Reglamento no implicará por sí sola la terminación anticipada de relaciones jurídicas constituidas bajo la normativa anterior.
+Publíquese una sola vez.

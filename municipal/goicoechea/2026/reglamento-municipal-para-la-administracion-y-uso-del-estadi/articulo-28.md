@@ -1,0 +1,2 @@
+Artículo 28.—Solicitudes de uso: Las solicitudes se presentarán mediante los canales oficiales habilitados.
+La Administración o la organización administradora, dentro de las competencias que le hayan sido válidamente conferidas, resolverá conforme a disponibilidad, prioridad, características de la actividad, seguridad, protección del inmueble y demás criterios objetivos. La autorización del uso del Estadio no sustituirá ningún permiso sanitario, municipal, de seguridad, espectáculo público, concentración masiva o autorización exigida por otra autoridad.

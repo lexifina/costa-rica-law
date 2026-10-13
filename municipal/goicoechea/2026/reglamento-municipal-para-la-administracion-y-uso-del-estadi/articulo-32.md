@@ -1,0 +1,1 @@
+Artículo 32.—Inventario: El Departamento de Control de Instalaciones Municipales deberá mantener un inventario actualizado de los bienes municipales ubicados en el Estadio. Al inicio y al final de cada convenio o contrato se levantará acta detallada del inmueble y sus bienes. El inventario deberá actualizarse cuando se incorporen, sustituyan, retiren o destruyan activos.
