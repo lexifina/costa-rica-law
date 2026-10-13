@@ -13,3 +13,4 @@ Plazos para practicar notificación personal a la parte prevenida del auto que o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-06-15 | la propia norma |
+| 2 | 2026-10-13 | Circular 183 (2026-10-13) |
