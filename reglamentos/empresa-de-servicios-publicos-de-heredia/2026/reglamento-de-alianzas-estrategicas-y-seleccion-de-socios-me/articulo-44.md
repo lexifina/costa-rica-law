@@ -1,0 +1,2 @@
+ARTÍCULO 44. USO INDEBIDO DE LA EXCEPCIÓN
+Se prohíbe utilizar la alianza estratégica como un mecanismo para la contratación de terceros o la adquisición de bienes y servicios que deban gestionarse mediante los procedimientos ordinarios de contratación. Cualquier intento de eludir el procedimiento ordinario mediante esta figura asociativa tornará el procedimiento en contratación irregular, exponiendo a los funcionarios que la promovieron a las sanciones administrativas, civiles y a las eventuales responsabilidades penales que correspondan.

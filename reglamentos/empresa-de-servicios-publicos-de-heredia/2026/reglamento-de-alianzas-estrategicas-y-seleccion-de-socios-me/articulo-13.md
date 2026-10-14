@@ -1,0 +1,5 @@
+ARTÍCULO 13. AUTORIZACIÓN PARA LA NEGOCIACIÓN
+Una vez emitido el acto motivado de preselección de aliados estratégicos, la Proveeduría Institucional remitirá a la Gerencia General dentro de los cinco días hábiles siguientes a la recepción del acto motivado de preselección, el expediente administrativo completo, junto con la solicitud de autorización previa para iniciar el proceso de negociación con uno o varios postulantes preseleccionados.
+La Gerencia General, de estimarlo procedente, someterá a conocimiento de la Junta Directiva la solicitud de autorización correspondiente.
+La autorización otorgada por la Junta Directiva tendrá por objeto principal habilitar a la Administración para negociar con la persona o las personas postulantes preseleccionadas las condiciones técnicas, financieras, legales, estratégicas y operativas de la eventual alianza estratégica.
+Dicha autorización no implicará la aprobación definitiva de la alianza estratégica, ni generará obligación alguna para la ESPH S.A. de formalizarla, ni derecho subjetivo, expectativa legítima indemnizable o compromiso alguno a favor de la persona o las personas postulantes preseleccionadas.

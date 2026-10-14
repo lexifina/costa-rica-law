@@ -1,0 +1,4 @@
+ARTÍCULO 8. INICIO DEL PROCESO Y SOLICITUD DE CONVOCATORIA
+El procedimiento general para la conformación de alianzas estratégicas se iniciará mediante acto motivado de inicio del proceso de alianza estratégica, suscrito por la persona directora de negocio o líder de macroproceso correspondiente, dirigido a la Proveeduría Institucional de la ESPH S.A., sin perjuicio de las iniciativas que la Gerencia General promueva directamente.
+Dicho acto tendrá por objeto justificar la conveniencia institucional de explorar la estructuración de una alianza estratégica y solicitar la realización del estudio de mercado correspondiente, mediante el uso del banco de postulantes o de cualquier otro mecanismo de consulta al mercado que resulte pertinente.
+Con la emisión del acto motivado se delega a la Proveeduría Institucional a iniciar las gestiones necesarias para realizar el estudio de mercado mediante la convocatoria correspondiente.

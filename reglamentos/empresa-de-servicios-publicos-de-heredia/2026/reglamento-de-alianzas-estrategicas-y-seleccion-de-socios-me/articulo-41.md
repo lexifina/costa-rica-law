@@ -1,0 +1,2 @@
+ARTÍCULO 41. FORMALIZACIÓN.
+Una vez otorgada la autorización por la Junta Directiva, corresponderá a la Gerencia General remitir el expediente al Proceso de Gestión Jurídica, para la revisión, preparación y gestión de los instrumentos societarios correspondientes. Cumplido lo anterior, dichos instrumentos serán suscritos por la Gerencia General o por la persona que expresamente designe la Junta Directiva para tales efectos, en representación de la ESPH S.A.

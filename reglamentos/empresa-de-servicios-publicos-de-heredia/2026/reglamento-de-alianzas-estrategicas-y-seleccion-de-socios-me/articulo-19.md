@@ -1,0 +1,3 @@
+ARTÍCULO 19. ASIGNACIÓN DE RIESGOS EN EL CONTRATO
+En las alianzas estratégicas de investigación, desarrollo tecnológico y desarrollo comercial, se deberá asegurar que el contrato de alianza estratégica establezca de manera expresa los riesgos que asume cada una de las partes, en función de la capacidad efectiva con que cuenten para administrarlos y del perfil de riesgo del proyecto.
+La asignación contractual de riesgos deberá considerar, según corresponda, los riesgos técnicos, financieros, comerciales, operativos, regulatorios y de mercado asociados al proyecto, así como los mecanismos previstos para su gestión, mitigación, seguimiento y eventual reasignación.

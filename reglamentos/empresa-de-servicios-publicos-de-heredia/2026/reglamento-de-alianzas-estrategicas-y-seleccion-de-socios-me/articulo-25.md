@@ -1,0 +1,4 @@
+ARTÍCULO 25. FORMALIZACIÓN Y SUSCRIPCIÓN DEL CONTRATO.
+Para efectos de la presente modalidad, la autorización para la formalización de la alianza estratégica será otorgada por la Gerencia General, en atención a la naturaleza expedita de esta modalidad y en sustitución del procedimiento previsto en el artículo 16 del presente reglamento.
+Dicha autorización se materializará mediante la suscripción del contrato asociativo por parte de la Gerencia General en representación de la ESPH S.A., acto que implica la valoración positiva de la conveniencia institucional de la propuesta resultante de la negociación.
+El contrato suscrito se incorporará al expediente correspondiente en Sistema Digital Unificado de Contratación Pública y podrá iniciarse la ejecución de conformidad con los términos contractuales.

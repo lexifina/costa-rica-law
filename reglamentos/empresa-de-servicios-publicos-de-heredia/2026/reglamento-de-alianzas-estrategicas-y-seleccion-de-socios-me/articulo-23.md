@@ -1,0 +1,4 @@
+ARTÍCULO 23. AUTORIZACIÓN PREVIA
+En atención a la naturaleza expedita de esta modalidad y en ejercicio de la delegación conferida mediante el presente reglamento, la autorización previa para el inicio de la negociación corresponderá a la persona directora de negocio, cuando el proceso haya sido iniciado por el líder de negocio, o a la Gerencia General, cuando la iniciativa haya sido promovida por la Dirección de Negocio.
+La autorización otorgada habilitará al funcionario correspondiente para iniciar la negociación con el aliado estratégico identificado, en los términos definidos en el acto motivado de inicio y conforme a los parámetros derivados del estudio de mercado.
+Dicha autorización no implicará la aprobación definitiva de la alianza, ni generará obligación alguna para la ESPH S.A. de formalizarla, ni derecho subjetivo, expectativa legítima indemnizable o compromiso alguno a favor del potencial aliado.

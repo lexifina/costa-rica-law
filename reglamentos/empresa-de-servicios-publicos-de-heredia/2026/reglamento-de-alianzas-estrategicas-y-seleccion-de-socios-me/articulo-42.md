@@ -1,0 +1,6 @@
+TÍTULO SEXTO. DISPOSICIONES FINALES
+ARTÍCULO 42. DISTRIBUCIÓN DE PERDIDAS Y BENEFICIOS
+En los contratos de alianza estratégica, la distribución de utilidades, pérdidas o resultados económicos entre los miembros de la alianza no constituye una subcontratación ni una prestación de servicios de un miembro hacia otro.
+En consecuencia, cuando la facturación al cliente final sea emitida por uno de los miembros de la alianza en representación del conjunto, la distribución de los resultados que correspondan a los demás miembros se realizará mediante los mecanismos de liquidación interna previstos en el contrato de alianza, sin que dicha distribución genere por sí misma una relación contractual de prestación de servicios entre los miembros, ni la obligación de emitir factura entre ellos por concepto de subcontratación.
+Lo anterior sin perjuicio de las obligaciones tributarias y contables que correspondan a cada miembro conforme a la legislación fiscal.
+Preferentemente, el contrato de alianza estratégica deberá establecer expresamente el mecanismo de liquidación interna, los plazos para su realización y los documentos de respaldo que acreditarán la distribución de resultados entre los miembros.

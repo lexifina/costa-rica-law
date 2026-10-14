@@ -1,0 +1,2 @@
+ARTÍCULO 46. EXCLUSIÓN DEL TRÁMITE DE OFERTAS EN CONSORCIO O EN CONJUNTO ANTE TERCEROS.
+Se excluye del ámbito de aplicación del presente reglamento el trámite interno para la conformación de ofertas en consorcio o en conjunto que la ESPH S.A. presente, en su condición de oferente, ante entidades públicas o privadas dentro de procedimientos de contratación promovidos por dichas entidades. Dicho trámite se regulará mediante los instrumentos internos que para tales efectos disponga la organización.

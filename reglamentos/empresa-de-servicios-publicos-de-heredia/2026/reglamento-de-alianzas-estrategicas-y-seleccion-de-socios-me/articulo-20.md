@@ -1,0 +1,6 @@
+SECCIÓN II: ALIANZA ESTRATÉGICA PARA DESARROLLO COMERCIAL
+ARTÍCULO 20. ALCANCE
+La presente sección regula la tramitación de las alianzas estratégicas mediante las cuales la ESPH S.A. y su aliado coordinan capacidades técnicas, operativas, financieras o de experiencia para aprovechas oportunidades de negocio para el desarrollo comercial de la Empresa, excluyendo de esta figura la conformación de consorcios o en conjunto, conforme el articulo 46 del presente reglamento.
+Esta modalidad será aplicable cuando exista una oportunidad de negocio identificada que justifique la conformación expedita de una alianza estratégica, en razón de la naturaleza acotada del proyecto, los plazos propios de la oportunidad y la conveniencia institucional de actuar de manera ágil para su aprovechamiento.
+Para efectos de esta sección, se entenderá por proyecto el conjunto de esfuerzos conjuntos orientados a acceder a la oportunidad de negocio identificada, sin que ello implique necesariamente la aplicación de una metodología específica de gestión de proyectos.
+En lo no previsto en la presente sección, se aplicarán de forma complementaria las disposiciones del procedimiento general contenidas en el Título Segundo del presente reglamento, en cuanto resulten compatibles con la naturaleza expedita de esta modalidad.

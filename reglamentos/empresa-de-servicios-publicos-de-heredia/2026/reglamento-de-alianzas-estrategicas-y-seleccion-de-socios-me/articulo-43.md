@@ -1,0 +1,3 @@
+ARTÍCULO 43. RÉGIMEN DE PROHIBICIONES
+No podrán ser seleccionados como aliados estratégicos las personas físicas o jurídicas que se encuentren bajo las causales de prohibición establecidas en los artículos 25 y 26 de la Ley General de Contratación Pública (LGCP).
+Para la selección de socios mercantiles para subsidiarias o filiales, en atención al deber de probidad, se aplicará el régimen previsto en materia de contratación pública. Asimismo, deberán observarse el régimen de incompatibilidades y las disposiciones relativas a conflictos de interés establecidas en la Ley N.º 8422 del 6 de octubre de 2004, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, así como en su Reglamento.

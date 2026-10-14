@@ -1,0 +1,3 @@
+ARTÍCULO 47. INTERPRETACIÓN Y VACÍOS
+En caso de duda sobre la aplicación del presente reglamento, se acudirá, en primera instancia, a lo dispuesto en la Ley General de Contratación Pública, Ley N.º 9986, su Reglamento y, supletoriamente, a la Ley General de la Administración Pública, Ley N.º 6227, en todo aquello relacionado con las alianzas estratégicas.
+Para la interpretación del Título Quinto, relativo a la selección de socios mercantiles para subsidiarias y filiales, así como de sus artículos concordantes, prevalecerá lo dispuesto en la Ley N.º 7789 del 30 de abril de 1998, denominada Ley de Transformación de la Empresa de Servicios Públicos de Heredia, y en el Código de Comercio, Ley N.º 3284 del 30 de abril de 1964.
