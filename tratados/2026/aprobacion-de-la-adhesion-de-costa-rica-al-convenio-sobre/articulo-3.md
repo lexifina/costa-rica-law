@@ -1,0 +1,17 @@
+Artículo 3
+PREVENCION, CONTROL Y REDUCCION
+1. Con objeto de prevenir, controlar y reducir el impacto transfronterizo, las Partes elaborarán, adoptarán y aplicarán las medidas jurídicas, administrativas, económicas, financieras y técnicas que corresponda, haciéndolas compatibles en la medida de lo posible, a fin de garantizar, entre otras cosas, que:
+a) Se prevenga, controle y reduzca en su origen la emisión de contaminantes mediante la aplicación de, entre otras cosas, tecnologías de desechos escasos o nulos;
+b) Se protejan las aguas transfronterizas frente a la contaminación procedente de fuentes puntuales mediante la expedición previa, por las autoridades nacionales competentes, de una autorización para el vertido de aguas residuales, y se vigilen y controlen los vertidos autorizados;
+c) Los límites para los vertidos de aguas residuales que figuren en los permisos se establezcan atendiendo a la mejor tecnología disponible para los vertidos de sustancias peligrosas;
+d) Se impongan requisitos más estrictos, que en determinados casos podrán llegar a la prohibición, cuando así lo exija la calidad de las aguas receptoras o del ecosistema;
+e) Se aplique al menos un tratamiento biológico u otros procesos equivalentes a las aguas residuales urbanas, de manera progresiva cuando sea necesario;
+f) Se adopten las medidas adecuadas, por ejemplo, recurriendo a la mejor tecnología disponible, a fin de reducir el aporte de nutrientes generado por fuentes industriales y urbanas;
+g) Se elaboren y apliquen las medidas adecuadas y las mejores prácticas ambientales para reducir el aporte de nutrientes y sustancias peligrosas a partir de fuentes difusas, en especial cuando el principal origen sea la agricultura (las directrices para establecer las mejores prácticas ambientales figuran en el anexo II del presente Convenio);
+h) Se efectúen evaluaciones del impacto ambiental y se utilicen otros medios de evaluación;
+i) Se fomente la gestión sostenible de los recursos hídricos, incluida la aplicación del enfoque ecosistémico;
+j) Se elaboren planes de contingencia;
+k) Se adopten medidas específicas adicionales para prevenir la contaminación de las aguas subterráneas;
+l) Se reduzca al mínimo el riesgo de contaminación accidental.
+2. Con este fin, cada Parte establecerá límites de emisión para los vertidos de fuentes puntuales a las aguas superficiales, determinados con arreglo a la mejor tecnología disponible, que se aplicarán específicamente a cada uno de los sectores industriales o industrias que generen las sustancias peligrosas. Las medidas apropiadas que se mencionan en el párrafo 1 del presente artículo para prevenir, controlar y reducir el aporte de sustancias peligrosas a las aguas desde fuentes puntuales y difusas podrán comprender, entre otras cosas, la prohibición total o parcial de la producción o utilización de esas sustancias. Se tendrán en cuenta las listas de sectores industriales o industrias y de sustancias peligrosas que figuran en la normativa o los convenios internacionales aplicables al ámbito del presente Convenio.
+3. Además, cada Parte definirá, según proceda, objetivos de calidad del agua y adoptará criterios de calidad del agua para prevenir, controlar y reducir el impacto transfronterizo. En el anexo III del presente Convenio se ofrecen orientaciones generales para la formulación de estos objetivos y criterios. Cuando sea necesario, las Partes procurarán actualizar dicho anexo.

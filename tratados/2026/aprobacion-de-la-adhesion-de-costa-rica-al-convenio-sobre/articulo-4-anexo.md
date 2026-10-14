@@ -1,0 +1,25 @@
+ANEXO IV
+ARBITRAJE
+1. En el caso de que una controversia se someta a arbitraje con arreglo a lo dispuesto en el artículo 22, párrafo 2, del presente Convenio, la(s) parte(s) notificará(n) a la secretaría el objeto de la controversia e indicará(n), en particular, los artículos del presente Convenio cuya interpretación o aplicación se discuten. La secretaría transmitirá la información recibida a todas las Partes en el presente Convenio.
+2. El tribunal de arbitraje estará compuesto por tres miembros. Tanto la(s) parte(s) demandante(s) como la(s) otra(s) parte(s) en la controversia nombrarán un árbitro, y los dos árbitros así nombrados designarán de mutuo acuerdo al tercer árbitro, que presidirá el tribunal.
+El presidente del tribunal no podrá ser nacional de ninguna de las partes en la controversia ni residir habitualmente en el territorio de ninguna de esas partes, ni estar empleado por ninguna de ellas ni haberse ocupado del caso en ninguna otra calidad.
+3. Si en un plazo de dos meses desde el nombramiento del segundo árbitro no se ha designado al presidente del tribunal de arbitraje, el Secretario Ejecutivo de la Comisión Económica para Europa, a petición de cualquiera de las partes en la controversia, lo designará en un nuevo plazo de dos meses.
+4. Si una de las partes en la controversia no nombra un árbitro en un plazo de dos meses desde la recepción de la demanda, la otra parte podrá informar de ello al Secretario Ejecutivo de la Comisión Económica para Europa, que designará al presidente del tribunal de arbitraje en un nuevo plazo de dos meses. Una vez designado, el presidente del tribunal de arbitraje solicitará a la parte que no haya nombrado un árbitro que lo haga en un plazo de dos meses. Si no lo hace dentro de ese plazo, el presidente informará de ello al Secretario Ejecutivo de la Comisión Económica para Europa, que procederá al nombramiento en un nuevo plazo de dos meses.
+5. El tribunal de arbitraje adoptará su decisión de conformidad con el derecho internacional y las disposiciones del presente Convenio.
+6. Los tribunales de arbitraje constituidos con arreglo a las disposiciones del presente anexo establecerán sus propios reglamentos.
+7. Las decisiones del tribunal de arbitraje, tanto en materia de procedimiento como sobre las cuestiones de fondo, se adoptarán por mayoría de votos de sus miembros.
+8. El tribunal podrá emprender todas las medidas que considere oportunas para determinar los hechos.
+9. Las partes en la controversia facilitarán al tribunal de arbitraje su tarea y, en particular, empleando todos los medios a su alcance:
+a) Le proporcionarán todos los documentos, servicios e información pertinentes;
+b) Lo facultarán, cuando sea necesario, para citar a testigos o peritos y recabar su testimonio.
+10. Las partes y los árbitros protegerán la confidencialidad de toda la información de carácter reservado que reciban durante el procedimiento arbitral.
+11. El tribunal de arbitraje, a solicitud de una de las partes, podrá recomendar medidas provisionales de protección.
+12. Si una de las partes en la controversia no comparece ante el tribunal de arbitraje o no defiende sus argumentos, la otra parte podrá solicitar al tribunal que prosiga el procedimiento y dicte su decisión definitiva. El hecho de que una parte no comparezca o no defienda sus argumentos no impedirá la continuación del procedimiento.
+13. El tribunal de arbitraje podrá conocer de las reconvenciones derivadas directamente del objeto de la controversia y resolverlas.
+14. Salvo que el tribunal de arbitraje determine otra cosa en razón de las circunstancias particulares del caso, los gastos del tribunal, incluida la remuneración de sus miembros, serán sufragados en igual proporción por las partes en la controversia. El tribunal llevará un registro de todos sus gastos y presentará un estado final a las partes.
+15. Las Partes en el presente Convenio que tengan un interés de carácter jurídico en el objeto de la controversia y que puedan resultar afectadas por una decisión recaída en el asunto podrán intervenir en el procedimiento si lo autoriza el tribunal.
+16. El tribunal de arbitraje dictará su laudo dentro de los cinco meses siguientes a la fecha en que se haya constituido, excepto si considera necesario prorrogar ese plazo por un período no superior a cinco meses adicionales.
+17. El laudo del tribunal de arbitraje irá acompañado de una exposición de motivos. Será firme y vinculante para todas las partes en la controversia. El tribunal de arbitraje comunicará el laudo a las partes en la controversia y a la secretaría. Esta transmitirá la información recibida a todas las Partes en el presente Convenio.
+18. Cualquier controversia que surja entre las partes en relación con la interpretación o la ejecución del laudo podrá ser sometida por cualquiera de las partes al tribunal de arbitraje que lo haya dictado o, si este no pudiera conocer de la controversia, a otro tribunal constituido a tal efecto de la misma manera que el primero.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los siete días del mes de octubre del año dos mil veintiséis.

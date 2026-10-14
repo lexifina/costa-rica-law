@@ -1,0 +1,6 @@
+Artículo 11
+VIGILANCIA Y EVALUACIÓN CONJUNTAS
+1. En el marco de la cooperación general mencionada en el artículo 9 del presente Convenio, o de otros arreglos específicos, las Partes Ribereñas establecerán y pondrán en práctica programas conjuntos de vigilancia del estado de las aguas transfronterizas, lo que incluirá las crecidas y los hielos flotantes, así como del impacto transfronterizo.
+2. Las Partes Ribereñas acordarán los parámetros de contaminación y los contaminantes cuyos vertido y concentración en aguas transfronterizas deban ser objeto de una vigilancia asidua.
+3. Las Partes Ribereñas realizarán, a intervalos periódicos, evaluaciones conjuntas o coordinadas del estado de las aguas transfronterizas y de la eficacia de las medidas adoptadas para la prevención, el control y la reducción del impacto transfronterizo. Los resultados de esas evaluaciones se harán públicos conforme a lo establecido en el artículo 16 del presente Convenio.
+4. A estos efectos, las Partes Ribereñas armonizarán normas para la creación y el funcionamiento de programas de vigilancia, sistemas de medición, dispositivos, técnicas analíticas, procedimientos de tratamiento y evaluación de datos y métodos de registro de contaminantes vertidos.

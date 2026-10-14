@@ -1,0 +1,19 @@
+SEGUNDA PARTE
+DISPOSICIONES APLICABLES A LAS PARTES RIBEREÑAS
+Artículo 9
+COOPERACIÓN BILATERAL Y MULTILATERAL
+1. Las Partes Ribereñas, ateniéndose a los principios de igualdad y reciprocidad, concertarán acuerdos bilaterales o multilaterales o arreglos de otra índole, cuando no los haya, o adaptarán los existentes, cuando ello sea necesario para eliminar las contradicciones con los principios fundamentales del presente Convenio, con la finalidad de definir sus relaciones mutuas y su conducta en lo que atañe a la prevención, el control y la reducción del impacto transfronterizo. Las Partes Ribereñas especificarán cuál es la cuenca hidrográfica, o su parte o partes, que serán objeto de cooperación. Esos acuerdos o arreglos se referirán a las cuestiones pertinentes contempladas en el presente Convenio, así como a cualquier otro asunto con respecto al cual las Partes Ribereñas consideren necesario cooperar.
+2. Los acuerdos o arreglos mencionados en el párrafo 1 del presente artículo dispondrán el establecimiento de órganos conjuntos. Las funciones de estos órganos conjuntos serán, entre otras, y sin perjuicio de lo dispuesto en los acuerdos o arreglos pertinentes que ya existan, las que figuran a continuación:
+a) Reunir, recopilar y evaluar datos con el fin de determinar cuáles son las fuentes de contaminación que con probabilidad puedan producir un impacto transfronterizo;
+b) Elaborar programas de vigilancia conjunta relativos a la cantidad y calidad del agua;
+c) Hacer inventarios e intercambiar información sobre las fuentes de contaminación mencionadas en el párrafo 2 a) del presente artículo;
+d) Establecer límites de emisión para las aguas residuales y evaluar la eficacia de los programas de control;
+e) Definir objetivos y criterios conjuntos de calidad del agua teniendo en cuenta lo dispuesto en el artículo 3, párrafo 3, del presente Convenio, y proponer las medidas que correspondan para mantener y, cuando sea necesario, mejorar la calidad del agua;
+f) Elaborar programas de acción concertada para la reducción de las cargas de contaminación procedentes tanto de fuentes puntuales (por ejemplo, las fuentes urbanas e industriales) como de fuentes difusas (en particular las agrícolas);
+g) Establecer procedimientos de aviso y alerta;
+h) Servir de foro para el intercambio de información sobre los usos existentes y previstos del agua y las instalaciones conexas que con probabilidad podrían causar un impacto transfronterizo;
+i) Promover la cooperación y el intercambio de información sobre la mejor tecnología disponible con arreglo a lo dispuesto en el artículo 13 del presente Convenio, y fomentar la cooperación en programas de investigación científica;
+j) Participar en la realización de evaluaciones del impacto ambiental de las aguas transfronterizas, de conformidad con la normativa internacional pertinente.
+3. En el caso de que un Estado costero, Parte en el presente Convenio, se vea afectado directa y sustancialmente por un impacto transfronterizo, las Partes Ribereñas pueden, si todas ellas así lo deciden, invitarlo a participar según corresponda en las actividades de los órganos conjuntos multilaterales que hayan establecido las Partes Ribereñas de esas aguas transfronterizas.
+4. Los órganos conjuntos constituidos con arreglo al presente Convenio invitarán a los órganos conjuntos que hayan sido instituidos por los Estados costeros para proteger el medio marino directamente afectado por un impacto transfronterizo a cooperar para armonizar su labor y prevenir, controlar y reducir dicho impacto.
+5. Cuando existan dos o más órganos conjuntos en la misma cuenca hidrográfica, estos se esforzarán por coordinar sus actividades con el fin de reforzar la prevención, el control y la reducción del impacto transfronterizo en esa cuenca hidrográfica.

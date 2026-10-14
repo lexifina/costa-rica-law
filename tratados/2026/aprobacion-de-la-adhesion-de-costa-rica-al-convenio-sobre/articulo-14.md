@@ -1,0 +1,3 @@
+Artículo 14
+SISTEMAS DE AVISO Y ALERTA
+Las Partes Ribereñas se informarán mutuamente y sin demora de cualquier situación crítica que pueda tener un impacto transfronterizo. Las Partes Ribereñas establecerán, cuando proceda, y utilizarán sistemas coordinados o conjuntos de comunicación, aviso y alerta con el fin de recabar y transmitir información. Para su funcionamiento estos sistemas recurrirán a los procedimientos y medios compatibles de transmisión y tratamiento de datos que acuerden las Partes Ribereñas. Las Partes Ribereñas se comunicarán mutuamente los nombres de las autoridades competentes o los puntos de contacto designados a estos efectos.
