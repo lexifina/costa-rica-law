@@ -1,0 +1,3 @@
+Artículo 2º— Declaratoria de interés público. Se declaran de interés público las actividades que realice el Ministerio, la Administración Pública y empresas privadas, en cumplimiento de lo dispuesto en este Reglamento.
+Los órganos, entes públicos, empresas del Estado y sus instituciones quedan facultadas para colaborar en el logro de los objetivos del SNVPC, que ejecute el Ministerio, la Administración Pública y empresas privadas, conforme a sus competencias y la disponibilidad legal de recursos.
+Asimismo, se autoriza a las empresas privadas para colaborar con los fines y las actividades relacionadas con el presente Reglamento.

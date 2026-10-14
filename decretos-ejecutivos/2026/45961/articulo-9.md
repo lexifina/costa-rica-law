@@ -1,0 +1,3 @@
+Artículo 9º— Impedimento de acceso a personal no autorizado a las salas donde se instalarán los monitores que captan las imágenes enviadas por los dispositivos. Queda estrictamente prohibido el acceso de personal no autorizado por el Ministerio, a las salas en donde se instalarán los monitores en donde se exhiben los datos e imágenes enviadas por los dispositivos de video protección.
+En todo caso, el acceso a la información así recopilada se hará únicamente mediante autorización individual y expresa de las autoridades con acceso a ella.
+El acceso quedará debidamente registrado en el mismo sistema, a fin de poder establecer responsabilidades por el eventual mal uso de la información.

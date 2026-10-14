@@ -1,0 +1,2 @@
+Artículo 24º— Uso de los datos e imágenes tomadas por las cámaras de video protección para procesos judiciales. Las autoridades judiciales podrán hacer uso de los datos e imágenes captadas por las cámaras de video protección, únicamente en el conocimiento y tramitación de causas judiciales.
+Los (las) fiscales y personal del Ministerio Público y del Organismo de Investigación Judicial, tendrán acceso a la información recogida y almacenada por el Ministerio, únicamente mediante orden judicial emanada de una autoridad con investidura de juez penal.

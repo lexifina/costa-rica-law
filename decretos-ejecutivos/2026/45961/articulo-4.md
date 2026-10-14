@@ -1,0 +1,2 @@
+Artículo 4º— Monitoreo en vías de transporte y circulación. Las disposiciones establecidas en este Reglamento son aplicables no solo al monitoreo en calles y avenidas urbanas, sino también a carreteras, caminos y autopistas nacionales. Asimismo, estas normas podrán extenderse en caso de necesidad, a edificios e instalaciones donde se presten servicios públicos de cualquier naturaleza.
+Las imágenes obtenidas de las cámaras corporales, vehículos aéreos no tripulados y las instaladas en los medios de transporte policial, podrán utilizarse para los mismos fines.

@@ -1,0 +1,3 @@
+Artículo 8º— Ubicación física de los dispositivos de video protección. Las autoridades del Ministerio establecerán convenios tanto con instituciones del Estado, como con la empresa privada y gobiernos locales, para la ubicación e instalación de las cámaras de video protección.
+Tales dispositivos deben instalarse con la suficiente altura, que permita tener la mayor cobertura posible para captar y transmitir datos e imágenes.
+La administración y el monitoreo de las cámaras instaladas en vías y espacios públicos estarán a cargo exclusivamente del personal policial de la Dirección de Operaciones y de otros cuerpos policiales del Ministerio.
