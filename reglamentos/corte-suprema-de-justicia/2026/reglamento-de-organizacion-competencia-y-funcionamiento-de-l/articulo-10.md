@@ -1,0 +1,3 @@
+Artículo 10. Atención obligatoria de recomendaciones y medidas correctivas. Las autoridades, oficinas y jefaturas del Poder Judicial a las que se dirijan recomendaciones o informes con propuestas de mejora deberán analizarlos y adoptar, dentro del ámbito de sus competencias, las medidas procedentes.
+Si estiman inviable la recomendación, deberán justificarlo por escrito ante la Contraloría de Servicios dentro del plazo conferido.
+Cuando las recomendaciones cuenten con respaldo de un acuerdo del Consejo Superior o de la Corte Suprema de Justicia, su incumplimiento solo podrá justificarse ante el órgano emisor de dicho acuerdo.

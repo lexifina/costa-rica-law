@@ -1,0 +1,6 @@
+Artículo 38. Gestiones electrónicas. Cuando las gestiones sean presentadas mediante plataformas digitales, correo electrónico, formularios web u otros medios electrónicos habilitados institucionalmente, se aplicarán las siguientes reglas:
+a. Las gestiones se tendrán por recibidas en la fecha y hora que consten en el acuse de recibo electrónico, registro del sistema institucional o medio tecnológico utilizado para su presentación.
+b. Los plazos legales o reglamentarios para su atención y trámite comenzarán a computarse a partir del día hábil siguiente al de su recepción.
+c. La Contraloría de Servicios deberá garantizar la atención y respuesta oportuna, aplicando los mismos principios, requisitos y plazos establecidos en el presente reglamento para las demás modalidades de presentación.
+d. Cuando la gestión presentada electrónicamente carezca de información esencial para su atención, la Contraloría de Servicios podrá requerir a la persona usuaria que subsane, complete o aclare la información correspondiente dentro de un plazo razonable.
+e. La utilización de medios electrónicos deberá realizarse garantizando la confidencialidad, integridad y protección de los datos e información suministrada por las personas usuarias, conforme al ordenamiento jurídico aplicable.

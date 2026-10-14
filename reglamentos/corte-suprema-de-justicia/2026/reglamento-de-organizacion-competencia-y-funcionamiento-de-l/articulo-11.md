@@ -1,0 +1,4 @@
+Sección II
+Personal de la Contraloría de Servicios
+Artículo 11. Estructura interna de la Contraloría de Servicios. La Contraloría de Servicios estará a cargo de una persona Contralora de Servicios y una persona Subcontralora de Servicios; por las personas Contraloras de Servicios Regionales, Auxiliares de Contraloría de Servicios, personal profesional y de apoyo administrativo que resulte necesario en las oficinas y sedes para el cumplimiento de sus competencias, conforme a los estudios técnicos correspondientes.
+Los requisitos, competencias, funciones específicas y demás condiciones de los puestos que integran la Contraloría de Servicios serán los establecidos en el Manual Descriptivo de Clases de Puestos y demás disposiciones emitidas por la Dirección de Gestión Humana del Poder Judicial, sin perjuicio de las funciones asignadas en el presente reglamento.

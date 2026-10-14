@@ -1,0 +1,14 @@
+Artículo 13. Funciones de la persona Contralora de Servicios. Son atribuciones de la persona Contralora de Servicios, en su condición de jefatura de la Contraloría de Servicios del Poder Judicial:
+a. Dirigir, planificar, organizar, coordinar y supervisar el funcionamiento de la Contraloría de Servicios a nivel institucional.
+b. Asesorar a la Corte Plena, al Consejo Superior y a otras autoridades institucionales en materias vinculadas con la atención a personas usuarias y la calidad de los servicios judiciales.
+c. Formular y presentar el Plan Anual de Trabajo de la Contraloría de Servicios y su Informe Anual de Labores, así como los informes periódicos que le sean requeridos por parte del jerarca institucional y la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios.
+d. Representar a la Contraloría de Servicios ante instancias internas y externas.
+e. Emitir directrices, disposiciones internas, manuales o protocolos necesarios para el funcionamiento operativo de la Contraloría, conforme a lo dispuesto en este Reglamento y la normativa aplicable.
+f. Resolver, en el ámbito de sus competencias, los asuntos sometidos a conocimiento de la Contraloría de Servicios, velando por la pronta y adecuada respuesta a las personas usuarias y mantener registros actualizados sobre las gestiones atendidas.
+g. Elevar al conocimiento de la Corte Plena, el Consejo Superior o de las autoridades competentes, según corresponda, aquellos casos en los que las recomendaciones de la Contraloría hayan sido ignoradas, que se deban atender de forma especial o cuando persistan deficiencias en los servicios que puedan afectar derechos de las personas usuarias.
+h. Evaluar la prestación de los servicios, incluida la entrega de ayudas técnicas requeridas por las personas con discapacidad.
+i. Verificar que se pongan en práctica las normas, directrices y políticas que en materia de servicios dicten las autoridades, para lo cual las dependencias deberán informar de previo a la Contraloría sobre el particular.
+f. Velar por la observancia, en el ámbito de sus competencias, de los lineamientos, políticas generales y directrices emitidas por la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios que resulten aplicables al Poder Judicial. En caso de incumplimiento deberá comunicarlo al jerarca institucional y a la Secretaría Técnica para que tomen las acciones correspondientes.
+g. Coadyuvar en la elaboración y aprobación de manuales, códigos y/o protocolos de atención de servicio a las personas usuarias.
+h. Identificar conflictos actuales y potenciales en la relación persona usuaria-institución, para determinar sus causas y formular las recomendaciones correspondientes.
+i. Ejercer las demás funciones que le asigne el ordenamiento jurídico, el Consejo Superior o la Corte Suprema de Justicia, siempre que sean compatibles con la naturaleza y fines de la Contraloría de Servicios.

@@ -1,0 +1,1 @@
+Artículo 48. Derogatorias. Quedan derogadas todas las disposiciones de igual o menor jerarquía que se le opongan al presente reglamento. Se deroga el anterior “Reglamento de Creación, Organización y Funcionamiento de la Contraloría de Servicios del Poder Judicial” aprobado en sesión de Corte Plena 33-2000 del 28 de agosto del 2000, artículo XXXIII.

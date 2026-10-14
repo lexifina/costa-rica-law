@@ -1,0 +1,3 @@
+Artículo 21. Límites al acceso de la información. El ejercicio de las potestades de acceso a la información estará sujeto a las limitaciones establecidas en el ordenamiento jurídico, en particular respecto de información clasificada como secreto de Estado, confidencial o de acceso restringido.
+El acceso a datos personales deberá limitarse a aquellos estrictamente necesarios para el cumplimiento de sus funciones.
+Se excluye el acceso a deliberaciones internas, proyectos de resolución o actuaciones en trámite pendientes de formalización, salvo que resulte indispensable para la tutela del derecho de la persona usuaria y no se comprometa la independencia funcional del órgano competente.

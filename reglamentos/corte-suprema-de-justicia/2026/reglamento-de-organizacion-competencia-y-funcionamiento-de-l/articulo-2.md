@@ -1,0 +1,3 @@
+Artículo 2. Naturaleza y adscripción orgánica. La Contraloría de Servicios es un órgano auxiliar, asesor, técnico y especializado, encargado de evaluar la calidad y promover la mejora continua en la prestación de los servicios judiciales.
+Actuará como instancia de enlace entre las personas usuarias y el Poder Judicial, mediante la atención de gestiones, la evaluación del servicio y la emisión de recomendaciones para su mejora.
+Ejercerá sus funciones con independencia funcional y de criterio, objetividad e imparcialidad, y estará adscrita al Consejo Superior del Poder Judicial, sin perjuicio de su autonomía técnica en el ejercicio de sus competencias.

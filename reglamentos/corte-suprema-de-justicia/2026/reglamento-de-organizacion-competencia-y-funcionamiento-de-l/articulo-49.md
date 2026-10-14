@@ -1,0 +1,1 @@
+Artículo 49. Gestiones en trámite. Las gestiones, denuncias, quejas o requerimientos en trámite ante la Contraloría de Servicios, a la fecha de entrada en vigencia de este reglamento, se readecuan, en lo posible, a sus disposiciones.

@@ -1,0 +1,4 @@
+Artículo 6. Definiciones. Para los efectos de este Reglamento, se entiende por:
+a. Gestión de la persona usuaria: Se entiende por gestión cualquier planteamiento que formule ante la Contraloría de Servicios, sea en forma de petición, inconformidad o reclamo, queja o denuncia, consulta, sugerencia o felicitación, relacionado con la calidad de los servicios judiciales, el funcionamiento de las oficinas o la conducta del personal en el ejercicio de sus funciones.
+b. Persona usuaria: toda persona física o jurídica, que acceda, utilice o requiera los servicios brindados por el Poder Judicial.
+c. Personas servidoras judiciales: Personas que prestan sus servicios materiales e intelectuales a nombre y por cuenta del Poder Judicial, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.

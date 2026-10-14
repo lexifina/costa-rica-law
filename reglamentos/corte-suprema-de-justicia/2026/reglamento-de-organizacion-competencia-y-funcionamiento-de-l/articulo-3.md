@@ -1,0 +1,2 @@
+Artículo 3. Finalidad. La Contraloría de Servicios tiene como finalidad promover la calidad, eficiencia y transparencia en la prestación de los servicios judiciales, mediante la atención oportuna de las gestiones de las personas usuarias, la promoción de su participación y la evaluación del buen funcionamiento de los servicios institucionales.
+Asimismo, procurará la protección de los derechos de las personas usuarias y el fortalecimiento de una cultura institucional orientada al servicio y al trato digno.
