@@ -1,0 +1,1 @@
+Artículo 14.—Toda persona con interés legítimo podrá oponerse a la gestión, mediante la presentación de un escrito motivado, acompañado de la prueba en que fundamenten su criterio, durante los primeros diez días hábiles del plazo antes indicado.

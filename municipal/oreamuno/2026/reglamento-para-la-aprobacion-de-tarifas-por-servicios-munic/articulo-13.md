@@ -1,0 +1,1 @@
+Artículo 13.—Toda la información relacionada con la tramitación tarifaria, incluyendo los estudios técnicos que respaldaron la fijación tarifaria, estarán al alcance de los interesados en la dependencia de atención al usuario que la Administración determine y será debidamente divulgada por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad permitirá el acceso de los consumidores y usuarios de los servicios públicos que presta directa o indirectamente el Gobierno Local a los estudios técnicos en que fundamentó la fijación realizada.

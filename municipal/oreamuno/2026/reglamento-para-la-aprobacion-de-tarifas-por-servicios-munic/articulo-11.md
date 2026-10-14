@@ -1,0 +1,1 @@
+Artículo 11.—Recibido el proyecto, el Concejo Municipal lo someterá a votación; en caso de que sea aprobado acordara su publicación en el diario oficial, de la correspondiente audiencia otorgando un plazo mínimo de quince días naturales desde la publicación y citando lugar y hora de inicio de la audiencia pública.
