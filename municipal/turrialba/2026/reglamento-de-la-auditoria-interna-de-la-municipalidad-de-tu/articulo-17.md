@@ -1,0 +1,1 @@
+Artículo 17.—Fundamentación del acto de desestimación o archivo de denuncias. La desestimación o archivo de las denuncias se realizará mediante un acto debidamente fundamentado en el que se indique la causal utilizada para la desestimación y archivo, así como el detalle para determinar dicha conclusión donde acredite los argumentos valorados para tomar esa decisión.

@@ -1,0 +1,2 @@
+Artículo 15.—Tramitación de la denuncia y prohibición de delegar. Respecto de las denuncias que la Auditoría Interna considere que va a tramitar e investigar, aun cuando pueda contar con el apoyo técnico y profesional que requiera, no podrá delegar tal función en terceros.
+La atención de las denuncias estará en función de los recursos disponibles con que cuenta la auditoria, técnicos como humanos. Así mismo, la prioridad en la atención de las denuncias recibidas, estarán en función del volumen de denuncias que se encuentran en proceso o en trámite de gestión.

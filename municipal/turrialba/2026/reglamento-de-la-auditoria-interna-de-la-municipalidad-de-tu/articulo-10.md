@@ -1,0 +1,1 @@
+Artículo 10.—Acuse de recibo. Una vez revisado el cumplimiento de los requisitos establecidos en el artículo 8, se remitirá en un plazo no mayor a 10 días hábiles contados a partir de la fecha de recepción de la denuncia, el acuse de recibo de la gestión presentada ante la Auditoría Interna al lugar de notificaciones indicado por el denunciante para tal fin, si lo incluyera.
