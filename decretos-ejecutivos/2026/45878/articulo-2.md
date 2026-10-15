@@ -1,1 +1,0 @@
-Artículo 2.- Deróguese el Decreto Ejecutivo N° 45734-H del 9 de abril de 2026, publicado en el Alcance N° 44 a La Gaceta N° 77 de fecha 28 de abril de 2026, a partir de la vigencia del presente Decreto Ejecutivo.
