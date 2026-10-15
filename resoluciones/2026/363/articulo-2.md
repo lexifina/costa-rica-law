@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Educación Pública establecerá, conforme a su dinámica institucional y educativa, la programación necesaria para la tramitación ordenada de los estudios previstos en el artículo 104 bis del Estatuto de Servicio Civil.

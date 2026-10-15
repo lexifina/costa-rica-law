@@ -1,0 +1,1 @@
+Artículo 7º—Corresponderá al Ministerio de Educación Pública verificar y aplicar a las personas servidoras nombradas en propiedad como resultado de la aplicación del artículo 104 bis del Estatuto de Servicio Civil, el período de prueba respectivo, de conformidad con la normativa estatutaria y de empleo público.
