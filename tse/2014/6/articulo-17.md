@@ -1,2 +1,0 @@
-Artículo 17.—De los lugares por cedular y las propuestas de traslado electoral: La Contraloría Electoral remitirá a la DGRE el listado de los lugares que requieran cedulación, esto con el objetivo de optimizar la planificación de los trabajos de campo y la aprobación del trámite de los gastos de viaje correspondientes.
-Lo anterior no descarta la opción que tienen los electores de gestionar su traslado de domicilio electoral, de acuerdo con lo dispuesto en el artículo 75 de la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil.

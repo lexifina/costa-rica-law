@@ -1,1 +1,0 @@
-Artículo 3º—Plazo para la creación y modificación de la DTE: Con base en lo dispuesto en el artículo 143 del Código Electoral, el TSE no podrá crear distritos electorales o modificarlos en los ocho meses anteriores a las elecciones generales o municipales.

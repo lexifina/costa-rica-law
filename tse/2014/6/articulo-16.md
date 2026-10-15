@@ -1,1 +1,0 @@
-Artículo 16.—Actualización de los sistemas informáticos y aplicación de traslados de domicilio electoral: Con la entrada en vigencia de la DTE, la Contraloría Electoral aplicará las modificaciones del caso en el sistema de información correspondiente y las comunicará al Departamento Electoral.

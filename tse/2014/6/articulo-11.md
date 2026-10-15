@@ -1,1 +1,0 @@
-Artículo 11.—Estudio de campo: Consiste en la verificación in situ de los estudios previos de cada solicitud de cambio de la DTE. Dicha tarea conlleva el levantamiento de datos de campo, la verificación de límites y la realización de entrevistas.

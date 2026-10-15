@@ -1,2 +1,0 @@
-Artículo 2º—De la formulación y publicación de la División Territorial Administrativa (DTA): De conformidad con el artículo 1° de la Ley N° 6068: “Ley que congela la División Territorial Administrativa”, la DTA no podrá variarse en los 14 meses previos al día de una elección general o municipal.
-El Poder Ejecutivo formulará la DTA y gestionará su publicación en La Gaceta Digital en los 12 meses anteriores a los comicios.

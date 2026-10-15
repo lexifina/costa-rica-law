@@ -1,1 +1,0 @@
-Artículo 19.—Derogatoria y fecha de rige. Derógase el Decreto N° 02-1997, Reglamento para la creación de distritos electorales y juntas receptoras de votos, publicado en La Gaceta N° 33 del 17 de febrero de 1997. Rige a partir de su publicación.
