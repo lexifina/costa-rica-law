@@ -1,1 +1,0 @@
-Artículo 8°—En la empresa Programa Integral de Mercadeo Agropecuario, se compromete a divulgar el contenido de la Ley contra el hostigamiento sexual en el empleo y la docencia, así como los procedimientos internos para su aplicación.
