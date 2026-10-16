@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Este Reglamento regulará el uso y la administración de la piscina semiolímpica del CCDRE, quien deberá velar por el cumplimiento de los fines establecidos en este Reglamento, así como de su mantenimiento. De igual forma se establecen las normas y condiciones de seguridad, higiene y el respeto entre los usuarios que utilicen de dichas instalaciones.

@@ -1,0 +1,1 @@
+Artículo 4º—El uso de la piscina. Será exclusivo para la enseñanza de la natación y actividades afines permitidas; estará dirigido a toda la comunidad que podrá disfrutar de los beneficios de la piscina y de las actividades y servicios que en ellas se desarrollen o se presten para el cumplimiento de sus fines.

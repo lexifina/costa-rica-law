@@ -1,0 +1,1 @@
+Artículo 13.—Rotulación. Dentro del y fuera del área de la piscina y en lugares ampliamente visibles se deberán colocar rótulos con indicaciones generales del presente Reglamento, que contengan principalmente las normas de prohibiciones, sanciones, tarifas, seguridad e higiene establecidas.

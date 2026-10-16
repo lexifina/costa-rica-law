@@ -1,0 +1,1 @@
+Artículo 7º—Indumentaria. Los usuarios deberán de utilizar la vestimenta reglamentaria la cual corresponde a: traje de baño, gorra de natación y anteojos de natación, entre otros. No se permite el ingreso a la piscina con ningún tipo de ropa ni accesorios que no sea la reglamentaria, ni utilizar ropa interior bajo el traje de baño.

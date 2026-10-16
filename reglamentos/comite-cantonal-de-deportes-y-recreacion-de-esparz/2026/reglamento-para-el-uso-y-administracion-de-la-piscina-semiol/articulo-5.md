@@ -1,0 +1,1 @@
+Artículo 5º—Horario y Actividades. A la asociación deportiva encargada de la administración, corresponderá coordinar y establecer los horarios de utilización de la piscina dentro del orden de los servicios y actividades del cumplimiento de los fines.

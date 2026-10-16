@@ -1,0 +1,1 @@
+Artículo 16.—Eventos deportivos. Mediante acuerdo de la Junta Directiva del CCDRE, esta pueda autorizar el uso de la piscina para realizar actividades como eventos y competencias deportivas afines a la misma, ya sean de índole nacional o internacional.

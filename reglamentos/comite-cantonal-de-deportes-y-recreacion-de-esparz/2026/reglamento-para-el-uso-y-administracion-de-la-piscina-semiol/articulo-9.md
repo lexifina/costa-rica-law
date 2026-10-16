@@ -1,0 +1,1 @@
+Artículo 9º—Comportamiento dentro de la piscina. Se debe evitar el ruido que pueda molestar e incomodar a otros usuarios. Además, se debe evitar correr, empujar o realizar trabajos peligrosos dentro de las instalaciones.
