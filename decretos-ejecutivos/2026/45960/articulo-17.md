@@ -1,0 +1,2 @@
+Artículo 17.- Coordinación interinstitucional. El MS coordinará con el MICITT y la PRODHAB la adopción de las acciones técnicas, tecnológicas y de gobernanza necesarias para la implementación y el desarrollo del Modelo Nacional de Interoperabilidad en Salud, dentro del ámbito de las competencias legalmente atribuidas a cada institución.
+El MS podrá coordinar con otras instituciones públicas competentes cuando la implementación del Modelo incida en ámbitos sujetos a su rectoría o competencia legal, respetando las atribuciones de cada institución.

@@ -1,0 +1,1 @@
+Artículo 11.- Implementación progresiva del Modelo Nacional de Interoperabilidad en Salud. Las obligaciones previstas en el presente reglamento que, requieran adecuaciones tecnológicas, organizativas u operativas se implementarán de manera progresiva, de conformidad con el Plan de Implementación Progresiva regulado en el artículo siguiente.

@@ -1,0 +1,1 @@
+Artículo 31.- Derogatoria. Deróguese el "Reglamento sobre uso de estándares para datos de salud en la atención de pacientes", Decreto Ejecutivo N° 39652-S-MICIT del 29 de febrero de 2016, publicado en La Gaceta N° 110 del 8 de junio de 2016.
