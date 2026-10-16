@@ -1,0 +1,1 @@
+Transitorio 2 – Los funcionarios que actualmente son remunerados conforme salario global y se les asignare funciones temporales adicionales de igual o distinta naturaleza en el contexto de esta resolución, salvo las indicadas en el transitorio anterior, serán remunerados conforme a lo aquí dispuesto.

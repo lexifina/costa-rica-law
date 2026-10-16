@@ -1,0 +1,1 @@
+Artículo 3. Cada asignación temporal de funciones adicionales de igual o distinta naturaleza estará asociado a un recargo o ampliación de jornada existente para la modalidad de salario compuesto, de conformidad con el anexo a la presente Resolución.

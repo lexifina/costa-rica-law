@@ -1,0 +1,1 @@
+Transitorio 1 – Los funcionarios que actualmente tengan asignación temporal de funciones adicionales de igual o distinta naturaleza de conformidad con la Resolución DG-144-2024, deberán finalizarlos según esa norma.
