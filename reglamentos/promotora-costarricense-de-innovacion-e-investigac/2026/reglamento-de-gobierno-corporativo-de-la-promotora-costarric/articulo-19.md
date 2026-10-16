@@ -1,0 +1,3 @@
+Artículo 19. Política de rotación
+La política de rotación de los miembros de la Junta Directiva se determinará de conformidad con los plazos y mecanismos establecidos en la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N°9971, y específicamente, por las decisiones y acuerdos dictadas por el Consejo de Gobierno.
+Las políticas de rotación para los miembros de los Comités, tanto internos como externos, serán establecidos y dictados de conformidad con el principio de paralelismo de las formas, sea que se modificará o reformará la integración de los mismos, según lo determine el órgano jurídicamente competente para su de conformación inicial.

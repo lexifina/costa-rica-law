@@ -1,0 +1,4 @@
+Artículo 17. Políticas sobre las relaciones sectoriales
+La Junta Directiva aprobará las políticas sobre el manejo de las interacciones entre instituciones y entidades que conforman el ecosistema del sector Ciencia, Tecnología e Innovación, procurando que se ejecuten de manera coordinada, transparente, con probidad, eficiencia y en beneficio de la población objetivo de la Promotora. Para ello deberán considerarse al menos los siguientes aspectos:
+a. Lineamientos para garantizar la confidencialidad de la información de cada institución.
+b. Lineamientos para la gestión cuando se verifiquen causales en la negociación de acuerdos, convenios o negociaciones de cualquier índole que puedan representar un posible conflicto de interés para la Promotora o sus servidores, otras instituciones del sector y/o respecto de los productos o servicios que genera cada una de ellas.

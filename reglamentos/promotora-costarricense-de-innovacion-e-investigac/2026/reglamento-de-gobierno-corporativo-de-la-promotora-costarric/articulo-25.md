@@ -1,0 +1,8 @@
+Artículo 25. Procedimiento de selección de las personas integrantes del Consejo Asesor Externo
+La selección de las personas integrantes del Consejo Asesor Externo se realizará mediante un procedimiento objetivo, transparente y documentado, conforme a las siguientes etapas:
+a. Nominación. Las candidaturas deberán presentarse por escrito ante la Junta Directiva, acompañadas del currículum, atestados y una justificación de la idoneidad de la persona propuesta.
+b. Verificación. La dependencia que designe la Junta Directiva verificará el cumplimiento de los requisitos de formación, experiencia, disponibilidad, idoneidad y demás condiciones establecidas para integrar el Consejo, así como la inexistencia de prohibiciones o incompatibilidades.
+c. Declaración de intereses. Cada persona candidata deberá presentar una declaración de intereses, relaciones profesionales, comerciales, institucionales o personales que puedan originar un conflicto de interés real, potencial o aparente.
+d. Valoración comparativa. Las candidaturas admisibles serán evaluadas mediante una matriz previamente aprobada, que considere, como mínimo, experiencia profesional, conocimientos técnicos, trayectoria, complementariedad de competencias, representación sectorial, independencia de criterio y posibles conflictos de interés.
+e. Recomendación técnica. Los resultados de la evaluación se consignarán en un informe técnico que incluirá la puntuación obtenida, la comparación de candidaturas y la recomendación debidamente fundamentada.
+f. Nombramiento. La Junta Directiva conocerá el informe técnico y efectuará la designación mediante acuerdo motivado, dejando constancia de las razones de selección y del cumplimiento de los requisitos establecidos.

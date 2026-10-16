@@ -1,0 +1,2 @@
+Artículo 20. Seguimiento de las Políticas de Gobierno Corporativo
+La Junta Directiva aprobará y establecerá las políticas que determinen las consecuencias para los miembros d e Junta Directiva, Gerencia General, Direcciones, Jefaturas, miembros de comités de apoyo y demás personal de la Promotora, por el incumplimiento de las políticas y lineamientos planteadas en el Reglamento y Código de Gobierno Corporativo.

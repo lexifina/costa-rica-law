@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación
+Las disposiciones establecidas en el presente Reglamento son de aplicación obligatoria para los miembros titulares y suplentes de la Junta Directiva, la Gerencia General, los integrantes de la Auditoría Interna, las jefaturas o personas titulares subordinadas, integrantes de órganos colegiados, comités o comisiones y partes interesadas en el ámbito de sus competencias y conforme a la normativa aplicable, así como para el personal en general de la Institución.
