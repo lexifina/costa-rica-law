@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Funcionamiento de la Municipalidad de Sa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-06 | la propia norma |
+| 2 | 2026-10-19 | Reglamento 128 (2026-10-19) |
