@@ -1,1 +1,0 @@
-Artículo 7°—Los funcionarios indicados en el Artículo 6o, deben enviar la solicitud formal, a la Unidad de Servicios Administrativos, para el trámite de otorgamiento de telefonía móvil (celulares), con la autorización de la Jefatura inmediata. Se exceptúa de esta autorización al Gerente y Subgerente.
