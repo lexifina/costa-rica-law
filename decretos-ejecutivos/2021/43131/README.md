@@ -14,3 +14,4 @@ Declara estado de emergencia nacional la situación provocada por el temporal en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-27 | la propia norma |
+| 2 | 2026-10-19 | Decreto Ejecutivo 45975 (2026-10-19) |
