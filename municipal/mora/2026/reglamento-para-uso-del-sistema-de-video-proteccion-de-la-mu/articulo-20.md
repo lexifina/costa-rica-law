@@ -1,0 +1,1 @@
+Artículo 20.—Vigencia del presente reglamento. El presente reglamento deberá cumplir el procedimiento de aprobación establecido en el artículo 43 del Código Municipal para entrar en vigor.Rige a partir de su publicación, segunda publicación.

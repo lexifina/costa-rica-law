@@ -1,0 +1,4 @@
+Artículo 6º—Alcances. No se aplicará el presente Reglamento:
+a) A los dispositivos de video de uso particular y/o empresarial privado, salvo que se encuentren instalados en terrenos, infraestructuras o equipo móvil municipal.
+b) A los dispositivos de video fijos o portátiles pertenecientes tanto a particulares como a oficiales de la policía municipal o de otros cuerpos policiales y de emergencia.
+Las disposiciones establecidas en este Reglamento son en sentido amplio, de aplicación exclusiva para la seguridad y protección de cualquier extensión territorial del cantón de Mora que se considere de interés estratégico, siempre y cuando se encuentre dentro de sus límites y se respete el derecho de los ciudadanos a la intimidad y la privacidad.

@@ -1,0 +1,1 @@
+Artículo 19.—Régimen disciplinario. Cualquier infracción a los deberes establecidos en el presente Reglamento, se considerará falta disciplinaria del servidor y se aplicará lo establecido en los artículos 158 y 159 del Código Municipal.

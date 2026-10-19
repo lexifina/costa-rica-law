@@ -1,0 +1,1 @@
+Artículo 2º—Objeto y declaratoria de interés público. Este Reglamento es de orden público y su objeto es regular la operación y funcionamiento del Sistema de video protección del cantón de Mora, además de las relaciones entre éste, la ciudadanía y las demás instituciones del Estado.
