@@ -1,0 +1,1 @@
+Artículo 18.—Las disposiciones del presente perfil profesional deberán interpretarse de conformidad con la Ley Nº 8863, Ley Orgánica del Colegio de Profesionales en Orientación de Costa Rica, y el ordenamiento jurídico vigente, con prevalencia, en todo caso, del marco legal sobre cualquier interpretación extensiva de las funciones aquí descritas.

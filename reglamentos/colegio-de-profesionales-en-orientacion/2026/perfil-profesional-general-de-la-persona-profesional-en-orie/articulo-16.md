@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de las obligaciones relacionadas con la protección de datos personales podrá generar responsabilidad disciplinaria, civil o administrativa, de conformidad con la Ley Nº 8968, Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, su reglamento y demás normativa aplicable.

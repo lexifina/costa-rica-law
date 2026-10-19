@@ -1,0 +1,1 @@
+Artículo 17.—El ejercicio profesional en Orientación no comprende la realización de actos propios del diagnóstico y la intervención clínica, los cuales corresponden exclusivamente a las profesiones que cuenten con habilitación legal específica para tales fines.

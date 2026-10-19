@@ -1,0 +1,1 @@
+Artículo 15.—La persona profesional en Orientación deberá resguardar la confidencialidad de la información obtenida en el ejercicio profesional, mediante el manejo responsable, seguro, moral y ético de los datos personales de quienes orienta.
