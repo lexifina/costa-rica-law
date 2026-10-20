@@ -1,0 +1,1 @@
+Artículo 18.- Control y aseguramiento de la calidad de la información geográfica. Previamente a la incorporación de información o modificaciones en la base digital de la DTE, el SIGE deberá aplicar los procedimientos de control de calidad y aseguramiento de la integridad que corresponda, de conformidad con la naturaleza y características de la información.

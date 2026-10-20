@@ -1,0 +1,3 @@
+SECCIÓN II
+CARTOGRAFÍA ELECTORAL Y POLIGONIZACIÓN
+Artículo 15.- Cartografía electoral oficial. La cartografía electoral oficial estará constituida por las capas geoespaciales, mapas, bases de datos, metadatos y demás productos técnicos generados por el SIGE, la Contraloría Electoral y aprobados por el Tribunal. Esa cartografía tendrá carácter instrumental para la organización electoral y deberá guardar correspondencia con el texto oficial de la DTE. En caso de divergencia, se realizará la verificación técnica y jurídica correspondiente con base en la DTE oficial antes de adoptar cualquier decisión registral u operativa.

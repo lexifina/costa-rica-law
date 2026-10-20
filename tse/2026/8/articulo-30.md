@@ -1,0 +1,3 @@
+SECCIÓN II
+ESTUDIO GEOGRÁFICO ELECTORAL Y PARTICIPACIÓN
+Artículo 30.- Expediente geográfico-electoral. Toda propuesta deberá tramitarse en un expediente geográfico-electoral y electrónico, que contenga la solicitud o acto de inicio, antecedentes, normativa aplicable, cartografía, datos registrales y demográficos, informes de campo, imágenes, entrevistas, comunicaciones, criterios institucionales, análisis de alternativas, conclusiones y recomendación. El expediente geográfico-electoral deberá brindar trazabilidad, así como razones técnicas en aras de poder comprender y auditar -en caso de que se requiera- la decisión adoptada.

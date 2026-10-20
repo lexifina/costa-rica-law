@@ -1,0 +1,2 @@
+Artículo 33.- Participación y consulta territorial. Cuando la modificación pueda afectar de manera relevante a una comunidad, la Contraloría Electoral procurará obtener información de actores representativos mediante entrevistas, reuniones, consultas escritas u otros mecanismos adecuados.
+En territorios indígenas se respetarán las formas culturalmente pertinentes de participación y coordinación. La participación tendrá carácter informativo y consultivo más no sustituirá la competencia decisoria del Tribunal.

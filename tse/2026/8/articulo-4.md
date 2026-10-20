@@ -1,0 +1,3 @@
+SECCIÓN II
+PRINCIPIOS RECTORES
+Artículo 4.- Principios rectores. La interpretación y aplicación de este reglamento se regirá por los principios de sufragio universal, independencia electoral, legalidad, objetividad técnica, igualdad, seguridad jurídica, estabilidad territorial, transparencia, trazabilidad, accesibilidad, proximidad, continuidad y coherencia geográfica, razonabilidad, proporcionalidad, eficiencia administrativa, participación informada, coordinación interinstitucional, protección de datos personales, no discriminación y enfoque diferenciado respecto de poblaciones en condición de vulnerabilidad.

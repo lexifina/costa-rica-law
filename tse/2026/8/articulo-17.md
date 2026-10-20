@@ -1,0 +1,1 @@
+Artículo 17.- Sistemas de referencia, información geográfica y metadatos. La información geográfica utilizada para la formulación, actualización y administración de la DTE deberá elaborarse, almacenarse y gestionarse conforme con los sistemas de referencia, estructuras de datos, formatos y demás estándares técnicos que establezca el SIGE.

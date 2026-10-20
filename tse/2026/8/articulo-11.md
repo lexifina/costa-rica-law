@@ -1,0 +1,3 @@
+SECCIÓN II
+COORDINACIÓN Y COLABORACIÓN
+Artículo 11.- Coordinación interinstitucional. La Contraloría Electoral en coordinación con la DGRE podrá solicitar información y coordinar actuaciones con el Instituto Geográfico Nacional, el Instituto Nacional de Estadística y Censos, el Ministerio de Educación Pública, el Ministerio de Justicia y Paz, el Ministerio de Salud, el Consejo Nacional de la Persona Adulta Mayor, la Caja Costarricense de Seguro Social, gobiernos locales, asociaciones de desarrollo integral, autoridades indígenas y cualquier otra entidad pública o privada cuya colaboración resulte necesaria para los objetivos relacionados con la DTE. La información oficial recibida deberá incorporarse al respectivo expediente geográfico-electoral.

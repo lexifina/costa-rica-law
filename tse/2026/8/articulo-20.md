@@ -1,0 +1,2 @@
+Artículo 20.- Actualización y versionamiento. La DTE digital se actualizará cada vez que una modificación adquiera eficacia. Cada publicación deberá identificarsu versión, fecha de corte, decreto o acuerdo de aprobación y responsables técnicos.
+A partir de la publicación de este reglamento la Contraloría Electoral y la DGRE conservarán las versiones históricas, de modo que pueda reconstruirse la configuración territorial aplicable a cada proceso electoral.
