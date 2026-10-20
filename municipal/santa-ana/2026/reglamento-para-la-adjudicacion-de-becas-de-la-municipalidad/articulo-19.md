@@ -1,0 +1,2 @@
+Artículo 19.—El Proceso de Vulnerabilidad y Riesgo Social realizará dos seguimientos de becas durante el segundo semestre de cada año, mediante el cual se revisará el rendimiento académico y si a continúa escolarizado, para calificar la continuidad de la beca.
+El responsable legal o persona interesada tiene la obligación de presentar los documentos que se le soliciten, de lo contrario la beca puede ser suspendida mientras perdure la omisión, o perderla en los casos de falta total de respuesta en un plazo de 2 meses.

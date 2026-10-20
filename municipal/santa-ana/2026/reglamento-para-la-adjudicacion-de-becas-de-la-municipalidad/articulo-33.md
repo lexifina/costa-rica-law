@@ -1,0 +1,1 @@
+Artículo 33.—La persona estudiante detectada con duplicidad de beneficio podrá presentar una nueva solicitud al Programa de Becas Municipales una vez transcurrido un año desde que se determinó dicha situación y siempre que haya cumplido con la devolución de los recursos, cuando ésta hubiere sido ordenada por la Municipalidad conforme a este Reglamento.

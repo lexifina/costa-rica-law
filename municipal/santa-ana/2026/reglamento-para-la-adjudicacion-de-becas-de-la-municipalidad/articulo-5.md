@@ -1,0 +1,1 @@
+Artículo 5º—Del monto la beca: Con base en un estudio de mercado realizado anualmente por el Proceso de Vulnerabilidad y Riesgo Social. El Concejo Municipal determinará el monto de la beca que cubra el costo mensual del destino.

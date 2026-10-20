@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la Comisión Especial de Becas
+Artículo 23.—Creación de la Comisión: Mediante el presente reglamento se crea una Comisión Especial de Becas, integrada por al menos tres miembros, escogidos por la presidencia del Concejo Municipal, dos deberán ser regidurías propietarias y suplentes. Pueden integrarla también las sindicaturas propietarias y suplentes, estos últimos tendrán voz y voto. La Comisión de Becas deberá reunirse una vez al mes para la revisión del dictamen emitido por el Proceso de Vulnerabilidad y Concejos de distrito, a fin de trasladar al Concejo Municipal la debida recomendación para la aprobación de becas del periodo.

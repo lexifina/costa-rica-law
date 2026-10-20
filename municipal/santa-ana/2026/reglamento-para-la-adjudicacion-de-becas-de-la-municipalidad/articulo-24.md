@@ -1,0 +1,1 @@
+Artículo 24.—Selección final: La Comisión dará una revisión final de las solicitudes con calificación y recomendación positiva, y rendirá un dictamen para el Concejo Municipal donde pedirá el acuerdo municipal de adjudicación de beca con el número de documento de identificación de cada estudiante beneficiario.

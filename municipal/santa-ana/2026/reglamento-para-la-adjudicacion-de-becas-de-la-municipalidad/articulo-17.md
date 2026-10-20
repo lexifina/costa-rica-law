@@ -1,0 +1,1 @@
+Artículo 17.—Aumento del límite de pobreza (rango de tolerancia): Siempre que exista contenido económico para adjudicar más becas; pueden resultar calificadas aquellas solicitudes cuya condición socioeconómica supere hasta en un 5%, el límite de pobreza.

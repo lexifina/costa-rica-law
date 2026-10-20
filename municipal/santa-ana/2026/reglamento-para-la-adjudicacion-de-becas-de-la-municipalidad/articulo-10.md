@@ -1,0 +1,1 @@
+Artículo 10.—Posterior a la postulación enviada por centros educativos, las personas interesadas en realizar solicitud de beca serán notificadas vía correo electrónico, (según información aportada) sobre el formulario de solicitud y requisitos que debe adjuntar).

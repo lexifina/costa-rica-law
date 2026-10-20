@@ -1,0 +1,1 @@
+Artículo 12.—Actualización de datos: Durante toda la duración de la beca; es obligación del responsable legal, mantener actualizados los datos de contacto; número de teléfono, correo electrónico y dirección; ante el Proceso de Vulnerabilidad y Riesgo Social. Pues estos son los medios de comunicación para el seguimiento de control para la renovación de la beca.

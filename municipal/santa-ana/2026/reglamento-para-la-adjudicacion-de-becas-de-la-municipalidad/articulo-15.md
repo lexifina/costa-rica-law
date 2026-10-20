@@ -1,0 +1,1 @@
+Artículo 15.—Bases de datos públicas: Para realizar estos estudios, el Proceso de Vulnerabilidad y Riesgo Social accederá a las bases de datos públicas disponibles como registro civil y de la propiedad.

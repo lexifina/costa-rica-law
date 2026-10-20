@@ -1,0 +1,5 @@
+CAPÍTULO IX
+De las Sanciones:
+Artículo 32.—Duplicidad de beneficios. Las personas estudiantes que sean detectadas, mediante consulta en la plataforma del Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), como beneficiarias de otra beca estudiantil, perderán el beneficio de la beca municipal y deberán reintegrar a la Municipalidad los montos percibidos durante el período en que haya existido duplicidad del beneficio.
+Para tales efectos, el Concejo Municipal, previo dictamen de la Comisión de Becas podrá suspender de forma inmediata el beneficio y previo cumplimiento del debido proceso, podrá revocar de forma definitiva la beca y ordenar el reintegro del dinero.
+Una vez firme el acto administrativo que ordene el reintegro, la persona estudiante o, cuando corresponda, quien ejerza su representación legal o la institución de acogida a quien se haya depositado la beca, dispondrá de un plazo de treinta días naturales contados a partir de la notificación para efectuar la devolución de los recursos.

@@ -1,0 +1,1 @@
+Artículo 20.—El Proceso de Vulnerabilidad y Riesgo Social conformará una red interinstitucional que contribuya con el proceso de comunicación y divulgación del programa de becas, en cada centro educativo

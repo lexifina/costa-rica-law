@@ -1,0 +1,1 @@
+Artículo 18.—Cantidad de becas por hogar: Primariamente, se asignará una beca por hogar. No obstante; en caso de que la calificación socioeconómica sea como de extrema pobreza; se podrá asignar más de una beca al mismo hogar.

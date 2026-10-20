@@ -1,0 +1,1 @@
+Artículo 26.—El Proceso de Vulnerabilidad y Riesgo Social podrá recomendar anualmente a las personas becarias que hayan obtenido un desempeño académico sobresaliente, con el fin de que sean objeto del reconocimiento honorífico previsto en este Reglamento.

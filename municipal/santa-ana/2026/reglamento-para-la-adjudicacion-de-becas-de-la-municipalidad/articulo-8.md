@@ -1,0 +1,1 @@
+Artículo 8º—Las solicitudes para el trámite de becas por primera vez podrán ser presentadas por las personas interesadas durante todo el año, en la primera semana de cada mes. Dicha solicitud puede realizarla de manera física en la Oficina de Vulnerabilidad y Riesgo Social o bien presentarla de manera digital al correo de tramites.becas@ santaana.go.cr.
