@@ -1,0 +1,2 @@
+Artículo 3.- Permanencia de efectos. Los estudios correspondientes a I y II Ciclos de la Educación General Básica que se realicen en el Centro Educativo Campus de Aprendices continuarán equiparándose con los del Sistema Educativo Costarricense, en los términos y condiciones establecidos en el Decreto Ejecutivo N.º 30507-MEP y en la normativa aplicable.
+En todo lo demás, el Decreto Ejecutivo N.º 30507-MEP se mantiene incólume.
