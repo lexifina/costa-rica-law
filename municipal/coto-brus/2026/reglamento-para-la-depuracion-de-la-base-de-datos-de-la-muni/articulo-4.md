@@ -1,0 +1,1 @@
+Artículo 4º—Comisión de depuración: A efecto de ejecutar la depuración, la Alcaldía Municipal nombrará una comisión institucional conformada por funcionarios de los departamentos de Subproceso de Administración Tributaria, Tecnologías de Información, Departamento Legal, Proceso de Ordenamiento Territorial, Gestión Ambiental, y Contabilidad.

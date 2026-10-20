@@ -1,0 +1,1 @@
+Artículo 8º—Responsabilidad de los funcionarios: el cumplimiento de las disposiciones del presente reglamento será obligatorio para los funcionarios involucrados, constituyendo su incumplimiento falta laboral conforme al Código Municipal.

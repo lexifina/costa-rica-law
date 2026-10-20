@@ -1,0 +1,1 @@
+Artículo 11.—Evaluación y control: El departamento de Tecnología de la Información, en coordinación con los superiores jerárquicos, realizará auditorías periódicas para verificar el cumplimiento de este reglamento y la correcta gestión de la depuración.

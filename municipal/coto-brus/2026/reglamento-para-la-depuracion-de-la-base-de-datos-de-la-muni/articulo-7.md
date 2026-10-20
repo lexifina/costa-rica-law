@@ -1,0 +1,1 @@
+Artículo 7º—Resoluciones técnicas: cada proceso de depuración deberá contar con una resolución técnica motivada, que justifique la acción, emitida por el responsable técnico, y aprobada por el superior jerárquico correspondiente.

@@ -1,0 +1,1 @@
+Artículo 13.—Obligatoriedad. El acatamiento y aplicación de este Reglamento, es de carácter obligatorio para los encargados de las unidades ejecutoras autorizadas en el presente reglamento de depuración de datos.
