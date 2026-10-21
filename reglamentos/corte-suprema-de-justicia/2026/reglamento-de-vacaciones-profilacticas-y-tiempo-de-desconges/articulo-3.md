@@ -1,0 +1,6 @@
+Artículo 3. Definiciones. Para los efectos del presente reglamento, se entenderá por:
+a) Días hábiles: Se consideran días hábiles aquellos en los que la persona servidora judicial debe cumplir su jornada ordinaria de trabajo, según su rol de servicios, turno o programación establecida por su jefatura. Incluye sábados, domingos y feriados cuando estos formen parte de su horario habitual de servicio.
+b) Exposición acumulada: Magnitud total de la presencia de un agente físico, químico, biológico o psicosocial a la que se somete la persona servidora judicial de forma continuada o reiterada durante un periodo determinado.
+c) Puesto: Conjunto de funciones y atribuciones ejecutadas en un entorno laboral determinado, el cual es evaluado técnicamente para identificar los factores de riesgo físicos, químicos, biológicos o psicosociales a los que se somete el titular de dicho cargo.
+d) Tiempo de descongestionamiento: Espacio de tiempo donde se suspende la exposición de la persona con el factor de riesgo correspondiente con el fin de reducir la probabilidad de ocurrencia de un riesgo del trabajo.
+e) Vacaciones profilácticas: Cesación temporal del trabajo que tiene como finalidad conservar o preservar la salud del trabajador mediante un efecto descongestionante es decir de suspender la exposición a los factores de riesgos asociados.

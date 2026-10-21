@@ -1,0 +1,1 @@
+Artículo 37. Normativa Supletoria. En todos los aspectos, situaciones o controversias no previstos expresamente en el presente capítulo, se aplicará de forma supletoria lo establecido en capítulo II sobre vacaciones profilácticas de este reglamento.

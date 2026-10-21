@@ -1,0 +1,4 @@
+Artículo 20. Cese de vacaciones profilácticas. La Corte Suprema de Justicia podrá disponer el cese de beneficio en el momento en que la Dirección de Gestión Humana demuestre técnicamente que el descanso ha perdido su carácter preventivo o profiláctico, por alguna de las siguientes causas:
+a) Superación de condiciones: Cuando se hayan mitigado o eliminado los factores de riesgo ambiental, físico o psicosocial que dieron origen al beneficio.
+b) Modificación de la exposición: Cuando la exposición al riesgo en el puesto se haya suprimido debido a cambios en la metodología de trabajo, incorporación de nuevas tecnologías, reestructuración de tareas o traslado definitivo del puesto a circunstancias sin exposición a riesgos.
+c) Incumplimiento del presupuesto temporal: Cuando no se cumpla con el plazo mínimo de permanencia o de exposición acumulada en las labores que justifican técnicamente la necesidad de la profilaxis.

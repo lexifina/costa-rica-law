@@ -1,0 +1,4 @@
+Artículo 16. Régimen de sustituciones. Por regla general, la persona servidora judicial que se encuentre en disfrute de vacaciones profilácticas no podrá ser sustituida.
+De forma excepcional, la sustitución procederá únicamente ante una afectación inminente de la continuidad del servicio público, siempre que exista disponibilidad presupuestaria. El procedimiento se sujetará a las siguientes reglas:
+a) Trámite de autorización: La jefatura respectiva deberá solicitar la sustitución con la antelación debida, contando con la verificación previa de contenido económico por parte de la Unidad de Presupuesto de la Dirección de Gestión Humana y la aprobación final del Consejo Superior.
+b) Prohibición de sustituciones en cadena: En ninguna circunstancia se autorizarán movimientos en cadena derivados de esta excepción. La sustitución deberá limitarse estrictamente a la plaza de la persona servidora judicial que disfruta de las vacaciones profilácticas.

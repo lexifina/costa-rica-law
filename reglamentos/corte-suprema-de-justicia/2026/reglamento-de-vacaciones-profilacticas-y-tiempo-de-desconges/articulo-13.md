@@ -1,0 +1,2 @@
+Artículo 13. Continuidad del cómputo por movimientos de personal.La persona servidora judicial que sea objeto de ascenso, traslado, permuta o nombramiento interino, conservará la continuidad del tiempo de exposición acumulado, siempre que el nuevo puesto esté incluido en el ámbito de aplicación definido en el artículo 2 del presente reglamento.
+En estos casos, el cambio de funciones o de ubicación física no interrumpirá el cómputo para el goce de las vacaciones profilácticas, a condición de que se mantenga la exposición efectiva al riesgo en la nueva posición.

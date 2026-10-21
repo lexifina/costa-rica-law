@@ -1,0 +1,3 @@
+Artículo 14. Efectos de la incapacidad por enfermedad o por riesgos de trabajo. Las incapacidades que afecten a la persona servidora judicial tendrán los siguientes efectos sobre las vacaciones profilácticas:
+a) Incapacidades prolongadas: El cómputo del periodo de exposición se interrumpirá cuando la persona servidora judicial se encuentre incapacitada por un lapso continuo igual o superior a cuatro meses.
+b) Durante el disfrute: Si la incapacidad sobreviene durante el goce de las vacaciones profilácticas, estas se suspenderán. Una vez que la persona servidora judicial reciba el alta médica, el periodo restante se programará por parte de la jefatura inmediata conforme al rol anual establecido y lo indicado en el artículo 8 del presente reglamento.

@@ -1,0 +1,4 @@
+Artículo 18. Prohibición de compensación, posposición, acumulación o fraccionamiento. Dada la naturaleza y el fin preventivo de las vacaciones profilácticas, su disfrute es obligatorio e irrenunciable, sujetándose a las siguientes prohibiciones:
+a) Compensación económica: Es absolutamente prohibido compensar en dinero las vacaciones profilácticas, incluso al finalizar la relación laboral, ya que el descanso físico es el medio para mitigar el riesgo.
+b) Posposición y acumulación: El disfrute debe ejercerse dentro del periodo establecido. No podrán ser postergadas para ciclos posteriores ni acumularse con periodos de años anteriores.
+c) Fraccionamiento: Las vacaciones profilácticas deben disfrutarse de forma continua para garantizar su efectividad profiláctica, por lo cual no se permite su división en tractos. Se exceptúan de esta prohibición los casos contenidos en los artículos 14 inciso b), 15 inciso b) y 19 del presente reglamento.

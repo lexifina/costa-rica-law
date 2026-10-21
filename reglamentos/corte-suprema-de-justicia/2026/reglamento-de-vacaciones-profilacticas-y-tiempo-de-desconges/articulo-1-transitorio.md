@@ -1,0 +1,1 @@
+Transitorio I. Excepciones a la aplicación. Se excluyen de la aplicación de este reglamento aquellos puestos cuyas vacaciones profilácticas hayan sido reconocidas previamente por el Consejo Superior. La persona servidora judicial designada en el puesto mantendrá las condiciones fijadas en los respectivos acuerdos de otorgamiento.

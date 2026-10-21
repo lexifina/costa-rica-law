@@ -1,0 +1,1 @@
+Transitorio IV. Inaplicabilidad de tiempos de exposición externos. Se reconocerá única y exclusivamente el tiempo de exposición efectivo dentro de las dependencias del Poder Judicial. En consecuencia, se declara la improcedencia absoluta de reconocer o acumular factores de riesgo o tiempos de exposición devengados en el ejercicio de funciones ajenas a este Poder de la República.
