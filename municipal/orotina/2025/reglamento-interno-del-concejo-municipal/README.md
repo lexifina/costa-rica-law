@@ -15,3 +15,4 @@ Reglamento interno del Concejo Municipal
 | --- | --- | --- |
 | 1 | 2025-07-31 | la propia norma |
 | 2 | 2026-06-11 | Reglamento municipal 146 (2026-06-11) |
+| 3 | 2026-10-21 | Reglamento municipal 183 (2026-10-21) |
