@@ -1,9 +1,9 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
-REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO
-ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS
-PÚBLICOS, SU ORGANO DESCONCENTRADO
-Y SUS FUNCIONARIOS(*)
-(*)(Modificada su denominación mediante sesión N° 64 del 26 de agosto de 2013)
+REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SU ÓRGANO
+DESCONCENTRADO Y LAS PERSONAS FUNCIONARIAS (RAS)1
+1 (Nombre modificado en la sesión ordinaria 91-2026, celebrada el 21 de octubre de 2026)
+(Así modificada su denominación en sesión N° 91 del 21 de octubre de 2026. Anteriormente se indicaba: "REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SUS ORGANOS DESCONCENTRADOS Y SUS FUNCIONARIOS")
 La Junta Directiva de la Autoridad Reguladora de los Servicios Públicos de conformidad con las atribuciones que le confiere el artículo 53, incisos l) y ñ) de la Ley 7593, Ley de la Autoridad Reguladora de los Servicios Públicos.
 Considerando:
 1º-Que de conformidad con lo establecido en el artículo 53, incisos m) y ñ) de la Ley 7593 y sus reformas, le corresponde a éste órgano colegiado aprobar la organización interna de la Autoridad Reguladora y el estatuto interno de trabajo, así como dictar las normas y políticas que regulan las condiciones laborales, la creación de plazas, los esquemas de remuneración, las obligaciones y los derechos de los funcionarios y trabajadores de la Autoridad Reguladora y la Superintendencia de Telecomunicaciones (Sutel).
@@ -11,10 +11,11 @@ Considerando:
 3º-Que la Junta Directiva, en la sesión extraordinaria 051-2008 celebrada el 20 de agosto 2008 y ratificada el 8 de setiembre 2008, conoció del Proyecto de Reglamento autónomo de las relaciones de servicios entre la Autoridad Reguladora de los Servicios Públicos y sus funcionarios.
 4º-Que la Junta Directiva mediante acuerdo 002-051-2008 adoptado en la indicada sesión, tomando en consideración el marco jurídico aplicable en ese momento dispuso dictar el Reglamento autónomo de las relaciones de servicios entre la Autoridad Reguladora de los Servicios Públicos, sus órganos desconcentrados y sus funcionarios.
 Por tanto, decreta el siguiente:
-REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO
-ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS
-PÚBLICOS, SUS ORGANOS DESCONCENTRADOS
-Y SUS FUNCIONARIOS
+REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SU ÓRGANO
+DESCONCENTRADO Y LAS PERSONAS FUNCIONARIAS (RAS)1
+1 (Nombre modificado en la sesión ordinaria 91-2026, celebrada el 21 de octubre de 2026)
+(Así modificada su denominación en sesión N° 91 del 21 de octubre de 2026. Anteriormente se indicaba: "REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SUS ORGANOS DESCONCENTRADOS Y SUS FUNCIONARIOS")
 ÍNDICE
 (Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 102-2021 del 02 de diciembre de 2021, publicado en el Alcance Digital N° 253 a La Gaceta N° 238 del 10 de diciembre del 2021 y se transcribe a continuación:)
 Artículo 1º-Naturaleza de la relación de servicio.
@@ -191,10 +192,11 @@ Artículo 113.-Respeto a los derechos adquiridos de los(as) funcionarios(as).
 Artículo 113 Bis.- Instrumentos de implementación
 Artículo 114.-Derogaciones.
 Artículo 115.-Entrada en vigor.
-REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO
-ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS
-PÚBLICOS, SUS ORGANOS DESCONCENTRADOS
-Y SUS FUNCIONARIOS
+REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SU ÓRGANO
+DESCONCENTRADO Y LAS PERSONAS FUNCIONARIAS (RAS)1
+1 (Nombre modificado en la sesión ordinaria 91-2026, celebrada el 21 de octubre de 2026)
+(Así modificada su denominación en sesión N° 91 del 21 de octubre de 2026. Anteriormente se indicaba: "REGLAMENTO AUTÓNOMO DE LAS RELACIONES DE SERVICIO ENTRE LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS, SUS ORGANOS DESCONCENTRADOS Y SUS FUNCIONARIOS")
 CAPÍTULO I
 De las disposiciones preliminares y modalidades de prestación de servicios laborales(*)
 (*)(Modificada su denominación mediante sesión N° 64 del 26 de agosto de 2013)

@@ -26,3 +26,4 @@ Reglamento autónomo de las relaciones de servicio entre la Autoridad Regulador 
 | 11 | 2017-06-06 | Reglamento 27 (2017-06-06) |
 | 12 | 2021-12-02 | Resolución 102 (2021-12-02) |
 | 13 | 2023-12-04 | Resolución 117 (2023-12-04) |
+| 14 | 2026-10-21 | Reglamento 91 (2026-10-21) |

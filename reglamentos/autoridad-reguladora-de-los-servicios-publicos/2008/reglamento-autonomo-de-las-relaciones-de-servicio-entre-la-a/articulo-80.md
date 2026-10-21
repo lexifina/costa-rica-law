@@ -8,3 +8,5 @@ d) Adoptar las medidas de seguridad para la prevención de accidentes durante la
 e) Atender las sugerencias de las personas funcionarias que estimulen la iniciativa personal, la eficiencia y el mejoramiento de las condiciones de trabajo, presentadas en forma individual o colectiva.
 f) Acatar y cumplir la legislación en materia de salud ocupacional, especialmente en lo relativo al suministro de implementos, herramientas y equipo de protección
 g) Velar para que el servicio de consulta en medicina general, para las personas funcionarias, funcione eficientemente.
+h) Promover un ambiente de respeto y libre de cualquier tipo de discriminación y violencia.
+(Así adicionado el inciso anterior mediante sesión N°91-2026 del 21 de octubre del 2026)

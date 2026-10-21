@@ -19,3 +19,7 @@ m) Registrar por cualquier medio, la asistencia al trabajo de otra personas func
 n) Alterar, mutilar, dañar o hacer desaparecer los medios de control electromagnéticos; provistos por la Institución, para el registro de asistencia al trabajo.
 o) Fumar en su lugar de trabajo. Ello conforme la normativa vigente.
 (Así adicionado el inciso anterior mediante sesión N° 64 del 26 de agosto de 2013)
+p) Incurrir, promover, tolerar u omitir acciones que generen o perpetúen un ambiente laboral discriminatorio, hostil o violento, así como cualquier forma de acoso, hostigamiento o violencia de cualquier naturaleza.
+Asimismo, se prohíbe toda conducta que implique discriminación directa o indirecta, trato desigual, exclusión, intimidación, abuso de poder o menoscabo de la dignidad humana, basada en cualquier condición personal o social.
+También se prohíbe a las personas funcionarias obstaculizar, desincentivar o represaliar la denuncia de situaciones de discriminación o violencia, así como interferir con los procedimientos institucionales de prevención, atención e investigación establecidos para tales efectos.
+(Así adicionado el inciso p) anterior mediante sesión N°91-2026 del 21 de octubre del 2026)
