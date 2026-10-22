@@ -1,0 +1,1 @@
+Artículo 49.- Derogatoria. El presente reglamento deroga el Reglamento para el uso de vehículos municipales de la Municipalidad de Sarchí (Valverde Vega), publicado en La Gaceta N.° 217 del 10 de noviembre de 2005.

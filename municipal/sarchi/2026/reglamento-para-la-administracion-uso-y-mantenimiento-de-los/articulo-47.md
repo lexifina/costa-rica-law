@@ -1,0 +1,1 @@
+Artículo 47.- Reformas al Reglamento. Cualquier reforma o adición al presente reglamento deberá ser aprobada por el Concejo Municipal, y deberá ser publicada en el Diario Oficial La Gaceta para su validez y vigencia.

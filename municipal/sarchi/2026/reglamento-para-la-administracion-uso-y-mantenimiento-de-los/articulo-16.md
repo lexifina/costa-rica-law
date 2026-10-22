@@ -1,0 +1,4 @@
+Artículo 16.- Mantenimiento de los vehículos municipales. El mantenimiento mecánico de los vehículos municipales será tanto preventivo como correctivo; ambos deberán efectuarse en el taller que la Municipalidad contrate para tales efectos.
+El mantenimiento preventivo se realizará de forma periódica, según las necesidades de cada vehículo y conforme a la programación que deberán establecer el proceso de Contratación Pública en coordinación con las personas asignadas.
+El mantenimiento correctivo se realizará cuando ocurra algún incidente o evento que lo amerite, incluyendo el reporte de daños, averías o desperfectos por parte de los conductores u operadores de los vehículos.
+En el caso de los vehículos que, por su año de fabricación, se encuentren aún cubiertos por garantía, los mantenimientos deberán efectuarse conforme a las condiciones y al plan de mantenimiento contratado.

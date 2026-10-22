@@ -1,0 +1,3 @@
+CAPÍTULO IX. RÉGIMEN DISCIPLINARIO
+Artículo 45.- Régimen disciplinario. Las infracciones al presente reglamento, así como al marco jurídico aplicable en materia de tránsito, cometidas por las personas servidoras públicas de la Municipalidad, serán sancionadas atendiendo a su gravedad, la reincidencia y el grado de afectación a la Hacienda Pública, al interés público o a la adecuada prestación de los servicios públicos que brinda la Municipalidad.
+La imposición de sanciones se realizará con estricto apego al debido proceso y conforme al régimen disciplinario establecido en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Sarchí y demás normativa conexa.

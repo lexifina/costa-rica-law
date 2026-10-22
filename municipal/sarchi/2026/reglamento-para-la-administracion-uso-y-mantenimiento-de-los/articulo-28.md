@@ -1,0 +1,2 @@
+Artículo 28- Resguardo de los vehículos municipales. Una vez concluida la jornada ordinarios y/o extraordinaria de trabajo, los vehículos municipales deberán ser guardados en las instalaciones que la Municipalidad designe para tal fin.
+Ningún vehículo municipal podrá ser guardado en casas de habitación de personas servidoras públicas de la Municipalidad o de particulares, aun cuando la labor finalice fuera de la jornada ordinaria de trabajo, salvo que exista una justificación debidamente fundamentada y autorización expresa emitida por la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 11.- Uniformidad. Para que los vehículos circulen dentro de las normas de seguridad y ofrezcan una apariencia uniforme, se prohíbe colocar adornos o cualquier tipo de decoración, tanto en la parte interior como en la parte exterior de los mismos, así como mantener objetos en el panel de instrumentos que afecten la buena visibilidad y conducción del vehículo.

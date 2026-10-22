@@ -1,0 +1,1 @@
+Artículo 13.- Administración. La administración de los vehículos municipales corresponderá a las personas asignadas según lo establecido en el artículo anterior, quienes serán responsables del cumplimiento de este reglamento y de cualquiera otra disposición que se emita al respecto.

@@ -1,0 +1,4 @@
+Artículo 15.- Responsabilidades del proceso de Gestión del Talento Humano. El proceso de Gestión del Talento Humano tendrá las siguientes responsabilidades:
+1. Verificar que las personas que se contraten cuenten con las licencias de conducir idóneas, según lo requiera el puesto correspondiente.
+2. Verificar periódicamente la vigencia de la licencia de conducir de las personas servidores públicas autorizadas para la conducción u operación de vehículos municipales.
+3. Llevar un registro actualizado de conductores en el que conste al menos la siguiente información: nombre completo del conductor, tipo de licencia y copia del documento, puntos con los que cuenta la licencia y detalle de los puntos que ha perdido, fecha de vencimiento de la licencia, así como un registro de hechos y accidentes de tránsito que involucren al conductor con vehículos municipales y copia de la resolución judicial que ponga término al proceso respectivo.

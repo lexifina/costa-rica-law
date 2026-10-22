@@ -1,0 +1,2 @@
+Artículo 25.- Uso exclusivo de vehículos. Los vehículos municipales adquiridos con recursos provenientes de la Ley de Simplificación y Eficiencia Tributarias, N.° 8114 del 04 de julio del 2001, deberán destinarse exclusivamente a la prestación del servicio de mantenimiento de vías cantonales.
+Excepcionalmente, podrán ser utilizados por otras unidades o dependencias municipales cuando existan razones debidamente justificadas de interés público, caso fortuito o fuerza mayor. En tales supuestos, deberá mediar la correspondiente coordinación interdepartamental.

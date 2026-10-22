@@ -1,0 +1,2 @@
+CAPÍTULO X. DISPOSICIONES FINALES
+Artículo 46.- Disposiciones supletorias. En todo lo no previsto en el presente reglamento, se aplicarán supletoriamente las normas contenidas en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y su reglamento, la Ley General de la Administración Pública, el Código Municipal, así como cualquier otra ley, decreto o reglamento conexo vigente en la materia.

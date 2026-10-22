@@ -1,0 +1,1 @@
+Artículo 40.- Cancelación de la autorización para conducir u operar vehículos municipales. La Municipalidad podrá cancelar, en forma inmediata e indefinida, la autorización para conducir u operar vehículos municipales a aquellas personas servidoras públicas que, por dolo o culpa, ocasionen un hecho de tránsito grave.

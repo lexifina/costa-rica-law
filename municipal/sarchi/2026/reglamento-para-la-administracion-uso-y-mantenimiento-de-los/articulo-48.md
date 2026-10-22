@@ -1,0 +1,1 @@
+Artículo 48.- Divulgación. El proceso de Gestión del Talento Humano velará por la debida divulgación de este reglamento, mediante la exposición en forma permanente, por lo menos en dos de los sitios más visibles del centro de trabajo, y mediante el uso de las tecnologías de la información disponibles en la Municipalidad.

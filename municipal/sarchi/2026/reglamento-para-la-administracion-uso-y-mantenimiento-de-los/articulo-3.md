@@ -1,0 +1,1 @@
+Artículo 3.- Principios. La interpretación y aplicación de este reglamento se regirá por los principios de legalidad, interés público, eficiencia, economía, razonabilidad, proporcionalidad, seguridad vial, protección del patrimonio público, trazabilidad, rendición de cuentas, separación de funciones, protección de datos personales y continuidad de los servicios municipales.

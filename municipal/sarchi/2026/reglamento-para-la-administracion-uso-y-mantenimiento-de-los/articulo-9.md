@@ -1,0 +1,2 @@
+Artículo 9.- Pólizas de Seguros. La Municipalidad deberá asegurar todos los vehículos municipales mediante la contratación de pólizas que incluyan las coberturas obligatorias establecidas por ley y aquellas adicionales que la Administración considere pertinentes, estas últimas con sujeción a las posibilidades presupuestarias de la institución.
+En todos los casos, dichas pólizas deberán ser suscritas con una entidad aseguradora debidamente autorizada por la Superintendencia General de Seguros (SUGESE).

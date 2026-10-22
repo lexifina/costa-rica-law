@@ -1,0 +1,1 @@
+Artículo 38.- Responsabilidad por accidentes de tránsito. En el supuesto de que un conductor sea declarado responsable por autoridad judicial competente, por infracción a las normas de tránsito vigentes, con afectación a la Hacienda Pública, será responsable previo debido proceso. Todo lo anterior sin perjuicio de la responsabilidad administrativa.

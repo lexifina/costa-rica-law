@@ -1,0 +1,1 @@
+Artículo 27.- Responsabilidad en la seguridad de los vehículos municipales. El conductor u operador autorizado que maneje u opere un vehículo municipal será responsable por la seguridad de la unidad a su cargo y deberá utilizar todos los dispositivos de seguridad que brinda el vehículo.

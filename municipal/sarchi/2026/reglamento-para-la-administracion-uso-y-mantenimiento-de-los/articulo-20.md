@@ -1,0 +1,2 @@
+Artículo 20.- Uso de vehículos municipales en horas/días inhábiles. La circulación de vehículos municipales fuera de la jornada laboral y en días inhábiles estará restringida a situaciones excepcionales debidamente justificadas que así lo ameriten, relacionadas con el cumplimiento de las funciones propias de la Municipalidad.
+La persona servidora pública que requiera el uso del vehículo bajo los supuestos de este artículo, deberá coordinarlo con la persona asignada responsable de autorizarlo, y se deberá informar oportunamente a la Alcaldía Municipal.

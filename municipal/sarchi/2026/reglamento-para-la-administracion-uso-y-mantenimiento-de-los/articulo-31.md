@@ -1,0 +1,1 @@
+Artículo 31.- Mantenimiento de los GPS. Los dispositivos GPS deberán mantenerse en óptimas condiciones de funcionamiento. Para ello, en el respectivo proceso de contratación pública deberá establecerse la obligación del adjudicatario de brindar los servicios de atención de consultas y soporte técnico cuando sea requerido, asegurando el funcionamiento continuo del servicio.

@@ -1,0 +1,1 @@
+Artículo 39.- Responsabilidad por omisión de informar. El conductor que, con conocimiento de un daño causado con un vehículo municipal, al mismo vehículo o a un tercero, lo oculte, asumirá la responsabilidad administrativa y civil que se le demuestre.

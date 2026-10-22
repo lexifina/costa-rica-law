@@ -1,0 +1,1 @@
+Artículo 23.- Personas ajenas a la Municipalidad. El traslado, en vehículos municipales, de personas ajenas a la Municipalidad se permitirá únicamente de manera excepcional, cuando medien razones de emergencia o de conveniencia institucional debidamente justificadas, y se cuente con la autorización previa de la Alcaldía Municipal.
