@@ -1,0 +1,1 @@
+Artículo 15.—De la inspección municipal: La Municipalidad por medio de sus funcionarios e inspectores, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente Reglamento.

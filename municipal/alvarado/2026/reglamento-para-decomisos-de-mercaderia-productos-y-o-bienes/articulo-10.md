@@ -1,0 +1,7 @@
+Artículo 10.—Requisitos para devolución de mercadería decomisada: De conformidad con lo dispuesto en el inciso b) del punto tercero del artículo anterior, toda persona interesada en solicitar la devolución de la mercadería decomisada deberá cumplir con la presentación de los siguientes requisitos:
+a. Solicitud debidamente completa y firmada por el interesado.
+b. Cédula de identidad vigente.
+c. Personería jurídica vigente (cuando corresponda), con no más a treinta (30) días de emitida.
+d. Documentos idóneos que acrediten la propiedad de la mercadería decomisada, tales como facturas u otros comprobantes legalmente válidos.
+La devolución de la mercadería decomisada se realizará de forma inmediata, es decir, el mismo día en que la persona interesada presente la solicitud de devolución junto con la totalidad de los requisitos establecidos en el presente artículo, siempre que estos se encuentren completos y conformes.
+En caso de que esta Administración determine la necesidad de que el administrado subsane alguno de los requisitos aportados, se le notificará mediante una prevención formal. Dicha prevención otorgará a la persona interesada un plazo de diez (10) días naturales para realizar la subsanación correspondiente, contados a partir de la notificación respectiva. En caso de no cumplirse con lo prevenido dentro del plazo indicado, el trámite podrá ser archivado o rechazado conforme a derecho.

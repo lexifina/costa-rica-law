@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: A toda persona física o jurídica que se dedique al ejercicio de cualquier tipo de actividad lucrativa, en las vías públicas o espacios públicos y propiedades privadas que no cuenten con la respectiva licencia comercial extendida por la Municipalidad de Alvarado, para realizar la actividad.
