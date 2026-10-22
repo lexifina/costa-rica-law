@@ -1,0 +1,17 @@
+PATRONATO NACIONAL DE LA INFANCIA
+REGLAMENTO AUTÓNOMO DE TRABAJO DEL PANI
+El Patronato Nacional de la Infancia, en atención al Acuerdo de Junta Directiva, PANI-JD-OF 145-2026, en Sesión Extraordinaria 2026-018, de fecha 23 de abril de 2026, Artículo 010) Aparte 01) el cual en su punto 2 en lo que interesa indica:
+2. Aprobar el ajuste planteado por la presidencia ejecutiva con fundamento en lo establecido en el oficio PANI AJ OF 0203-026, en el cual se advierte la existencia de rezagos de naturaleza reglamentaria y eventuales inconsistencias entre la normativa interna y el marco jurídico vigente, particularmente en lo relativo a la implementación de la ley marco de empleo público y su reglamento, así como la aplicación de principios como el de estado como patrono único, en el sentido de:
+Adicionar el artículo 24 del Reglamento Autónomo de Trabajo del PANI, indicando desde el principio:
+“… Las personas trabajadoras tendrán derecho a vacaciones anuales remuneradas después de cincuenta semanas de labores continuas de brindar el servicio en instituciones públicas…”
+Así mismo, se debe agregar un párrafo que contenga la disposición del propio transitorio VIII de la Ley Marco de empleo público con la siguiente recomendación:
+“Artículo 1º—Adiciónese un párrafo final al artículo 24 del Reglamento Autónomo de Trabajo Patronato Nacional de la Infancia, publicado al Alcance no. 29 de La Gaceta 42 del 3 de marzo del 2025 y sus reformas, para que en adelante se lea de la siguiente forma:
+Artículo 24.—Vacaciones remuneradas anuales. las personas trabajadoras tendrán derecho a vacaciones anuales remuneradas después de cincuenta semanas de labores continuas de brindar el servicio en instituciones públicas, las cuales se otorgarán de conformidad con las siguientes reglas:
+1. Las personas trabajadoras que hayan laborado más de cincuenta semanas continuas, tendrán derecho a quince días hábiles de vacaciones.
+2. Las personas trabajadoras que hayan prestado sus servicios al patronato durante más de cuatro años y cincuenta semanas, tendrán derecho a veinte días hábiles de vacaciones.
+3. las personas trabajadoras que hayan trabajado para la institución durante nueve años y cincuenta semanas, tendrán veintiséis días hábiles de vacaciones, si dicho derecho fue adquirido antes de la entrada en vigencia de la ley marco de empleo público según lo establecido en su artículo 38 y el reglamento a la ley marco de empleo público en su artículo 44.
+No interrumpirán la continuidad del trabajo las licencias sin goce de salario, la enfermedad justificada de la persona funcionaria, ni ninguna otra causa de suspensión legal de la relación laboral.
+Las vacaciones se reconocerán atendiendo a la antigüedad adquirida de la persona trabajadora, independientemente de su nombramiento. en ningún caso acumularán vacaciones, los meses no laborados por falta de nombramiento.
+En el caso del personal de sustitución, después de pasadas 50 semanas sin romper la continuidad laboral, se reconocerán las vacaciones proporcionales al promedio de días que efectivamente haya laborado a lo largo de las cincuenta semanas utilizadas para el cálculo. Lo anterior, utilizando la referencia de los incisos 1 al 3 del presente artículo.
+Las personas trabajadoras que previo a la entrada en vigencia de la Ley Marco De Empleo Público, Ley 10.159 y sus reformas, posean derecho a vacaciones superior al tope establecido en el artículo 38 de dicha ley, conservarán tal condición mientras laboren para el PANI, este reconocimiento no podrá ser superior a los 26 días”.
+Publíquese.
