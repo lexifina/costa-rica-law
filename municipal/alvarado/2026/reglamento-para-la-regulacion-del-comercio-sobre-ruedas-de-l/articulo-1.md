@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ALVARADO
+REGLAMENTO PARA LA REGULACIÓN DEL COMERCIO SOBRE RUEDAS DE LA MUNICIPALIDAD DE ALVARADO
+Artículo 1°—Objeto. Este reglamento tiene como objeto regular las actividades lucrativas de comercio sobre ruedas que se pretendan realizar de forma temporal en el territorio del cantón de Alvarado de Cartago, con fundamento en la Ley Especial para el Comercio Sobre Ruedas, N° 10.254 y con ello promover este tipo de comercio mediante el aprovechamiento de los espacios públicos, así como su mantenimiento y protección, sin perjudicar otros derechos como el libre tránsito, la accesibilidad, la seguridad ciudadana y la salud.

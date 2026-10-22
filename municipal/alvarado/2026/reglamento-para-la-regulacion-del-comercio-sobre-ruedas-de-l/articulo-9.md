@@ -1,0 +1,2 @@
+Artículo 9°—Traslado de la licencia comercial temporal especial.
+Todo traslado de ubicación de los automotores o vehículos remolque vinculados a la licencia comercial temporal especial se considera autorizado sin necesidad de un permiso adicional, siempre que dicho traslado se realice únicamente hacia los puntos previamente habilitados por la Municipalidad para el desarrollo de este tipo de actividad comercial.
