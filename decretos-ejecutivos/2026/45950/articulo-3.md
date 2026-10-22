@@ -1,0 +1,1 @@
+Artículo 3°.- Para los efectos de la implementación del plan, éste será concebido como un marco de referencia a nivel nacional, para la planificación y ejecución de proyectos de infraestructura vial y transporte relacionados con la movilidad activa en armonía con el ambiente.

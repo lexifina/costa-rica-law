@@ -1,0 +1,1 @@
+Artículo 7º.- El seguimiento del PNMA será realizado por la Secretaría de Planificación Sectorial del Sector de Infraestructura y Transportes, en coordinación con la Dirección General de Ingeniería de Tránsito y el Consejo de Seguridad Vial, según sus competencias y su ámbito de acción.
