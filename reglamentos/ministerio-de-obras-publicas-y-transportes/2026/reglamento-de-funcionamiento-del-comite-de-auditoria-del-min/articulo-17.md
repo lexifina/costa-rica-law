@@ -1,0 +1,1 @@
+Artículo 17.—Revisiones y actualizaciones. El Ministro (a) y el Comité de Auditoría revisarán al menos cada tres años el presente Reglamento y plantearán las modificaciones que estimen pertinentes, considerando la evolución del entorno de riesgos y los cambios organizativos de la cartera ministerial.

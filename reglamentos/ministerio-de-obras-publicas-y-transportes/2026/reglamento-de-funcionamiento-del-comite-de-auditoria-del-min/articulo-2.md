@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. Regular el funcionamiento del Comité de Auditoría como órgano asesor técnico y estratégico no vinculante del Ministro (a), con la finalidad de que coadyuve en la toma de decisiones; promoviendo la legalidad, eficiencia, transparencia y la gestión efectiva del riesgo para el cumplimiento de objetivos, así como, la generación y preservación de valor público.

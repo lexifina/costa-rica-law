@@ -1,0 +1,7 @@
+Artículo 4º—Sobre la idoneidad técnica comprobada y la complementariedad del Comité de Auditoría. El Comité de Auditoría debe estar conformado por al menos tres personas que cuenten con los siguientes requisitos:
+1. Idoneidad técnica comprobada en cualquiera de los siguientes temas: auditoría, control interno, gestión de riesgos, finanzas públicas, derecho o gobierno corporativo.
+2. Título universitario con formación académica relacionada a control interno, gestión de riesgos, finanzas públicas, derecho o gobierno corporativo.
+3. Experiencia profesional en cargos relacionados al control interno, gestión de riesgos, finanzas públicas, derecho o gobierno corporativo, ejercida por un período mínimo de cinco años, podrá constituir un elemento determinante para acreditar la idoneidad técnica requerida, incluso resultar suficiente para demostrar el cumplimiento de dicho requisito.
+4. Capacitación acreditada, cuando se requiera.
+La comprobación de la idoneidad requiere que el proceso de designación se encuentre debidamente documentado. Respecto de cada integrante deberá dejarse constancia de los antecedentes acreditados y de la valoración razonada que permita vincular su formación, experiencia, capacitación o certificaciones con alguna de las materias antes mencionadas.
+La integración del Comité procurará la complementariedad de conocimientos y experiencia entre sus miembros, de manera que el órgano cuente, en conjunto, con capacidades suficientes en auditoría, control interno, gestión de riesgos, finanzas públicas, derecho y gobierno corporativo.

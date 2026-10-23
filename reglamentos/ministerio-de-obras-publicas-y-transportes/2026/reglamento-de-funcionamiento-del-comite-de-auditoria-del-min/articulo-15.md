@@ -1,0 +1,2 @@
+Artículo 15.—Plazo de nombramiento y remoción. El plazo de nombramiento de los miembros del Comité será de dos años, pudiendo ser reelectos por períodos iguales.
+El Ministro (a), podrá remover de su cargo aquel miembro que incumpla con las obligaciones y disposiciones contenidas en este reglamento, mediante acto debidamente motivado, cuando exista incumplimiento de las obligaciones establecidas en este reglamento, pérdida de idoneidad, incompatibilidad sobreviniente o afectación a la independencia requerida para el cargo.
