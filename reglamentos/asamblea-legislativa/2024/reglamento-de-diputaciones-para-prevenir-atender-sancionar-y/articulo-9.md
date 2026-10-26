@@ -1,6 +1,5 @@
 CAPÍTULO IV
-PRINCIPIOS GENERALES QUE INFORMAN
-EL PROCEDIMIENTO
-Artículo 9°-Sobre los principios que rigen el procedimiento. Durante el trámite del procedimiento serán de acatamiento los principios generales del debido proceso, legalidad, presunción de inocencia, la proporcionalidad, razonabilidad y la libertad probatoria, así como los específicos en tema de violencia contra las mujeres en política, entendidos como la confidencialidad, el principio pro víctima y de no revictimización.
+PRINCIPIOS GENERALES QUE INFORMAN EL PROCEDIMIENTO
+Artículo 9- Sobre los principios que rigen el procedimiento. Durante el trámite del procedimiento serán de acatamiento los principios generales del debido proceso, legalidad, presunción de inocencia, la proporcionalidad, razonabilidad y la libertad probatoria, así como los específicos en tema de violencia contra las mujeres en política, entendidos como la confidencialidad, el principio pro víctima y de no revictimización.
 Los procedimientos en ningún caso podrán incluir la ratificación de una denuncia por parte de la mujer, ni realizar una etapa de investigación preliminar de los hechos.
 Tampoco se autoriza promover la conciliación entre las partes ni convocar audiencias con ese propósito en ninguna etapa del proceso, por denuncias de violencia contra las mujeres en la política. Una vez recibida la denuncia, la Institución está obligada a darle el debido trámite, para iniciar con el procedimiento administrativo disciplinario.

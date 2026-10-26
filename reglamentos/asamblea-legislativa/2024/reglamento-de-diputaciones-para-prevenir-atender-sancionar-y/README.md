@@ -14,3 +14,4 @@ Reglamento de diputaciones para prevenir, atender, sancionar y erradicar la viol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-25 | la propia norma |
+| 2 | 2026-10-26 | Reglamento 86 (2026-10-26) |

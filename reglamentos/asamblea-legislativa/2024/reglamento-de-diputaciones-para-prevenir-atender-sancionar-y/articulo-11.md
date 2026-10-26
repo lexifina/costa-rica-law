@@ -1,1 +1,1 @@
-Artículo 11.-De los derechos de las partes procesales. Las partes procesales tendrán derecho a disponer de representación legal y del apoyo emocional o psicológico de su confianza, durante todas las fases del procedimiento.
+Artículo 11- De los derechos de las partes procesales. Las partes procesales tendrán derecho a disponer de representación legal y del apoyo emocional o psicológico de su confianza, durante todas las fases del procedimiento.

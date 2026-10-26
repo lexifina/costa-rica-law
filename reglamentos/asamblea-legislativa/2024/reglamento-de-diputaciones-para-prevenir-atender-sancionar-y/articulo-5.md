@@ -1,4 +1,4 @@
-Artículo 5°-Manifestaciones. Según el artículo 5 de la Ley N° 10235, son manifestaciones de la violencia contra las mujeres en la política, entre otras, las siguientes:
+Artículo 5- Manifestaciones. Según el artículo 5 de la Ley N° 10235, son manifestaciones de la violencia contra las mujeres en la política, entre otras, las siguientes:
 a) Impedir, salvo impedimento legal, el acceso a la información necesaria para la toma de decisiones, o facilitar con mala intención, información falsa, errada, desactualizada o imprecisa que induzca a la persona al inadecuado ejercicio de sus funciones.
 b) Restringir, de manera injustificada y arbitraria, su participación en comisiones, comités y otras instancias inherentes a su cargo, conforme a la legislación o reglamentación establecidas.
 c) Discriminarla por encontrarse en condición de embarazo o lactancia; licencia, incapacidad u otra condición relacionada con la maternidad.
