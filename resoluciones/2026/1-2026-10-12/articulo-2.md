@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación.
+La Política Particular de Materialidad será de aplicación obligatoria para los órganos, entes, empresas públicas y demás sujetos del Sector Público Costarricense que deban preparar, presentar o suministrar información financiera a la Dirección General de Contabilidad Nacional para efectos de integración, consolidación y elaboración de los Estados Financieros Consolidados del Sector Público Costarricense.
