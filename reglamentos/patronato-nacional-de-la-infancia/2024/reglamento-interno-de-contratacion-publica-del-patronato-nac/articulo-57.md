@@ -1,1 +1,3 @@
-Artículo 57. Expediente. El expediente administrativo del procedimiento de donación, contendrá toda la información pertinente al trámite de las acciones ejecutadas por las partes. Dicho expediente administrativo, quedará bajo custodia de la Presidencia Ejecutiva.
+Capítulo XIV. Evaluación de los riesgos de la actividad contractual y resguardo de la información electrónica.
+Artículo 57. Evaluaciones de riesgo de la actividad contractual. El Departamento de Proveeduría deberá realizar una vez al año, las evaluaciones de los niveles de riesgo del procedimiento de contratación y comunicarlo a la Gerencia de Administración para la publicidad correspondiente.
+(Así reformado en sesión N° 038 del 13 de octubre de 2026)

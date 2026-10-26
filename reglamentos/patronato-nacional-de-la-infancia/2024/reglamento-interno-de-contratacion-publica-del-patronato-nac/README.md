@@ -15,3 +15,4 @@ Reglamento interno de contratación pública del Patronato Nacional de la Infanc
 | --- | --- | --- |
 | 1 | 2024-04-05 | la propia norma |
 | 2 | 2026-09-24 | Reglamento 35 (2026-09-24) |
+| 3 | 2026-10-26 | Reglamento 38 (2026-10-26) |

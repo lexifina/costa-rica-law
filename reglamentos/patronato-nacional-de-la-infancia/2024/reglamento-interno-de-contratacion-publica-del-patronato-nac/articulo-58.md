@@ -1,2 +1,2 @@
-Artículo 58. Improcedencia de donaciones condicionadas. Las donaciones que el PANI reciba no deben ser condicionadas de ninguna manera, ni deben imponerle compromisos, limitaciones o impedimentos al cumplimiento de las potestades que la ley le otorga.
-Las donaciones no generarán ninguna ventaja ni trato especial del PANI para el donante en sus relaciones administrativas.
+Artículo 58. Resguardo de información en medios electrónicos. El Departamento de Tecnologías de Información deberá disponer del protocolo de seguridad, con roles y responsabilidades que permitan proteger los registros electrónicos de la Planificación Contractual y la Ejecución Presupuestaria en el Sistema de Gestión Administrativa Financiera.
+(Así reformado en sesión N° 038 del 13 de octubre de 2026)

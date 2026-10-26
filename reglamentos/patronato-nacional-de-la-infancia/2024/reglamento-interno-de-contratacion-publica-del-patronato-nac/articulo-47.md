@@ -1,7 +1,4 @@
-Capítulo XII. De los procedimientos de resolución contractual, sancionatorios contra los particulares
-y la nulidad absoluta.
-Artículo 47. Procedimiento de Urgencia Fuera del Sistema Digital Unificado.
-En caso de que la urgencia afecte la continuidad del servicio, la Presidencia Ejecutiva o Junta Directiva autorizará realizar la contratación fuera del Sistema Digital Unificado, bajo las competencias delegadas en el artículo 46.
+Artículo 47. Procedimiento de Urgencia Fuera del Sistema Digital Unificado. En caso de que la urgencia afecte la continuidad del servicio, la Presidencia Ejecutiva o Junta Directiva autorizará realizar la contratación fuera del Sistema Digital Unificado, bajo las competencias delegadas en el artículo 46.
 En las situaciones en que la urgencia afecte la continuidad del servicio y el interés superior de las personas menores de edad en los albergues institucionales, de manera excepcional, esta Junta Directiva delega en la Presidencia Ejecutiva la autorización de la contratación de urgencia fuera del Sistema Digital Unificado, independientemente de la cuantía, lo cual será convalidado posteriormente por la Junta Directiva.
 La Unidad Solicitante deberá tramitar la contratación y posteriormente, remitir al Departamento de Proveeduría, a más tardar dentro de los tres días hábiles siguientes a la contratación, toda la información que sustenta lo actuado para que la misma sea incorporada en el módulo dispuesto para tal fin en el citado Sistema.
-(Así reformado mediante sesión ordinaria 2026-035 del 24 de setiembre de 2026)
+(Así reformado en sesión N° 038 del 13 de octubre de 2026)

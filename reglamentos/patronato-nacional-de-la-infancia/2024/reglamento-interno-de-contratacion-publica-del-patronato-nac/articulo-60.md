@@ -1,1 +1,7 @@
-Artículo 60. Revisión y actualización. Este reglamento deberá ser revisado al menos una vez al año por la Asesoría Jurídica en conjunto con el Departamento de Proveeduría, o cuando sea requerido por cambios operativos y estratégicos de la institución.
+Capítulo XV. Donaciones.
+Artículo 60. Autorización de otorgamiento o recepción de bienes donados. La Asesoría Jurídica será la encargada de tramitar las donaciones, tanto de muebles como inmuebles, la recepción y el otorgamiento de donaciones. Por lo que deberá coordinar lo necesario con las demás dependencias del PANI y con las partes. Además, se regirán de la siguiente forma:
+Muebles:
+Se regularán por lo establecido en el artículo 75 de la Ley General de Contratación Pública, y su Reglamento, para lo cual, la Presidencia Ejecutiva suscribirá el acto motivado que autorice la donación o la recepción. Inmuebles:
+Corresponderá a la Junta Directiva el solicitar a la Asamblea Legislativa la autorización correspondiente para donar o recibir bienes inmuebles, una vez recibida la misma, la Junta Directiva suscribirá una resolución motivada.
+En ambos casos la donación deberá ser aceptada por los beneficiarios.
+(Así reformado en sesión N° 038 del 13 de octubre de 2026)
