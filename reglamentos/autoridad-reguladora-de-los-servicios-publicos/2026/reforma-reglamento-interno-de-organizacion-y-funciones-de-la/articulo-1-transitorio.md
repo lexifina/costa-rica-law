@@ -1,0 +1,3 @@
+V. Transitorios
+Para una transición paulatina de lo dispuesto en la presente resolución, se disponen los siguientes artículos transitorios.
+1. La Dirección General de Calidad Regulatoria (anteriormente Dirección General de Desarrollo de la Regulación) y las Intendencias de Regulación mantendrán las funciones que les asigna el RIOF previo a la presente reforma por un plazo máximo de seis (6) meses contados a partir de la entrada en vigencia de esta resolución, mientras se realiza la transferencia gradual de funciones. Las funciones vinculadas al Análisis de Impacto Regulatorio establecidas en los artículos 17, 21 y 22 de esta resolución se ejercerán de forma gradual, conforme a las fases de implementación previstas en el informe IN-0031-DGGC-2026.
