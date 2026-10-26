@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE CURRIDABAT
+En uso de sus facultades, el Concejo Municipal de Curridabat aprobó, mediante el Acuerdo Nº 66, que consta en el artículo 32°, capítulo 3°, del acta de la Sesión Ordinaria Nº 107-2026, celebrada el 19 de mayo de 2026, el Reglamento Apoyo Municipal para Adultos Mayores en Pobreza de la Municipalidad de Curridabat.
+REGLAMENTO APOYO MUNICIPAL
+PARA ADULTOS MAYORES EN POBREZA
+DE LA MUNICIPALIDAD DE CURRIDABAT
+Considerandos:
+I.—Que en el artículo 51 de la Constitución Política, se establece la protección especial del Estado a la familia como elemento natural y fundamento de la sociedad, lo que conlleva la necesaria e imperiosa protección de las personas adultas mayores como parte de la población vulnerable.
+II.—Que la Ley N° 10.359, denominada “Apoyo municipal para adultos mayores en pobreza,” y que entró en vigencia el 13 de julio de 2023, autoriza a las Municipalidades a conceder beneficios tributarios municipales a las personas contribuyentes adultas mayores en condición de pobreza o pobreza extrema.
+III.—Que dicha ley tiene por objetivo otorgar a las municipalidades la autorización para conceder a las personas adultas mayores contribuyentes, que tengan acreditada la condición de pobreza o pobreza extrema, la exención del pago de tasas y servicios municipales.
+IV.—Que el Artículo 9 de la citada ley establece la facultad de las municipalidades de reglamentar el procedimiento a fin de otorgar los beneficios tributarios correspondientes, incluyendo la solicitud de exención, el trámite, el plazo, la impugnación, la estandarización y el formato.
+V.—Que por ello, el presente reglamento tiene por objeto regular la aplicación y el procedimiento del beneficio conferido en la Ley N° 10.359, y es necesario para que la municipalidad tenga la facultad -por medio de su Administración-, de aplicar el beneficio de exención tributaria a favor de las personas adultas mayores en condición de pobreza o pobreza extrema.
+VI.—Que con el presente reglamento, se viene a establecer los requisitos y las condiciones por parte de los posibles beneficiarios, como lo es estar registrados en condición de pobreza o pobreza extrema en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (por sus siglas conocido como SINIRUBE), precisando el procedimiento desde la presentación de los requisitos a la emisión de la resolución que resuelve la petición junto con la indicación de los medios recursivos, así como la conformación del expediente y la confidencialidad de la información.
+VII.—Que el presente reglamento también establece el procedimiento para la renovación y eventual pérdida de los beneficios, asegurando la acreditación de la condición socioeconómica se determine por SINIRUBE o mediante estudio socioeconómico por parte de la Dirección de Gestión Social.
+Disposiciones generales
+Artículo 1º—Objeto: el presente reglamento tiene por objetivo regular la aplicación y el procedimiento del beneficio de exención conferido en la Ley N° 10.359, denominada “Apoyo municipal para adultos mayores en pobreza”, la cual entró en vigencia el día 13 de julio de 2023.

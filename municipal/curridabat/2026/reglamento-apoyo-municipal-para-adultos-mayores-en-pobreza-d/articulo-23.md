@@ -1,0 +1,1 @@
+Artículo 23.—Divulgación: la Municipalidad deberá publicar este beneficio en su sitio web, redes sociales institucionales y por todos los medios que considere necesarios, asegurando acceso claro e inclusivo a la población beneficiaria.

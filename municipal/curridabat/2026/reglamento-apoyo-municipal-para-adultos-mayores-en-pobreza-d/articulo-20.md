@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones complementarias
+Artículo 20.—Análisis financiero: durante el mes de enero de cada año, la Dirección Administrativa Financiera procederá a realizar un estudio financiero de la situación actual de la institución, con el propósito de determinar si se encuentra en la capacidad de acoger, nuevamente, el beneficio de exención a los contribuyentes y remitirá dicho estudio al Concejo Municipal para que este determine si se continua con la aplicación de la exención. De igual manera queda facultada la Dirección Financiera de realizar este análisis en cualquier momento del año y realizar la recomendación correspondiente al Concejo Municipal.

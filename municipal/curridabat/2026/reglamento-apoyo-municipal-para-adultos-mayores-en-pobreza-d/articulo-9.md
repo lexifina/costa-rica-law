@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre la exención
+Artículo 9º—Exención de tributos. A solicitud de parte y de conformidad con el artículo 3 de la Ley N° 10.359, la Municipalidad, previo estudio técnico financiero, podrá conceder la exención del pago de las tasas y servicios municipales como limpieza de vías, recolección separada, transporte, valorización, tratamiento y disposición final adecuada de los residuos ordinarios, mantenimiento de parques y zonas verdes, servicio de policía municipal, mantenimiento, rehabilitación y construcción de aceras y cualquier otro servicio municipal urbano o no urbano que se establezca por ley, en el tanto se presten, aunque ellos no demuestren interés en tales servicios.
+La exención podrá otorgarse anualmente, en el año calendario, prorrogable, previa verificación de la continuidad de la condición socioeconómica, según los criterios aprobados por la municipalidad para este fin.

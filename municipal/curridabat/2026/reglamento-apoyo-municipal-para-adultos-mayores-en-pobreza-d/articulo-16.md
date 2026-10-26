@@ -1,0 +1,2 @@
+Artículo 16.—Plazo de respuesta y expediente administrativo: una vez recibida la solicitud, se analizará y resolverá dentro del plazo de un mes y se notificará al contribuyente el resultado de su gestión. El plazo podrá ser ampliado ante la complejidad del caso en concreto, situación que deberá ser debidamente comunicada a la parte gestionante.
+La unidad encargada conformará el respectivo expediente administrativo con toda la documentación asociado al trámite; misma que deberá encontrarse en estricto orden cronológico, ordenado y foliado.

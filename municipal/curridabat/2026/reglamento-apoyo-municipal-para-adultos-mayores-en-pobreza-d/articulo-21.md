@@ -1,0 +1,1 @@
+Artículo 21.—Actualización de datos: durante toda la duración del beneficio, es obligación del beneficiario, mantener actualizados los datos de contacto como el número de teléfono, correo electrónico y dirección; pues estos son los medios de comunicación idóneos para el seguimiento y renovación del beneficio.

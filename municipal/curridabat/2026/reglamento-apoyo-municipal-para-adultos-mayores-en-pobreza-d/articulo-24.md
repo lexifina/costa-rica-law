@@ -1,0 +1,1 @@
+Artículo 24.—Tratamiento de Datos: los datos personales, datos personales de acceso restringido y datos sensibles de los adultos mayores serán tratados en concordancia con la Ley De Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley N° 8968. Las personas beneficiarias deberán firmar el Consentimiento Informado correspondiente.
