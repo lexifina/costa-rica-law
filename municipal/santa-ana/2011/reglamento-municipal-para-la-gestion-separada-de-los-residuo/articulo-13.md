@@ -1,1 +1,0 @@
-Artículo 13.—Perímetro del camión recolector: Por su seguridad, el usuario no debe colocar sus residuos directamente en el camión recolector. Los funcionarios recolectores velarán para que en las inmediaciones del área de recolección no haya presencia de personas ajenas a las labores de recolección.

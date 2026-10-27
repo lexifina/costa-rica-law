@@ -1,1 +1,0 @@
-Artículo 50.—Condiciones de los residuos valorizables: El usuario deberá limpiar, secar y aplastar los reciclables y separarlos según el material de que está hecho, evitando que se contaminen con líquidos, alimentos, sustancias bioinfecciosas, pinturas, sustancias inflamables, explosivas, corrosivas, radioactivas y materiales punzocortantes.

@@ -1,3 +1,0 @@
-Artículo 8º—Ubicación de los residuos para su recolección. El usuario acumulará las bolsas con residuos de cocina o domésticos al frente de su inmueble o en el contenedor comunitario, con acceso desde la vía pública según sea el caso, en el horario establecido por la Municipalidad.
-Los residuos reciclables y reutilizables deberán ubicarse en el frente del inmueble con acceso desde la vía pública, debidamente identificados y separados de los ordinarios de cocina, en el horario que la Municipalidad establecerá previamente.
-En caso de que el usuario opte por contratar servicios privados de recolección de residuos, la responsabilidad recae sobre el usuario.

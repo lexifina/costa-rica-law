@@ -1,1 +1,0 @@
-Artículo 29.—Residuos bioinfecciosos: En cualquiera de los tipos de recolección que brinda la Municipalidad no se recolectarán residuos del tipo peligroso bioinfeccioso. Para proceder a su correcta eliminación, se deberá atender la normativa establecida por el Ministerio de Salud y los procedimientos operativos de seguridad respectivos.

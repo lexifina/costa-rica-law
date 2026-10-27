@@ -1,1 +1,0 @@
-Artículo 19.—Buen estado del empaque: Los empaques utilizados deberán permanecer en buen estado mientras permanezcan a la intemperie en espera de la recolección. No mostrarán signos visibles de rompimiento o de rasgaduras.

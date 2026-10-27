@@ -1,5 +1,0 @@
-Artículo 25.—Tipos de servicio de recolección: El servicio de recolección se clasifica de la siguiente manera:
-a. Recolección ordinaria: De los residuos domiciliares, comerciales e industriales que no son reciclables, reutilizables o valorizables, y que no son peligrosos. Los residuos de jardín son reutilizables, por lo tanto se procederá conforme los artículos 33 y 42 siguientes, y no serán recolectados por el servicio de recolección ordinaria.
-b. Recolección de material reciclable o reutilizable, de este aspecto se informará en el capítulo que corresponde del presente reglamento. Asimismo, en dicho capítulo se hará una referencia sobre los residuos tecnológicos, electrónicos y la hojalata.
-c. Recolección de jardín: De los residuos de corta de césped y poda de arbustos, reduciéndolo a su menor expresión para efectos de manipulación.
-d. Recolección no tradicional. De los desechos que no son residuos ordinarios, tales como electrodomésticos grandes, partes de muebles, etc. Se realizará al menos dos veces al año.

@@ -1,1 +1,0 @@
-Artículo 10.—Facilidades para la recolección de los residuos. El usuario evitará la existencia de obstáculos, temporales y/o permanentes frente a su propiedad o al contenedor comunitario, que dificulten la labor de recolección o que ponga en riesgo la integridad del operario recolector.

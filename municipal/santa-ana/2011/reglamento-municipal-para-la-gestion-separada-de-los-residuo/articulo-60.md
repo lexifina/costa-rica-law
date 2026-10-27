@@ -1,1 +1,0 @@
-Artículo 60.—Programa de responsabilidad ambiental empresarial: La Municipalidad, a través de la Unidad de Gestión Ambiental desarrollará en conjunto con las empresas locales, la creación de procedimientos y procesos para lograr la reducción de residuos y el mejor manejo de estos materiales, para evitar al máximo la disposición final en el relleno sanitario.

@@ -1,1 +1,0 @@
-Artículo 17.—Tipos de empaque permitidos: El empaque de los residuos ordinarios de cocina o domésticos y no orgánico será exclusivamente en bolsas plásticas. Con los residuos reciclables, se seguirán los procedimientos que previa y publicitadamente establecerá la Unidad de Gestión Ambiental Municipal.

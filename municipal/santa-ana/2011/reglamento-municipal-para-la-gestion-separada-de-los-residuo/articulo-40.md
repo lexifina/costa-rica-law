@@ -1,1 +1,0 @@
-Artículo 40.—Peligrosidad de los residuos. El usuario se encargará de preparar adecuadamente los residuos con la finalidad de evitar lesiones de operario recolector, tales como eliminación de clavos o bordes filosos, entre otros.

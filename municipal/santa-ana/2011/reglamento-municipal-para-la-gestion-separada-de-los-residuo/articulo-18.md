@@ -1,1 +1,0 @@
-Artículo 18.—Llenado máximo del empaque con residuos: El empaque con residuos no deberá llenarse por encima de las dos terceras partes de la capacidad de volumen del mismo. La tercera parte restante se dejará libre para el adecuado cierre mediante un nudo y prensa no se afloje o resbale.
