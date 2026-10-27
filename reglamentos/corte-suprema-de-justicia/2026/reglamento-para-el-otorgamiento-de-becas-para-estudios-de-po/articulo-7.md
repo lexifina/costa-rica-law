@@ -1,0 +1,4 @@
+Capítulo 3 – Del presupuesto para becas y beneficios para estudios de posgrado en la JUNAFO, su brazo administrativo y sus Comités Técnicos.
+Artículo 7.- Determinación anual de recursos económicos para becas. La asignación anual de recursos económicos para becas en la Dirección de la JUNAFO será formulado, mediante un diagnóstico previo de las necesidades de capacitación y según la actualización que establece la normativa vigente. Posteriormente, la JUNAFO determinará el número de becas que estima posible y conveniente adjudicar, de acuerdo con las circunstancias imperantes.
+Todo lo que corresponde a la gestión de becas, tendrá recursos presupuestarios asignados para este fin en específico. Estos recursos se podrán reorientar a otras actividades, si cambiaran las necesidades de capacitación, siempre y cuando sea aprobado por la JUNAFO
+No se gestionarán como becas todas aquellas actividades que no posean recursos presupuestarios asignados.

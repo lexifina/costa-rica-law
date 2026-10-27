@@ -1,0 +1,1 @@
+Artículo 5.- Organización de las instancias responsables de la gestión de las becas. La Dirección de la JUNAFO se hará responsable de lo que le corresponda sobre las becas de las personas integrantes de la JUNAFO y sus Comités Técnicos, así como a las personas servidoras de la Dirección de la JUNAFO.

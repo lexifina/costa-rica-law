@@ -1,0 +1,1 @@
+Artículo 15.- Adjudicación de la beca. La JUNAFO conocerá y valorará la recomendación realizada por la Dirección de la JUNAFO y decidirá sobre la adjudicación de la beca; para esto, deberá motivar en forma amplia las razones que justifican su escogencia.

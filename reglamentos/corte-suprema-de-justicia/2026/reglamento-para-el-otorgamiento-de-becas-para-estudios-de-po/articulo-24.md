@@ -1,0 +1,1 @@
+Artículo 24.- Eximentes de responsabilidad. Constituyen eximentes de responsabilidad de la persona beneficiaria el caso fortuito o la fuerza mayor debidamente demostrado que sea causa suficiente para que la misma no pueda continuar con sus estudios. Dicha notificación deberá de realizarse de acuerdo con el plazo indicado en el artículo 18, inciso 6 de este reglamento.
