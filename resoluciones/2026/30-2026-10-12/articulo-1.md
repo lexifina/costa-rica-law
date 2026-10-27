@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE POCOCÍ
+La Municipalidad de Pococí, Informa a los contribuyentes y público en general que
+La Alcaldía de la Municipalidad de Pococí, autoriza mediante la resolución RES-DAM-030-2026, la adhesión a la herramienta técnica publicada en el Alcance N.° 154 a La Gaceta N.º 226, mediante resolución N.º MH-DGT-TEMPORAL-RES-0004-2025 del Órgano de Normalización Técnica, lo cual permitirá el uso de la herramienta técnica denominada “Manual de Valores Base Unitarios por Tipología Constructiva 2025”, aprobada por el Órgano de Normalización Técnica de la Dirección General de Tributación del Ministerio de Hacienda.
+El Manual de Valores Base Unitarios por Tipología Constructiva 2025 se utilizará únicamente para la valoración de construcciones y demás instalaciones fijas y permanentes, permitiendo con ello el cálculo del impuesto conforme a lo dispuesto en la Ley N.° 7509, Ley del Impuesto sobre Bienes Inmuebles, y sus posteriores reformas. Consecuentemente, las tipologías denotadas en el Manual de Valores Base Unitario por Tipología Constructiva 2025, serán las ya reseñadas en el anterior manual (año 2023), junto a las recién agregadas, conforme a la resolución N.º MH-DGT-TEMPORAL-RES-0004-2025.
+Rige a partir de su publicación.
+Pococí, 12 de octubre del 2026
