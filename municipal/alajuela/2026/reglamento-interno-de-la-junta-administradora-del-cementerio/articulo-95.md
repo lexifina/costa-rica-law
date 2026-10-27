@@ -1,0 +1,1 @@
+Artículo 95º—De la responsabilidad del solicitante o autoridad respectiva. Desde que los restos salen del cementerio a cargo de la Junta por solicitud del interesado o autoridad competente, la responsabilidad será exclusiva del solicitante o de la autoridad respectiva.

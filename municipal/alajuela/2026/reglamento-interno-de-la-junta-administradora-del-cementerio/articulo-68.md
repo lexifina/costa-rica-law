@@ -1,0 +1,1 @@
+Artículo 68º—De la facultad de la Junta para demoler la bóveda. En bóvedas abandonadas sin titulares o familiares identificables, o en estado ruinoso o peligro para la salud pública, la Junta podrá ejecutar reparaciones indispensables con cargo a sus fondos en espera de recobro; si fueran costosas, podrá ordenar demolición y colocar marca estable para identificación.

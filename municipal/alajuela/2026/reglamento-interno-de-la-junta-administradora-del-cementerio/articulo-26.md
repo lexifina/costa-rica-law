@@ -1,0 +1,1 @@
+Artículo 26º—Del régimen para obtención. Mediante documento simple firmado por la persona designada por la Junta, los interesados podrán obtener el permiso precario de uso por un plazo determinado. Es un acto unilateral de la Junta. El documento se denominará “Permiso de uso” y se rige por el derecho administrativo.

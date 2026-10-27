@@ -1,0 +1,1 @@
+Artículo 30º—Del sujeto obligado a dar mantenimiento. El mantenimiento del espacio asignado corresponde exclusivamente al permisionario y es independiente de la cuota general de mantenimiento del cementerio.

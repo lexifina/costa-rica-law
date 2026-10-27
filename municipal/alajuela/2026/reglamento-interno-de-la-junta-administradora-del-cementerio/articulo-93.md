@@ -1,0 +1,1 @@
+Artículo 93º—Del procedimiento de recolección y depósito de exhumaciones ordinarias. Los restos humanos hallados en exhumaciones ordinarias serán recogidos cuidadosamente y depositados en el osario común, salvo reclamo de deudos para osarios privados o traslado. Residuos de cajas, ropas y otros se desecharán conforme disposiciones sanitarias.

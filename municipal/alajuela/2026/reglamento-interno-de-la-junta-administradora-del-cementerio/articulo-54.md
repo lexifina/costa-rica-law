@@ -1,0 +1,1 @@
+Artículo 54º—De las facultades de la Junta para revocar. La construcción o reparación sin autorización faculta a la Junta a revocar el permiso y disponer del espacio, realizando arreglos para corregir la irregularidad a costa del permisionario.

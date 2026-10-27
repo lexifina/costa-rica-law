@@ -1,0 +1,1 @@
+Artículo 106º—Del permiso para pintar. Para pintar bóveda o mausoleo el permisionario solicitará permiso por escrito, estar al día en mantenimiento y firmar el documento que especifique el trabajo, ya sea por sí, por constructor autorizado o por tercero autorizado.

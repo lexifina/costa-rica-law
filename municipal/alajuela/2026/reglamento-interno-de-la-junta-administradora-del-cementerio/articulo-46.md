@@ -1,0 +1,1 @@
+Artículo 46º—De la falta de uso por voluntad del interesado. Si pagado un permiso de nicho la inhumación no se realiza por decisión del interesado, no se reservará el nicho. Se deducirán gastos de preparación y se devolverá el saldo. Transcurrido un año sin reclamar, el saldo se pierde a favor de la Junta.

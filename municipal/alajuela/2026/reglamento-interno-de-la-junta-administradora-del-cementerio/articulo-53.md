@@ -1,0 +1,1 @@
+Artículo 53º—Del diseño constructivo. La Junta entregará plano modelo con diseño y características constructivas. Cualquier diseño distinto requerirá aprobación previa mediante anteproyecto y plano con cotas y especificaciones.

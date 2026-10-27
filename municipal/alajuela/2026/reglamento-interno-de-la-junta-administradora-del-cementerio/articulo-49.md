@@ -1,0 +1,1 @@
+Artículo 49º—Requisitos posteriores a la aprobación. Aprobada la solicitud, el permisionario presentará autorización escrita con datos del constructor y del profesional responsable. La obra se sujetará a este Reglamento y directrices de la Administración.

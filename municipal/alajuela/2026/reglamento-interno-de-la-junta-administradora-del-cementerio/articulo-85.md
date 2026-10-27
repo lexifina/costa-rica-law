@@ -1,0 +1,1 @@
+Artículo 85º—Del deber de estar al día con las obligaciones. Toda inhumación o exhumación requiere el pago de la cuota fijada, además de estar al día en mantenimiento. Si no se realiza por decisión del permisionario, se deducirán gastos incurridos y se devolverá el saldo.

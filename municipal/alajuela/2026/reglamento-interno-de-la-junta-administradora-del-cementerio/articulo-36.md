@@ -1,0 +1,2 @@
+Artículo 36º—Del proceso de revocatoria.
+La revocatoria seguirá el debido proceso: acto razonado y notificado al beneficiario o a las personas con prioridad, indicando motivos y plazo para oponerse. Posteriormente se resolverá sobre la reasignación y destino de restos humanos. En lo no regulado, se aplicarán supletoriamente las reglas del procedimiento sumario y la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 60º—De los objetos prohibidos y facultad de demolición. Se prohíbe colocar alrededor de las bóvedas plantas, verjas u otros. La Junta podrá demoler sin que le alcance ninguna responsabilidad.

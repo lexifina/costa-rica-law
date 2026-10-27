@@ -1,0 +1,1 @@
+Artículo 94º—Del procedimiento de manejo y traslado de exhumaciones ordinarias. Toda exhumación de restos deberá manejarse en bolsa plástica etiquetada con el nombre del difunto. El traslado lo realizará personal de la Junta y se registrará mediante acta según el Reglamento General de Cementerios.

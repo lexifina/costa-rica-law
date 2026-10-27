@@ -1,0 +1,1 @@
+Artículo 107º—De la exoneración de responsabilidad de la Junta por actos vandálicos. La Junta no responde por colocación de enchapes, estatuas, adornos o materiales de alto valor colocados por permisionarios; estos asumen el riesgo de vandalismo o destrucción total o parcial.

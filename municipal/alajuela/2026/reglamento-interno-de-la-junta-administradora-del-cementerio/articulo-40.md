@@ -1,0 +1,1 @@
+Artículo 40º—De los nichos asignados. Para inhumación en nichos asignados, el solicitante deberá ser mayor de edad, cancelar la cuota fijada, presentar cédula de identidad y original y copia del certificado de defunción, y firmar el documento respectivo.

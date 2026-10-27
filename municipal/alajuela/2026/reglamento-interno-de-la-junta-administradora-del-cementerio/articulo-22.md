@@ -1,0 +1,1 @@
+Artículo 22º—Plazo para resolver. La Junta dispondrá hasta la sesión ordinaria siguiente a la presentación de cualquier solicitud para resolverla, pudiendo hacer comparecer al interesado para aclaraciones.

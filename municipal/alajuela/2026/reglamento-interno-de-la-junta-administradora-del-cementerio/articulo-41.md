@@ -1,0 +1,1 @@
+Artículo 41º—De los requisitos para la prórroga. La Junta podrá prorrogar un permiso de nicho si lo estima conveniente y previo pago del canon. Vencido el plazo, si no hay renovación ni traslado, la Junta podrá trasladar los restos al Osario General sin responsabilidad.

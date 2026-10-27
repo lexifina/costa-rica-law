@@ -1,0 +1,1 @@
+Artículo 43º—De la prohibición de transferencia. Los permisos de uso de nichos son intransferibles. Será nulo todo acto de traspaso. La duración no podrá ser menor de 5 años inicialmente; las prórrogas se ajustarán a lo que establezca la Junta. El titular podrá autorizar a un tercero mayor de edad para gestionar la exhumación ante la Junta.

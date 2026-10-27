@@ -1,0 +1,1 @@
+Artículo 74º—De las limitaciones a fundaciones, asociaciones u ONG sin fines de lucro. Los permisos otorgados a fundaciones, asociaciones u ONG sin fines de lucro no podrán traspasarse, total o parcialmente, mientras existan restos. La autorización requerirá acuerdo del representante legal designado.

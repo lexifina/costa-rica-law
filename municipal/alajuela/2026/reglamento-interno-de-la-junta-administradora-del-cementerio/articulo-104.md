@@ -1,0 +1,1 @@
+Artículo 104º—De las formas de comunicar disposiciones de la Junta. Para disposiciones generales dictadas por la Junta bastará colocar aviso en la puerta del cementerio, salvo que por ley deba publicarse por otro medio.

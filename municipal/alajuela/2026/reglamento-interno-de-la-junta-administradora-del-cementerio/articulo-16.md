@@ -1,0 +1,1 @@
+Artículo 16º—De la gestión de los recursos económicos. Corresponde a la Junta la recaudación, administración y presupuestación de los recursos económicos que ingresen por servicios del cementerio. Se emitirá recibo de pago y el pago se realizará ante la Tesorería.

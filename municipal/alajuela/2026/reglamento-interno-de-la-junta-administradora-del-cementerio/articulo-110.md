@@ -1,0 +1,1 @@
+Artículo 110º—De las actividades permitidas en las exequias. Son permitidas ceremonias religiosas, discursos y oraciones fúnebres y acompañamiento musical de exequias, siempre que no contravengan la ley, la moral o las buenas costumbres.

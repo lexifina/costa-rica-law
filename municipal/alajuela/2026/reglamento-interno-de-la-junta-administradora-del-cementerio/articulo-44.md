@@ -1,0 +1,1 @@
+Artículo 44º—Del permiso de colocación de placas. En los nichos se permitirá una placa (metal, mármol o plástica) de 12 cm x 30 cm, con nombre, fecha de nacimiento y deceso y leyenda elegida. La colocación la realizará personal autorizado por la Junta. La Junta no se hace responsable por deterioro, pérdida o robo.

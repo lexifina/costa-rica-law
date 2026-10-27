@@ -1,0 +1,1 @@
+Artículo 31º—Consecuencias del incumplimiento del financiamiento. Si se incumple el financiamiento, la Junta podrá tener por desistida la solicitud y resolver la opción. Se devolverá lo pagado menos un 5% por daños y perjuicios.

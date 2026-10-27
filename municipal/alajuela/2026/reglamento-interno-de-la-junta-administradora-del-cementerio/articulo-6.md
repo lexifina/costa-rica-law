@@ -1,0 +1,1 @@
+Artículo 6º—De las sesiones. La Junta sesionará ordinariamente una vez al mes, pudiendo reunirse extraordinariamente cuantas veces sea necesario por convocatoria del presidente o por 3 de sus miembros, quienes lo solicitarán por escrito con 24 horas de anticipación.

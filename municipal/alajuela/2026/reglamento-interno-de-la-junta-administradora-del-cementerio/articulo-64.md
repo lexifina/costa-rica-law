@@ -1,0 +1,1 @@
+Artículo 64º—Del retiro de escombros. Es obligación del interesado retirar escombros y residuos después de la obra, caso contrario, la Junta procederá conforme a lo que se requiera y pasará la factura al permisionario.

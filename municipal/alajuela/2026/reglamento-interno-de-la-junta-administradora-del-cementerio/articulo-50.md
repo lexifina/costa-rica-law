@@ -1,0 +1,1 @@
+Artículo 50º—De la supervisión y la ejecución de la obra. El permisionario supervisará al constructor y será responsable de daños. La obra se ejecutará conforme normas de construcción aprobadas por la Junta.

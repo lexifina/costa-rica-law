@@ -1,0 +1,1 @@
+Artículo 103º—De la exoneración de responsabilidad de la junta, deber de denunciar y cobro de daños y perjuicios. La Junta, sus miembros o funcionarios no incurrirán en responsabilidad por actos dolosos de particulares (traspasos, inhumaciones, exhumaciones o traslados contrarios al Reglamento). La Junta denunciará ante autoridad competente y podrá demandar daños y perjuicios.

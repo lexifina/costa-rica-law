@@ -1,0 +1,1 @@
+Artículo 81º—De la solicitud y respuesta. La petición para inhumar en nicho de bóveda la hará el titular, copermisionarios o representantes legales, al menos 6 horas antes del entierro. Si los nichos están ocupados y no es posible exhumar por no haber transcurrido el tiempo o por persistir partes blandas, se avisará a los interesados.

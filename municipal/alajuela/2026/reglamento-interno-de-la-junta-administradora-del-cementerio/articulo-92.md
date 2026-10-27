@@ -1,0 +1,1 @@
+Artículo 92º—Del uso de equipo de protección personal. La Junta dotará al personal autorizado de equipo de protección personal según lineamientos del Ministerio de Salud (guantes, mascarillas, delantal/bata y botas de hule). Su uso es obligatorio y su incumplimiento será sancionable.

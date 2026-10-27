@@ -1,0 +1,1 @@
+Artículo 87º—De la forma, prohibición y excepción de inhumar cadáveres. Los cadáveres que se sepulten en nichos deberán presentarse en cajas cerradas. Se prohíbe inhumar más de un cadáver en el mismo nicho, salvo madre e hijo recién nacido muertos en el parto o gemelos fallecidos en el parto.

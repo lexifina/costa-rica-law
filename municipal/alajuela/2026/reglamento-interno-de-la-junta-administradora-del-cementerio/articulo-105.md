@@ -1,0 +1,1 @@
+Artículo 105º—De la forma de presentar consultas ante la Junta y plazo para responder. Toda consulta o solicitud a la Junta deberá presentarse por escrito; esta contará con hasta 5 días posteriores a la siguiente sesión ordinaria para responder.

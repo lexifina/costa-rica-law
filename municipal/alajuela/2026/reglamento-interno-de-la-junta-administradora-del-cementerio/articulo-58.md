@@ -1,0 +1,1 @@
+Artículo 58º—De la solidaridad en la rendición de cuentas. El permisionario y el constructor rendirán cuentas a la Junta durante la fiscalización. El constructor deberá portar el permiso escrito firmado por el permisionario y la Administración.

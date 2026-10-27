@@ -1,0 +1,1 @@
+Artículo 111º—Del periodo de vigencia y derogaciones. Este Reglamento rige a partir de su aprobación y publicación; deroga cualquier disposición anterior que se le oponga. Se complementa con el Reglamento General de Cementerios (Decreto Ejecutivo Nº 32833-S) y su reforma (Decreto Ejecutivo Nº 42474-S).

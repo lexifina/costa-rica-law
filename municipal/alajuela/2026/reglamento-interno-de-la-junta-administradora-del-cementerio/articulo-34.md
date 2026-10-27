@@ -1,0 +1,1 @@
+Artículo 34º—Consecuencias por deudas o deterioros. No se tramitarán inhumaciones, exhumaciones, reparaciones, construcciones ni reasignaciones si hay deudas o si la bóveda está deteriorada, salvo demolición previa por cuenta del permisionario.

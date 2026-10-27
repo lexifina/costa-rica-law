@@ -1,0 +1,1 @@
+Artículo 84º—De la posibilidad de denegar una inhumación. La Junta podrá denegar una inhumación si los nichos están deteriorados por tiempo, movimientos telúricos u otro motivo, y solicitar la demolición o reparación total una vez transcurridos 5 años desde la última inhumación.

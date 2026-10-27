@@ -1,0 +1,1 @@
+Artículo 8º—De la entrega de bienes y rendición de informe financiero. Cumplido el periodo, en Asamblea debidamente convocada, la Junta saliente entregará a la entrante los documentos, equipo, archivos, expedientes y pertenencias del cementerio; además, un informe contable amplio y detallado y un informe del estado de las instalaciones.

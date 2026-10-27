@@ -1,0 +1,1 @@
+Artículo 20º—Del proceso de aprobación y revisión de acuerdos. Los acuerdos aprobados por mayoría serán firmes salvo disposición contraria. La revisión o revocatoria deberá plantearse antes de aprobarse en firme un acuerdo o antes de aprobarse el acta en la sesión siguiente.

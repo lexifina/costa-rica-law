@@ -1,0 +1,1 @@
+Artículo 109º—De las inspecciones del Ministerio de Salud. La Junta permitirá las inspecciones en cualquier momento de funcionarios del Ministerio de Salud debidamente identificados, para verificar el cumplimiento de disposiciones sanitarias.

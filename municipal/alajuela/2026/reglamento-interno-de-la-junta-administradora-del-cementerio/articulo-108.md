@@ -1,0 +1,1 @@
+Artículo 108º—De las prohibiciones y permisiones. Se permite colocar adornos, macetas, jardineras, imágenes. Además, se permite colocar placas regulares con nombre del difunto y fechas; la colocación la hará el personal de la Junta. Cualquier elemento no autorizado podrá ser removido o demolido sin responsabilidad.

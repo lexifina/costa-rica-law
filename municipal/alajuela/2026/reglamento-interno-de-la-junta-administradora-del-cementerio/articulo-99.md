@@ -1,0 +1,1 @@
+Artículo 99º—De la inscripción de los permisos. Los permisos podrán inscribirse a nombre de comunidades religiosas, establecimientos, asociaciones o sociedades. En todos los casos deberán aportar personería jurídica y designación de apoderados y personas autorizadas para trámites ante la Junta.

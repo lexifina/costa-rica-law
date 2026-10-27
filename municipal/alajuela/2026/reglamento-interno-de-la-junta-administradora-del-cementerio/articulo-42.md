@@ -1,0 +1,1 @@
+Artículo 42º—De las prohibiciones para inhumaciones. En los nichos no se permitirá inhumación en cajas de metal ni cuerpos embalsamados, salvo orden judicial. Los ataúdes deberán ser de materiales de fácil descomposición. No se autorizarán momias provenientes de otros cementerios.

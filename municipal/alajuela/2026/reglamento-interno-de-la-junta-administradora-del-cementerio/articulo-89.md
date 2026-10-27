@@ -1,0 +1,1 @@
+Artículo 89º—De la clasificación de las exhumaciones. Las exhumaciones serán ordinarias o extraordinarias. Las ordinarias tienen lugar después de 5 años de la inhumación y destrucción de partes blandas. Las extraordinarias se realizarán por orden judicial o con permiso del Ministerio de Salud para traslado, exámenes o incineración.

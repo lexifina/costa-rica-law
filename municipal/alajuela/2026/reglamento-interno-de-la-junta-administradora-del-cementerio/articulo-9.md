@@ -1,0 +1,1 @@
+Artículo 9º—Del levantamiento de acta notarial. Podrá contarse con Notario Público, quien dará fe del traspaso y levantará el acta administrativa conforme a los artículos 102 y 104 del Código Notarial.

@@ -1,0 +1,1 @@
+Artículo 57º—De la responsabilidad civil por daños a terceros. Durante la obra el permisionario será responsable de resarcir daños a bóvedas o instalaciones. Queda prohibido colocar materiales u objetos en bóvedas vecinas.

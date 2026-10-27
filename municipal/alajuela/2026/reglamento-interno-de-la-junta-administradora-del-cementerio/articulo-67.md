@@ -1,0 +1,1 @@
+Artículo 67º—De la obligación del permisionario de reparar la bóveda. En bóvedas o nichos en alto grado de deterioro que pongan en riesgo la salud pública, el permisionario deberá reparar o modificar con prontitud, previa autorización escrita.

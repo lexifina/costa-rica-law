@@ -1,0 +1,1 @@
+Artículo 63º—De las prohibiciones para contenedores de agua. Por orden sanitaria se prohíben floreros o recipientes con agua. Solo se permitirán arreglos con “oasis” u otros materiales que no acumulen agua. En reparaciones deberán sellarse recipientes existentes o retirarse.

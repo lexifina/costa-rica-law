@@ -1,0 +1,1 @@
+Artículo 37º—De la habilitación del proceso. El plazo mínimo de 5 años para exhumar no impide iniciar el proceso de revocatoria ni la reubicación de restos, condicionada a las reglas sanitarias aplicables.

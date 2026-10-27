@@ -1,0 +1,1 @@
+Artículo 18º—Del régimen aplicable a la contratación de personal. La contratación de personal se regirá por el Código de Trabajo y el Reglamento General de Cementerios; no hay relación de empleo público. La Junta realizará los contratos necesarios.

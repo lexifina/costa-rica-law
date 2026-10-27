@@ -1,0 +1,1 @@
+Artículo 90º—De las exhumaciones ordinarias. Las exhumaciones ordinarias no requieren orden especial si han transcurrido 5 años. Se requerirá solicitud y autorización de permisionarios del derecho de origen y del derecho de destino cuando sea dentro del mismo cementerio.
