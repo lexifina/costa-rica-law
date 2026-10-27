@@ -1,1 +1,0 @@
-Artículo 18.—Ante el llamado por emergencia y desastres, los Oficiales deberán presentarse, en el menor tiempo posible, a su respectiva base a fin de brindar servicios. Estarán obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que les impone el presente reglamento.

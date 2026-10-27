@@ -1,1 +1,0 @@
-Artículo 19.—Todos los miembros de la Policía Municipal que vistan su uniforme en lugares públicos, se considerarán que se encuentran en el ejercicio de sus funciones, por lo tanto, están obligados a intervenir en aquellos sucesos que reclamen su presencia.

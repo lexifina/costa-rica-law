@@ -1,1 +1,0 @@
-Artículo 8º—El uso del uniforme, equipo y armamento es obligatorio para los supervisores, oficiales e inspectores de tránsito, durante la jornada laboral. Excepto en casos especiales debidamente autorizados por sus superiores.

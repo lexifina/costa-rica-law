@@ -1,1 +1,0 @@
-Artículo 12.—Para los efectos de delimitar la jurisdicción territorial de la Policía de Tránsito Municipal de Santa Ana; tanto sobre rutas nacionales como sobre calles municipales, la Municipalidad colocará señalización vertical que indique el límite territorial del cantón.

@@ -1,1 +1,0 @@
-Artículo 7º—Todas las personas trabajadoras del Servicio de Policía Municipal deberán cumplir con lo estipulado en el Reglamento Autónomo de Organización y Servicio y Libro de Marca de la Municipalidad de Santa Ana.

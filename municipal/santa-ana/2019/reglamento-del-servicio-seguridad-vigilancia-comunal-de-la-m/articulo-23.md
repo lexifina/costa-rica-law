@@ -1,1 +1,0 @@
-Artículo 23.—Los Oficiales están obligados a cumplir íntegramente su jornada laboral, no abandonaran el servicio hasta presentar el informe diario de las labores realizadas para poner en conocimiento de sus superiores sobre cualquier incidencia.

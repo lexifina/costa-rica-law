@@ -1,2 +1,0 @@
-Artículo 2º—De la función. Además de las contenidas en el artículo 1 de este reglamento, debe brindar seguridad en todos aquellos espacios públicos de interés local, así como hacer efectivas las ordenanzas municipales y velar por el cumplimiento de la legislación de interés municipal.
-En el ejercicio de sus funciones; este cuerpo policial debe sujetarse a lo establecido en la Constitución Política, las leyes, los reglamentos y a los demás elementos que conformen el ordenamiento jurídico.

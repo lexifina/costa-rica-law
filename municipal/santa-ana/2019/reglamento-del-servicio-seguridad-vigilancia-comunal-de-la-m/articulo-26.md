@@ -1,1 +1,0 @@
-Artículo 26.—Los Oficiales de la Policía Municipal tendrán derecho a su defensa a través de un patrocinio legal otorgado por la municipalidad, en asuntos judiciales que provengan del cumplimiento de sus deberes: En aquellos casos, que se disponga no darse este auxilio, se requerirá la opinión de la Asesoría Municipal.
