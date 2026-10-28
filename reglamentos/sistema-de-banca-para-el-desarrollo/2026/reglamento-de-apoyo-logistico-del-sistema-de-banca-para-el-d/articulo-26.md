@@ -1,0 +1,1 @@
+Artículo 26.—Necesidades alimentarias. Podrán atenderse alergias, condiciones médicas, discapacidad, convicciones religiosas u otras restricciones previamente comunicadas, mediante alternativas razonables, no suntuarias y compatibles con la contratación aplicable.

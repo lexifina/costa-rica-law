@@ -1,0 +1,4 @@
+CAPÍTULO II
+Apoyo logístico y servicios complementarios
+Artículo 9º—Del apoyo logístico y sus componentes. El apoyo logístico aplicará con carácter excepcional siempre que se constituya en instrumento indispensable para desarrollar las actividades y categorías indicadas en el artículo 7 del presente reglamento, debiendo privilegiarse la cooperación interinstitucional o entre los integrantes del Sistema de Banca para el Desarrollo.
+El apoyo logístico podrá comprender, entre otros: acondicionamiento o alquiler de espacios; mobiliario; audio, video y proyección; conectividad; plataformas híbridas; interpretación y traducción; materiales; impresión; señalización; registro y acreditación; transporte de personas, equipos o materiales; seguridad; limpieza; accesibilidad; y soporte técnico u operativo.

@@ -1,0 +1,12 @@
+Artículo 7º—Categorías comprendidas. El presente Reglamento se aplicará exclusivamente a las siguientes categorías de actividades:
+a) Sesiones ordinarias y extraordinarias del Consejo Rector.
+b) Sesiones de comités y órganos colegiados formalmente constituidos.
+c) Actividades de cooperación técnica, negociación, suscripción y seguimiento de convenios o alianzas con sujetos de derecho público o derecho privado, nacionales o internacionales.
+d) Talleres, oficinas móviles, diagnósticos y actividades de regionalización y desarrollo territorial.
+e) Actividades de promoción, asistencia técnica, innovación, incubación, aceleración e investigación aplicada, realizadas con operadores e integrantes del Sistema de Banca para el Desarrollo y necesarias para el desarrollo y la ejecución de los programas vigentes del SBD.
+f) Recepción de delegaciones, misiones técnicas, organismos internacionales, autoridades y otras partes intervinientes, cuando se trate de sesiones de trabajo que coadyuven a la formulación de programas o proyectos que posibiliten el cumplimiento de los objetivos establecidos en la Ley Nº 8634.
+g) Conferencias, presentaciones, actos oficiales y actividades de representación o divulgación organizadas por el Consejo Rector o la Secretaría Técnica, vinculadas con el cumplimiento de los fines y objetivos establecidos en la Ley Nº 8634.
+La actividad deberá contar con agenda o programa, identificación de la entidad y de las personas participantes, relación con las competencias u objetivos del SBD, resultado esperado, disponibilidad presupuestaria, contratación válida, trazabilidad y autorización previa de la Dirección Ejecutiva cuando la unidad promotora no sea la propia Dirección Ejecutiva ni el Consejo Rector.
+Podrá incluirse al personal institucional cuya participación sea necesaria para la atención, coordinación o contenido técnico de la actividad. La actividad no podrá organizarse, en ninguna circunstancia, para beneficio o disfrute del personal interno del SBD.
+La provisión de alimentación o facilidades logísticas a personas externas deberá responder exclusivamente a fines institucionales relacionados con la actividad organizada.
+En ningún caso estos servicios podrán utilizarse para generar ventajas indebidas, trato preferencial, compromisos particulares o situaciones que puedan afectar la objetividad, imparcialidad o transparencia en la gestión institucional.

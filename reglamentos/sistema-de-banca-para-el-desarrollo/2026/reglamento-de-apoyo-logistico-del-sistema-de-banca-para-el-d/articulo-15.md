@@ -1,0 +1,1 @@
+Artículo 15.—Sesiones del Consejo Rector. La Secretaría de Actas documentará la convocatoria, agenda y participantes. La necesidad funcional se hará constar en el registro correspondiente y la Dirección Ejecutiva verificará el contenido presupuestario y ordenará la tramitación administrativa mediante los procesos ordinarios de la Secretaría Técnica.

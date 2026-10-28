@@ -1,0 +1,1 @@
+Artículo 24.—Responsabilidad. La autorización, contratación, recepción o pago contrario a este Reglamento podrá generar responsabilidad disciplinaria, civil o penal, así como la recuperación de sumas, según corresponda.

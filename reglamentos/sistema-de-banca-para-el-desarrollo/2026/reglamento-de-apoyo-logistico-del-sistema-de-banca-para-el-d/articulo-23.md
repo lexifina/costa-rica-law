@@ -1,0 +1,1 @@
+Artículo 23.—Acceso de la Auditoría Interna y órganos de fiscalización. La información y los registros estarán disponibles para la Auditoría Interna y los órganos competentes de fiscalización, sin perjuicio de la protección de información confidencial. Esta disposición no asigna a la Auditoría Interna funciones de Administración activa, autorización o aprobación previa.

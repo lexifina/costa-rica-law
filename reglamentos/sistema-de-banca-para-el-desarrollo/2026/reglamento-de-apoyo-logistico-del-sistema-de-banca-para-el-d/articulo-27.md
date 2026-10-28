@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones Finales
+Artículo 27.—Instrumentos y procesos operativos. En lo que corresponda, la implementación del presente Reglamento se realizará mediante los procesos, procedimientos, niveles de autorización, formularios y registros ya establecidos en la Secretaría Técnica para planificación, presupuesto, contratación, autorización, recepción, pago, gestión documental, archivo y rendición de cuentas. Las disposiciones administrativas, manuales, circulares y procedimientos de menor rango podrán ajustarse conforme con el artículo 31 del Decreto Ejecutivo Nº 45762-MEIC-MAG-TUR, sin alterar los fines, supuestos de procedencia, exclusiones, requisitos de contratación ni controles esenciales aprobados por el Consejo Rector.

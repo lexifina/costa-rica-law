@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este Reglamento será aplicable al Consejo Rector, a la Dirección Ejecutiva, a la Secretaría Técnica, a los comités formalmente constituidos, así como a las personas externas que participen oficial, efectiva y presencialmente en las actividades indicadas en el artículo 7 del presente Reglamento.

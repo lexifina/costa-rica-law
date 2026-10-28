@@ -1,0 +1,1 @@
+Artículo 12.—Accesibilidad y adecuaciones razonables. La planificación deberá prever condiciones de accesibilidad y ajustes razonables para personas con discapacidad o necesidades específicas. Los apoyos logísticos indispensables se reconocerán por el precio contractual válidamente adjudicado y formalizado, correspondiente a la cantidad efectivamente recibida a satisfacción.
