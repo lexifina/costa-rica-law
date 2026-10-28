@@ -1,0 +1,6 @@
+Artículo 9.- Referencia, Evaluación pretrasplante, clasificación del receptor. De acuerdo con la evaluación médica individual y con la voluntad expresa del paciente, se procederá a iniciar el proceso de evaluación pretrasplante y la correspondiente remisión de la información al establecimiento de salud autorizado para el trasplante de corazón, según corresponda. El seguimiento clínico del paciente deberá mantenerse en el establecimiento de salud que disponga del equipo interdisciplinario responsable del abordaje integral.
+Como resultado de dicha evaluación, el paciente será clasificado en una de las siguientes categorías:
+a) Apto para trasplante: Cumple con los criterios clínicos requeridos para ser incluido en la lista nacional de receptores.
+b) Contraindicación temporal: Existen condiciones médicas reversibles que deben corregirse antes de ser considerado apto.
+c) Contraindicación permanente: Existencia de una condición médica que contraindica de forma definitiva el trasplante. Esta debe ser documentada y justificada conforme al Anexo 1 de la presente normativa.
+d) Oposición del paciente al trasplante: en caso de que el paciente manifieste su negativa a recibir el trasplante, deberá firmar el consentimiento informado de no inclusión en la lista nacional de receptores, conforme al Anexo 2 del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 30.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 41790-S del 5 de marzo del 2019 "Criterios de distribución y asignación cardíaca proveniente de donante cadavérico", publicado en el Alcance Nº 153 a La Gaceta Nº 123 del 2 de julio de 2019.

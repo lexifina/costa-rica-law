@@ -1,0 +1,1 @@
+Artículo 17.- Tiempo de Isquemia. Adicionalmente, el corazón deberá contar con un tiempo estimado de isquemia menor a cuatro (4) horas, contado desde la clampeo aórtico hasta la reperfusión en el receptor.

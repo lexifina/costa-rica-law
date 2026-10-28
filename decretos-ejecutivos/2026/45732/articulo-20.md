@@ -1,0 +1,2 @@
+Artículo 20.- Consentimiento informado para la aceptación de donante con criterio extendido. En los casos en que el equipo trasplantador proponga la asignación de un injerto proveniente de un donante con criterio extendido, se requerirá la firma del consentimiento informado correspondiente por parte del receptor o su representante legal, utilizando el formulario establecido en el Anexo 3 de la presente normativa.
+Dicho consentimiento deberá ser otorgado previo al procedimiento quirúrgico y almacenado en el expediente clínico del paciente.
