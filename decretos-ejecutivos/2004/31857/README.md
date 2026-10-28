@@ -20,3 +20,4 @@ Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tec
 | 5 | 2023-06-24 | Decreto Ejecutivo 44115 (2023-06-24) |
 | 6 | 2024-10-30 | Decreto Ejecutivo 44773 (2024-10-30) |
 | 7 | 2025-09-05 | Decreto Ejecutivo 45282 (2025-09-05) |
+| 8 | 2026-10-28 | Decreto Ejecutivo 45986 (2026-10-28) |

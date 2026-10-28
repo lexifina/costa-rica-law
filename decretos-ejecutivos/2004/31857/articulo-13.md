@@ -11,3 +11,5 @@ A las sesiones de la Junta Directiva deberá asistir el Director Ejecutivo del I
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)
 El quórum para que pueda sesionar válidamente la Junta Directiva se formará con cuatro de sus miembros. Los acuerdos y resoluciones serán adoptados por mayoría simple de los presentes, salvo en aquellos casos que por disposición legal, se exija una mayoría calificada. En caso de empate, el Presidente tendrá doble voto.
 En lo no regulado en el presente artículo rige supletoriamente lo dispuesto en el Capítulo Tercero del Título Segundo de la Ley General de la Administración Pública y sus respectivas concordancias.
+Cada miembro de la Junta Directiva deberá tener un suplente que lo representará en sus ausencias, nombrado de la misma forma en que se designó al propietario.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 45986 del 28 de octubre de 2026)
