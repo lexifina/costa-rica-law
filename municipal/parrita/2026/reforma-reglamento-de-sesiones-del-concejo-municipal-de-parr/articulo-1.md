@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PARRITA
+CM-056-2026, Certifico, Acuerdo N°08, Punto N°01, Asunto N°01, Artículo Quinto, Informes, ordinaria N°048- 2026, celebrada en el salón de sesiones de la Municipalidad de Parrita, el doce de octubre del dos mil veintiséis, se procedió Aprobar, por razones de armonización normativa, mejora regulatoria y seguridad jurídica, la derogatoria del capítulo VIII que contiene los artículos 62, 63, 64 y 65 del Reglamento de Sesiones del Concejo Municipal de Parrita y sus Comisiones, se proceda a publicar la derogatoria del capítulo VIII en el Diario Oficial La Gaceta.
+Es conforme: Se extiende la presente en la Ciudad de Parrita, el veinte de octubre del dos mil veintiséis.
