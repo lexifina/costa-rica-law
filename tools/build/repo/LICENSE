@@ -1,0 +1,15 @@
+The legal texts in this repository are the Constitucion Politica and the Leyes of the Republic of Costa Rica as
+published by SINALEVI (Sistema Nacional de Legislacion Vigente), Procuraduria General de la Republica,
+https://sinalevi.go.cr. The site states "(c) Procuraduria de la Republica. Todos los derechos reservados" and publishes
+no reuse terms.
+
+Ley 6683, Ley de Derechos de Autor y Derechos Conexos, articulo 75: anyone may freely reproduce the constitutions,
+laws, decrees, municipal agreements, regulations and other public acts, on condition that they follow the official
+edition strictly. The wording was not changed here; it was only split into files and lines. The official text is the
+one published in La Gaceta.
+
+This repository is private. Check the position on the compilation (SINALEVI's arrangement and notes) before making it
+public.
+
+Lexifina's own contributions (the tools, the arrangement into files, the commit messages and the data files under
+data/) are dedicated to the public domain under CC0 1.0: https://creativecommons.org/publicdomain/zero/1.0/
