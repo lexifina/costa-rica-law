@@ -1,2 +1,2 @@
-Artículo 20.-Segunda convocatoria.
-En caso de que no se presenten suficientes postulaciones por parte de las organizaciones o que el Directorio Legislativo considere que ninguna de las organizaciones postulantes es idónea para integrar la COMIPA, a partir de los objetivos institucionales trazados, se realizará una segunda convocatoria, en este caso se reducen los plazos a la mitad de los anteriores.
+Artículo 20.—Segunda convocatoria. En caso de que no se presenten suficientes postulaciones por parte de las organizaciones o que el Directorio Legislativo considere que una o varias de las organizaciones postulantes recomendadas no es idónea para integrar la COMIPA, a partir de los objetivos institucionales trazados, se realizará una segunda convocatoria, según sea el caso; en esta circunstancia se reducen los plazos a la mitad de los anteriores.
+(Así reformado en sesión N° 026 del 28 de octubre de 2026)

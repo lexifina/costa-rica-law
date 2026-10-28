@@ -14,3 +14,4 @@ Reglamento para la convocatoria, implementación y funcionamiento de la Comisió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-22 | la propia norma |
+| 2 | 2026-10-28 | Reglamento 26 (2026-10-28) |
