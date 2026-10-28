@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza. El Tribunal Estudiantil es un órgano colegiado, de carácter temporal y autónomo en el ejercicio de sus funciones, integrado por estudiantes activos del CUNLIMÓN, electos conforme a las disposiciones del presente reglamento.

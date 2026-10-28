@@ -1,0 +1,1 @@
+Artículo 22.—Naturaleza del cargo. El Representante Estudiantil es una persona estudiante electa mediante voto universal, libre, directo y secreto, encargada de representar y canalizar los intereses del estudiantado ante las instancias institucionales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 36.—Recursos contra las resoluciones y la declaratoria. Contra las resoluciones y contra la declaratoria de elección, cabrán los recursos de revocatoria con apelación en subsidio, los cuales deberán interponerse dentro de los tres (3) días hábiles siguientes a la notificación o publicación del acto.

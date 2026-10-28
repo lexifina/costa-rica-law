@@ -1,0 +1,1 @@
+Artículo 42.—Supletoriedad. En lo no previsto en este reglamento, se aplicarán de forma supletoria el Estatuto Orgánico, Reglamento de Vida Estudiantil, la Ley General de la Administración Pública y los principios generales del derecho administrativo y electoral, así como la normativa institucional vigente.

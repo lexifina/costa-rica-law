@@ -1,0 +1,2 @@
+Artículo 43.—Vigencia. El presente Reglamento entrará en vigor a partir de su publicación en el Diario Oficial La Gaceta, previa aprobación del Consejo Directivo del CUNLIMÓN, de conformidad con el artículo 21, inciso f), del Estatuto Orgánico y el artículo 10, inciso e), de la Ley Nº 7941. Asimismo, se divulgará por los medios de comunicación institucional oficiales.
+Aprobado en Sesión Ordinaria N° 13-2026 del Consejo Directivo.

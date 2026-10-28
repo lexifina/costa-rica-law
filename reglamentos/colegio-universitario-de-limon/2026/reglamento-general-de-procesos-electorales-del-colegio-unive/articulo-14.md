@@ -1,0 +1,1 @@
+Artículo 14.—Postulación. Las postulaciones podrán realizarse de forma individual o mediante listas, dentro del plazo establecido en la convocatoria, debiendo acreditarse el cumplimiento de los requisitos indicados en el artículo 7.

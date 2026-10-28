@@ -1,0 +1,2 @@
+Artículo 23.—Órgano competente para la elección. Corresponderá al Tribunal Estudiantil organizar, dirigir y fiscalizar el proceso de elección del Representante Estudiantil.
+Mientras el Tribunal Estudiantil no se encuentre integrado, la elección del Representante Estudiantil será organizada, dirigida y fiscalizada de forma transitoria por la Oficina de Bienestar Estudiantil, conforme a las etapas, garantías y recursos establecidos en este reglamento y con el acompañamiento del Observador Institucional designado por la Decanatura.

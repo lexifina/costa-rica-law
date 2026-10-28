@@ -1,0 +1,1 @@
+Artículo 35.—Impugnación de candidaturas. Publicada la lista de candidaturas admitidas, cualquier persona estudiante podrá impugnarlas por incumplimiento de los requisitos de los artículos 7 o 25, según corresponda, dentro de los tres (3) días hábiles siguientes. El Tribunal Estudiantil resolverá en igual plazo, previa audiencia a la persona candidata afectada.

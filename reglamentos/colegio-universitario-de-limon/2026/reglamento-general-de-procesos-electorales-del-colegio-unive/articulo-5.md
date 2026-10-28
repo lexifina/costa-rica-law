@@ -1,0 +1,1 @@
+Artículo 5º—Principios rectores. El proceso electoral estudiantil y la actuación del Tribunal Estudiantil se regirán por los principios de legalidad, transparencia, imparcialidad, objetividad, igualdad, participación democrática, debido proceso y buena fe.

@@ -1,0 +1,1 @@
+Artículo 29.—Escrutinio y declaratoria. Se declarará electa la persona candidata que obtenga la mayor cantidad de votos válidamente emitidos. En caso de empate se aplicará lo dispuesto en el artículo 16 de este reglamento.

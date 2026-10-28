@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Este reglamento será de acatamiento obligatorio para todas las personas estudiantes que participen directa o indirectamente en el proceso de elección del Tribunal Estudiantil.

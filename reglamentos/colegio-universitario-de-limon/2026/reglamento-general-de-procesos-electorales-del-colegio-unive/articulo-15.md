@@ -1,0 +1,1 @@
+Artículo 15.—Modalidad de votación. La elección se realizará mediante voto personal, universal, libre, directo y secreto, pudiendo utilizarse medios presenciales, electrónicos o mixtos, según lo disponga la convocatoria.
