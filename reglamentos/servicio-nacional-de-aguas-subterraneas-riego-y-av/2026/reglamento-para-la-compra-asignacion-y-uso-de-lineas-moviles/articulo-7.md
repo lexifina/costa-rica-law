@@ -1,0 +1,2 @@
+Artículo 7º—Los funcionarios deberán presentar ante la Unidad Administrativa Competente la solicitud formal para la asignación de una línea o equipo de telefonía móvil institucional, la cual deberá contar con la autorización de la jefatura inmediata que justifique la necesidad del servicio para el desempeño de las funciones del cargo.
+Se exceptúan de este requisito el Gerente General y el Subgerente, quienes podrán gestionar directamente la asignación del servicio ante la Unidad Administrativa Competente.
