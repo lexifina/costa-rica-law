@@ -1,10 +1,10 @@
-Artículo 4º—Se asignarán espacios fijos predeterminados bajo techo en el área ubicada contiguo al edificio Administrativo Central con derecho al uso permanente del estacionamiento a las siguientes unidades:
-a) Gerencia Portuaria (1 espacio)
-b) Auditoría General (2 espacios)
-Acorde a la Ley Nº 7600, deberá reservarse dos espacios para discapacitados al lado izquierdo del ingreso al parqueo en Limón, primero a la derecha en la Cruz Roja, espacio más accesible en Moín, primer espacio a la derecha en Desarrollo y primero a la derecha en el edificio Presidencia Ejecutiva.
-Así mismo se asignarán espacios fijos predeterminados en las áreas que están a ambos lados del edificio de la Presidencia ejecutiva a las siguientes unidades:
-a) Presidencia Ejecutiva (1)
-b) Gerencia General (1)
-c) Directores (6)
-Los espacios destinados a estas unidades se identificarán mediante rotulación con el nombre de los mismos. Queda prohibido el estacionamiento de otros vehículos en dichos espacios.
-Los espacios fijos predeterminados a que se refiere este artículo podrán cederse a otro trabajador en forma provisional con el visto bueno del jefe de la unidad respectiva.
+Artículo 4. Asignación de espacios exclusivos
+Se asignarán con carácter de exclusividad espacios fijos y predeterminados únicamente a las siguientes jefaturas superiores:
+a) Presidencia Ejecutiva.
+b) Gerencia General.
+c) Gerencia Portuaria.
+d) Gerencia de Desarrollo.
+La Presidencia Ejecutiva tendrá la potestad discrecional y temporal de autorizar la reserva de espacios adicionales a otras unidades o departamentos institucionales que lo requieran debidamente justificado, fijando el período de vigencia de dicha asignación según las necesidades operativas de la institución.
+Los espacios asignados se identificarán claramente mediante rotulación oficial. Queda prohibido el estacionamiento de vehículos no autorizados en dichos lugares.
+En estricto cumplimiento de la Ley Nº 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, se reservarán de forma permanente e inalterable los espacios correspondientes con accesibilidad prioritaria en cada recinto institucional.
+(Así reformado mediante sesión extraordinaria N° 058- 2026 del 29 de octubre del 2026)

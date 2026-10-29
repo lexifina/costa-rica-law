@@ -14,3 +14,4 @@ Reglamento para uso de zonas de estacionamiento de vehículos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-08 | la propia norma |
+| 2 | 2026-10-29 | Reglamento 58 (2026-10-29) |
