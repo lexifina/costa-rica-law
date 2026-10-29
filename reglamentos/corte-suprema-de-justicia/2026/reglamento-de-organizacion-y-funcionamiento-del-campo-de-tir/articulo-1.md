@@ -1,0 +1,28 @@
+CIRCULAR N° 185-2026
+Asunto: Reglamento de Organización y Funcionamiento del Campo de Tiro de Poder Judicial.
+A LAS PERSONAS SERVIDORAS JUDICIALES, DESPACHOS JUDICIALES DEL PAÍS Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 41-2026 celebrada el 21 de setiembre de 2026, artículo XXIII, aprobó el Reglamento de Organización y Funcionamiento del Campo de Tiro de Poder Judicial.
+Dicho Reglamento queda de la siguiente manera:
+“REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL CAMPO DE TIRO DEL PODER JUDICIAL
+Motivación.
+Actualmente, el Poder Judicial cuenta con un campo de tiro en buenas condiciones, que resulta idóneo para el desarrollo de actividades relacionadas con la preparación y el entrenamiento de las personas servidoras judiciales que requieren tener conocimientos en el uso y manejo de armas de fuego, en la aplicación de técnicas y tácticas operativas utilizadas para prevenir y combatir la delincuencia y en la preservación de la seguridad ciudadana y nacional.
+Además, ese campo de tiro también se encuentra debidamente acondicionado para que las personas servidoras judiciales especializadas en Ciencias Forenses realicen pruebas balísticas, peritajes y actividades similares, requeridas durante el desarrollo de investigaciones o procesos judiciales.
+Por acuerdo institucional, ese campo de tiro ha estado bajo la administración de la Secretaría General del Organismo de Investigación Judicial. Así lo dispuso la Corte Plena en el artículo XXV de la sesión N° 11-08, del 7 de abril de 2008, que originó el Reglamento de Uso y Organización del Campo de Tiro del Poder Judicial, publicado en el Boletín Judicial N° 90, del 12 de mayo de 2008.
+Sin embargo, con la entrada en vigor de la Ley N° 10445, Ley de Creación del Centro de Capacitación del Organismo de Investigación Judicial, el pasado 26 de abril de 2024, la administración del Campo de Tiro del Poder Judicial debe pasar al Centro de Capacitación del Organismo de Investigación Judicial.
+El inciso g) del artículo 2) de la Ley de Creación del Centro de Capacitación del Organismo de Investigación Judicial dispone en forma expresa que la administración de los campos de tiro del Poder Judicial le corresponde al Centro de Capacitación del Organismo de Investigación Judicial.
+En atención a lo expuesto, se requiere actualizar el Reglamento de Uso y Organización del Campo de Tiro del Poder Judicial, para que su contenido resulte coincidente con las modificaciones introducidas al ordenamiento jurídico vigente.
+La actualización propuesta busca garantizar que la administración del Campo de tiro del Poder Judicial se ajuste a los postulados de los principios de Legalidad, Eficacia y eficiencia, Igualdad y Probidad, así como a la normativa vigente, en procura de satisfacer el derecho fundamental al buen funcionamiento de los servicios públicos y el interés general, añadiendo valor agregado a las funciones desplegadas por el Poder Judicial en el cumplimiento de los fines asignados desde la Constitución Política y el ordenamiento jurídico.
+Asimismo, procura que la organización, uso y funcionamiento del Campo de Tiro del Poder Judicial se ajuste a los requerimientos legales impuestos a ese tipo de recintos, salvaguardando la integridad de las personas servidoras judiciales y usuarias en general, participantes en las actividades desarrolladas en los campos de tiro pertenecientes a la institución.
+Por tanto;
+Considerando que;
+1. Los artículos 1, 2, 4, 5, 6, 11, 17, 19, 20, 21, 22, 24, 27, 28, 32, 33, 34, 35, 36, 39, 41 y 67 de la Ley de Armas y Explosivos, N° 7530, permiten que las personas, los órganos estatales, las instituciones autónomas y semiautónomas, las empresas públicas, las municipalidades y las empresas de seguridad privada posean armas de fuego, las cuales deben registrar ante el Departamento de Control de Armas y Explosivos de la Dirección General de Armamento del Ministerio de Seguridad Pública.
+2. Los artículos 32, 33, 35, 36, 39 y 41 de la Ley de Armas y Explosivos, N° 7530 regulan la tenencia de armas por parte de las personas y establecen los requisitos para portar armas, exigiendo la demostración de conocimientos sobre las reglas de seguridad, el manejo apropiado del arma y los fundamentos de su funcionamiento.
+3. El contenido general de la Ley de Armas y Explosivos, N° 7530, justifica la emisión del Reglamento para el funcionamiento de polígonos o campos de tiro para armas de fuego permitidas, Decreto Ejecutivo N° 31782-SP.
+4. El artículo 2 del Reglamento para el funcionamiento de polígonos o campos de tiro para armas de fuego permitidas, Decreto Ejecutivo N° 31782-SP, dispone que todo espacio habilitado para la enseñanza, entrenamiento, práctica o especialización en el uso de armas de fuego deberá estar inscrito ante la Dirección General de Armamento del Ministerio de Seguridad Pública.
+5. El inciso f) del artículo 5) del Reglamento para el funcionamiento de polígonos o campos de tiro para armas de fuego permitidas, Decreto Ejecutivo N° 31782-SP, establece como requisito indispensable para la inscripción de un polígono o campo de tiro ante la Dirección General de Armamento del Ministerio de Seguridad Pública, la emisión de un reglamento interno para el uso de las instalaciones de esos recintos.
+6. El Poder Judicial cuenta con un campo de tiro ubicado en la Ciudad Judicial, en San Joaquín de Flores.
+Se emite el siguiente;
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL CAMPO DE TIRO DEL PODER JUDICIAL
+DISPOSICIONES GENERALES
+Artículo 1.- Objeto del reglamento. El objeto del presente Reglamento es regular la administración y organización del Campo de Tiro del Poder Judicial.

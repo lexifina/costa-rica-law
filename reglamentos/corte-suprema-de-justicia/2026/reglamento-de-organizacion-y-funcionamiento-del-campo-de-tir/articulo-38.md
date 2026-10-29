@@ -1,0 +1,3 @@
+Artículo 38.- Excepciones para la realización de estudios o peritajes forenses.
+Lo dispuesto en el inciso 2) del artículo 42) no rige para la realización de estudios o peritaciones forenses, pero, en todo caso, los peritos a cargo deberán informar debidamente al Centro de Capacitación del Organismo Investigación Judicial, incluso por medio de la persona Encargada del campo de tiro, sobre las circunstancias especiales de las pruebas que se requieren realizar, a fin de que se tomen las previsiones correspondientes.
+De ninguna manera se podrán realizar análisis periciales que pongan en riesgo la integridad física de las personas funcionarias de la Institución o de cualquier otra persona.

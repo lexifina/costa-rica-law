@@ -1,0 +1,3 @@
+SECCIÓN II
+DISPOSICIONES TRANSITORIAS
+Transitorio I. La certificación de las personas Instructoras del Campo de Tiro por parte del Centro de Capacitación del Organismo de Investigación Judicial, referida en el inciso 1) del artículo 9 de este Reglamento, entrará a regir una vez que haya finalizado el diseño y se cuente con un programa de formación de personas Instructoras para el Campo de Tiro. Mientras no se encuentre vigente el programa referido, seguirá rigiendo lo establecido por la anterior Unidad de Capacitación de la Escuela Judicial y autorizados por la Jefatura del Centro de Capacitación y la circular N°19-DG-2016 de la Dirección General del Organismo de Investigación Judicial, denominada Requerimientos básicos de seguridad durante las prácticas de disparo.

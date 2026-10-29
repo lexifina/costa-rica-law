@@ -1,0 +1,2 @@
+Artículo 28.- Uso del Campo de Tiro del Poder Judicial por otros cuerpos policiales. Cuando el Centro de Capacitación del Organismo de Investigación Judicial lo estime pertinente y así lo permita la agenda del campo de tiro, se podrá autorizar el uso del campo de tiro a otros cuerpos policiales o instituciones públicas.
+Para tal fin se otorgará un permiso de uso en precario al ente u órgano solicitante, conforme lo dispuesto por el ente administrador.

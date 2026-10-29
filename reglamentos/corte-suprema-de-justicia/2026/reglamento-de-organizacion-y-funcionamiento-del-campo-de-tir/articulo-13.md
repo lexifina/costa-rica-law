@@ -1,0 +1,12 @@
+Artículo 13.- Deberes de las personas usuarias del Campo de Tiro del Poder Judicial.Todas las personas usuarias del campo de tiro deberán acatar las siguientes disposiciones:
+1. Presentar documento de identificación vigente al momento de registrarse o ingresar al Campo de Tiro del Poder Judicial.
+2. Acatar estrictamente las instrucciones especificadas en el presente reglamento.
+3. Ingresar al campo de tiro con vestimenta adecuada, evitando adornos y objetos innecesarios. Puede utilizarse ropa casual o táctica.
+4. Cargar, descargar, transportar, manipular u otra actividad relacionada con armas de fuego dentro del campo de tiro, en los lugares establecidos para cada actividad.
+5. Contar con el carné de portación de arma de fuego vigente en los casos que así se requiera de acuerdo con cada actividad académica.
+6. Dejar limpio el lugar y en óptimas condiciones de uso una vez terminada la actividad. Para ello, la persona Encargada del campo de tiro proveerá los materiales necesarios para el debido cumplimiento de esta disposición.
+7. Mantener fuera del área destinada a tiro todo material, objetos que no tengan relación directa con la actividad.
+8. Tomar las precauciones necesarias para evitar accidentes en la capacitación, práctica o entrenamiento con munición letal o no letal. La información necesaria para este tipo de actividades debe ser suministrada por las personas Instructoras.
+9. Ninguna persona podrá hacer uso de las instalaciones del Campo de Tiro cuando se encuentre en una condición física o mental que pueda comprometer su seguridad, la de terceras personas o el adecuado desarrollo de la actividad.
+10. En el caso de medicamentos prescritos, tratamientos médicos o condiciones de salud que puedan afectar la conducta, el juicio, la coordinación, la capacidad de reacción o el desempeño seguro de la persona usuaria, deberá informarlo previamente a la persona instructora de tiro, quien valorará la pertinencia de su participación, con la asesoría correspondiente cuando resulte necesario. Lo anterior se entiende sin perjuicio de las prohibiciones, responsabilidades y sanciones establecidas en la normativa vigente aplicable al personal policial y demás personas funcionarias públicas.
+11. Seguir las instrucciones, manuales, protocolos y lineamientos que dispongan el Centro de Capacitación, el Consejo Académico del Centro de Capacitación y la Dirección General, todos del Organismo de Investigación Judicial, así como el Consejo Superior del Poder Judicial y la Corte Suprema de Justicia.

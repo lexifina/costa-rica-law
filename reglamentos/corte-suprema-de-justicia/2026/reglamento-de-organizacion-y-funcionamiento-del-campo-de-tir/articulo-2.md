@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las regulaciones establecidas en el presente reglamento se aplicarán a las personas servidoras y funcionarias judiciales encargadas de la administración y organización del campo de tiro, a las personas usuarias y acompañantes que participen en las actividades desarrolladas en este.

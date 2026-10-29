@@ -1,0 +1,8 @@
+Artículo 32.- Tipos de objetivos para las actividades desarrolladas en el Campo de Tiro del Poder Judicial.
+Para efectos de capacitación, prácticas de tiro, entrenamiento y pruebas con armas de fuego, se utilizará preferiblemente siluetas o blancos de tiro más comúnmente utilizados por la persona policía, siendo que su estructura esté constituida por papel, cartón, plástico o metal.
+Es permitido el uso de cualquier tipo de silueta, diana u objetivo de cualquier forma color o tamaño y logo que pueda servir para entrenamiento de tipo policial. En caso de duda respecto de ello, se deberá consultar a la persona Instructora quien será la encargada de autorizar o denegar el permiso de uso.
+Todos los blancos, (dianas, siluetas u objetos de disparo) deben estar ubicados sobre el terreno, al nivel de este o apoyados en otro objeto. Sin embargo, la parte más alta del objetivo no puede exceder de 1.70 metros de altura. Es permitido la instalación de blancos tanto fijos como móviles, siempre y cuando su sistema de montaje o movilización no represente un riesgo o peligro de desvío o rebote.
+El uso de las siluetas metálicas fijas o con movimiento, quedará limitado a la condición que ofrezca la seguridad necesaria durante los ejercicios. Para ello, los objetivos deben reunir los siguientes requisitos:
+1. Estar diseñados para que no reboten los proyectiles o sean desviados en otra dirección que no sea el suelo o la ya estipulada.
+2. Estar diseñados con material resistente, de tal manera que el metal del objetivo no se desintegre a causa de los impactos.
+3. Encontrarse ubicados como mínimo a una distancia de 10 metros del tirador o cualquier persona.

@@ -1,0 +1,4 @@
+Artículo 43.- Equipo de primeros auxilios. El Campo de Tiro del Poder Judicial dispondrá en sus instalaciones de lo siguiente:
+1. Un equipo de primeros auxilios que estará bajo la custodia de la persona Encargada del campo de tiro, quién se encargará de verificar la vigencia de todos los implementos, para asegurarse que los implementos y medicamentos se encuentren en óptimas condiciones, y, de ser necesario, solicitar la colaboración de la Unidad de Salud Ocupacional.
+2. Un vehículo para el traslado de personas que resulten lesionadas, siempre y cuando estas no requieran un tratamiento inmediato y serio. Además, se utilizará para el traslado de personas lesionadas en todos aquellos casos en que no se pudiere disponer de unidad médica alguna.
+3. Extintores instalados en puntos estratégicos y de fácil acceso.

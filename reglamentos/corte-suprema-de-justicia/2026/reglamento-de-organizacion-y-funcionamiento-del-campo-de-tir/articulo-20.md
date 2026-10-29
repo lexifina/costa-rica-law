@@ -1,0 +1,2 @@
+Artículo 20.- Sistema de alarma.El Campo de Tiro del Poder Judicial tendrá un sistema de alarma consistente en señales lumínicas giratorias de color rojo y alarma sónica, con el objeto de llamar la atención inmediata de cualquier persona, indicándose una emergencia. Además, se podrá utilizar teléfono, radio u cualquier instrumento o herramienta que facilite la ejecución del plan de emergencia.
+Adicionalmente, se dispondrá de una línea telefónica con marcación directa y exclusiva para emergencias.

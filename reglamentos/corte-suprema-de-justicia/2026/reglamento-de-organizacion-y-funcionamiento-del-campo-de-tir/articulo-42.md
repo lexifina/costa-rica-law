@@ -1,0 +1,8 @@
+Artículo 42.- Activación del plan de emergencias médicas. Una vez activado el plan de emergencias, se procederá a aplicar el siguiente procedimiento:
+1. Cualquier actividad que se realice dentro del campo de tiro, deberá ser suspendida de inmediato con el fin de permitir, sin riesgo alguno, que sea atendida la situación de emergencia.
+2. En el momento que se presente una emergencia, la persona Encargada del campo de tiro y las personas Instructoras de tiro procederán a suspender cualquier acción que se estuviere realizando e intervenir con los primeros auxilios para contener al paciente.
+3. El personal activo en el lugar debe descargar y guardar las armas que se estén utilizando. Esto según proceda y acatando las órdenes respectivas, con base en el presente reglamento.
+4. A efecto de garantizar la mejor atención hacia una persona afectada en caso de emergencia, la persona Encargada del campo de tiro deberá solicitar de inmediato la presencia de personal médico en las instalaciones.
+5. El personal médico indicará si es necesario o no la colaboración de otro personal para la atención primaria de la persona paciente.
+6. Si se tratare únicamente de lesiones leves, el personal de instrucción, paramédico o en su defecto la Unidad de Salud Ocupacional del Complejo de Ciencias Forenses de San Joaquín de Flores, previo diagnóstico, coordinarán con los encargados del Centro de Capacitación o en su defecto a quien asignen, el traslado de la persona paciente a un centro médico, en caso de ser necesario.
+7. Tratándose de una lesión o enfermedad que requiera un tratamiento médico inmediato, se coordinará con el personal médico a través del 911, para su atención inmediata y posterior traslado a un centro médico.

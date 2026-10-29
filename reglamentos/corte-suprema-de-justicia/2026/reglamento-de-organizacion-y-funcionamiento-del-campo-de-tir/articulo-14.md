@@ -1,0 +1,2 @@
+Artículo 14.- Equipo de protección personal. Toda persona que ingrese al campo de tiro, tirador o no, debe portar los lentes, chaleco balístico y protectores de oídos respectivos. El Centro de Capacitación del Organismo de Investigación Judicial, a través de la persona Instructora, velará por el uso correcto de estos implementos.
+Una vez ubicado en la línea de tiro, cualquier persona que se encuentre en el campo de tiro debe asegurarse de utilizar protectores visual y auditivo. En caso del uso de armas cortas, debe utilizarse aditamentos como fundas y porta cargadores.
