@@ -1,0 +1,1 @@
+Artículo 18.—Celebración de sesiones extraordinarias fuera del distrito. Las sesiones extraordinarias podrán realizarse en otros distritos del mismo cantón si los asuntos por tratar así lo requieren por razones justificadas.

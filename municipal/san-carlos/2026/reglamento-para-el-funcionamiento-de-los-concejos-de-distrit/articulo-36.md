@@ -1,0 +1,8 @@
+Artículo 36.—Cese y cancelación de credenciales. La condición de persona integrante propietaria o suplente del Concejo de Distrito cesará, o podrá dar lugar a la cancelación de su credencial, en los siguientes supuestos:
+a. Por renuncia voluntaria presentada por escrito, la cual deberá ser conocida por el Concejo Municipal y remitida al Tribunal Supremo de Elecciones para que resuelva la cancelación de la credencial y efectúe la reposición correspondiente.
+b. Por fallecimiento de la persona integrante, lo cual deberá comunicarse al Concejo Municipal y al Tribunal Supremo de Elecciones para los efectos correspondientes.
+c. Por la pérdida sobrevenida de alguno de los requisitos establecidos en el Código Municipal, incluida la pérdida comprobada de la vecindad o residencia habitual y efectiva en el distrito representado.
+d. Tratándose de las personas síndicas propietarias o suplentes, por la configuración sobrevenida de algún impedimento o prohibición legalmente aplicable a las regidurías, de conformidad con lo establecido en el Código Municipal.
+e. Por la imposición firme de la sanción de cancelación de credencial prevista expresamente en una ley especial aplicable a la respectiva autoridad municipal de elección popular.
+f. Por cualquier otra causal de cancelación expresamente establecida en una norma de rango legal.
+g. La inasistencia reiterada o el aparente abandono definitivo del cargo será documentado y comunicado al Concejo Municipal para su traslado al Tribunal Supremo de Elecciones. Dicha situación no producirá automáticamente la cancelación de la credencial, la cual corresponderá exclusivamente al Tribunal Supremo de Elecciones determinar conforme al ordenamiento jurídico y con observancia del debido proceso.

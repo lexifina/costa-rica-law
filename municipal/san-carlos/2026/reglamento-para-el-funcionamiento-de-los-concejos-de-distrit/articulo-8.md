@@ -1,0 +1,1 @@
+Artículo 8º—Promoción de la participación ciudadana. Los Concejos de Distrito impulsarán la mayor participación de los ciudadanos y las organizaciones sociales del distrito, en los temas que les afecten o interesen, y colaborarán en la vigilancia del buen desempeño de la gestión municipal.

@@ -1,0 +1,1 @@
+Artículo 33.—Sustitución de integrantes propietarios por suplentes. Los suplentes sustituirán a los propietarios de su mismo partido político en los casos de ausencia temporal u ocasional, y serán llamados para el efecto por el presidente del Concejo de Distrito entre los presentes, y según el orden de elección.

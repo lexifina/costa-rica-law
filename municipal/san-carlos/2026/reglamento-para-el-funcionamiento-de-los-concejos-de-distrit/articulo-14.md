@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Organización interna
+Artículo 14.—Sesión inicial e instalación. Los Concejos de Distrito se reunirán por primera vez, a más tardar, dentro de los cinco días hábiles posteriores a la sesión de toma de posesión del Concejo Municipal, celebrada el 1º de mayo del año de su elección.
+Dicha sesión será convocada por el síndico propietario del distrito, con al menos veinticuatro horas de anticipación, mediante correo electrónico o cualquier otro medio idóneo que permita dejar constancia de la comunicación. La convocatoria deberá indicar la fecha, hora y lugar de celebración dentro del respectivo distrito, y dirigirse tanto a las personas integrantes propietarias como suplentes, con base en la información suministrada por el Tribunal Supremo de Elecciones. En esta sesión corresponderá al síndico propietario juramentar a los nuevos concejales, propietarios y suplentes, así como dirigir el proceso de elección de los cargos señalados en el artículo siguiente.
+Una vez electa la persona que ejercerá la Presidencia del Concejo de Distrito, le corresponderá continuar con el desarrollo de la sesión.

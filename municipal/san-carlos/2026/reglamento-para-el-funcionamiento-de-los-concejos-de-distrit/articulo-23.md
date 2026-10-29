@@ -1,0 +1,1 @@
+Artículo 23.—Adopción de acuerdos y resolución de empates. Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes; si hubiera empate se someterá de nuevo a votación en el mismo acto o la sesión ordinaria inmediata siguiente. De persistir el empate, el asunto se tendrá por desechado.

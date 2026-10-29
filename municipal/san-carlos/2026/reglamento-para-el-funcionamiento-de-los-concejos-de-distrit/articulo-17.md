@@ -1,0 +1,3 @@
+Artículo 17.—Quórum y sustituciones. El quórum para celebrar las sesiones del Concejo de Distrito se formará con tres de sus integrantes propietarios o con quienes los sustituyan válidamente.
+En ausencia de quien ejerza la presidencia, asumirá sus funciones quien ejerza la vicepresidencia. Si ambas personas se encuentran ausentes o impedidas, los miembros presentes, una vez verificado el quórum, elegirán una presidencia ad hoc, de conformidad con lo dispuesto en el artículo 30 de este reglamento.
+Las personas integrantes suplentes podrán participar en las sesiones con derecho a voz y únicamente tendrán derecho a voto cuando sustituyan válidamente a una persona propietaria.

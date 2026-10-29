@@ -1,0 +1,5 @@
+Artículo 37.—Procedimiento ante posibles causales de pérdida de la condición. En caso de presentarse alguna de las causales para la pérdida de la condición de concejal, corresponderá:
+a. El presidente del Concejo de Distrito expedirá un informe escrito mediante el cual se informe detalladamente sobre la situación presentada (faltas a sesiones, mudanza, inhabilitación), firmado por él y el Secretario, con copia del acta o documento probatorio.
+b. El Concejo de Distrito remitirá este informe al Concejo Municipal con copia de conocimiento a la Alcaldía, solicitando la declaración de pérdida de credencial y activación del reemplazo.
+c. El Concejo Municipal trasladará este informe al Tribunal Supremo de Elecciones para su conocimiento y tramitación correspondiente.
+d. Cuando la posible causal recaiga sobre quien ejerza la Presidencia, esta persona deberá abstenerse de intervenir en el conocimiento, deliberación, votación y tramitación del asunto. En tal supuesto, corresponderá a quien ejerza la Vicepresidencia dirigir el conocimiento del caso y suscribir el informe conjuntamente con la Secretaría.

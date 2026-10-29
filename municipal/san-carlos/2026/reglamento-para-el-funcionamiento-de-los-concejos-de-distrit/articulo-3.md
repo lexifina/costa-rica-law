@@ -1,0 +1,3 @@
+Artículo 3º—Naturaleza y régimen jurídico de los Concejos de Distrito. Los Concejos de Distrito constituyen un vínculo entre las comunidades distritales y la Municipalidad, y se establecen como uno de los principales medios de participación democrática de la ciudadanía.
+Su funcionamiento se rige por la Constitución Política, el Código Municipal, el presente Reglamento y demás normativa aplicable a los órganos colegiados de la administración pública.
+Dado que los Concejos de Distrito carecen de personería jurídica, los proyectos, planes y programas que propongan deberán ser canalizados y ejecutados por medio de la estructura administrativa de la Municipalidad, en coordinación con los órganos competentes.

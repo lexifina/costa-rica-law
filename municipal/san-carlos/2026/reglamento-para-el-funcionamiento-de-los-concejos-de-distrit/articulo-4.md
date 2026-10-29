@@ -1,0 +1,1 @@
+Artículo 4º—Representación distrital ante la Municipalidad. Cada distrito perteneciente al cantón de San Carlos estará representado ante la Municipalidad por un síndico propietario con voz y voto, y un síndico suplente con voz, pero sin voto.

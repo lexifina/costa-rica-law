@@ -1,0 +1,2 @@
+Artículo 32.—Sustitución de la Secretaría. En ausencia de quien ejerza la secretaría, corresponderá al vocal 1 sustituirlo, y en ausencia de éste, recaería dicha responsabilidad en el vocal 2.
+En caso de ausencia del concejal que ejerza el cargo de secretario en alguna sesión del Concejo de Distrito, firmará el vocal que lo hubiera sustituido, y a quien le correspondería elaborar el acta respectiva, así como cumplir con las demás funciones propias del cargo durante dicha sesión.
