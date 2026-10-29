@@ -1,0 +1,2 @@
+CAPÍTULO IV- INFORMES RENDIDOS POR LAS MAGISTRADAS Y MAGISTRADOS DEL TRIBUNAL SUPREMO DE ELECCIONES.
+ARTÍCULO 12.- INFORMES DEL TRIBUNAL SUPREMO DE ELECCIONES. La recepción de los informes que rindan las magistraturas del Tribunal Supremo de Elecciones, ante la Secretaría General de la Corte Suprema de Justicia, y la publicación en el sitio web oficial del Poder Judicial, se regirá en lo aplicable por las disposiciones de este reglamento.

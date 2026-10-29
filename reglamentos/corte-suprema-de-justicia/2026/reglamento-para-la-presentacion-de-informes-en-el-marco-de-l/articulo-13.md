@@ -1,0 +1,2 @@
+CAPÍTULO V.- DISPOSICIONES FINALES
+ARTÍCULO 13. VIGENCIA. Rige a partir de su publicación.

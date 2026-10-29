@@ -1,0 +1,2 @@
+CAPÍTULO III - Incumplimiento
+ARTÍCULO 11. COMUNICACIÓN DE INCUMPLIMIENTO La Secretaría General de la Corte comunicará a la Corte Plena el vencimiento del plazo sin la presentación del informe para lo que corresponda, conforme a la Ley Orgánica del Poder Judicial y la Ley Régimen sancionador de personas servidoras e integrantes de listas de suplentes, elegibles y meritorias del Poder Judicial, N° 10905 del 12 de mayo del 2026.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. RESPONSABILIDAD POR LA PRESENTACIÓN Será responsabilidad de la persona magistrada presentar el informe a la Asamblea Legislativa dentro de los plazos antes referidos, con copia a la Secretaría General de la Corte Suprema de Justicia para su debida publicación.

@@ -1,0 +1,1 @@
+ARTÍCULO 6. CONCORDANCIA DE DATOS Las estadísticas referidas a las funciones jurisdiccionales de la persona magistrada a lo interno de su respectiva Sala contenidas en el informe deberán ser validadas por la Dirección de Planificación del Poder Judicial, órgano encargado del control y seguimiento estadístico del Poder Judicial.

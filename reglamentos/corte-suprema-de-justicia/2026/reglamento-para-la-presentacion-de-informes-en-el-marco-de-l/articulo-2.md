@@ -1,0 +1,1 @@
+ARTÍCULO 2. ÁMBITO DE APLICACIÓN Este Reglamento será aplicable a las magistraturas del Poder Judicial y del Tribunal Supremo de Elecciones nombradas conforme al inciso 4) del artículo 59 de la Ley Orgánica del Poder Judicial.
