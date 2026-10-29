@@ -1,1 +1,0 @@
-Artículo 44.-Los Concejos de Distrito se regirán por todo lo previsto en el presente Reglamento, y en ausencia de norma, por los demás Reglamentos emitidos por la Municipalidad de San Carlos, el Código Municipal y leyes conexas.

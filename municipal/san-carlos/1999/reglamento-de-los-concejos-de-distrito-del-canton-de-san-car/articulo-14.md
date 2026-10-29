@@ -1,1 +1,0 @@
-Artículo 14.-La Municipalidad ejecutará las obras o servicios públicos, en cada distrito atendiendo fundamentalmente las prioridades fijadas por el Concejo de Distrito en su plan de trabajo e incluido en el plan general de la Municipalidad.

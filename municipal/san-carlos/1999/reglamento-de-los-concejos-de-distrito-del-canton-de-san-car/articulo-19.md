@@ -1,1 +1,0 @@
-Artículo 19.-La Comisión Especial Municipal de Asuntos de Concejos de Distrito, funcionará como órgano de coordinación entre éstos y el Concejo Municipal, con el fin de prestarles la asistencia que proceda en los proyectos que sean de interés para un distrito o grupo de ellos, aislada o conjuntamente.

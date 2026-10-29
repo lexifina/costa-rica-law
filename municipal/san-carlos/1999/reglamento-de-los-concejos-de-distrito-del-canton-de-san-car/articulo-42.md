@@ -1,1 +1,0 @@
-Artículo 42.-Dentro de cada comisión el Concejo de Distrito nombrará un coordinador, que será el encargado de mantener informado a éste y deberá rendir informes cada vez que así se le solicite en forma verbal o por escrito.

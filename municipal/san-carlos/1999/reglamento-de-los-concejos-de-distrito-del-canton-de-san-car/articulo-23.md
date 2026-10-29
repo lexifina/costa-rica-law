@@ -1,1 +1,0 @@
-Artículo 23.- Todas las sesiones son públicas. Se facilitará la asistencia o la información de los ciudadanos interesados en conocer el desarrollo de la sesión, mediante los medios más adecuados, que tenga a disposición el Concejo de Distrito.

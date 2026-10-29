@@ -1,1 +1,0 @@
-Artículo 11.-En cualquier momento, los miembros de los Concejos de Distrito, podrán renunciar a sus cargos, en tal caso el Tribunal Supremo de Elecciones repondrá a los propietarios cesantes en el cargo, con los suplentes del mismo partido político, siguiendo el orden de elección.

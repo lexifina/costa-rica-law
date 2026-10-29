@@ -1,1 +1,0 @@
-Artículo 22.-Las sesiones ordinarias deben efectuarse en el caserio designado como cabecera del distrito, pudiendo celebrar sesiones extraordinarias en otros caseríos o lugares del distrito para tratar asuntos de interés comunal.

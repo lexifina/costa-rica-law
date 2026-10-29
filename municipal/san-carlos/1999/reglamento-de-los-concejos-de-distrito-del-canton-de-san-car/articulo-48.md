@@ -1,1 +1,0 @@
-Artículo 48.-Este reglamento deroga el Reglamento para Nombramiento y Funcionamiento de los Concejos de Distrito en el cantón de San Carlos, publicado en "La Gaceta" número 77, del 24 de abril de 1997, excepto en lo estipulado en el artículo anterior.

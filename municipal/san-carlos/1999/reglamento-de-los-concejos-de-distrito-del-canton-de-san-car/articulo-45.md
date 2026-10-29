@@ -1,1 +1,0 @@
-Artículo 45.-AI tomar posesión el Concejo de Distrito, el Concejo Municipal llamará al Concejo de Distrito saliente para efectuar el intercambio de poder, previo a la entrega de informes del Concejo saliente y juramentación del entrante.
