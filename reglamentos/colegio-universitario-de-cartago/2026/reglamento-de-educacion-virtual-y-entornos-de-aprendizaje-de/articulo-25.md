@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia. Este reglamento será de acatamiento obligatorio y entrará en vigor a partir de la aprobación correspondiente del Consejo Directivo y su publicación en el Diario Oficial La Gaceta.

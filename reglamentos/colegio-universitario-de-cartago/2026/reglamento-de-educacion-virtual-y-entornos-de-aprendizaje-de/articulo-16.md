@@ -1,0 +1,1 @@
+Artículo 16.—Identidad y perfil. El estudiante está obligado a mantener su perfil actualizado en el aula virtual con una fotografía formal y sus datos personales correctos. El uso de la cuenta es personal e intransferible y el uso de la activación de la cámara será establecido a criterio del docente.

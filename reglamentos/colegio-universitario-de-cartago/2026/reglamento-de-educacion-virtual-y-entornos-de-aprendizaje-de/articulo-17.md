@@ -1,0 +1,4 @@
+Artículo 17.—Honestidad académica y plagio. De conformidad con lo establecido en el Reglamento Disciplinario Estudiantil, se considerarán y sancionarán como falta muy grave, según corresponda, las siguientes conductas:
+a) El plagio
+b) La suplantación de identidad en evaluaciones, tareas, proyectos u otras actividades académicas
+En relación con el uso de herramientas de inteligencia artificial en las actividades académicas: El estudiante deberá respetar las condiciones establecidas por el docente para el uso de herramientas de inteligencia artificial en cada actividad académica. El uso de estas herramientas cuando haya sido expresamente restringido por el docente podrá ser calificado como plagio en la actividad académica anulándose la misma y podrá ser sancionado el estudiante conforme a la normativa institucional aplicable.

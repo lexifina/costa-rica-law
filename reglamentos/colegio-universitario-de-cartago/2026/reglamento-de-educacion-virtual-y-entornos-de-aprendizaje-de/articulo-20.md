@@ -1,0 +1,1 @@
+Artículo 20.—Prohibición de reproducción. Queda terminantemente prohibida la reproducción total o parcial, venta, distribución o comunicación pública de los materiales del curso virtual sin la autorización expresa y por escrito de las autoridades administrativas y académicas del CUC.

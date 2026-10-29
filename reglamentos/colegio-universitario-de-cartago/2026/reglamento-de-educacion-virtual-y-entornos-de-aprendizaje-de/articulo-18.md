@@ -1,0 +1,1 @@
+Artículo 18.—Idoneidad y capacitación docente. El CUC ofrecerá la capacitación continua del profesorado en entornos virtuales de aprendizaje. Asimismo, establecerá los criterios de clasificación, selección y contratación necesarios para asegurar que el personal posea la idoneidad técnica y las competencias pedagógicas y tecnológicas requeridas para la mediación virtual.

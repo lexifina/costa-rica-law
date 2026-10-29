@@ -1,0 +1,13 @@
+Artículo 10.—Funciones del docente que imparte cursos virtuales. El docente que imparte cursos en el campus virtual deberá:
+a) Disponer del equipo de cómputo, el software y demás recursos tecnológicos necesarios, así como el ancho de banda estable con capacidad suficiente para desarrollar, de manera continua y adecuada, las actividades académicas previstas en el curso, incluyendo el acceso y uso de la plataforma institucional, la participación en videoconferencias y la utilización de los recursos digitales requeridos, de manera que las actividades académicas no se vean interrumpidas o afectadas de forma recurrente por deficiencias en la conexión a internet.
+b) Mantener el aula virtual organizada y actualizada, garantizando el acceso oportuno al programa de estudio, cronograma, orientaciones, guías didácticas, materiales, actividades, rúbricas, calificaciones y demás recursos necesarios para el desarrollo del curso. El aula virtual podrá ser revisada o monitoreada por el superior jerárquico del docente.
+c) Promover ambientes inclusivos para el aprendizaje, mediante el uso de estrategias de mediación pedagógica basadas en el trabajo colaborativo, aprendizaje basado en proyectos y cooperativo.
+d) Dar seguimiento sistemático al aula virtual durante el desarrollo del curso, atendiendo las actividades, comunicaciones y consultas académicas del estudiantado y dando respuesta a estas últimas en un plazo máximo de dos días hábiles a partir de su recepción.
+e) Atender las consultas al estudiante dentro del horario establecido en el programa de estudio.
+f) Mantener una comunicación constante con los estudiantes a través de medios asincrónicos y sincrónicos.
+g) El docente deberá grabar las lecciones que imparta y publicar en el aula virtual el enlace de acceso a cada grabación, como respaldo de la actividad académica desarrollada y para su posterior consulta.
+h) Mantener la cámara encendida durante el desarrollo de las lecciones de manera que su imagen permanezca visible durante la sesión.
+i) Brindar, por medio del aula virtual, realimentación oportuna y pertinente sobre los avances, actividades y productos generados por los estudiantes.
+j) Reportar a la dirección de carrera aquellos casos de estudiantes que muestren inactividad en la plataforma por más de una semana consecutiva.
+k) Atender las indicaciones emitidas por el CETE cuando estén dirigidas a garantizar el funcionamiento adecuado y seguridad del aula virtual.
+l) Realizar el respaldo de los cursos impartidos en el aula virtual al finalizar cada período lectivo, de conformidad con las disposiciones institucionales aplicables.

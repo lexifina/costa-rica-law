@@ -1,0 +1,1 @@
+Artículo 9º—Funciones del Departamento de Biblioteca y Documentación. Brindar acceso a fuentes confiables de información, mediante plataformas de recursos digitales utilizados para la formación académica virtual, acorde con los planes de estudio de las carreras, programas técnicos y cursos libres que se imparten en la institución.

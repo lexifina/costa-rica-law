@@ -1,0 +1,10 @@
+Artículo 6º—Funciones de la Dirección Académica. Son funciones de la Dirección Académica en materia de educación virtual las siguientes:
+a) Orientar y dar seguimiento a la implementación académica de las modalidades virtuales autorizadas por la institución, de conformidad con la normativa institucional y nacional aplicable.
+b) Coordinar con las direcciones de carrera, el Centro de Tecnología Educativa (CETE) y las demás dependencias involucradas las acciones necesarias para el adecuado desarrollo de los procesos académicos en entornos virtuales de aprendizaje.
+c) Velar por que la implementación de la educación virtual responda a los planes de estudio, programas de curso, modelo pedagógico institucional y demás disposiciones académicas vigentes.
+d) Coordinar con las direcciones de carrera y el personal docente correspondiente, la revisión de materiales didácticos oficiales que deberán utilizarse para impartir el curso, en concordancia con los requerimientos exigidos para la acreditación.
+e) Dar seguimiento, en coordinación con las direcciones de carrera, al cumplimiento de las responsabilidades académicas del personal docente que desarrolla procesos de enseñanza y aprendizaje mediante entornos virtuales.
+f) Promover, en coordinación con el CETE y otras dependencias institucionales, procesos de capacitación y actualización docente relacionados con la mediación pedagógica, evaluación de los aprendizajes y uso de tecnologías aplicadas a la educación virtual.
+g) Coordinar las acciones académicas necesarias para la atención de situaciones que puedan afectar el desarrollo regular de los cursos impartidos mediante entornos virtuales, de acuerdo con las competencias de las dependencias involucradas.
+h) Solicitar, cuando corresponda, la información y evidencias necesarias para el seguimiento de los procesos académicos desarrollados en los entornos virtuales institucionales.
+i) Coordinar con las instancias correspondientes el seguimiento y mejora continua de los procesos de educación virtual, a partir de las necesidades identificadas en la gestión académica.

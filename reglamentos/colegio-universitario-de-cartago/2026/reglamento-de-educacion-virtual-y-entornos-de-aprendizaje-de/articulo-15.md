@@ -1,0 +1,1 @@
+Artículo 15.—Normas de etiqueta. Los usuarios deben mantener un trato respetuoso y profesional. Se prohíbe el uso de lenguaje ofensivo, discriminatorio o agresivo en foros, chats y correos institucionales. El docente establecerá en el programa de estudio, las normas de netiqueta que regirán en el curso que tiene a su cargo.
