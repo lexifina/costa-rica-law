@@ -1,0 +1,2 @@
+Artículo 3º—Modalidad de las sesiones. Los cuerpos colegiados de la CPCA podrán celebrar sus sesiones de manera virtual o mediante modalidad mixta, siempre que el medio tecnológico utilizado permita la interacción integral, simultánea y en tiempo real entre las personas participantes y garantice la adecuada formación de la voluntad del órgano colegiado.
+La utilización de la modalidad virtual no modificará las competencias, obligaciones, derechos, deberes ni reglas de funcionamiento aplicables al órgano correspondiente.

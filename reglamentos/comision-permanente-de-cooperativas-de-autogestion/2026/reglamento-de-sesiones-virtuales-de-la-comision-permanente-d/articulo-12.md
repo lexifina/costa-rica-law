@@ -1,0 +1,2 @@
+Artículo 12.—Participación de personas suplentes. La participación de las personas suplentes en las sesiones virtuales se regirá por las disposiciones sobre suplencias establecidas en el Reglamento para el funcionamiento de la Comisión Permanente de Cooperativas de Autogestión.
+Cuando una persona suplente participe en sustitución de una persona propietaria, la Secretaría deberá dejar constancia de dicha circunstancia en el acta.

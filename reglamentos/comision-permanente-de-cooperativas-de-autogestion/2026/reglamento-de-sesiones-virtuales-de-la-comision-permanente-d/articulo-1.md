@@ -1,0 +1,14 @@
+COMISIÓN PERMANENTE DE COOPERATIVAS
+DE AUTOGESTIÓN
+REGLAMENTO DE SESIONES VIRTUALES DE
+LA COMISIÓN PERMANENTE DE COOPERATIVAS
+DE AUTOGESTIÓN (CPCA)
+Justificación
+La Comisión Permanente de Cooperativas de Autogestión (CPCA), en ejercicio de las competencias que le confiere el artículo 140 de la Ley N° 4179, Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, y de conformidad con las disposiciones aplicables al funcionamiento de los órganos colegiados, establece el presente Reglamento para regular la celebración de sus sesiones mediante medios tecnológicos.
+El artículo 140 de la Ley N° 4179 establece que las diez personas representantes de las cooperativas de autogestión ante el Consejo Nacional de Cooperativas constituyen la Comisión Permanente de Cooperativas de Autogestión y dispone que la Comisión podrá sesionar con la mitad más uno de sus miembros.
+La Ley N° 10.379, denominada “Autoriza la celebración de sesiones virtuales a los Órganos Colegiados de la Administración Pública”, vigente desde el 31 de octubre de 2023, reformó los artículos 50, 52, 53 y 56 de la Ley General de la Administración Pública, incorporando expresamente la posibilidad de que las sesiones ordinarias y extraordinarias de los órganos colegiados se celebren de manera virtual.
+De acuerdo con la normativa vigente, las sesiones virtuales deben desarrollarse mediante sistemas que permitan la comunicación integral, simultánea e ininterrumpida entre las personas participantes, garantizando la interacción necesaria para la deliberación y formación de la voluntad del órgano colegiado. La Procuraduría General de la República ha señalado que estos principios comprenden la colegialidad, simultaneidad, participación y pluralismo.
+Asimismo, los artículos 50 y 56 de la Ley General de la Administración Pública establecen obligaciones relacionadas con la grabación en audio y video, el respaldo digital de las sesiones y el levantamiento de las actas correspondientes.
+Ante esto, resulta necesario contar con una regulación interna que establezca las condiciones operativas para la convocatoria, celebración, participación, votación, documentación, grabación y respaldo de las sesiones virtuales de la CPCA, sin reproducir las disposiciones relativas a la organización, competencias, suplencias, dietas y funcionamiento general de sus órganos, materias que se encuentran reguladas en el Reglamento para el funcionamiento de la Comisión Permanente de Cooperativas de Autogestión.
+DISPOSICIONES GENERALES
+Artículo 1º—Objeto. El presente Reglamento tiene por objeto regular las condiciones y procedimientos para la celebración de sesiones virtuales del Plenario y del Directorio de la Comisión Permanente de Cooperativas de Autogestión (CPCA), mediante el uso de tecnologías que permitan la comunicación y participación efectiva de sus integrantes.
