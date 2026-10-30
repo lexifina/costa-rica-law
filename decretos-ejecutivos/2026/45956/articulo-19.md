@@ -1,0 +1,1 @@
+Artículo 19.- Tiempos de Respuesta para la Aceptación del Injerto Pulmonar. Una vez que la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos (SETDT) alerte sobre la existencia de un posible donante, el establecimiento de salud donde se encuentra el receptor designado tendrá un máximo de dos (2) horas para aceptar o rechazar el órgano.

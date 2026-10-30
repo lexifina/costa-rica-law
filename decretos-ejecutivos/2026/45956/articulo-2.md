@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente decreto se aplicará a nivel nacional, a todos los establecimientos de salud públicos y privados, autorizados por la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos del Ministerio de Salud, para realizar procesos de donación y trasplante pulmonar.

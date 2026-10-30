@@ -1,0 +1,1 @@
+Artículo 4.- Actualización. La presente normativa se deberá actualizar al menos cada 5 años o bien cuando los expertos así lo soliciten. Dicha actualización estará a cargo de la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos.

@@ -1,0 +1,2 @@
+Artículo 22.- Registro y Seguimiento de la Distribución Pulmonar. La Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos (SETDT) será responsable de supervisar y auditar los procesos de distribución y asignación del injerto pulmonar, garantizando que se realicen conforme a la presente normativa.
+Todos los procesos de distribución y asignación deberán quedar registrados en el SINADOC y estarán sujetos a auditoría y control de trazabilidad.

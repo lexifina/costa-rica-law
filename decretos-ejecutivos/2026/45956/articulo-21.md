@@ -1,0 +1,3 @@
+Artículo 21.- Consideraciones Especiales para Pacientes con Necesidad de Trasplante Múltiple. Los pacientes que se encuentren en lista de espera para trasplante pulmonar y que requieran simultáneamente trasplante de hígado, corazón o riñón, tendrán prioridad en la Lista Nacional de Receptores de estos órganos, siempre que las pruebas de compatibilidad lo permitan.
+En caso de que un paciente trasplantado requiera un re-trasplante pulmonar en un período menor o igual a doce (12) meses desde la fecha del trasplante, se tomará como fecha de ingreso a la lista nacional de receptores la establecida originalmente antes del primer trasplante.
+Si el re-trasplante es requerido después de doce (12) meses, el paciente será considerado como un nuevo ingreso en la lista de espera.

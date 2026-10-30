@@ -1,0 +1,3 @@
+Artículo 25.- Documentación y Registro de las Sesiones del Comité. Para cada sesión del Comité Técnico Asesor se levantará un acta en la que se consignarán los asistentes, los casos analizados, los acuerdos adoptados y su respectiva fundamentación técnica.
+Las actas digitales serán custodiadas por la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos (SETDT), la cual será responsable de su archivo, conservación, integridad, trazabilidad y disponibilidad para efectos de auditoría, fiscalización y revisión, garantizando en todo momento su confidencialidad y resguardo.
+Estas sesiones podrán realizarse de forma presencial o virtual, según la disposición de los equipos.

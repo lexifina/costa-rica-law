@@ -1,0 +1,1 @@
+Artículo 3.- Supervisión. La verificación del cumplimiento de la presente normativa será realizada por parte de la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos del Ministerio de Salud.
