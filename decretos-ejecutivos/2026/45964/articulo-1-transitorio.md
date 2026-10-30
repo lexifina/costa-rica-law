@@ -1,0 +1,2 @@
+Transitorio I. La Secretaría Técnica de la REDCUDI dispondrá de un plazo máximo de doce meses contado a partir de la entrada en vigencia del presente decreto para aprobar las políticas, protocolos manuales y procedimientos de seguridad requeridos para la operación del SIS-REDCUDI.
+Dichos instrumentos deberán publicarse para consulta en el sitio web oficial de la Secretaría Técnica de la REDCUDI y mantenerse disponible de forma permanente para las personas usuarias, instituciones participantes y demás personas interesadas.

@@ -1,0 +1,1 @@
+Artículo 16. Aplicación de este Reglamento. Este reglamento será de acatamiento obligatorio para todas las personas interesadas, usuarias, instituciones y Centros de Cuidado y Desarrollo Infantil que tienen acceso al SIS-REDCUDI.

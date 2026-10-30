@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación: El SIS-REDCUDI tiene alcance y aplicación interinstitucional, intersectorial y nacional; abarca la información de la población que recibe servicios de la Red Nacional de Cuido y Desarrollo Infantil, de las personas colaboradoras y de los centros de cuidado y desarrollo infantil.
