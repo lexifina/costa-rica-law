@@ -1,0 +1,5 @@
+CAPÍTULO X
+De la atención de denuncias
+Artículo 42.-Atención de denuncias. El Área de Asesoría Jurídica será la instancia responsable de recibir, analizar y dar trámite a las denuncias que se presenten en contra de funcionarios de la institución. Asimismo, le corresponde valorar la admisibilidad de dichas denuncias, conforme a los requisitos establecidos en la Resolución DG-RES-247- 2025 del 30 de julio de 2025 denominada Protocolo para la atención de denuncias interpuestas por presuntos actos de corrupción y/o supuestos actos irregulares cometidos por personas funcionarias de la Dirección General de Servicio Civil.
+Esta unidad deberá garantizar la confidencialidad, imparcialidad y el respeto al debido proceso en la atención de cada caso, velando por el cumplimiento de las normas institucionales y el ordenamiento jurídico aplicable.
+En caso de que la denuncia sea en contra de un servidor de la Asesoría Jurídica, el Director General ordenará la integración de un órgano director con servidores de otras instancias de la Dirección General o del Ministerio de Planificación y Política Económica con previa autorización del Jerarca Ministerial.

@@ -1,0 +1,1 @@
+Artículo 37.-De la licencia de medio día libre por fecha de cumpleaños. Los servidores tendrán derecho a medio día libre cuando ocurra la fecha de celebración de su cumpleaños, mismo que tomará en la misma semana en que ocurra dicha celebración.

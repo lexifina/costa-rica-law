@@ -1,0 +1,1 @@
+Artículo 47.-De las advertencias o amonestaciones escritas: Corresponde a los jefes inmediatos sancionar a sus empleados cuando se hagan acreedores de una amonestación verbal o escrita y enviar una copia a la Unidad de Gestión Institucional de Recursos Humanos, cuando aquella fuere escrita, o informar a ese Unidad cuando fuere verbal.

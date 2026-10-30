@@ -1,0 +1,1 @@
+Artículo 58.-Del establecimiento de comisión Institucional de Salud Ocupacional. De conformidad con el artículo 288 del Código de Trabajo, se establecerá una Comisión Institucional de Salud Ocupacional, la cual formulará y recomendará todas las directrices en materia de salud ocupacional.

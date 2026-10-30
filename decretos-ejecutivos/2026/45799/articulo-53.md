@@ -1,0 +1,1 @@
+Artículo 53.-Para todos los efectos disciplinarios, la reincidencia de las faltas previstas en los tres artículos anteriores, se computarán trimestralmente, a partir de la fecha en que se sancionaron.

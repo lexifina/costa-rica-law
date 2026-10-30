@@ -1,0 +1,2 @@
+Artículo 33.-Del impedimento de acumular vacaciones. En ningún caso se podrá acumular más de dos períodos anuales de vacaciones. Al efecto, los jefes podrán acordar, con sus subalternos, un programa anual de vacaciones, en garantía de un sistema de control interno.
+El jefe inmediato está en la obligación de enviar a los funcionarios al disfrute de sus vacaciones, las cuales deberán encontrarse canceladas antes de que se cumpla el nuevo período. En caso de no observar esta obligación, el jefe podrá ser responsable y sancionado según corresponda.

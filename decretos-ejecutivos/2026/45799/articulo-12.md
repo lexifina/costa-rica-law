@@ -1,0 +1,1 @@
+Artículo 12.-De la Potestad de modificación de horarios. El Jerarca Superior podrá modificar los horarios y modalidades de trabajo establecidas en este Reglamento, siempre que existan circunstancias especiales y objetivas que así lo exijan, que el servicio público así lo requiera y se reforme este Reglamento.

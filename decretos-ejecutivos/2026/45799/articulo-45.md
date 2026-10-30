@@ -1,0 +1,1 @@
+Artículo 45.- La amonestación verbal se aplicará cuando el servidor, en forma expresa o tácita, cometa alguna falta leve a las obligaciones o prohibiciones que le impone el contrato, la relación de trabajo o este Reglamento.

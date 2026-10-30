@@ -1,0 +1,1 @@
+Artículo 61.-De la autorización para la realización de actividades de formación humanística. Los servidores, previa autorización de la Dirección General, podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa, en y fuera de la jornada de trabajo, que les permita el desarrollo de sus aptitudes y actitudes.

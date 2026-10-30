@@ -1,0 +1,1 @@
+Artículo 73.-De las posibles acciones inmediatas: La Asesoría Jurídica, dentro de las acciones inmediatas, podrá recomendar al Director General, ya sea de oficio o a solicitud del interesado, la reubicación temporal del servidor denunciante o denunciado, dicha medida podrá acordarse en cualquier momento del proceso, bajo el criterio de la necesidad y razonabilidad.

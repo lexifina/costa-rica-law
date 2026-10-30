@@ -1,0 +1,3 @@
+Sección III
+De las ausencias
+Artículo 24.-De las ausencias. Se considerará ausencia la falta de un día completo de trabajo. La falta de una fracción de la jornada que, por su extensión, no pueda calificarse como llegada tardía, se computará como la mitad de una ausencia. En particular, cuando la llegada tardía exceda de quince minutos contados a partir de la hora oficial de ingreso, se registrará como media ausencia. Dos medias ausencias, para efectos de este Reglamento, se computarán como una ausencia completa. No se reconocerá el salario correspondiente a las ausencias, salvo en los casos previstos por la ley o cuando exista justificación válida conforme a la normativa laboral y administrativa vigente.

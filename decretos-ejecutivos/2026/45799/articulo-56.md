@@ -1,0 +1,1 @@
+Artículo 56.-Del plazo para imposición de amonestaciones: Las amonestaciones verbales o escritas por faltas al régimen disciplinario o de asistencia, deberán imponerse dentro del mes siguiente al que el órgano competente tuvo conocimiento de la falta. De igual forma se hará ante las suspensiones y despidos.

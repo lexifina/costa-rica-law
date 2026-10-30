@@ -1,0 +1,3 @@
+Artículo 70.-Presentación de la denuncia. El servidor que se considere afectado por acoso laboral y/o sexual podrá plantear la denuncia de forma verbal y/o escrita ante el Área de Asesoría Jurídica.
+Si la denuncia se interpone de forma verbal será atendida por una comisión interdisciplinaria integrada por la Unidad de Gestión Institucional de Recursos Humanos y el Área de la Asesoría Jurídica.
+Quienes están en la obligación de informar a la Defensoría de los Habitantes y al Ministerio de Trabajo y Seguridad Social de conformidad con el artículo 8 de la Ley Contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia Nº 7476 del 3 de febrero de 1995, sobre la denuncia por hostigamiento sexual que se reciba, así como el resultado del procedimiento que se realice.
