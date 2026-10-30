@@ -1,0 +1,1 @@
+Artículo 4.- Incumplimiento y responsables. Las instancias comprendidas en el artículo primero de esta Direct riz son las responsables y obligadas de aplicar l as siguientes disposiciones. El incumplimiento de la presente Directriz será causal de eventuales responsabilidades administrativas, de conformidad con el ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. Brindar los lineamientos respectivos para el adecuado registro de los bienes de la Administración Central, en concordancia con lo dispuesto en el Reglamento para el Registro y Control de Bienes de la Administración Central citado , con el fin de fortalecer y mejorar los procesos de registro y control de dichos bienes.

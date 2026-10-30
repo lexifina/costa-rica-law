@@ -1,0 +1,1 @@
+Artículo 19.- Derogatoria. Se deja sin efecto la Directriz DGABCA - 0014 - 2019 del 28 de agosto de 2019, Registro en el sistema SIBINET del alta de bienes por sustitución, por la aplicación de garantía.

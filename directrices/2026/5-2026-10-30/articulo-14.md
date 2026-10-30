@@ -1,0 +1,1 @@
+Artículo 14.- Emisión del reporte de estado. Para efectuar revisiones sobre la condición de uso o desuso de los bienes , se debe acceder la información del Sistema de administración de bienes en el menú Reportes, submenú Reportes de Bienes, opciones: Bienes por estado de utilización y Bienes por estado físico .

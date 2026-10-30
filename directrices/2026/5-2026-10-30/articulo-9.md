@@ -1,0 +1,2 @@
+Artículo 9. - Tipo de baja a seleccionar en el Sistema de administración de bienes . El Sistema de administración de bienes no brinda una opción que se ajuste a esta situación particular , por lo que el tipo de movimiento que debe aplicarse para dar de baja esta clase de bienes deberá ser por “Placa duplicada” .
+Los bienes no patrimoniales o duraderos dados de baja, deben administrarse bajo los controles internos dispuestos en cada institución .

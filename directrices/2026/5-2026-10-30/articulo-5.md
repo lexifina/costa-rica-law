@@ -1,0 +1,1 @@
+Artículo 5. - Documentación de las gestiones. Los movimientos que se realicen a través del Sistema de administración de bienes deberán quedar debidamente documentados. Para tal efecto, la Administración Activa será responsable de velar por la conservación y disponibilidad del respaldo documental correspondiente.

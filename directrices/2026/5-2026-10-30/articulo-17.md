@@ -1,0 +1,1 @@
+Artículo 17.- Baja de bien es del Sistema de administración de bienes . El proceso de baja que sea ejecutado debe realizarse conforme lo establecido en el Reglamento para el Registro y Control de Bienes citado.
