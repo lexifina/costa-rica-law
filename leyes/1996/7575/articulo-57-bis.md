@@ -1,0 +1,2 @@
+Artículo 57 bis- Agravante. Las penas privativas de libertad por los delitos tipificados en este capítulo se incrementarán de uno a seis años de prisión, cuando las conductas ilícitas se hayan cometido por dos o más personas en las condiciones establecidas en la Ley 8754, Ley contra la Delincuencia Organizada, cuyas disposiciones serán aplicables en estos casos.
+(Así adicionado por el artículo 2° de la ley N° 10979 del 21 de octubre de 2026, “Reforma de varias leyes para fortalecer la lucha contra el crimen organizado en materia de delitos ambientales”)

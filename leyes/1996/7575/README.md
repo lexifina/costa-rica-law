@@ -1,6 +1,6 @@
 # Ley Forestal
 
-Ley N° 7575 del 1996-02-13. SINALEVI, ficha 41661: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41661&param2=150775&param3=1>.
+Ley N° 7575 del 1996-02-13. SINALEVI, ficha 41661: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41661&param2=152889&param3=1>.
 
 Publicada en La Gaceta N° 72 del 1996-04-16.
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 12 de 15 | 2022-08-19 | Ley 10274 | 2022-07-11 |
 | 13 de 15 | 2025-12-17 | Sala Constitucional, resolución 041905 (2025-12-17) | 2025-12-17 |
 | 14 de 15 | 2026-04-23 | Ley 10891 | 2026-03-25 |
+| 15 de 15 | 2026-10-30 | Ley 10979 | 2026-10-21 |

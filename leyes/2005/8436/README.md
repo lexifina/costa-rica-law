@@ -1,6 +1,6 @@
 # Ley de Pesca y Acuicultura
 
-Ley N° 8436 del 2005-03-01. SINALEVI, ficha 54688: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54688&param2=150615&param3=1>.
+Ley N° 8436 del 2005-03-01. SINALEVI, ficha 54688: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54688&param2=152890&param3=1>.
 
 Publicada en La Gaceta N° 78 del 2005-04-25.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 11 | 2024-08-28 | Ley 10507 | 2024-08-26 |
 | 9 de 11 | 2024-10-09 | Ley 10533 | 2024-10-02 |
 | 10 de 11 | 2025-11-05 | Sala Constitucional, resolución 036563 (2025-11-05) | 2025-11-05 |
+| 11 de 11 | 2026-10-30 | Ley 10979 | 2026-10-21 |
