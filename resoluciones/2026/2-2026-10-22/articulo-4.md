@@ -1,0 +1,1 @@
+Artículo 4°—Seguimiento. La Dirección General de Contabilidad Nacional podrá solicitar información, evidencias y documentación técnica que permita verificar la aplicación de la Política Particular para la aplicación de la NICSP 32, Acuerdos de Concesión de Servicios: Concedente, por parte de las entidades sujetas a esta resolución.

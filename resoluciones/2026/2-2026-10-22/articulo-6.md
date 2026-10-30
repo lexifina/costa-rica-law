@@ -1,0 +1,1 @@
+Artículo 6°—Publicación. Publíquese la presente resolución en el Diario Oficial La Gaceta. Asimismo, la Política Particular para la aplicación de la NICSP 32, Acuerdos de Concesión de Servicios: Concedente, se mantendrá disponible para consulta permanente en el sitio web oficial del Ministerio de Hacienda.

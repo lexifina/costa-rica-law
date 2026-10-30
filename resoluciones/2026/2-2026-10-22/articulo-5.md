@@ -1,0 +1,1 @@
+Artículo 5°—Actualización. Política Particular para la aplicación de la NICSP 32, Acuerdos de Concesión de Servicios: Concedente, podrá ser actualizada cuando existan modificaciones derivadas de cambios normativos, disposiciones o recomendaciones emitidos por los Órganos de Control, actualizaciones a las NICSP o necesidades técnicas del Subsistema de Contabilidad Pública.
