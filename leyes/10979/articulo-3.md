@@ -1,0 +1,2 @@
+ARTÍCULO 3- Se adiciona un nuevo artículo 157 bis al capítulo I del título X de la Ley 8436, Ley de Pesca y Acuicultura, del 1 de marzo de 2005. El texto es el siguiente:
+Artículo 157 bis- Agravante. Las penas privativas de libertad por los delitos tipificados en este capítulo se incrementarán de dos a seis años de prisión cuando, las conductas ilícitas se hayan cometido por dos o más personas en las condiciones establecidas en la Ley 8754, Ley contra la Delincuencia Organizada, cuyas disposiciones serán aplicables en estos casos.

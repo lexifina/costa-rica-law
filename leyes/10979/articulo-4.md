@@ -1,0 +1,4 @@
+ARTÍCULO 4- Se adiciona un nuevo párrafo segundo al artículo 6 de la Ley 8325, Ley de Protección, Conservación y Recuperación de las Poblaciones de Tortugas Marinas, del 4 de noviembre de 2002. El texto es el siguiente:
+Artículo 6- Quien mate, cace, capture, destace, trasiegue o comercie tortugas marinas, será penado con prisión de uno a tres años. La pena será de tres meses a dos años de prisión, para quien detente con fines comerciales tortugas marinas o comercie productos o subpro ductos de estas especies.
+La pena será de dos a seis años de prisión, cuando estas conductas ilícitas se hayan cometido por tres o más personas.
+No será punible la recolección, el transporte, la distribución y la comercialización de huevos de tortuga lora, provenientes del Refugio Nacional de Vida Silvestre Ostional, siempre que se realicen con apego a las disposiciones reglamentarias que emita el Ministerio de Ambiente y Energía (Minae).

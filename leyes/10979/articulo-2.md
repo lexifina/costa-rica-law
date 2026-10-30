@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se adiciona un nuevo artículo 57 bis al capítulo II del título VI de la Ley 7575, Ley Forestal, del 13 de febrero de 1996. El texto es el siguiente:
+Artículo 57 bis- Agravante. Las penas privativas de libertad por los delitos tipificados en este capítulo se incrementarán de uno a seis años de prisión, cuando las conductas ilícitas se hayan cometido por dos o más personas en las condiciones establecidas en la Ley 8754, Ley contra la Delincuencia Organizada, cuyas disposiciones serán aplicables en estos casos.
