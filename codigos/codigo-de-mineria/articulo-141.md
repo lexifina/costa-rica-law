@@ -1,2 +1,4 @@
-Artículo 141.—Se impondrá prisión de tres meses a cinco años a quien realice actividades mineras de reconocimiento, exploración o explotación, sin contar con el respectivo permiso o concesión.
+Artículo 141- Se impondrá prisión de uno a seis años, a quien desarrolle actividades mineras de reconocimiento, exploración, movilización de sedimentos, movilización de recursos minerales, procesamiento, almacenamiento, comercialización, extracción o explotación, sin contar con el debido permiso o concesión, en áreas distintas de las establecidas en el artículo 139.
+La misma pena se impondrá a quien a sabiendas comercialice, en el país o hacia el exterior, minerales extraídos ilegalmente. Se exceptúa de esta disposición a quien realice extracción artesanal de arena.
 (Así adicionado por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002)
+(Así reformado por el artículo 5° de la ley N° 10979 del 21 de octubre de 2026, “Reforma de varias leyes para fortalecer la lucha contra el crimen organizado en materia de delitos ambientales”)
