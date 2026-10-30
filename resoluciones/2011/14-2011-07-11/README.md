@@ -15,3 +15,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | --- | --- | --- |
 | 1 | 2011-07-28 | la propia norma |
 | 2 | 2019-05-28 | Resolución 8 (2019-05-28) |
+| 3 | 2026-10-30 | Resolución 397 (2026-10-30) |
