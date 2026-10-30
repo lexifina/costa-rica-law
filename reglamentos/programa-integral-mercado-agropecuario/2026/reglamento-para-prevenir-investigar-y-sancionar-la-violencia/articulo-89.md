@@ -1,0 +1,1 @@
+Artículo 89. Capacitación inicial. Dentro de los seis meses siguientes a la entrada en vigor del presente Reglamento, el PIMA desarrollará un programa de capacitación dirigido prioritariamente a las jefaturas, Recursos Humanos, Salud Ocupacional, Asesoría Jurídica y demás personas encargadas de recibir o tramitar denuncias.

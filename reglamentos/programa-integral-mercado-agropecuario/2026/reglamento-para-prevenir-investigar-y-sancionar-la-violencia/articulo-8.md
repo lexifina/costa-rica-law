@@ -1,0 +1,1 @@
+Artículo 8. Acoso digital: Comprende las conductas de violencia o acoso realizadas mediante correo electrónico, mensajería instantánea, plataformas digitales, redes sociales, sistemas institucionales, videoconferencias u otros medios tecnológicos relacionados con el trabajo.

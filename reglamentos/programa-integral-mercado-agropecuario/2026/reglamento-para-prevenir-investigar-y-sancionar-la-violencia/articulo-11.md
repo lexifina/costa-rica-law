@@ -1,0 +1,2 @@
+Artículo 11. Conflictos laborales: Los conflictos interpersonales, diferencias de criterio, desacuerdos profesionales, críticas objetivas, exigencias razonables de desempeño o decisiones organizativas legítimas no constituirán por sí mismas acoso laboral.
+No obstante, cuando un conflicto incluya violencia, acoso, discriminación, amenazas, represalias o conductas abusivas, podrá quedar sujeto al presente Reglamento.

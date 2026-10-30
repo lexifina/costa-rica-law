@@ -1,0 +1,3 @@
+CAPÍTULO XI
+PROCEDIMIENTO ADMINISTRATIVO
+Artículo 46. Procedimiento por acoso laboral. Cuando existan elementos suficientes, se iniciará el procedimiento administrativo correspondiente conforme a la normativa aplicable. Todo procedimiento por acoso laboral que pueda acarrear la imposición de una sanción disciplinaria de suspensión o despido debe instruirse obligatoriamente mediante el Procedimiento Administrativo Ordinario, de conformidad con lo dispuesto en el Libro Segundo de la Ley General de la Administración Pública (LGAP), en concordancia con el régimen normativo del PIMA y los reglamentos del Ministerio de Trabajo y Seguridad Social (MTSS).

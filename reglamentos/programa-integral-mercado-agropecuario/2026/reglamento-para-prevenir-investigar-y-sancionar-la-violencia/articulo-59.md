@@ -1,0 +1,2 @@
+Artículo 59. Sanciones.
+Las conductas comprobadas, cuya realización se haya dado en los ámbitos delineados en los artículos 2 y 3 y que encajen con las definiciones, modalidades y manifestaciones enumeradas en los artículos 6, 7, 8 y 9; todos del presente Reglamento, serán sancionadas conforme al régimen disciplinario y laboral aplicable al PIMA, y lo dispuesto en los artículos 60 y 61 siguientes. El presente Reglamento no crea sanciones distintas de aquellas autorizadas por el ordenamiento jurídico.

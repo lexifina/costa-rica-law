@@ -1,0 +1,1 @@
+Artículo 92. Vigencia. El presente Reglamento entrará en vigor a partir de su aprobación y será publicado en el Diario Oficial La Gaceta, para que surta eficacia jurídica y cumplir con el principio de publicidad.

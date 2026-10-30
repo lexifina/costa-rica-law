@@ -1,0 +1,1 @@
+Artículo 35. No revictimización. Las personas encargadas de atender e investigar las denuncias deberán evitar entrevistas innecesarias, confrontaciones directas injustificadas, repetición innecesaria del relato y cualquier actuación que pueda generar revictimización.

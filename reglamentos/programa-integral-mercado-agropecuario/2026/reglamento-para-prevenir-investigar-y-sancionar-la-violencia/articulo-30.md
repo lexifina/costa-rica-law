@@ -1,0 +1,2 @@
+Artículo 30. Denuncias anónimas. Las comunicaciones anónimas podrán ser utilizadas como información preventiva o como insumo para iniciar actuaciones cuando contengan elementos suficientes que permitan verificar razonablemente la existencia de una situación de riesgo.
+No podrá imponerse una sanción disciplinaria exclusivamente con fundamento en una denuncia anónima sin que se haya garantizado el debido proceso y el derecho de defensa.

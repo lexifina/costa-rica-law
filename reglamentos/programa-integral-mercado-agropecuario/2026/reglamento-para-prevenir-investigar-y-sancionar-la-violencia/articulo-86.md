@@ -1,0 +1,3 @@
+Artículo 86. Derogatorias. De conformidad con el acuerdo del Consejo Directivo, se deroga expresamente el Reglamento interno para el trámite de denuncias por acoso u hostigamiento sexual del Programa Integral de Mercadeo Agropecuario, publicado en La Gaceta N° 185 del 1° de octubre de 2019.
+Se mantiene la derogatoria de los artículos 81, 82, 83, 84, 85, 86, 87, 88, 89 y 90 del Reglamento Autónomo de Servicio del Programa Integral de Mercadeo Agropecuario.
+Las disposiciones específicas sobre hostigamiento sexual conservarán su vigencia en cuanto no resulten incompatibles con la legislación especial aplicable.

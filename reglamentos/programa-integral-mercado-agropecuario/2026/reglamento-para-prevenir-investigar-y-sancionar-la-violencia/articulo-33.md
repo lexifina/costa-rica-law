@@ -1,0 +1,1 @@
+Artículo 33. Protección de datos. La información personal contenida en los expedientes será tratada de conformidad con la legislación aplicable y únicamente podrá utilizarse para las finalidades legítimas del procedimiento.

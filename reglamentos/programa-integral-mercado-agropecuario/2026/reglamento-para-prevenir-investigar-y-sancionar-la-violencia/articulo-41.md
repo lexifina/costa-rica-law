@@ -1,0 +1,1 @@
+Artículo 41. Denuncia contra la Máxima Autoridad. Cuando la persona denunciada sea la Gerencia General o un miembro del Consejo Directivo, la denuncia se presentará ante el Consejo Directivo, el cual nombrará un Órgano Director Ad Hoc o remitirá el caso ante la Inspección de Trabajo del MTSS.

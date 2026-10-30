@@ -1,0 +1,1 @@
+Artículo 45. Investigación preliminar: Cuando resulte necesario determinar la procedencia de iniciar un procedimiento formal, podrá realizarse una investigación preliminar. Esta deberá ser objetiva, confidencial y proporcional.

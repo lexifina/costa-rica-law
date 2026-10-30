@@ -1,0 +1,1 @@
+Artículo 50. Recusación: Las personas involucradas podrán solicitar la separación de una persona integrante del órgano cuando exista una causa que razonablemente comprometa su imparcialidad. La recusación será resuelta conforme a la legislación aplicable.
