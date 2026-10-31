@@ -1,0 +1,1 @@
+Artículo 22.—Programa anual de adquisiciones. Junto con el anteproyecto de presupuesto, la Presidencia y la Tesorería presentarán el programa de contrataciones previsto para el ejercicio, con su respectiva estimación de costos.

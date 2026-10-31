@@ -1,0 +1,1 @@
+Artículo 25.—Concurso por invitación. Se invitará por escrito al menos a tres proveedores idóneos. Se adjudica la oferta que cumpla los requisitos y ofrezca la mejor relación calidad-precio. Si se reciben menos de tres ofertas, se dejará constancia de las invitaciones cursadas.

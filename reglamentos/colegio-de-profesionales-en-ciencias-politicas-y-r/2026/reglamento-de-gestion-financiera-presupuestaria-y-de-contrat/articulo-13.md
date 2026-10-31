@@ -1,0 +1,1 @@
+Artículo 13.—Trámite y registro. Cada modificación llevará una numeración consecutiva por ejercicio. Se comunicará a la Fiscalía dentro de los cinco días hábiles siguientes a su aprobación y se detallará en el informe trimestral y en la liquidación anual.

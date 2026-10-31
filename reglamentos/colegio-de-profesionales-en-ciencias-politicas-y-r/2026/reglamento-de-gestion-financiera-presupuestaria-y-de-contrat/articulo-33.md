@@ -1,0 +1,1 @@
+Artículo 33.—Auditoría externa. Los estados financieros de cada ejercicio serán auditados por un contador público autorizado independiente, contratado conforme al artículo 32. El dictamen se presentará a la Asamblea General ordinaria junto con la liquidación presupuestaria.

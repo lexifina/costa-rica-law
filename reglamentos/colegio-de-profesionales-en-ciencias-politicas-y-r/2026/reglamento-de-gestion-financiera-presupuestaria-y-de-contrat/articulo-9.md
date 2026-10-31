@@ -1,0 +1,1 @@
+Artículo 9º—Ejecución. Corresponde a la Junta Directiva velar por la correcta ejecución del presupuesto y a la administración ejecutarlo. Ningún órgano podrá comprometer gastos sin asignación presupuestaria suficiente.

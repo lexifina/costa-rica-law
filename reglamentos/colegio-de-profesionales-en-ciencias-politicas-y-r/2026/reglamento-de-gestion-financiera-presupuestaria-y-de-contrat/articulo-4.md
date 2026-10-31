@@ -1,0 +1,1 @@
+Artículo 4º—Principios. La gestión financiera se rige por los principios de legalidad, anualidad, equilibrio presupuestario, segregación de funciones, transparencia, integridad, eficiencia, eficacia, proporcionalidad, igualdad, equidad, protección de datos y gestión de riesgos.

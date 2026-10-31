@@ -1,0 +1,1 @@
+Artículo 28.—Excepciones. Podrá contratarse directamente, mediante acuerdo motivado de la Junta Directiva, cuando exista un único proveedor acreditado o cuando haya una urgencia que ponga en riesgo la continuidad de los servicios del Colegio. En caso de urgencia, la Presidencia y la Tesorería podrán adjudicar y la Junta deberá ratificar en su siguiente sesión.

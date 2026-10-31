@@ -1,0 +1,1 @@
+Artículo 39.—Formularios. La Tesorería emitirá y mantendrá actualizados los formularios de constancia de contenido presupuestario, de solicitud de modificación, de términos de referencia, de matriz de evaluación y de declaración jurada.

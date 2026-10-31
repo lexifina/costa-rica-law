@@ -1,0 +1,1 @@
+Artículo 10.—Contenido presupuestario previo. Todo compromiso de gasto requerirá una constancia de contenido presupuestario en la que conste la partida afectada y el saldo disponible. Cuando dicho compromiso sea superior a 2 salarios base la constancia deberá además ser visada por la Tesorería.

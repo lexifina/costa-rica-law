@@ -1,0 +1,1 @@
+Artículo 30.—Administración y evaluación del contrato. La Junta Directiva designará a la persona administradora de cada contrato mayor, quien verificará el cumplimiento del contrato y presentará una evaluación anual de desempeño. Esa evaluación será requisito para cualquier prórroga.

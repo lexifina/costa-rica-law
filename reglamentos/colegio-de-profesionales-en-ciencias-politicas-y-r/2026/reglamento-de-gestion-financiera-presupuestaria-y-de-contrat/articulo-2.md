@@ -1,0 +1,1 @@
+Artículo 2º—Fundamento y rango. Se dicta con fundamento en los artículos 24, incisos g) y h), 29, inciso e), 32 y 36, inciso b), de la Ley N° 9614. En materia financiera, es complementario a la reglamentación existente, salvo la reglamentación posteriormente aprobados por la Asamblea General que lo reforme expresamente.

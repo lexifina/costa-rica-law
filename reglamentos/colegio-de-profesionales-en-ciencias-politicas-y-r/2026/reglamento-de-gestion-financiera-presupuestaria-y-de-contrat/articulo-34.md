@@ -1,0 +1,1 @@
+Artículo 34.—Informe anual. El informe de Tesorería a la Asamblea General incluirá los estados financieros auditados, la liquidación presupuestaria, el detalle de las modificaciones y el estado de la reserva de liquidez, con el refrendo de la Presidencia y de la Fiscalía, previsto en el artículo 32, inciso f), de la Ley.

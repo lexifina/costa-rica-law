@@ -1,0 +1,1 @@
+Artículo 17.—Soporte documental. Todo pago requerirá comprobante electrónico válido a nombre del Colegio, constancia de contenido presupuestario cuando corresponda y recibido conforme del bien o servicio.

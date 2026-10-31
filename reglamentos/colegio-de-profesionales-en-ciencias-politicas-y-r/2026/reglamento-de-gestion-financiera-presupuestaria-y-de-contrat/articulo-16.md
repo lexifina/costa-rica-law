@@ -1,0 +1,1 @@
+Artículo 16.—Pagos y banca electrónica. Todo pago se realizará por transferencia bancaria o por cheque a nombre del beneficiario, salvo los de caja chica. Se prohíbe compartir credenciales o dispositivos de autenticación.

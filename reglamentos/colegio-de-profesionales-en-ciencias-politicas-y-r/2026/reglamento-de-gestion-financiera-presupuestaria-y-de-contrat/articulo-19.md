@@ -1,0 +1,1 @@
+Artículo 19.—Liquidación de viáticos. La liquidación de viáticos de directivos y personal del Colegio, se tramitarán según lo reglamentado para dichos efectos por parte de la Contraloría General de la República. Cualquier dieta o remuneración a los integrantes de los órganos del Colegio requerirán el acuerdo expreso de la Asamblea General.

@@ -1,0 +1,1 @@
+Artículo 29.—Expediente y fraccionamiento. Cada contratación tendrá un expediente, físico o digital, con todas sus piezas. Se prohíbe fraccionar una necesidad para eludir el procedimiento correspondiente por monto.

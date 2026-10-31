@@ -1,0 +1,1 @@
+Artículo 41.—Vigencia y publicación. Rige a partir de su aprobación ante la Asamblea General del Colegio. Deberá ser incorporado al Manual de Disposiciones y comunicado a todos los miembros de los órganos del Colegio.

@@ -1,0 +1,1 @@
+Artículo 8º—Presupuesto prorrogado. Mientras la Asamblea General no apruebe el presupuesto del ejercicio, regirá el del ejercicio anterior por duodécimos mensuales, solo para gastos corrientes y obligaciones contractuales vigentes. Durante la prórroga no podrán iniciarse nuevas contrataciones de mayor cuantía, ni por invitación, ni crearse puestos de trabajo.

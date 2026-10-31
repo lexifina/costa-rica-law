@@ -1,0 +1,1 @@
+Artículo 18.—Conciliaciones y caja chica. La Administración elaborará conciliaciones bancarias mensuales, que serán revisadas y firmadas por la Tesorería. La caja chica se rige por su reglamento específico; en lo no previsto, por el presente reglamento.
