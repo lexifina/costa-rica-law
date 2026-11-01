@@ -1,0 +1,1 @@
+Artículo 2°—Deróguese el Decreto Ejecutivo N° 45878-H de fecha 17 de julio de 2026, publicado en el Alcance N° 101 a La Gaceta N° 144 en fecha 03 de agosto de 2026, a partir de la vigencia del presente Decreto Ejecutivo.
