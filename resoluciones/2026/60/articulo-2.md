@@ -1,0 +1,1 @@
+Artículo 2º—Con la entrada en vigor de la presente Resolución, se deja sin efecto la Resolución MH-DGH-RES-0040-2026 del 13 de julio de 2026, publicada en el Alcance N° 98 de La Gaceta N° 140 del 28 de julio de 2026.
