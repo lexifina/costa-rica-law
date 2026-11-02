@@ -26,14 +26,12 @@ XXI. El CONASSIF mediante artículo 8, del acta de la sesión 1388-2018, del 16 
 XXII. Los artículos 1 y 12 de la Ley 8220, su reforma y reglamento establecen que el análisis de la evaluación costo-beneficio de la regulación, lo deben realizar todas las instituciones que conforma la Administración Pública, central y descentralizada, instituciones autónomas y semiautónomas, órganos con personalidad jurídica instrumental, entes públicos no estatales, municipalidades y empresas públicas sólo para aquellas regulaciones nuevas o reformas a las existentes; la Dirección de Mejora Regulatoria del Ministerio de Economía Industria y Comercio avaló la propuesta reglamentaria mediante criterio DMR-DAR-INF-18, del 5 de julio de 2018.
 dispuso en firme: aprobar el Reglamento para la inscripción y desinscripción ante la SUGEF de los sujetos obligados que realizan alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley 7786, Acuerdo SUGEF 11-18, cuyo texto se detalla a continuación:
 "ACUERDO SUGEF 11-18
-REGLAMENTO PARA LA INSCRIPCIÓN Y DESINSCRIPCIÓN ANTE LA SUGEF DE
-LOS SUJETOS OBLIGADOS QUE REALIZAN ALGUNA O ALGUNAS DE LAS
-ACTIVIDADES DESCRITAS EN LOS ARTÍCULOS 15 Y 15 BIS DE LA LEY SOBRE
-ESTUPEFACIENTES, SUSTANCIAS PSICOTRÓPICAS, DROGAS DE USO NO
-AUTORIZADO, ACTIVIDADES CONEXAS, LEGITIMACIÓN DE CAPITALES Y
-FINANCIAMIENTO AL TERRORISMO, LEY 7786
+Reglamento para la inscripción y desinscripción ante la SUGEF de los sujetos obligados que realizan alguna o algunas de las actividades descritas en los artículos 15 y 15 bis, de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley 7786 y para el registro de las OSFL
+(Así modificada su denominación mediante sesión N° 2062-2026 del 2 de noviembre de 2026. Anteriormente indicaba REGLAMENTO PARA LA INSCRIPCIÓN Y DESINSCRIPCIÓN ANTE LA SUGEF DE LOS SUJETOS OBLIGADOS QUE REALIZAN ALGUNA O ALGUNAS DE LAS ACTIVIDADES DESCRITAS EN LOS ARTÍCULOS 15 Y 15 BIS DE LA LEY SOBRE
+ESTUPEFACIENTES, SUSTANCIAS PSICOTRÓPICAS, DROGAS DE USO NO AUTORIZADO, ACTIVIDADES CONEXAS, LEGITIMACIÓN DE CAPITALES Y FINANCIAMIENTO AL TERRORISMO, LEY 7786)
 CAPITULO I
 DISPOSICIONES GENERALES
 Artículo 1. Objeto
-Este Reglamento tiene por objeto regular los trámites, los plazos y las obligaciones relacionados con la inscripción y desinscripción ante la Sugef, de los sujetos obligados que realicen alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley 7786, conocidas como Actividades y Profesiones No Financieras Designadas (APNFD)."
-(Asi reformado mediante sesión N° 1807-2023 del 10 de julio del 2023)
+Este reglamento tiene por objeto regular los trámites, los plazos y las obligaciones relacionados con la inscripción y desinscripción ante la SUGEF, de los sujetos obligados que realicen alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley 7786, correspondientes a las Actividades y Profesiones No Financieras Designadas (APNFD) y Otras actividades financieras.
+Asimismo, regula el registro y la exclusión del registro ante la SUGEF de las Organizaciones Sin Fines de Lucro (OSFL) que serán monitoreadas en materia de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva
+(Así reformado mediante sesión N° 2062-2026 del 2 de noviembre de 2026)
