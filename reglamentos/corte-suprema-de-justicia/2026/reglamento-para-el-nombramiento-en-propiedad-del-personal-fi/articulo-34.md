@@ -1,0 +1,2 @@
+Artículo 34. Determinación de la prioridad para el nombramiento en propiedad del personal fiscal.
+Para el nombramiento en propiedad del personal fiscal se considerará las calificaciones más altas, según el número de plazas disponibles o vacantes, acorde con el concurso respectivo. En orden de mayor a menor y según el procedimiento indicado por puntuación, con base en el cumplimiento de los requisitos, su clasificación según los ejes de idoneidad y los componentes de cada uno de ellos.

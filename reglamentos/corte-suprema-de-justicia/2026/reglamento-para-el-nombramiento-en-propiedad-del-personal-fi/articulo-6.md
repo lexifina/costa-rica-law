@@ -1,0 +1,2 @@
+Artículo 6. Participación de la Fiscala o Fiscal General.
+La Fiscala General o Fiscal General de la República actuará con base en el artículo 25 “Deberes y Atribuciones” y el artículo 27 “Del ingreso y del ascenso” de la Ley Orgánica del Ministerio Público, y efectuará los nombramientos en propiedad por nómina de los fiscales adjuntos, fiscales y fiscales auxiliares, en estricto apego a los principios de legalidad, necesidad y conveniencia para el interés público e institucional.

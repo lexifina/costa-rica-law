@@ -1,0 +1,3 @@
+Capítulo III. Componentes del eje de idoneidad académica y de desarrollo profesional
+Artículo 14. Valor del eje de idoneidad académica y de desarrollo profesional en la calificación final.
+La idoneidad académica y de desarrollo profesional representa un cincuenta (50%) de la calificación final para el nombramiento en propiedad del personal fiscal, tanto en fiscalías especializadas como no especializadas. Su valor es el más alto en tanto representa el aspecto esencial del puesto, que exige amplios conocimientos derivados de la formación académica y de la experiencia de la persona aspirante al puesto de trabajo.

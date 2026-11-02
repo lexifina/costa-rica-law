@@ -1,0 +1,2 @@
+Artículo 5. Informe sobre técnicas selectivas psicolaborales y del estudio sociolaboral y la investigación de antecedentes.
+Para proceder con el nombramiento en propiedad del personal fiscal auxiliar, se debe contar con los informes sobre técnicas selectivas psicolaborales y el estudio sociolaboral y la investigación de sus antecedentes. Los informes deben ser realizados por la Unidad de Psicología y la Unidad de Investigación Sociolaboral y Antecedentes de la Dirección de Gestión Humana del Poder Judicial.

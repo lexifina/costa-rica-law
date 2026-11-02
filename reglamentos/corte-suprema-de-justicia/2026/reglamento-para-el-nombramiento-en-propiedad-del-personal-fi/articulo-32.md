@@ -1,0 +1,3 @@
+Artículo 32. Sobre el dominio de aplicaciones, sistemas, programas y plataformas web.
+El porcentaje de 5% correspondiente al dominio de aplicaciones, sistemas, programas y plataformas web como requisito para el nombramiento en propiedad del personal fiscal, se fundamenta en la necesidad de que las personas oferentes conozcan el manejo eficiente de plataformas digitales, sistemas de gestión en línea y expedientes electrónicos del Poder Judicial y del Ministerio Público, para un manejo ágil y oportuno de la información.
+El cumplimiento de este requisito se comprobará con una declaración jurada de la persona oferente del proceso de nombramiento en propiedad.
