@@ -1,0 +1,1 @@
+Artículo 53.—Vigencia. El presente reglamento regirá a partir de su publicación definitiva en el Diario Oficial La Gaceta, sin perjuicio del plazo especial de treinta días previsto en el artículo 83 del Código Municipal para la entrada en vigencia de las tasas o sus modificaciones .

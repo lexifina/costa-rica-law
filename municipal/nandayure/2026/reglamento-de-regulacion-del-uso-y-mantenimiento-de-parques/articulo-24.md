@@ -1,0 +1,1 @@
+Artículo 24.—Actividades municipales. Las actividades organizadas directamente por la Municipalidad deberán observar las mismas medidas de seguridad, accesibilidad, protección ambiental, limpieza y restitución exigibles a terceros, con las adaptaciones propias de su naturaleza institucional.

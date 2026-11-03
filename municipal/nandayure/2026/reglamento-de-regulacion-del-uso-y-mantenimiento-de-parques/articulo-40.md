@@ -1,0 +1,2 @@
+Artículo 40.—Diez por ciento para el desarrollo del servicio. La suma del costo efectivo y del costo de seguridad se incrementará en un diez por ciento, conforme al artículo 83 del Código Municipal. Estos recursos se destinarán al desarrollo, mejora, ampliación o sostenibilidad del servicio dentro del distrito que los genera, de acuerdo con la planificación municipal y sin
+desnaturalizar el hecho generador de la tasa.

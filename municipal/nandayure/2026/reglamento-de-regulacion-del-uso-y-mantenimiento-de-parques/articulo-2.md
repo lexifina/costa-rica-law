@@ -1,0 +1,5 @@
+Artículo 2.—Ámbito de aplicación. Las disposiciones de este reglamento serán aplicables en todo el cantón de Nandayure respecto de:
+a) Los parques municipales, parques infantiles, parques deportivos, plazas, jardines, zonas verdes, alamedas, bulevares, áreas comunales, franjas ornamentales y demás espacios de uso público de propiedad municipal.
+b) Los inmuebles o espacios que, aun sin estar inscritos a nombre de la Municipalidad, hayan sido válidamente recibidos, cedidos, afectados al uso público o puestos bajo administración o posesión municipal mediante ley, convenio, acto de traspaso, resolución, contrato u otro título jurídico suficiente.
+c) La infraestructura, mobiliario urbano, equipamiento recreativo o deportivo, servicios, vegetación, fauna, obras de ornato y demás elementos incorporados a esos espacios.
+Quedan excluidos los bienes privados y aquellos espacios cuya administración corresponda exclusivamente a otra institución, salvo convenio o norma que atribuya competencia a la Municipalidad.

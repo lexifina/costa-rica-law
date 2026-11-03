@@ -1,0 +1,1 @@
+Artículo 11.—Mobiliario e infraestructura. La Municipalidad procurará que el mobiliario y la infraestructura se mantengan en condiciones funcionales, higiénicas, seguras y estéticamente adecuadas. Los equipos que representen riesgo deberán ser señalizados, restringidos o retirados temporalmente hasta su reparación o sustitución.

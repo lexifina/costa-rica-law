@@ -1,0 +1,1 @@
+Artículo 48.—Mora e intereses. El atraso en el pago generará los intereses moratorios y consecuencias de cobro previstos en el Código Municipal, el Código de Normas y Procedimientos Tributarios y demás normativa aplicable. La Municipalidad garantizará el debido proceso en las actuaciones de cobro.

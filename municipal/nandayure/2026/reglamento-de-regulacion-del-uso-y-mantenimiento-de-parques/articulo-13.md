@@ -1,0 +1,1 @@
+Artículo 13.—Administración por terceros. La gestión de determinados servicios o instalaciones podrá encomendarse a terceros únicamente mediante el procedimiento, convenio, contrato o acto jurídico permitido por el ordenamiento. La Municipalidad conservará las potestades de dirección, fiscalización y protección del destino público del bien.

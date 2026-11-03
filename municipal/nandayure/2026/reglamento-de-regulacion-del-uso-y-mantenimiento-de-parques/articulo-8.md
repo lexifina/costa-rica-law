@@ -1,0 +1,2 @@
+CAPÍTULO II: ADMINISTRACIÓN, PLANIFICACIÓN Y MANTENIMIENTO
+Artículo 8.—Inventario y clasificación. El Departamento de Gestión Ambiental clasificará cada espacio según su destino predominante como área de recreación pasiva, recreación activa, uso múltiple, protección ambiental, ornato u otra categoría técnicamente justificada. La clasificación deberá constar en el inventario municipal y comunicarse mediante señalización cuando sea relevante para las personas usuarias.

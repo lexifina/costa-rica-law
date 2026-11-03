@@ -1,0 +1,2 @@
+CAPÍTULO VII: DISPOSICIONES ESPECIALES Y FINALES
+Artículo 50.—Espacios en la zona marítimo-terrestre. Los parques, zonas verdes o espacios públicos ubicados en la zona marítimo-terrestre se regirán prioritariamente por la Ley N.° 6043, su reglamento, los planes y actos de planificación aprobados y las competencias del Instituto Costarricense de Turismo, el Instituto Nacional de Vivienda y Urbanismo y demás autoridades. Este reglamento se aplicará de manera supletoria en lo compatible y únicamente respecto de competencias municipales legalmente atribuidas.

@@ -1,0 +1,1 @@
+Artículo 12.—Colaboración comunitaria. La Municipalidad podrá suscribir convenios de cooperación con asociaciones de desarrollo, organizaciones comunales, instituciones públicas o entidades privadas para apoyar el desarrollo, mantenimiento, vigilancia, programación o mejoramiento de los espacios.

@@ -1,0 +1,1 @@
+Artículo 26.—Protección de la fauna. Se prohíbe cazar, capturar, perseguir, acosar, maltratar, herir, alimentar de forma inadecuada, abandonar o alterar nidos y refugios de fauna silvestre; arrojar residuos a fuentes, cauces o estanques; permitir que animales de compañía persigan fauna; y portar instrumentos destinados a la caza, salvo actuación de autoridad competente.
