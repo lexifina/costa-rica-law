@@ -14,3 +14,4 @@ Reglamento de licencias comerciales de la Municipalidad de Quepos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2026-04-11 | la propia norma |
+| 2 | 2026-11-03 | Reglamento municipal 203 (2026-11-03) |
