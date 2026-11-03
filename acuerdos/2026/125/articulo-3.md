@@ -1,0 +1,1 @@
+Artículo 3. Alcance. La presente cesión no implica la exclusión de gastos del cálculo de la regla fiscal, ni una transferencia de recursos del Gobierno Central al Instituto de Desarrollo Rural. Tampoco sustituye el cumplimiento de los requisitos, autorizaciones y procedimientos presupuestarios aplicables.
