@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. - La Dirección General de Adaptación Social dispondrá de un plazo máximo de tres meses, contado a partir de la publicación del presente decreto, para adecuar los lineamientos, protocolos, manuales y demás instrumentos administrativos requeridos para la aplicación de la presente reforma.
