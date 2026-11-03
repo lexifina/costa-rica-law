@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 44019 "Reforma Reglamento al inciso c) del artícu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-10 | la propia norma |
+| 2 | 2026-11-03 | Decreto Ejecutivo 45984 (2026-11-03) |
