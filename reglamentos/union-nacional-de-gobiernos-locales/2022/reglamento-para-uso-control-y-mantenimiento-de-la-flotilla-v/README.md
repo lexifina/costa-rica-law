@@ -15,3 +15,4 @@ Reglamento para uso, control y mantenimiento de la flotilla vehicular de Unión 
 | --- | --- | --- |
 | 1 | 2023-01-23 | la propia norma |
 | 2 | 2025-05-03 | Reglamento 16 (2025-05-03) |
+| 3 | 2026-11-04 | Reglamento 24 (2026-11-04) |
