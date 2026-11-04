@@ -1,0 +1,1 @@
+Artículo 26.—Faltante de dinero. Si realizado el arqueo se determinara un faltante de dinero, la persona responsable del fondo de Caja Chica deberá reponer de inmediato la totalidad del faltante y depositarlo posteriormente en la cuenta general de la Junta Administrativa de Cementerios (JACG), una vez concluido el arqueo.

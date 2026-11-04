@@ -1,0 +1,5 @@
+Artículo 17.—Facturas. Las facturas o recibos de las adquisiciones efectuadas con fondos de la Caja Chica, que servirán como comprobante del egreso, deberán cumplir con los siguientes requisitos:
+a. Ser documentos electrónicos, si se trata de facturas físicas deben ser casos calificados en sistema simplificado y dicha factura debe ser a nombre sin excepción de la Junta Administrativa de Cementerios de Goicoechea.
+b. Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha en la que se entrega el efectivo del vale. Por ningún motivo, deben contener tachaduras ni borrones.
+c. Si la factura no tiene logotipo por pertenecer el proveedor al régimen simplificado, debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones, así como el número de resolución otorgado por la Dirección General de Tributación Directa.
+d. Los comprobantes deben ser firmados, por la jefatura inmediata, como requisito de comprobación de la adquisición del bien o servicio correspondiente.

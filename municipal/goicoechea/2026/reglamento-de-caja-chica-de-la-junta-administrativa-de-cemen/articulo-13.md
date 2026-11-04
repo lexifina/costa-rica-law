@@ -1,0 +1,1 @@
+Artículo 13.—Exoneración del pago del Impuesto al Valor Agregado IVA. Para el trámite de compra por el fondo de Caja Chica, la persona encargada de la Contabilidad o la persona que designe la Dirección Administrativa, entregará al funcionario que lo gestione, un comprobante de exoneración del pago del impuesto de ventas.

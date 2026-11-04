@@ -1,0 +1,1 @@
+Artículo 20.—Reintegros de Caja Chica. La dirección ejecutiva tramitara los reintegros de caja chica cuando se haya gastado el 60% del fondo establecido por este reglamento, además si en el plazo máximo de dos semanas no se ha alcanzado el 60%, el director administrativa deberá tramitar el reintegro de lo gastado.

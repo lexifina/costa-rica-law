@@ -1,0 +1,1 @@
+Artículo 18.—Monto gastado. El monto de lo gastado, no podrá exceder el monto autorizado en el vale de Caja Chica. De presentarse esta situación, el funcionario a nombre de quien se giró el vale debe asumir el gasto diferencial resultante, sin que la JACG quede obligada a reintegrarle esa suma.

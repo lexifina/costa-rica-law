@@ -1,0 +1,1 @@
+Artículo 6º—Uso distinto para obviar proceso de contratación. Cuando se presuma, que este instrumento se está utilizando para evitar los procesos regulares de contratación, se requerirá visto bueno del director administrativo, quien definirá en última instancia, si se autoriza la compra o contratación a través de este fondo.

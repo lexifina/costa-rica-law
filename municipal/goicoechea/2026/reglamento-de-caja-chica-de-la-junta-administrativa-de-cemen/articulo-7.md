@@ -1,0 +1,1 @@
+Artículo 7º—Composición de la Caja Chica. La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: Dinero en efectivo, vales liquidados, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de la Caja Chica.

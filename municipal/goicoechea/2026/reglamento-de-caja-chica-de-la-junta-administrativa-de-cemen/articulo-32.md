@@ -1,0 +1,1 @@
+Artículo 32.—Fecha de rige. Este Reglamento rige a partir de su publicación en el Diario Oficial de la Gaceta, para Io cual debe contar con la aprobación del Consejo Municipal de la Municipalidad de Goicoechea.
