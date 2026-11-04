@@ -1,0 +1,3 @@
+Artículo 2º—Principios de la Audiencia Pública.
+a. La audiencia pública se rige por el principio de publicidad y de participación ciudadana, procurando que los munícipes puedan conocer del proyecto de instrumento de ordenamiento territorial que regirá en el cantón que habitan, y realizar las observaciones que consideren pertinentes.
+b. La audiencia pública se realizará de manera presencial, conforme a lo dispuesto en el artículo 17 de la Ley de Planificación Urbana. Podrá transmitirse en vivo mediante medios electrónicos, garantizando el principio de publicidad, sin que dicha transmisión sustituya la presencialidad requerida.

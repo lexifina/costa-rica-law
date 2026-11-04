@@ -1,0 +1,5 @@
+Artículo 4º—Convocatoria.
+a. El acuerdo del Concejo Municipal deberá indicar, al menos, los siguientes elementos: la hora, el día, el lugar donde se llevará a cabo la audiencia, las etapas que la conforman y su duración, así como establecer el tiempo máximo de intervención de las personas participantes.
+b. Los interesados deben registrarse como interesados en participar con vos con la invitación para que la Presidencia del Concejo Municipal de acuerdo con la cantidad de participantes, así como cualquier otro aspecto referente a la participación en la audiencia, determine el tiempo máximo y la persona prepare su postura.
+c. El presidente del Concejo Municipal indicará el medio por el cual los munícipes participantes y registrados previamente, podrán remitir sus consultas en torno a la realización de la audiencia.
+d. La audiencia se realizará únicamente de forma presencial, y podrá ser transmitida en vivo por plataformas digitales designadas por la Municipalidad, sin que estas sustituyan la participación presencial requerida por ley.
