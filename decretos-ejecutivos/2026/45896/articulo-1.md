@@ -1,0 +1,13 @@
+Nº 45896-MJP
+LA PRESIDENTE DE LA REPÚBLICA
+El MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 11, 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública N° 6227 del 2 de mayo de 1978, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones N°218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Cámara de Ganaderos de San Carlos, cédula jurídica número tres-cero cero dos-cero cuarenta y cinco mil ciento cuarenta y uno, se inscribió en el Registro de Asociaciones del Registro Nacional el veintitrés de junio del dos mil cuatro, al tomo 234, asiento 1488.
+III.—Que, el numeral 33 bis incisos a) y b) del Reglamento a la Ley de Asociaciones, indica: “(…) a) Se determine que la actividad y desarrollo de la asociación ya no son particularmente útiles para los intereses del Estado o no llenen una necesidad social. b) Cuando hayan desaparecido los motivos por los cuales fue concedida la declaratoria. (…).”
+IV.—Que la Asociación Cámara de Ganaderos de San Carlos, cédula jurídica tres-cero cero dos-cero cuarenta y cinco mil ciento cuarenta y uno, por medio de su representante legal, el señor Freddy Arroyo Bolaños, portador de la cédula de identidad número dos-cero trescientos treinta y ocho-cero quinientos noventa, ha dejado de cumplir con los fines y objetivos que motivaron el otorgamiento del beneficio de utilidad pública, por cuanto su actividad y funcionamiento actual no se ajustan a los propósitos de interés general que justificaron dicho beneficio. Por Tanto,
+DECRETAN:
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA DE LA ASOCIACIÓN CÁMARA DE GANADEROS
+DE SAN CARLOS
+Artículo 1º—Dejar sin efecto el Decreto Ejecutivo N° 31760-J de fecha dieciocho de febrero de dos mil cuatro, publicado en La Gaceta N° 85 del tres de mayo de dos mil cuatro, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación Cámara de Ganaderos de San Carlos, cédula jurídica tres-cero cero dos-cero cuarenta y cinco mil ciento cuarenta y uno.
