@@ -1,0 +1,2 @@
+Artículo 8. Prohibición de duplicidad de beneficios por concepto de alimentación.
+No podrá autorizarse el suministro de alimentos regulado en este reglamento a los funcionarios que, por razón de una comisión de servicio, la ubicación geográfica de la prestación de sus servicios o cualquier otra circunstancia prevista en la normativa institucional, tengan derecho al reconocimiento de viáticos por concepto de alimentación correspondientes al mismo período o jornada de trabajo.

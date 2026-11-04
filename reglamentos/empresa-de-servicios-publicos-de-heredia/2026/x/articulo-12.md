@@ -1,0 +1,2 @@
+Artículo 12. Uso racional de los recursos.
+La adquisición de alimentos deberá responder estrictamente al número de funcionarios autorizados y a las necesidades derivadas de la atención de la situación excepcional. Las jefaturas responsables deberán adoptar las medidas necesarias para evitar compras excesivas, desperdicio de alimentos o erogaciones innecesarias, en observancia de los principios de eficiencia, economía y austeridad en el uso de los recursos públicos.
