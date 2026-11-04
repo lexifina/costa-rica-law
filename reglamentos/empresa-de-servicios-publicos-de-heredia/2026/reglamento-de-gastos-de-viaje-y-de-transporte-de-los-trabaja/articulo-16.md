@@ -1,0 +1,1 @@
+Artículo 16º.- Limitación territorial del gasto de viaje. No podrán cubrirse gastos de viaje a los trabajadores de la empresa cuya sede de trabajo esté ubicada dentro del rango de los 10 kilómetros de su centro de trabajo.

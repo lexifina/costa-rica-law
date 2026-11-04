@@ -1,0 +1,2 @@
+Artículo 24º.- Reconocimiento de gastos cuando el lugar de destino coincide con el de su domicilio o de su trabajo. Cuando el trabajador o empleado deba trabajar eventualmente en el mismo lugar donde está su domicilio, no se cubrirá gasto alguno.
+Cuando deba laborar en cualquier lugar cercano a su domicilio o al lugar en que normalmente trabaja y, en ambos casos, exista facilidad de transporte, se reconocerá únicamente el gasto de traslado.

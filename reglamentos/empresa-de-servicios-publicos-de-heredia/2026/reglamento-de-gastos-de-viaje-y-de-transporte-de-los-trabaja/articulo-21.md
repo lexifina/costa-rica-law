@@ -1,0 +1,2 @@
+Artículo 21º. — Justificantes de gastos. Para el reconocimiento de los gastos de hospedaje la Empresa requerirá del trabajador la presentación de facturas, las cuales podrán ser emitidas a nombre del trabajador o de la Institución. Los gastos de alimentación y pasajes de transporte público colectivo no requerirán la presentación de la factura correspondiente.
+(Así modificado por Resolución número R-DC-0038-2017 de las diez horas del veintidós de mayo de dos mil diecisiete, publicada en La Gaceta Nro. 116 del 20 de junio de 2017).

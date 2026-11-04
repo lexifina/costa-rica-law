@@ -1,0 +1,1 @@
+Artículo 6º.- Asignaciones máximas. Las sumas establecidas para gastos a que se refiere este Reglamento son asignaciones máximas establecidas en este Reglamento según la Tabla de la Contraloría General de la República vigente al momento de la autorización del viático. Y futuras actualizaciones.

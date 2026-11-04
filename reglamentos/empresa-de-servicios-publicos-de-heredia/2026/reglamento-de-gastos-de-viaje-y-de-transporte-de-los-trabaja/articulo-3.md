@@ -1,0 +1,1 @@
+Artículo 3º.- Sujetos beneficiarios. Los gastos a que se refiere este Reglamento únicamente serán cubiertos a los trabajadores de la empresa, que hayan sido nombrados en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.

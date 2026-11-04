@@ -1,0 +1,5 @@
+Artículo 36°. - Trabajadores pertenecientes al nivel II de la tabla de viáticos: Para efectos de la tabla del Artículo 34º, se consideran incluidos en el Nivel II, aquellos puestos de jerarquía que no forman parte del nivel I, y cuya naturaleza coincida con alguna de las siguientes clases:
+a) Los jerarcas y subjerarcas del nivel determinativo, ejecutivo y de fiscalización superior, entendidos éstos como miembros de órganos colegiados, máximos jerarcas, autoridad superior administrativa y subjerarcas directos de éstos, los oficiales mayores, Director, Jefe o Secretario de Despacho del máximo jerarca, Secretarios Generales.
+b) Los Directores o Jefes de Prensa o Protocolo.
+c) Los Directores Generales y Subdirectores Generales, o de División, Gerentes o Subgerente Generales o de División, Directores o Subdirectores Ejecutivos. Entiéndase los puestos estratégicos definidos por la alta gerencia, mediante Acuerdo JD-065-2025. Punto n.3.
+d) Los auditores y subauditores internos de los órganos y entes públicos.

@@ -1,0 +1,2 @@
+Artículo 22º.- Gastos de transporte durante las giras. Cuando el trabajador necesite utilizar los servicios de transporte público colectivo, el reconocimiento de ese pago se hará de acuerdo con la tarifa autorizada por el organismo regulador correspondiente.
+La utilización de servicios de taxi al inicio, durante o finalización de una gira debe ser autorizada por la jefatura en las condiciones particulares del caso, y presentar las facturas correspondientes para su liquidación.
