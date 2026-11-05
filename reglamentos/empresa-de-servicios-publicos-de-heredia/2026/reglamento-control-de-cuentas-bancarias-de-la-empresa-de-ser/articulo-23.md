@@ -1,0 +1,1 @@
+Artículo 23º—Cada unidad debe definir los funcionarios autorizados para tramitar y aprobar facturas de pago, (generalmente son los administradores de contrato), quienes deben ser responsables de sus claves: en el caso de comprobar divulgación de éstas, la administración podrá aplicar medidas disciplinarias o correctivas.

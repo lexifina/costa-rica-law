@@ -1,0 +1,1 @@
+Artículo 14º—Todo formulario de cheque debe ser utilizado en estricto orden consecutivo. Si por alguna razón se rompiera el orden, debe quedar debidamente justificado mediante un memorando dirigido al líder de tesorería, debidamente suscrito por el trabajador responsable.

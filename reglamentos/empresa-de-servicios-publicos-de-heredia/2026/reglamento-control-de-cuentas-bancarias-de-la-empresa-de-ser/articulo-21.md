@@ -1,0 +1,1 @@
+Artículo 21º—El funcionario responsable de la entrega de los cheques deberá velar por el pago oportuno de los cheques siempre y cuando la información para su tramitación le haya sido suministrada a tiempo.

@@ -1,0 +1,1 @@
+Artículo 16º—El funcionario responsable de la custodia y manejo del facsímil no puede tener acceso a los formularios de cheques, ni solicitar ni aprobar trámites de pago, ni llevar los registros que concilian los comprobantes pendientes de pago con el saldo de la cuenta respectiva.

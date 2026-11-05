@@ -1,0 +1,1 @@
+Artículo 5º—La apertura de nuevas cuentas corrientes se realizará previa autorización de la Gerencia General y sólo en los casos que sea necesario y justificado y se cuente con la debida justificación.

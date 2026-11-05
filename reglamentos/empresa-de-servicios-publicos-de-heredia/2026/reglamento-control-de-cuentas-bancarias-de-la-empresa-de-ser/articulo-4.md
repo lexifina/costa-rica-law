@@ -1,0 +1,1 @@
+Artículo 4º—El Líder de Gestión Tesorería deberá velar porque las firmas giradoras sean eliminadas de los registros bancarios, cuando él o (los) funcionario (s) autorizado (s) dejasen de laborar para la ESPH, S.A. Así mismo, será responsable de la destrucción de las placas, para lo cual se deberá realizar un acta con 2 testigos.

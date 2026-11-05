@@ -1,0 +1,1 @@
+Artículo 24º—Gestión Tesorería será la responsable de revisar de que el trámite cumpla con todos los requisitos establecidos en el Reglamento respectivo y procederá a autorizar y calendarizar el pago.

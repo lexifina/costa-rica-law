@@ -1,0 +1,2 @@
+Artículo 8.—Los cheques emitidos y que permanezcan pendientes de entrega por un plazo de seis meses deben ser anulados a no ser que exista una clara justificación para no realizarlo.
+Adicionalmente si dicha anulación corresponde a otro año diferente al que sé que está ejecutando, se debe realizar el ingreso de esa anulación en Control Bancario afectando las partidas presupuestarias correspondientes.

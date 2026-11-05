@@ -1,0 +1,1 @@
+Artículo 17º—La persona encargada de manejar y custodiar el facsímil solo deberá utilizarlo cuando compruebe fehacientemente que el cheque tiene la evidencia de que fue revisado por la(s) persona(s) autorizada(s) para firmar cheques.

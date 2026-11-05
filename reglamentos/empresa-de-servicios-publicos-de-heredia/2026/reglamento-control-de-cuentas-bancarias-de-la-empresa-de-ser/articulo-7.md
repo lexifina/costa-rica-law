@@ -1,0 +1,1 @@
+Artículo 7º—De acuerdo con la normativa vigente del impuesto de renta o cualquier otro tipo de impuesto la ESPH, S.A. aplicará las retenciones en todos los casos que corresponda. Dependiendo del tope y porcentaje vigente al momento del pago.

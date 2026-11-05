@@ -1,0 +1,3 @@
+Artículo 9º—Los cheques emitidos, entregados y que aparezcan como pendientes de cambio en las conciliaciones bancarias por períodos superiores a doce meses (1 año) deben ser anulados y en su lugar registrar una cuenta por pagar al beneficiario respectivo, con el fin de generar otro cheque en el momento de reclamo de este.
+Adicionalmente se debe realizar el ingreso de esa anulación en Control Bancario afectando las partidas presupuestarias correspondientes.
+La cuenta por pagar deberá eliminarse hasta los cuatro años después de la fecha de emisión de cheque y de no existir reclamo por parte del beneficiario se registrar un ingreso a la Empresa.

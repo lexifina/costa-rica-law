@@ -1,0 +1,1 @@
+Artículo 13º—Los sobregiros en cuentas corrientes deben ser autorizados por la Gerencia General. Ninguna cuenta corriente que no tenga autorización para sobregiro podrá estar en esta situación, a no ser que el sobregiro sea a nivel de registros en el libro de bancos.

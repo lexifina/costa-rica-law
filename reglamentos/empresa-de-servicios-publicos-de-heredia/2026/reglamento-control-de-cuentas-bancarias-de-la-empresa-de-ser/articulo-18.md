@@ -1,0 +1,1 @@
+Artículo 18º—El responsable del facsímil deberá llevar un control sobre el uso de éste, donde debe incluir los cheques y documentos firmados en estricto orden numérico, para que en cualquier momento pueda ser revisado por el Líder de Gestión Tesorería.
