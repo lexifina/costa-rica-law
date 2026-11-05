@@ -14,3 +14,4 @@ Reglamento para la elección y nombramiento de los miembros de la Junta Directiv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-10 | la propia norma |
+| 2 | 2026-11-05 | Decreto Ejecutivo 45985 (2026-11-05) |
