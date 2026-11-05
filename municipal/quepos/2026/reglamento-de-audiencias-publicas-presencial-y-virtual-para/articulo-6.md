@@ -1,0 +1,1 @@
+Artículo 6°—Disponibilidad de la documentación. Los documentos que componen el proyecto estarán disponibles para descarga del público en el sitio web de la Municipalidad. https://muniquepos.go.cr/ máximo cinco días hábiles posteriores a la fecha de firmeza del acuerdo de convocatoria a la audiencia pública.

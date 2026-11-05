@@ -1,0 +1,1 @@
+Artículo 12.—Medidas sanitarias. La Municipalidad velará porque la sesión presencial sea realizada con absoluto respeto de las medidas sanitarias vigentes a la fecha en que se realice la audiencia, específicamente se deberá respetar el aforo máximo del recinto.

@@ -1,0 +1,1 @@
+Artículo 3°—Mayor participación. Para maximizar las posibilidades de participación ciudadana, se dispone que la audiencia se realice de forma presencial para exponer la propuesta de Plan Regulador del Casco Urbano de Quepos, la modalidad virtual se utilizara únicamente como herramienta adicional

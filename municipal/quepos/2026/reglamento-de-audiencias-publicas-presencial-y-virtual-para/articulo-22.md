@@ -1,0 +1,1 @@
+Artículo 22.—Facultades de orden. Conforme lo dispone el inciso d) del artículo 34 del Código Municipal; a la Presidencia le corresponde Conceder la palabra y retirársela a quien haga uso de ella sin permiso, o se exceda en sus expresiones.

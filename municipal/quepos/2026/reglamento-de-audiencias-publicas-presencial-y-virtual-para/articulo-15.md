@@ -1,0 +1,1 @@
+Artículo 15.—Hora de inicio. La audiencia pública se desarrollará en una sesión extraordinaria del Concejo Municipal, consecuentemente el inicio de la misma y los mecanismos de comprobación de quorum se regirán por lo establecido en el artículo 38 del Código Municipal.

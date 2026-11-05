@@ -1,0 +1,1 @@
+Artículo 16.—Comunicación de reglas. Después de pasar lista a los y las integrantes del Concejo Municipal, la Presidencia abrirá la sesión exponiendo las reglas de cómo se llevará a cabo la actividad, indicando las etapas que la componen y el momento en el cual se abrirá el periodo de preguntas.

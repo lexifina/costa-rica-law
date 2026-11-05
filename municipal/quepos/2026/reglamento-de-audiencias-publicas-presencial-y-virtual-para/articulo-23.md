@@ -1,0 +1,1 @@
+Artículo 23.—Periodo de respuestas. Finalizado el período de preguntas, el equipo consultor responderá las preguntas que se requieran para facilitar la comprensión del proyecto. Sin embargo, aquellas preguntas de contenido técnico serán contestadas posterior a la audiencia en el informe final de ésta.
