@@ -1,0 +1,1 @@
+Artículo 29.—Evaluación periódica. La Alcaldía presentará al Concejo Municipal, al menos una vez al año, un informe de ejecución de la política preventiva, capacitación, evaluación de riesgos y mejoras implementadas. El informe no contendrá datos que permitan identificar a las partes, salvo habilitación legal expresa.

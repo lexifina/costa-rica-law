@@ -1,0 +1,1 @@
+Artículo 24.—Plazos. Los plazos de prescripción, caducidad, instrucción, resolución y recursos serán los previstos por la legislación aplicable a cada régimen. La Municipalidad impulsará los procedimientos con diligencia y evitará demoras injustificadas. Los plazos especiales de la Ley Nº 7476 y de la Ley Nº 10.235 prevalecerán en sus respectivos ámbitos.

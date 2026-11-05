@@ -1,0 +1,1 @@
+Transitorio II.—Dentro de los tres meses siguientes a la entrada en vigor del Convenio 190 para Costa Rica, el 2 de octubre de 2026, la Municipalidad deberá revisar y, en lo necesario, completar las acciones de prevención, información, formación y evaluación de riesgos laborales para asegurar su implementación.

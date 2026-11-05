@@ -1,0 +1,3 @@
+CAPÍTULO III
+Recepción, protección y confidencialidad
+Artículo 11.—Canales de recepción. Recursos Humanos será el canal ordinario para recibir denuncias por hostigamiento sexual y acoso laboral, salvo que la normativa especial disponga otra instancia o que la persona denunciada labore en esa dependencia, caso en el cual se utilizará la instancia jerárquica competente. Las denuncias por violencia contra las mujeres en la política se recibirán y remitirán conforme a los artículos correspondientes del Reglamento municipal de 2023. Si la denuncia involucra a la Alcaldía, a una persona integrante del Concejo o a otra autoridad electa, se respetarán las reglas especiales de competencia y remisión.

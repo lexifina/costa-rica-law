@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Violencia contra las mujeres en la política
+Artículo 25.—Régimen especial y coordinación. Se mantiene la aplicación del Reglamento municipal para prevenir, atender, sancionar y erradicar la violencia contra las mujeres en la política, aprobado por el Concejo Municipal en sesión ordinaria Nº 140 del 25 de enero de 2023, en conjunto con la Ley Nº 10.235. Sus definiciones, manifestaciones, medidas cautelares, confidencialidad, no revictimización, plazos, procedimientos, sanciones y reglas especiales para personas electas se aplicarán dentro de su ámbito, salvo reforma expresa posterior.

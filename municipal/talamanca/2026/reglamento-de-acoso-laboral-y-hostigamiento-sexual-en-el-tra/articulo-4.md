@@ -1,0 +1,6 @@
+Artículo 4º—Definiciones.
+a) Violencia y acoso en el ámbito de trabajo: Conjunto de comportamientos, prácticas inaceptables o amenazas, que se manifiesten una sola vez o repetidamente y tengan por objeto, causen o puedan causar daño físico, psicológico, sexual o económico, incluida la violencia y el acoso por razón de género.
+b) Acoso laboral: Conducta u omisión impropia vinculada al trabajo que, según su contexto, intensidad, reiteración y efectos, pueda constituir violencia, hostigamiento, degradación, intimidación, aislamiento, humillación o afectación ilegítima de las condiciones de trabajo. La calificación no se basará únicamente en la existencia de desacuerdos, controles legítimos de desempeño o decisiones organizativas debidamente justificadas.
+c) Hostigamiento sexual: Conducta sexual indeseada que se ajuste a la definición y supuestos previstos en la Ley Nº 7476 vigente.
+d) Violencia contra las mujeres en la política: La definida en la Ley Nº 10.235 y en el Reglamento municipal específico, cuando se afecten los derechos políticos de mujeres dentro de su ámbito de aplicación.
+e) Represalia: Acto u omisión perjudicial contra quien denuncie, declare en condición de testigo, aporte información o apoye de buena fe un procedimiento.
