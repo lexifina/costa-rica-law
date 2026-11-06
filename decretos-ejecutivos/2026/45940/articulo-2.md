@@ -1,0 +1,1 @@
+Artículo 2º—La Administración notificará el presente acto al Ministerio de Hacienda, a la Dirección General de Tributación y el Registro Nacional de la Propiedad, a efecto de que proceda conforme su competencia.

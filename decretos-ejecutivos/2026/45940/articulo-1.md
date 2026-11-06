@@ -1,0 +1,15 @@
+N° 45940-MJP
+LA PRESIDENTE DE LA REPÚBLICA
+El MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 11, 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso I), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública N° 6227 del 02 de mayo de 1978, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+1º—Que el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que el artículo 33 ter del Reglamento a la Ley de Asociaciones, indica: “En caso de que alguna asociación renuncie a la declaratoria de utilidad pública, deberá presentar la documentación correspondiente ante la Asesoría Jurídica del Ministerio de Justicia y Paz quien, sin más trámite, procederá a realizar la derogatoria.”
+III.—Que la Asociación de Atención Integral del Anciano San Cayetano, cédula jurídica número tres-cero cero dos-ochenta y siete mil novecientos diez se inscribió en el Registro de Asociaciones desde el día tres de agosto de dos mil cuatro, al tomo uno, asiento cuarenta y cinco.
+IV.—Que la Asociación de Atención Integral del Anciano San Cayetano, fue declarada de utilidad pública por el Ministerio de Justicia y Paz, mediante Decreto Ejecutivo N° 33964-J del ocho de agosto de dos mil siete. publicado en el Diario Oficial La Gaceta N° 184 del veinticinco de setiembre de dos mil siete.
+V.—Que la Asociación de Atención Integral del Anciano San Cayetano, incumplió con la presentación del informe anual de labores correspondiente al año dos mil veinticuatro, así como con el informe de control y verificación de requisitos para mantener la declaratoria de utilidad pública requerido mediante la Circular N° AJ-002-2025 y, por medio de su representante legal, el señor José Manuel Molina López, portador de la cédula de identidad número uno-cero trescientos noventa y cinco-mil cuatrocientos cuarenta y siete, expresamente renunció a la declaratoria de utilidad pública otorgada por el Ministerio de Justicia y Paz, con motivo de consideraciones internas. Por tanto,
+Decretan:
+DEROGAR LA DECLARATORIA DE UTILIDAD PÚBLICA
+DE LA ASOCIACIÓN DE ATENCIÓN INTEGRAL
+DEL ANCIANO SAN CAYETANO
+Artículo 1º—Derogar el Decreto Ejecutivo N° 33964-J del ocho de agosto de dos mil siete, publicado en el Diario Oficial La Gaceta N° 184 del veinticinco de setiembre de dos mil siete, mediante el cual se declaró de utilidad pública para los intereses del Estado a la Asociación De Atención Integral del Anciano San Cayetano, cédula jurídica número tres-cero cero dos-ochenta y siete mil novecientos diez.
