@@ -1,0 +1,2 @@
+CAPÍTULO XII. DISPOSICIONES TRANSITORIAS
+Transitorio I. En el supuesto de que la Contraloría General de la República y/o la Dirección de Contratación Pública del Ministerio de Hacienda autorice al Concejo Municipal de Distrito de Cervantes para que tramite y gestione los trámites del Comité de Deportes y Recreación, Cervantes, o que se determine formalmente la legalidad de dicha gestión, dicho Comité se considerará una unidad solicitante.

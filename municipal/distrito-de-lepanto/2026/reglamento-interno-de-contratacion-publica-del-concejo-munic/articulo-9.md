@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LA PROVEEDURÍA INSTITUCIONAL Y UNIDAD Y/O DEPARTAMENTO QUE SOLICITA EL
+SERVICIO SECCIÓN PRIMERA DE LA PROVEEDURÍA INSTITUCIONAL
+Artículo 9. Competencias del área de Proveeduría. La Proveeduría institucional es la dependencia responsable de conducir los trámites de los procesos de contratación pública que promueve el Concejo Municipal de Distrito de Cervantes, así como velar porque los mismos sean óptimos, oportunos, estandarizados y cumplan con todos los requisitos establecidos por el ordenamiento jurídico. La Proveeduría institucional tendrá plena competencia para conducir los trámites del procedimiento de contratación pública y podrá adoptar los actos y requerir los informes que resulten necesarios para preparar, así como recomendar los alcances de la decisión final. De igual forma, podrá realizar compras coordinadas con organizaciones adscritas al Concejo Municipal de Distrito de Cervantes o a través de la Dirección de Contratación Pública.

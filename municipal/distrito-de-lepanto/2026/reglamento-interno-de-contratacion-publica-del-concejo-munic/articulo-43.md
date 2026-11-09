@@ -1,0 +1,1 @@
+Artículo 43. Asignación de roles del Sistema Digital Unificado de compras. El titular de la Intendencia instruirá a la Proveeduría Institucional sobre la forma en que se realizará la asignación de roles del sistema unificado de compras.

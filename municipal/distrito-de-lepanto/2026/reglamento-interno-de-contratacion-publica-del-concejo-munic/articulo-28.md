@@ -1,0 +1,2 @@
+CAPÍTULO 1X. EJECUCIÓN CONTRACTUAL
+Artículo 28. Elementos del contrato. Todo contrato deberá contener al menos la identificación de las partes, acreditación de la capacidad de quienes suscriben el contrato, objeto contractual y tipo de contrato, precio, plazo de ejecución del contrato, condiciones de control durante la ejecución contractual, condiciones de entrega o prestación y condiciones de pago. El contrato deberá contener la descripción de los elementos esenciales de la relación contractual.

@@ -1,0 +1,1 @@
+Artículo 35. Fiscalización. Las responsabilidades de fiscalización del contrato recaen sobre la unidad solicitante, no obstante, si es oportuno y necesario, en el contrato se podrá estipular la persona funcionaria pública idónea para que realice dicha fiscalización.

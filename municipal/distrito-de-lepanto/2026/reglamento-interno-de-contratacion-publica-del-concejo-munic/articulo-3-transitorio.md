@@ -1,0 +1,1 @@
+Transitorio III. Se deberá emitir un reglamento específico para compras de fondos de caja chica en el plazo estipulado en el Transitorio V del Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N.º 43808-H.

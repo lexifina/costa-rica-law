@@ -1,0 +1,4 @@
+CAPÍTULO IV. PROGRAMA DE ADQUISICIONES
+Artículo 13. Elaboración de programa. Durante el mes de diciembre de cada año el departamento de Contabilidad y Presupuesto remitirá el Plan Anual Operativo y la información sobre el presupuesto anual aprobado o en fase de aprobación por parte de la Contraloría General de la República a todas las unidades solicitantes. Cada unidad solicitante coordinará con la Proveeduría institucional, el área financiera y la Intendencia la elaboración del programa de adquisiciones, el cual deberá ser entregado en la segunda semana de enero de cada año a la Proveeduría institucional, quien deberá unificar la programación y remitir la versión final a la Intendencia en la semana siguiente.
+La Intendencia y la Proveeduría deberán aprobar el programa de adquisiciones y realizar las
+gestiones necesarias para darlo a conocer a través del SDU antes del 31 de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 18. Obra pública. En el caso de contratos de obra pública, el precio de referencia corresponde al monto del presupuesto de obra o estimación de costo establecido por la Administración. Ese valor referencial debe corresponder a precios de mercado y tener una antigüedad no mayor a seis meses, contados a partir de su elaboración.

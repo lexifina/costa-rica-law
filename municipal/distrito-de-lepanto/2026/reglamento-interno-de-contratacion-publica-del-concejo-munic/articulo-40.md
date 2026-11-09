@@ -1,0 +1,1 @@
+Artículo 40. Plazos de contratación. En la tramitación de los procesos de contratación pública las personas funcionarias públicas deberán de acatar los plazos estipulados en la Ley General de Contratación Pública, N.º 9986 y el Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N.º 43808-H.

@@ -1,0 +1,1 @@
+Artículo 47. Firma Digital. El Concejo Municipal de Distrito de Cervantes realizará las gestiones administrativas y presupuestarias necesarias para que cada persona funcionaria pública con roles asignados en el SDU cuente con el certificado de firma digital, conforme a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N.º 8454.
