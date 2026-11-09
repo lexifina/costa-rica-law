@@ -17,3 +17,4 @@ Deshabilitación de las plataformas digitales tributarias e Implementación del 
 | 2 | 2025-08-27 | Resolución 43 (2025-08-27) |
 | 3 | 2025-09-24 | Resolución 50 (2025-09-24) |
 | 4 | 2026-03-11 | Resolución 3 (2026-03-11) |
+| 5 | 2026-11-09 | Resolución 36 (2026-11-09) |
