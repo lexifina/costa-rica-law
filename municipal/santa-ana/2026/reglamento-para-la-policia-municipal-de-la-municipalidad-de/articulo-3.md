@@ -1,0 +1,2 @@
+Artículo 3. Dependencia orgánica. En el ejercicio de sus funciones, la Policía Municipal de Santa Ana, actuará sometida al principio de legalidad y con absoluto respeto a los derechos humanos.
+Estará bajo la dirección superior de la persona que ocupe el cargo alcalde municipal, sin perjuicio de las competencias operativas y administrativas que le sean fijadas en la ley, el presente reglamento y en los instrumentos de organización interna del trabajo.

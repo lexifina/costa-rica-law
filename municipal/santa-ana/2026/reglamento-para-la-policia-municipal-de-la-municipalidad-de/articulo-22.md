@@ -1,0 +1,3 @@
+De la Policía Municipal de Tránsito
+Artículo 22. Policía Municipal de Tránsito. Es un cuerpo de vigilancia y seguridad integrada por los Inspectores Municipales de Tránsito que hayan sido investidos por la Dirección General de la Policía de Tránsito. Le competerá mantener el orden y seguridad en las vías nacionales y cantonales del cantón, de conformidad con las competencias asignadas en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078.
+Adicional a las labores de inspectores municipales de tránsito, las personas funcionarias habilitadas para ejercer labores de tránsito, deberán cumplir con las tareas ordinarias de policía municipal establecidas en el manual de puestos.

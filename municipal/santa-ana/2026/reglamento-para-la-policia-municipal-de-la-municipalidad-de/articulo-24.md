@@ -1,0 +1,2 @@
+Sistema de Videoprotección Ciudadana
+Artículo 24. Agentes de videoprotección. Los agentes de videoprotección de la Policía Municipal de Santa Ana será el personal competente y debidamente capacitado para la operación del Sistema de Videoprotección de la Policía Municipal de Santa Ana y brindarán sus servicios en el centro de comando del sistema, el cual estará ubicado dentro de las instalaciones de la Policía Municipal de Santa Ana.

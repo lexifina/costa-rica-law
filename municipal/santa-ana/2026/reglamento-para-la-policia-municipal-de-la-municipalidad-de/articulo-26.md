@@ -1,0 +1,8 @@
+Artículo 26. Prohibiciones en el Sistema de Videoprotección. Estará prohibido para todo funcionario municipal, ocupe o no un cargo de naturaleza policial, servidor de otra institución pública, contratista, visitante o cualquier persona que, debido a sus funciones o actividades, tenga acceso al Sistema de Videoprotección, lo siguiente:
+a) Ingresar a las instalaciones del Sistema de Videoprotección sin la debida autorización.
+b) Manipular las estaciones de trabajo y los sistemas de monitoreo con la intención de copiar, descargar, capturar, grabar imágenes, videos o cualquier otra forma de acceso indebido a la información generada o custodiada por Sistema de Videoprotección.
+c) Fotografiar, filmar, grabar o reproducir imágenes, equipos, pantallas, estaciones de trabajo, infraestructura tecnológica o cualquier información relacionada con el Sistema.
+d) Publicar, divulgar, compartir, distribuir, transmitir, comercializar o facilitar a terceros información obtenida del Sistema de Videoprotección
+e) Realizar cualquier acción que comprometa la seguridad, integridad, disponibilidad o confidencialidad de la información o de la infraestructura tecnológica municipal.
+f) Ingresar al Sistema de Videoprotección portando armas, salvo los funcionarios policiales que se encuentren en ejercicio de sus funciones, o bajo los efectos evidentes del alcohol o sustancias psicoactivas.
+La Policía Municipal de Santa Ana, colocará rótulos en los accesos al Sistema de Videoprotección advirtiendo que el área es de acceso restringido y colocará en un lugar visible las prohibiciones establecidas en el presente artículo y que son de aplicación para toda persona que ingrese a las instalaciones del centro de monitoreo y que sea ajena al servicio de videoprotección.

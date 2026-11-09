@@ -1,0 +1,1 @@
+Artículo 20. Tiempos de alimentación. Durante la jornada laboral, las personas funcionarias tendrán dos tiempos de descaso de quince minutos cada uno y una hora de almuerzo o cena según sea el caso. El superior inmediato en servicio, organizará los tiempos de alimentación y descanso del personal a cargo sin que ello implique la discontinuidad de la operatividad policial.

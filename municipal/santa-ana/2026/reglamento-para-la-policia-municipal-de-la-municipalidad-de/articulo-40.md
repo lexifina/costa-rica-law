@@ -1,0 +1,1 @@
+Artículo 40. Régimen salarial. La regulación de la materia salarial del personal destacado en la Policía Municipal de Santa Ana se regirá de conformidad con la leyes y reglamentos internos especiales que resulten aplicables a la relación de servicios de cada servidor destacado en la Policía Municipal de Santa Ana.
