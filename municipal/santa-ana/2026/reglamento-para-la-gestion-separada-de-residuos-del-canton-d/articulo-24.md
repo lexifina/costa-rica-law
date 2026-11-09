@@ -1,0 +1,5 @@
+Artículo 24.- Residuos peligrosos. La gestión de residuos peligrosos será responsabilidad estricta del generador, de conformidad con la Ley 8839 y la reglamentación nacional específica aplicable.
+1. Los generadores de residuos peligrosos en el cantón deberán cumplir todas las obligaciones de registro, manejo, almacenamiento, etiquetado, transporte y disposición final establecidas en la normativa nacional.
+2. Se prohíbe entregar residuos peligrosos a los servicios de recolección municipal de residuos ordinarios o disponerlos en sitios no autorizados.
+3. El transporte de residuos peligrosos dentro del cantón solo podrá ser realizado por gestores autorizados por el Ministerio de Salud para tal fin, cumpliendo todos los requisitos de seguridad y documentación, incluidos los manifiestos respectivos.
+4. La Municipalidad no recolectará ni gestionará residuos peligrosos, salvo que establezca, con autorización del Ministerio de Salud, programas específicos de recolección para pequeñas cantidades generadas en hogares, tales como baterías, bombillos fluorescentes o envases de pinturas, asegurando su posterior entrega a gestores autorizados.

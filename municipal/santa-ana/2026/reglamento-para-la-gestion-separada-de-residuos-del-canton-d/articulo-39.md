@@ -1,0 +1,2 @@
+Artículo 39.- Obligaciones de la persona infractora. La persona infractora tendrá la obligación de indemnizar y reparar el daño ambiental, así como de cubrir los costos en que incurra la Municipalidad para recoger, tratar, disponer correctamente o remediar los residuos gestionados en contravención del ordenamiento jurídico.
+La Municipalidad aprobará una tabla detallada de multas y costos para cada tipo de infracción y costos municipales, dentro de los rangos legales aplicables, mediante acuerdo del Concejo Municipal y publicación en el Diario Oficial La Gaceta.

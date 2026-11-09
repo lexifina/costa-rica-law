@@ -1,0 +1,1 @@
+Artículo 21.- Disposición final. La disposición final de los residuos no valorizables o de rechazo generados en el cantón se realizará únicamente en rellenos sanitarios u otras instalaciones que cuenten con todas las autorizaciones ambientales y sanitarias vigentes, de conformidad con la Ley 8839 y la normativa técnica aplicable.

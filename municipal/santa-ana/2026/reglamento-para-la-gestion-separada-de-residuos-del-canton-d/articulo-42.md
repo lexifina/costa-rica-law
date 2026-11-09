@@ -1,0 +1,1 @@
+Artículo 42.- Agravantes. Las multas podrán incrementarse hasta en un cien por ciento (100 %) cuando exista reincidencia, afectación a la salud pública, impacto a cuerpos de agua o cuando la persona infractora sea un gran generador.

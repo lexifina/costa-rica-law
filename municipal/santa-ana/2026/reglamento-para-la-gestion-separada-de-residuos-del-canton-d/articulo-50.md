@@ -1,0 +1,1 @@
+Artículo 50.- Supletoriedad. En lo no previsto expresamente en este reglamento se aplicarán supletoriamente la Ley 8839, la Ley General de la Administración Pública, el Código Municipal, la Ley General de Salud, la Ley Orgánica del Ambiente, y demás normativa conexa.

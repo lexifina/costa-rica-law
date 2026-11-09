@@ -1,0 +1,2 @@
+Artículo 16.- Transporte de residuos. El transporte de residuos dentro del cantón deberá realizarse en vehículos adecuados que impidan derrames, dispersión, malos olores e impacto visual negativo.
+Los vehículos deberán cumplir la normativa nacional y municipal aplicable, incluida la rotulación correspondiente cuando transporten residuos peligrosos o de manejo especial, y contar con los permisos respectivos.

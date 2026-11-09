@@ -1,0 +1,1 @@
+Transitorio II.- Los gestores de residuos que actualmente operen en el cantón tendrán un plazo de tres (3) meses, contado a partir de la entrada en vigor de este reglamento, para obtener el permiso o registro municipal de operación establecido en el artículo 25.

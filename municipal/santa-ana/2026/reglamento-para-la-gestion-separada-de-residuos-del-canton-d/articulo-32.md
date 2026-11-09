@@ -1,0 +1,1 @@
+Artículo 32.- Denuncia ciudadana. Cualquier persona podrá presentar denuncias formales sobre posibles incumplimientos a este reglamento mediante el sistema municipal de denuncias o los medios oficiales habilitados por la Municipalidad. Las denuncias serán trasladadas al Proceso de Gestión Ambiental para su valoración e investigación.

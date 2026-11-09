@@ -1,0 +1,1 @@
+Artículo 43.- Sanciones complementarias. Además de la multa, la Municipalidad podrá imponer o gestionar, según corresponda, clausura temporal o definitiva, suspensión de permisos, obligación de limpieza o restauración y denuncias ante las autoridades competentes.

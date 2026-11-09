@@ -1,0 +1,1 @@
+Artículo 51.- Derogatorias. Se deroga el Reglamento Municipal para la Gestión Separada de los Residuos en el cantón de Santa Ana, conforme a la Ley para la Gestión Integral de Residuos 8839, publicado en La Gaceta 145 del 28 de julio de 2011.

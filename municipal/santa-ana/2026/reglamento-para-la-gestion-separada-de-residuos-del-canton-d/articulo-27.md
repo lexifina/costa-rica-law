@@ -1,0 +1,1 @@
+Artículo 27.- Supervisión municipal de gestores. La Municipalidad, por medio de sus inspectores, supervisará las actividades de los gestores que operen en el cantón, con el fin de verificar el cumplimiento de este reglamento y de las condiciones de su permiso municipal, sin perjuicio de las competencias del Ministerio de Salud y de otras entidades públicas.

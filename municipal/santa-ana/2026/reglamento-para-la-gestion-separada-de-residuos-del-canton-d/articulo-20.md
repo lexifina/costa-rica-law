@@ -1,0 +1,1 @@
+Artículo 20.- Tratamiento. Los residuos que requieran tratamiento previo a su disposición final deberán ser tratados por gestores autorizados o en instalaciones municipales, si existieren y estuvieren habilitadas para ello, cumpliendo la normativa ambiental y sanitaria aplicable.

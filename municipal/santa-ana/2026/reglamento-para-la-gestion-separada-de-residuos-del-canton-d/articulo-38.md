@@ -1,0 +1,4 @@
+Artículo 38.- Monto de multas y costos. Los montos específicos de las multas se determinarán dentro de los rangos previstos por la Ley 8839, atendiendo criterios de proporcionalidad, razonabilidad, gravedad de la infracción, impacto ambiental, riesgo para la salud pública y reincidencia.
+1. Infracciones leves: multa de hasta cinco veces la tarifa más alta del servicio municipal de manejo de residuos, según la Ley 8839. En la Municipalidad de Santa Ana se utilizará como referencia la Tarifa Comercial e Industrial T8.
+2. Infracciones graves: multa de hasta ocho veces la tarifa más alta del servicio municipal de manejo de residuos, según la Ley 8839, utilizando como referencia la Tarifa Comercial e Industrial T8.
+3. Infracciones gravísimas: cuando corresponda, serán denunciadas ante el Tribunal Ambiental Administrativo, de conformidad con la Ley 8839, sin perjuicio de las acciones municipales, administrativas, civiles o penales que resulten procedentes.

@@ -1,0 +1,1 @@
+Artículo 49.- Actualización del reglamento. Este reglamento será revisado y actualizado periódicamente por la Municipalidad, con el fin de adecuarlo a cambios en la legislación nacional, las tecnologías disponibles y las necesidades del cantón.

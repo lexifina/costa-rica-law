@@ -1,0 +1,1 @@
+Artículo 48.- Coordinación interinstitucional. La Municipalidad coordinará sus acciones con el Ministerio de Salud, el Ministerio de Ambiente y Energía, el Ministerio de Educación Pública y otras entidades públicas y privadas relevantes para la efectiva implementación de este reglamento y de la Ley 8839.
