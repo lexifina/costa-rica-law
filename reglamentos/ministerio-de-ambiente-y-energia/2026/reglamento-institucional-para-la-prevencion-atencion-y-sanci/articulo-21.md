@@ -1,0 +1,2 @@
+Artículo 21. Investigación preliminar
+Cuando los hechos denunciados no sean suficientemente claros o se requiera recopilar información inicial indispensable para valorar la admisibilidad o determinar la procedencia de instar un procedimiento disciplinario, la Comisión podrá realizar diligencias preliminares o recomendar al jerarca la conformación de una investigación preliminar, respetando el principio de confidencialidad y los derechos de las partes.

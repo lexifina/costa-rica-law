@@ -1,0 +1,2 @@
+Artículo 33. Remisión a otras instancias competentes
+Si durante el trámite de un asunto se deduce que los hechos denunciados pueden configurar infracciones de otra índole (tales como hostigamiento sexual, delitos comunes o faltas a la hacienda pública), la Comisión o el jerarca remitirán inmediatamente el asunto o testimonio de piezas a la autoridad u órgano competente, sin perjuicio de continuar con las actuaciones que legalmente correspondan en el ámbito de sus atribuciones.

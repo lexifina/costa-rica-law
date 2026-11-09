@@ -1,0 +1,3 @@
+Artículo 30. Atención, orientación y acompañamiento integral
+El MINAE, a través de sus dependencias de Recursos Humanos, Salud Ocupacional o instancias afines, procurará brindar a las personas involucradas orientación, acompañamiento e información sobre los servicios de apoyo psicológico o de salud disponibles.
+La utilización de estos servicios será voluntaria y confidencial, no constituirá medio probatorio ni prejuzgamiento sobre el fondo del asunto denunciado, y podrá mantenerse durante y después de finalizado el procedimiento según las necesidades requeridas y la disponibilidad institucional.

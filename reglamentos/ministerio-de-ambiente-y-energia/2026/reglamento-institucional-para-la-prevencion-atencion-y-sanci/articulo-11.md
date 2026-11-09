@@ -1,0 +1,4 @@
+CAPÍTULO V: COMISIÓN INSTITUCIONAL CONTRA EL ACOSO LABORAL
+Artículo 11. Naturaleza y creación
+Créase la Comisión Institucional contra el Acoso Laboral del Ministerio de Ambiente y Energía, como instancia colegiada encargada de desarrollar las funciones de recepción, valoración preliminar, admisibilidad y seguimiento de las denuncias relacionadas con posibles situaciones de acoso laboral, así como las demás funciones que expresamente le atribuya este Reglamento. La Comisión ejercerá sus funciones con independencia técnica, imparcialidad, objetividad y confidencialidad, con respeto al debido proceso, la presunción de inocencia, la dignidad de las personas, la no revictimización y la prohibición de represalias.
+La Comisión no ejercerá potestad disciplinaria ni tendrá competencia para declarar responsabilidad administrativa o imponer sanciones.

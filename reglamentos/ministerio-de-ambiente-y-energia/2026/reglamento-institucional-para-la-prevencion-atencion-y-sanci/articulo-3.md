@@ -1,0 +1,3 @@
+Artículo 3. Ámbito material de las conductas
+Las conductas reguladas por este Reglamento podrán producirse dentro o fuera de las instalaciones institucionales, siempre que exista una vinculación objetiva con la relación laboral, el ejercicio de funciones públicas o actividades relacionadas con el servicio.
+Quedan comprendidas, entre otras, las conductas ocurridas durante el teletrabajo, giras, reuniones, capacitaciones, actividades institucionales y aquellas realizadas mediante correo electrónico, sistemas institucionales, plataformas digitales, mensajería instantánea u otros medios de comunicación relacionados con el trabajo.
