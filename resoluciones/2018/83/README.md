@@ -17,3 +17,4 @@ Lineamientos sobre gestiones que involucran a la auditoría interna presentadas 
 | 2 | 2023-06-30 | Resolución 55 (2023-06-30) |
 | 3 | 2023-10-27 | Resolución 102 (2023-10-27) |
 | 4 | 2025-05-02 | Resolución 40 (2025-05-02) |
+| 5 | 2026-11-09 | Resolución 131 (2026-11-09) |
