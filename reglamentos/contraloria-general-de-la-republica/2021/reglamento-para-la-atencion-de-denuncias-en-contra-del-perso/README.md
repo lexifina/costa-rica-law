@@ -14,3 +14,4 @@ Reglamento para la atención de denuncias en contra del personal de la Contralor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-02 | la propia norma |
+| 2 | 2026-11-10 | Reglamento 132 (2026-11-10) |
