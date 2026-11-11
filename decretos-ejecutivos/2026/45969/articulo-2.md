@@ -1,0 +1,1 @@
+Artículo 2°—Queda entendido que en aplicación del Decreto Ejecutivo Nº 40540-H “Contingencia Fiscal”, la presente declaratoria no implica ningún otorgamiento de beneficios fiscales, tales como exoneraciones u otros.
