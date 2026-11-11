@@ -1,0 +1,1 @@
+Artículo 14.- Notificación de las actuaciones del Tribunal. De todas las actuaciones del Tribunal citadas anteriormente se realizará la correspondiente notificación a las organizaciones magisteriales, según corresponda. El correo electrónico oficial del Tribunal Electoral será tribunal.electoral.representantescccu@mep.go.cr

@@ -1,0 +1,2 @@
+Artículo 16.-Requisitos para la designación del representante electoral. La organización magisterial mediante proceso interno correspondiente realizará la designación del representante electoral y lo comunicará mediante nota enviada por correo electrónico a este Tribunal Electoral.
+La nota que acredite la designación deberá indicar: el nombre completo de la persona designada, el número de identificación y la firma del representante de la organización magisterial.

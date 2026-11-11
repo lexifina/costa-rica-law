@@ -1,0 +1,1 @@
+Artículo 26.- Consignación en acta del Tribunal Electoral. La información del resultado del proceso de votación de la persona elegida como representante magisterial ante el Comité Ejecutivo de la CCCU se consignará en un acta que deberá ser firmada por todos los miembros del Tribunal Electoral presentes el día de la elección.

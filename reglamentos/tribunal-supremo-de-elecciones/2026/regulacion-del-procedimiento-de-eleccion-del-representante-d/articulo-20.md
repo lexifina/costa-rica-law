@@ -1,0 +1,2 @@
+Artículo 20.- Forma de sufragar. Una vez que el representante electoral reciba la papeleta procederá a ejercer su voto de forma nominal anotando de forma clara y legible el nombre completo del candidato de su elección, el nombre de la organización magisterial a la que se le concede el voto y consignará además su nombre completo.
+Seguidamente, procederá a depositar dicha papeleta en una urna que le facilitará el Tribunal Electoral.

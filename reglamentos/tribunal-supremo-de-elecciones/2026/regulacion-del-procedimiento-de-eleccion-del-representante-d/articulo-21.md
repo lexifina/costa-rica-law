@@ -1,0 +1,1 @@
+Artículo 21.- Constancia de participación. La persona secretaria del Tribunal Electoral le solicitará al representante electoral después de emitir su voto, que proceda a firmar el Padrón Electoral definitivo que haga constar su participación.

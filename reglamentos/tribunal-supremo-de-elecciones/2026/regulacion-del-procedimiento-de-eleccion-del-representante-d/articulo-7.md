@@ -1,0 +1,1 @@
+Artículo 7.- Acuerdos. Los acuerdos del Tribunal Electoral quedarán firmes una vez que sea aprobada el acta correspondiente en la sesión siguiente. Podrán declararse la firmeza de los acuerdos en la misma sesión con el voto de al menos tres de los miembros del Tribunal Electoral.

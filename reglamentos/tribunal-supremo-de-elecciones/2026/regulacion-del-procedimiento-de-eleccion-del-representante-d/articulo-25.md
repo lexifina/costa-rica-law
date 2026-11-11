@@ -1,0 +1,1 @@
+Artículo 25.- Declaratoria. La declaratoria oficial del resultado de la elección será notificada por el Tribunal Electoral a los presentes una vez concluido el escrutinio y quedará en firme con la notificación oficial a todas las organizaciones magisteriales participantes en el proceso electoral.

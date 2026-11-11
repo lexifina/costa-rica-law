@@ -1,0 +1,1 @@
+Artículo 11.- Período de inscripción. Transcurrido el plazo anterior cada organización magisterial dispondrá de un período de tres días hábiles para realizar la correspondiente solicitud de inscripción de los candidatos ante el Tribunal Electoral, lo anterior será comunicado mediante oficio.

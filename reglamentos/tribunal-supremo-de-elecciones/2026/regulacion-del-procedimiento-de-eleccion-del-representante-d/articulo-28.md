@@ -1,0 +1,1 @@
+Artículo 28.- Cierre de la jornada electoral. Una vez realizada la elección y comunicados los resultados a los presentes, se dará por finalizada la jornada electoral correspondiente y se deberá abandonar el recinto.

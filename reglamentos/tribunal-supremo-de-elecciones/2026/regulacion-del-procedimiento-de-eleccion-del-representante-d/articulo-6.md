@@ -1,0 +1,1 @@
+Artículo 6.- Quórum. Para que pueda sesionar válidamente el Tribunal Electoral deberán estar presentes al menos tres de los miembros. En caso de empate en una votación, la persona que ejerza la presidencia del Tribunal Electoral resolverá el empate mediante el ejercicio del voto de calidad.
