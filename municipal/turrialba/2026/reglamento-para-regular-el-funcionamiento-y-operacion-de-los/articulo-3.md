@@ -1,0 +1,15 @@
+CAPÍTULO II
+OPERACIÓN Y FUNCIONAMIENTO DE LOS CECUDI
+Artículo 3- Población usuaria: La población objetivo de los CECUDI serán las personas menores de edad desde los 0 hasta los 12 años de edad, priorizando aquellas que se encuentren en condición de pobreza, pobreza extrema, pobreza multidimensional, riesgo social y/o vulnerabilidad socioeconómica; según los criterios de priorización establecidos por la unidad ejecutora que brinde el financiamiento o la Municipalidad, según corresponda.
+La cantidad y rango de edad de las personas menores que serán admitidas en cada CECUDI estarán determinados por el permiso de habilitación que emita el Ministerio de Salud, de
+conformidad con las normas de habilitación de los Centros de Atención Integral.
+A continuación, se detallan los grupos de población según modalidad diurna o nocturna.
+CECUDI diurno: Se tomarán en consideración de manera prioritaria los siguientes grupos de población:
+1. Personas menores de edad de familias residentes de Turrialba seleccionadas y subsidiadas por alguna de las unidades ejecutoras de recursos de la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI); tales como el Instituto Mixto de Ayuda Social (IMAS) y el Patronato Nacional de la Infancia (PANI), según los parámetros de cada institución para acceder al subsidio correspondiente. De esta forma se determinará al menos el 40% de la totalidad de la matrícula de cada Centro, siempre y cuando la unidad ejecutora asigne los subsidios.
+2. Personas menores de edad de familias residentes de Turrialba que puedan costear por sus propios medios, de manera parcial o total del costo del servicio. Estos casos excepcionales se valorarán únicamente si existen cupos disponibles que no han sido asignados por unidades ejecutoras de la REDCUDI. Además, requieren una justificación técnica de su
+ingreso al servicio con base en criterios de vulnerabilidad social.
+CECUDI nocturno: Se tomarán en consideración de manera prioritaria los siguientes grupos de población:
+3. Personas menores de edad de familias residentes de Turrialba en condición de pobreza, pobreza extrema, pobreza multidimensional, riesgo social y/o vulnerabilidad socioeconómica que les limita costear por sus propios medios el servicio, según parámetros del ente competente.
+4. Personas menores de edad de familias residentes de Turrialba que puedan costear por sus propios medios la totalidad o de manera parcial el costo del servicio; previa valoración del Proceso del ente competente. Cuya madre, padre o representante legal se encuentre cursando una oferta educativa nocturna o trabajando en horario nocturno debidamente comprobado. Además, requieren una justificación técnica de su ingreso al servicio con base en criterios de vulnerabilidad social, emitido por el ente competente.
+Las personas menores de edad usuarias del CECUDI nocturno no podrán constituirse en usuarias del servicio del CECUDI diurno de manera simultánea.
+Los montos de referencia del costo del servicio, tanto para modalidad diurna como nocturna, serán los establecidos por la Secretaría técnica de la Red Nacional de Cuido y Desarrollo Infantil y el IMAS.

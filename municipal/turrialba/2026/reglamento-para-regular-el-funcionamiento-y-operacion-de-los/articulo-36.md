@@ -1,0 +1,3 @@
+Artículo 36- De las sanciones: Las sanciones al personal del Centro de Cuido serán aplicadas por el patrono respectivo, al no existir ninguna relación laboral entre la Municipalidad y el personal del Centro.
+Todas las sanciones se documentarán detalladamente en el expediente de la persona contratada, incluyendo las medidas correctivas tomadas y el seguimiento realizado.
+Las faltas en que incurran las personas funcionarias del Centro o su patrono (a), facultan a la Municipalidad de Turrialba para resolver el contrato, todo de conformidad con el contrato de servicios de operacionalidad suscrito entre ambas partes.

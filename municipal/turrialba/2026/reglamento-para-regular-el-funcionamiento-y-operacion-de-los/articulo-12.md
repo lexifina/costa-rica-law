@@ -1,0 +1,1 @@
+Artículo 12- Horario de lactancia: Cuando la persona menor de edad usuaria se encuentre en periodo de lactancia, la madre tendrá acceso en el horario que sea preciso, previa comunicación a la coordinación técnica del CECUDI. Para la debida alimentación de la persona lactante, la coordinación técnica del CECUDI habilitará el espacio físico con los requerimientos pertinentes.
