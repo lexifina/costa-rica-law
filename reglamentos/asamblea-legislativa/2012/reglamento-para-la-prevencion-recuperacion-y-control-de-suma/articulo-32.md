@@ -1,1 +1,0 @@
-Artículo 32.—Otros responsables. Todos los funcionarios de la Institución que, en el ejercicio de sus funciones o tareas, estén directa o indirectamente relacionados con la generación de movimientos o actos administrativos que impliquen sumas pagadas de más, serán responsables por estos hechos.

@@ -1,7 +1,0 @@
-Artículo 4º—Objeto. El presente Reglamento tiene por objeto:
-a) Identificar y analizar los riesgos más relevantes que potencialicen el giro indebido de sumas de dinero a funcionarios y exfuncionarios, a fin de adoptar las medidas y los mecanismos operativos considerados necesarios y oportunos para minimizar el riesgo detectado.
-b) Fortalecer el funcionamiento, la coordinación y la acción interdepartamental en el proceso de control interno del régimen económico-financiero que tienda a la prevención del giro, recuperación y control de todas las sumas de dinero pagadas de más a favor de funcionarios y exfuncionarios de la Institución, según la definición del párrafo s) del artículo 3 del presente Reglamento.
-c) Establecer claramente las relaciones de jerarquía, asignar la autoridad y responsabilidad de los funcionarios y proporcionar los canales adecuados de comunicación, para que los procesos se lleven a cabo, conforme al ordenamiento jurídico y técnico aplicable.
-d) Establecer el procedimiento normativo idóneo para evitar el pago o bien proceder a la recuperación de las sumas pagadas de más a funcionarios y exfuncionarios de la Institución.
-e) Cumplir los objetivos contenidos en el artículo 8 de la Ley General de Control Interno, los cuales regulan el actuar institucional en la materia de este Reglamento.
-f) Propiciar una sana administración del recurso económico de la Institución.

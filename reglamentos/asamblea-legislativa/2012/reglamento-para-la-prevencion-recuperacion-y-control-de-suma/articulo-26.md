@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Cobro judicial
-Artículo 26.—Requerimiento de cobro judicial. Cuando Recursos Humanos, haya realizado y agotado todos los trámites necesarios para el cobro administrativo y el funcionario o exfuncionario no haya cancelado lo que adeuda a la Institución, dicha instancia administrativa deberá enviar, en un plazo máximo de ocho días hábiles después de la última gestión procesal a la Dirección Ejecutiva, un informe relativo a las gestiones realizadas por vía administrativa; asimismo, se le solicitará se proceda con las gestiones ante la Asesoría Legal para procurar la recuperación de la suma por la vía judicial.
