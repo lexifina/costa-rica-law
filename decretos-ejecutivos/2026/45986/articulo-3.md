@@ -1,0 +1,1 @@
+Artículo 3-Deroguese el inciso c) del artículo 11 del Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), Decreto Ejecutivo N° 31857-MAG del 19 de mayo del 2004.
