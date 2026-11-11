@@ -1,0 +1,2 @@
+Artículo 31. Finiquito. La persona administradora del contrato gestionará en tiempo la formalización del finiquito cuando corresponda, y prepara el informe final con la liquidación del contrato, incorporando lo resuelto sobre reajustes o revisiones de precios.
+El finiquito lo suscribirán, junto con el contratista, el órgano o la persona competente para la formalización contractual, según la distribución establecida en este reglamento.

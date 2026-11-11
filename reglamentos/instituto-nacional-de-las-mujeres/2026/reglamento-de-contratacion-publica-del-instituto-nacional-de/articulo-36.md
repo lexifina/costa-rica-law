@@ -1,0 +1,35 @@
+Artículo 36. Responsabilidades del Departamento de Proveeduría. El Departamento de Proveeduría es la dependencia encargada de conducir los procedimientos de contratación pública del INAMU. Tramita todos los procedimientos de compra de bienes, servicios y obras que la institución requiera, y además debe evaluar, actualizar, estandarizar y difundir los procedimientos necesarios para el óptimo abastecimiento institucional. Tiene a su cargo las siguientes responsabilidades:
+a) Consolidar los requerimientos institucionales, elaborar el plan anual de adquisiciones, publicarlo en el sistema digital unificado y gestionar sus modificaciones; definir el cronograma anual de compras y dar seguimiento a su cumplimiento por parte de las dependencias solicitantes.
+b) Tomar las medidas necesarias para evitar la fragmentación ilícita: agrupar por afinidad las necesidades de todas las dependencias y promover las economías de escala.
+c) Comunicar por el sistema digital unificado las alertas tempranas de los procedimientos por promover, cuando corresponda, y coordinar las audiencias previas al pliego de condiciones.
+d) Valorar y gestionar las compras coordinadas con otras instituciones o por medio de la Dirección de Contratación Pública, y motivar la adhesión o no adhesión a los convenios marco, manteniendo actualizado el expediente correspondiente.
+e) Registrar en el sistema digital unificado las compras por caja chica cuando proceda, conforme a las disposiciones aplicables.
+f) Recibir y analizar las solicitudes de contratación; verificar los requisitos previos, el contenido presupuestario, el vínculo con el plan de compras y la completitud de la información; y definir los formularios de la decisión inicial.
+g) Verificar la estimación del negocio y definir el tipo de procedimiento conforme a los umbrales vigentes de la CGR y a la información aportada por las dependencias solicitantes.
+h) Elaborar el pliego de condiciones con los insumos de las dependencias solicitantes y las unidades técnicas, procurando la más amplia participación y la incorporación de los criterios de compra pública estratégica.
+i) Publicar la invitación y gestionar las modificaciones, aclaraciones y prórrogas del plazo de recepción de ofertas, con su debida divulgación.
+j) Realizar la apertura de las ofertas y, cuando proceda, dejar sin efecto el concurso antes de la apertura mediante resolución motivada.
+k) Resolver de forma motivada las solicitudes de confidencialidad de información presentadas por los oferentes.
+l) Realizar las prevenciones de subsanación y aclaración de ofertas, en coordinación con las unidades responsables del estudio, y trasladar las respuestas.
+m) Realizar el estudio de los requisitos administrativos y legales de las ofertas: declaraciones juradas, régimen de prohibiciones, inhabilitaciones, condición PYME, beneficiarios finales, grupos de interés económico, vigencia de las ofertas y situación de los oferentes ante la seguridad social y la administración tributaria y, en las contrataciones con entes de derecho público, la declaración del ente público sobre las prestaciones que ejecuta por sí mismo, los subcontratos y la propiedad de los bienes, conforme al artículo 11 de este reglamento.
+n) Tramitar la mejora de precios cuando el pliego la prevea, y apercibir a los oferentes para mantener o restablecer la vigencia de sus ofertas. o) Elaborar el análisis integral de las ofertas con la recomendación para el acto final, a partir de los criterios técnicos y legales, y elevarlo al órgano competente.
+p) Notificar el acto final, controlar su firmeza y gestionar la declaratoria de insubsistencia y la readjudicación o nueva adjudicación ante el órgano competente.
+q) Gestionar la formalización contractual y el documento de pedido; suscribir las órdenes de pedido; coordinar la revisión del presupuesto detallado del adjudicatario; y remitir el contrato a refrendo interno o contralor dentro de los tres días hábiles siguientes a su suscripción.
+r) Recibir por el sistema las garantías, aprobar su sustitución y gestionar su devolución o ejecución con el debido proceso.
+s) Tramitar los pagos a proveedores, verificando los requisitos de la gestión de pago remitida por la dependencia solicitante.
+t) Realizar la revisión preliminar de las solicitudes de modificación contractual y elevarlas al órgano competente; tramitar las prórrogas, suspensiones, cesiones, rescisiones y resoluciones contractuales.
+u) Instruir los procedimientos de aplicación de multas y cláusulas penales — incluidas las multas por recursos temerarios— con audiencia a la parte, y trasladarlos al órgano decisor.
+v) Gestionar los remates: presidirlos, levantar las actas, monitorearlos, entregar los bienes y cobrar los daños ante el incumplimiento del adjudicatario.
+w) Remitir a la DAF los insumos para las resoluciones de pago en casos de contratación irregular.
+x) Gestionar la declaratoria de caducidad del procedimiento o del contrato ante la inactividad, previa alerta de la persona administradora del contrato.
+y) Realizar el recibo de bienes en el Almacén de Suministros y gestionarlo en el sistema digital unificado, en coordinación con la dependencia solicitante o la unidad técnica.
+z) Recibir y tramitar las solicitudes de reajuste, revisión de precios y reclamos administrativos, y coordinar su atención con la persona administradora del contrato.
+aa) Tramitar los recursos de objeción y revocatoria, trasladarlos al DAJ para la elaboración de los proyectos de resolución, y gestionar la información y las audiencias de los recursos que se tramitan ante la CGR, registrando las respuestas en el sistema digital unificado.
+bb) Solicitar al DAJ el inicio del procedimiento sancionatorio contra particulares y registrar las sanciones firmes ante la Dirección de Contratación Pública dentro del día hábil siguiente a su firmeza.
+cc) Mantener actualizado el expediente electrónico en lo de su competencia y atender las consultas internas y externas sobre el estado de los procedimientos.
+dd) Informar a la institución sobre los cambios normativos, promover el cumplimiento de la normativa y gestionar la capacitación en contratación pública.
+ee) Informar a la Comisión para Promover la Competencia cuando existan indicios de colusión o de prácticas anticompetitivas, con los estudios que lo sustenten.
+ff) Consultar a la Dirección de Contratación Pública los reglamentos para emplear figuras contractuales atípicas y gestionar las autorizaciones de exclusión del uso del sistema digital unificado ante caso fortuito o fuerza mayor.
+gg) Gestionar las deducciones por revisiones de precios a la baja en las facturas de pago, o excepcionalmente en el cierre financiero del finiquito; y ejecutar los cobros de multas o reajustes contra retenciones o la garantía cuando no haya facturas pendientes.
+hh) Definir los formularios para que las personas administradoras de contrato realicen la recepción provisional y definitiva, y garantizar que toda contratación cuente con una persona administradora designada.
+ii) Cualquier otra derivada de la LGCP, su Reglamento y la demás normativa aplicable.

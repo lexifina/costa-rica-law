@@ -1,0 +1,1 @@
+Artículo 18. Recomendación de adjudicación. El Departamento de Proveeduría redactará la recomendación de adjudicación —o de declaratoria de desierto o infructuoso— a partir del resultado de los estudios de las ofertas, y la traslada al órgano competente para dictar el acto final.

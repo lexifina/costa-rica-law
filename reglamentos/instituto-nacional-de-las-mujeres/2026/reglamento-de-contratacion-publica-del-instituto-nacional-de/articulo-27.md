@@ -1,0 +1,3 @@
+Artículo 27. Gestión del pago. La persona administradora del contrato aprobará los informes y las facturas necesarios para gestionar el pago oportuno de los bienes, servicios y obras recibidos a satisfacción, por medio del sistema digital unificado.
+Antes de aprobar cada pago verifica que el contratista esté al día con la Caja Costarricense de Seguro Social, FODESAF y la administración tributaria, y que se compruebe la existencia de sanciones económicas firmes y exigibles que legalmente deban deducirse, sin que una mera investigación pendiente justifique por sí sola la retención del pago.
+El Departamento de Proveeduría tramitará los pagos verificando los requisitos de la gestión, y el Departamento Financiero Contable los ejecutará dentro de los plazos legales.

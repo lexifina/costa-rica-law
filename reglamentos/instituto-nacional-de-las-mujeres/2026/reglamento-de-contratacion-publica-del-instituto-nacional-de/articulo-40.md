@@ -1,0 +1,11 @@
+Artículo 40. Responsabilidades del Departamento de Asuntos Jurídicos. El DAJ actúa como órgano asesor e instructor en los procesos de contratación, en el ámbito de sus atribuciones y, para la instrucción de procedimientos, cuando sea formalmente designado como órgano competente: emite criterios, otorga el refrendo interno e instruye los procedimientos que legalmente correspondan. No dicta actos finales decisorios, los cuales corresponden al órgano decisor competente. Tiene a su cargo las siguientes responsabilidades:
+a) Emitir los criterios legales sobre las ofertas cuando el Departamento de Proveeduría o las autoridades lo requieran.
+b) Otorgar el refrendo interno de los contratos cuando la normativa lo autorice, verificando que el clausulado se ajuste al ordenamiento, al pliego y a la oferta adjudicada, y preparar el borrador de la solicitud de refrendo contralor.
+c) Elaborar los criterios y proyectos de resolución de los recursos (objeciones de licitaciones menores y reducidas y revocatorias) y preparar la respuesta institucional a las audiencias de la CGR.
+d) Instruir, a solicitud del Departamento de Proveeduría o de la dependencia solicitante, los procedimientos de incumplimiento, resolución y rescisión contractual, garantizando el debido proceso.
+e) Fungir como órgano director de los procedimientos sancionatorios contra particulares, una vez sea formalmente designada como órgano competente, y elevar la recomendación al órgano decisor, así como preparar los proyectos de resolución de los recursos que se presenten.
+f) Fungir como órgano director en los procedimientos de nulidad absoluta, evidente y manifiesta, una vez sea formalmente designada como órgano competente y gestionar el dictamen de la Procuraduría General de la República cuando proceda.
+g) Coordinar con el Departamento de Proveeduría el registro de las sanciones firmes ante la Dirección de Contratación Pública.
+h) Emitir criterio legal en cesiones, modificaciones complejas, patrocinios, rescisiones y reclamos administrativos cuando se le requiera.
+i) Apoyar el otorgamiento de las escrituras públicas de los bienes sujetos a inscripción registral.
+j) Cualquier otra derivada de la LGCP, su Reglamento y la demás normativa aplicable.

@@ -1,0 +1,16 @@
+Artículo 35. Responsabilidades de la Dirección Administrativa Financiera. La DAF, como órgano decisor por cuantía y órgano de coordinación administrativa del ciclo de las compras, tiene a su cargo las siguientes responsabilidades:
+a) Dictar de forma motivada el acto final en las licitaciones menores y reducidas y en las cuantías inestimadas equiparables, así como revocar el acto final no firme, declarar la insubsistencia, readjudicar y dictar la nueva adjudicación en esos procedimientos.
+b) Autorizar las contrataciones de urgencia y los procedimientos especiales o de excepción cuya cuantía corresponda a una licitación menor o reducida.
+c) Resolver los recursos de objeción contra el pliego de condiciones de las licitaciones menores, salvo que la persona recurrente pida que los conozca el jerarca, y resolver los recursos de revocatoria contra los actos finales que dictó, salvo cuando proceda su conocimiento por la Junta Directiva a solicitud de la persona recurrente.
+d) Autorizar las modificaciones contractuales ordinarias que no superen el veinte por ciento (20%) del monto y del plazo del contrato original, las prórrogas y las suspensiones del plazo de los contratos en ejecución, independientemente de quién los haya adjudicado, de forma motivada y fijando, cuando corresponda, las medidas de mantenimiento, el equilibrio financiero y la fecha de reinicio.
+e) Autorizar la cesión de los derechos y las obligaciones de los contratos, mediante acto razonado.
+f) Emitir el acto final motivado de resolución o rescisión contractual en los contratos que haya adjudicado.
+g) Emitir el acto final en los procedimientos de multas, cláusulas penales y ejecución de garantías de los contratos en ejecución, independientemente de quién los haya adjudicado, y resolver la revocatoria contra sus propios actos.
+h) Aprobar los reajustes y las revisiones de precios de los contratos en ejecución o ejecutados, y resolver los reclamos administrativos por desequilibrio económico, a partir de la recomendación y el criterio de la persona administradora del contrato.
+i) Emitir las resoluciones de indemnización por contratación irregular correspondientes a procedimientos de cuantía equiparable a licitación menor o reducida, cumpliendo el artículo 103 de la LGCP y ordenando la investigación de las eventuales responsabilidades, a partir de los informes de las unidades competentes.
+j) Supervisar la emisión y el control de las reservas presupuestarias y de las garantías depositadas en las cuentas de la institución.
+k) Emitir las directrices sobre los procedimientos de contratación que sean necesarias para garantizar el abastecimiento óptimo y oportuno de bienes, servicios y obras, y aprobar los instructivos y formularios que proponga el Departamento de Proveeduría.
+l) Procurar que el personal del Departamento de Proveeduría y las personas que intervienen en los procedimientos cuenten con la capacitación necesaria para el desempeño de sus funciones.
+m) Promover las propuestas necesarias para mantener actualizado este reglamento.
+n) Cualquier otra derivada de la LGCP, su Reglamento y la demás normativa aplicable.
+o) Firmar los contratos derivados de las licitaciones menores y reducidas y los documentos que correspondan a sus competencias en los procedimientos recursivos; las escrituras públicas serán suscritas por la Presidencia Ejecutiva.

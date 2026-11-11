@@ -1,0 +1,3 @@
+Artículo 5. Distribución de competencias. Con fundamento en los artículos 89 y 90 de la LGAP y 314 y 317 del RLGCP, la Junta Directiva distribuye en este reglamento las competencias internas en materia de contratación pública entre los órganos y las dependencias que se indican en cada artículo.
+Quedan reservadas de forma exclusiva a la Junta Directiva, y no pueden ser ejercidas por ningún otro órgano, las actuaciones que se detallan en el artículo 33 de este reglamento.
+Los órganos a los que este reglamento asigna competencias deben ejercerlas con estricto apego a la normativa de contratación pública y responden por sus actuaciones conforme al ordenamiento jurídico. La avocación de competencias se rige por lo dispuesto en la LGAP.

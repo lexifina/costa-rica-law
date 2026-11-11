@@ -1,0 +1,1 @@
+Artículo 14. Invitación y alertas tempranas. El Departamento de Proveeduría realizará la invitación de cada procedimiento por medio del sistema digital unificado. Cuando lo estime conveniente, comunica alertas tempranas y coordinará audiencias previas al pliego de condiciones, conforme al RLGCP.
