@@ -1,0 +1,2 @@
+Capítulo XIV. Control y sanciones
+Artículo 54. Auditorías. Las cuentas oficiales de redes sociales estarán sujetas a procesos de auditoría o revisión al menos una vez al año, con el fin de verificar el cumplimiento de las políticas de seguridad, la correcta administración de accesos y la adecuada utilización de los recursos tecnológicos. Las auditorías podrán ser realizadas por el Departamento de Tecnologías de la Información (TI) o la instancia que se designe para tales efectos.

@@ -1,0 +1,2 @@
+Artículo 17. Sustitución. La renovación o sustitución de los dispositivos móviles institucionales procederá únicamente en casos de obsolescencia tecnológica comprobada, fallas irreparables o daños no atribuibles a negligencia.
+Toda sustitución deberá estar debidamente justificada, documentada y aprobada por el Departamento de Tecnologías de Información (TI) y el Departamento de Servicios Generales.

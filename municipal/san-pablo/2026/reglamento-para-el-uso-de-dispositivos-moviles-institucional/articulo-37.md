@@ -1,0 +1,1 @@
+Artículo 37. Protocolos de salida. Los accesos de funcionarios que cesen sus funciones deberán eliminarse inmediatamente bajo la responsabilidad del Departamento de Tecnologías de la Información (TI) y la Dirección de Recursos Humanos.

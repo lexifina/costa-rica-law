@@ -1,0 +1,1 @@
+Artículo 47. Comentarios ofensivos. Únicamente podrán eliminarse u ocultarse aquellos comentarios que contengan lenguaje vulgar, expresiones discriminatorias, difamatorias o que inciten al odio, la violencia. Conservando un pantallazo o respaldo de dicha publicación antes de proceder a eliminar.

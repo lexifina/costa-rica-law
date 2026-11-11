@@ -1,0 +1,2 @@
+Capítulo XII. Interacción con la ciudadanía
+Artículo 46. Tiempos de respuesta. Las consultas, solicitudes o comentarios realizados por la ciudadanía a través de las redes sociales institucionales deberán recibir respuesta en un plazo máximo de 3 a 4 días hábiles, procurando siempre brindar información oportuna, clara y respetuosa. Cuando la respuesta requiera coordinación con otras dependencias municipales, el área responsable deberá informar al usuario sobre el estado de su gestión.

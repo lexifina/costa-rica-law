@@ -1,0 +1,1 @@
+Artículo 8. Horario. El uso estará limitado al horario laboral ordinario salvo autorización expresa. Excepto el dispositivo móvil del Departamento de Comunicación Institucional por la naturaleza del cargo.

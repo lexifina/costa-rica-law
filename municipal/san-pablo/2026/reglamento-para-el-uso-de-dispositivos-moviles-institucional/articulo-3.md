@@ -1,0 +1,1 @@
+Artículo 3. Naturaleza del bien. El dispositivo móvil constituye un bien público municipal y su uso se entenderá como un instrumento de trabajo para facilitar las labores de los funcionarios que reciben dicho activo. Por consiguiente, no es para beneficio personal ni es parte del salario; por lo tanto, no podrá cobrar el uso del bien.

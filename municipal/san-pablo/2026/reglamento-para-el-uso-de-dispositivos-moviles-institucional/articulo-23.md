@@ -1,0 +1,1 @@
+Artículo 23. Naturaleza del material audiovisual. Las grabaciones de audio y video constituyen información pública de carácter sensible y son propiedad exclusiva de la Municipalidad de San Pablo de Heredia. Su uso estará limitado a fines institucionales, administrativos, disciplinarios, tributarios o judiciales.

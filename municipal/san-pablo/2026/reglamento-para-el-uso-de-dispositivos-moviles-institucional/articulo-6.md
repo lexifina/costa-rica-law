@@ -1,0 +1,1 @@
+Artículo 6. Cambio de custodio. Cualquier traslado de dispositivo deberá quedar registrado mediante acta formal y ello será únicamente canalizado por el Departamento de Tecnologías de la Información (TI).

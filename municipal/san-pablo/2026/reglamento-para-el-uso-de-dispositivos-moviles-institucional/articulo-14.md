@@ -1,0 +1,1 @@
+Artículo 14. Reporte de incidentes. Robo, pérdida o acceso indebido deberá ser notificado a la Municipalidad a la dirección administrativa por medio de un oficio a más tardar el día hábil siguiente de que se produjo y presentar una denuncia ante una oficina judicial, además de reportar al proveedor del servicio para la suspensión de este.

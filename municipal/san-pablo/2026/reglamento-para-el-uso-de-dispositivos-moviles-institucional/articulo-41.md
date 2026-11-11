@@ -1,0 +1,1 @@
+Artículo 41. Redacción. Toda publicación oficial que pretenda informar a la población deberá guardar el principio de pirámide invertida que consiste en responder a las siguientes preguntas: qué, cuándo, dónde, cómo y por qué.

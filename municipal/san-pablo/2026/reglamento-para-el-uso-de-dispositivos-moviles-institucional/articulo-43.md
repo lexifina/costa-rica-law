@@ -1,0 +1,2 @@
+Capítulo XI. Contenido
+Artículo 43. Publicaciones autorizadas. Se considerarán autorizadas las publicaciones que correspondan a campañas oficiales, proyectos institucionales, comunicados de interés público, situaciones de emergencia, actividades culturales, educativas, ambientales o comunitarias promovidas por la Municipalidad. Todas las publicaciones deberán alinearse con los objetivos institucionales y contar con la aprobación de la persona encarga del Departamento de Comunicación Institucional o la instancia que la sustituya.

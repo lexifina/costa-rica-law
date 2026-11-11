@@ -1,0 +1,1 @@
+Artículo 30. Responsabilidad del funcionario. El funcionario asignado a un dispositivo de grabación será responsable de su uso adecuado con respecto a la carga y manipulación, la custodia y entrega, así como del cumplimiento de lo dispuesto en este reglamento. El uso indebido dará lugar a la aplicación del régimen sancionatorio correspondiente.

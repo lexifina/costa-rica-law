@@ -1,0 +1,2 @@
+Artículo 44. Publicaciones no autorizadas. No se permitirá la difusión de información que no haya sido previamente verificada o aprobada por el Departamento de Comunicación Institucional. Queda estrictamente prohibida la publicación o el reenvío de rumores, cadenas, mensajes con contenido falso, inexacto o tendencioso, así como cualquier información que no provenga de fuentes oficiales o que no esté respaldada por la institucionalidad municipal.
+Además, aquellas dispuestas por el Tribunal Supremo de Elecciones en cuanto a las vedas electorales.

@@ -1,0 +1,1 @@
+Artículo 28. Solicitud y acceso al material audiovisual. El acceso a las grabaciones solo podrá realizarse mediante solicitud formal y debidamente justificada, dirigida a la jefatura directa para fines de investigación administrativa, disciplinaria, judicial, auditoría, control institucional o uso privado.

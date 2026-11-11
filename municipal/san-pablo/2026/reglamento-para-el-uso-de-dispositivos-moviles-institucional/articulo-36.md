@@ -1,0 +1,1 @@
+Artículo 36. Roles. Se definirá administrador principal y editores autorizados. El manejo de toda cuenta institucional estará a cargo del Departamento de Comunicación Institucional, quien cuenta con el conocimiento de administrar y publicar contenido, estos serán bajo su responsabilidad con respeto y siguiendo los valores de la municipalidad.

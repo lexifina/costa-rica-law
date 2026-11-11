@@ -1,0 +1,1 @@
+Artículo 19. Auditorías. Se realizarán revisiones periódicas de configuración y uso por parte del Departamento de Tecnologías de la Información (TI) para validar el estado del dispositivo y su correcto uso, según las disposiciones de este reglamento.

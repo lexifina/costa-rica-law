@@ -1,0 +1,1 @@
+Artículo 25. Activación de la grabación. La grabación deberá activarse en todas las inspecciones, participación en operativos policiales, procedimientos administrativos, fiscalización tributaria, atención de incidentes u otras actuaciones que puedan generar responsabilidades administrativas, civiles o penales, salvo imposibilidad técnica o causa debidamente justificada.

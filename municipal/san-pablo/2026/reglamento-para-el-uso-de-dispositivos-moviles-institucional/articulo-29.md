@@ -1,0 +1,1 @@
+Artículo 29. Confidencialidad y protección de datos. El material audiovisual deberá tratarse conforme a los principios de confidencialidad y protección de datos personales. Su reproducción o difusión sin autorización expresa o sin orden judicial constituirá una falta grave.
