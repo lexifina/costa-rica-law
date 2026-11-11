@@ -1,0 +1,1 @@
+Artículo 13° Advertencia pública de la gestión de seguridad. En lugares que considere necesarios, la Municipalidad podrá, dentro de su jurisdicción, colocar letreros con avisos escritos en lenguaje claro y sencillo que le permitan al ciudadano conocer que está siendo video protegido por el sistema.

@@ -1,0 +1,1 @@
+Artículo 15° Procedimiento para extraer información del Centro de Monitoreo Electrónico. Para la extracción de información del Centro de Monitoreo deberá cumplirse estrictamente lo establecido en el procedimiento.

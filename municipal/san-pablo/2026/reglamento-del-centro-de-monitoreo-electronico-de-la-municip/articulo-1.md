@@ -1,0 +1,30 @@
+MUNICIPALIDAD DE SAN PABLO DE HEREDIA
+CONCEJO MUNICIPAL DE SAN PABLO DE HEREDIA
+SESIÓN ORDINARIA 43-26 CELEBRADA EL DÍA VEINTISIETE DE OCTUBRE
+DE 2026 A PARTIR DE LAS DIECIOCHO HORAS CON TREINTA
+Y NUEVE MINUTOS
+CONSIDERANDO
+1. Acuerdo Municipal CM-314-26 adoptado en la Sesión Ordinaria N° 39-26 celebrada el día 29 de setiembre de 2026, donde se solicita a la Administración Municipal, llevar a cabo la consulta pública no vinculante en el Diario Oficial La Gaceta del Reglamento para el Uso de Dispositivos Móviles y Redes Sociales Oficiales de la Municipalidad de San Pablo de Heredia.
+2. Acuerdo Municipal CM-315-26 adoptado en la Sesión Ordinaria N° 39-26 celebrada el día 29 de setiembre de 2026, donde se solicita a la Administración Municipal, llevar a cabo la consulta pública no vinculante en el Diario Oficial La Gaceta del Reglamento del Centro de Monitoreo Electrónico de la Municipalidad de San Pablo de Heredia.
+3. Oficio MSPH-AM-AA-057-2026, recibido vía correo el día 19 de octubre de 2026, suscrito por el Lic. Bernardo Porras López, Alcalde Municipal, donde brinda seguimiento a lo solicitado mediante acuerdos municipales CM-314-26 y CM-315-26.
+ESTE CONCEJO MUNICIPAL ACUERDA
+1. Dar por cumplidos los acuerdos municipales CM-314-26 y CM-315-26 ya que mediante el oficio de marras se remite la prueba documental de cumplimiento respectivo.
+2. Solicitar a la Administración Municipal realice la publicación definitiva en el Diario Oficial La Gaceta de los siguientes reglamentos:
+CONSIDERANDO
+b) Reglamento del Centro de Monitoreo Electrónico de la Municipalidad de San Pablo de Heredia, el cual dispone:
+Reglamento del Centro de Monitoreo Electrónico de la Municipalidad de San Pablo
+de Heredia
+Consideraciones:
+1. La constante labor en seguridad ciudadana desplegada por la Policía Municipal de San Pablo de Heredia ha logrado mantener una disminución en lo que respecta a delitos contra la propiedad y contra la vida dentro del cantón, sin embargo, la tendencia en el alza de la incidencia criminal a nivel nacional en estas categorías delictivas trae como consecuencia un claro deterioro en el nivel de seguridad. Preventivamente, como respuesta a esa situación, se han implementado a nivel policial una serie de estrategias y procesos operativos con el objetivo de identificar, prevenir y eventualmente coadyuvar en la investigación de los diferentes delitos ocurridos y así garantizar dentro de los límites territoriales del cantón el debido resguardo al derecho a la paz y la seguridad de habitantes, patentados y visitantes.
+2. Como parte de estas estrategias operativas, el Municipio, haciendo uso de nuevas tecnologías, ha instalado dispositivos de video protección en distintos parques, vías y otros espacios públicos del cantón, lo que permite mayor eficiencia y efectividad en las acciones policiales y sociales, de prevención y represión delictiva, en la protección integral de bienes y personas y en el incremento de la seguridad ciudadana.
+3. Por lo anterior, resulta necesaria para el pleno y correcto uso y funcionamiento del Centro de Monitoreo de la Policía Municipal de San Pablo de Heredia; la reglamentación pertinente para garantizar los derechos fundamentales de los ciudadanos. Con la emisión de normativa atinente y proporcionada, se garantiza que la información generada por el Centro de Monitoreo será utilizada en procesos de investigación judicial o administrativa, en gestiones relacionadas con el cumplimiento de leyes y reglamentos municipales y en general en cualquier otro tipo de investigación, causa o proceso que sirva para el cumplimiento de los objetivos de la administración pública y municipal. Todo ello en estricto apego al Ordenamiento Jurídico y siempre en aras de procurar el mayor bienestar de todos los munícipes del cantón.
+Artículo 1º Conceptos. Para los efectos de interpretación y aplicación del presente Reglamento se establecen los siguientes conceptos:
+a) Cantón: Se refiere al cantón de San Pablo de Heredia.
+b) Datos sensibles: información relativa al fuero íntimo de la persona, como por ejemplo los que revelen origen racial, opiniones políticas, convicciones religiosas o espirituales, condición socioeconómica, información biomédica o genética, vida y orientación sexual, entre otros.
+c) Municipalidad: Se refiere a la Municipalidad de San Pablo de Heredia en su calidad de persona jurídica estatal, con patrimonio propio y personalidad, y capacidad jurídica plenas para ejecutar todo tipo de actos y contratos necesarios para cumplir sus fines.
+d) Monitoreo electrónico: Se refiere al Centro de Monitoreo. Está conformado por toda la infraestructura informática y audiovisual y el personal que maneja en Sistema.
+e) Auxiliar de monitoreo: Es todo aquel funcionario municipal que temporal o permanentemente, se encuentre operando cualquiera de los equipos que conforman el Centro de Monitoreo.
+f) Dispositivos de video: Entiéndase todos los dispositivos tanto fijos como móviles y/o portátiles, destinados a la captura y registro de imágenes y video instalados en cualquier infraestructura temporal o permanente, vehículos o equipo móvil proporcionado por la Municipalidad para el ejercicio de las funciones de seguridad ciudadana. Se incluyen, además, en esta categoría, las cámaras personales o g) Video protección: Acción de visualizar, almacenar y reproducir imágenes de sectores del territorio del cantón a través de dispositivos tecnológicos de video con el propósito de observar, disuadir, prevenir, registrar y eventualmente intervenir en hechos que puedan constituir delitos, contravenciones, faltas, infracciones, violencia intrafamiliar, accidentes de tránsito, violación a leyes y reglamentos municipales, de salubridad o cualquier situación fáctica que pueda comprometer la seguridad integral de bienes y personas que se encuentren de forma temporal o permanente dentro del ámbito territorial del cantón.
+h) OIJ: Organismo de Investigación Judicial.
+i) PCD: Policía de Control de Drogas.
+j) Ciudadano: Cualquier habitante temporal o permanente con independencia del otivo o naturaleza de su permanencia en el cantón.
