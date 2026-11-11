@@ -1,0 +1,5 @@
+Artículo 5.- Causales de Cuentas por cobrar para terceras personas (personas usuarias de los servicios o personas exfuncionarias de la institución). Para efectos de este reglamento serán causales que generan montos a cobrar para este grupo de personas, las siguientes:
+a) Incumplimiento de las obligaciones derivadas del programa FOMUJERES que, conforme a su normativa especial, al convenio o contrato correspondiente y al debido procedimiento, genere una obligación de reintegro debidamente determinada, líquida y exigible. El carácter no reembolsable del financiamiento impide considerarlo deuda por el solo hecho de haber sido otorgado.
+b) Incumplimiento de Convenios de diferentes organizaciones, en las cuales media la transferencia de recursos a personas usuarias o a la figura jurídica correspondiente.
+c) Daños causados al patrimonio institucional.
+d) Personas exfuncionarias respecto de quienes, una vez finalizada la relación laboral, se determine conforme al procedimiento correspondiente responsabilidad patrimonial por daños o perjuicios causados a bienes o al patrimonio institucional durante el ejercicio de sus funciones, cuando haya mediado dolo o culpa grave.

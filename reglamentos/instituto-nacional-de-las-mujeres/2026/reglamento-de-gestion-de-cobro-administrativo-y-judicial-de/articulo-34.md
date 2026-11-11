@@ -1,0 +1,4 @@
+CAPITULO V
+PROCESO DE COBRO JUDICIAL
+Artículo 34.- Del cobro judicial. Le corresponde al Departamento de Asuntos Jurídicos el control y seguimiento de todas las gestiones de cobro judicial. Estas gestiones serán coordinadas y ejecutadas por el personal profesional en Derecho del Departamento, bajo la supervisión de su Jefatura.
+Para la representación procesal de la Institución, la Presidencia Ejecutiva designará, conforme la propuesta de la Jefatura del Departamento de Asuntos Jurídicos, a las personas funcionarias abogadas que actuarán en calidad de apoderadas con poder especial judicial para el caso concreto. En las correspondientes demandas y escritos iniciales se hará constar esta representación. La vía jurisdiccional y el tipo de proceso se determinarán de acuerdo con la naturaleza de la obligación y la competencia material legalmente atribuida, sin presumir que toda reclamación corresponde a un proceso monitorio civil.

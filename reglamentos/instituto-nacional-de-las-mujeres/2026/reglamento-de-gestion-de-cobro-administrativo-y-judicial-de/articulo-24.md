@@ -1,0 +1,1 @@
+Artículo 24.- Autorización y aprobación. La Dirección Administrativa o la Dirección Estratégica aprobará, según corresponda, los arreglos de pago de montos iguales o inferiores a tres salarios base, y la Presidencia Ejecutiva los que superen dicho monto, conforme a la distribución de competencias establecida en el artículo 18 de este Reglamento.

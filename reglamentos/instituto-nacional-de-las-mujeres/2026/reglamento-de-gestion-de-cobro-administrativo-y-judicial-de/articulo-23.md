@@ -1,0 +1,3 @@
+Artículo 23.- Trámites previos al Arreglo de Pago: Para iniciar el trámite de una solicitud de arreglo de pago ante el INAMU, la persona interesada deberá de presentar a la instancia correspondiente la debida solicitud, para lo cual deberá de cumplir los siguientes requisitos:
+a) Presentar una propuesta de arreglo de pago, oficiosamente o cuando se le prevenga en el procedimiento de cobro.
+b) Adjuntar la documentación que demuestre que puede atender la deuda satisfactoriamente. Dicha documentación se refiere a constancias de ingresos, deudas que tenga con entidades financieras, pensiones alimenticias, embargos y otras más que acrediten su imposibilidad de poder cancelar en un solo tracto.
