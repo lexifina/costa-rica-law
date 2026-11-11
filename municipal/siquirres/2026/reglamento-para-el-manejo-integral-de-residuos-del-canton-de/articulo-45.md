@@ -1,0 +1,4 @@
+Artículo 45°. Sobre la gestión integral de residuos bio-infecciosos.
+La gestión sobre residuos de tipo bio-Infecciosos e infectocontagiosos será responsabilidad del generador, quien deberá garantizar su recolección, transporte, tratamiento y disposición final, en forma directa, o mediante un gestor autorizado de residuos, en concordancia con el "Reglamento sobre la gestión de los desechos infectocontagiosos que se generan en establecimientos que prestan atención a la salud y afines", Decreto N°30965-S Reglamento sobre la gestión de los desechos infectocontagiosos que se generan en establecimientos que presten atención a la salud y afines.
+a) Actividades domiciliares: será responsabilidad de cada generador entregarlos a su centro de salud al que se encuentra adscrito.
+b) Actividades no domiciliares: los residuos generados en este tipo de actividades será responsabilidad de cada generador, garantizando el proceso adecuado para la disposición final de los mismos.

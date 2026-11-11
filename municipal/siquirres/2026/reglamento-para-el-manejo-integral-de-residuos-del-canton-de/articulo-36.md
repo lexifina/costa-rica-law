@@ -1,0 +1,1 @@
+Artículo 36°. Las empresas agrícolas, ganaderas, industriales y comerciales, deberán disponer del programa para el manejo integral de residuos sólidos provenientes de sus operaciones, aprobado por el Ministerio de Salud y/o SENASA.

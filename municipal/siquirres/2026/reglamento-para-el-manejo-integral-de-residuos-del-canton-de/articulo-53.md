@@ -1,0 +1,2 @@
+Artículo 53°. La Municipalidad actualizará el Reglamento Municipal de Tasas del servicio de recolección, acarreo, tratamiento y disposición de los residuos, con base en un estudio específico donde clasificará las unidades habitacionales, instituciones públicas o privadas y comerciales, y preferenciales en categorías según la proporción estimada de residuos que se generen por semana.
+Esta actualización se realizará de acuerdo a las necesidades detectadas en la aplicación de las recalificaciones a nivel cantonal, considerando todas las categorías.

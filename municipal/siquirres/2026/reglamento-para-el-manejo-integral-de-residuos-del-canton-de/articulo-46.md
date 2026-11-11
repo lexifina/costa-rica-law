@@ -1,0 +1,5 @@
+Artículo 46°. Sobre la gestión integral de residuos peligrosos.
+a) La responsabilidad por el manejo de los residuos peligrosos recae sobre el generador, así como el importador o productor, para brindarle una adecuada y sanitaria disposición final a los mismos.
+b) Sobre los envases de agroquímicos cúmplase: Con relación al Artículo 23° DE Reglamento de salud ocupacional en el manejo y uso de agroquímicos, sobre las medidas de Salud Ocupacional en el Manejo de Envases o Empaques Vacíos; (Decreto Ejecutivo N° 41931 – MTSS Publicado en La Gaceta Nº 202, Alcance 233, 24 de octubre de 2019).
+c) Las personas físicas o jurídicas que generen residuos peligrosos tienen la responsabilidad por los daños que ocasionen a la vida, la salud o los derechos de terceros, durante todo el ciclo de vida de dichos residuos.
+d) La municipalidad no está en la obligación de prestar el servicio de recolección de residuos peligrosos provenientes de industria, servicios de salud, comerciales, ni otra actividad alguna, sin excepción.

@@ -1,0 +1,1 @@
+Artículo 40°. La Municipalidad de Siquirres a través de la USAM y con el apoyo de la Comisión Interinstitucional, establecerán y realizarán un programa permanente de sensibilización y capacitación en el manejo integral de residuos.

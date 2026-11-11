@@ -1,0 +1,1 @@
+Artículo 51°. La municipalidad, creará e implementará un sistema de tarifas diferenciadas para aquellos usuarios del servicio de recolección que reduzcan el volumen o peso de residuos sólidos que generen, en cumplimiento al Artículo 83° del Código Municipal. Para esos efectos la USAM, establecerá los parámetros para determinar la categorización de los usuarios del servicio.

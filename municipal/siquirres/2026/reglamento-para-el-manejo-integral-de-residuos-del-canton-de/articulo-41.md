@@ -1,0 +1,1 @@
+Artículo 41°. Los animales muertos deberán ser dispuestos por los propietarios o responsables de estos de conformidad con lo establecido en la Ley Nº 8839 Ley para la Gestión Integral de Residuos; la municipalidad no le corresponde el manejo de este tipo de desecho; salvo lo indicado en el Artículo 12° inciso b) de este reglamento.

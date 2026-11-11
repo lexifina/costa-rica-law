@@ -1,0 +1,1 @@
+Artículo 11°. Todo el personal que labore en el servicio de recolección, disposición y transporte de residuos independientemente de si se presta directamente por administración municipal o mediante contratos o convenios con empresas o particulares, deberá cumplir con todas las medidas y requisitos de seguridad y salud ocupacional, según lo especifique la legislación vigente.

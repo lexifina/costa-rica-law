@@ -1,0 +1,1 @@
+Artículo 28°. Cuando la ruta y/o fecha, se deba variar por situaciones especiales, emergencias y otros de fuerza mayor o caso fortuito, se comunicará de manera inmediata a los contribuyentes por la página web y redes sociales de la Municipalidad.

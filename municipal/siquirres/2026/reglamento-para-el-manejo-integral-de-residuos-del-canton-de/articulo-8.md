@@ -1,0 +1,2 @@
+Artículo 8°. Compras y contrataciones verdes (estratégica).
+La Municipalidad priorizará la compra y contratación de servicios a las personas jurídicas y físicas que dispongan de las certificaciones ambientales, sellos verdes u otros reconocimientos oficiales de buenas prácticas ambientales, así también solicitará en los carteles de licitación la presentación y adopción de prácticas ambientales para el tratamiento y disposición de los residuos que se generen de la actividad a contratar, según Ley General de Contratación Pública Ley N°9986 y su Reglamento.

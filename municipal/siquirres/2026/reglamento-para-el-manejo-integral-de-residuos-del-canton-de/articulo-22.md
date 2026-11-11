@@ -1,0 +1,1 @@
+Artículo 22°. La municipalidad brindará servicio de recolección a los desechos provenientes de hospitales, establecimientos de salud y afines públicos, los cuales deben cumplir con las directrices del Reglamento de Manejo de Desechos Infectocontagiosos, Decreto Nº 30965-S. Dichos desechos deben ser tratados por la institución a la cual se le brinda el servicio.

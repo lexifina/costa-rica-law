@@ -1,0 +1,12 @@
+Artículo 12°. La Municipalidad como ente responsable, según la Ley para la Gestión Integral de Residuos Nº 8839 Ley, en materia de gestión integral de residuos, deberá:
+a) Brindar los servicios de recolección, categorización de las tasas del servicio municipal, tratamiento (reutilización, reciclaje, compostaje, otros) y disposición final de residuos sólidos ordinarios.
+b) Proveer los servicios de limpieza en espacios públicos, caños, vías y alcantarillas de dominio público, acequias, ríos y playas, así como del manejo sanitario de animales muertos en la vía pública. Según lo dispuesto en la Legislación Nacional.
+c) Concertar alianzas, convenios o contratos con personas o entidades para la prestación de servicios de gestión integral de residuos sólidos en su totalidad o parte de estos, así como garantizar el cumplimiento de sus funciones.
+d) Revisar y actualizar cada año las tasas para el servicio de recolección, manejo, tratamiento y disposición de los residuos sólidos y aseo de vías.
+e) Gestionar integralmente los residuos generados en su cantón, por lo que es potestad de éstas dictar los Reglamentos y aplicar las medidas que sean necesarias para alcanzar dicha gestión en su territorio cantonal; asimismo, en resguardo de la autonomía municipal, esta ley deja autorizada a las corporaciones para emplear y desarrollar tecnologías alternativas que resulten menos contaminantes para el ambiente.
+f) Aplicar las sanciones en caso de no cumplimiento de este Reglamento.
+g) Establecer convenios con ONG’s, grupos comunales de apoyo, instituciones públicas y privadas, empresas y municipalidades vecinas para el cumplimiento del PMGIR y este Reglamento, los cuales deberán constar por escrito (notas formales de alianzas, oficios y otros).
+h) Acatar las directrices del Ministerio de Salud.
+i) Actualizar y modificar el PMGIR – Siquirres cada 5 años, a partir de su publicación en el Diario Oficial La Gaceta.
+j) Ejecutará capacitaciones (charlas, foros, talleres, otros) a las instituciones, sector privado/comercial y población en general. Específicamente en el manejo integral de residuos sólidos y sus Reglamentos y temas en protección del ambiente. Podrá coordinar las capacitaciones con otros entes.
+k) Deberá gestionar y realizar jornadas de recolección de desechos especiales a través de campañas, en coordinación con los aliados estratégicos (fuerzas vivas de la comunidad, instituciones públicas y privadas, empresas privadas, ONG’s y OBF´S).

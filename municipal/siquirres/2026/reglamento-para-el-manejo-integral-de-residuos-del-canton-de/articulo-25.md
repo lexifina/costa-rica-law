@@ -1,0 +1,1 @@
+Artículo 25°. Sobre los vehículos utilizados para la recolección y transporte de los residuos sólidos, deberán cumplir con los permisos respectivos brindados por el Ministerio de Salud, SENASA y la Dirección de Transporte. Además, deberán mantenerse en condiciones óptimas, sin la presencia de derrames de líquidos u otros, en la vía pública.

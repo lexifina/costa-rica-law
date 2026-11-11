@@ -1,0 +1,1 @@
+Artículo 38°. El Ministerio de Salud será el responsable de dar el seguimiento a los PMRG en los sectores de comercio, institucional, iglesias, OBF´s y organizaciones. SENASA a establecimientos y actividades comerciales de tipos agropecuarios/ganaderos.

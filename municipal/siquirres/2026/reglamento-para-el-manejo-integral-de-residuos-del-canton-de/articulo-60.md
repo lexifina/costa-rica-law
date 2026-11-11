@@ -1,0 +1,1 @@
+Artículo 60°. Queda prohibido a toda persona física o jurídica, utilizar para transporte de animales como: ganado vacuno, aves, cerdos, caballos, caprinos, ovinos, entre otros; dejen esparcido en la vía y/o área pública el excremento, vómito o residuos que los animales generen.

@@ -1,0 +1,1 @@
+Artículo 61°. Queda prohibido a toda entidad recolectora municipal o privada; mezclar los residuos que han sido separados por los generadores o usuarios del servicio. En caso de los gestores autorizados por el Ministerio de Salud, se suspenderá el contrato, siguiendo el debido proceso.

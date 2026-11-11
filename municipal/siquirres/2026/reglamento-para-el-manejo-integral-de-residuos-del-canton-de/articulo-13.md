@@ -1,0 +1,1 @@
+Artículo 13°. La municipalidad de Siquirres será el responsable de establecer la periodicidad en la recolección de residuos ordinarios y valorizables, en concordancia con las rutas ya establecidas y publicadas en los medios oficiales, tales como la página web municipal y redes sociales oficiales. Todo cambio debe ser informada por los medios antes mencionados.

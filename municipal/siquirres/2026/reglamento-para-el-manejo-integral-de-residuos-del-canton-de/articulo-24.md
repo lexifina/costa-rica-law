@@ -1,0 +1,15 @@
+Artículo 24°. El manejo de residuos sólidos en eventos especiales masivos, organizados por personas físicas o jurídicas, que afecte espacios públicos:
+a) Presentar el programa/plan de manejo de residuos sólidos por parte de los Generadores, al Ministerio de Salud y/o SENASA, con copia a la USAM.
+1. Obligaciones del Generador (Plan y Cumplimiento): Los generadores deberán presentar el Programa/Plan de Manejo de Residuos Sólidos al Ministerio de Salud y/o SENASA, con copia a la USAM. Dicho plan debe incluir un sistema de almacenamiento y recolección que garantice:
+2. La separación en la fuente (recolección selectiva) para la valorización.
+3. El tratamiento y disposición final de los residuos no valorizables por medio de un gestor autorizado inscrito en el Ministerio de Salud y que cumpla toda la normativa respectiva.
+4. Adicionalmente, el generador deberá cumplir con todas las obligaciones generales que establece este reglamento.
+b) Los organizadores del evento son responsables de mantener la limpieza del espacio utilizado para la actividad y en un radio de trescientos (300) metros a su alrededor.
+c) La Municipalidad se reserva la potestad de realizar inspecciones —durante o al finalizar el evento— para verificar el cumplimiento en la limpieza, así como la correcta separación, almacenamiento y entrega de los residuos generados para su valorización, tratamiento o disposición final. Los residuos generados en eventos especiales masivos serán responsabilidad de las personas físicas o jurídicas.
+d) Los organizadores de eventos especiales masivos descritos a continuación serán los responsables de la limpieza después de finalizado, de los sitios impactados hasta:
+1. Ocho horas: topes (deben realizar el retiro de boñigas y limpieza de calles), actividades culturales, deportivas y religiosas.
+2. 74 horas: carnavales, turnos u otra actividad que genere un impacto mayor al entorno.
+3. Efectuar la limpieza de vías y sitios públicos posterior a que sean utilizados en el desarrollo del evento mediante el barrido, recolección, recuperación, clasificación, transporte, tratamiento y disposición final de los residuos que resulten esparcidos y/o arrojados por los asistentes al evento.
+4. Para todos los casos, el organizador del evento será responsable de los daños a la propiedad pública y/o privada que se ocasionen a raíz del evento.
+5. En el caso de los eventos que requieren de instalaciones e infraestructura temporal para su desarrollo, tales como tarimas, toldos, publicidad, redondeles, y cualquier otra de naturaleza similar, el plazo en cuanto a la responsabilidad de la gestión integral de los residuos que se generen será durante la instalación y 74 horas después de la desinstalación de sus elementos temporales, así como durante el desarrollo de todo el evento.
+e) La USAM en conjunto con los organizadores del evento, realizará una inspección al sitio impactado una vez cumplidas las horas establecidas en el inciso d), de este artículo y se procederá a entregar un comprobante de cumplimiento.

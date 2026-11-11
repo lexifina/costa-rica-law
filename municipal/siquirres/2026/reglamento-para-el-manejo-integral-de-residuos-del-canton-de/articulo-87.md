@@ -1,0 +1,1 @@
+Artículo 87°. En caso de reclasificación. Cuando el usuario solicite el proceso de Reclasificación de la tasa del servicio de recolección y disposición de desechos ordinarios, se le comunicará mediante llamadas, correo electrónico o de forma física, según información suministrada por el contribuyendo, entregándole la información para cumplir con el proceso.

@@ -1,0 +1,1 @@
+Artículo 29°. Viviendas, edificios de uso multifamiliar (departamentos), condominios, establecimientos, centros comerciales, instituciones y OBF´s; estarán en la obligación de almacenar y separar en forma sanitaria los residuos generados, según el Artículo 19° de este Reglamento; y entregarlos el día que corresponda el servicio de recolección municipal.

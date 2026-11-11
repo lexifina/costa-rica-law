@@ -1,0 +1,1 @@
+Artículo 23°. La contratación que realice la municipalidad con terceros para la gestión integral de residuos sólidos no la exime de sus responsabilidades de la recolección, transporte y disposición final de los desechos sólidos.

@@ -1,0 +1,1 @@
+Artículo 47°. Los residuos provenientes de los tanques sépticos, lagunas de oxidación y plantas de tratamiento, sólo podrán ser recolectados y trasportados por gestores autorizados por el Ministerio de Salud, y dichos residuos deberán ser dispuestos de manera adecuada en los sitios autorizados para tal fin.

@@ -1,0 +1,1 @@
+Artículo 94°. Publicación. La municipalidad realizará la publicación de este reglamento en el Diario ficial La Gaceta una vez que sea aprobado. Cualquier modificación deberá realizarse siguiendo el procedimiento vigente para este fin.

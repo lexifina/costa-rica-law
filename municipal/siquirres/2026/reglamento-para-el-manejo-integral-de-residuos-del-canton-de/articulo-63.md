@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Incentivos
+Artículo 63°. Fundamento legal. Según lo establecido en los artículos 2, 8, 20 y 21 de la Ley para la Gestión Integral de Residuos Nº 8839, los Artículos 20 y 38 del Reglamento General a la Ley para la Gestión Integral de Residuos Nº 37567-SMINAET-H y el Artículo 83° del Código Municipal Nº7794, la Municipalidad podrá promover el establecimiento de incentivos no fiscales, premios o reconocimientos para centros educativos, barrios, comercios, empresas, gestores u organizaciones sociales y ambientales, con el objetivo de estimular la reutilización, separación, recuperación, reducción, aseo y ornato en sus cantones.

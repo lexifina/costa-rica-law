@@ -1,0 +1,1 @@
+Artículo 27°. En caso de que se tenga que cambiar el horario de la ruta de recolección según calendarización anual, se deberá hacer con quince días naturales de antelación y se comunicará en la página web de la Municipalidad y se apoyará en las redes sociales de la Municipalidad y otras del Cantón.

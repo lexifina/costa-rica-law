@@ -1,0 +1,5 @@
+Artículo 59°. Queda prohibido, depositar animales muertos o vivos, sustancias líquidas, excretas, vómitos, o cualquier residuo que se considere como no tradicional y/o de manejo especial, en las bolsas, sacos y/o recipientes destinados al servicio de recolección selectiva de residuos valorizables y no valorizables de la municipalidad, o ente encargado del servicio.
+Artículo 58°. Queda prohibido, a toda persona física o jurídica, remover o extraer el contenido total o parcial de los recipientes para residuos, una vez que han sido colocados para su recolección.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 58. No obstante, el sistema exige una numeración consecutiva por lo que se ha dejado dentro del artículo 59)
+Artículo 59°. Queda prohibida la quema de residuos de todo tipo, salvo lo determinado por el MINISTERIO DE SALUD, Ministerio de Agricultura o por SENASA.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo N° 59. No obstante, el sistema exige una numeración consecutiva por lo que se ha dejado dentro del Artículo 59)

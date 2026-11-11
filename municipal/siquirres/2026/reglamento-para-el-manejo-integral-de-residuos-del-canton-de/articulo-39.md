@@ -1,0 +1,1 @@
+Artículo 39°. Los residuos sólidos sólo podrán ser entregados a los Gestores de autorizados por la Dirección de Protección Radiológica y Salud Ambiental del Ministerio de Salud, durante las rutas específicas de recolección.

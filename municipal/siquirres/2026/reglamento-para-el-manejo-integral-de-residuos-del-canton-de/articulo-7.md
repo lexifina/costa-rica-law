@@ -1,0 +1,2 @@
+Artículo 7°. Eliminación de vertederos clandestinos y Prohibición de afectación del libre tránsito.
+La Municipalidad debe prevenir y eliminar los vertederos clandestinos o botaderos de desechos como también el establecimiento de centros de recuperación de materiales reciclables no autorizados por el Ministerio de Salud. Así como las canastas, estañones, todo tipo de recipientes que están ubicadas en aceras, garantizando el libre tránsito de los peatones, evitando que se conviertan en botaderos.

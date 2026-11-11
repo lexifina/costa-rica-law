@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Disposiciones Finales
+Artículo 92°. Declaraciones de interés público. Se declaran de interés público para el cantón las siguientes políticas, planes y estrategias: la Política Nacional para la Gestión Integral de Residuos; la Política Nacional de Producción y Consumo Sostenibles; el Plan Nacional para la Gestión Integral de Residuos; el Plan de Acción para la Gestión Integral de Residuos; el Primer Plan Nacional de Compostaje; la Estrategia Nacional de Separación, Recuperación y Valorización de Residuos y la Estrategia Nacional para la Sustitución de Plásticos de un Solo Uso por Alternativas Renovables y compostables.
