@@ -1,0 +1,1 @@
+Artículo 29.—Toda iniciativa presentada por regidores, alcalde o personas físicas o jurídicas para adoptar, reformar o suspender disposiciones del plan regulador, posterior a la publicación del mismo, deben ser remitidas al Concejo Municipal para su análisis y valoración.

@@ -1,0 +1,1 @@
+Artículo 19.—El quórum para sesionar será de cuatro miembros de la comisión. La comisión podrá sesionar extraordinariamente en cualquier parte del cantón, siempre y cuando así lo decida la comisión internamente por mayoría simple.

@@ -1,0 +1,1 @@
+Artículo 7º—Los miembros de la comisión local de plan regulador una vez electos y juramentados nombrarán una junta directiva, que estará formada por un(a) presidente, un (a) vicepresidente, tres vocales y un secretario; considerando aspectos como experiencia técnica en la materia de Ordenamiento territorial y manejo de información.
