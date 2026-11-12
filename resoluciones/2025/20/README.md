@@ -15,3 +15,4 @@ Uso de los formularios de declaración del impuesto sobre las utilidades para la
 | --- | --- | --- |
 | 1 | 2025-10-06 | la propia norma |
 | 2 | 2025-10-06 | Resolución 43 (2025-08-27) |
+| 3 | 2026-11-12 | Resolución 39 (2026-11-12) |
