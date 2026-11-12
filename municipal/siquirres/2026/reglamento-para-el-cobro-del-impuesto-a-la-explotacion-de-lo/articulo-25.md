@@ -1,0 +1,1 @@
+Artículo 25.—Órgano competente. Corresponde al Subproceso de Licencias y Patentes la tramitación y resolución de todo lo relacionado con la materia de la actividad de explotación de yacimientos de placer, lavaderos, tajos y cauces de dominio público.

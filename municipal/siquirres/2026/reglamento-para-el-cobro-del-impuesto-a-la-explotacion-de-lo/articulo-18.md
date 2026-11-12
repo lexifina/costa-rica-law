@@ -1,0 +1,1 @@
+Artículo 18.—Otros requisitos. La licencia que otorgue el Subproceso de Licencias y Patentes quedará condicionada a los requisitos y plazos que establezca el permiso de funcionamiento del Ministerio de Salud y la concesión otorgada por el MINAE.

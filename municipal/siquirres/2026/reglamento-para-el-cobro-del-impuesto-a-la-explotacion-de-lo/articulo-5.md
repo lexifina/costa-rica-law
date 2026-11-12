@@ -1,0 +1,6 @@
+Artículo 5º—El impuesto de minería se determina:
+1. Mediante declaración jurada del contribuyente.
+Para la determinación mediante declaración jurada el contribuyente deberá completar el formulario respectivo y presentará a esta administración municipal una copia de la declaración o reporte del ingreso trimestral o mensual, presentado ante Ministerio de Hacienda o en su defecto a la Dirección de Geología y Minas para lo cual se puede llevar a cabo un control cruzado con los documentos que maneja dicha entidad y la municipalidad.
+2. Mediante imposición directa de la Municipalidad.
+Para la determinación de oficio, cuando no se hayan presentado declaraciones juradas o cuando las presentadas sean objetadas por la Administración Tributaria por considerarlas falsas, ilegales o incompletas, dicha administración puede determinar de oficio la obligación tributaria del contribuyente o responsable sea en forma directa o por el conocimiento cierto de la materia imponible o mediante estimación, si los elementos conocidos sólo permiten presumir la existencia y magnitud de aquella.
+3. Por disposición expresa de la Ley, con la aplicación de los casos contemplados en los artículos 38, 40 y 49 del Código de Minería.

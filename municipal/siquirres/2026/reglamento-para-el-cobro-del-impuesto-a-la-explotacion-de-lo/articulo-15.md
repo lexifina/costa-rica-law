@@ -1,0 +1,2 @@
+Artículo 15.—Plazo para resolver. El Subproceso de Licencias y Patentes deberá resolver la solicitud de licencia dentro de los diez días hábiles, mismos que se contarán a partir del día siguiente de haberla presentado en forma. Vencido este término, el particular podrá ejercer su actividad sin perjuicio de lo que en definitiva decida la Municipalidad.
+Si el Departamento de Patentes rechazare la solicitud de licencia, la denegatoria deberá hacerla en resolución razonada.

@@ -1,0 +1,1 @@
+Artículo 20.—Vencimiento del permiso de funcionamiento. Cuando el permiso de funcionamiento esté condicionado a plazo fijo, el vencimiento del mismo obliga al interesado a la renovación del permiso de funcionamiento.

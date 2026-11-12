@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE SIQUIRRES
+Reglamento para el cobro del impuesto a la explotación de los recursos mineros en el cantón de Siquirres y de patentes de explotación de concesiones en canteras, cauces de dominio público, lavaderos y placeres
+Considerando:
+I.—Que los artículos 3 y 4 del Código Municipal establecen la potestad municipal de normalizar todos sus procesos y actividades, así como de dotar a la institución, con base en la autonomía de los gobiernos locales, de los correspondientes reglamentos internos y externos para la consecución efectiva del servicio público.
+II.—Que con fundamento en lo antes expuesto es necesario dotar de un marco normativo actualizado que promueva la regulación de los procedimientos y condiciones que regirán el cobro del impuesto a la explotación de los recursos mineros en el cantón de Siquirres y de patentes de explotación de canteras, causes de dominio público, lavaderos y placeres de conformidad con el ordenamiento jurídico vigente.
+III.—Que de conformidad con lo establecido en los artículos 38, 40 y 55 del Código de Minería, Ley N° 6797 del 22 de octubre de 1982 y sus reformas; el Código de Normas y Procedimientos Tributarios, Ley N° 4755 del 3 de mayo de 1971 y sus reformas; el artículo 4, inciso a) y d) de la Ley N° 7794, Código Municipal del 18 de mayo de 1998; la Municipalidad de Siquirres emite a consideración de los señores Regidores el presente Proyecto de Reglamento.
+Disposiciones generales
+Artículo 1º—Fundamentos legales. El presente Reglamento se promulga y se fundamenta en virtud de lo estipulado en los artículos 38, 40, 49 y 55 del Código de Minería y su Reglamento.

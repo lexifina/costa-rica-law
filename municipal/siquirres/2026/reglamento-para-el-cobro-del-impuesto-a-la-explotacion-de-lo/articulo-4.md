@@ -1,0 +1,1 @@
+Artículo 4º—Hecho generador. El impuesto se genera cuando se explote comercialmente la minería en el cantón de Siquirres, tomando en cuenta la explotación de materiales en cauces de dominio público, canteras, placeres y minas.

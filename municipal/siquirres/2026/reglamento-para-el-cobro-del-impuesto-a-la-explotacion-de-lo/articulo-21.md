@@ -1,0 +1,2 @@
+Artículo 21.—Trámite de solicitudes. La municipalidad únicamente tramitará las solicitudes que presenten todos los requisitos que se exigen. Caso contrario, el trámite planteado será denegado de manera inmediata.
+Cuando por error u omisión, el Subproceso de Licencias y Patentes determine que una actividad que haya obtenido la licencia, alguno de los requisitos no se exigió en su oportunidad, concederá al interesado el término improrrogable de treinta días hábiles para que se corrija el error o se subsane la omisión.

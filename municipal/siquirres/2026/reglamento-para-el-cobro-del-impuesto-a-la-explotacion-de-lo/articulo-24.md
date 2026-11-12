@@ -1,0 +1,1 @@
+Artículo 24.—Certificación de saldos adeudados. La certificación del Contador Municipal en que se indique la diferencia adeudada por el interesado en virtud de recalificación por el Ministerio de Hacienda servirá de título ejecutivo, para efectos del cobro de aquella.
