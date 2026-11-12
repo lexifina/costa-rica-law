@@ -1,0 +1,2 @@
+Artículo 10.—Procedimientos de inscripción. La Municipalidad indicará las fechas correspondientes para la inscripción y recepción de ofertas de los participantes.
+El horario de recepción de documentos será de lunes a jueves de 7 a.m. a 4 p.m., y viernes de 7 a.m. a 3 p.m. Debe entregarse en sobre de manila o folder con prensa, formulario digital por correo indicado debidamente identificado con el nombre del participante.
