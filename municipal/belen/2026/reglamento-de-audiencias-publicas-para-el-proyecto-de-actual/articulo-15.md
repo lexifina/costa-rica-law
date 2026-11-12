@@ -1,0 +1,1 @@
+Artículo 15.—Desarrollo de la sesión. La Presidencia del Concejo Municipal dirigirá la sesión y establecerá las reglas de participación de la Audiencia. La sesión se desarrollará conforme a la agenda, el cual podrá modificarse o alterarse mediante acuerdo aprobado por dos terceras partes de los miembros presentes.

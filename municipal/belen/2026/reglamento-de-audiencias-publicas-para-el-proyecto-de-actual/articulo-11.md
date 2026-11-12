@@ -1,0 +1,1 @@
+Artículo 11.—Registro de participantes. El ingreso al recinto donde se realice la Audiencia será permitido al menos una hora antes de la señalada, una vez realizado el registro de identificación de las personas participantes, quienes deberán presentar documento oficial de identificación, e indicar al menos su lugar de residencia y edad.

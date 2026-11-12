@@ -1,0 +1,1 @@
+Artículo 5º—Sesión extraordinaria. Corresponde al Concejo Municipal convocar a la Audiencia Pública del Plan Regulador, según la cual se llevará a cabo en el marco de una Sesión Extraordinaria. En el acta respectiva se dejará constancia de la exposición del proyecto, así como de las intervenciones realizadas y se conservará el registro de audio o audiovisual correspondiente.

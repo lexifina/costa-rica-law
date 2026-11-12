@@ -1,0 +1,1 @@
+Artículo 18.—Participación del Concejo. Los miembros del Concejo Municipal podrán formular observaciones en el momento que corresponda, una sola vez, dentro de un tiempo razonable, a juicio de la Presidencia o Moderador.

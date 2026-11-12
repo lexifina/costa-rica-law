@@ -1,0 +1,1 @@
+Artículo 10.—Participación. Las personas participantes en la modalidad virtual podrán remitir sus preguntas, dudas o comentarios de manera escrita, en el chat de la reunión. En cada intervención en el chat, la persona debe escribir el nombre completo, número de identificación y correo electrónico.

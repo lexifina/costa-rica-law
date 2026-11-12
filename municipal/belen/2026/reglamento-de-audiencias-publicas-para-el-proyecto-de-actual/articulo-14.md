@@ -1,0 +1,1 @@
+Artículo 14.—Desarrollo de la actividad. La Presidencia del Concejo Municipal presentará la agenda del día, e iniciará con la bienvenida a los participantes, comunicación de las reglas de la audiencia, exposición del proyecto, tiempo de intervención de los miembros de ese órgano colegiado, espacio de participación ciudadana para formular preguntas y observaciones.
