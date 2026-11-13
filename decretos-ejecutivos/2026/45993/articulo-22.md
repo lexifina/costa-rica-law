@@ -1,0 +1,2 @@
+Artículo 22.-Notificación. Las actuaciones emitidas en el trámite de acceso a la información pública deberán ser notificadas a la persona solicitante por el medio señalado en la solicitud o por cualquier otro medio válido debidamente indicado.
+La notificación deberá realizarse de forma oportuna y comprensible, garantizando que la persona interesada tenga conocimiento efectivo de lo resuelto y, cuando corresponda, de los recursos disponibles.

@@ -1,0 +1,2 @@
+Artículo 19.- Denegación de la información. La denegación total o parcial del acceso a la información sólo procederá cuando concurra una causal de confidencialidad expresamente establecida por ley.
+Toda denegatoria de acceso a la información deberá ser notificada por el sujeto obligado mediante acto debidamente motivado, dentro del plazo de diez días hábiles previsto en el numeral 10 de la LMAIP para la atención y entrega de información pública.

@@ -1,0 +1,2 @@
+Artículo 21. Resolución de la impugnación. Le corresponderá al jerarca institucional analizar la impugnación presentada por la persona solicitante y tomar la decisión final respecto al acceso de la información planteada dentro de los plazos establecidos en la LGAP.
+Si la impugnación se decide en favor de la persona solicitante -parcial o totalmente-, la información solicitada se le deberá suministrar inmediatamente con la resolución de la impugnación.

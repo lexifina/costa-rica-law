@@ -1,0 +1,1 @@
+Artículo 7.- Persona solicitante. Toda persona física o jurídica que solicita información pública a una institución se constituye como la persona solicitante, en el tanto es quién ejerce el derecho de petición y de acceso a la información pública ante la Administración Pública.

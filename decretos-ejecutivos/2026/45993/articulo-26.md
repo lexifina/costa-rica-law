@@ -1,0 +1,1 @@
+Artículo 26.- Ausencia de motivación de la solicitud. La persona solicitante no estará obligada a indicar, justificar o explicar las razones por las cuales requiere la información pública. Cualquier exigencia de motivación será contraria a la LMAIP y al presente reglamento.

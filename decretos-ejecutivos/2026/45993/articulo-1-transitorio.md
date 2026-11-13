@@ -1,0 +1,2 @@
+TRANSITORIOS
+TRANSITORIO I.- Garantía de atención y entrega de información a personas con discapacidad. Las instituciones dispondrán de un plazo máximo de seis meses, contado a partir de la entrada en vigencia del presente reglamento, para implementar los ajustes necesarios y cumplir plenamente con lo establecido en el artículo 37 del presente reglamento, relativo a la garantía de atención y entrega de información a las personas con discapacidad auditiva o visual.

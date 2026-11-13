@@ -1,0 +1,1 @@
+Artículo 15.- Admisibilidad de la solicitud. La solicitud será admisible cuando contenga los requisitos mínimos establecidos en el artículo N° 23 del presente reglamento y un medio para recibir la información o notificaciones. No podrán exigirse requisitos adicionales distintos a los establecidos en la Ley Marco de Acceso a la Información Pública o el presente reglamento.

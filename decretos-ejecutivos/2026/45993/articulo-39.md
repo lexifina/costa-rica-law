@@ -1,0 +1,1 @@
+Artículo 39. Autoridad competente. La apertura, instrucción y resolución del procedimiento corresponderá a las autoridades determinadas por la Ley General de la Administración Pública, así como a la normativa orgánica y disciplinaria aplicable en cada institución.

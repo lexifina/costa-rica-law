@@ -1,0 +1,1 @@
+Artículo 32.- Prohibición de abuso de la clasificación. Queda terminantemente prohibido utilizar las causales de confidencialidad como mecanismo para ocultar información de interés público, limitar la rendición de cuentas, encubrir irregularidades o restringir el control ciudadano sobre la función pública.

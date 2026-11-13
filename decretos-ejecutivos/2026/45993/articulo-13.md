@@ -1,0 +1,4 @@
+CAPÍTULO IV
+PROCEDIMIENTO SOBRE EL ACCESO A LA INFORMACIÓN PÚBLICA
+Artículo 13.- Procedimiento de acceso a la información pública. La institución y por lo tanto su jerarca, deberá garantizar que el inicio del procedimiento instaurado para recibir solicitudes de acceso a la información pública y su gestión (tramitación) sea sencilla, accesible y libre de formalismos innecesarios.
+Además, el jerarca institucional debe velar por el establecimiento de un mecanismo o sistema para la atención de solicitudes de información pública, el cual debe ser formalizado internamente mediante un proceso o procedimiento administrativo y comunicado al público en general. El tipo de mecanismo o sistema a establecer será determinado por la propia institución, de acuerdo con sus recursos y naturaleza de funcionamiento, con la finalidad de cumplir con lo indicado en la presente normativa.

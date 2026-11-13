@@ -1,0 +1,1 @@
+Artículo 36.- Deber de trato igualitario. Las solicitudes de acceso a la información pública deberán ser tramitadas en condiciones de igualdad, sin discriminación por razón alguna, garantizando el mismo trato a todas las personas solicitantes, independientemente del medio utilizado o del contenido de la solicitud.

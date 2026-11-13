@@ -1,0 +1,2 @@
+Artículo 20.-Derecho de oposición o impugnación. Los actos que denieguen total o parcialmente el acceso podrán ser impugnados en el plazo de diez días hábiles, mediante los recursos administrativos que resulten procedentes conforme a la Ley General de la Administración Pública y a la normativa orgánica del respectivo sujeto obligado, sin perjuicio del recurso de amparo y de las demás acciones previstas por el ordenamiento jurídico.
+Dicho acto de denegación deberá indicar los recursos procedentes, la autoridad ante la cual deben interponerse y el plazo correspondiente.
