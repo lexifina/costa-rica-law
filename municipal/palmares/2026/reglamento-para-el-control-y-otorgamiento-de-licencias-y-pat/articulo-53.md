@@ -1,0 +1,1 @@
+Artículo 53.- Confidencialidad de la información. La información suministrada por los contribuyentes del impuesto de patentes a la Unidad, tiene el carácter confidencial al que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios, Ley 4755, publicada en la Gaceta N°117 del 04 de junio de 1971.

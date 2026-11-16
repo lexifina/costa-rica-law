@@ -1,0 +1,1 @@
+Artículo 33.-Inscripción, modificación de datos y desinscripción de oficio. Ante el incumplimiento de las obligaciones establecidas en la Sección anterior de este Reglamento, la Administración Tributaria procederá de oficio a realizar la inscripción, modificación de datos y desinscripción, de conformidad con lo establecido en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 37.-Requisitos para el Traspaso y Traslado de la Licencia Comercial. Para la aprobación de la solicitud de traspaso y traslado de la licencia comercial, el administrado debe de cumplir con los requisitos establecidos en el artículo 13 de este Reglamento que sean requeridos para el trámite.

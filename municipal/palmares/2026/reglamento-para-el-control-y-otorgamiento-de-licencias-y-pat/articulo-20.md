@@ -1,0 +1,1 @@
+Artículo 20.-Sobre el Permiso de Funcionamiento del Ministerio de Salud. La licencia que otorgue la municipalidad quedará condicionada al permiso de funcionamiento emitido por el Ministerio de Salud. La revocatoria y cancelación de éste por el organismo competente involucra la cancelación automática de la licencia y la pérdida de la calidad de patentado.

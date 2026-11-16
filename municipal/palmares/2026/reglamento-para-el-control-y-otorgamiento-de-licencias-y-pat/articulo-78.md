@@ -1,0 +1,5 @@
+Artículo 78.-Multas. Se impondrán multas que serán calculadas según el artículo 2 de la Ley Crea Concepto Salario Base Para Delitos Especiales del Código Penal, Ley No.7337 artículo 2, publicada en la Gaceta N°92 del 14 de mayo de 1993. a quienes incurran en las siguientes infracciones:
+a. Al patentado, propietario, administrador o responsable que, con licencia suspendida, continúe desarrollando la actividad, se le aplicará una sanción de 3 salarios base.
+b. Los patentados que no presenten dentro del término establecido la declaración jurada del impuesto, se harán acreedores a una multa equivalente al veinticinco por ciento (25%) del impuesto del año anterior.
+c. El no pago del impuesto de patentes en los términos fijados en la Ley y este Reglamento, generará multas de 2% por cada mes o fracción de atraso sin que pueda exceder en cada caso del 24% del monto adeudado.
+d. Cuando se incurra en las infracciones estipuladas en el Código de Normas y Procedimientos Tributarios, Ley 4755, publicada en la Gaceta N°117 del 04 de junio de 1971, en lo que sea aplicable.

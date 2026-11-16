@@ -1,0 +1,1 @@
+Artículo 54.- Arreglos de pago. La Municipalidad podrá conceder arreglos de pago por el adeudo del principal del impuesto de patentes y sus accesorios de conformidad con lo establecido en el reglamento dictado para esos efectos.

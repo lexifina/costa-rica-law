@@ -1,0 +1,1 @@
+Artículo 59.- No presentación de la declaración. Los contribuyentes que no presenten la declaración jurada municipal, dentro del término anteriormente establecido, serán sancionados con una multa del veinticinco por ciento del impuesto de patentes del año anterior.

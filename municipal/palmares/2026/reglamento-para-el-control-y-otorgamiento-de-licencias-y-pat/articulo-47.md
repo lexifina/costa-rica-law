@@ -1,0 +1,1 @@
+Artículo 47.- Pagos trimestrales. El impuesto se cancelará por trimestre adelantado en los meses de enero, abril, julio y octubre, de manera tal que, si el pago no se hiciera efectivo en el mes correspondiente, los intereses correrán a partir del primer día hábil siguiente.

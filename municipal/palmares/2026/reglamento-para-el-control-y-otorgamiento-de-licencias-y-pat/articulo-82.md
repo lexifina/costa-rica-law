@@ -1,0 +1,1 @@
+Artículo 82.- Derogatoria. Este Reglamento deroga el Reglamento para licencias municipales de la Municipalidad de Palmares, publicado en La Gaceta N° 227 del 25 de noviembre de 2002, así como sus reformas posteriores.

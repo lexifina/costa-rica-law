@@ -1,0 +1,1 @@
+Artículo 45.- Colaboración a los funcionarios municipales. Los propietarios, administradores, concesionarios y cualquier persona que de una u otra forma explote un establecimiento comercial, deberán brindar toda la colaboración a estos funcionarios, asimismo deberán de mostrar los documentos requeridos por ellos.

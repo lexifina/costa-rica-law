@@ -1,0 +1,2 @@
+Artículo 34.-Desinscripción por abandono de actividad. Cuando se resuelva en firme el procedimiento por cancelación de la patente ante el abandono de la actividad por parte del patentado, se procederá a la desinscripción en el Registro Único Tributario Municipal (RUTM) de los datos de quien deja de ser sujeto pasivo.
+Ante la omisión de los patentados de comunicar cualquier modificación de datos de trascendencia tributaria, la Administración Tributaria está facultada para modificar de oficio, aquellos datos que no se conformen con la realidad del patentado tributario.

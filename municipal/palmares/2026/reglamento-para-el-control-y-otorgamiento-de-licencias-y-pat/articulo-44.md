@@ -1,0 +1,1 @@
+Artículo 44.- Fortalecimiento temporal de la unidad. La Unidad se podrá reforzar con inspectores y otros funcionarios municipales, debidamente identificados, quienes realizarán las visitas a aquellos locales que soliciten licencia, actividades temporales, así como de aquellos que ya se encuentren funcionando.
