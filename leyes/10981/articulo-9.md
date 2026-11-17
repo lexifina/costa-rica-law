@@ -1,0 +1,4 @@
+ARTÍCULO 9- Se adiciona un inciso ñ) al artículo 6 de la Ley 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi (Banco Hipotecario de la Vivienda), del 13 de noviembre de 1968. El texto es el siguiente:
+Artículo 6- Para el cumplimiento de sus objetivos, el Banco Hipotecario de la Vivienda (Banhvi) tendrá las siguientes atribuciones y funciones:
+(...)
+ñ) Remitir al Ministerio de Vivienda y Asentamientos Humanos los informes, estudios, datos, comunicados, reportes, análisis técnicos y cualquier otra documentación que solicite el ente rector para evaluar el cumplimiento de sus políticas y lineamientos. Quedan excluidos de esa información aquellos datos respecto de los cuales existe un deber legal de confidencialidad bancaria, según lo regulado en el Código de Comercio y en la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, del 7 de julio de 2011.

@@ -1,0 +1,1 @@
+ARTÍCULO 5- El ministro o ministra de Vivienda y Asentamientos Humanos será la máxima autoridad del Ministerio y contará con el apoyo de los órganos y dependencias necesarias para el cumplimiento de sus fines, acorde con la legislación y políticas que regulan la materia.
