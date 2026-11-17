@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ámbito de aplicación. Esta normativa aplicará a toda operación en la que personas físicas o jurídicas otorguen financiamiento a un tercero, incluyendo financiamiento otorgado por entidades reguladas o no reguladas por la Superintendencia General de Entidades Financieras.

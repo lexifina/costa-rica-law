@@ -1,0 +1,3 @@
+ARTÍCULO 7- Reforma al Código de Comercio. Se reforma el artículo 498 de la Ley 3284, Código de Comercio, del 30 de abril de 1964. El texto es el siguiente:
+Artículo 498- Los intereses moratorios serán iguales a los intereses corrientes, salvo pacto en contrario.
+Cuando se pacten intereses corrientes y moratorios, estos últimos no podrán superar en más de dos puntos porcentuales la tasa pactada para los intereses corrientes. Cuando no se pacten intereses corrientes, pero sí moratorios, estos no podrán superar en más de dos puntos porcentuales la tasa de interés legal indicada en el artículo anterior.

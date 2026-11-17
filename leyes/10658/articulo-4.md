@@ -1,0 +1,3 @@
+ARTÍCULO 4- Tasa máxima por intereses moratorios. La tasa de interés moratorio máxima que podrán cobrar las personas físicas o jurídicas que otorguen financiamiento a un tercero no podrá superar en dos puntos porcentuales la tasa de interés corriente pactada.
+Cuando no se pacten intereses corrientes, pero sí moratorios, estos no podrán superar la tasa de interés legal determinada en el artículo 497 de la Ley 3284, Código de Comercio, del 30 de abril de 1964, más dos puntos porcentuales.
+De igual manera, los cobros de intereses moratorios por encima de los límites aquí dispuestos se sancionarán conforme al numeral 63 de la Ley 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, del 20 de diciembre de 1994.

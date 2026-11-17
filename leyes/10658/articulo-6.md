@@ -1,0 +1,2 @@
+ARTÍCULO 6- Cálculo de intereses moratorios. Para el cálculo de los intereses moratorios sobre los días de atraso deben considerarse los términos que indique el contrato y las condiciones que establezca la legislación vigente.
+Los intereses moratorios únicamente pueden calcularse sobre la parte del principal adeudado que se encuentra en mora. No puede aplicarse el cobro de intereses moratorios sobre el monto de intereses corrientes adeudados.
