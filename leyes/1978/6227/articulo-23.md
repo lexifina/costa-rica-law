@@ -22,5 +22,7 @@ n) Planificación Nacional y Política Económica;
 ñ) Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones
 (Así adicionado el inciso ñ por el artículo 104 de la Ley de Promoción del Desarrollo Científico y Tecnológico y Creación del MICIT (Ministerio de Ciencia y Tecnología), Nº 7169 del 26 de junio de 1990.)
 (Así reformado el inciso ñ) anterior por el artículo 25 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)
+o) Vivienda y Asentamientos Humanos.
+(Así adicionado el inciso anterior por el artículo 10 de la Ley de creación del Ministerio de Vivienda y Asentamientos Humanos, N° 10981 del 10 de noviembre de 2026)
 (El párrafo 1 de este artículo, referente a la enumeración de las carteras ministeriales, fue así reformado por el artículo 11 de la Ley de Reestructuración del Poder Ejecutivo,Nº 6812 de 14 de setiembre de 1982)
 2. (El inciso 2, que trataba de la creación de ministerios sin cartera, fue derogado tácitamente por el artículo 11 de la Ley de Reestructuración del Poder Ejecutivo No.6812 de 14 de setiembre de 1982. En este sentido, véase el dictamen C-212-92 de 22 de diciembre de 1992)
