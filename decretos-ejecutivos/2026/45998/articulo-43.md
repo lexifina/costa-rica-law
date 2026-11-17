@@ -1,0 +1,11 @@
+CAPÍTULO II
+VESTIMENTA Y CALZADO INSTITUCIONAL
+Artículo 43. Uso obligatorio de vestimenta institucional. Las personas privadas de libertad ubicadas en el Centro de Alta Contención contra el Crimen Organizado (CACCO) deberán utilizar, durante toda su permanencia en el establecimiento, la vestimenta institucional suministrado por la Administración Penitenciaria, conforme a las disposiciones del presente Reglamento.
+La vestimenta institucional estará compuesta por una camiseta y una pantaloneta de diseño uniforme, sin cierres, botones ni accesorios que puedan representar riesgos para la seguridad del establecimiento.
+Estas deberán ser de un color llamativo y de fácil identificación visual, con el propósito de facilitar el reconocimiento de las personas privadas de libertad durante los desplazamientos, recuentos, procedimientos de seguridad y situaciones de emergencia.
+La selección del color específico deberá responder a un análisis técnico de seguridad realizado por la Dirección de la Policía Penitenciaria, considerando las condiciones de identificación, vigilancia y control del establecimiento. El color especifico y las características técnicas del uniforme se establecerán mediante la disposición institucional correspondiente, de conformidad con lo establecido en el presente articulo.
+No se permitirá el uso de prendas distintas de las suministradas o expresamente autorizadas para el CACCO, sin perjuicio de la ropa interior y demás prendas permitidas conforme al artículo 44 del presente Reglamento.
+La vestimenta institucional deberá mantenerse limpio, en adecuado estado de conservación y utilizarse exclusivamente conforme a su finalidad.
+Se prohíbe intercambiar, prestar, regalar, comercializar, cortar, rasgar, unir, teñir, marcar, modificar o alterar las prendas institucionales.
+La sustitución de prendas deterioradas o que hayan agotado su vida útil se realizará mediante el sistema de intercambio, previa entrega de la prenda sustituida, salvo imposibilidad material debidamente acreditada.
+Cuando por razones médicas debidamente determinadas por el personal de salud competente resulte necesario utilizar una prenda o condición distinta, la Administración Penitenciaria deberá atender dicha indicación bajo las medidas de seguridad correspondientes.

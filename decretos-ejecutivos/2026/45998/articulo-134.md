@@ -1,0 +1,6 @@
+APÍTULO II
+MEDIDAS CAUTELARES
+Artículo 134. Régimen aplicable y procedencia de las medidas cautelares. Las medidas cautelares aplicables a las personas privadas de libertad ubicadas en el CACCO se regirán por las disposiciones del Reglamento General al Circuito de Alta Contención del Sistema Penitenciario Nacional, Decreto Ejecutivo 45174JP del 27 de agosto del 2025 .
+Estas medidas tendrán carácter excepcional, preventivo, provisional y temporal. Únicamente procederán cuando existan circunstancias objetivas y debidamente fundamentadas que permitan determinar un riesgo actual para la vida o integridad física o psicológica de la persona privada de libertad o de terceras personas, o para el orden o la seguridad del establecimiento, siempre que dicho riesgo no pueda atenderse razonablemente mediante una medida menos restrictiva.
+Las medidas cautelares no tendrán naturaleza sancionatoria ni podrán utilizarse como sanción disciplinaria anticipada, encubierta o adicional.
+Cuando los hechos que motiven su adopción puedan constituir una falta disciplinaria, la determinación de responsabilidad requerirá la tramitación del procedimiento disciplinario correspondiente, conforme al régimen aplicable.

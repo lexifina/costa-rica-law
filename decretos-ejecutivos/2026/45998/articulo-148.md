@@ -1,0 +1,1 @@
+Artículo 148. Prohibición de creación de infracciones o sanciones por instrumentos internos. Los protocolos, procedimientos, lineamientos, circulares, instrucciones o disposiciones internas no podrán crear faltas disciplinarias, sanciones o competencias distintas de las establecidas en las disposiciones que regulan el régimen disciplinario aplicable.

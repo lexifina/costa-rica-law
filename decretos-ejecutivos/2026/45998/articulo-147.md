@@ -1,0 +1,1 @@
+Artículo 147. Aplicación de normas de superior jerarquía. Las disposiciones disciplinarias se aplicarán con sujeción a la Constitución Política, la legislación vigente y el Reglamento General al Circuito de Alta Contención del Sistema Penitenciario Nacional

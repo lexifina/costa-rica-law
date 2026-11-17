@@ -1,0 +1,7 @@
+CAPÍTULO IV
+INGRESO, TENENCIA, USO Y CONTROL DE OBJETOS
+Artículo 49. Principio de autorización expresa. Las personas privadas de libertad ubicadas en el Centro de Alta Contención y Crimen Organizado (CACCO) únicamente podrán ingresar, recibir, poseer, utilizar y mantener los bienes y objetos autorizados. Las cantidades, características, finalidad y condiciones de ingreso, utilización, conservación y sustitución se regirán conforme a las circulares administrativas vigentes que regulen cada categoría de bienes u objetos.
+No se permitirá el ingreso, recepción, posesión o utilización de bienes u objetos expresamente prohibidos por este Reglamento, ni de aquellos que incumplan las condiciones establecidas para su autorización, sin perjuicio de las excepciones que correspondan por razones médicas u otras circunstancias debidamente justificadas, conforme a la normativa aplicable.
+La autorización de ingreso y posesión de un bien u objeto en otro centro, nivel, ámbito o establecimiento del Sistema Penitenciario Nacional no implicará, por sí misma, su autorización para ingreso y posesión en el CACCO.
+Los bienes y objetos autorizados estarán sujetos a los procedimientos de revisión, registro y control establecidos en los artículos 19 y 20 del presente Reglamento, así como a las demás disposiciones de seguridad aplicables.
+Cada privado de libertad es responsable de velar por la custodia de sus bienes y objetos autorizados, ni la Dirección del centro ni la Policía Penitenciaria tendrán responsabilidad en caso de extravíos.

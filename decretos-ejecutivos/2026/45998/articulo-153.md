@@ -1,0 +1,3 @@
+Artículo 153. Aplicación de disposiciones generales del régimen de Alta Contención. En las materias no reguladas específicamente por el presente Reglamento y que resulten compatibles con la naturaleza y finalidad del CACCO, se aplicarán supletoriamente las disposiciones del Reglamento General al Circuito de Alta Contención del Sistema Penitenciario Nacional.
+La aplicación supletoria de dichas disposiciones no modificará las condiciones especiales de ingreso, permanencia, seguridad, custodia, vigilancia, control, visitas, comunicaciones, movimientos y demás materias reguladas expresamente para el CACCO.
+Cuando una materia se encuentre regulada expresamente en el presente Reglamento, se aplicará la disposición especial prevista para el CACCO.

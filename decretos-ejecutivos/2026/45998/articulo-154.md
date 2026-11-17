@@ -1,0 +1,2 @@
+Artículo 154. Prevalencia del ordenamiento jurídico. Las disposiciones del presente Reglamento se aplicarán sin perjuicio del cumplimiento obligatorio de las resoluciones emitidas por las autoridades judiciales competentes y de las disposiciones de superior jerarquía que resulten aplicables.
+Las actuaciones administrativas deberán mantenerse dentro de las competencias atribuidas a cada órgano y autoridad por el ordenamiento jurídico.

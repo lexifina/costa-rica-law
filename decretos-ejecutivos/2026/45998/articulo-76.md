@@ -1,0 +1,3 @@
+Artículo 76. Autorizaciones anteriores. La existencia de una autorización de visita íntima otorgada a una persona privada de libertad antes de su ingreso al CACCO no implicará por sí misma la continuidad automática de dicha modalidad bajo las condiciones propias de otro centro, establecimiento, ámbito o modalidad penitenciaria.
+La realización de visita íntima durante la permanencia en el CACCO quedará sujeta a las condiciones de seguridad, periodicidad, duración y demás disposiciones establecidas en el presente Reglamento.
+En ningún caso una autorización anterior podrá utilizarse para justificar la salida o traslado de una persona privada de libertad fuera del CACCO ni el ingreso al establecimiento de otra persona privada de libertad.

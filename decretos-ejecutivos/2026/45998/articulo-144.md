@@ -1,0 +1,2 @@
+Artículo 144. Medidas de seguridad y régimen disciplinario. Las medidas de seguridad de carácter preventivo no tendrán naturaleza sancionatoria ni podrán utilizarse como sanción disciplinaria anticipada, encubierta o adicional.
+Cuando los hechos que originen una medida de seguridad puedan constituir una falta disciplinaria, serán puestos en conocimiento de la Comisión Disciplinaria para el trámite correspondiente.

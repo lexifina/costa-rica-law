@@ -1,0 +1,5 @@
+Artículo 35. Suspensión o interrupción de actividades por razones de seguridad. Las actividades podrán ser suspendidas o interrumpidas cuando se presente una situación concreta que comprometa la seguridad del establecimiento, la custodia, el orden institucional, la vida o la integridad de las personas.
+La suspensión o interrupción será dispuesta por la Dirección del CACCO o por la jefatura policial del establecimiento, según corresponda a la naturaleza de la situación, y deberá limitarse al tiempo estrictamente necesario para atender la causa que la origine.
+La decisión deberá indicar la situación que motiva la medida, las actividades afectadas, la autoridad que la dispone y su duración, por lo que deberá quedar registrada en los instrumentos institucionales correspondientes.
+La suspensión o interrupción de una actividad no constituirá, por sí misma, una sanción disciplinaria.
+Cuando los hechos que la originen puedan constituir una falta disciplinaria, deberán remitirse a la autoridad competente para que determine la correspondiente responsabilidad, de conformidad con lo establecido en el Titulo XI del presente reglamento.

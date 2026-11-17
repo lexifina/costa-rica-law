@@ -1,0 +1,4 @@
+Artículo 114. Registro y confidencialidad de la información de salud. Las atenciones, valoraciones, diagnósticos, tratamientos y demás actuaciones de salud deberán registrarse en el expediente clínico y en los sistemas destinados para tal efecto, según corresponda.
+La información de salud tendrá carácter confidencial y su acceso estará limitado a la persona privada de libertad respecto de la información a la que tenga derecho de acceso, al personal de salud que intervenga en su atención y a quienes se encuentren legalmente facultados para conocerla.
+Únicamente podrá comunicarse a la Policía Penitenciaria la información estrictamente necesaria para adoptar medidas de custodia, seguridad, traslado o protección, sin divulgar información clínica que no resulte necesaria para esos fines.
+Lo anterior se entiende sin perjuicio de los requerimientos de información emitidos por autoridad judicial.

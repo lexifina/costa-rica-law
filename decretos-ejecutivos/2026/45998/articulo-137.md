@@ -1,0 +1,6 @@
+Artículo 137. Duración y revisión de las medidas cautelares. La duración, el seguimiento, la revisión y la finalización de las medidas cautelares se regirán por los plazos, procedimientos y condiciones establecidos en el Reglamento General al Circuito de Alta Contención del Sistema Penitenciario Nacional y demás normativa aplicable.
+Las medidas se mantendrán únicamente durante el tiempo estrictamente necesario para atender las circunstancias que motivaron su adopción, sin exceder los plazos máximos legalmente establecidos.
+Mientras permanezcan vigentes, deberán ser objeto de seguimiento y revisión por parte de la autoridad competente, con el fin de determinar si subsisten las circunstancias que justificaron su aplicación y si continúa siendo necesaria la medida adoptada.
+Las actuaciones de seguimiento y revisión deberán quedar debidamente documentadas.
+La medida deberá dejarse sin efecto cuando desaparezcan las circunstancias que justificaron su adopción, cuando el riesgo pueda ser atendido mediante una medida menos restrictiva o cuando deje de resultar necesaria.
+La permanencia de la persona privada de libertad en el CACCO no constituirá, por sí misma, fundamento para prolongar una medida cautelar.

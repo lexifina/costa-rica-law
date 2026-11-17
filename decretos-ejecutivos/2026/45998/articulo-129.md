@@ -1,0 +1,6 @@
+CAPÍTULO V
+PROTECCIÓN DE LA INFORMACIÓN DE SEGURIDAD
+Artículo 129. Información relacionada con la seguridad del CACCO. La información relativa a dispositivos, rutas, sistemas de vigilancia, mecanismos de acceso, distribución operativa del personal, protocolos de reacción y demás elementos cuya divulgación pueda comprometer la seguridad de las personas, la custodia o el funcionamiento del CACCO estará sujeta a las restricciones de acceso y divulgación que correspondan conforme al ordenamiento jurídico aplicable.
+El acceso a dicha información se limitará a las personas funcionarias que, por razón de sus competencias y responsabilidades, requieran conocerla para el cumplimiento de sus funciones, así como a las autoridades legalmente facultadas para solicitarla o acceder a ella.
+La información relacionada con la seguridad del establecimiento no podrá ser divulgada, reproducida, facilitada a terceros ni utilizada para fines distintos de aquellos que justificaron su acceso, salvo autorización de la autoridad competente o requerimiento formulado conforme al ordenamiento jurídico.
+Las restricciones establecidas en este artículo deberán aplicarse de acuerdo con la naturaleza de la información y los riesgos concretos asociados con su divulgación, sin perjuicio de las obligaciones legales de suministro de información, control y fiscalización institucional.

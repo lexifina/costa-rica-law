@@ -1,0 +1,3 @@
+Artículo 106. Supuestos de atención externa. La atención fuera del CACCO comprenderá las intervenciones quirúrgicas, procedimientos diagnósticos o terapéuticos, atenciones de emergencia y demás servicios que, por su naturaleza, complejidad, equipamiento requerido o condición clínica de la persona privada de libertad, no puedan realizarse dentro del establecimiento.
+La determinación de la necesidad de atención externa corresponderá al personal de salud.
+Las medidas de seguridad que deban adoptarse para efectuar el traslado no modificarán el criterio médico que determine la necesidad de la atención.

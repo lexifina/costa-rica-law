@@ -1,0 +1,4 @@
+Artículo 126. Restricción temporal de movimientos y actividades. Cuando una situación concreta de seguridad lo requiera, podrán restringirse o suspenderse temporalmente los movimientos, actividades o utilización de determinados espacios del CACCO.
+La medida podrá comprender la totalidad del establecimiento o únicamente los módulos, sectores o personas privadas de libertad directamente relacionados con la situación que la origine, según corresponda.
+La restricción deberá guardar relación con la situación concreta que la justifique y cesará cuando desaparezcan las circunstancias que motivaron su adopción.
+Estas medidas tendrán naturaleza preventiva y de seguridad y no constituirán, por sí mismas, sanciones disciplinarias. Cuando los hechos puedan constituir una falta disciplinaria, se procederá conforme con las disposiciones que regulan el régimen disciplinario.

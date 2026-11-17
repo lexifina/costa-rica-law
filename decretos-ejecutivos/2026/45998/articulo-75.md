@@ -1,0 +1,5 @@
+Artículo 75. Solicitud y valoración previa. La visita íntima requerirá solicitud previa de la persona privada de libertad y la realización de las valoraciones necesarias para determinar su procedencia.
+La valoración deberá verificar la existencia y acreditación del vínculo afectivo con la persona adulta propuesta para esta modalidad de visita, así como las condiciones necesarias para su realización en el CACCO.
+El área de Trabajo Social realizará la valoración correspondiente al vínculo y a las condiciones sociales relacionadas con la solicitud. Los Servicios de Salud realizarán las valoraciones que correspondan dentro de su ámbito de competencia cuando resulten necesarias para la autorización de esta modalidad de visita.
+La presentación de la solicitud, la existencia de matrimonio, unión de hecho, convivencia previa o relación afectiva, así como la emisión de una valoración técnica favorable, no generarán por sí mismas autorización automática para la realización de la visita íntima.
+La visita íntima únicamente podrá realizarse una vez concluidas las valoraciones requeridas y emitida la autorización correspondiente.

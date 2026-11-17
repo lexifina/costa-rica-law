@@ -1,0 +1,2 @@
+Artículo 149. Registro de las actuaciones disciplinarias. Las actuaciones y resoluciones disciplinarias deberán documentarse e incorporarse al expediente de la persona privada de libertad y registrarse en el sistema institucional habilitado para tal efecto, según corresponda.
+El registro deberá permitir identificar el procedimiento realizado, la decisión adoptada y la autoridad u órgano que la emitió.

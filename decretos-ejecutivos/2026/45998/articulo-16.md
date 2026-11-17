@@ -1,0 +1,13 @@
+Artículo 16. Criterios aplicables para la ubicación en el CACCO. Para la ubicación de una persona privada de libertad en el Centro de Alta Contención y el Crimen Organizado (CACCO) deberán cumplirse los criterios establecidos para la ubicación en Alta Contención.
+Adicionalmente, deberá determinarse la existencia de un alto grado de peligrosidad o criminalidad que justifique su ubicación en el CACCO, a partir de una valoración individualizada, objetiva y debidamente motivada.
+Para efectos del presente Reglamento, el alto grado de peligrosidad o criminalidad se determinará a partir de elementos objetivos, actuales y verificables que evidencien uno o varios de los siguientes factores:
+a) Pertenencia, vinculación, liderazgo, dirección o participación relevante en estructuras de delincuencia organizada.
+b) Capacidad de dirección, coordinación, planificación o ejecución de actividades delictivas dentro o fuera del establecimiento penitenciario.
+c) Capacidad de ejercer violencia de cualquier tipo, intimidación, amenaza, coacción o influencia sobre otras personas privadas de libertad, funcionarios públicos o terceras personas.
+d) Disponibilidad o utilización de redes, recursos, medios o contactos que faciliten la continuidad de actividades delictivas, la alteración del orden o la afectación de la seguridad institucional.
+e) Antecedentes o actuaciones relacionadas con evasión, tentativa de evasión, planificación de evasiones o acciones dirigidas a vulnerar los dispositivos de seguridad penitenciaria.
+f) Participación en hechos relacionados con el ingreso, posesión, utilización, distribución o facilitación de armas, sustancias ilícitas, dispositivos de comunicación u otros objetos no autorizados que representen un riesgo relevante para la seguridad.
+g) Existencia de amenazas o riesgos relevantes para la vida o integridad de otras personas privadas de libertad, funcionarios públicos o terceras personas.
+h) Otros indicadores objetivos de naturaleza criminológica o de seguridad que, por su intensidad, actualidad y relevancia, evidencien la necesidad de condiciones reforzadas de seguridad, custodia, vigilancia, control, supervisión y contención.
+La concurrencia de uno o varios de estos factores no determinará automáticamente la ubicación en el CACCO. La decisión deberá considerar las circunstancias particulares del caso, así como la naturaleza, intensidad y actualidad de los riesgos identificados.
+La ubicación en el CACCO determinará la aplicación del régimen especial de organización, funcionamiento, seguridad, custodia, vigilancia, control, supervisión y contención establecido en el presente Reglamento.

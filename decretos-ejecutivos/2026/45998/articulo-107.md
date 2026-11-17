@@ -1,0 +1,4 @@
+Artículo 107. Custodia durante el traslado y atención externa. Todo traslado externo por razones de salud se realizará bajo las medidas de custodia, vigilancia y seguridad determinadas por la Policía Penitenciaria, de acuerdo con la valoración de riesgo y las condiciones de seguridad propias del CACCO.
+Las medidas de seguridad se mantendrán durante el traslado, permanencia y retorno, en cuanto resulten compatibles con la atención médica requerida.
+La información necesaria para la coordinación del traslado será comunicada únicamente a las personas funcionarias que deban conocerla para el cumplimiento de sus funciones.
+El traslado por razones de salud no constituirá una modificación de la ubicación penitenciaria de la persona privada de libertad ni alterará, por sí mismo, su permanencia en el CACCO.

@@ -1,0 +1,5 @@
+Artículo 117. Control de movimientos de los privados de libertad. Todo desplazamiento de una persona privada de libertad fuera del área en la que deba permanecer se realizará únicamente cuando exista una finalidad institucional autorizada y bajo las condiciones de seguridad establecidas para el CACCO.
+La persona privada de libertad no podrá desplazarse por iniciativa propia hacia sectores distintos de aquellos en los que se encuentre autorizado para permanecer.
+Los movimientos internos se realizarán por las rutas, horarios y bajo las condiciones de custodia y seguridad determinadas por la Policía Penitenciaria.
+Finalizada la actividad, atención, visita, diligencia o actuación que haya motivado el desplazamiento, la persona privada de libertad será conducida directamente al área que le corresponda.
+La realización reiterada de movimientos internos por razones institucionales no generará derecho, expectativa o consecuencia automática respecto de una mayor libertad de desplazamiento o modificación de las condiciones de seguridad aplicables.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+TOALLAS Y ROPA DE CAMA
+Artículo 47. Uso y conservación de toallas para baño. Las personas privadas de libertad ubicadas en el CACCO podrán mantener un máximo de dos toallas para su higiene y secado corporal, suministradas por su red de apoyo, conforme a las condiciones de ingreso, revisión y seguridad previstas en el presente Reglamento.
+Las toallas deberán ser de uso personal y ajustarse a las características de material y dimensiones que determine la Administración Penitenciaria mediante circular administrativa, previo criterio técnico de la Dirección de la Policía Penitenciaria, considerando las necesidades de higiene y las condiciones de seguridad del establecimiento. Estas características deberán comunicarse a las personas privadas de libertad y a sus redes de apoyo antes de su ingreso.
+Las toallas deberán mantenerse limpias, en adecuado estado de conservación y utilizarse exclusivamente para su finalidad de higiene y secado corporal.
+Se prohíbe cortar, rasgar, unir, trenzar, anudar, intercambiar, prestar, comercializar, modificar o utilizar las toallas para ocultar objetos, fabricar cuerdas, amarres, estructuras o cualquier otro elemento, así como destinarlas a una finalidad distinta de aquella para la cual fueron suministradas.
+Las toallas deterioradas serán retiradas y sustituidas mediante el procedimiento de intercambio correspondiente, previa entrega de la toalla que será sustituida, salvo imposibilidad material debidamente acreditada.

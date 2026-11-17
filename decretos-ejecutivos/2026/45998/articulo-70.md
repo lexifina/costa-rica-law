@@ -1,0 +1,5 @@
+Artículo 70. Prohibición de visita especial entre personas privadas de libertad. No se autorizará el ingreso al CACCO de una persona privada de libertad procedente de otro centro, establecimiento, ámbito o modalidad del Sistema Penitenciario Nacional para la realización de una visita especial con otra persona privada de libertad ubicada en el CACCO.
+Tampoco se autorizará la salida o traslado de una persona privada de libertad ubicada en el CACCO hacia otro centro, establecimiento, ámbito o modalidad del Sistema Penitenciario Nacional con la finalidad de realizar una visita especial con otra persona privada de libertad.
+La existencia de circunstancias familiares, afectivas o personales entre ambas personas privadas de libertad no generará derecho, expectativa o consecuencia automática que permita autorizar su ingreso, salida, traslado o movilización con fines de visita especial.
+La visita especial no podrá utilizarse como mecanismo para sustituir, exceptuar o eludir la prohibición establecida en este artículo.
+Lo dispuesto en este artículo se aplicará sin perjuicio del cumplimiento obligatorio de una resolución emitida por autoridad judicial competente.

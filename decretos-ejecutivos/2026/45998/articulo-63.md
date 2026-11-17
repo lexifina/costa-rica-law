@@ -1,0 +1,6 @@
+Artículo 63. Carácter individual y exclusivo de la videollamada. La videollamada estará destinada exclusivamente a la comunicación entre la persona privada de libertad y el hijo o hija menor de edad previamente autorizado.
+No se permitirá la incorporación, participación o intervención de terceras personas durante la comunicación, con excepción de la presencia de la persona adulta responsable en los términos establecidos en el artículo anterior.
+No se permitirá utilizar la videollamada para establecer comunicación directa o indirecta con personas distintas de la persona menor de edad autorizada, transmitir mensajes de terceros o permitir la participación sucesiva de otras personas.
+La videollamada no podrá utilizarse para participar en fiestas, celebraciones, reuniones familiares, actividades sociales, comunicaciones grupales o cualquier otra situación en la que intervengan personas distintas de las expresamente autorizadas.
+Tampoco se permitirá orientar, trasladar o utilizar el dispositivo mediante el cual se realiza la videollamada con la finalidad de incorporar a otras personas a la comunicación.
+La constatación de cualquiera de estas circunstancias dará lugar a la finalización de la videollamada y deberá quedar debidamente registrada.

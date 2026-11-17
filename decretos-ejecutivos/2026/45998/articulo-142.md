@@ -1,0 +1,1 @@
+Artículo 142. Competencia disciplinaria. La determinación de la existencia de una falta disciplinaria, la tramitación del procedimiento y la imposición de la sanción corresponderán a la Comisión Disciplinaria, dentro del ámbito de las competencias que le han sido atribuidas.

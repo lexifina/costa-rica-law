@@ -1,0 +1,4 @@
+Artículo 99. Alcance de los criterios y recomendaciones profesionales. Los criterios, informes y recomendaciones emitidos por las disciplinas profesionales constituirán insumos técnicos para las decisiones que deban adoptarse respecto de la persona privada de libertad, dentro del ámbito de competencia de cada disciplina.
+Una recomendación profesional favorable no producirá, por sí misma, la modificación automática de la ubicación, permanencia o condiciones de seguridad de la persona privada de libertad.
+Para las personas privadas de libertad sentenciadas, las decisiones relacionadas con su ubicación y permanencia en el CACCO corresponderán a la Coordinación de Nivel, previa consideración de la valoración individualizada y de los elementos técnicos y de seguridad pertinentes.
+La existencia de informes o recomendaciones favorables de una o varias disciplinas no sustituirá la valoración integral requerida para adoptar la decisión correspondiente.

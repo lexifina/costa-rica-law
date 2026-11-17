@@ -1,0 +1,3 @@
+Artículo 108. Permanencia en el establecimiento de salud externo. La permanencia de la persona privada de libertad en un establecimiento hospitalario o centro de salud externo se limitará al tiempo médicamente necesario para recibir la atención que motivó su traslado.
+Durante su permanencia externa continuará sujeto a las medidas de custodia y seguridad que determine la Policía Penitenciaria, en cuanto sean compatibles con su condición clínica y con la atención médica requerida.
+La hospitalización o permanencia externa no generará, por sí misma, derecho, expectativa o consecuencia automática respecto de la reubicación, traslado permanente, cambio de establecimiento, modificación del nivel de seguridad o egreso del CACCO.

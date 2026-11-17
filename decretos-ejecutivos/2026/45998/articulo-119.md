@@ -1,0 +1,4 @@
+Artículo 119. Revisión de las áreas de alojamiento. Las áreas de alojamiento y los espacios asignados a las personas privadas de libertad estarán sujetos a revisiones ordinarias y extraordinarias.
+Durante estas revisiones se verificará, entre otros aspectos, la existencia de objetos o sustancias no autorizadas, acumulaciones indebidas, alteraciones de bienes, daños o modificaciones de infraestructura, ocultamientos, conexiones no autorizadas y cualquier otro elemento que pueda comprometer la seguridad, el orden o el funcionamiento del CACCO.
+Las personas privadas de libertad deberán mantener sus pertenencias exclusivamente en los espacios destinados para tal efecto y dentro de las cantidades autorizadas.
+La detección de un objeto, sustancia o elemento no autorizado dará lugar a su retiro y registro. Cuando los hechos puedan generar responsabilidad disciplinaria o constituir delito, se procederá según corresponda.

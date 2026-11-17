@@ -1,0 +1,6 @@
+Artículo 136. Aislamiento como medida cautelar. El aislamiento cautelar se aplicará exclusivamente en los supuestos y bajo las condiciones previstas en el Reglamento General al
+Circuito de Alta Contención del Sistema Penitenciario Nacional.
+Su adopción requerirá la existencia de elementos objetivos y debidamente documentados que permitan determinar un peligro real e inminente para la vida o integridad física de la persona privada de libertad o de terceras personas, o para la seguridad institucional, cuando dicho riesgo no pueda ser atendido razonablemente mediante una medida menos restrictiva.
+La medida será dispuesta por la autoridad competente, mediante acto debidamente motivado, en el que se identifiquen los hechos que justifican su adopción, el riesgo existente y las razones por las cuales otras medidas resultan insuficientes.
+Durante su aplicación deberán respetarse la dignidad, la integridad física y psicológica y los demás derechos de la persona privada de libertad, así como garantizarse el acceso a los servicios de salud y a las condiciones básicas de atención que correspondan.
+El aislamiento cautelar no constituirá sanción disciplinaria ni podrá utilizarse como mecanismo de castigo o como sustituto del procedimiento disciplinario correspondiente.

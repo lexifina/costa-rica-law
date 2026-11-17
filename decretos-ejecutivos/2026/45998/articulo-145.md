@@ -1,0 +1,1 @@
+Artículo 145. Hechos que puedan constituir delito. Cuando los hechos puedan constituir delito, se pondrán en conocimiento del Ministerio Público, sin perjuicio del procedimiento disciplinario que corresponda.

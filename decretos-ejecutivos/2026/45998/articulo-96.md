@@ -1,0 +1,5 @@
+Artículo 96. Programación de las actividades de atención. Las actividades de atención profesional se realizarán conforme al horario general y la programación institucional establecidos para el CACCO, de acuerdo con lo dispuesto en el artículo 29 del presente Reglamento.
+La programación deberá considerar la naturaleza y finalidad de cada intervención profesional, las condiciones de seguridad y custodia, la disponibilidad de espacios, la organización interna del establecimiento y los requerimientos técnicos de las disciplinas correspondientes.
+Las intervenciones se desarrollarán en los espacios institucionalmente habilitados para tal efecto, de acuerdo con las características de la atención y las condiciones de seguridad aplicables, con respeto a la privacidad y confidencialidad que correspondan.
+La programación de una actividad no autorizará a la persona privada de libertad a permanecer fuera del área que le corresponda una vez concluida la intervención.
+Los desplazamientos necesarios para asistir a las actividades de atención se realizarán bajo las condiciones de custodia, vigilancia y seguridad establecidas para el CACCO.

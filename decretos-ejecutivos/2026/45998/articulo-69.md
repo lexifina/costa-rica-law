@@ -1,0 +1,7 @@
+CAPÍTULO II
+VISITAS ENTRE PERSONAS PRIVADAS DE LIBERTAD
+Artículo 69. Prohibición de visitas entre personas privadas de libertad. No se autorizarán visitas entre personas privadas de libertad cuando su realización implique el ingreso al CACCO de otra persona privada de libertad ubicada en otro centro, establecimiento, ámbito o modalidad del Sistema Penitenciario Nacional, ni la salida o traslado de una persona privada de libertad ubicada en el CACCO hacia otro centro, establecimiento, ámbito o modalidad para esos efectos.
+En consecuencia, no se autorizarán visitas generales, especiales, íntimas, intracarcelarias, intercarcelarias o cualquier otra modalidad de visita entre personas privadas de libertad que implique su movilización hacia o desde el CACCO.
+La existencia de una relación familiar, afectiva, matrimonial, de unión de hecho, convivencia o cualquier otro vínculo entre personas privadas de libertad no constituirá fundamento para autorizar el ingreso al CACCO ni la salida o traslado desde este establecimiento con fines de visita.
+La permanencia de la persona privada de libertad en el CACCO prevalecerá para efectos de la aplicación del régimen especial de visitas establecido en el presente Reglamento, sin perjuicio de los actos de traslado o egreso que procedan por causas distintas a la realización de visitas, conforme con las competencias y procedimientos establecidos en el ordenamiento jurídico.
+Lo dispuesto en este artículo se aplicará sin perjuicio del cumplimiento obligatorio de una resolución emitida por autoridad judicial competente.

@@ -1,0 +1,4 @@
+Artículo 95. Participación en el proceso de atención. La participación de la persona privada de libertad en actividades, programas, intervenciones o procesos de atención se desarrollará de acuerdo con la naturaleza y finalidad de cada intervención profesional y bajo las condiciones de seguridad establecidas para el CACCO.
+La asistencia, participación, cumplimiento, conclusión o resultado de una actividad, programa o intervención no generarán, por sí mismos, derecho a una modificación de las condiciones de permanencia en el CACCO.
+En particular, tales circunstancias no producirán automáticamente la reubicación, traslado, cambio de establecimiento, modificación del nivel de seguridad o egreso del CACCO.
+Las decisiones relacionadas con la ubicación y permanencia de las personas privadas de libertad sentenciados corresponderán a la Coordinación de Nivel, con fundamento en la valoración individualizada y en los criterios establecidos en el presente Reglamento.

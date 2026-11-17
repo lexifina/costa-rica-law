@@ -1,0 +1,3 @@
+Artículo 128. Restablecimiento de las condiciones ordinarias. Controlada la situación que haya dado lugar a una medida extraordinaria de seguridad, se restablecerán las condiciones ordinarias del régimen especial del CACCO.
+El restablecimiento de las actividades, movimientos, visitas o comunicaciones se realizará de acuerdo con la programación ordinaria correspondiente.
+La finalización de la medida extraordinaria no generará, por sí misma, derecho a recuperar actividades, períodos de salida, visitas, llamadas u otras actuaciones que no hayan podido realizarse durante su vigencia, sin perjuicio del cumplimiento obligatorio de una resolución judicial.
