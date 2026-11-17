@@ -1,6 +1,6 @@
 # Código de Comercio
 
-Ley N° 3284 del 1964-04-30. SINALEVI, ficha 6239: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6239&param2=151293&param3=1>.
+Ley N° 3284 del 1964-04-30. SINALEVI, ficha 6239: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6239&param2=153083&param3=1>.
 
 Publicada en La Gaceta N° 119 del 1964-05-27.
 
@@ -36,3 +36,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 28 de 31 | 2026-03-16 | Ley 10840 | 2026-02-04 |
 | 29 de 31 | 2026-06-08 | Ley 10902 | 2026-05-12 |
 | 30 de 31 | 2026-06-08 | Ley 10962 | 2026-06-03 |
+| 31 de 31 | 2026-11-17 | Ley 10658 | 2026-11-12 |
