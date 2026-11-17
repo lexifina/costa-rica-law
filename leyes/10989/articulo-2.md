@@ -1,0 +1,1 @@
+ARTÍCULO 2- El Tribunal Supremo de Elecciones generará los recursos informáticos necesarios para habilitar el traslado de domicilio electoral digital, garantizando la privacidad de los datos y la seguridad de estos.
