@@ -1,6 +1,6 @@
 # Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo INVU
 
-Ley N° 1788 del 1954-08-24. SINALEVI, ficha 32164: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32164&param2=85968&param3=1>.
+Ley N° 1788 del 1954-08-24. SINALEVI, ficha 32164: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32164&param2=153090&param3=1>.
 
 Publicada en La Gaceta N° 194 del 1954-08-28.
 
@@ -20,3 +20,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 11 de 14 | 2002-02-13 | SINALEVI | 2002-02-13 |
 | 12 de 14 | 2005-07-05 | Ley 8448 | 2005-06-14 |
 | 13 de 14 | 2011-08-31 | Ley 8960 | 2011-07-05 |
+| 14 de 14 | 2026-11-17 | Ley 10981 | 2026-11-10 |
