@@ -1,6 +1,6 @@
 # Ley Orgánica del Tribunal Supremo de Elecciones TSE y del Registro Civil
 
-Ley N° 3504 del 1965-05-10. SINALEVI, ficha 4967: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4967&param2=147491&param3=1>.
+Ley N° 3504 del 1965-05-10. SINALEVI, ficha 4967: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4967&param2=153105&param3=1>.
 
 Publicada en La Gaceta N° 117 del 1965-05-26.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 12 | 2017-01-13 | Ley 9406 | 2016-11-30 |
 | 10 de 12 | 2024-10-01 | Ley 9747 | 2019-10-23 |
 | 11 de 12 | 2025-09-08 | Resolución 5647 (2025-09-02) | 2025-09-02 |
+| 12 de 12 | 2026-11-17 | Ley 10989 | 2026-11-09 |
