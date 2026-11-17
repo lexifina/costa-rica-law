@@ -1,0 +1,1 @@
+Artículo 3º—Derógase el artículo 14 del Reglamento, por contravenir la Ley No. 8968, Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, al restringir el acceso de las personas servidoras a sus propios datos personales.

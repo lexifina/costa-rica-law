@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónase un párrafo final al artículo 13 del Reglamento, que se leerá de la siguiente manera:
+“Cuando la Administración disponga la participación obligatoria de las personas servidoras municipales en actividades de capacitación, el tiempo destinado a estas se considerará tiempo efectivamente laborado. En consecuencia, cuando tales actividades se realicen fuera de la jornada ordinaria, generarán el reconocimiento y pago de tiempo extraordinario, de conformidad con el artículo 139 del Código de Trabajo y el presente Reglamento.”

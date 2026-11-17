@@ -1,0 +1,1 @@
+Artículo 4º—Corríjase la numeración del capítulo denominado “Capítulo II. Del Pago”, el cual se encuentra duplicado, para que en adelante se lea “Capítulo III. Del Pago”, ajustándose, de ser necesario, la numeración correlativa de los capítulos subsiguientes.
