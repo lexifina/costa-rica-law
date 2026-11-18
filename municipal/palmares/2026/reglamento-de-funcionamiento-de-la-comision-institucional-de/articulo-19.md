@@ -1,0 +1,1 @@
+Artículo 19.—Reformas. Las reformas al presente reglamento deberán ser aprobadas por el Concejo Municipal, previo criterio técnico de la Comisión Institucional NICSP y de las dependencias competentes cuando corresponda.

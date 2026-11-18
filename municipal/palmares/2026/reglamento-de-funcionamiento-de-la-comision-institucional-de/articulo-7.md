@@ -1,0 +1,1 @@
+Artículo 7º—Coordinación. La coordinación de la Comisión será ejercida por la persona que ocupe la Jefatura Administrativa Financiera o por quien esta designe formalmente durante sus ausencias temporales.

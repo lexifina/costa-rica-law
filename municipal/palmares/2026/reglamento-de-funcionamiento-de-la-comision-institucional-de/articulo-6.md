@@ -1,0 +1,1 @@
+Artículo 6º—Solicitud de información y criterio técnico. La Comisión podrá solicitar a cualquier dependencia municipal la información, documentación o criterio técnico que considere necesario para el cumplimiento de sus funciones. Las unidades requeridas deberán atender dichas solicitudes dentro del ámbito de sus competencias y en un plazo razonable.

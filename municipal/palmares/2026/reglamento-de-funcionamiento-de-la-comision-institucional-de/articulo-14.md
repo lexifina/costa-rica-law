@@ -1,0 +1,2 @@
+Artículo 14.—Suplencias. Cuando una persona integrante de la Comisión no pueda asistir a una sesión, la jefatura correspondiente podrá designar, por escrito o mediante correo electrónico institucional, una persona funcionaria de su dependencia para que la sustituya, quien participará con voz y voto durante esa sesión.
+La designación deberá comunicarse a la Secretaría antes del inicio de la sesión.

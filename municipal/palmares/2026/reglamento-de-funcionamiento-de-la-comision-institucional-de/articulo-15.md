@@ -1,0 +1,2 @@
+Artículo 15.—Confidencialidad. Las personas integrantes de la Comisión deberán guardar confidencialidad respecto de la información que, por su naturaleza o disposición legal, tenga carácter reservado o confidencial.
+La información obtenida en el ejercicio de sus funciones únicamente podrá utilizarse para el cumplimiento de los fines institucionales y deberá administrarse conforme a la normativa vigente sobre transparencia, acceso a la información pública, protección de datos personales, control interno y archivo institucional.

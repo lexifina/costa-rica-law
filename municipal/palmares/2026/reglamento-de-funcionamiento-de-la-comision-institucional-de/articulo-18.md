@@ -1,0 +1,1 @@
+Artículo 18.—Interpretación. La interpretación del presente reglamento corresponderá a la Comisión Institucional NICSP, sin perjuicio de las competencias de la Alcaldía, el Concejo Municipal y las autoridades rectoras en materia de contabilidad gubernamental.
