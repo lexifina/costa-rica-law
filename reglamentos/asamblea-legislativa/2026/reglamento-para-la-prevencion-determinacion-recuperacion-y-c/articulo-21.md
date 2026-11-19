@@ -1,0 +1,1 @@
+Artículo 21°- Derogatoria. A partir de la entrada en vigencia del presente reglamento, se deroga en su totalidad el Reglamento para la Prevención, Recuperación y Control de Sumas Pagadas de Más a Funcionarios y Exfuncionarios de la Asamblea Legislativa.

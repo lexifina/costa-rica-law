@@ -1,0 +1,11 @@
+CAPÍTULO II. Competencias y Responsabilidades
+Artículo 4°- Responsabilidades de la Gerencia General: Corresponde a la Gerencia General ejercer las siguientes funciones:
+a) Aprobar, rechazar o, cuando corresponda, formular una contrapropuesta respecto de las propuestas de arreglo de pago presentadas por las personas deudoras, previo criterio del Departamento de Asesoría Legal, de conformidad con las disposiciones del presente Reglamento.
+b) Comunicar oportunamente a las unidades administrativas competentes los acuerdos del Directorio Legislativo relacionados con movimientos de personal que puedan incidir en los procesos de pago y generar sumas pagadas de más.
+c) Comunicar al Departamento Financiero y a la unidad administrativa competente, según el origen de la obligación, los arreglos de pago aprobados, para su registro, control, seguimiento y demás actuaciones que correspondan.
+d) Autorizar y ordenar al Departamento de Recursos Humanos la aplicación de las deducciones de planilla correspondientes, cuando el arreglo de pago aprobado involucre a una persona funcionaria activa y esta modalidad resulte jurídicamente procedente.
+e) En caso de fallecimiento de la persona deudora, realizar las gestiones que correspondan de conformidad con el ordenamiento jurídico aplicable, a efectos de determinar la procedencia y continuidad de las acciones de recuperación de la obligación.
+f) Brindar al Departamento de Asesoría Legal la instrucción de apertura del procedimiento administrativo de cobro, cuando realizadas las gestiones iniciales de recuperación no se haya logrado la cancelación voluntaria de la obligación ni se haya formalizado un arreglo de pago.
+g) Emitir el acto final que corresponda, una vez concluido el procedimiento administrativo de cobro y recibido el informe y la recomendación del Departamento de Asesoría Legal.
+h) Notificar a la persona deudora el acto final emitido y comunicarlo a las unidades administrativas que deban realizar actuaciones derivadas de este.
+i) Cuando corresponda continuar con el cobro en sede judicial, emitir y suscribir la certificación de adeudo y disponer la remisión del expediente a la Procuraduría General de la República, junto con la documentación necesaria para la gestión correspondiente.

@@ -1,0 +1,9 @@
+Artículo 16°- Sobre la prescripción. La Administración deberá ejercer oportunamente las acciones necesarias para la recuperación de las sumas pagadas de más y otros montos por cobrar, dentro de los plazos establecidos por el ordenamiento jurídico aplicable, procurando evitar la prescripción de las acciones o derechos de cobro correspondientes.
+La determinación de la eventual prescripción deberá sustentarse en criterio jurídico emitido por el Departamento de Asesoría Legal, en el cual se analizarán, según la naturaleza de la obligación y el régimen jurídico aplicable, entre otros aspectos:
+a) La naturaleza jurídica y el origen de la obligación.
+b) El plazo de prescripción aplicable y el momento a partir del cual debe computarse.
+c) La existencia de actos, actuaciones o circunstancias con efectos interruptores o suspensivos de la prescripción, cuando corresponda.
+d) Las demás disposiciones legales, reglamentarias y criterios jurídicos aplicables al caso concreto.
+Cuando del análisis jurídico se determine que el plazo de prescripción de la acción o derecho de cobro se encuentra vencido, el Departamento de Asesoría Legal emitirá la recomendación correspondiente y se realizarán las actuaciones necesarias para tramitar el caso de conformidad con la normativa vigente aplicable en materia de prescripción e incobrabilidad.
+La documentación que sustente el análisis y las actuaciones realizadas deberá incorporarse al expediente administrativo y comunicarse al Departamento Financiero para los efectos de control y registro contable que correspondan.
+La determinación de la prescripción de una obligación no exime del análisis de los hechos u omisiones que pudieran haber incidido en el transcurso del plazo prescriptivo y dar lugar a eventuales responsabilidades administrativas, de conformidad con lo dispuesto en este Reglamento. Cuando se adviertan elementos que así lo ameriten, deberán ponerse en conocimiento de la autoridad competente para su valoración.

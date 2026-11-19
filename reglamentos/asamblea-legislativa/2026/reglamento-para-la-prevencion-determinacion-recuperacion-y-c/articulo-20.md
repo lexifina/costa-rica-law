@@ -1,0 +1,2 @@
+Artículo 20°- Auditoría Interna. La Gerencia General pondrá a disposición de la Auditoría Interna la información relacionada con la aplicación del presente Reglamento que resulte necesaria para el ejercicio de sus competencias.
+La Auditoría Interna podrá evaluar, de conformidad con sus competencias, planificación y criterios de riesgo, la suficiencia y efectividad de los controles y procedimientos establecidos para la prevención, determinación, recuperación, registro y seguimiento de las sumas pagadas de más y otros montos por cobrar a favor de la Institución.
