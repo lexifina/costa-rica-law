@@ -1,0 +1,3 @@
+Artículo 56. - Acceso a informes. La tramitación de los servicios de auditoría contemplados en esta sección es de acceso restringido hasta la emisión del informe final correspondiente.
+Los informes finales de Auditoría serán de acceso público una vez comunicados a la Administración Activa, salvo las partes que contengan información confidencial, según el ordenamiento legal.
+Los papeles de trabajo, expedientes y documentación de respaldo conservarán el régimen de acceso que corresponda según su contenido y la normativa aplicable. La emisión del informe final no producirá por sí sola el levantamiento de las restricciones legales de acceso.

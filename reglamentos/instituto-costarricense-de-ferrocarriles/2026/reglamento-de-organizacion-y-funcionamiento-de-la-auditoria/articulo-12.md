@@ -1,0 +1,1 @@
+Artículo 12. – De la participación en el Consejo Directivo y Comité de Auditoría. El Auditor Interno podrá participar en las sesiones del Consejo Directivo y Comité de Auditoría, con voz, pero sin voto, la participación se da bajo el entendido que esa asistencia no podrá afectar su independencia y objetividad y cumpliendo lo establecido en el artículo 34 de este Reglamento.

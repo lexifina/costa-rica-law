@@ -1,0 +1,1 @@
+Artículo 29. - Protección al personal de la Auditoría. Cuando el personal de la Auditoría Interna, en cumplimiento de sus funciones, se involucre en un conflicto legal o demanda, el INCOFER dará todo su respaldo, tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final, de conformidad con el artículo 26 de la Ley No. 8292.

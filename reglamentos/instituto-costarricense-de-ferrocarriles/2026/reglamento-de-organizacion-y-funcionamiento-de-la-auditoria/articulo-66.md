@@ -1,0 +1,1 @@
+Artículo 66. - Atención de denuncias. La Auditoría Interna establecerá las pautas para la gestión de las denuncias presentadas, incluyendo los requisitos que deberán tener para ser aceptadas, el trámite de gestión - incluyendo las condiciones para la desestimación y archivo - así como el protocolo de comunicación con los denunciantes.

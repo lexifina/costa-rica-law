@@ -1,0 +1,1 @@
+Artículo 50. - Servicios de autorización de libros. Consisten en la apertura y el cierre de los libros y registros de la Administración, relevantes para el control interno institucional, con base en la normativa aplicable y estableciendo la coordinación pertinente con la Administración.

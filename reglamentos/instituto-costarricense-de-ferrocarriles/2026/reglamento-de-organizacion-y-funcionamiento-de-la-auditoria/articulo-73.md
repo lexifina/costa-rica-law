@@ -1,0 +1,1 @@
+Artículo 73. - Incumplimiento injustificado de recomendaciones. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implementación de las recomendaciones, lo pondrá en conocimiento de la autoridad competente, para lo que proceda, de conformidad con el artículo 39 de la Ley General de Control Interno.

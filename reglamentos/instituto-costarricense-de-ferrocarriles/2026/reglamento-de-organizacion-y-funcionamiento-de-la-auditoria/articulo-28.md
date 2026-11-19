@@ -1,0 +1,3 @@
+Artículo 28. - Perfil de competencias del personal de Auditoría Interna. El perfil de los auditores o auditoras reunirá profesionales de las diversas disciplinas académicas y que cuenten con las cualidades personales idóneas y pericia, para garantizar el éxito en las funciones de auditoría.
+Las personas funcionarias de la Auditoría Interna realizarán su trabajo con pericia y el debido cuidado que se espera de un profesional razonablemente prudente y competente.
+La capacitación y el reclutamiento del personal de la Auditoría Interna se orientarán hacia el perfil de competencias que los faculte para el ejercicio de la profesión, y acorde con las posibilidades presupuestarias asignadas a la Auditoría Interna.

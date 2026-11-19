@@ -1,0 +1,3 @@
+Sección VI - Calidad
+Artículo 74. - Programa de aseguramiento de la calidad. La Auditoría Interna deberá desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra los aspectos de la actividad de la Auditoría Interna, para lo cual deberá considerar la cantidad de recursos humanos, tecnológicos y económicos disponibles por la Auditoría Interna, y la oportunidad de la evaluación.
+Dicho programa deberá considerar evaluaciones periódicas de calidad de carácter interno, y podrá considerar evaluaciones externas, según las posibilidades presupuestarias asignadas a la Auditoría Interna. Este programa se regirá conforme a las disposiciones emitidas por la Contraloría General de la República.

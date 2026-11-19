@@ -1,0 +1,1 @@
+Artículo 76. - Declaración de cumplimiento con las normas. En los informes de auditoría se debe revelar que el estudio fue realizado de conformidad con la normativa vigente, si fue así. En caso contrario, se revelará cual norma no fue cumplida, y se deberá documentar una justificación adecuada.
