@@ -1,0 +1,6 @@
+Artículo 40: Descripción de la clase
+La descripción de cada clase de puesto constituye una referencia general sobre la naturaleza de las funciones, responsabilidades y requisitos asociados a los puestos que la integran, por lo que no tendrá carácter restrictivo ni limitativo.
+En consecuencia, podrán asignarse a las personas funcionarias tareas adicionales o complementarias, siempre que estas se encuentren relacionadas con la naturaleza del puesto y correspondan a un nivel similar de complejidad, responsabilidad y dificultad.
+La asignación de nuevas tareas no implicará necesariamente una modificación en la clasificación del puesto, siempre que dichas funciones se mantengan dentro del ámbito propio de la clase correspondiente.
+Corresponderá a la Unidad de Gestión de Capital Humano, mediante el análisis técnico respectivo, determinar si las funciones asignadas se ajustan a la naturaleza de la clase de puesto o si, por el contrario, existe una variación sustancial y permanente que justifique la realización de un estudio de clasificación o reclasificación del puesto.
+La descripción de clases podrá ser revisada y actualizada cuando las necesidades institucionales, los cambios organizacionales o la normativa vigente así lo requieran, conforme a los procedimientos establecidos por la institución.

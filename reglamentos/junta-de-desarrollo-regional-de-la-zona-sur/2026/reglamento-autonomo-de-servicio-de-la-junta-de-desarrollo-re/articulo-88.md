@@ -1,0 +1,3 @@
+Artículo 88.- Vigencia del Reglamento
+Antes de entrar en vigor, el presente Reglamento deberá ser consultado al Sindicato y a la Asociación Solidarista de JUDESUR, quienes estarán sujetos a las normas aquí establecidas y emitirán su criterio para que posteriormente sea elevado a conocimiento y aprobación de la Junta Directiva. Una vez aprobado, será remitido a las instancias gubernamentales correspondientes para el otorgamiento del visto bueno respectivo.
+El presente Reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta. Para garantizar su vigencia y aplicación, la Dirección Ejecutiva deberá disponer el contenido total de este Reglamento en un lugar visible dentro de las instalaciones de la Institución.

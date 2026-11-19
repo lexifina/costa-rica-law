@@ -1,0 +1,6 @@
+Artículo 47.- Salario escolar
+Todos los trabajadores de la Junta de Desarrollo Regional de la Zona Sur de Puntarenas (JUDESUR) tendrán derecho a percibir el salario escolar, de conformidad con las disposiciones emitidas por el Poder Ejecutivo y la normativa vigente aplicable al Sector Público.
+El salario escolar constituye un ingreso adicional anual, financiado mediante la acumulación de un porcentaje de las remuneraciones ordinarias devengadas durante el período correspondiente, según los lineamientos establecidos por las autoridades competentes.
+Dicho beneficio será cancelado en el mes de enero de cada año, en la fecha que defina la Administración, conforme a la programación financiera institucional.
+En caso de terminación de la relación laboral antes de la finalización del período correspondiente, el trabajador tendrá derecho al reconocimiento proporcional del salario escolar acumulado, el cual deberá ser incluido en la liquidación respectiva.
+La Administración Financiera será responsable de efectuar el cálculo, control y pago del salario escolar, garantizando su correcta aplicación conforme a la normativa vigente y a los principios de legalidad, transparencia y sostenibilidad financiera.

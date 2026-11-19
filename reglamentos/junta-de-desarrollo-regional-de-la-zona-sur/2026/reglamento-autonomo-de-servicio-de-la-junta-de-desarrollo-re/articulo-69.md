@@ -1,0 +1,8 @@
+Artículo 69.- Justificación de ausencias y llegadas tardías
+Corresponderá al superior inmediato valorar la procedencia de las justificaciones por ausencias y llegadas tardías de los servidores a su cargo, con base en criterios objetivos y razonables, conforme a lo dispuesto en el presente Reglamento y la normativa vigente.
+Las incapacidades médicas o comprobantes de atención extendidos por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros deberán ser aceptados como justificación válida, conforme a la normativa aplicable.
+El servidor deberá notificar a su superior inmediato, a más tardar el día hábil siguiente, las causas que le impidieron asistir al trabajo, ya sea verbalmente o por escrito. En casos de fuerza mayor debidamente comprobada, la notificación podrá realizarse en un plazo posterior razonable.
+Al reincorporarse a sus labores, el servidor deberá presentar la justificación por escrito, acompañada de los documentos de respaldo correspondientes, la cual será evaluada por el superior inmediato.
+En caso de ser aceptada, la documentación deberá remitirse a la Gestión de Capital Humano para su incorporación en el expediente personal del servidor.
+En caso de que la justificación no sea aceptada, la ausencia se considerará injustificada, procediendo la aplicación de las medidas administrativas y disciplinarias correspondientes, conforme al presente Reglamento y la normativa vigente.
+Cuando el servidor incurra en dos ausencias injustificadas consecutivas o tres alternas en un mismo mes calendario, el superior inmediato deberá poner el caso en conocimiento del órgano competente, a efectos de valorar la aplicación de las sanciones previstas en el artículo 81 inciso g) del Código de Trabajo

@@ -1,0 +1,5 @@
+Artículo 34: Pago de viáticos y transporte
+Las personas servidoras de la Junta de Desarrollo Regional de la Zona Sur (JUDESUR) que deban desplazarse dentro o fuera del país con motivo del ejercicio de sus funciones o en representación oficial de la institución, tendrán derecho al reconocimiento y pago de los gastos de viaje, transporte y viáticos correspondientes.
+El pago de dichos gastos se realizará conforme a lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos emitido por la Contraloría General de la República de Costa Rica, así como a las tarifas y disposiciones vigentes establecidas en las respectivas tablas de viáticos.
+La autorización para la realización de viajes oficiales deberá otorgarse previamente por la jefatura correspondiente y por la Dirección Ejecutiva o la instancia administrativa competente, conforme a los procedimientos internos establecidos por la institución.
+El reconocimiento y pago de viáticos, transporte y otros gastos asociados estará sujeto a los controles administrativos y presupuestarios establecidos por la institución y a la normativa vigente en materia de control del gasto público.
