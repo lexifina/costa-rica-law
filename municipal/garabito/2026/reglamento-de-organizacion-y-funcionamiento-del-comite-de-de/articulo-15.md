@@ -1,0 +1,25 @@
+ARTÍCULO 15° Funciones de la Junta Directiva del CCDR:
+a) Prever, planificar, ejecutar, coordinar y controlar todo el accionar del CCDR
+b) Proponer al Concejo Municipal las prioridades, alcances y políticas deportivas o recreativas del cantón.
+c) Velar porque los recursos asignados por la Municipalidad de Garabito y recursos propios sean dirigidos en forma prioritaria de las personas residentes en el Cantón.
+d) Establecer y mantener actualizadas su estructura administrativa y organizativa.
+e) Implementar las estrategias y políticas generales de acción, una vez que sean aprobadas por el Concejo Municipal.
+f) Elaborar e informar al Concejo Municipal los informes mensuales y planes anuales; sus ajustes en coherencia con las políticas deportivas y recreativas para su conocimiento.
+g) Puede celebrar convenios, conforme a la ley.
+h) Comprometer los fondos y autorizar los egresos referentes a todos los procesos sean licitatorios, convenios; además de recaudar y presupuestar todos los recursos ingresados por alquileres y otros.
+i) Elegir y juramentar a los miembros de las Comisiones.
+j) Juramentar a los miembros electos de los Comités Distritales o Comunales.
+k) Proponer al Concejo la construcción de infraestructura deportiva, para lo cual se debe observar lo establecido en la normativa vigente.
+l) Evaluar el impacto y el desarrollo de los programas deportivos, recreativos y de movimiento humano que se implementan en el cantón o en los que se participa representando a Garabito.
+m) Divulgar y promocionar todas las actividades deportivas, recreativos y de movimiento humano que se realizan en el cantón.
+n) Preparar un informe semestral de labores con liquidación presupuestaria y presentarlo al Concejo Municipal para su conocimiento, a más tardar el último día hábil de los meses de julio y enero de cada año, certificado y emitido por un Contador Público Autorizado, todo conforme a las NIC y NIIF.
+o) Rendir ante el Concejo Municipal los Estados Financieros y un informe de ingresos y egresos de los recursos que el CCDR ha autorizado, gestionado, donado, recibido o administrado; estos en el mes de febrero.
+p) Nombrar y remover en su oportunidad al Administrador (a), de acuerdo con la legislación vigente sin perjuicio de lo que se regule más adelante.
+q) Designación anual del o de la atleta, entrenador (a) o dirigente distinguido (a) del cantón.
+r) Proponer al Concejo Municipal las actualizaciones de los Manuales de Organización y de Clases de Puestos; así como del Manual de organización de este Comité; y velar por su cumplimiento y coherencia.
+s) Actualizar las listas de asociaciones, organizaciones, fundaciones y otras formas de Sociedad civil organizada con personería jurídica vigente; tanto de las adscritas deportivas y recreativas como el resto de las inscritas al CCDR.
+t) Cumplir con la establecido en este reglamento sobre los procesos para la donación de implementos, materiales, maquinaria y equipo, para proyectos, planes y programas, a las
+organizaciones deportivas del cantón, aprobadas por el Instituto Costarricense del Deporte y la Recreación, que se encuentren debidamente inscritas en el Registro de Asociaciones, así como a las juntas de educación de las escuelas públicas y las juntas administrativas de los colegios públicos del respectivo cantón.
+u) Aprobar las becas deportivas y realizar donaciones de equipamiento deportivo, pagos de inscripciones, de arbitrajes, capacitaciones, transporte, alimentación y hospedajes a atletas sin distinción de que se encuentren en etapa de competencia, formación u otra, y a entrenadores que representen formalmente al cantón.
+w) Podrán aprobar la donación de recursos económicos mediante transferencias bancarias a las asociaciones deportivas y recreativas de este cantón, debidamente conformadas, para contribuir con los planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales que el CCDR respalde, dichas donaciones deben cumplir con el ordenamiento jurídico vigente y el reglamento de idoneidad para el manejo de fondos públicos de la CGR.
+Cualquier otra función que el Concejo le asigne en materia de deporte, recreación y vida saludable en el cantón mediante acuerdo municipal o reglamentaria.

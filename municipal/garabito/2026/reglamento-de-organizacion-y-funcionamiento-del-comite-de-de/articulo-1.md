@@ -1,0 +1,52 @@
+MUNICIPALIDAD DE GARABITO
+El Concejo Municipal de Garabito en Sesión Ordinaria N.º. 142, ARTICULO IV: INFORME DEL ALCALDE., punto Nº.2), celebrada el 09 de noviembre del 2026, ACUERDA:
+ACUERDO N°.1: APROBAR en segundo debate el “REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ DE DEPORTES DE LA MUNICIPALIDAD DE GARABITO”, aprobado por primera vez por el Concejo Municipal de Garabito en Sesión Ordinaria N°.92, en el ARTÍCULO III: CORRESPONDENCIA RECIBIDA AL CONCEJO MUNICIPAL, punto Nº.15), celebrada el 24 de noviembre del 2025, notificado en el oficio S.G. 603-2025, de fecha 25 de noviembre, que literalmente dice lo siguiente:
+“Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y
+Recreación de la Municipalidad de Garabito.
+PRIMERO: Que el artículo 170 de la Constitución Política, así como el artículo 4º, 13 inciso c) y 178 del Código Municipal reconocen la autonomía política, administrativa y financiera de las municipalidades y la facultad de dictar un Reglamento que regule la organización y funcionamiento de los Comités Cantonales de Deportes y Recreación y la administración de las instalaciones deportivas municipales.
+SEGUNDO: Que la Municipalidad de Garabito a través del Comité Cantonal de Deportes y Recreación debe velar por la formulación e implementación de los programas recreativos y deportivos, la protección de las instalaciones deportivas municipales, así como por la verificación del cumplimiento de los objetivos en materia deportiva y recreativa, como factor determinante del desarrollo integral del individuo y la comunidad en general.
+TERCERO: Que el deporte y recreación son parte fundamental para la salud pública cantonal; que este proceso y su participación debe darse para beneficio de la familia como parte fundamental del desarrollo de la sociedad, de los niños, jóvenes, adultos, adultos mayores y personas con necesidades especiales de la comunidad garabiteña.
+CUARTO: Que el deporte y la recreación forman parte del proceso de desarrollo pleno del individuo; que incentiva una sociedad más respetuosa, dinámica, disciplinada, saludable y solidaria.
+QUINTO: Que el Comité Cantonal de Deportes y Recreación de Garabito y las organizaciones deportivas y recreativas buscan contribuir al bienestar de la población a través de la recreación, al estímulo del trabajo en equipo de los deportes en la práctica deportiva competitiva; así como reconocer a las personas que realizan esfuerzos significativos para representar al Cantón como ejemplo de la superación personal o grupal.
+SEXTO: Que ante la emisión del Código Municipal (Ley No. 7794 del 18 de mayo de 1998), y sus reformas contenidas en la Ley N°10626 del 05 de diciembre del 2024 publicada en el Alcance N°6 a la Gaceta N°10 publicada el viernes 17 de enero del 2025 y de conformidad con lo expuesto y con fundamento en los Artículos 11 de la Constitución Política de la República de Costa Rica, los Artículos 11.1, 13.1 Y 16.1 de la Ley General de la Administración Pública resulta necesario adecuar las disposiciones reglamentarias que regulan la organización y funcionamiento del Comité Cantonal de Deportes y Recreación a las nuevas exigencias legales.
+SÉTIMO: Que, en consecuencia, el Concejo Municipal inspirado en los fundamentos que anteceden, emite el nuevo Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Garabito.
+DEFINICIONES Y SIGLAS
+ARTÍCULO 1º Para la aplicación del presente Reglamento y la interpretación de este, se entiende por:
+Adscrito: Persona Jurídica inscrita ante la Junta Directiva únicamente para efectos de elección.
+Alquiler: monto que se cobra por el arrendamiento de una instalación deportiva.
+Asamblea de Organizaciones Deportivas y Recreativas: Formada por los representantes de las Asociaciones deportivas o recreativas adscritas al CCDR.
+Asamblea de Organizaciones comunales: Formada por los representantes de las organizaciones comunales restantes inscritas al CCDR.
+Asamblea de Elección de los Comités Comunales y/o Distritales: Formada por los representantes de las organizaciones 1) De desarrollo Comunal existente, 2) Organizaciones Deportivas y Recreativas informales, existentes en la comunidad. Asamblea de Organizaciones Juveniles: Formada por las representaciones de las organizaciones juveniles inscritas ante el CCDR y los dos representantes por disciplina deportiva que participaron en el Programa de Juegos Nacionales.
+Asociaciones deportivas: Ente, organización, asociación o fundación debidamente constituida encargada de controlar, ejecutar, facilitar y promover lo relacionado a la recreación y/o deportiva, domiciliada en el cantón en estrecha coordinación con el Comité Cantonal de Garabito.
+Asociaciones de Desarrollo Comunal: Todo grupo o entidad pública o privada, nacional o internacional, que desee dedicarse en Costa Rica bajo lo establecido en la Ley N° 3859, Ley sobre el Desarrollo de la Comunidad (DINADECO).
+Atleta: Persona que práctica un deporte en representación de un Comité Cantonal de Deporte y Recreación de Deporte y Recreación de Garabito.
+Beca: Son los egresos en los que puede incurrir el CCDR para el pago de alimentos y bebidas (hidratación) a sus atletas y cuerpos técnicos que participen en diferentes actividades deportivas y recreativas en representación del CCDR.
+CCDR o Comité Cantonal: Órgano colegiado adscrito a la municipalidad respectiva, que gozará de personería jurídica instrumental y funcionará como órgano técnico desconcentrado de la corporación municipal para desarrollar planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales, así como para construir, administrar, mantener y ceder el uso de sus instalaciones deportivas o recreativas a otras organizaciones, conforme lo establece el Código Municipal, Ley N° 7794 del 30 de abril de 1998 y sus reformas.
+Convenio: Pacto, contrato o acuerdo por medio escrito entre personas, organizaciones, instituciones u otro ente legalmente conformado, que se desarrolla en función de un asunto específico.
+Contraloría General de la República o CGR: Es el máximo órgano de control fiscal del Estado. Como tal, tiene la misión de procurar el buen uso de los recursos públicos y contribuir a la modernización del Estado, mediante acciones de mejoramiento continuo en las distintas entidades públicas.
+Comisiones: Conjunto de al menos tres personas que atienden una actividad específica a juicio de la Junta Directiva (JD) del Comité Cantonal, tales como Instalaciones Deportivas, Juegos Nacionales, Juegos Escolares, Médica, Adulto Mayor, sin perjuicio que se instalen otras a criterio del mencionado Comité Cantonal.
+Comité Distrital o Comunal: Comité Distrital o Comunal de Deportes y Recreación nombrado en asamblea general convocada por la Junta Directiva, mínimo debe existir uno en cada distrito del Cantón de Garabito.
+Cuerpo Técnico: Persona mayor de dieciocho años de edad con experiencia o preparación deportiva, inscrito por el Comité Cantonal de Deporte y Recreación Garabito.
+Deber de probidad: Obligación del funcionario público de administrar los recursos públicos con apego a los principios de legalidad, eficacia, economía y eficiencia, rindiendo cuentas satisfactoriamente.
+Delegado: Representante del Comité Cantonal con atribuciones en aspectos competitivos y disciplinarios según las disposiciones aplicables al efecto.
+Deporte: Eventos reglados y normados en tiempo y distancia.
+Deportista: Persona que practica algún deporte.
+Donación: equipamiento deportivo, pagos de inscripciones, de arbitrajes, capacitaciones, transporte, alimentación y hospedajes
+Entrenador: Persona con conocimiento técnico certificado por una institución acreditada en determinado deporte, encargado de dirigir deportistas o equipos.
+Equipo: Conjunto de personas que practican o ejecutan una misma disciplina deportiva.
+Corporación Municipal: Entes de la administración, órganos colegiados y entes asociativos del régimen municipal.
+ICODER: Instituto Costarricense del Deporte y la Recreación.
+Inscrito: Persona jurídica que se le reconoce, por estar anotado en una lista particular de elementos asociados o relacionados y sin que eso implique pertenencia.
+JD o Junta Directiva: Máxima autoridad y jerarca superior en el CCDR, conformada por 7 personas respetando la paridad de género, subordinada al Concejo Municipal.
+Miembros de JD o Suplentes de JD: Personas nombradas por los diferentes órganos que indica el Código Municipal, Ley N° 7794 del 30 de abril de 1998 y sus reformas.
+Municipalidad: Persona jurídica estatal, con patrimonio propio y personalidad y capacidad jurídica plenas para ejecutar todo tipo de actos y contratos necesarios para cumplir con sus fines.
+Organización Comunal: Ente u Órgano debidamente constituido que cumple una finalidad u objetivo según su creación y constitución.
+Organización Deportiva: Entes debidamente constituidos para el desarrollo del deporte o la recreación aprobadas por el Instituto Costarricense del Deporte y la Recreación y que se encuentren debidamente inscritas en el Registro de Asociaciones.
+Organización juvenil cantonal: Agrupación de jóvenes con fines comunes afiliados mínimo por un año al CCDR.
+Órgano: Instancia administrativa que carece de personería jurídica.
+PONADRAF: Política Nacional del Deporte la Recreación y Actividad Física.
+Principio de eficiencia: La aplicación más conveniente de los recursos asignados para maximizar los resultados obtenidos o esperados.
+Principio de legalidad: El actuar del funcionario público en apego a lo autorizado expresamente en la legislación. Es el sometimiento de toda actuación pública al ordenamiento jurídico.
+Recreación: Toda actividad o pasatiempo, generalmente al aire libre, tales como el arte, la cultura, la música, el baile, la lectura, el servicio a la comunidad, los deportes, los juegos y la vida al aire libre, los que divierten y entretienen.
+Residente: Persona que habita en el Cantón de Garbito.
+Tarifa: Monto que se cobra por un servicio prestado.

@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+DE LAS ACTAS
+ARTÍCULO 38° Todos los órganos adscritos y que conforman el CCDR a que se refiere este Reglamento deberán llevar un libro de Actas donde consten los acuerdos y demás incidencias que éstos traten. Los libros contables y legales debidamente foliados deberán estar al día, así como las personerías jurídicas correspondientes. En el caso de las Asociaciones Adscritas al CCDR; deben mantenerse al día en sus libros y en su personería jurídica según lo estipula la Ley de Asociaciones, las leyes conexas y reglamentos que los amparen. La Municipalidad no puede mantener una alianza con un ente que no cumpla la ley.
