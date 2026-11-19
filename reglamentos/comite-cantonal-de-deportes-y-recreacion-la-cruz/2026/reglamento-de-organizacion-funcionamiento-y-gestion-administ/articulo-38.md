@@ -1,0 +1,2 @@
+Artículo 38. Creación de la unidad de Gestión Administrativa.
+Se establece la unidad funcional denominada Gestión Administrativa, encargada de coordinar los procesos administrativos y operativos del CCDR La Cruz. Esta unidad sustituirá, en la estructura reglamentaria, a la anterior Secretaría Administrativa-Deportiva. La sustitución organizativa no producirá por sí misma el cese, traslado, reclasificación o modificación de las condiciones laborales de ninguna persona funcionaria sin el debido proceso.

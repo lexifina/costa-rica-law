@@ -1,0 +1,2 @@
+Artículo 48. Evaluación del desempeño.
+El personal estará sujeto a los sistemas de evaluación del desempeño aplicables, con criterios objetivos y relacionados con las responsabilidades del puesto. La Junta Directiva del CCDR La Cruz será responsable de evaluar el desempeño de la persona encargada de Gestión Administrativa, en su condición de superior jerárquico directo, mediante los instrumentos, criterios y procedimientos establecidos en el régimen municipal de empleo público aplicable.

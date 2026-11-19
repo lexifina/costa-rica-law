@@ -1,0 +1,2 @@
+Artículo 90. Derogatoria.
+Con la entrada en vigencia del presente Reglamento, quedan derogados el Reglamento para el Nombramiento del Comité Cantonal de Deportes y Recreación de La Cruz, del año 2012, y el Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de La Cruz, del año 2013, así como sus reformas y demás disposiciones reglamentarias anteriores de igual o inferior jerarquía que se opongan al presente Reglamento.

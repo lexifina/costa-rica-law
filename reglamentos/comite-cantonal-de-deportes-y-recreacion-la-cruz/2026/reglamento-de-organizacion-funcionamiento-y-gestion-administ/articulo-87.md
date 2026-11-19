@@ -1,0 +1,3 @@
+CAPÍTULO XII. DISPOSICIONES FINALES
+Artículo 87. Interpretación y aplicación del Reglamento.
+Las disposiciones del presente Reglamento deberán interpretarse y aplicarse de conformidad con la Constitución Política, el Código Municipal, la legislación especial aplicable a los comités cantonales de deportes y recreación y los principios generales del derecho público. En su aplicación se respetarán la naturaleza jurídica, la desconcentración técnica, la personería jurídica instrumental y las competencias legalmente atribuidas al CCDR La Cruz y a su Junta Directiva, sin perjuicio de las atribuciones que correspondan a otros órganos y autoridades competentes.

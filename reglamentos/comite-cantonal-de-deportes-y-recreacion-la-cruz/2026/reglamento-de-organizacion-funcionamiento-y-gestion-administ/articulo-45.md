@@ -1,0 +1,2 @@
+Artículo 45. Creación y clasificación de puestos.
+Corresponderá a la Junta Directiva del CCDR La Cruz promover, justificar y gestionar la creación, modificación y clasificación de los puestos necesarios para el funcionamiento institucional, así como proponer sus respectivos perfiles, con fundamento en las necesidades del servicio, criterios técnicos y disponibilidad presupuestaria, de conformidad con el régimen municipal de empleo público y las competencias legalmente atribuidas a otros órganos.

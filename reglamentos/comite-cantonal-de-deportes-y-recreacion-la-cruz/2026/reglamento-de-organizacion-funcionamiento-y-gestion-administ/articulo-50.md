@@ -1,0 +1,2 @@
+Artículo 50. Capacitación.
+El CCDR La Cruz promoverá y facilitará procesos de capacitación, formación y actualización dirigidos al personal administrativo, entrenadores, instructores, deportistas, dirigentes deportivos, padres de familia, voluntarios y demás personas vinculadas al deporte y la recreación. Cuando exista financiamiento institucional, podrán establecerse convenios o compromisos de aprovechamiento y retribución de los conocimientos adquiridos en beneficio del CCDR y la comunidad, conforme a la normativa aplicable.

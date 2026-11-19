@@ -1,0 +1,2 @@
+Artículo 39. Responsable de Gestión Administrativa.
+La unidad estará a cargo de una persona, responsable de la coordinación técnica y operativa de los procesos administrativos del CCDR La Cruz, bajo la dependencia jerárquica directa de la Junta Directiva. Este puesto constituirá la posición administrativa permanente prevista inicialmente en la estructura institucional, sujeto a su creación, clasificación, valoración y financiamiento conforme al régimen jurídico aplicable.

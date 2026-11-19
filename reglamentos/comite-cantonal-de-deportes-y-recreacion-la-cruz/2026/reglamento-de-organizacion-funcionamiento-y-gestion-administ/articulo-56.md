@@ -1,0 +1,2 @@
+Artículo 56. Adquisición de bienes inmuebles.
+El CCDR La Cruz podrá promover y gestionar la compra, donación, permuta u otras formas legalmente autorizadas de adquisición de terrenos y bienes inmuebles destinados al desarrollo de infraestructura, programas y proyectos deportivos, recreativos y de estilos de vida saludable. Toda adquisición deberá contar con justificación de interés público, estudios técnicos y jurídicos, avalúo, disponibilidad presupuestaria, acuerdo de Junta Directiva, las autorizaciones y procedimientos legalmente correspondientes.

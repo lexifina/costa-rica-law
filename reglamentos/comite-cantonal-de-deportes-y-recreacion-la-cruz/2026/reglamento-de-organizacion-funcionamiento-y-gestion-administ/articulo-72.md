@@ -1,0 +1,2 @@
+Artículo 72. Funciones de los comités distritales y comunales.
+Los comités distritales y comunales podrán promover, organizar y ejecutar actividades deportivas, recreativas y comunitarias, gestionar alianzas, patrocinios, donaciones y actividades de recaudación de fondos para el cumplimiento de sus objetivos, en coordinación con el CCDR La Cruz y sujetos a los procedimientos de administración y control legalmente aplicables.

@@ -1,0 +1,2 @@
+Artículo 33. Quórum.
+La Junta Directiva deberá encontrarse debidamente integrada por la totalidad de sus miembros legalmente nombrados e investidos para ejercer válidamente sus competencias. Una vez cumplida esta condición, podrá sesionar con la presencia de la mayoría absoluta de sus integrantes, sin requerirse la asistencia de la totalidad de ellos. Los acuerdos se adoptarán conforme a las mayorías establecidas por el ordenamiento jurídico, salvo disposición especial aplicable.
