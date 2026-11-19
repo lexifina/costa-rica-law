@@ -1,0 +1,1 @@
+Artículo 67. Responsabilidad funcionarial. El incumplimiento de este reglamento, de la Ley N.° 8220, de la Ley N.° 8292 o de los procedimientos tributarios establecidos podrá generar responsabilidad administrativa, civil o penal, según corresponda.
