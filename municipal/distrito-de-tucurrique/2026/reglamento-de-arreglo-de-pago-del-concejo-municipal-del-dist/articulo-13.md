@@ -1,0 +1,2 @@
+Artículo 13.- Plazos para pagar la cuota inicial Todo contribuyente que cumpla con los requisitos establecidos para el arreglo de pago, podrá solicitar pagar la cuota inicial del arreglo de pago en un tiempo máximo de 2 meses naturales.
+Para tal efecto, deberá presentar una carta con solicitud formal del plazo que necesite para pagar la cuota inicial. En este sentido, se recargará al arreglo de pago los servicios, impuestos e intereses que se generen durante el tiempo que dure en formalizar el arreglo de pago y su debida cuota inicial.

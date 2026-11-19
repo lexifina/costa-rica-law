@@ -1,0 +1,3 @@
+Artículo 7º-Ampliación de plazos de cumplimiento.
+Todo contribuyente que solicite una ampliación del arreglo de pago solicitado, deberá traer una carta justificando la solicitud de ampliación del plazo. Este trámite deberá ser realizado a través de la oficina de caja municipal y se tendrá un tiempo máximo de 10 días hábiles para resolver.
+La Municipalidad podrá ampliar por una única vez el plazo original del arreglo de pago solicitado, previa resolución del departamento de Tesorería Municipal. De ser necesario se suscribirá un título adicional (ej. letra de cambio) que garantice a la Institución la recuperación de las deudas no pagadas. Cualquier otra ampliación deberá ser conocida y aprobada por el Concejo Municipal.

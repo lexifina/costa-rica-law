@@ -1,0 +1,1 @@
+Artículo 16.-Vigencia del Reglamento. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, será aplicable a las deudas que a la fecha se encuentren morosas ya fuese en cobro administrativo, en trámite de cobro judicial o en arreglo de pago.

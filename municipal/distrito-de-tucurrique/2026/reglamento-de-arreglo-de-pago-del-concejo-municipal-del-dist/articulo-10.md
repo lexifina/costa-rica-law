@@ -1,0 +1,3 @@
+Artículo 10.-Condiciones para otorgar arreglos de pago. El arreglo de pago se aprobará por parte de la instancia autorizada, según este reglamento, para lo cual esta valorará las siguientes condiciones del sujeto pasivo:
+a. Capacidad económica. El sujeto pasivo debe comprobar a la instancia autorizada, que su situación económica impide cancelar, en forma total e inmediata, las obligaciones vencidas. Quedará a discrecionalidad de la instancia autorizada el solicitar cualquier aclaración al respecto.
+b. Monto adeudado. De proceder el arreglo de pago, ambas partes pactarán el monto de las cuotas a cancelar mensualmente, y el plazo para la cancelación total de la obligación vencida, que no podrá exceder de lo determinado en este Reglamento.

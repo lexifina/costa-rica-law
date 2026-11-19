@@ -1,0 +1,1 @@
+Artículo 14.-Resolución del arreglo de pago. Una vez cancelada la totalidad del arreglo de pago, la oficina de Tesorería Municipal realizará una resolución que certifique el cumplimiento total del arreglo de pago, adjunto de un estado de cuenta.
