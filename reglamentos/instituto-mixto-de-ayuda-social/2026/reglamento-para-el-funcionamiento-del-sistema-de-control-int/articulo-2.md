@@ -1,0 +1,1 @@
+Artículo 2. Objetivos Específicos. Con la aplicación de este reglamento, la Administración persigue sistematizar los lineamientos aplicables a la valoración de riesgos institucional que permitan el desarrollo del proceso con pertinencia y rigurosidad, Orientar a las dependencias administrativas de la institución en las pautas normativas del Sistema de Control Interno.

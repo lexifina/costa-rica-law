@@ -1,0 +1,3 @@
+Artículo 25. De la ejecución y seguimiento de los Planes de Mejora de la Autoevaluación Institucional
+Las jefaturas de cada unidad organizativa serán encargados de ejecutar los planes de mejora derivados de los resultados obtenidos del proceso de Autoevaluación, estableciendo las personas encargadas, plazos e indicadores de cumplimiento, asimismo deberán garantizar la veracidad, oportunidad y calidad de la información suministrada que lo sustenta.
+Corresponderá a la Planificación Institucional como instancia técnica asesora de Control Interno institucional dar seguimiento al cumplimiento de los planes de mejora derivados de la autoevaluación e informar a la Gerencia General y las respectivas direcciones sobre el avance del cumplimiento de estos.

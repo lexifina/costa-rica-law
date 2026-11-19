@@ -1,0 +1,1 @@
+Artículo 27. Inducciones para Personal de Primer Ingreso: Todas personas funcionarias y trabajadoras de primer ingreso deberán participar, de manera obligatoria, en el programa institucional de inducción.

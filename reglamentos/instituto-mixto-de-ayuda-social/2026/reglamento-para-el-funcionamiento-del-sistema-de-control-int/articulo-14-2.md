@@ -1,0 +1,1 @@
+Artículo 14. Objetivo general del SEVRI: El Sistema de Valoración de Riesgos Institucional deberá incluir a todos los niveles organizacionales, para la administración de riesgos que puedan incidir en el cumplimiento de los planes, proyectos, objetivos y metas; y lograr un nivel aceptable de riesgo institucional.

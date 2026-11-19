@@ -1,0 +1,2 @@
+Artículo 28. Capacitaciones a Jefaturas y Enlaces Institucionales: La institución garantizará la ejecución de capacitaciones dirigidas a las jefaturas y enlaces institucionales, con el fin de fortalecer sus competencias en materia del Sistema de Control Interno a saber: Valoración de Riesgos, Autoevaluación y Fortalecimiento del SCI vinculadas a la gestión pública.
+La participación en las capacitaciones establecidos será de carácter obligatorio para los puestos de Jefaturas y enlaces institucionales.
