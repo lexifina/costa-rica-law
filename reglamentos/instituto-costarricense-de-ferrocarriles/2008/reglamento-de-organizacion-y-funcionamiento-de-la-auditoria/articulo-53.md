@@ -1,2 +1,0 @@
-Artículo 53.—Programa de Aseguramiento de la Calidad. El Auditor Interno deberá desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra los aspectos de la actividad de la Auditoría Interna, para lo cual deberá considerar la cantidad de recursos humanos, tecnológicos y económicos, disponibles por la Auditoría Interna, y la oportunidad de la evaluación.
-Dicho programa deberá considerar evaluaciones periódicas de calidad tanto de carácter interno como externo.

@@ -1,1 +1,0 @@
-Artículo 91.—Fiscalización de objetivos, metas y programas. Los funcionarios de la Auditoría Interna deberán fiscalizar la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos; y que éstos sean consistentes con la organización, cuantificables y de impacto.

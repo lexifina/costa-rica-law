@@ -1,1 +1,0 @@
-Artículo 27.—Comunicación de los Riesgos que Asume el Jerarca. Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la Auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, debe informar al jerarca del riesgo que esta asumiendo y de la eventual imputación de responsabilidades que esta situación puede generarle.

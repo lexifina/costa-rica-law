@@ -1,1 +1,0 @@
-Artículo 56.—Informe sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas y externas deberán contar en un informe y el Auditor Interno deberá preparar un plan de mejora, si así lo requieren los resultados y comunicarlo a la Junta Directiva. El Auditor Interno será responsable de dar un seguimiento adecuado al plan de mejora.

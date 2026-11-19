@@ -1,1 +1,0 @@
-Artículo 89.—Control. La actividad de la Auditoría coadyuvará en el mantenimiento de los controles efectivos, mediante la fiscalización de la eficacia, eficiencia, economía y legalidad de dichos controles y promoviendo su mejora continúa.

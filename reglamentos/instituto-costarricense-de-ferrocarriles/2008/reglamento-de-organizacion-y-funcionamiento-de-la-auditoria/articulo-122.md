@@ -1,1 +1,0 @@
-Artículo 122.—Solicitud de aclaración. En caso de determinar la Auditoría Interna que existe imprecisión de los hechos, se otorgará un plazo no menor de 10 días hábiles para que el o la denunciante complete su información o de lo contrario se podrá archivar o desestimar la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

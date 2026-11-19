@@ -1,1 +1,0 @@
-Artículo 77.—Valoración preliminar de riesgos. Los auditores, durante la planificación del trabajo, deberán realizar una valoración preliminar de riesgos pertinente a la actividad bajo revisión. Los objetivos del trabajo deberán reflejar esa valoración.

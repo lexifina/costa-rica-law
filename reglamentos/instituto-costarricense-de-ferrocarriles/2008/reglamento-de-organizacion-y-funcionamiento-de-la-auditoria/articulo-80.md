@@ -1,1 +1,0 @@
-Artículo 80.—Asuntos a considerar al definir el alcance del trabajo de Auditoría. Al definir el alcance de los trabajos de Auditoría en auditor debe tomar en consideración los sistemas, registros, equipo, materiales, el personal y la ubicación física y otros relevantes, incluso los que se encuentren bajo control de terceros.

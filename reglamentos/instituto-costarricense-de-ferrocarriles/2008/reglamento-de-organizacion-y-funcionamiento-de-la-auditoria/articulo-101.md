@@ -1,3 +1,0 @@
-Artículo 101.—Registro de la información. Los funcionarios de la Auditoría Interna deberán registrar información relevante que les permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
-a- El Auditor Interno deberá controlar el acceso a los registros de trabajo a personas ajenas a la Auditoría Interna, de modo que se realice sólo con su autorización o la de quien él designe. Los archivos de trabajo deberán estar ubicados en los lugares más seguros de la oficina de la Auditoría Interna.
-b- El Auditor Interno deberá establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos deberán ser consistentes con las regulaciones pertinentes y otros requerimientos sobre este tema.

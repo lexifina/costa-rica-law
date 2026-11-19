@@ -1,3 +1,0 @@
-Artículo 62.—Informe Anual a la Junta Directiva. El Auditor Interno deberá informar, al menos, anualmente, al Consejo Directivo sobre la actividad desplegada por la Auditoría Interna en el Plan de Trabajo. El informe anual de labores de la Auditoría Interna deberá ser presentado a más tardar en el mes de febrero de cada año.
-El informe anual podrá contener asuntos relevantes sobre exposición al riesgo, cuestiones de control, de los procesos de dirección y otros necesarios o requeridos para el buen funcionamiento de la organización.
-A consideración del Auditor Interno podrá incluirse un apartado con el criterio respecto al estado general institucional.

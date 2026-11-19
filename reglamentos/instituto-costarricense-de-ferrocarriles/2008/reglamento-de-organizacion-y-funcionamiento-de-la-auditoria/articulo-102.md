@@ -1,1 +1,0 @@
-Artículo 102.—Supervisión del trabajo. Los trabajos de Auditoría que se asignen a los funcionarios de la Auditoría interna, deben ser adecuadamente supervisados por el Auditor Interno, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

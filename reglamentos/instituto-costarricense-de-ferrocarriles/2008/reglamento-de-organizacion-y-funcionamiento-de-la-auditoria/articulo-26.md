@@ -1,1 +1,0 @@
-Artículo 26.—Comunicación de los Planes y Requerimientos de Recursos. El Auditor Interno deberá comunicar al Consejo Directivo sus planes anuales de fiscalización y las necesidades de recursos, así como las modificaciones que se hagan a dichos planes. También deberá comunicar el impacto que sobre la fiscalización y control correspondientes produce la limitación de recursos.

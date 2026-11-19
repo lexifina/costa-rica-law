@@ -1,1 +1,0 @@
-Artículo 121.—Información adicional. El denunciante también deberá brindar información complementaria respecto a la estimación del perjuicio económico producido al INCOFER en caso de conocerlo, la indicación de probables testigos y el lugar o medios para citarlos, así como la aportación o sugerencia de otras pruebas.

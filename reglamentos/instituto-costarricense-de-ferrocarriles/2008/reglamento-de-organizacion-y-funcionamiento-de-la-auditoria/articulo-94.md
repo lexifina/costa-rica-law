@@ -1,1 +1,0 @@
-Artículo 94.—Alerta a debilidades de control en los servicios preventivos. Los funcionarios de la Auditoría Interna deberán considerar los controles relacionados con los objetivos del trabajo de los servicios preventivos y estar alertas a la existencia de debilidades de control significativas.

@@ -1,6 +1,0 @@
-Artículo 66.—Servicios a Posteriori. Los servicios a posteriori, también llamados servicios de Auditoría, corresponde a los distintos tipos de Auditoría, incluidos los estudios especiales. Estos servicios regularmente dan por resultados informes de Auditoría y/o relaciones de hechos.
-Los servicios a posteriori dependiendo de su alcance y considerando la normativa aplicable, se clasifican en Auditorías y estudios especiales. Los estudios especiales incluyen la atención de denuncias.
-Los productos obtenidos de dichas investigaciones son los siguientes:
-a- Informes de Control Interno. Cuyo objetivo es emitir recomendaciones para que al implementarlas la Administración Activa mejore el Sistema de Control Interno.
-b- Informes de Relación de Hechos. Son informes en que se detalla la secuencia de hechos que podrían eventualmente conllevar responsabilidades administrativas, civiles o penales.
-c- Informes de seguimiento de recomendaciones. Son informes en que la Auditoría Interna le indica a la Administración el estado de las recomendaciones u observaciones realizadas por la Auditoría Interna, la Auditoría Externa, así como las disposiciones emitidas por la Contraloría General de la República, así como de otras instancias con competencia.

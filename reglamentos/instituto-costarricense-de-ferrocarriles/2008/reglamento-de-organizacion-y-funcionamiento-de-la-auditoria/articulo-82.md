@@ -1,1 +1,0 @@
-Artículo 82.—Programa de trabajo. Los funcionarios de la Auditoría Interna deberán preparar un programa de trabajo que cumpla con los objetivos del trabajo y el alcance de Auditoría. Estos programas deberán estar por escrito y autorizado por el Auditor Interno.

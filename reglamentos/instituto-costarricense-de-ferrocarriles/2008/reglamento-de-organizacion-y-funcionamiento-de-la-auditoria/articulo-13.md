@@ -1,1 +1,0 @@
-Artículo 13.—Participación en Comisiones. El auditor y los funcionarios de la Auditoría interna podrán participar en comisiones, pero esto no constituirá la regla sino la excepción, y queda a criterio del Auditor Interno el participar en dichas reuniones.

@@ -1,6 +1,0 @@
-Artículo 45.—Prohibiciones. El Auditor Interno y los demás funcionarios de la Auditoría Interna, tendrán las siguientes prohibiciones:
-a- Realizar funciones y actuaciones de la administración activa, salvo las necesarias para cumplir con su competencia.
-b- Formar parte de un Órgano Director de un Procedimiento Administrativo.
-c- Ejercer profesiones liberales fuera del cargo, excepto para asuntos personales o en los de su cónyuge o conviviente, sus ascendientes, descendientes y colaterales, por consaguinidad y afinidad hasta tercer grado. Esta prohibición abarca cualquier profesión o profesiones que tenga el funcionario. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-d- Participar en actividades político-electoral, salvo la emisión del voto en las elecciones nacionales, municipales y cualquier otra convocada por el Tribunal Supremo de Elecciones.
-e- Revelar información sobre las Auditorías o estudios especiales de Auditoría que se estén realizando y principalmente sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios. Esta prohibición se mantendrá por el tiempo que dure el proceso administrativo o judicial correspondiente.

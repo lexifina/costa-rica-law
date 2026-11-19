@@ -1,1 +1,0 @@
-Artículo 12.—Independencia de Criterio. La actividad de Auditoría interna deberá estar libre de injerencias del Consejo Directivo, la Presidencia Ejecutiva, y los demás órganos de la administración. Al determinar su planificación y sus modificaciones, al utilizar sus recursos, al desempeñar su trabajo y comunicar sus resultados.

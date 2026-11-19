@@ -1,1 +1,0 @@
-Artículo 14.—Alcance de la Participación del Auditor Interno en Comisiones de Trabajo. Cuando se requiera la participación del Auditor Interno o de alguno de los funcionarios de la Auditoría, la actuación debe ser conforme al nivel de asesor, según la normativa establecida por la Contraloría General de la República.

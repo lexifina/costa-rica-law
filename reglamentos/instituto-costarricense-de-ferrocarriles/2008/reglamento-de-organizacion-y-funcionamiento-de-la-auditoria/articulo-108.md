@@ -1,1 +1,0 @@
-Artículo 108.—Errores y omisiones. Si una comunicación contuviera un error u omisión significativa, el Auditor Interno deberá comunicar la información corregida, a todas las partes que recibieron la comunicación original.

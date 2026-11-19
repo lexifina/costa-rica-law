@@ -1,1 +1,0 @@
-Artículo 33.—Giras del Auditor Interno, en cumplimiento de sus funciones. Cuando el Auditor interno en cumplimiento de sus funciones, deba salir de gira, así lo comunicará a la Presidencia Ejecutiva de la Institución, en el entendido que dicha comunicación se hará cuando la misma no interfiera con las funciones e independencia del Auditor Interno.

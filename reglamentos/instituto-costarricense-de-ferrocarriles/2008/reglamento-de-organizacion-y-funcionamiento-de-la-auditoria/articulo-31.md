@@ -1,1 +1,0 @@
-Artículo 31.—Nombramiento, suspensión y destitución del Auditor Interno. El nombramiento, suspensión y destitución del Auditor Interno debe ser aprobado por el Consejo Directivo con al menos cinco votos, de conformidad con el artículo 14 de la Ley Orgánica del Instituto Costarricense de Ferrocarriles.

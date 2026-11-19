@@ -1,1 +1,0 @@
-Artículo 75.—Programa de trabajo para los servicios preventivos. Los programas de trabajo para los servicios preventivos podrán variar en forma y contenido, y hasta obviarse, dependiendo de la naturaleza del trabajo a criterio del Auditor Interno.

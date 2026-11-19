@@ -1,1 +1,0 @@
-Artículo 110.—Comunicación oficial. El Auditor Interno deberá comunicar oficialmente los resultados de su trabajo, mediante informes, oficios u otros, dirigidos al Consejo Directivo o al resto de la administración, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

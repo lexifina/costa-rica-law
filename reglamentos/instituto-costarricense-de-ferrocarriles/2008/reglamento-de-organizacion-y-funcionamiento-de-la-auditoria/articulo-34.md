@@ -1,2 +1,0 @@
-Artículo 34.—Vacaciones, permisos, y otros del Auditor Interno. Los permisos, vacaciones y otros del Auditor Interno deberán ser conocidos y aprobados por el Consejo Directivo. Sin embargo cuando dichos permisos no superen los cinco días podrán se autorizados por la Presidencia Ejecutiva, o por quién ostente está posición.
-Quedan exceptuados de autorización previa, aquellos permisos que por su naturaleza no puedan ser tramitados con antelación.

@@ -1,1 +1,0 @@
-Artículo 126.—Fundamentación del acto de desestimación o archivo de la denuncia. La desestimación o archivo de la denuncia se realizará mediante acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión.

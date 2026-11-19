@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Seguimiento de recomendaciones
-Artículo 115.—Seguimiento de recomendaciones. El Auditor Interno deberá establecer y mantener un sistema de seguimiento de las recomendaciones, observaciones y demás resultados de su gestión, con el propósito de asegurar su oportuna, adecuada y eficaz implementación, por parte de la administración. Ese sistema deberá incluir el seguimiento de los resultados de las evaluaciones realizadas por los auditores externos, la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan. El sistema contendrá los avances y observaciones que haya realizado la Administración, sobre la implementación de las recomendaciones, así como las anotaciones que realice la Auditoría Interna.

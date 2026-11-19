@@ -1,1 +1,0 @@
-Artículo 18.—Responsabilidades Anteriores al cargo en la Auditoría Interna. Cuando el Auditor Interno o los funcionarios de la Auditoría interna hayan tenido responsabilidad sobre operaciones de las cuales hayan sido previamente responsables, deberá inhibirse de ejecutar sus competencias en materia de asesoría y de advertencia.
