@@ -1,0 +1,4 @@
+SECCIÓN II
+De las solicitudes para laborar en tiempo extraordinario y la responsabilidad de supervisión
+Artículo 7º—Solicitud y procedimiento. Las jefaturas o coordinadores y coordinadoras de área deben solicitar de forma previa a la Alcaldía Municipal autorización para trabajar tiempo extraordinario, tanto para las labores que se han de ejercitar de forma directa, como por parte de sus subalternos. La jornada extraordinaria no puede prestarse si no se cuenta con la autorización respectiva y contenido presupuestario.
+Para tales efectos se confeccionará un formulario de Solicitud que contendrá la siguiente información mínima: justificación razonada, con el detalle de las labores a realizar, cantidad de horas extras a solicitar, número de empleados necesarios, nombre de estos, puesto, horario y un apartado para observaciones.

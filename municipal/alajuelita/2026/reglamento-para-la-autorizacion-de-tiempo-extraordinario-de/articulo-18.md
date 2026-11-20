@@ -1,0 +1,1 @@
+Artículo 18.—Cambios en el personal. Si una vez autorizada la solicitud se generan cambios en los nombres de los funcionarios o funcionarias que trabajarán o se cancela la labor, el jefe inmediato deberá entregar un oficio a la Alcaldía donde se indique claramente la situación y los cambios presentados.

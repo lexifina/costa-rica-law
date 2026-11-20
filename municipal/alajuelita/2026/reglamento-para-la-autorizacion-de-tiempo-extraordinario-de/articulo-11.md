@@ -1,0 +1,1 @@
+Artículo 11.—Supervisión. El jefe inmediato es el responsable de supervisar y controlar la labor de sus subalternos, así como el tiempo extraordinario autorizado para tal actividad. En todo caso, dicha supervisión no requiere la presencia permanente de la jefatura, sino la evaluación de los resultados frente al tiempo extraordinario autorizado.
