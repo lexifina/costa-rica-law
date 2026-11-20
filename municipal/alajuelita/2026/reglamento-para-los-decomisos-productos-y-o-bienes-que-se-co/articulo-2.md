@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. A toda persona física o jurídica que se dedique al ejercicio de cualquier tipo de actividad lucrativa, en las vías o espacios públicos, propiedades privadas y locales comerciales que no cuenten con la respectiva licencia comercial para realizar la actividad.
