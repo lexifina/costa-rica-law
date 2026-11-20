@@ -1,0 +1,1 @@
+Transitorio I.—Para efectos de garantizar el trámite de las denuncias, la Alcaldía promoverá la capacitación a la Oficina Municipal de Igualdad y equidad de género (OFIM), a Recursos Humanos, y al personal en general, en un plazo no mayor a tres meses contados a partir de la entrada en vigencia de este reglamento.

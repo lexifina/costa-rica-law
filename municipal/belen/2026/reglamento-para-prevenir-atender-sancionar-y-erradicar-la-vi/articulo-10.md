@@ -1,0 +1,4 @@
+CAPÍTULO III
+Prevención y atención de la violencia
+contra las mujeres en la política
+Artículo 10.—Acciones preventivas en el ámbito municipal. De conformidad con el artículo 8° de la Ley N° 10.235, el Concejo Municipal y la Alcaldía tomarán todas las acciones efectivas para prevenir y erradicar la violencia contra las mujeres en la política, según lo establecido en la ley, en el marco de su autonomía y competencias, de una manera colaborativa y en el marco de trabajo conjunto, dirigido a fomentar una cultura garante de los derechos políticos de las mujeres y de los valores democráticos. Las acciones establecidas en este capítulo contarán con el criterio técnico y recomendaciones de la Oficina Municipal de Igualdad y equidad de género (OFIM), de conformidad con lo dispuesto en la Ley N° 10.235.
