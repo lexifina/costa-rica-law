@@ -1,0 +1,1 @@
+Artículo 10° - Vigencia. Estas condiciones rigen a partir de su publicación en el Diario Oficial La Gaceta y serán aplicables a partir del sábado 21 de noviembre y hasta el domingo 20 de diciembre de 2026.

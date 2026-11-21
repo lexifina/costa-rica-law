@@ -1,0 +1,14 @@
+Artículo 2°- Definiciones
+Junta: Junta de Protección Social.
+Junta de Protección Social (Oficial): Nombre de la página de la Junta de Protección Social en la red social Facebook.
+Giras de Venta: Comercialización del Sorteo Extraordinario de Navidad N°4932, mediante rutas programadas a nivel nacional.
+Ruta del agüizote: Consiste en la entrega de cupones y postal adhesiva coleccionables, que por la compra de fracciones del Sorteo Extraordinario de Navidad N°4932, la persona participante recibe un adhesivo por parte de funcionarios de la Junta, obtenidos en los diferentes lugares de la gira de venta de lotería, que debe pegar en el cupón, y registrarse mediante un código QR, para el sorteo de premios especiales.
+Frase de la semana: Durante la transmisión en vivo del programa de la Rueda de la Fortuna con fechas definidas en el artículo 4° “fechas de participación y de los sorteos de las dinámicas”, se dirá por parte de los presentadores del programa, una frase, para la cual deben escanear el código QR que solamente estará disponible durante el programa de la Rueda de la Fortuna de ese día, y completar sus datos personales, para el sorteo de premios especiales.
+Interacción en la red social Facebook de la Junta: Se realizará una publicación por semana, alusiva al Sorteo Extraordinario de Navidad N°4932, dentro de esta, las personas mayores de edad que deseen participar deberán completar una frase, y ganará la persona con más reacciones y con menos reacciones.
+Comentario válido en la interacción en la red social de Facebook: Se refiere a realizar un comentario positivo o que identifique el Gordo de Navidad, completando la frase que se indique en la red social de Facebook.
+Comentario inválido en la interacción en la red social de Facebook: Se refiere a realizar un comentario ofensivo o contra los valores institucionales.
+Promoción por compra en Punto Max: Persona compradora mayor de 18 años, que adquiera al menos 2 fracciones del Sorteo Extraordinario de Navidad N°4932, en un Punto Max, y que active en la App JPS Plus las fracciones para participar en el sorteo de premios especiales.
+Premios de entradas al “Sorteo Extraordinario de Navidad No.4932”: 500 cupos para asistir al evento del Sorteo Extraordinario de Navidad 2026, a realizarse el 20 de diciembre 2026. La Junta informará oportunamente el lugar donde se realizará.
+Sorteo durante el evento del Sorteo Extraordinario de Navidad N°4932: Consisten en premios en dinero que se sortearán exclusivamente entre las personas que ingresen al evento en calidad de público con su entrada oficial.
+Participantes: Personas mayores de 18 años, nacionales y extrajeras, que deseen participar en las dinámicas promocionales descritas en este documento.
+Selección Aleatoria: Proceso mediante el cual se eligen al azar las personas favorecidas, fiscalizado por representantes de la Junta.
