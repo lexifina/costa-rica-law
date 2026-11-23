@@ -1,0 +1,3 @@
+Artículo 6
+Tránsito Directo
+Los pasajeros, equipaje, la carga y el correo en tránsito directo no estarán sujetos más que a una inspección simplificada. El equipaje y la carga en tránsito directo estarán exentos de derechos de aduanas y otros impuestos similares.

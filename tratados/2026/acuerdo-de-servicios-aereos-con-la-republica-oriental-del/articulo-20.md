@@ -1,0 +1,3 @@
+Artículo 20
+Sistema de reserva por computadora (SRC)
+Cada Parte aplicará en su territorio el Código de conducta para la reglamentación y explotación de los sistemas de reservas por computadora, de la OACI, en armonía con otros reglamentos y otras obligaciones aplicables con relación a los sistemas de reserva por computadora.

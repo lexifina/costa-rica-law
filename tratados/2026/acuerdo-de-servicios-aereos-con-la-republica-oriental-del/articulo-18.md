@@ -1,0 +1,4 @@
+Artículo 18
+Servicios de Asistencia en Tierra
+1. Toda línea aérea designada gozará del derecho a suministrarse sus propios servicios de asistencia en tierra en el territorio de la otra Parte, o a contratar tales servicios, totalmente o en parte, a su elección, con cualquiera de los proveedores autorizados para prestarlos. Cuando las leyes, reglamentos o disposiciones contractuales aplicables a la asistencia en tierra en el territorio de una Parte limiten o impidan la libertad para contratar dichos servicios o ejercer la autoasistencia, todas las líneas aéreas designadas serán tratadas sin discriminación en cuanto a su acceso a la autoasistencia y a los servicios de asistencia en tierra prestados por uno o varios proveedores.
+2. El ejercicio de los derechos previstos en el párrafo 1 del presente artículo estará supeditado a las limitaciones físicas u operacionales que resulten de consideraciones de seguridad operacional o seguridad de la aviación en el aeropuerto.

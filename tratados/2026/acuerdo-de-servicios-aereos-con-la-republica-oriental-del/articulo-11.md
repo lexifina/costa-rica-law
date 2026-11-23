@@ -1,0 +1,9 @@
+Artículo 11
+Derechos arancelarios
+1. Las aeronaves operadas en servicios internacionales por las líneas aéreas designadas de cualquiera de las Partes, así como su equipo regular, piezas de repuestos, combustibles, lubricantes y provisiones de la aeronave (incluyendo comida, bebida y tabaco) a bordo de tales aeronaves, estarán exentas de todos los derechos de aduanas, siempre que ese equipo y suministro permanezcan a bordo de la aeronave o dentro del área estéril del aeropuerto, hasta el momento en que sean reexportados.
+2. Las exenciones concedidas en el presente Artículo se aplicarán a los productos contemplados en el párrafo 1:
+a. que se introduzcan en el territorio de la Parte por o en nombre de la línea aérea designada de la otra Parte;
+b. que se encuentren a bordo de la línea aérea designada de una Parte a su llegada al territorio de la otra Parte o al salir del mismo; o
+c. que se lleven a bordo de la aeronave de la línea aérea designada de una Parte al territorio de la otra Parte y que están destinados para ser usados en la explotación de los servicios convencidos;
+d. que dichos productos se utilicen o consuman enteramente o no dentro del territorio de la Parte que otorgue la exención, a condición de que su propiedad no se transfiera en el territorio de dicha Parte.
+3. El equipo ordinario de a bordo, así como los materiales y suministros que normalmente se hallan a bordo de la aeronave de una línea aérea designada de cualquiera de las Partes, solo pueden descargarse en el territorio de la otra Parte con la aprobación de las autoridades aduaneras de dicho territorio. En ese caso, pueden mantenerse bajo la vigilancia de dichas autoridades hasta que se reexporten o se tome otra disposición respecto, de conformidad con los reglamentos aduaneros.

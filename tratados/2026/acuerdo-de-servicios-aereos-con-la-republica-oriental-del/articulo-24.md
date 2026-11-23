@@ -1,0 +1,6 @@
+Artículo 24
+Consulta y Enmiendas
+1. Cualquiera de las Partes podrá, en cualquier momento, solicitar la celebración de consultas relativas al presente acuerdo, incluyendo su Anexo. Tales consultas comenzarán a la mayor brevedad posible, pero no después de 45 días de la fecha en que la otra Parte reciba la solicitud, a menos que se acuerde de otro modo.
+2. Cualquier modificación al presente acuerdo, excepto al Anexo, entrará en vigor en la fecha de la última notificación por la que cualquiera de las Partes comunique a la otra, por la vía diplomática, que se ha cumplido con todos los procedimientos jurídicos internos necesarios para estos efectos.
+3. La aplicación de lo establecido en el Anexo de este Acuerdo será acordada directamente por escrito entre las Autoridades Aeronáuticas de acuerdo con los principios y disposiciones de este Acuerdo.
+4. No obstante, lo dispuesto en este Artículo, las enmiendas relacionadas únicamente con el Anexo podrán ser acordadas entre las autoridades aeronáuticas de las Partes y entrarán en vigor, según lo acordado entre ellas, sujeto a las leyes y reglamentos nacionales de las Partes.

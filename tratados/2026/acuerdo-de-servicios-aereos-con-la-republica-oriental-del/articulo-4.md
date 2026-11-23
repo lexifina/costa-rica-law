@@ -1,0 +1,14 @@
+Artículo 4
+Negativa de otorgamiento, Revocación y Limitación de la Autorización
+1. Las Autoridades Aeronáuticas de cada Parte tendrán el derecho de negar las autorizaciones mencionadas en el Artículo 3 (Designación y Autorización) del presente Acuerdo con respecto a una línea aérea designada por la otra Parte, y de revocar y suspender dichas autorizaciones, o de imponer condiciones a las mismas, de forma temporaria o permanente, conforme a la legislación de cada Parte, en los siguientes casos:
+En el caso de las líneas aéreas designadas por la República de Costa Rica:
+a. Que no esté incorporada de acuerdo con las leyes aplicables de la República de Costa Rica y su oficina principal no esté establecida en el territorio nacional.
+b. Que el control reglamentario de la línea aérea no es ejercido y mantenido por la República de Costa Rica, responsable de emitir su Certificado de Operador Aéreo.
+c. Que la línea aérea no cumpla con las disposiciones establecidas mediante el Artículo 8 (Seguridad Operacional) y el Artículo 9 (Seguridad de la Aviación); y
+d. Que la línea aérea designada no esté calificada para satisfacer otras condiciones prescritas en virtud de las leyes y reglamentos que normalmente son aplicados a la explotación de servicios de transporte aéreo internacional por la Parte que recibe la designación.
+En el caso de las líneas aéreas designadas por la República Oriental del Uruguay:
+a. Que no esté incorporada de acuerdo con las leyes aplicables de la República Oriental del Uruguay y su oficina principal no esté establecida en el territorio nacional.
+b. Que el control efectivo de la línea aérea no es ejercido y mantenido por la República Oriental del Uruguay, responsable de emitir su Certificado de Operador Aéreo.
+c. Que la línea aérea no cumpla con las disposiciones establecidas mediante el Artículo 8 (Seguridad Operacional) y el Artículo 9 (Seguridad de la Aviación); y
+d. Que la línea aérea designada no esté calificada para satisfacer otras condiciones prescritas en virtud de las leyes y reglamentos que normalmente son aplicados a la explotación de servicios de transporte aéreo internacional por la Parte que recibe la designación.
+2. A menos que sean indispensables medidas inmediatas para impedir la violación de las leyes y los reglamentos mencionados antes o a menos que la seguridad operacional o la seguridad de la aviación requieran medidas de conformidad con las disposiciones del Artículo 8 (Seguridad Operacional) o del Artículo 9 (Seguridad de la aviación), los derechos enumerados en el párrafo 1 de este Artículo se ejercerán únicamente después de que las autoridades aeronáuticas efectúen consultas de conformidad con el Artículo 24 (Consultas y Enmiendas) del presente Acuerdo.

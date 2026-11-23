@@ -1,0 +1,10 @@
+Artículo 15
+Fijación de precios (tarifas)
+1. Cada línea aérea designada fijará sus tarifas para el transporte aéreo, basadas en consideraciones comerciales de mercado. La intervención de las Partes se limitará a:
+a. impedir prácticas o tarifas discriminatorias;
+b. proteger a los consumidores respecto a tarifas excesivamente altas o restrictivas que se originen del abuso de una posición dominante; y
+c. proteger a las líneas aéreas respecto a tarifas artificialmente bajas derivadas de un apoyo o subsidio gubernamental directo o indirecto.
+2. Ninguna de las autoridades aeronáuticas de las Partes podrá actuar unilateralmente a fin de impedir la introducción de cualquier tarifa que se proponga cobrar o que cobre una línea aérea designada de cualquiera de las Partes, salvo lo dispuesto en el párrafo 3 y 4 de este Artículo.
+3. Las autoridades aeronáuticas de cada Parte podrán requerir que se registren ante sus autoridades aeronáuticas las tarifas, desde o hacia su territorio en aplicación de las legislaciones pertinentes.
+4. Si cualquiera de las autoridades aeronáuticas de las Partes considera que una tarifa propuesta o en aplicación es incompatible con las consideraciones estipuladas en el párrafo 1 del presente Artículo, ellas deberán notificar a las autoridades aeronáuticas de la otra Parte las razones de su disconformidad, tan pronto como sea posible. Las autoridades aeronáuticas de ambas Partes harán entonces los mayores esfuerzos para resolver la cuestión entre ellas.
+Cada Parte podrá solicitar consultas. Estas se celebrarán en un plazo no superior a treinta (30) días desde la recepción de la solicitud y las Partes cooperarán a fin de disponer de la información necesaria para llegar a una resolución razonada de la cuestión. Si las Partes logran un acuerdo sobre una tarifa respecto de la cual se presentó una notificación de disconformidad, cada Parte realizará los mayores esfuerzos para llevarlo a la práctica. Si terminadas las consultas no hay acuerdo mutuo, la tarifa continuará en vigor.

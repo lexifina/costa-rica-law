@@ -1,0 +1,3 @@
+Artículo 22
+Registro de itinerarios
+La línea aérea designada de cada Parte someterá sus itinerarios de vuelos previstos al registro de las autoridades aeronáuticas de la otra Parte, por lo menos treinta (30) días antes de explotar los servicios convenidos. El mismo procedimiento se aplicará a toda modificación de los itinerarios.

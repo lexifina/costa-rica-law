@@ -1,0 +1,4 @@
+Artículo 17
+Venta y comercialización de servicios de transporte aéreo
+1. Cada Parte otorgará a las líneas aéreas designadas de la otra Parte, el derecho de vender y comercializar en su territorio servicios de transporte aéreo internacional y servicios conexos (directamente o por medio de agentes y otros intermediarios, a discreción de la línea aérea), incluyendo derecho de establecer en la red o fuera de la misma.
+2. Cada línea aérea tendrá el derecho de vender servicios de transporte en la moneda de ese territorio o, a su discreción, en monedas de libre convertibilidad de otros países, y cualquier persona podrá adquirir dichos servicios de transporte en monedas aceptadas por esa línea aérea.
