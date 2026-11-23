@@ -1,0 +1,7 @@
+ARTÍCULO 10
+Poderes y funciones del Consejo
+1) El Consejo estará dotado de todos los poderes que le confiere específicamente este Acuerdo, y desempeñará las funciones necesarias para cumplir las disposiciones del mismo.
+2) El Consejo podrá establecer y disolver Comités y órganos subordinados, con excepción de los estipulados en el párrafo 3 del Artículo 7, según estime apropiado.
+3) El Consejo establecerá aquellas normas y reglamentos, con inclusión de su propio reglamento y los reglamentos financiero y del personal de la Organización, que sean necesarios para aplicar las disposiciones de este Acuerdo y sean compatibles con dichas disposiciones. El Consejo podrá incluir en su reglamento los medios por los cuales pueda decidir sobre determinadas cuestiones sin necesidad de reunirse.
+4) El Consejo establecerá con regularidad un plan de acción estratégico que guíe sus trabajos y determine prioridades, incluidas las correspondientes a actividades de proyectos emprendidas con arreglo al Artículo 33 y a los estudios, encuestas e informes emprendidos con arreglo al Artículo 32. Las prioridades que se determinen en el plan de acción se verán reflejadas en los programas de actividades y el Presupuesto Administrativo que apruebe el Consejo.
+5) Además, el Consejo mantendrá la documentación necesaria para desempeñar sus funciones conforme a este Acuerdo, así como cualquier otra documentación que considere conveniente.

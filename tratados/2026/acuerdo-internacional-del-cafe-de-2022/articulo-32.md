@@ -1,0 +1,10 @@
+ARTÍCULO 32
+Estudios, encuestas e informes
+1) Para prestar asistencia a los Miembros, la Organización promoverá la realización de estudios, encuestas, informes técnicos y otros documentos relativos a aspectos pertinentes del sector cafetero.
+2) Esta labor podrá incluir la economía de la producción y distribución de café, análisis de la cadena de valor del café, efectos del cambio climático, enfoques de la gestión del riesgo financiero y otros tipos de riesgo, efectos de las políticas gubernamentales en la producción y el consumo de café, aspectos de sostenibilidad del sector cafetero, relaciones entre el café y la salud y oportunidades de ampliación de los mercados de café para usos tradicionales y no tradicionales, así como otros temas que podrán ser considerados pertinentes por el Consejo.
+3) La información que se recoja, recopile, analice y difunda podrá incluir también, cuando sea técnicamente viable:
+a) Cantidades y precios de café, en relación con factores tales como las diferentes áreas geográficas, familias, comunidades locales y condiciones de la producción;
+b) Información sobre estructuras del mercado, mercados especializados y tendencias emergentes de la producción y el consumo; y
+c) Estudios relacionados con el avance en la obtención del ingreso vital y la prosperidad.
+4) Con el fin de llevar a la práctica las disposiciones del párrafo 1 del presente Artículo, el Consejo deliberará acerca de los estudios, encuestas e informes que formarán parte del programa anual de actividades, y se hará un cálculo estimativo de los recursos necesarios, dedicando especial atención a los agricultores en pequeña y mediana escala y a otros productores. Esas actividades serán financiadas o bien con asignaciones en el Presupuesto Administrativo o con recursos extrapresupuestarios.
+5) La Organización dará particular importancia a facilitar el acceso de los agricultores y otros productores en pequeña y mediana escala a la información, para ayudarlos a mejorar su sostenibilidad, productividad y actuación financiera, con inclusión de la gestión del crédito y el riesgo.
