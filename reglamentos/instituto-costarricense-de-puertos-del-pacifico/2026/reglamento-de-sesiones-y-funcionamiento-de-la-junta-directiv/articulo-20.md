@@ -1,0 +1,3 @@
+CAPÍTULO III:
+Del Seguimiento de Acuerdos y Control Interno. SECCIÓN I: Registro y Fiscalización de Acuerdos.
+Artículo 20. Sistema de Registro y Bitácora. La Secretaría mantendrá un registro foliado y automatizado de seguimiento para todos los acuerdos que requieren ejecución posterior. Como mínimo, este registro de control contendrá: número de sesión y acuerdo, descripción resumida, responsable técnico de la ejecución, fecha de la comunicación formal, plazo de vencimiento, estado actual (pendiente, en proceso o cumplido) y la referencia al documento oficial o informe técnico que acredita y da por cerrado su cumplimiento.

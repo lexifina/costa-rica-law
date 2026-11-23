@@ -1,0 +1,3 @@
+CAPÍTULO V:
+Disposiciones Finales.
+Artículo 28. Régimen de Responsabilidad. Los miembros de la Junta Directiva y los funcionarios de la JPT estarán sujetos, por sus actuaciones u omisiones en el ejercicio de sus funciones, al régimen de responsabilidad administrativa, civil y penal establecido por el ordenamiento jurídico, según corresponda. La determinación de cualquier responsabilidad debe realizarse por la autoridad competente, de conformidad con los procedimientos y garantías establecidos en la Ley General de la Administración Pública, la Ley General de Control Interno y demás normativa aplicable.

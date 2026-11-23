@@ -1,0 +1,5 @@
+Artículo 25. Liquidación, Cierre y Fiscalización de Patrocinios. La Administración de la JPT tiene la obligación legal de verificar y fiscalizar el estricto cumplimiento de las condiciones de cada patrocinio aprobado por la Junta. Para proceder al cierre técnico y archivo del expediente, este debe incorporar obligatoriamente:
+Evidencia física y digital de la efectiva realización de la actividad turística patrocinada. (Fuente: Guía de Requisitos para Solicitud de Patrocinio de la JPT, pág. 8).
+Facturas formales, documentos de liquidación y comprobación financiera de los gastos incurridos. (Fuente: Guía de Requisitos para Solicitud de Patrocinio de la JPT, pág. 8).
+Informe técnico de los resultados, alcances y el retorno de la inversión promocional obtenidos para Puntarenas. (Fuente: Guía de Requisitos para Solicitud de Patrocinio de la JPT, pág. 8).
+La Junta Directiva suspenderá de inmediato cualquier desembolso futuro y dispondrá de las medidas legales de cobro correctivas ante la detección de cualquier tipo de incumplimiento o desvío de fondos por parte del beneficiario. Fuente: Guía de Requisitos para Solicitud de Patrocinio de la JPT, pág. 8).

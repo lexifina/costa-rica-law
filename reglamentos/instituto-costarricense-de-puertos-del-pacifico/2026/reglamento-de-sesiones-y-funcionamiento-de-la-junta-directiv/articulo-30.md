@@ -1,0 +1,1 @@
+Artículo 30. Vigencia y Publicación. El presente reglamento rige a partir de su aprobación firme por las Juntas Directivas competentes y su respectiva publicación oficial en el Diario Oficial La Gaceta.
