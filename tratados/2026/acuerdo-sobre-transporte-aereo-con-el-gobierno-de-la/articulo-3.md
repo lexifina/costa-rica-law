@@ -1,0 +1,5 @@
+Artículo III
+Designación y Autorización
+1. Cada Parte Contratante tendrá el derecho de designar por escrito ante la otra Parte Contratante, a través de la vía diplomática, a una o más empresas aéreas con el propósito de que opere los servicios convenidos en las rutas especificadas en el Cuadro de Rutas anexo, así como el derecho de sustituir a una empresa previamente designada, por otra.
+2. Al recibir esa designación, la otra Parte Contratante concederá sin demora a la empresa aérea designada la debida autorización para operar, sujeta a las disposiciones del numeral 3 de este artículo y a las disposiciones legales aplicables en esa otra Parte Contratante.
+3. Las Autoridades Aeronáuticas de una de las Partes Contratantes podrá solicitar a la empresa aérea designada por la otra Parte Contratante, que le demuestre que está calificada para cumplir con las obligaciones prescritas en las leyes, reglamentos y regulaciones, que normal y razonablemente sean aplicados por esas Autoridades a la explotación de servicios aéreos internacionales, de conformidad con la Convención.

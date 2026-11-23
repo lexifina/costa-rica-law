@@ -1,0 +1,5 @@
+Artículo XXVI
+Consultas y Modificaciones
+1. En un espíritu de estrecha cooperación, las Autoridades Aeronáuticas de ambas Partes Contratantes se consultarán con vistas a asegurar la aplicación y el cumplimiento de las disposiciones de este Acuerdo.
+2. Cualquiera de las Partes Contratantes podrá, en cualquier momento, solicitar consultas en relación con la puesta en práctica, interpretación o modificación de este Acuerdo o su correcto cumplimiento. Tales consultas, que podrán efectuarse entre las Autoridades Aeronáuticas de las Partes Contratantes, se realizarán dentro de un período de treinta (30) días a partir de la fecha en la que la otra Parte Contratante reciba la solicitud por escrito, a menos de que se convenga de otra manera entre las Partes Contratantes.
+3. Si las Partes Contratantes acordaran modificar este Acuerdo, las modificaciones se deberán formalizar a través de un canje de Notas diplomáticas y entrarán en vigor mediante un canje de notas adicionales en las que ambas Partes Contratantes se comuniquen haber cumplido con los requisitos exigidos por su legislación nacional.

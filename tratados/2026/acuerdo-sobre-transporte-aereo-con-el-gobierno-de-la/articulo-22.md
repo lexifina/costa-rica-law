@@ -1,0 +1,5 @@
+Artículo XXII
+Seguridad de Documentos de Viaje
+1. Cada Parte Contratante acuerda adoptar medidas que garanticen la seguridad de sus documentos de viaje.
+2. Cada Parte Contratante acuerda mejorar los procedimientos para garantizar que los controles de emisión, verificación y uso de los pasaportes emitidos sean de tal calidad que no puedan ser fácilmente mal utilizados y que no puedan ser ilícitamente alterados, copiados o emitidos.
+3. Cada Parte Contratante, además acuerda intercambiar información operacional relacionada con documentos de viaje falsificados y a cooperar con la otra, para fortalecer la resistencia al fraude de documentos, incluyendo la falsificación de documentos de viaje, el uso de documentos falsificados, el uso de documentos válidos por impostores, el mal uso de documentos de viaje por legítimos titulares en seguimiento a la comisión de una ofensa, el uso de documentos de viaje que hayan expirado o hayan sido revocados y el uso de documentos de viaje obtenidos fraudulentamente.

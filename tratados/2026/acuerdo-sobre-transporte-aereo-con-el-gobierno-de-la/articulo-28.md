@@ -1,0 +1,8 @@
+Artículo XXVIII
+Solución de Controversias
+1. Excepto en aquellos casos en que este Acuerdo disponga otra cosa, cualquier discrepancia entre las Partes Contratantes relativa a la interpretación o aplicación de este Acuerdo que no pueda ser resuelta por medio de consultas, será sometida a un Tribunal de Arbitraje integrado por tres miembros, dos de los cuales serán nombrados por cada una de las Partes Contratantes y el tercero de común acuerdo por las dos, quien fungirá como Presidente del Tribunal, bajo la condición de que no será nacional de ninguna de las Partes Contratantes.
+2. Cada una de las Partes Contratantes designará un árbitro dentro del término de treinta (30) días de haber acordado el arbitraje, estos nombrarán, de común acuerdo, en un plazo de quince (15) días, contados a partir del siguiente día de haber aceptado el nombramiento, al tercer árbitro.
+3. Si dentro del plazo señalado no se llega a un acuerdo respecto del tercer árbitro, a petición de cualquiera de las Partes Contratantes éste será designado por el Presidente del Consejo de la Organización de Aviación Civil Internacional (OACI), conforme a los procedimientos de este Organismo.
+4. Una vez integrado el Tribunal de Arbitraje, éste emitirá su resolución dentro de un plazo no mayor de cuarenta y cinco (45) días.
+5. Las Partes Contratantes se comprometen a acatar cualquier resolución que sea dictada de conformidad con este Artículo.
+6. Cada Parte Contratante correrá con los gastos de su propio árbitro. Los gastos del Presidente del Tribunal y cualquier otro gasto incurrido por la OACI, en caso de que a través de dicha Organización se efectúe el nombramiento del referido presidente, serán compartidos equitativamente por las Partes Contratantes.
