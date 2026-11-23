@@ -1,0 +1,1 @@
+Artículo 12: El Secretario Municipal, sólo podrá ser suspendido o destituido de su cargo si existiera justa causa, la cual debe ser demostrada mediante la interposición de un procedimiento administrativo del debido proceso que garantice el derecho de defensa.

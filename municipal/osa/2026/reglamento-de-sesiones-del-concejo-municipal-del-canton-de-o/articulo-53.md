@@ -1,0 +1,1 @@
+Artículo 53: Actas de las Comisiones: Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, asuntos tratados y sus respectivos acuerdos.

@@ -1,0 +1,4 @@
+Artículo 8: De las prohibiciones a las y los Regidores, Síndicos y Alcalde (sa):
+a- Intervenir en la discusión y votación en su caso, de los asuntos en que tengan ellos interés directo, su cónyuge o algún pariente hasta el tercer grado de consanguinidad o afinidad.
+b- Ligarse a la municipalidad o depender de ella en razón de cargo distinto, comisión, trabajo o contrato que cause obligación de pago o retribución a su favor y, en general, percibir dinero o bienes del patrimonio municipal, excepto salario o dietas según el caso, viáticos y gastos de representación.
+c- Intervenir en asuntos y funciones de su competencia, que competan a la Alcaldía Municipal, las y los Regidores o el Concejo mismo. De esta prohibición se exceptúan las comisiones especiales que desempeñen. d- Integrar las comisiones que se crean para realizar festejos populares, fiestas cívicas y cualquier otra actividad festiva dentro del cantón. -

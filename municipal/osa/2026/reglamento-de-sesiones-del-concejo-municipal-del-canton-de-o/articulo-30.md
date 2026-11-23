@@ -1,0 +1,1 @@
+Artículo 30: Obligación y Dispensa del Trámite de Comisión: Todo acuerdo originado por iniciativa de la Alcaldía o Regidores(as), se tomará previo dictamen de una Comisión del Concejo y después de considerarse suficientemente discutido el asunto. El dictamen de Comisión podrá dispensarse, por medio de una votación calificada de los presentes.

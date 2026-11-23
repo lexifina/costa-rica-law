@@ -1,0 +1,1 @@
+Artículo 64: Remisión a la Alcaldía: Cuando el objeto de la solicitud de la Audiencia fuere de competencia de la Alcaldía, la Presidencia ordenará a la Secretaría (o) remitir el memorial presentado a dicho funcionario(a), para que le dé el trámite correspondiente. La Secretaría (o) lo hará del conocimiento de las personas interesadas.

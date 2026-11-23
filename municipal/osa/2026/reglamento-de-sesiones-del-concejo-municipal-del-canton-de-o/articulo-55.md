@@ -1,0 +1,1 @@
+Artículo 55: Plazo para rendir dictamen: Las Comisiones despacharán los asuntos a su cargo en un plazo máximo de quince días hábiles, contados a partir de la comunicación. Salvo los casos especiales en que la Presidencia del Concejo, en forma expresa, fije un término menor o superior, atendiendo a la complejidad del asunto.

@@ -1,0 +1,1 @@
+Artículo 23: Quórum inicial: Pasados los quince minutos de la hora de inicio de la sesión, si no hubiere quórum, se dejará constancia en el libro de actas y se consignará el nombre de los y las regidoras presentes, a fin de acreditarles su asistencia para efecto del pago de dietas.
