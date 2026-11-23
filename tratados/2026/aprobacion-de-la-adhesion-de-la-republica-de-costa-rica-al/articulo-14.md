@@ -1,0 +1,8 @@
+ARTÍCULO 14
+INSPECCIÓN
+1. Con el fin de promover la protección del medio ambiente antártico y de sus ecosistemas dependientes y asociados, y para asegurar el cumplimiento de este Protocolo, las Partes Consultivas del Tratado Antártico tomarán medidas, individual o colectivamente, para la realización de inspecciones por observadores, de conformidad con el Artículo VII del Tratado Antártico.
+2. Son observadores:
+a) los observadores designados por cualquier Parte Consultiva del Tratado Antártico, que serán nacionales de esa Parte; y
+b) cualquier observador designado durante las Reuniones Consultivas del Tratado Antártico para realizar inspecciones según los procedimientos que se establezcan mediante una Reunión Consultiva del Tratado Antártico.
+3. Las Partes cooperarán plenamente con los observadores que lleven a cabo las inspecciones, y deberán asegurar que durante las mismas tengan acceso a cualquier lugar de las estaciones, instalaciones, equipos, buques y aeronaves abiertos a inspección bajo el Artículo VII (3) del Tratado Antártico, así como a todos los registros que ahí se conserven y sean exigibles de conformidad con este Protocolo.
+4. Los informes de inspección serán remitidos a las Partes cuyas estaciones, instalaciones, equipos, buques o aeronaves estén comprendidos en los informes. Después que aquellas Partes hayan tenido la oportunidad de comentarlos, los informes y todos los comentarios de que hayan sido objeto serán remitidos a todas las Partes y al Comité, estudiados en la siguiente Reunión Consultiva del Tratado Antártico y puestos posteriormente a disposición del público.
