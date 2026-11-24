@@ -1,0 +1,2 @@
+Artículo 18.—Notificaciones. Las resoluciones se notificarán en los términos indicados en los artículos 239 y siguientes y concordantes de la Ley General de la Administración Pública y, supletoriamente, de conformidad con la Ley de Notificaciones Judiciales.
+Se notificará a las partes y a las autoridades administrativas del Ministerio de Educación Pública y al administrador del centro educativo al que pertenecen los miembros de la Junta investigados, para lo que corresponda.

@@ -1,0 +1,10 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+El Concejo Municipal de Quepos mediante acuerdo 30, artículo sexto, informes varios, Sesión Ordinaria N° 203- 2026, celebrada el martes 03 de noviembre del 2026, acuerdo Ratificado en la Sesión Ordinaria 205-2026, celebrada el martes 10 de noviembre del 2026, acuerda lo siguiente:
+“Acuerdo N° 30: El Concejo acuerda: primero: tener por recibido el comunicado del oficio MQ-SCM-231-2026 de la Secretaría del Concejo Municipal. Segundo: aprobar definitivamente el Reglamento del Concejo Municipal de Quepos sobre el Procedimiento Administrativo Disciplinario para las Eventuales Sanciones a Imponer a los Miembros de las Juntas de Educación, conforme al texto sometido a consulta publicado por primera vez en el en el Diario Oficial La Gaceta 186 del 02 de octubre de 2026, aprobado mediante el acuerdo 26, artículo sexto, Informes Varios, de la Sesión Ordinaria Nº 187- 2026, celebrada el 25 de agosto de 2026, y ratificado en la Sesión Ordinaria Nº 189-2026, celebrada el 1 de setiembre de 2026. Publíquese el texto definitivo completo por segunda vez en el Diario Oficial La Gaceta para el cumplimiento de ley. Se aprueba lo anterior por unanimidad de los regidores (cinco votos). Moción de orden del presidente Municipal, para que sea dispensado de trámite de comisión. Se aprueba (cinco votos), Se aprueba (cinco votos). Votan los regidores; Hugo Arias Azofeifa, Martha Bosque Marchena, Grettel León Jiménez, José Manuel Jara Mora, y Gilbert Cruz Jiménez. Acuerdo dispensado de trámite de comisión.”
+REGLAMENTO DEL CONCEJO MUNICIPAL DE QUEPOS
+SOBRE EL PROCEDIMIENTO ADMINISTRATIVO
+DISCIPLINARIO PARA LAS EVENTUALES SANCIONES
+A IMPONER A LOS MIEMBROS DE LAS JUNTAS
+DE EDUCACIÓN
+Disposiciones generales
+Artículo 1º—Objeto. El presente reglamento tiene por objeto regular el procedimiento administrativo disciplinario que llevará a cabo el Concejo Municipal de Quepos para la eventual imposición de sanciones a los miembros de las Juntas de Educación del Cantón de Quepos, de conformidad con lo establecido en los artículos 20 al 23 de la Ley N° 10631, Ley de Juntas de Educación, y demás normativa aplicable.

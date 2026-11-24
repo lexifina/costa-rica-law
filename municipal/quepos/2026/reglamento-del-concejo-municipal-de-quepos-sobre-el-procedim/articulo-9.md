@@ -1,0 +1,1 @@
+Artículo 9º—Corrección de errores materiales. El Órgano Director podrá corregir, con fundamento en el artículo 157 de la Ley General de la Administración Pública, en cualquier tiempo, los errores puramente materiales que contengan sus resoluciones, mediante auto que dictará de oficio o a solicitud de parte, el cual será declarado firme.

@@ -1,0 +1,1 @@
+Artículo 19.—Normativa supletoria. En todo lo no previsto en este reglamento, se aplicarán supletoriamente las disposiciones del Código Municipal, la Ley General de la Administración Pública, la Ley de Juntas de Educación y el Código Procesal Contencioso-Administrativo, en lo que resulten aplicables y compatibles con la materia regulada.

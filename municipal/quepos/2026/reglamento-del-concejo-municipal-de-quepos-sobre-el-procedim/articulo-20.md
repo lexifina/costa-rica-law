@@ -1,0 +1,1 @@
+Artículo 20.—Consulta pública. Se ordena una primera publicación para consulta pública, según lo dispuesto en el artículo 43 del Código Municipal. La consulta tendrá carácter no vinculante y se abrirá por un plazo mínimo de diez días hábiles, posterior a la publicación en el Diario Oficial La Gaceta.

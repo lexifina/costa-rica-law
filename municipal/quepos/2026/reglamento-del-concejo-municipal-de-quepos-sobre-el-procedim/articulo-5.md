@@ -1,0 +1,1 @@
+Artículo 5º—Admisibilidad de la denuncia e investigación preliminar. El Concejo Municipal, actuando como Órgano Decisor, determinará la necesidad de realizar, en los casos en que estime pertinente, una investigación preliminar para establecer la apertura de un procedimiento administrativo o, en su defecto, desestimar la denuncia y ordenar su archivo.
