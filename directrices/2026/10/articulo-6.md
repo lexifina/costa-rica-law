@@ -1,0 +1,7 @@
+Artículo 6. Sobre la posibilidad de gestionar manuales de clases de puestos institucionales. Las instituciones sujetas a la rectoría de Mideplan, pueden promover propuestas de modificación o creación de nuevos manuales descriptivos de clases de puestos institucionales, siempre que se circunscriban al desarrollo de clases enfocadas en agrupar únicamente puestos con características particulares y un nivel de especificidad institucional que justifiquen una clasificación propia, atendiendo a las necesidades, objetivos y funciones sustantivas de la organización proponente.
+Será determinante que la institución proponente acredite la relevancia de la particularidad ocupacional de los puestos, para lo cual deberá contarse, entre otros respaldos, con estudios de trabajo, análisis ocupacional y regulación de competencias que delimiten las funciones de los puestos que se pretendan integrar en las clases propuestas.
+La creación o modificación de una clase institucional o específica, procederá únicamente si se corrobora la existencia de una justificación técnica y jurídica que acredite lo siguiente:
+a) Exclusividad funcional de los puestos que comprenderá la clase, con sustento en la estructura organizativa y los procesos de trabajo del órgano o entidad.
+b) Imposibilidad objetiva de adscripción a una clase existente o inexistencia de una clase ancha aplicable sin pérdida sustantiva de la caracterización ocupacional.
+c) Necesidad operativa permanente y no contingente.
+d) Impacto organizacional y funcional que justifique su diseño específico.
