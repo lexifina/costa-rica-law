@@ -1,0 +1,3 @@
+Artículo 7. Estrategia y ética
+La Auditoría Interna mantiene alineación con la estrategia corporativa, a través de postulados estratégicos, garantizando la actualización de la aspiración, misión, valores, enunciados éticos y principales lineamientos, que rigen su accionar.
+Los funcionarios de la Auditoría Interna mantienen su comportamiento, tanto dentro como fuera de BN Corredora de Seguros, S.A., bajo los principios del dominio sobre Ética y Profesionalismo de las Normas Globales de Auditoría Interna: integridad, objetividad, competencia, debido cuidado profesional y confidencialidad y acatan de forma obligatoria el Código de Conducta del Conglomerado Financiero Banco Nacional de Costa Rica.
