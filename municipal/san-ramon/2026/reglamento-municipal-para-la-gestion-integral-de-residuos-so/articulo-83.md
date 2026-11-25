@@ -1,0 +1,3 @@
+CAPÍTULO VII
+PROMOCIÓN DE LA PARTICIPACIÓN CIUDADANA
+Artículo 83°. Promoción de la Participación Ciudadana. la Municipalidad impulsará activamente la participación de los ciudadanos en la gestión integral de residuos. Esto se logrará a través de diversas estrategias, incluyendo el desarrollo de actividades de capacitación e información, la solicitud de colaboración voluntaria en iniciativas ambientales y el fomento de la coadministración de puntos estratégicos de recolección de residuos valorizables u orgánicos, en colaboración con asociaciones de desarrollo integral comunitario y otros grupos organizados.

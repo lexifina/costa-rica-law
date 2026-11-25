@@ -1,0 +1,1 @@
+Artículo 112°. Infracciones sancionables por la Municipalidad. De acuerdo con lo establecido en el artículo 52 de la Ley N°8839, Ley para la Gestión Integral de Residuos , las infracciones que son sancionables por la Municipalidad son las denominadas infracciones leves y graves. Aquellas infracciones consideradas gravísimas serán competencia del Tribunal Ambiental Administrativo.

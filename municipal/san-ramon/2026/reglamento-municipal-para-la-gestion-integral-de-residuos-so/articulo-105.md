@@ -1,0 +1,1 @@
+Artículo 105°. Posibilidad de aplicar las multas mediante el marchamo. De contar únicamente con el número de placa vehicular del vehículo utilizado para cometer la infracción leve o grave, vía convenio con el Instituto Nacional de Seguros (INS), la Municipalidad podrá ejecutar el cobro correspondiente de la multa mediante el marchamo.

@@ -1,0 +1,1 @@
+Artículo 99°. Programa de Manejo Integral de Residuos. Todo comercio generador de residuos deberá contar con un programa de manejo integral de residuos, de lo contrario podrá significar el retiro o suspensión, temporal o definitiva, de la patente o licencia comercial, según corresponda.

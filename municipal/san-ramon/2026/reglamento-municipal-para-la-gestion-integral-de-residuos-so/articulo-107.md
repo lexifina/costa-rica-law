@@ -1,0 +1,1 @@
+Artículo 107°. Multas por retrasos. La Municipalidad, establecerá multas por atrasos en el pago del servicio de recolección, tratamiento y disposición final de los residuos sólidos de conformidad con lo establecido en el Código Municipal.

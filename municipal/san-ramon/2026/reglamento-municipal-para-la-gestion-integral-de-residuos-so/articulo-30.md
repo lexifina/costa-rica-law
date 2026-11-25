@@ -1,0 +1,1 @@
+Artículo 30°. Baterías ácidas de plomo. El servicio de recolección de residuos ordinarios no incluye la recolección de baterías ácidas de plomo (de uso vehicular). El generador deberá entregarlas al distribuidor autorizado para que proceda a su eliminación o reutilización.

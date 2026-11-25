@@ -1,0 +1,1 @@
+Transitorio I: Previo a la entrada en vigencia de este Reglamento la Municipalidad calificará a l os usuarios según la calificación del artículo 61. El plazo para objetar dicha calificación será de tres meses a partir de la entrada en vigencia del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 100°. Denuncias. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en este Reglamento. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este Reglamento.

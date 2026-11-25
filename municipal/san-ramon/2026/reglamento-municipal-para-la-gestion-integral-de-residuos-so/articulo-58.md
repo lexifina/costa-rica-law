@@ -1,0 +1,1 @@
+Artículo 58°. Mecanismos de verificación de cumplimiento del servicio. La Municipalidad establecerá mecanismos que permitan el seguimiento, control y verificación del servicio de manejo de residuos sólidos, de manera que sea una herramienta ante reclamos de usuarios o ante los organismos fiscalizadores.

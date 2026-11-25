@@ -1,0 +1,1 @@
+Artículo 31°. Llantas y neumáticos. El servicio de recolección de residuos ordinarios no incluye la recolección de llantas y neumáticos. El generador deberá cumplir la normativa establecida por el Ministerio de Salud en el Reglamento sobre Llantas de Desecho. La administración podrá realizar campañas de recolección cuando lo considere necesario.

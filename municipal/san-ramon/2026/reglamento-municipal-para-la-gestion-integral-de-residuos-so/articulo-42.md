@@ -1,0 +1,1 @@
+Artículo 42°. Prohibición de ingreso del funcionario de recolección. Los funcionarios de recolección, ya sea personal de la Municipalidad o del concesionario, tienen prohibido ingresar en propiedad privada con el fin de recoger residuos de cualquier tipo, salvo en los casos en los cuales se suscribió un convenio previamente acordado entre las partes.

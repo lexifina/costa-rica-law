@@ -1,0 +1,2 @@
+Artículo 92°. Tipos de infracciones administrativas. De acuerdo con la Ley N°8839, Ley para la Gestión Integral de Residuos , la Ley Orgánica del Ambiente y el Código Municipal y sus reformas, las infracciones administrativas se dividen en Leves, Graves y Gravísimas.
+La Municipalidad es la entidad competente para sancionar las infracciones leves y graves. Por su parte, la potestad sancionadora para las infracciones gravísimas recae en el Tribunal Ambiental Administrativo, según lo estipulado en la Ley N°8839, Ley para la Gestión Integral de Residuos y su Reglamento.

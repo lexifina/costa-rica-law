@@ -1,0 +1,1 @@
+Artículo 10°. El contenido del Plan Municipal para la GIRS deberá contemplar la Jerarquía en el Manejo de Residuos, tomando en cuenta el orden de preferencia de manejo, que considera como primera alternativa la prevención en la generación de residuos, luego la reutilización, el reciclaje de estos o de uno o más de sus componentes, dejando como última alternativa su eliminación.

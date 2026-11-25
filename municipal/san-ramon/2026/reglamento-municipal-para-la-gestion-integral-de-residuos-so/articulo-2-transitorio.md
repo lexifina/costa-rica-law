@@ -1,0 +1,1 @@
+Transitorio II: Transcurrido el plazo anteriormente descrito, y para efectos de objetar nuevas calificaciones, el usuario deberá atenerse a lo dispuesto en el Código Municipal en materia de impugnaciones.

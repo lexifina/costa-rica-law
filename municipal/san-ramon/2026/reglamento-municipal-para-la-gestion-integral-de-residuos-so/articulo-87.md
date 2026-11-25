@@ -1,0 +1,1 @@
+Artículo 87 ° . Otras Actividades. Se autoriza la coordinación de actividades educativas y de sensibilización adicionales a las estipuladas en el presente Reglamento o en el Plan Municipal de Gestión Integral de Residuos.

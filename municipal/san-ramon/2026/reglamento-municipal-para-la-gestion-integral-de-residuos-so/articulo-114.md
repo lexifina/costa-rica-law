@@ -1,0 +1,2 @@
+Artículo 114°. Actuación indebida del funcionario público. De conformidad con la N° 7554, las sanciones se aplicarán aumentando en un tercio, si quien resulta responsable por acción u omisión es un funcionario público o de hecho que tiene en sus funciones obligaciones relacionadas con la gestión de residuos. Además, se podrá imponer la inhabilitación especial, consistente en la pérdida del cargo público y la imposibilidad de ser nombrado nuevamente en cualquier cargo público durante cinco años.
+Lo anterior, sin perjuicio de sanciones penales y civiles aplicables.

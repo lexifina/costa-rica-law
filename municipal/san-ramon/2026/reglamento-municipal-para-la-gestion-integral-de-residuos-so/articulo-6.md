@@ -1,0 +1,3 @@
+CAPÍTULO II
+ATRIBUCIONES Y OBLIGACIONES MUNICIPALES
+Artículo 6°. Responsable de la Gestión Integral de Residuos Sólidos. Para la implementación de este Reglamento y de toda la legislación nacional vigente en la materia, la Unidad de Servicios Municipales Ambientales de la Municipalidad será el componente administrativo responsable de la gestión de los residuos sólidos municipales en el territorio del cantón de San Ramón bajo su jurisdicción. El Concejo Municipal y la Alcaldía en apego a sus deberes y responsabilidades dotarán a esta dependencia del personal técnico y profesional necesario, así como del presupuesto para cumplir con sus funciones, con base en lo establecido en el Código Municipal y la legislación vigente para la prestación de servicios.

@@ -1,0 +1,1 @@
+Artículo 13°. Gradualismo. Las obligaciones para prevenir la generación de residuos y fomentar su reutilización, reciclaje y otro tipo de valorización serán establecidas o exigidas de manera progresiva, atendiendo a la cantidad y peligrosidad de los residuos, las tecnologías disponibles, el impacto económico y social y la situación geográfica.

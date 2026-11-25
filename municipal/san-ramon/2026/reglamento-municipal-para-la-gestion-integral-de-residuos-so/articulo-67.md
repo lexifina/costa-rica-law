@@ -1,0 +1,1 @@
+Artículo 67°. Ampliación de la cobertura de los servicios municipales. La Municipalidad decidirá de acuerdo con criterios establecidos, a cuáles sectores se ampliarán la cobertura de los respectivos servicios y en qué momento. Además, considerará los recursos disponibles entre otros factores para realizar dicha ampliación.

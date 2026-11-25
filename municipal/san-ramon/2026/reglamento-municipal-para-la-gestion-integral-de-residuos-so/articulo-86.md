@@ -1,0 +1,2 @@
+Artículo 86°. Ferias, Campañas y Otras Iniciativas Ambientales. La Municipalidad tiene la facultad de organizar y llevar a cabo ferias, campañas y cualquier otra forma de actividad con fines de divulgación, información, formación y concienciación sobre la trascendencia de la gestión integral de residuos.
+Aunque la Municipalidad es la entidad responsable de la coordinación de estas actividades, podrá aplicar las disposiciones del presente Reglamento siempre que la naturaleza de la actividad así lo requiera.

@@ -1,0 +1,1 @@
+Artículo 28°. Transporte, disposición final y costo de residuos especiales y peligrosos. El transporte y disposición final de los residuos sólidos especiales y peligros se deberá hacer por medio de un Gestor Autorizado por Ministerio de Salud y la responsabilidad es de cada generados y bajo su propio costo.

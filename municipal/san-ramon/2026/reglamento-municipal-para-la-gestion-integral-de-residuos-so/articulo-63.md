@@ -1,0 +1,1 @@
+Artículo 63°. Fijación de las tasas. La Municipalidad fijará las tasas por los servicios citados, que incluyan los costos para realizar una gestión integral de los mismos, asegurando el fortalecimiento de la infraestructura necesaria para brindarlos y garantizar su sostenibilidad.

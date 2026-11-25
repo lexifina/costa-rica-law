@@ -1,0 +1,1 @@
+Artículo 78°. Sujeto pasivo con permiso de construcción vigente. Todo sujeto pasivo que cuente con permiso de construcción vigente deberá cancelar el servicio de acuerdo a la categorización que establece este Reglamento. Una vez finalizada la construcción, la Municipalidad tramitará de oficio el cambio a la categoría correspondiente.
