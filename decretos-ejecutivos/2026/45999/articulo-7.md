@@ -1,0 +1,1 @@
+Artículo 7º—Implementación. Los órganos sujetos a la aplicación obligatoria del presente Decreto deberán incorporar el proceso de formación dentro de sus mecanismos institucionales de capacitación y adoptarán las medidas necesarias para facilitar su cumplimiento.

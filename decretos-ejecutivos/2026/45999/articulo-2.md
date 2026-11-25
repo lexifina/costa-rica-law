@@ -1,0 +1,3 @@
+Artículo 2º—Ámbito de aplicación. La presente Estrategia será de aplicación obligatoria para los órganos que integran el Poder Ejecutivo, de conformidad con sus respectivas competencias.
+Se insta a las instituciones autónomas, empresas públicas, gobiernos locales y demás entidades públicas a promover y adoptar, de conformidad con sus respectivas competencias y régimen jurídico, las disposiciones y acciones contempladas en la presente Estrategia.
+Asimismo, se insta al sector privado a promover y adoptar, en el ámbito de sus actividades y posibilidades, las disposiciones y acciones contempladas en la presente Estrategia, como parte de las medidas orientadas a fortalecer la inclusión y participación de las personas con discapacidad.
