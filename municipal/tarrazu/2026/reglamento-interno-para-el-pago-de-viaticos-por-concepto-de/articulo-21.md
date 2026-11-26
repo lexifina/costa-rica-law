@@ -1,0 +1,1 @@
+Artículo 21.—En aquellos casos en que el funcionario viaje diariamente a atender un mismo asunto o actividad, o que en razón de ello deba permanecer regular y transitoriamente en un mismo lugar, siendo procedente el pago de viáticos, la Administración podrá autorizar por vía de excepción, la presentación únicamente de una liquidación.

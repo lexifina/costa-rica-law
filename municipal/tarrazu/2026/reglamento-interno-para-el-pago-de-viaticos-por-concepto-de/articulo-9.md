@@ -1,0 +1,1 @@
+Artículo 9°—Los gastos a que se refiere este Reglamento únicamente serán cubiertos al funcionario que presta a la Municipalidad sus servicios materiales e intelectuales, o de ambos géneros a nombre y a favor de ésta, en virtud de un acto válido y de eficaz investidura; ya sea que se encuentre trabajando en propiedad, en forma interina.

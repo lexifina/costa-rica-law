@@ -1,0 +1,1 @@
+Artículo 6°—Cuando participe en sesiones municipales o giras oficiales, el regidor o síndico deberá utilizar el servicio de autobús, cuando exista disponibilidad de este medio de transporte. En caso de que no exista dicha posibilidad, podrá utilizar el servicio de taxi.

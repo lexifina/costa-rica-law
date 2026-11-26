@@ -1,0 +1,1 @@
+Artículo 17.—Sólo se aceptarán aquellos gastos de viaje y de transporte, que estén debidamente autorizados por el Concejo Municipal o el Alcalde según corresponda o que sean autorizados posteriormente siempre que exista constancia escrita de las razones o fundamentos para aprobarlos.

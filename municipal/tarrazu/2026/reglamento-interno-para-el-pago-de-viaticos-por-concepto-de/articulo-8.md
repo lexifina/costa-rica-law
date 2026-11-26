@@ -1,0 +1,3 @@
+Artículo 8°—En el caso de todos los funcionarios municipales, corresponderá dar la autorización del gasto de viáticos de transporte, alimentación y hospedaje, al Alcalde Municipal. Por su parte, corresponde al Concejo Municipal, dictar el acuerdo de autorización de los gastos de transporte correspondiente a los Regidores y Síndicos.
+Corresponde también al Concejo Municipal dictar el acuerdo de aprobación de los gastos de viajes al exterior del país para los funcionarios municipales o miembros del Concejo Municipal.
+En el caso de las giras dentro del Cantón de Tarrazú corresponde al jefe inmediato del Departamento autorizar el pago del viatico, y al Alcalde o Alcaldesa Municipal aprobar el pago de viáticos de alimentación y hospedaje.

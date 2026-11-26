@@ -1,0 +1,2 @@
+Artículo 5°—Se reconocerán gastos de transporte a los regidores y síndicos (Propietarios y Suplentes) Municipales, que, debido a la distancia entre su lugar de residencia y la sede municipal o el sitio donde se celebre la sesión municipal, deban desplazarse una distancia igual o superior a quince kilómetros.
+Únicamente se reconocerán viáticos a los regidores y síndicos que tengan derecho a ello, cuando asistan puntualmente a las sesiones del Concejo Municipal y sean acreedores al pago de la dieta respectiva, según las disposiciones del artículo 30 del Código Municipal.

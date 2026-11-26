@@ -1,0 +1,1 @@
+Artículo 19.—Si una vez iniciada una gira, ésta se suspende, el funcionario deberá reintegrar en igual término (tres días hábiles) las sumas no disfrutadas del adelanto, conforme a la liquidación presentada.

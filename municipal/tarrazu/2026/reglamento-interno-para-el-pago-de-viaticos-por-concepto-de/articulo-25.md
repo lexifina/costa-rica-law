@@ -1,0 +1,1 @@
+Artículo 25.—En cuanto a viajes al exterior así como en cualquier otra situación no prevista en este reglamento, se aplicará lo establecido el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos de la Contraloría General de la República.

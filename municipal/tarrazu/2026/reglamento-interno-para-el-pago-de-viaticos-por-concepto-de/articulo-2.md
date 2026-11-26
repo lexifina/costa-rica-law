@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento y las personas que involucra, en lo no dispuesto aquí, quedan sujetas a las disposiciones contenidas en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos de la Contraloría General de la República y el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.—Ante la cancelación o posposición de una gira, el funcionario está obligado al reintegro inmediato (dentro del término máximo de tres días), de la totalidad de la suma recibida en calidad de adelanto.
