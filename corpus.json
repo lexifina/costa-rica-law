@@ -29,7 +29,7 @@
     "tratados": "Tratados Internacionales"
   },
   "citation": {
-    "file": "(constitucion/[0-9-]+|codigos/[a-z-]+|leyes/[0-9]+[^/]*|tratados/[0-9]{4}/[^/]+)/articulo-0*([0-9]+(-[a-z]+)?)\\.md",
+    "file": "(constitucion/[0-9-]+|codigos/[a-z-]+|leyes/[0-9]{4}/[0-9]+[^/]*|tratados/[0-9]{4}/[^/]+)/articulo-0*([0-9]+(-[a-z]+)?)\\.md",
     "cites": "([Aa]rt(í|i)culos?|ART(Í|I)CULO|[Aa]rt\\.) ?{n}([^0-9]|$)"
   }
 }

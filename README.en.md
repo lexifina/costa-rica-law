@@ -16,7 +16,7 @@ The texts are in Spanish, as SINALEVI publishes them.
 | --- | --- | --- |
 | `constitucion/` | the Constitución Política of 1949, every version; the historic constitutions, each in its own folder | `constitucion/1949/articulo-48.md` |
 | `codigos/` | the codes in force, every version | `codigos/codigo-penal/articulo-111.md` (Ley N° 4573) |
-| `leyes/` | every other Ley; numbers before 1922 repeat, and then carry the year | `leyes/8968/articulo-5.md`, `leyes/63-1887/` |
+| `leyes/` | every other Ley, by year (`leyes/<año>/<número>/`); a number repeated within one year carries the full date. [`data/paths.json`](data/paths.json) gives each law's earlier folder | `leyes/2011/8968/articulo-5.md`, `leyes/1885/25-1885-07-17/` |
 | `tratados/` | international treaties, by year | `tratados/1970/<name>/` |
 
 Each norm has a `README.md` with its SINALEVI record and version table, and `index.txt` with the order of its articles.

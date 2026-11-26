@@ -16,7 +16,7 @@ Los textos están en español, tal como los publica SINALEVI.
 | --- | --- | --- |
 | `constitucion/` | Constitución Política de 1949, cada versión; las constituciones históricas, cada una en su carpeta | `constitucion/1949/articulo-48.md` |
 | `codigos/` | los códigos vigentes, cada versión | `codigos/codigo-penal/articulo-111.md` (Ley N° 4573) |
-| `leyes/` | las demás Leyes; los números anteriores a 1922 se repiten, y entonces llevan el año | `leyes/8968/articulo-5.md`, `leyes/63-1887/` |
+| `leyes/` | las demás Leyes, por año (`leyes/<año>/<número>/`); un número repetido en el mismo año lleva la fecha completa. [`data/paths.json`](data/paths.json) da la carpeta anterior de cada ley | `leyes/2011/8968/articulo-5.md`, `leyes/1885/25-1885-07-17/` |
 | `tratados/` | Tratados Internacionales, por año | `tratados/1970/<nombre>/` |
 
 Cada norma tiene un `README.md` con su ficha de SINALEVI y la tabla de versiones, e `index.txt` con el orden de los artículos.

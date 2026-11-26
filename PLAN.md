@@ -26,7 +26,7 @@ Layout approved 2026-11-26. Source: SINALEVI (sinalevi.go.cr).
 | --- | --- | --- | --- |
 | `constitucion/` | Constitución Política 1949, every version; historic constitutions 1821-1917 as their own folders | `constitucion/1949/articulo-<n>.md`, `transitorio-<n>.md` | `constitucion/1949/articulo-48.md` |
 | `codigos/` | the codes in force (Civil, Penal, Procesal Civil, Procesal Penal, Trabajo, Comercio, Familia, Normas y Procedimientos Tributarios, Municipal, Niñez, Electoral, Procesal Contencioso-Administrativo, Minería, Aduanero, ...), every version | `codigos/<slug>/articulo-<n>.md`; folder README gives "Ley N° ..." | `codigos/codigo-penal/articulo-111.md` (Ley 4573) |
-| `leyes/` | every other Ley | `leyes/<numero>/articulo-<n>.md`; pre-1922 numbers repeat each year, so duplicates are `leyes/<numero>-<año>/` | `leyes/8968/articulo-5.md`, `leyes/63-1887/` |
+| `leyes/` | every other Ley, by year (at most ~550 a year) | `leyes/<año>/<numero>/articulo-<n>.md`; a number repeated within one year is `leyes/<año>/<numero>-<aaaa-mm-dd>/`. Until 2026-11-26 the folders were `leyes/<numero>/`; `data/paths.json` maps old to new | `leyes/2011/8968/articulo-5.md`, `leyes/1885/25-1885-07-17/` |
 | `tratados/` | Tratados Internacionales (with their approving Ley in the README) | `tratados/<año>/<slug-o-ley>/` | `tratados/1970/convencion-americana-ddhh/` |
 | `decretos-ejecutivos/` | Decretos Ejecutivos, every version | `decretos-ejecutivos/<año>/<numero>-<siglas>/articulo-<n>.md` | `decretos-ejecutivos/2024/44871-mp/` |
 | `reglamentos/` | Reglamentos of autonomous bodies, by issuer | `reglamentos/<ente>/<año>/<slug>/` | `reglamentos/ccss/2023/reglamento-salud/` |

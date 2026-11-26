@@ -10,6 +10,7 @@
 3. `python tools/build/build.py <repo> --mode first|append --fichas <list> --today <day>` writes one commit per
    version with `git fast-import`: one file per article (`textparse.py`), dated 12:00 America/Costa_Rica on the day
    the version took effect, authored by the norm that made it. `core.json` maps the Constitution and the codes to
-   their folders.
+   their folders. Leyes go in `leyes/<año>/<numero>/` (by SINALEVI's date of the norm); `data/paths.json` maps the
+   folders used before 2026-11-26 (`leyes/<numero>/`) to the current ones.
 
 No AI model runs when these files are built. The build code was written by Claude Code (Claude Opus 5.5).

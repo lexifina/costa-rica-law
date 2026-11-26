@@ -202,8 +202,8 @@ def _slug_name(name: str, limit: int = 60) -> str:
 
 def assign_paths(rows: list[dict]) -> dict[int, str]:
     """Folder of every norm, from the full list (so a norm's folder never depends on what else is built with it).
-    constitucion/<año>, codigos/<slug>, leyes/<numero>, tratados/<año>/<slug>; collisions get the year, then the
-    full date, then the ficha."""
+    constitucion/<año>, codigos/<slug>, leyes/<año>/<numero>, tratados/<año>/<slug>; collisions get the full
+    date, then the ficha."""
     out: dict[int, str] = {}
     cand: dict[int, list[str]] = {}
     for r in rows:
@@ -220,7 +220,8 @@ def assign_paths(rows: list[dict]) -> dict[int, str]:
         else:
             sub = (r.get('IdSubNumeroNormativa') or '0').strip()
             num = f"{r.get('NumeroNormativa')}" + (f'-{ascii_slug(sub)}' if sub not in ('', '0') else '')
-            cand[f] = [f'leyes/{num}', f'leyes/{num}-{fecha[:4]}', f'leyes/{num}-{fecha}', f'leyes/{num}-f{f}']
+            # by year (SINALEVI's FechaNormativa): at most ~550 Leyes a year, so no folder passes 1,000 entries
+            cand[f] = [f'leyes/{fecha[:4]}/{num}', f'leyes/{fecha[:4]}/{num}-{fecha}', f'leyes/{fecha[:4]}/{num}-f{f}']
     level = {f: 0 for f in cand}
     taken = set(out.values())
     while True:
