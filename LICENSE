@@ -1,0 +1,21 @@
+Costa Rica law repository: what it holds and on what terms
+
+1. Legal text (constitucion/, codigos/, leyes/, tratados/)
+
+Source: SINALEVI, Sistema Nacional de Legislación Vigente, Procuraduría General de la República de Costa Rica,
+https://sinalevi.go.cr (formerly https://www.pgrweb.go.cr/scij/). Read 2026-11-26.
+- SINALEVI publishes no terms of use; its pages carry only "Todos los derechos reservados".
+- robots.txt: none (HTTP 404 on sinalevi.go.cr, checked 2026-10-28 and 2026-11-26).
+- Costa Rican law: Ley N° 6683, Ley de Derechos de Autor y Derechos Conexos, artículo 75: "Se permite a todos
+  reproducir libremente las constituciones, leyes, decretos, acuerdos municipales, reglamentos y demás actos
+  públicos, bajo la obligación de conformarse estrictamente con la edición oficial." Laws and other public acts
+  may be reproduced freely, provided the reproduction keeps strictly to the official edition.
+- The official text is the one published in La Gaceta (Diario Oficial). SINALEVI's texts are reproduced here
+  as SINALEVI gives them, split into one file per article; for anything that matters, read the official edition.
+
+2. Lexifina's own work
+
+The folder structure, the README and other documentation files, the per-norm README and index files, the commit
+messages and trailers, the tables in data/ and the tools in tools/ are Lexifina's work, dedicated to the public
+domain under CC0 1.0 Universal:
+https://creativecommons.org/publicdomain/zero/1.0/legalcode

@@ -1,0 +1,35 @@
+{
+  "corpus": "cr/national/acts",
+  "name": "Costa Rica: Constitución Política, códigos, Leyes and Tratados (SINALEVI)",
+  "label": "Costa Rica",
+  "language": "es",
+  "history": "in-force",
+  "in_force_trailer": "In-force",
+  "has_future_branch": true,
+  "future_branch": "future",
+  "dates": {
+    "commit": "in-force (Fecha de vigencia desde of the norm that caused the version)",
+    "other_trailers": ["Enacted", "Published", "Cause-in-force"],
+    "time": "12:00 America/Costa_Rica",
+    "before_1970": "clamped to 1970-01-01"
+  },
+  "author": {
+    "enacted": "the norm itself",
+    "amendment": "the amending norm",
+    "repeal": "the repealing norm",
+    "combined": "SINALEVI (Procuraduria General de la Republica), causes in Candidate trailers",
+    "consolidated": "SINALEVI (Procuraduria General de la Republica), amendments in Consolidates trailers",
+    "unexplained": "SINALEVI (Procuraduria General de la Republica)",
+    "evidence_trailer": "Evidence"
+  },
+  "folders": {
+    "constitucion": "Constitución Política (1949 and historic constitutions)",
+    "codigos": "codes in force",
+    "leyes": "every other Ley",
+    "tratados": "Tratados Internacionales"
+  },
+  "citation": {
+    "file": "(constitucion/[0-9-]+|codigos/[a-z-]+|leyes/[0-9]+[^/]*|tratados/[0-9]{4}/[^/]+)/articulo-0*([0-9]+(-[a-z]+)?)\\.md",
+    "cites": "([Aa]rt(í|i)culos?|ART(Í|I)CULO|[Aa]rt\\.) ?{n}([^0-9]|$)"
+  }
+}
